@@ -26,7 +26,9 @@ I stopped talking to people after that. Just like that, I’d done half of the v
 
 I learned to be content. I almost learned to be happy. I stole a phone, stole a laptop, learned to observe the world from afar. I learned how to play the guitar. When I was 23, I helped deliver a baby in a crackhouse and learned the value of human life, and it made feel powerful. Like I was standing right before the void and telling it to fuck off.
 
-Then one night, I had a dream.
+Everywhere I went, I tried to leave a trail. It became a little compulsive hobby of mine. Etching my name into the walls of crumbling crackhouses, vandalizing family portraits, leaving my stories on online message boards where they were obligated to take me seriously. Sound familiar? The luxury of forming a story was something I took lesser and lesser for granted, the more time I spent in the madness of the other reality. It became my way of cobbling together my sanity. Everytime I returned, I wrote. Like a prisoner leaving tally marks as time sweeps through him like a tide.
+
+One night, I had a dream.
 
 I was walking on an ocean. The night was starless, pitch black. There was a hole in the ocean where the water turned to steam and space warbled and screamed, atoms decimated and turned to dust. I walked into it, and saw everything. My parents, beautiful, untouched, floating through the expanse. My lover. His older brother, his father, his mother, all frozen in time. Houses, objects, things even I didn’t recognize. These were things the Void had managed to erase completely, even from my mind. Friends, movies I’d loved, the names of toys I’d played with as a kid. I tried to touch them, caress their faces, but my hands passed right through them as though they were holograms.  
 

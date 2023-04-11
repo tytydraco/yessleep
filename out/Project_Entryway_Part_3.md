@@ -1,6 +1,4 @@
-[The Beginning](https://www.reddit.com/r/nosleep/comments/5og3od/project_entryway/)
-
-&#x200B;
+[Part 4/4](https://www.reddit.com/r/nosleep/comments/12ia398/project_entryway_part_4/)
 
 \-------------------------------------------------------------------------------
 
@@ -30,13 +28,13 @@ Yet when I read that letter, I felt something. For the first time in over 40 yea
 
 And then I waited.
 
-For the last 40 years I had lived immobile. My injuries had rendered my legs useless. I was confined to the steel charity of my wheelchair. A charity that allowed me to move about my accursed life with restricted freedom. 
+For the last 40 years I had lived immobile. My injuries had rendered my legs useless. I was confined to the steel charity of my wheelchair. A charity that allowed me to move about my accursed life with restricted freedom.
 
-They say God blesses the worst of us so that we may return to his light. 
+They say God blesses the worst of us so that we may return to his light.
 
-And He might have forgiven me. 
+And He might have forgiven me.
 
-But I haven’t forgiven myself. 
+But I haven’t forgiven myself.
 
 I don’t know if that makes me ungrateful, or just a sinner. I just knew that the gift of salvation wasn't for me. Not yet.
 
@@ -64,7 +62,7 @@ My escorts parted the doors open for our descent. Their nice black suits had beg
 
 Our mock procession continued our descent downwards. Far into the depths of crumbling concrete. Our path was guided by flickering yellow iridescent lights that buzzed overhead. Their sad songs were joined by the squealing melody of my old wheelchair.
 
-Every inch we progressed had conjured up vivid ghosts within my mind. I envisioned the empty halls filled with the staff from yesteryear. Invisible forms of scientists and technicians hustling about with their 80’s hairstyles and tightly rolled up sleeves. 
+Every inch we progressed had conjured up vivid ghosts within my mind. I envisioned the empty halls filled with the staff from yesteryear. Invisible forms of scientists and technicians hustling about with their 80’s hairstyles and tightly rolled up sleeves.
 
 They appeared so very real to me in that moment. I had to wonder if my escorts could see them too.
 
@@ -78,7 +76,7 @@ I expected to see a catacomb of death laid out before me. A final vault containi
 
 But instead I was blinded by an intense white light that had poured out from the doorway. Inside were dozens of researchers hastily running back and forth. These would be the new men of our hereditary mistake. What we had birthed decades ago had given these men purpose.
 
-In front of the far wall of this warehouse stood the same metallic pillars that I had endless nightmares about. 
+In front of the far wall of this warehouse stood the same metallic pillars that I had endless nightmares about.
 
 They were both the keys and the lock that separated our world from the next one over. With a single click of a button the concrete wall that separated our reality from Hell would fall away. Joining the two realities in an unholy marriage.
 
@@ -86,15 +84,15 @@ I glanced over further down the back wall and observed a massive pile of boxes. 
 
 Even though they had done their best to keep this room clean from physical damnation, the effects on all the human souls were present.
 
-Nevertheless I still felt like I knew these men. 
+Nevertheless I still felt like I knew these men.
 
-I know it sounds mad but they carried with them the same type of energy and aura that the men from yesteryear did. For just a moment I thought I would be able to turn my head and be a witness to the second coming my old comrades. As though I would be able to see Georgy, Bobby and Yoshi prepped for my command. 
+I know it sounds mad but they carried with them the same type of energy and aura that the men from yesteryear did. For just a moment I thought I would be able to turn my head and be a witness to the second coming my old comrades. As though I would be able to see Georgy, Bobby and Yoshi prepped for my command.
 
-I could still hear their laughs somewhere deep within my mind. Right underneath the sounds of their screaming. 
+I could still hear their laughs somewhere deep within my mind. Right underneath the sounds of their screaming.
 
-However, the resurrection I witnessed was not that of my comrades. But a resurrection of something far worse. 
+However, the resurrection I witnessed was not that of my comrades. But a resurrection of something far worse.
 
-I turned my gaze towards my left. My eyes focused on the same battered metallic steps that I had remembered so long ago. I trailed my eyes up them to the same observation post that had controlled the gateway to Hell itself. The very pulpit of scientific preaching and overreach. 
+I turned my gaze towards my left. My eyes focused on the same battered metallic steps that I had remembered so long ago. I trailed my eyes up them to the same observation post that had controlled the gateway to Hell itself. The very pulpit of scientific preaching and overreach.
 
 And with the pulpit, comes the Priest.
 
@@ -116,7 +114,7 @@ I turned my wheelchair to face the man that had not harmed me in the past. But t
 
 I felt my jaw clench down in disgust. I hated this man. I couldn’t explain why but I still blamed him for what I did.
 
-Worse yet, the lives that I had watched flicker out in my very own hands had meant nothing to him. Nothing to the greater Project. The Project itself had appeared to be dying of its own accord. 
+Worse yet, the lives that I had watched flicker out in my very own hands had meant nothing to him. Nothing to the greater Project. The Project itself had appeared to be dying of its own accord.
 
 No final act of vengeance to be had. Just financial ruin. No advancements, no memorials, just death.
 
@@ -158,7 +156,7 @@ Dr. Hargrove’s features changed into that of a proud fathers. A genuine smile 
 
 “Your old squadron. Squadron 08-23. They consist of the three surviving members from our most recent expedition. They’re expecting you in your old common room. I suspect you still remember where that is?”
 
-I nodded in response. 
+I nodded in response.
 
 “Good.” called out the Director. “We’re leaving tomorrow morning. Now if you’ll excuse me.” Without a second glance, Dr. Hargrove turned his back towards me.
 
@@ -170,7 +168,7 @@ My escort eventually grabbed onto the back of my wheelchair and broke me from my
 
 I followed the specter of my memories towards the old common room. I couldn't help but reminisce over the fact that the last time I had ventured into those depths I had stood tall and confident.
 
- Now I felt frail and weak. 
+Now I felt frail and weak.
 
 The ceilings had towered over my body like a hellish giant, they loomed over me with no regard over who I was. They judged me over every rotation of my wheels and over every labored breath I took.
 
@@ -196,7 +194,7 @@ I took a deep breath before introducing myself.
 
 The Irishman shrugged and took a sip of his drink. “‘Suppose we’ll work together then.”
 
-I wheeled myself up to their table and extended my hand to the three of them. Each one shook it. 
+I wheeled myself up to their table and extended my hand to the three of them. Each one shook it.
 
 Each one of them had a strong, dependable, grip.
 
