@@ -50,7 +50,7 @@ Aware that this was a peak time for encountering abnormal behavior down on the u
 
 It was whilst I’d been contemplating what to do next that another sound in the carriage had quickly broken my train of thought. The sound was sharp, discorded, a harsh contrast amidst the quiet carriage. A noise that I’d not heard for many years.
 
-A sound that I remembered listening to in school sometimes. It went under a variety of different names. ‘Hurdy-Gurdy’ ‘Viella A Roue’ but I knew it best as the old, German medieval instrument we had in our school. 
+A sound that I remembered listening to in school sometimes. It went under a variety of different names. ‘Hurdy-Gurdy’ ‘Viella A Roue’ but I knew it best as the old, German medieval instrument we had in our school.
 
 A Drehleier.
 
@@ -70,7 +70,7 @@ The mask itself had been carved into a rictus grin, much in the same way as the 
 
 They were hideous.
 
-Looking down at the instrument I could see how the figure’s long fingers were clad in a pair of old-looking, cracked, black leather gloves. I'd watched mesmerized as the fingers had flown over the Drehleier like a dancing spider - and though I wasn’t aware of the tune the musician played, I’d felt an instant uncanny familiarity to it like it had been something she’d once heard years ago as a child.
+Looking down at the instrument I could see how the figure’s long fingers were clad in a pair of old-looking, cracked, black leather gloves. I'd watched mesmerized as the fingers had flown over the Drehleier like a dancing spider - and though I wasn’t aware of the tune the musician played, I’d felt an instant uncanny familiarity to it like it had been something I’d once heard years ago as a child.
 
 But the most unsettling aspect for me was how the entire time the person played, the Drehleier player’s eyes had seemingly remained fixated on the crying passenger. This complex and impressive musical performance didn’t seem to impress the woman in the slightest. In fact, it seemed to alarm her even more and her sobbing grew in intensity with every turn of the instrument’s handle.
 
@@ -84,7 +84,7 @@ Like a clockwork toy, this token of payment had seemingly brought the figure bac
 
 Then the train had lurched sideways with that familiar motion of the brakes being applied as we approached a station.  Drowsily I’d turned to look out darkened windows. I froze. There was no station. A total void of blackness lay outside the glass.
 
-As I looked on in confusion, the doors of the train slowly slid apart, revealing a dimly lit platform with a wall of black tiles. No lights, no seats, and no clear exits. 
+As I looked on in confusion, the doors of the train slowly slid apart, revealing a dimly lit platform with a wall of black tiles. No lights, no seats, and no clear exits.
 
 A ghost station.
 
@@ -92,7 +92,7 @@ The busker had stood quietly to one side of the doors as if gesturing to the wom
 
 I’d attempted to speak but found myself frozen to the spot. Her expression was horrific. I made me think of a term my religious mother used to use ‘harrowed.' ‘Harrowed from hell.’
 
-As if to signal for the woman to hurry, once again the busker had dropped and bowed to the passenger. The woman, seemingly unhappy to be disembarking had stumbled forwards into the dark beyond, looking around disorientated. Then, as she gulped back tears I’d watched her feel her way into the darkness until she was swallowed by the darkness. As I searched for the words, unsure of what I was watching, to my horror the doors had suddenly slid shut and once more the train lurched onwards.  
+As if to signal for the woman to hurry, once again the busker had dropped and bowed to the passenger. The woman, seemingly unhappy to be disembarking had stumbled forwards into the dark beyond, looking around disorientated. Then, as she gulped back tears I’d watched her feel her way into the darkness until she was swallowed by the darkness. As I searched for the words, unsure of what I was watching, to my horror the doors had suddenly slid shut and once more the train lurched onwards.
 
 She was gone.
 
@@ -128,7 +128,7 @@ Darkness surrounded me. Unable to see in the dark, I was aware the space I was i
 
 Instead, this floor felt colder, harder. I’d suddenly panicked as I’d distinctively felt the touch of stone and brickwork.
 
-I’d been thrown out of the train. 
+I’d been thrown out of the train.
 
 Quickly getting to my feet I used my phone’s torch, sweeping it desperately around me. My suspicions had been confirmed, I was in a ghost station, a disused part of the line no longer utilized for passenger services. There were no clear exits and no phone service.
 
@@ -136,7 +136,7 @@ I was stranded.
 
 Countless year's worth of thick, black dust lay on bleached, ghost signs for tobacco and sweets. Spiders scuttled over long discarded cigarette ends.
 
-Glancing down at the rails I was shocked to see they’d appeared warped and rusty, seemingly unused for decades. 
+Glancing down at the rails I was shocked to see they’d appeared warped and rusty, seemingly unused for decades.
 
 How had I got here?
 
@@ -172,7 +172,7 @@ Regardless I went back to work and didn’t tell anyone about it. Hell how could
 
 I guess it had probably been several days later when I’d put my clothes in the wash. As I’d emptied my jeans’ pockets, the distinct metallic clattering sound of a coin hitting the floor made me freeze.
 
-Pausing, I reached down to pick the object up off the floor. I recognized it instantly. 
+Pausing, I reached down to pick the object up off the floor. I recognized it instantly.
 
 It was the woman’s old token from the train. I’d felt my breath catch in my throat. A relic from something I’d assumed was a nightmare, but suddenly in my hand in the cold light of day it seemed very real again.
 
@@ -188,7 +188,7 @@ My birthday.
 
 &#x200B;
 
-I’d done my best to reason with myself that my birthday being the same as the date in front of me was purely coincidental. I had to, there was no other option. Heck perhaps I’d scored it there myself in a drunken haze. 
+I’d done my best to reason with myself that my birthday being the same as the date in front of me was purely coincidental. I had to, there was no other option. Heck perhaps I’d scored it there myself in a drunken haze.
 
 It’s foolish now to think I’d rationalized it so quickly.
 
@@ -196,7 +196,7 @@ It had been the next day when I’d heard the Drehleier music first again.
 
 Admittedly I’d taken it to be another student in school, practicing in one of the closed rooms. But when I’d gone to investigate there’d been no one there. When I asked my colleagues, they’d been confused they’d heard no sounds, the rooms had been locked, empty all day.
 
-That evening I went home and threw away the coin. 
+That evening I went home and threw away the coin.
 
 But the next day it was back, sat on my bedside table when I woke.
 
@@ -204,21 +204,21 @@ There was no question, I’d definitely thrown it away.
 
 Over the next two weeks, I’d heard the sound over and over again. First whilst out shopping. A harsh whine in the ‘Supermarkt’ I’d cried in shock as the piercing shriek of the Drehleier seemed to echo down the aisle, dropping my shopping in the process. The shopper next to me stared as if I’d lost my mind.
 
-But then I heard it once more - and turning, I caught the edge of a ragged tunic as something dark and nimble leapt behind a display of cereal boxes. 
+But then I heard it once more - and turning, I caught the edge of a ragged tunic as something dark and nimble leapt behind a display of cereal boxes.
 
 But of course, when I’d run down to them, there’d been nothing there.
 
 Later I heard it at night, often somewhere outside my window. I asked my neighbors but no one knew what I was talking about. I heard them whispering about “the crazy foreigner.”
 
-It’s been two weeks and nearly one day and the sound gets louder every night. Sometimes I can’t sleep it’s so loud. 
+It’s been two weeks and nearly one day and the sound gets louder every night. Sometimes I can’t sleep it’s so loud.
 
 I’m sure I’ve seen ‘it’, lurking in the hedges outside the apartment block.
 
-\- and no matter how many times I throw away the coin, it keeps coming back. So this I believe is my last option. 
+\- and no matter how many times I throw away the coin, it keeps coming back. So this I believe is my last option.
 
 You might believe me when I saw this, but truly I’m so, so  sorry... “
 
-After I read the letter I’d reached out to the library but they’ve got no record of the person who left it there. 
+After I read the letter I’d reached out to the library but they’ve got no record of the person who left it there.
 
 There’s no further information on the person in question. But I did remember reading a story about a missing music teacher in Vienna some time ago.
 

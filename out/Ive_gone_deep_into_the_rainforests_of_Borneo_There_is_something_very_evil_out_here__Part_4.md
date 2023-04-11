@@ -97,3 +97,5 @@ Or do I run into the rainforest and chance my luck?
 Either way, she’s chasing me.
 
 [She’s not going to stop chasing me.](https://www.reddit.com/r/squishycabbage/)
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/12iintj/ive_gone_deep_into_the_rainforests_of_borneo/)
