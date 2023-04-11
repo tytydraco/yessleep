@@ -160,10 +160,4 @@ Regardless, I was soon back to doing on site missions and many went smoothly wit
 
 The truth is that we live under false security, only protected by a thin wall from hostile exterior dimensions. 
 
-Maybe I'll share a few more of my stories soon. 
-
-[EXPAND](https://www.reddit.com/r/notneccesarily/comments/goyxvy/welcome_to_the_subreddit_click_here_to_see_the/)
-
-[OD](https://www.reddit.com/r/Odd_directions/)
-
-[TCC](https://www.reddit.com/r/TheCrypticCompendium/)
+Maybe I'll share a few more of my stories [soon.](https://www.reddit.com/r/notneccesarily/comments/goyxvy/welcome_to_the_subreddit_click_here_to_see_the/)
