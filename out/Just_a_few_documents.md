@@ -1,13 +1,22 @@
 Patient Record
+
+
 Name: Sawyer, Rita Louise
+
+
 Date of Birth: September 21, 1962
+
+
 Current Conditions: Pregnancy, Clinical Depression, Asthma
+
+
 —
 December 4, 1997 
 
 
 Rita's pregnancy is progressing wonderfully as we approach her 30th week. Still, in these final moments she complains about being unable to drink. She is five months sober currently. Pastor Matthews suggests we start the ritual sooner rather than later. Doctor Yancy agreed, and instructed me to give Rita the first series of abdominal injections. After the initial pain subsided, the baby began to kick causing Rita mild discomfort. She left with complaints of chest pains, feeling like the baby was "trying to crawl up out of her". I prescribed extra strength antacids, and a few Tylenol. Our Parish will thrive again. 
-Constance Marigold CNM
+
+- Constance Marigold CNM
 
 
 
@@ -15,7 +24,8 @@ December 11, 1997
 
 
 The pregnancy is progressing normally. Rita complains that she can hear the baby wailing at night. Psychiatric care may be advised. She complains of her cravings, she wants alcohol and funnily enough, sushi. Still craving that Hollywood life. Another round of injections at Dr. Yancy's command. The baby visually responded, kicking and pushing. Rita showed signs of intense distress and required sedation. Soon.
-Constance Marigold CNM
+
+- Constance Marigold CNM
 
 
 
@@ -109,12 +119,15 @@ Sally D'Angelo: The baby was brought to Springwater Medical where she is current
 
 
 Thursday, February 5, 1998
+
 Springwater Medical Center
+
 Patient Record
 
-
 Name: Baby Doe
+
 DOB: January 30, 1998
+
 Current Conditions: Pneumonia, L.W. Syndrome
 
 
@@ -123,7 +136,8 @@ Baby Doe cries constantly. Her tears, vomit, saliva, and blood are black. Her ur
 
 
 Upon stabilization, I suggest relocation of Baby Doe to the Calming Star Orphanage for further monitoring and experimentation.
-Y. Kelso M.D. 
+
+- Y. Kelso M.D. 
 
 
 
