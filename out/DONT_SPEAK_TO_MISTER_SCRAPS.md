@@ -192,6 +192,6 @@ If he shows up in your town, let him make all the noise he wants.  Let him take 
 
 And be grateful that he doesn’t take anything [else.](https://www.reddit.com/r/JGcreepypastas/comments/zpi8zt/master_story_list_updated_regularly/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)  
 
-[YT](https://youtu.be/rumiJJyA2FM)
+[YT](https://youtu.be/DagEcD7Uk9k)
 
 [TCC](https://www.reddit.com/r/TheCrypticCompendium?utm_medium=android_app&utm_source=share)
