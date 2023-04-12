@@ -69,3 +69,5 @@ Suddenly, an idea came to me. I headed back towards the nest I had seen, the one
 The larvae started to slither towards me. I heard more hissing from multiple directions all around me, and realized that there might be hundreds or thousands of adult monstrosities in this chamber. My only hope, at least as I saw it, was to take any advantage I could get.
 
 I grabbed a handful of the yellowish secretions from the corner of the nest, forcing it in my mouth and down my throat before I could change my mind.
+
+Part 3: https://www.reddit.com/r/nosleep/comments/12jihbm/i_had_an_uncle_with_13_fingers_there_were_things/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button
