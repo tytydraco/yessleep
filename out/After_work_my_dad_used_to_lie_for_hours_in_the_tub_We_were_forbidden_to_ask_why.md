@@ -68,7 +68,7 @@ I touched his hand, trying to wake him up.
 
 “It’s okay, Dad,” I said. “You’ll be okay.”
 
-He was sleeping in his boxes, sweating despite the fact that he wasn’t under any covers. And in the dim moonlight, I saw just how bruised his body had become. Dark purple spots ran all along his abdomen and decorated his arms and legs, like he’d taken a hundred hits with a closed fist.
+He was sleeping in his boxers, sweating despite the fact that he wasn’t under any covers. And in the dim moonlight, I saw just how bruised his body had become. Dark purple spots ran all along his abdomen and decorated his arms and legs, like he’d taken a hundred hits with a closed fist.
 
 “What do you do?” I asked softly.
 
