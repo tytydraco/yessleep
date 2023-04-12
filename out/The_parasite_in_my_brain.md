@@ -156,9 +156,9 @@ I got myself up, rushed to the glass, and smashed it with the wrench.
 
 “Hey, little warning?” Dr.Quade yelled, jumping out.
 
-“Shut up! God, you *cannot* be the nice part of my brain!
+“Shut up! God, you *cannot* be the nice part of my brain!"
 
-He grinned. “Good. not nice. Big distinction.” At that, the Good-but-not-nice Dr.Quade gently took the wrench from my hand. “Most people aren’t nice after fighting that thing for years.”
+He grinned. “Good. Not nice. Big distinction.” At that, the Good-but-not-nice Dr.Quade gently took the wrench from my hand. “Most people aren’t nice after fighting that thing for years.”
 
 “I don’t see how we can fight it, we should run or wait for help.” I insisted.
 
