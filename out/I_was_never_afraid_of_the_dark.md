@@ -83,3 +83,7 @@ I don't remember what happened next. Literally, my memory just cuts out there, a
 I remember thinking I should have thrown up, or at least felt like it, upon seeing his partially eviscerated body lying in a pool of blood on the forest floor, but I didn't feel nauseous at all. Shocked, yes, but this somehow also felt... natural. Like I was doing something that I was meant to do. I looked back down at what remained of Cliff. His head had been nearly separated from his neck, and he was covered in what appeared to be slashes, stab wounds, and... bite marks? I felt the metallic taste of blood in my mouth, but I knew that it wasn't mine. I raised my hands with the intention of trying to examine my teeth, which felt much longer and sharper in my mouth than usual, but stopped when I saw that my fingernails had somehow extended into 6 - inch - long claws, dripping with blood and small bits of viscera.
 
 "What the fuck..." I muttered. There were no mirrors nearby, but I thought that might be a good thing, as I was terrified of what I might see if I looked in one right now.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/12k0epb/i_was_never_afraid_of_the_dark_part_2/)
+
+&#x200B;
