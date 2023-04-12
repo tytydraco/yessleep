@@ -29,3 +29,5 @@ I'll just say that Captain won the fight, but it all was so... I don't know, I d
 If there's any silver lining to this is, Captain grabbed the rock, for the very first time, and he just carried with him on his mouth. He then just stood there, as if he was waiting for me to lead him. So I did, grabbed the leash, and got back to the car in a horrible calm. If no vet could help me, I would at least have to stitch Captain's neck - and disinfect and clean up my bite wound -.
 
 Next stop, the pharmacy, and then... I guess it's time to start calling other town's vet clinics. This feels like a really long shot, I'm already exhausted, but I need to do something, I can't just stand and watch him go through whatever he's going through until he dies.
+
+Part 3: https://www.reddit.com/r/nosleep/comments/12jnin8/my_dog_is_acting_weird_and_i_cant_count_on_the/
