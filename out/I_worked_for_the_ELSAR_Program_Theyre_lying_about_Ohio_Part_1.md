@@ -1,3 +1,5 @@
+[\[Part 2\]](https://www.reddit.com/r/nosleep/comments/12kbqpk/i_worked_for_the_elsar_program_theyre_lying_about/)
+
 Don’t trust [ELSAR.](https://www.reddit.com/r/nosleep/comments/125343t/i_got_an_email_from_a_whistleblower_things_arent/)
 
 If you take nothing else from my post, then spread those words everywhere. Share it, tweet it, paint it on the freaking walls. Someone has to do something, someone has to stop them, before they go too far. I know it sounds like some crazy conspiracy theory, I know most of you won’t believe me, but I swear they’re real.
