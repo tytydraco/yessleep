@@ -8,7 +8,7 @@ I settled into my seat on the train, feeling the familiar rumble of the tracks b
 
 To make matters even weirder, the normally 5 minute train journey seemed to be taking much longer. I checked my watch, but it had stopped working. When I looked at my phone, I realised that there was no date or time displayed. I couldn’t believe it. Had something happened while I was dozing off? Was I dreaming?
 
-I shook my head trying to clear the fog that had settled over my thoughts. I tried to focus on the rhythmic motion of the train, which rattled like a snake, but my mind kept returning to the peculiar situation. As the train finally pulled into my stop, I couldn’t help but feel a sense of relief. I frantically stepped off the train, grateful to be back in the word of the awake and aware.
+I shook my head trying to clear the fog that had settled over my thoughts. I tried to focus on the rhythmic motion of the train, which rattled like a snake, but my mind kept returning to the peculiar situation. As the train finally pulled into my stop, I couldn’t help but feel a sense of relief. I frantically stepped off the train, grateful to be back in the world of the awake and aware.
 
 26/01/27 - 4:37PM - WHAT IS THIS PLACE?
 

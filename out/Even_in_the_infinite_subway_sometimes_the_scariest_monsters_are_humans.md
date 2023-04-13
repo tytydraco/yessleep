@@ -2,7 +2,7 @@
 
 \-------------------------------------
 
-If there is any God in this world, in this subway, I beg you to help me. I implore you Go that something, anything, would come and help us get through this. Beg that my cries of help will be heard, because right now, I'm this close to getting caught as well. They... got everyone else. I am hiding under the chairs, a few carts away from the main cart, hoping that I can somehow help the rest or at the very least, manage to slip away. It's not selfish if I don't help them out, right?? If I run... I can just find a new group... No... I can't lie to myself. If I leave now, I wouldn't be able to live with the guilt.
+If there is any God in this world, in this subway, I beg you to help me. I implore you, so that something, anything, would come and help us get through this. Beg that my cries of help will be heard, because right now, I'm this close to getting caught as well. They... got everyone else. I am hiding under the chairs, a few carts away from the main one, hoping that I can somehow help the rest or at the very least, manage to slip away. It's not selfish if I don't help them out, right?? If I run... I can just find a new group... No... I can't lie to myself. If I leave now, I wouldn't be able to live with the guilt.
 
 I need to calm myself down. I need to continue. Maybe someone can give me some insight I can't see. Please...
 
@@ -58,7 +58,7 @@ Reluctantly, I went on and finished the rat meat, given the fact that it was eit
 
 After that, they laughed and hugged each other, much to the dismay of the twins. Seeing them like that made me wish I was next to Marie...
 
-Once everyone had their dinner, we remained in this "living room" of sorts and everyone began to chat with each other. Matt and John were talking about the old days from before the subway and who's the next to go hunt for supplies, Gertrude, Helen and Emiliy were talking about what they should do for "breakfast" and Michael and Gabriel were playing with an old set of cards. Seeing everyone so relaxed was odd, given the circumstances, but at the same time, I couldn't help but feeling a bit better too, finally being able to not feel on edge ever since I got here. Looking around, I noticed that a good portion of chairs were missing, giving the cart a feeling of being bigger than it actually was. It was nice having some sort of breathing room, as much as a subway would allow. Further looking around, I saw a wall socket a few feet away. I quickly padded myself and, thankfully, I had my charger on me. Plugging it in, I was so relieved when I saw it working. My phone won't be dying any time soon. 
+Once everyone had their dinner, we remained in this "living room" of sorts and everyone began to chat with each other. Matt and John were talking about the old days from before the subway and who's the next to go hunt for supplies, Gertrude, Helen and Emiliy were talking about what they should do for "breakfast" and Michael and Gabriel were playing with an old set of cards. Seeing everyone so relaxed was odd, given the circumstances, but at the same time, I couldn't help but feeling a bit better too, finally being able to not feel on edge ever since I got here. Looking around, I noticed that a good portion of chairs were missing, giving the cart a feeling of being bigger than it actually was. It was nice having some sort of breathing room, as much as a subway would allow. Further looking around, I saw a wall socket a few feet away. I quickly padded myself and, thankfully, I had my charger on me. Plugging it in, I was so relieved when I saw it working. My phone won't be dying any time soon.
 
 Afterwards, looking at the ceiling pipes, i noticed some plastic boxes on them, glued to the ceiling. John noticed me staring at them a bit confused.
 
@@ -104,7 +104,7 @@ Afterwards, looking at the ceiling pipes, i noticed some plastic boxes on them, 
 
 "I suppose you also have to keep watch for the Janitor and other humans, but honestly, it's very rare for either of those to happen. I've only seen the Janitor twice in all of my time here, and even rarer for someone else to get here."
 
-"Oh, well, in that case, sure. I'll stand watch." 
+"Oh, well, in that case, sure. I'll stand watch."
 
 "Thanks kid, I needed the sleep. Haven't had much since you got here."
 
@@ -142,7 +142,7 @@ I took out my phone and sure enough, it's been a few hours since everyone else h
 
 And with that we took a few spare tickets and started going towards the Drip. We didn't manage to get two carts away before hearing Helen screaming.
 
-We rushed back to our carts as fast as we could and right as we were about to enter, we looked through the window to see what was going on. In the cart, there were five men standing up, all of them having guns, pointing them towards the rest, who were kneeling down. The man in front of everyone began to yell. 
+We rushed back to our carts as fast as we could and right as we were about to enter, we looked through the window to see what was going on. In the cart, there were five men standing up, all of them having guns, pointing them towards the rest, who were kneeling down. The man in front of everyone began to yell.
 
 "All right everyone. We're either going to do this the easy way, or the hard way. Hand over all your tickets and supplies and no one's gonna get hurt. If you don't do that, you'll soon find out that you won't be needing them anyway. And also, if anyone tries to play the hero, you'll know what pain truly feels like!"
 
@@ -150,7 +150,7 @@ We rushed back to our carts as fast as we could and right as we were about to en
 
 The man went in front of Helen, putting his gun right to her forehead.
 
-"Look at me." he growled at Helen, "Look. At. Me. Does it look like I give a shit about any of y'all? One more word out of line and that wall over there will soon have a new coat of red painting!" 
+"Look at me." he growled at Helen, "Look. At. Me. Does it look like I give a shit about any of y'all? One more word out of line and that wall over there will soon have a new coat of red painting!"
 
 "Hey boss," interrupted one of the other men. "You sure you want to kill this one? She looks sooo pretty. I am sure she'd be fun to mess around with." beginning to chuckle to himself while looking at Helen.
 
@@ -158,7 +158,7 @@ The man went in front of Helen, putting his gun right to her forehead.
 
 "What's tha-"
 
-The guy didn't have time to finish his sentence. As soon as he opened his mouth, the leader shoved the gun in the man's mouth and pulled the trigger, blowing his head in front of everyone. 
+The guy didn't have time to finish his sentence. As soon as he opened his mouth, the leader shoved the gun in the man's mouth and pulled the trigger, blowing his head in front of everyone.
 
 "I said "one more word out of line". Now," looking back at the people who were kneeling " I can also be very understanding. Do what I say, and we'll get along juuust fine."
 

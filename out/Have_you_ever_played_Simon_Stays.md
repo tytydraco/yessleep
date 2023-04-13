@@ -62,13 +62,13 @@ There came a wheeze from a nearby gravestone. In horror, I turned my head, but t
 
 “Can’t you hear Simon?” Richie cried joyously. “He’s going to answer my questions.”
 
-I lost sight of my friend behind some gravestones, and I ran after him with trembling legs. The lightless graveyard had already terrified me, but it plunged to a new level of horror once I was alone. I shrieked Richie’s name until my throat went dry. He’d vanished from sight, and every part of my body was screeching at me to go home. I knew my mother would be worrying.
+I lost sight of my friend behind some gravestones, and I ran after him with trembling legs. The lightless graveyard had already terrified me, but it plunged to a new level of horror once I was alone. I shrieked Richie’s name until my throat went dry. He’d vanished from sight, and every part of my body was screeching at me to go home. I knew my father would be worrying.
 
 But then I heard a sound.
 
 A hummed tune. It sounded vaguely like a dissonant version of a children’s lullaby, though I couldn’t place which one, and that only unsettled me more deeply. And when Richie finally emerged from the shadows, I screamed.
 
-His skin had withered, and it was clear that he had aged. But he looked older than any living human — *hundreds* of years old. As if he had spent centuries learning terrible truths from Simon. This impossibility had ridden Richie of his humanity, and the decrepit figure only filled me with terror beyond comprehension.
+His skin had withered, and it was clear that he had aged. But he looked older than any living human — *hundreds* of years old. As if he had spent centuries learning terrible truths from Simon. This impossibility had ridden Richie of his humanity, and the decrepit figure filled me with terror beyond comprehension.
 
 “W… What happened to you?” I asked.
 
@@ -76,19 +76,19 @@ Richie smiled a yellow, toothy grin. “Simon answers all questions, but everyon
 
 “I don’t want answers,” I whimpered, backing away from the abomination that used to be my friend.
 
-In the dim moonlight, I started to notice the full extent of his dreadful features. His pupils were black saucers that filled most of his eyes. But it was a black *fullness*, not emptiness — they were eyes of knowledge. Too much knowledge, it seemed.
+In the dim moonlight, I started to notice the full extent of his dreadful features. His pupils were black saucers that spanned most of his eyes. But it was a black *fullness*, not emptiness — they were eyes of knowledge. Too much knowledge, it seemed.
 
 “Too late. You’re playing the game,” Richie giggled. “Simon *must* answer your question. And when he does, you must stay here… forever. For his knowledge is too great to fall upon the ears of those outside our little game. It’s a secret, Amber. Can you keep a secret?”
 
-I darted as fast as my legs could carry me. I heard the inhuman Richie howl behind me, and he scurried after me with a tremendous amount of noise. I didn’t turn around to verify that — I had to trust my ears.
+I darted as fast as my legs could carry me. I heard a howl from the inhuman Richie, and he scurried after me. I didn’t turn around to verify that — I had to trust my ears.
 
-The gate was in sight, but Simon, or whatever possessed Richie, had transformed my friend into an unstoppable machine. I only had one shot at freedom, and it was based on an unsubstantiated hunch.
+The graveyard gate was in sight, but Simon had transformed my friend into an unstoppable machine. He was hot on my heels. I only had one shot at freedom, and it was based on an unsubstantiated hunch — Richie was trapped in the graveyard.
 
-When that green, metal gate opened and closed without any altercation with Richie/Simon, I breathed a sigh of relief. What horrified me more than anything, however, was the realisation that I was still staring at the sun-human monstrosity that used to be my dearest human. It didn’t cross the boundaries of the graveyard, but it didn’t need to do so — it already struck fear into my heart.
+When that green, rusting gate opened and closed behind me, I turned and breathed a sigh of relief. Richie didn’t follow me. I eyed the sub-human monstrosity that used to be my dearest friend. It didn’t cross the boundaries of the graveyard, but the gaze from its egregious eyes was enough to haunt me.
 
-I winced, bracing for a bony hand to rush over the gate and seize me by the neck. Instead, Richie — or the thing that used to be Richie — turned and fled.
+I winced, bracing for a bony hand to slither over the gate and seize me by the neck. Instead, Richie — or the thing that *used* to be Richie — spun around and fled.
 
-To this day, nobody has been able to locate my missing childhood friend. And only I know the truth.
+To this day, nobody has been able to locate my missing childhood friend. Only I know the truth.
 
 Richie stays… in the graveyard.
 
