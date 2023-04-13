@@ -1,4 +1,5 @@
-[Link to Part 1](https://www.reddit.com/r/nosleep/comments/122e2yc/my_ex_thinks_his_house_is_haunted_and_wants_me_to/)[Link to Part 2](https://www.reddit.com/r/nosleep/comments/1263zt5/investigating_the_ghost_experiments_with_my_ex/)
+[Link to Part 1](https://www.reddit.com/r/nosleep/comments/122e2yc/my_ex_thinks_his_house_is_haunted_and_wants_me_to/)  
+[Link to Part 2](https://www.reddit.com/r/nosleep/comments/1263zt5/investigating_the_ghost_experiments_with_my_ex/)
 
 Hey everyone! I appreciate your interest, and apologise for taking a while to get this latest update out. It’s been a crazy few days, and there’s so much to catch you up on. Forgive me, I’m currently writing this at the hospital over their crappy Wi-fi, but I hope to get at least one update out per week.
 
