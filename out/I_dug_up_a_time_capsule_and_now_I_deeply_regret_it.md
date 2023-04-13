@@ -147,3 +147,5 @@ That’s when I googled and found this subreddit.  Maybe someone here has a bett
 And I fear things are about to get worse.  Much worse.
 
 [x](https://www.reddit.com/r/Wine_Dark_Sea_1239/)
+
+[\[Part 2\]](https://www.reddit.com/r/nosleep/comments/12ku4cs/i_dug_up_a_time_capsule_and_now_i_need_to_find/)
