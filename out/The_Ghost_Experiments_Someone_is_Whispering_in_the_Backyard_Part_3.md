@@ -1,5 +1,4 @@
-[Link to Part 1](https://www.reddit.com/r/nosleep/comments/122e2yc/my_ex_thinks_his_house_is_haunted_and_wants_me_to/)  
-[Link to Part 2](https://www.reddit.com/r/nosleep/comments/1263zt5/investigating_the_ghost_experiments_with_my_ex/)
+[Link to Part 1](https://www.reddit.com/r/nosleep/comments/122e2yc/my_ex_thinks_his_house_is_haunted_and_wants_me_to/)[Link to Part 2](https://www.reddit.com/r/nosleep/comments/1263zt5/investigating_the_ghost_experiments_with_my_ex/)
 
 Hey everyone! I appreciate your interest, and apologise for taking a while to get this latest update out. It’s been a crazy few days, and there’s so much to catch you up on. Forgive me, I’m currently writing this at the hospital over their crappy Wi-fi, but I hope to get at least one update out per week.
 
@@ -55,9 +54,7 @@ A: Great question! As of yet, we don’t know, but that leads me to the next dev
 
 I mentioned previously that I had a friend that specialises in Forensic Audio, let’s call him Owen. Owen and I consulted a number of times at the lab. We had an excellent working relationship because Owen, much like myself, didn’t take himself too seriously. We both respected the importance of the work though, so we got along famously. Shortly after locking up at the house, my phone buzzed. I received an email reply from Owen:
 
-To: Marnie  
-From: Owen  
-Subject: Re: Knocking Sounds
+To: MarnieFrom: OwenSubject: Re: Knocking Sounds
 
 Hey Marnie!
 
@@ -71,8 +68,7 @@ It barely registers inside the house, but if you check the “BackYard2” surve
 
 Hope that helps!
 
-Cheers,  
-Owen
+Cheers,Owen
 
 \---------------------------------
 
@@ -216,4 +212,4 @@ I don’t remember what I told the first responders, or the RCMP. Jared was take
 
 I am terrified.
 
-EDIT: Formatting. x2 
+EDIT: [Link to Part 4](https://www.reddit.com/r/nosleep/comments/12k6jqv/the_ghost_experiments_police_interrogations_and_a/)
