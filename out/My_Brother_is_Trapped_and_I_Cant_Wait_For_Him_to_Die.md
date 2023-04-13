@@ -364,4 +364,7 @@ It’s stress, I told myself. Of course, it’s just stress. Grief is transformi
 
 The room is closing in on me, and my hands won’t stop shaking. Im sweating it’s so hardto type now.
 
-I feel fingers playing with my hair. The door is so close, and yet so far z. Im going to try to make a run for it. I won’t let him take me. I cant
+
+I feel fingers playing with my hair. The door is so close, and yet so far z. Im going to try to make a run for it. I won’t let him take me. 
+
+I don’t know what I’ll do or where I’ll go. I just know I can’t be trapped and confined within the walls.
