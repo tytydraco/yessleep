@@ -14,6 +14,6 @@ I shook my head trying to clear the fog that had settled over my thoughts. I tri
 
 I stepped off the train and looked around, but something was off. This was the same train station I had just left, but it was in ruins. The walls were cracked, the ceiling caved in, and debris was scattered everywhere. I couldn’t believe what I was seeing. Had there been some kind of disaster while I was on the train?
 
-As I checked my phone for any news updates, I realised that the year now displayed 2027. This JISY didn’t make any sense. I was sure it was still 2023 just a few minutes ago. What was going on?
+As I checked my phone for any news updates, I realised that the year now displayed 2027. This just didn’t make any sense. I was sure it was still 2023 just a few minutes ago. What was going on?
 
 I turned to see if anyone else had finally woken up and noticed the state of the train station, but the train was nowhere to be seen. It was as if it hadn’t ever existed. My heartbeat quickened, my palms began to sweat and I started to feel like I was losing my mind. I tried to gather my thoughts, but everything was happening too fast. I couldn’t shake the feeling that nothing would be the same again.
