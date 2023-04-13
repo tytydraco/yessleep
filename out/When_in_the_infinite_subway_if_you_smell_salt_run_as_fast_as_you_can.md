@@ -97,3 +97,7 @@ The first thing I saw when waking up was the face of an older woman. Long grey h
 "You're safe now child." I tried standing up but that woman stopped me. "Don't worry, we will talk more after you manage to get your strength back. When you're done resting, go to the cart to the right. We would love to have a talk with you, especially Matt."
 
 And with that, she stood up and left me alone. Having slept somewhat, I decided to write down everything that happened so that I could not forget. I had to remember everything, especially that crimson red figure I saw when I ran back to Matt.
+
+-----------------------
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/12k52z4/even_in_the_infinite_subway_sometimes_the/)

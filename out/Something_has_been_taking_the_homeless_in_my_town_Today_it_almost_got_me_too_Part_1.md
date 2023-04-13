@@ -73,3 +73,5 @@ As he climbed in, the rain began to fall from a drizzle into a downpour. I knew 
 I caught a glimpse of one of the storm drains set into the side of the curb as we began to drive down the street. I saw the blackness which enveloped the interior of it. It now reminded me of a monster’s maw, poised open to devour anyone careless enough to get too close. 
 
 And I shivered as the horrifying image of that *thing* charging towards me and laughing replayed itself over and over in my mind.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/12k5ew1/something_has_been_taking_the_homeless_in_my_town/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
