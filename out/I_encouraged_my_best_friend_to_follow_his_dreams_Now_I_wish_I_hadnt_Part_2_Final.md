@@ -204,7 +204,7 @@ He leaned forward, his eyes, black gold eyes, tenacious pools, which seemed now 
 
 Hell of a conversation to have in a mere *dream,* right?
 
-I woke up gasping. Another crazy vision to haunt me. Although at least this time I did actually wake up in my own bed. But so vivid once again, so real. This thing just wasn’t going to go away. This whole damned writing shit. My guilt for having let it slide, resolving into a vision of Cody and his unfinished business from the other side. Maybe I *had* better consult a shrink or counsellor or one of those types of people, much as I hated the idea. I didn’t want to be plagued by conversations with dead friends or visions of bloodied messages for the rest of my goddamn life.
+I woke up gasping. Another crazy vision to haunt me. Although at least this time I did actually wake up in my own bed. But so vivid once again, so real. This thing just wasn’t going to go away. This whole damned writing shit. My guilt for having let it slide, resolving into a vision of Cody and his unfinished business from the other side. Maybe I *had* better consult a shrink or counsellor or one of those types of people, much as I hated the idea. I didn’t want to be plagued by conversations with dead friends or pursued by visions of bloodied messages for the rest of my goddamn life.
 
 &#x200B;
 
@@ -236,7 +236,7 @@ I just freeze. Cold, cold horror.
 
 It’s *got* to be some kind of hoax. Some psycho who’s got hold of Cody’s phone, Cody’s number, and my number and email address, someone who knows all about that writing shit, someone trying to drive me mad –
 
-Or maybe I’m already stark, staring mad. Tripping the proverbial balls, man. Crazy as Cody himself ever was. *Still is?*
+Or maybe I’m already stark, staring mad. Tripping the proverbial *balls*, man. Crazy as Cody himself ever was. *Still is?*
 
 The phone buzzes again.
 

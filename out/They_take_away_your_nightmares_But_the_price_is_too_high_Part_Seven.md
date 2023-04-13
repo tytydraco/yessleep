@@ -102,3 +102,7 @@ Easing up from his spot next to Mrs. Graves, he bustled over past me, still chuc
 Frowning at him, I turned to look back at Graves, her eyes wide and more fearful than when we’d barely escaped the mob outside.  She was mouthing something to me, lips trembling as she tried to enunciate each word clearly across the shadowy space.
 
 ["We’re…losing…him."](https://redd.it/10h9jfw)
+
+**** 
+
+[Part Eight](https://redd.it/12l89m6)
