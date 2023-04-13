@@ -10,9 +10,7 @@ I think my job is vital - and I’d hate to consider what this place might look 
 
 But every once in a while, even someone as experienced as me can make a mistake.  And that’s exactly what happened to me.  
 
-I made a terrible mistake.  I tried to correct something that didn’t need correcting.  
-
-And now the wilderness I’ve always sought to protect has turned against me.  And I’m not sure if I’m gonna get out of this alive.  
+I made a terrible mistake.  And now the wilderness I’ve always sought to protect has turned against me.  And I’m not sure if I’m gonna get out of this alive.  
 
 *
 

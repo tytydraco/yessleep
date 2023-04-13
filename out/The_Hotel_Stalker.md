@@ -1,0 +1,17 @@
+So, I was on a work trip with my colleagues, and we were all staying at a hotel in a new city. It was a beautiful hotel, with marble floors and chandeliers that sparkled in the light. I was excited to be there, but also a little nervous as I was away from my husband for the first time in a while, and wasn’t looking forward to staying alone in my room.
+
+Well, on the second night of our stay, we decided to go down to the hotel bar for a few drinks after work. It was a lively scene, with people laughing and chatting over cocktails. I was having a good time until I noticed a man staring at me from across the room. He was tall, with dark hair and piercing eyes that seemed to follow my every move. I tried to ignore him and focus on my friends, but eventually he approached me.
+
+I tried to explain I was happily married but he persisted anyway claiming that he was also married and it could be ‘our little secret’. I was repulsed and being slightly drunk at this point, I think I insulted him and demanded that he leave me alone, which seemed to make him angry. The look on his face quickly changed to a menacing scowl and he slowly backed away from me without breaking eye-contact.
+
+Luckily he didn’t speak to me for the rest of the night, but I was still left with a feeling of unease from the way he looked at me.
+
+Anyway, fast forward to later that night, I was getting ready for bed when I suddenly heard a knock at the door. I assumed it was room service, so I opened the door without thinking. But instead of a tray of food, I was met with the same man from the bar, standing in front of me with a predatory look in his eyes. He attempted to make small talk, but I could tell he was only interested in one thing so I again declined his advances and slammed the door in his face.
+
+But this was a huge mistake as in the middle of the night as I was just starting to fall asleep, I was abruptly jolted awake by the sound of my doorknob rattling. It was as if someone was trying to pick the lock. I felt my heart pounding in my chest as I slowly got out of bed, trying not to make any noise.
+
+As I approached the door, the rattling sound grew louder and I could feel the hairs on the back of my neck standing up as I realized that man from the bar might be trying to break into my room. My hands were shaking as I frantically tried to find something to defend myself with but that’s when the lock suddenly clicked and the door began to slowly open. 
+
+I could see the silhouette of a man on the other side, and I knew that I had to act fast. I grabbed the lamp from my bedside table and swung it at the intruder with all my strength. The lamp shattered against his head, and he stumbled backwards, dazed and disoriented. I quickly shut the door and locked it, and immediately called the hotel front desk to inform them of what had just happened.
+
+The rest of the night was a blur of fear and adrenaline. I didn't sleep a wink, instead spending the entire night staring at the door, listening for any signs of the man returning. The next morning, I followed up with the hotel staff, and they assured me that they were still investigating. But to this day, I have absolutely no idea whether or not they found him...

@@ -8,13 +8,13 @@ Richie shook his head. “Simon *Stays*.”
 
 “Daniel told me about it,” Richie continued. “He said it’s only for adults.”
 
-“Ewww… This isn’t going to be like the time that-”
+“Ewww… This isn’t going to be like the time that—”
 
-“- It’s not porn, Amber,” Richie interrupted.
+“— It’s not porn, Amber,” Richie interrupted.
 
-“I still have nightmares of those two girls and-”
+“I still have nightmares of those two girls and—”
 
-“- It’s *not* porn,” Richie adamantly reiterated. “It’s a game for adults. Are you an adult, Amber?“
+“— It’s *not* porn,” Richie adamantly reiterated. “It’s a game for adults. Are you an adult, Amber?“
 
 I frowned. “No, Richie, and neither are you. But I’m old enough to know that urban legends are dumb.”
 
@@ -50,7 +50,7 @@ It was where my mother was buried. And when Richie remembered that, he hung his 
 
 “Let’s find out,” He replied.
 
-Eyeing the setting Sun, which fell from a reddening sky, I held my friend’s hand and descended the hill towards our sleepy town. In the decaying light, the graveyard became more than headstones — it become a shadowy chasm in the earth. A gateway into Hell itself.
+Eyeing the setting sun, which fell from a reddening sky, I held my friend’s hand and descended the hill towards our sleepy town. In the decaying light, the graveyard became more than a sea of headstones — it was a shadowy chasm in the earth. A gateway to Hell itself.
 
 Perhaps I blindly followed Richie through the gate into that darkened graveyard because I’d always loved him. Perhaps ten-year-olds have a natural tendency to act foolishly. Whatever the case, I squeezed Richie’s hand tightly as we wandered and weaved through the headstones.
 
@@ -66,9 +66,9 @@ I lost sight of my friend behind some gravestones, and I ran after him with trem
 
 But then I heard a sound.
 
-A hummed tune. It sounded vaguely like a dissonant version of a children’s lullaby, though I couldn’t place which one, and that only unsettled me more deeply. And when Richie finally emerged from the shadows, I screamed.
+A hummed tune. It sounded vaguely like a dissonant version of a children’s lullaby, though I couldn’t place which one, and that only unsettled me more deeply.
 
-His skin had withered, and it was clear that he had aged. But he looked older than any living human — *hundreds* of years old. As if he had spent centuries learning terrible truths from Simon. This impossibility had ridden Richie of his humanity, and the decrepit figure filled me with terror beyond comprehension.
+When Richie finally emerged from the shadows, I screamed. His skin had withered, and he had inexplicably aged. But he looked older than any living human — *hundreds* of years old. As if he had spent centuries learning terrible truths from Simon. This impossibility had ridden Richie of his humanity, and the decrepit figure filled me with terror beyond comprehension.
 
 “W… What happened to you?” I asked.
 
