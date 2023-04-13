@@ -122,3 +122,5 @@ The child may be what I need to kill her, to get to her neck.
 I may have to take the child.
 
 I may have to [use him as bait.](https://www.reddit.com/r/squishycabbage/)
+
+[Part 6](https://www.reddit.com/r/nosleep/comments/12l14tb/ive_gone_deep_into_the_rainforests_of_borneo/)
