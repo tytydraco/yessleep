@@ -1,3 +1,7 @@
+Link to Part 2:  [I encouraged my best friend to follow his dreams. Now I wish I hadn't. Part 2 (Final) : nosleep (reddit.com)](https://www.reddit.com/r/nosleep/comments/12l59qh/i_encouraged_my_best_friend_to_follow_his_dreams/) 
+
+&#x200B;
+
 You know the feeling when an old friend whom you haven’t been in touch with for ages, suddenly texts out of the blue? Why now? Where the hell have they been? Do they genuinely want to get back in contact? Do *you*?
 
 That’s what happened two months ago, when I got a text from Cody Erhardt, after a year.
@@ -186,11 +190,9 @@ I didn’t mention it to her after all.
 
 &#x200B;
 
-  
-
 I stayed on the line while making a quick search around my small apartment, without success.
 
-She became quite confidential. 
+She became quite confidential.
 
 ‘You know, I’ve just had the *worst* feeling about him today. Like, something really was up. I know, that probably sounds silly. But it’s just…’ She sighed, a long-drawn out sigh. ‘There’s *some*thing. I mean, there weren’t any issues with *work* or anything, far as I know, and there was never any problem with the rent …. I mean, it certainly *seemed* like he was trying to get his life back together, certainly at first, but ... I don’t know.’ It sounded like she was choking back a sob. ‘Lately it was just getting harder. Not drugs or anything, far as I can tell, but, uh … he just seemed so ... well, *distant.*’ I had already noted that a year-and-a-half before. ‘I should *never* have left my damn key. When was the last time *you* spoke to him?’
 
@@ -220,13 +222,13 @@ I fidgeted. ‘I don’t know.’
 
 ‘Yea, I guess … ’ I didn’t know what I was feeling by this time, to be honest. Apart from VERY confused.
 
-‘I just *know* that something’s wrong.’ 
+‘I just *know* that something’s wrong.’
 
 I believed her, but still I wasn’t sure that even infallible girlfriend intuition was a sound basis for calling the police out. Besides they were bound to be busy with other shit on a Saturday night. So I started to look around for my car keys. ‘Sophie, I’m coming up there-‘
 
 ‘Wait – wait – I’ve got a call,’ she exclaimed suddenly.
 
-My heart contracted. 
+My heart contracted.
 
 But it wasn’t Cody.
 
