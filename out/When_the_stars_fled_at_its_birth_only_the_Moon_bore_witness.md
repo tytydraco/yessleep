@@ -176,7 +176,7 @@ Lucy stepped back from the racks and spun around, looking for Dan. It was an odd
 
 No one. He wasn’t there. Lucy didn’t have time to think about her next action before the question rang out again from every conceivable direction.
 
-*Are. You. Of. Faith?*
+***Are. You. Of. Faith?***
 
 Trembling, she turned her head ever so slowly, peering out the corner of her eye toward the shelved body, before looking at it directly. She didn’t know what she was expecting, but the corpse lay still as ever. Unmoving. Silent.
 
@@ -228,19 +228,19 @@ However, Lucy found no closure in knowing this.
 
 When she brought the body into the embalming room, a voice once again pierced the veil. It was different this time, not the weak and raspy one that spoke to her before, but youthful, and choked-up.
 
-“It’s so dark. Where’s my mummy and daddy? Please… let me out.”
+*It’s so dark. Where’s my mummy and daddy? Please… let me out.*
 
 Lucy could only listen, as her limbs became stiff as the corpse beneath her. The pleading was answered for her.
 
-“Don’t worry, boy. We’re in this together, and it won’t be long now. Lucy here will see to that.”
+*Don’t worry, boy. We’re in this together, and it won’t be long now. Lucy here will see to that.*
 
 For the first time, her lips parted to inquire on this madness.
 
 “Who is that?”
 
-“We’re right in front of you,” the raspy voice shot back. Lucy took a step back in impossible realisation.
+*We’re right in front of you*, the raspy voice shot back. Lucy took a step back in impossible realisation.
 
-“We mean you no harm. He’s only a child, after all. If you would just lay us to rest, he can be freed.”
+*We mean you no harm. He’s only a child, after all. If you would just lay us to rest, he can be freed.*
 
 The utterance was followed by quiet, ethereal sobs. The voices lent Lucy no comfort, for how could this be? She was close to fainting when the familiar voice of her colleague brought her back from her stupor.
 
