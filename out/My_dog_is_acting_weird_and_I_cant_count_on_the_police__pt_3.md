@@ -33,3 +33,5 @@ I started having trouble breathing, the whole situation... It was just too much 
 "Go... Home". The dog said, still holding the rock.
 
 My hands began shaking uncontrollably. It was a terrifying sound, half spoken words mixed with a distressed bark. The glow in his eyes vanished, replaced by something else, something sinister. I could not see Captain anymore, as what I saw behind his gaze was not animal. It was some sort of understanding, knowing that creature was... self-aware.
+
+Part 4: https://www.reddit.com/r/nosleep/comments/12ly5qk/my_dog_is_acting_weird_and_i_think_the_end_is/
