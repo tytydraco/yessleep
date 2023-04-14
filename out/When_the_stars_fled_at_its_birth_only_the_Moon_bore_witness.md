@@ -278,7 +278,7 @@ The same gravelly voice was addressing her now. She only hoped that whatever was
 
 *Do not fret. I am here to show my thanks, nothing more. You put the poor boy’s soul at peace, and he has left his flesh in search of the beyond. Something else came, and forced me out of my prison. Its wistful rambling was too much to withstand, in any case.*
 
-*I owe you some form of explanation, I think. His very soul was in the process of being twisted, cultivated by the hands of the legion who had taken residence within him. I salute the priest’s efforts, of course, but he could not follow through. His death during exorcism means that I am something… halfway.*
+*I owe you some form of explanation, I think. His very soul was in the process of being twisted, cultivated by the hands of the legion who had taken residence within him. I salute the priest’s efforts, of course, but he could not follow through. The boy's death during exorcism means that I am something… halfway.*
 
 Though its voice sounded torn and shredded, it strangely comforted Lucy’s trembling form, even if the blood was drained from her face.
 
