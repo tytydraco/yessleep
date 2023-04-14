@@ -268,6 +268,6 @@ But I'm okay with it.  I have peace with nature.
 
 And nature has a piece of [me.](https://www.reddit.com/r/JGcreepypastas/comments/zpi8zt/master_story_list_updated_regularly/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)  
 
-[YT](https://youtube.com/@JordanGrupe)
+[YT](https://youtu.be/ES_syfbl9oM)
 
 [TCC](https://www.reddit.com/r/TheCrypticCompendium?utm_medium=android_app&utm_source=share)
