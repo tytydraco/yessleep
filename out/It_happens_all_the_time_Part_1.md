@@ -4,7 +4,7 @@ This story isn't mine to tell, it was told to me by my best friend. Derek probab
 
 Derek hit an all-time low point in his life a while before this. That's an understatement, his life was shattered by the death of his wife about six months prior. This is the kind of trauma that manifests itself in the form of self-destructive tendencies. Being plowed into by a drunk driver shortly after getting married can do that to a man. He lived, she didn't. Needless to say, it drove him into a level of despair that can't be described in words. 
 
-I should clarify this is not a dream post, rather an experience that my best friend had during the worst point of his life, and consequently his death, at least until he was resuscitated. And the things that he experienced, in some sense can be corroborated. It's all a matter of opinion i guess. 
+I should clarify this is not a dream post, rather it is an experience that my best friend had during the worst point of his life, and consequently his death, at least until he was resuscitated. And the things that he experienced, in some sense can be corroborated. It's all a matter of opinion i guess. 
 
 When I arrived at his room he was staring off into space with a blank, distant expression. As he turned to me I realized just how bad he looked. His eyes were bloodshot with bags under them, and his skin was very pale. After a few moments his numb, emotionless demeanor changed into frantic sobs, his expression morphing into one of an utterly broken man. I hadn't seen him in this sort of state since his wife's funeral. Without saying a word I wrapped him in a hug and tried to console him. He eventually calmed down enough for me to sit and talk. "What happened man?" I asked, as delicately as possible.
 
