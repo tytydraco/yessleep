@@ -64,4 +64,4 @@ I crashed through a fire exit at the back of the building and ran for my life. I
 
 I'm tempted to go to the authorities but at the same time I'm conflicted because I love her.
 
-What should I do? What would you do?
+What should I do? What would you do? [X](https://www.reddit.com/r/MP_stories?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
