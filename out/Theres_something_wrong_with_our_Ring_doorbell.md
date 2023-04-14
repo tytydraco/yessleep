@@ -1,0 +1,21 @@
+“There is motion at your front door.” I’ve been seeing a lot more of these alerts on my phone over the last two days from our Ring doorbell.
+
+You can adjust how sensitive the camera is to movement, so you don’t get as many false positives, and this was the first step I took. My wife and I have some bushes right by our front porch that sometimes trigger these alerts. I’d given up checking the actual video feed for the most part because of how often this was happening.
+
+Initially, adjusting the sensitivity settings for the doorbell seemed to solve the issue. I was relieved because all the false positives were draining the battery of the camera, and it was annoying having to bring it inside so frequently to recharge it. Recently, though, I started getting more alerts during the day at odd times. They’d stop around bedtime but picked up again in the early hours of the morning for some baffling reason.
+
+The last two mornings, roughly around 3 a.m., I received a flurry of alerts on my phone. When I checked the Ring app, the thumbnail image for the video feed was completely dark, and I couldn’t make anything out. I checked the live feed, and it was the same. This is odd, because I always leave the porch light on at night, so I should have been able to see something.
+
+I grabbed my nightstand gun and went to investigate. Opening the door slightly, I peeked outside and realized I had, indeed, forgotten to leave the porch light on. I like having our porch well-lit at night, as I feel that doing so is a deterrent to would-be thieves. I flicked it on and looked around, but didn’t see anyone around, so I closed the door, locked it and went back to bed.
+
+This same thing happened again this morning. A flurry of motion alerts around 3 a.m. Even in my groggy state, I am self-aware enough to acknowledge how incredibly forgetful I am. I’m the guy who spends 10 minutes looking for the TV remote only to realize it has been in his hand the whole time. I rolled my eyes at myself, figuring I forgot to turn on the porch light again.
+
+To be safe, though, I clicked one of the alerts on my phone and was immediately startled by the thumbnail image the app presented to me. Staring back at me was a dark, blurry closeup image of a man’s face. It filled the entire thumbnail, so his face must have been almost right up against the camera. As I processed what I was seeing, I noticed a couple of other details about the man’s face. Even with the poor lighting, I could see enough of his face to tell that his eyes were very far apart. So much so that it bordered on unnatural. He also had the widest grin I’ve ever seen a person have, with way more teeth than I would have thought humanly possible.
+
+I was so unnerved by this that, even with my nightstand gun, I did not want to confront this guy. I clicked on the thumbnail in order to bring up the live feed, but the man appeared to be gone. I still couldn’t make out much more of the image, though, so I hesitated for a moment, trying to decide whether to phone the police to be on the safe side or check things out myself.
+
+I like to err on the safe side, so I started to get up in order to step into the other room to phone the police so as not to wake my wife. She’s a light sleeper, so the slight commotion woke her anyway, and she groggily asked me what I was doing. Not wanting to worry her, I simply said that I couldn’t sleep, had remembered that I left the porch light off and that I just wanted to go turn it on.
+
+There was a pause, and what she said next made the color drain from my face.
+
+As she turned over to go back to sleep, she mumbled, “…while you’re at it, can you make sure to put the doorbell back up outside? I brought it in the other day to let it charge and forgot to put it back up…” I felt sick as her words sank in. The odd timing of the motion alerts during the day had been the camera picking up our own movements as the device sat charging on the kitchen counter. But the ones in the early hours of the morning, that face staring into the camera...those had also been recorded inside our home. Another alert startled me out of me shock, “There is motion at your front door...”
