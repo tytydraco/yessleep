@@ -94,6 +94,11 @@ He sighed once more, longer this time. “I’m afraid I can’t do that, Carol.
 
 _____________________________
 
+[This is what happened after we stopped staring](https://redd.it/12lu2yd)
+
+-----------
+
+
 [FB](https://www.facebook.com/P-F-McGrail-181784199029462/).
 
 [BD](https://www.reddit.com/r/ByfelsDisciple/)
