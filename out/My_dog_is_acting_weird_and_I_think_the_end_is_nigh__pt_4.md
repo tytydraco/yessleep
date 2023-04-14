@@ -24,6 +24,12 @@ A collection of corpses laid down there, at first I thought it was dozens of bod
 
 Captain was inside it, gracefully moving from body to body, avoiding the pool of coagulated blood underneath that looked more like a giant, red snot than actual blood. When he reached the center of it, or a spot close enough to what would be the center, he turned around and looked back at me. I returned the look, hoping for some sort of understanding between us, maybe even empathy, but all I could see behind his eyes now was something different to what Captain once was. There was no dog, no puppy, no friend, just some sort of new creature that had taken his body.
 
-He turned, slowly looking at all the other dogs, dropped his rock to the pool of blood beneath, and howled. The other dogs went mad, turning on their owners - those who had them - and torn them apart. Some dogs needed some help, like the chihuahua, from their neighbours to take care of the job, but most of them didn't. I quickly grabbed the gun and pulled it out. Four bullets would certainly not be enough to stop the carnage, but what if...
+He turned, slowly looking at all the other dogs, dropped his rock to the pool of blood beneath, and howled. The other dogs went mad, turning on their owners - those who had them - and torn them apart. Some dogs needed some help, like the chihuahua, from their neighbours to take care of the job, but most of them didn't. Unable to take my eyes off the bodies, a familiar voice forced me to.
+
+"Why did you leave me there to die, dad?"
+
+Emerett's voice came from Captain. He was not even moving his mouth, the words just coming out of his throat as if the dog had swallowed a speaker. His eyes, all white populated by engorged blood vessels, showed no trace of pupils, saliva dripping from the gaping hole serving as a mouth; that... thing, that creature was mimicking my dead son's voice... or was it Emerett himself? It could not be. It could not be that sweet 10 year old kid that died alone in the hospital while his dad was working, how could it?
+
+What could I do? What could have anyone done in the middle of that maddening carnage? I quickly grabbed the gun, hand violently shaking, and pulled it out. Four bullets would certainly not be enough to stop the carnage, but what if...
 
 What if I just killed Captain?
