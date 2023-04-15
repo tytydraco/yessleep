@@ -145,3 +145,5 @@ As Dax sobered up from the experience with the God Machine, he shook his head, l
 He shook his head again.
 
 “He’s dead,” he said. I was still bleary-eyed and pale from the experience, but at least now I might be able to find out what they did with their dead comrades- and what happened to Chrissy.
+
+Part 2: https://www.reddit.com/r/nosleep/comments/12nj1vo/i_joined_a_cult_called_the_god_machine_what_they/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button

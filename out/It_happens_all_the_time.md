@@ -180,7 +180,7 @@ When I awoke next I almost immediately started to panic. I bolted upright, findi
 
 They explained to me that I had been stabbed, 4 times by someone in a motel room. I dialed 911 just moments before I lost consciousness and my heart stopped. Luckily there was an ambulance nearby. I was dead for around 3 or 4 minutes, that's where they found me.
 
-That was the conclusion of Derek's story. He said nothing more. He begged me to believe him as I embraced him. He insisted that regardless of who had stabbed him, and even admitting that it could have been a drug deal gone wrong even though he had no memory of it, the experience he had in death was very real. 
+That was the conclusion of Derek's story. He begged me to believe him as I embraced him. He insisted that regardless of who had stabbed him, and even admitting that it could have been a drug deal gone wrong even though he had no memory of it, the experience he had in death was very real. But ultimately he believed that when he died, every time he'd awoken back in his own home, that was his attempt to escape, he swore on his very existence that hell was after him. He told me that he still sees these countless horrors in his dreams, and fears the day that he may have to face them again. 
 
 A few weeks later I got a call from Derek. He'd left his wallet in the room, and there was no way he was going back there. So of course I opted to retrieve it for him. This motel was indeed in the middle of nowhere. 
 

@@ -1,8 +1,6 @@
-[Part I](https://www.reddit.com/r/oldewolf/comments/12nd7ps/a_golden_ticket_to_undehael_part_1_of_3/)[Part II](https://www.reddit.com/r/nosleep/comments/12dbdmw/a_golden_ticket_to_undehael_part_2_o_3/) 
+[Part I](https://www.reddit.com/r/oldewolf/comments/12nd7ps/a_golden_ticket_to_undehael_part_1_of_3/)[Part II](https://www.reddit.com/r/nosleep/comments/12dbdmw/a_golden_ticket_to_undehael_part_2_o_3/)
 
- 
-
-# Part III 
+# Part III
 
 &#x200B;
 
@@ -102,7 +100,7 @@ Those on the ground carried him over to the water and threw him in.
 
 With new eyes, I looked once more at all the black tubes in the water with the countless blue lights. The denizens of the city of Undeheal were still laughing.
 
-They were… Children
+They were… children
 
 *And There’s no death in Uneheal*
 
@@ -176,7 +174,7 @@ A pair of sanguine eyes, like two dim, red stars in the abyss, pulled the Marigo
 
 A third cry from the tunnel, now filled with the shrill fury and hatred of the helpless upon seeing their enemy.
 
-With blinding speed coin tore through my pocket and halted abruptly between Burcher and Danforth and me. They paused for a moment, puzzled at what hung so still in the air before them. The coin began to gyrate, slowly at first as pieces of the man and the tree on its face folded and unfolded at different angles until the edges of the coin didn’t resemble a coin at all.
+With blinding speed, the coin tore through my pocket and halted abruptly between Burcher and Danforth and me. They paused for a moment, puzzled at what hung so still in the air before them. The coin began to gyrate, slowly at first as pieces of the man and the tree on its face folded and unfolded at different angles until the edges of the coin didn’t resemble a coin at all.
 
 The dim red stars in my mind tremored as the thing in the sped faster and faster, and then they lit the sockets belonging to the face of a dark and monstrous wolf. It was beautiful. It was dread incarnate. It snarled in fury, presenting a wreckage of teeth too great and horrible to belong to anything of the world we knew.
 
@@ -218,7 +216,7 @@ They were titled: The Norahdrin Chronicles.
 
 Between the H and all of the surreal horror that had been occurring in that godforsaken alley, I couldn’t remember what it had said on there.
 
-*Befouled: The Norahdrin Chronicles*
+*Tainted: The Norahdrin Chronicles*
 
 No one else had been home to hear my pitiful wail of terror as it dawned on me.
 
@@ -246,7 +244,7 @@ By G.B. Underhill
 
 On its cover, was a picture of a subterranean city with a wharf not unlike the one I had seen in my drug-fueled insanity. The city buildings and the rest of the cave wall, however, looked very different. The shop windows harbored fish and goods that seemed to be on display, and the promenade was lined with happy, human citizens going about their day. The light tower in the city’s center gleamed as its copper engravings sang with its light, weaving around the pillar in intricate detail.
 
-Hundreds of people stood around its base, and on a platform, was a pale, muscular, and beautiful woman dawned in barbarian armor. Long, shining silver hair flowed from her head, and strange tattoos covered her from head to neck.
+Hundreds of people stood around its base, and on a platform, was a pale, muscular, and beautiful woman dawned in barbarian armor. Long, shining silver hair flowed from her head, and strange tattoos covered her from foot to neck.
 
 There was no tunnel, beckoning from behind the light tower.
 
@@ -304,7 +302,7 @@ I’m planning to make my way there to talk to her; to try to --- well, I don’
 
 Maybe I am insane. It would make more sense than anything and in all honesty, I’d welcome it as a relief.
 
-But when they found me under that bridge, not three miles from G.B. Underhill’s home, it had been on December 13th, 9:27 PM, only one hour after the cold blast of the decade had hit Chicago. The little junkie den I had been in had made the news. Every one of them had frozen to death. An image leaked online and was used as a scathing indictment on the failings of the city and its handling of the homeless. There were pictures, of their dead faces frozen in silent screams, just the same as the ones that hung on their faces when Billy entered that alleyway, forever changing my life.
+But when they found me under that bridge, not three miles from G.B. Underhill’s home, it had been on December 13th, 9:27 PM, only one hour after the cold blast of the decade had hit Chicago. The little junkie den I had been in had made the news. Every one of them had frozen to death. An image leaked online and was used as a scathing indictment on the failings of the city and its handling of the homeless. There were pictures of their dead faces frozen in silent screams, just the same as the ones that hung on their faces when Billy entered that alleyway, forever changing my life.
 
 I’m leaving in the morning for Cedar Hill. I must get to Galilee Baker before she’s gone. I have no idea what I’m going to say, but I have to believe she knows *something* about all of this.
 
@@ -325,3 +323,11 @@ Maybe it’s *him*.
 &#x200B;
 
 [Part I](https://www.reddit.com/r/oldewolf/comments/12nd7ps/a_golden_ticket_to_undehael_part_1_of_3/)[Part II](https://www.reddit.com/r/nosleep/comments/12dbdmw/a_golden_ticket_to_undehael_part_2_o_3/)
+
+&#x200B;
+
+\*
+
+&#x200B;
+
+\*
