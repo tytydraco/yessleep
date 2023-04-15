@@ -68,7 +68,7 @@ I could smell the person's breath now. It was indescribably putrid, so much so t
 
 I was sweating all over. My heart was pounding and my chest was tightening.
 
-All my instincts were screaming at me to look behind me— To just turn around and cause a scene by letting my fight or flight response activate.
+Every inch of my body was screaming at me to look behind me— To just turn around and cause a scene by letting my fight or flight response activate.
 
 But the previous message held me back.
 
