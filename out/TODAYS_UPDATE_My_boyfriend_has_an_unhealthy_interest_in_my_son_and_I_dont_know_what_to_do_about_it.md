@@ -18,7 +18,7 @@ Darren flexed in reaction to my question, pinning my wrist to the bed and leavin
 
 “Not any – just what the *fuck* does that mean, Darren?” I shot back. 
 
-He leaned into my ear. “It means three things. The first is that, as of this moment, the Order has reason to get rid of me. The second is that I am *very* disposable in their eyes. The third is that I’m your only hope for keeping Darren safe. Now, can you get him packed and ready to leave within four minutes?”
+He leaned into my ear. “It means three things. The first is that, as of this moment, the Order has reason to get rid of me. The second is that I am *very* disposable in their eyes. The third is that I’m your only hope for keeping Jordan safe. Now, can you get him packed and ready to leave within four minutes?”
 
 I balked. “How can I trust you?”
 

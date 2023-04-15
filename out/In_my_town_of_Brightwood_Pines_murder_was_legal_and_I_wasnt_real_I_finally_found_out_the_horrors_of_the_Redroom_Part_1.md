@@ -86,11 +86,11 @@ Suddenly, it felt like the walls of my bedroom were closing in, and those walls 
 
 I needed to find Annalise and Kaz and go back to the room full of wall-people. That was the last time I remembered things making sense.
 
-“Yeah, I’m fine. I’m just feeling a little sick.” Those were the words I was supposed to say, the words that were placed on my tongue by the implantInstead, I had a mouthful of gibberish like I was choking on vomit. My questions entangled with a scream in my throat, but also with the nameless boy’s laughter, which began in my chest and threatened to send me to my knees. Between his hysterical giggles, I had the overwhelming urge to shout my own name. 
+“Yeah, I’m fine. I’m just feeling a little sick.” Those were the words I was supposed to say, the words that were placed on my tongue by the implant. Instead, I had a mouthful of gibberish like I was choking on vomit. My questions entangled with a scream in my throat, but also with the nameless boy’s laughter, which began in my chest and threatened to send me to my knees. Between his hysterical giggles, I had the overwhelming urge to shout my own name. 
 
 *Elle!*
 
-He had called into the downpour while my shadow bled into the night, screaming back at him. He kept going, catapulting himself over a wall, landing on all fours. I sensed him hitting wet grass. “Why are you running from us?” 
+He had called into the downpour while my shadow bled into the night, screaming back at him. He kept going, catapulting himself over a wall, landing on all fours. I sensed him hitting wet grass. *Why are you running from us?*
 
 His words were like a sour bile I was struggling to swallow, but which kept coming back up. Blinking through blurry vision, I turned away from my fake-mother and grabbed a clean shirt and jeans. My hands were trembling, my body wracked with the phantom excitement that had filled the boy, as if part of him had latched onto me like a leech. 
 
@@ -148,7 +148,7 @@ The man grumbled something, but he did loosen his grip. “I’m sure you are aw
 
 The door was so close, guarded by two men. When he squinted, the boy glimpsed something tainting the handle and shivers rocketed down his spine. Instead of fully registering what he was seeing, he continued to talk, because talking usually (not always) got him out of shit.
 
-And this was definitely the type of shit he was eager to get  away from. Flexing his wrists still trapped in the man’s grasp, he exhaled out a breath. *Stall*. He thought. I need to stall, and then run. He twisted his head around, scanning the hallway. But there were no doors, no exits. Before the hallway they were currently on, a blindfold had been wrapped around his eyes. Which meant…. Slowly, this kid was putting the pieces together. *Which means they don’t want me to get out,* he thought. 
+And this was definitely the type of shit he was eager to get  away from. Flexing his wrists still trapped in the man’s grasp, he exhaled out a breath. *Stall*. He thought. *I need to stall, and then run.* He twisted his head around, scanning the hallway. But there were no doors, no exits. Before the hallway they were currently on, a blindfold had been wrapped around his eyes. Which meant…. Slowly, this kid was putting the pieces together. *Which means they don’t want me to get out,* he thought. 
 
 I could feel the panic brewing in his gut, and an insatiable need to get out of there. 
 
@@ -196,7 +196,7 @@ The boy took a step back, and then another, his head spinning. “I don’t…�
 
 “There’s nothing wrong with you,” a voice crackled through an overhead speaker. “Redroom is exactly what you need before you become acquainted with us.”
 
-When the bed was reclined upwards, and gloved fingers took hold of the back of his head, the screen in front flashed to a deeper shade of red, which caused a visceral reaction in him. He lurched against the pillows, pulling at the restraints, a cry gritted between his teeth. The screen wasn’t even a color, more of a consistency—and the more he stared at it, it was becoming harder to look away from such a shade contorting his thoughts into mush and slowly but surely edging closer to him. Like he could dip his hands into it and smear it all over his face. “Hey, Fee,” a voice murmured. “So. we just want you to relax, alright? Your interview will start shortly, but first we need you to really take in the screen in front of you.” Gloved fingers tapped the back of his head, stroking through his hair and scalp. “Let’s start easy, okay? What does the color remind you of?”
+When the bed was reclined upwards, and gloved fingers took hold of the back of his head, the screen in front flashed to a deeper shade of red, which caused a visceral reaction in him. He lurched against the pillows, pulling at the restraints, a cry gritted between his teeth. The screen wasn’t even a color, more of a consistency—and the more he stared at it, it was becoming harder to look away from such a shade contorting his thoughts into mush and slowly but surely edging closer to him. Like he could dip his hands into it and smear it all over his face. “Hey, Fee,” a voice murmured. “So. We just want you to relax, alright? Your interview will start shortly, but first we need you to really take in the screen in front of you.” Gloved fingers tapped the back of his head, stroking through his hair and scalp. “Let’s start easy, okay? What does the color remind you of?”
 
 Something stirred in the back of his thoughts as the color on the screen slowly started to spread through his mind. I felt it like a virus, like poison filling him up.
 
@@ -210,7 +210,7 @@ An explosion of anger filled him, but the boy couldn’t move properly, especial
 
 “You asshole,” Felix managed to grit out. “Since when do you work for these bastards?"
 
-Ben sighed. “You would be surprised how many of your peers are part Darkroom, Felix. But that is a conversation for later, when the initial stages have been completed.”
+Ben sighed. “You would be surprised how many of your peers are part of Darkroom, Felix. But that is a conversation for later, when the initial stages have been completed.”
 
 Weakly wrenching against the restraints, he managed to tear his eyes from pooling, dripping red. “What’s that supposed to mean? You said… you would make me better!” His voice was a sharp cry, frightened, nothing like I had ever heard. Tugging violently on the restraints, he let out an animal-like shriek. It couldn’t be Ben, he thought. Because Ben… Ben didn’t make sense. Ben was the reason why his hands were dirty. “Who are you? Really? Why are you… why are you doing this to me?”
 
@@ -222,7 +222,11 @@ Something severed inside his mind, and he stopped struggling, his body going lim
 
 I felt his body start to shake, his chest wracking with sobs. The boy’s thoughts were dizzy and disjointed while on the red, but also he felt some kind of calm, a calm he didn’t understand. “You can't be… you can't be here. You're not supposed to be here."
 
-Something was blooming inside him, tearing into his thoughts and setting them alight. Despair in its purest form. “You know why I’m here, Felix.” Ben’s voice was suddenly louder, rooted inside his skull. 
+Something was blooming inside him, tearing into his thoughts and setting them alight.
+
+Despair in its purest form. 
+
+“You know why I’m here, Felix.” Ben’s voice was suddenly louder, rooted inside his skull. 
 
 “I’m here for the views. Just like you.”
 
@@ -230,7 +234,11 @@ Something was blooming inside him, tearing into his thoughts and setting them al
 
 “No, no, trust me, this is helping,” Ben murmured, his voice becoming more of a murmur, like ocean waves. Felix’s hands felt filthy. Still sticky and wrong. “Tell me. Why did you upload the video of yourself brutally murdering your family to Darkroom?”
 
-The  swimming color on the screen was twisting his gut. It made him want to both run, and give into it, letting it swallow him up—- enveloping him. Inching back, the boy squeezed his eyes shut for a fraction of second before opening them, when it hit him: a sudden, unexplainable urge, to lash out, to carve into Ben’s face with his fingernails and scoop his eyes out of their sockets. But he wouldn’t stop there. The sensation filled me, just like it had him. The urge to rip into the boy’s flesh and paint himself with his blood—with the blood on the screen which was looking more familiar the more he stared at it and really took it in. He remembered his hands feeling like they were soaking in deep, dark red, every finger slick the same sickening shade. When the screen grew brighter, his body started to react to it, wrenching and pulling at the restraints to be let go.
+The  swimming color on the screen was twisting his gut. It made him want to both run, and give into it, letting it swallow him up—- enveloping him. Inching back, the boy squeezed his eyes shut for a fraction of second before opening them, when it hit him: a sudden, unexplainable urge, to lash out, to carve into Ben’s face with his fingernails and scoop his eyes out of their sockets. But he wouldn’t stop there. 
+
+The sensation filled me, just like it had him. 
+
+The urge to rip into the boy’s flesh and paint himself with his blood—with the blood on the screen which was looking more familiar the more he stared at it and really took it in. He remembered his hands feeling like they were soaking in deep, dark red, every finger slick the same sickening shade. When the screen grew brighter, his body started to react to it, wrenching and pulling at the restraints to be let go.
 
 To escape it.
 
@@ -312,7 +320,7 @@ He answered with a screech, blood filling his mouth, his vision filling with the
 
 “Say it." 
 
-“I… I killed my brother and my father.”
+“I… I killed my brother and my father... I don't know... why..." 
 
 The rod was plunged in and out, and it was searing agony, pricking sweat, his body jolting, eyes flickering. The light grew brighter in his eyes, thoughts a vivid hurricane. I deserve this. The words entangled in his mind, choking his tongue. I deserve this. I deserve this. I deserve this. “I’m sorry.” He spoke out loud, penetrating his own screams. Pushing through the fog, Felix screamed into a growing abyss beginning to swallow him up. “I’m sorry. I’m sorry, I’m sorry, I’m sorry! Dad. Daniel. I don’t know why I… I think there is something… wrong… with me.  I fucking killed you!”
 

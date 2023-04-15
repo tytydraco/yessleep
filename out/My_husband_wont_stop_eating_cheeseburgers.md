@@ -64,3 +64,5 @@ I scrambled up and into our bedroom, locking the door behind me. He didn’t cha
 
 
 So much is going through my mind right now.., was that HIS hand on the griddle?! I thought about calling the police, but even if they believed me, they’ll probably try to do some whacky experiments on him. Or maybe even both of us. Who should I call? Where should I go? Please, if anyone is reading this, how can I help my cheeseburger husband?
+
+[pt 2](https://www.reddit.com/r/nosleep/comments/12nftss/my_husband_wont_stop_eating_cheeseburgers_pt_2/?utm_source=share&utm_medium=ios_app&utm_name=ioscss&utm_content=2&utm_term=1)
