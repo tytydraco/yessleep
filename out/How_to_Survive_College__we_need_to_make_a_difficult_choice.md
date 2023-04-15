@@ -94,7 +94,7 @@ The torso of the student split open.  Just peeled apart like a banana, four sect
 
 I’d seen this before.  The worm.  That student was the worm’s new body.
 
-The other student must have heard something, for he turned, and I saw his eyes go wide with horror for one brief moment and then the worm fell upon him.  He grabbed the students arms with his hands and lifted the man up, turned him upside down, and shoved him head-first into its maw.  
+The other student must have heard something, for he turned, and I saw his eyes go wide with horror for one brief moment and then the worm fell upon him.  He grabbed the students arms with his hands and lifted the man up, turned him upside down, and shoved him head-first into its maw.
 
 The student didn’t even have time to scream.
 
@@ -144,7 +144,7 @@ The worm rolled his gaze up towards the hazy sky and smiled lazily.
 
 “Sure,” he said.  “Go on and try.”
 
-The worm turned abruptly, putting his back carelessly to the flickering man.  He strolled away as if he didn’t have a care in the world, raising one hand to wave goodbye.  After a half second his fingers curled downwards, leaving only the middle finger raised.  I peered nervously at the flickering man’s face.  
+The worm turned abruptly, putting his back carelessly to the flickering man.  He strolled away as if he didn’t have a care in the world, raising one hand to wave goodbye.  After a half second his fingers curled downwards, leaving only the middle finger raised.  I peered nervously at the flickering man’s face.
 
 Oh yeah.  He mad.
 
@@ -164,7 +164,7 @@ I didn’t really say anything coherent.  The flickering man gave an angry huff 
 
 “Who was it after?” he demanded.  “I need to go have a… *conversation*… with them about fixing this situation.”
 
-The rule was still in place and the flickering man actually follows the rules - well, mostly.  He wouldn't kill the worm.  Daniel had to be the one to do it.  And the flickering man was going to get involved to make sure that happened.  
+The rule was still in place and the flickering man actually follows the rules - well, mostly.  He wouldn't kill the worm.  Daniel had to be the one to do it.  And the flickering man was going to get involved to make sure that happened.
 
 But of course I didn’t do anything sensible at that moment.  This wasn’t over.  It wouldn’t be over until Daniel actually did what he was supposed to and now the flickering man was involved but he was a mad at *me* and that wasn’t *right*\-
 
@@ -211,6 +211,8 @@ Then there was the whole thing where I idolized Patricia for like a week.
 They might have a point.
 
 But we’re going to talk it through and figure out what to do.  And in the meantime, I’m going to sit here and envision the flickering man, sullenly following the worm around to keep it from eating anyone while staring despondently at the clear blue sky.  I hope he hates every minute of it.[\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
+
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/12ml1x4/how_to_survive_college_we_met_the_millions/)
 
 [Read the first draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 

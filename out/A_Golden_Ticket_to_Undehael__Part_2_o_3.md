@@ -74,7 +74,7 @@ Shadows had masked me for the moment, but I knew I didn’t have long. I thought
 
 I could plunge into the water, I’d thought, but those creatures - those impossible things that could only exist in a child’s nightmare – seemed to be built for it.
 
-With nerves wire tight, I decided my best chance was to stay put I had been an impressive force ou I could talk my way out of it.
+With nerves wire tight, I decided my best chance was to stay put. Maybe I could use the skills I'd learned in law school to talk my way out of the situation.
 
 It was all I had.
 
@@ -184,7 +184,7 @@ And the coin had reassured me.
 
 Burcher, who was now just within reach of my ankles, slipped suddenly on the wet slush that had formed from the disintegrated ladder and the water that had been beneath it. He toppled, and I lashed out like mad and grabbed the lantern, yanking it from his hand with two, hard jerks. I swung it down on him in a long, plummeting arc with all the force I could conjure.
 
-The lantern exploded on his shoulder. Swaths of gluggish oil blanketed him, and an eager and hungry flame chased it, unfurling and growing with ravenous hunger until the creature was in a blaze. Inhuman roars of anguish rung the walls of the shafts as he writhed. Danforth reached out to pull him toward the edge of the water but must have gotten some of the oil on his arm. As he grabbed for the burning Burcher, the hungry flame reached out and crawled up his sleeve, and set the brim of his hat alight.
+The lantern exploded on his shoulder. Swaths of gluggish oil blanketed him, and an eager and hungry flame chased it, unfurling and growing ravenously until the creature was in a blaze. Inhuman roars of anguish rung the walls of the shafts as he writhed. Danforth reached out to pull him toward the edge of the water but must have gotten some of the oil on his arm. As he grabbed for the burning Burcher, the hungry flame reached out and crawled up his sleeve, and set the brim of his hat alight.
 
 He howled a tighter, but equally monstrous roar and flung the hat off. Suckling and attached to the top of his head was something in between a lamprey and a tadpole. Its tail coiled around his crown. He’d dropped the skinny he had been holding on display for me to shield the thing as he dove into the water.
 
