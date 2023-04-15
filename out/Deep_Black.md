@@ -40,9 +40,7 @@ It’s just what I wanted.
 
 I pushed onwards, deeper into the void.
 
-
-
-
+_  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _ 
 
 I hated the dark when I was young. I hated staring into the dark, and hated when my imagination made something stare back at me. My mind would always run wild at night, and I could almost see the beasts my head would conjure up standing in the darkest corners of my room. It kept me up for hours, when all I could do was stare into that all-encompassing blackness. Even with nightlights, there would always be some dark crevice that would commandeer my mind for the night.
 
@@ -67,9 +65,7 @@ All light in the room vanished completely. Even the faint moonlight shining thro
 
 No one ever saw her again.
 
-
-
-
+_  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _ 
 
 When is this cavern going to end?
 
@@ -91,9 +87,7 @@ As I descended further into the darkness, I began to see something… off. I loo
 
 “Stars.”
 
-
-
-
+_  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _ 
 
 Nothing was the same after she vanished. Father lost his anchor, lost what kept him on the ground. He worked more hours, and I was forced to be alone. Whenever he was home, he was downright catatonic from the alcohol and various drugs he took at every waking second. There was no comfort to be had in that home anymore, not with an unresponsive junkie sitting in the chair while I had to make do for myself. So, I left.
 
@@ -105,9 +99,7 @@ My father found his escape, and I found mine. While he fell down the depths of a
 
 One day, as I was leaving my tent out in the wilderness, I looked up into the sky. It took me a minute to realize what was wrong, but… my wish had come true. The sky was pitch black, not a star in sight. Just like with my mother, the darkness had consumed the stars as well.
 
-
-
-
+_  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _ 
 
 The sub stopped. The radar showed that the walls of the cavern had closed in on me, and stopped just ahead. I never even noticed them appear. The sub bobbed up and down slightly, as if it was floating on a surface. I scanned my surroundings again, and it showed a bottom to the cavern below me. A semicircular divot, at the bottom of a seemingly infinite, empty trench. But just at the end of the scanning range, there was another path. A small, branching cavern, too small for the sub to travel through. It didn’t have any drones or anything to remotely control, so it seemed like that was the end of it. I switched on the radio, and spoke.
 
@@ -145,9 +137,7 @@ But the dark was broken up.
 
 I walked further into the black, but bright lights occasionally appeared. They were blinding, burning. It was only in the distance, and only the one. But it burned. It came closer, appearing next to my hands, the light searing my fingers when it came. I had to pull away, back into the safety of the dark. Away from the burning lights.
 
-
-
-
+_  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _ 
 
 I drove across the interstate, the city appearing in the distance. It’s been a while since I last saw my father, probably months by now. I’ve heard through the grapevine that he’s recovering well, finally managing to kick his addiction to the curb after letting it dominate him for years. I don’t like the city, but if my father’s finally getting better, then I’m willing to bear it for a while.
 
@@ -213,11 +203,9 @@ Tunnel discovered at the bottom of the Marianas Trench; depth uncertain.
 
 I read the rest of the paragraph. The only ones planning a mission was a small company, who currently didn’t have a pilot and was willing to train a new one. The training center was right in this city, only a few miles from me. A trip straight down to the darkest place on earth…
 
-I think I can bear being in the city for a little longer.
+I think I can bear being in the city for a little longer. 
 
-
-
-
+_  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  _  
 
 The darkness is thick, suffocating. I mean that literally; I can actually feel the inky blackness as I push through it. It feels like muddy water, just barely enough texture to feel it at all. But as I keep going, it grows ever thicker. I couldn’t breathe, but I didn’t need to. No air, but no lungs to breathe it. Just the black. Just the dark.
 

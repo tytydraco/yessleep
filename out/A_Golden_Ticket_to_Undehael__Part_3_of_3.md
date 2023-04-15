@@ -306,7 +306,7 @@ But when they found me under that bridge, not three miles from G.B. Underhill’
 
 I’m leaving in the morning for Cedar Hill. I must get to Galilee Baker before she’s gone. I have no idea what I’m going to say, but I have to believe she knows *something* about all of this.
 
-Those dim, red stars have never left my back since they reappeared in my parents’ hallway. I can feel its; *his* sardonic smile beneath them as they burn low and sanguine, at once stern and wanting, and amused at my ignorance.
+Those dim, red stars have never left my back since they reappeared in my parents’ hallway. I can feel its; *his* sardonic smile beneath them as they burn low and sanguine, at once stern and wanton, and amused at my ignorance.
 
 I know this much: I’m caught in the middle of something beyond us. There is a horrible corruption building in the dark; a sickness born from the minds of those that build worlds from dreams. And I don’t even think they know it.
 
