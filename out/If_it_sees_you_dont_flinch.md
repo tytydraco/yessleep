@@ -1,6 +1,6 @@
 I had been watching Trailer Park Boys when my roommate Alex suddenly barged through the front door, stumbling over himself as his neck craned to look behind him. I almost dropped my plate of oven-hot chicken tendies; the Friday meal of kings. 
 
-“Jesus, Alex! What the fuck?” I yelled at him as turned the TV off, pissed that he’d ruined the sublime couch-potato-meditation I’d been cultivating for the past couple of hours.
+“Jesus, Alex! What the fuck?” I yelled at him as I turned the TV off, pissed that he’d ruined the sublime couch-potato-meditation I’d been cultivating for the past couple of hours.
 
 “Shit, shit SHIT!” he said, more to himself than to me. He kicked the door shut as he got up from the floor. 
 
