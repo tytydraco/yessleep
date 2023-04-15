@@ -42,9 +42,9 @@ It was the first time someone else had come use the ATM at the same time I do.
 
 I wanted to look behind me. But with the ominous message on the ATM screen, I was too afraid to. I thought that I was being irrational, but decided to follow the instruction anyway.
 
-**Do your dreams have a significant impact on your life?**
+**Are you dreaming now?**
 
-I could see a shadow of someone behind me on the ground. I pressed the "No" button.
+I could see a shadow of someone behind me on the ground. I scoffed nervously upon reading the question and pressed the "No" button.
 
 **Are you sure?**
 
@@ -90,11 +90,11 @@ I stuffed the money into my bag, fleeing as quickly as I could. I didn't want to
 
 The next day, I asked my friends and colleagues if they had similar experiences, but was only met with puzzled looks. Searching online yielded no results either.
 
-I chalked up my experience to hallucinations due to my lack of sleep, but was still irrationally fearful of the idea of using an ATM.
+I chalked up my experience to a dream, ironically enough. Either that or I was having hallucinations due to a lack of sleep. Whatever it was, I was still irrationally fearful of the idea of using an ATM.
 
 When I ran out of cash, I visited the bank and spoke to an actual bank teller to withdraw money.
 
-When she informed me of my balance, I was shocked to find out that there was an additional ten thousand to my previous balance I remembered.
+When she informed me of my balance, I was shocked to find out that there was an additional ten thousand to my previous balance.
 
 I told her that there must have been some kind of mistake with the amount and also took the opportunity to ask if the bank was running ATM surveys in the area.
 

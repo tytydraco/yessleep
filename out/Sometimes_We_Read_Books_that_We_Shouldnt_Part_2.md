@@ -12,7 +12,7 @@ Sorry it's been so long since I updated. So many amazing things have been happen
 I brought the journals to a lingual anthropologist at my local university to sift through and try to help decipher with me. I know it sounds silly, but i just couldn't bring the other book with me to show him. It called to me. It needed ME to guard it, keep it hidden, out of sight.
 
 
-Luckily the journals were all in English. The professor dated the first one around 1943 However the journal entries in the first journal and the other two around 1947 he dated around 1947. I asked him why he believed that but only got a roundabout, nonsense answer. However, we both found this odd as when we read them .
+Luckily the journals were all in English, the handwriting was just so bad that they seemed to be foreign in some parts. The professor dated the first one around 1943, however the journal entries in the first journal and the other two he dated around 1947. I asked him why he believed that but only got a roundabout, nonsense answer. However, we both found this odd when we read them.
 
 
 I deciphered the illegible pages of the journals that i couldn't make out in my last post and this is what it said:
