@@ -39,5 +39,3 @@ I knew who the guy was, it was Mikie. He had a fiancé and was a decent guy. I c
 I went to go tell my boss what happened. He didn’t seem fazed. I kept asking him if he was going to do anything about it. He just held up the paper we all signed.
 
 “You get paid to work, not ask questions. Get back to work.”
-
-“Sounds like he
