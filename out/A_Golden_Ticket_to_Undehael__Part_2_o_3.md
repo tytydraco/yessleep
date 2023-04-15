@@ -1,6 +1,10 @@
-[Part I](https://www.reddit.com/r/nosleep/comments/12c9o2i/a_golden_ticket_to_undehael_part_1_of_3/)
+[Part I](https://www.reddit.com/r/oldewolf/comments/12nd7ps/a_golden_ticket_to_undehael_part_1_of_3/)  [Part III](https://www.reddit.com/r/nosleep/comments/12ndtw8/a_golden_ticket_to_undehael_part_3_of_3/)
+
+&#x200B;
 
 # Part II
+
+&#x200B;
 
 Dank air filled my lungs as I moved down the ladder.
 
@@ -255,3 +259,7 @@ It reassured me. It wanted me down there.
 It was keeping tabs…
 
 The terrible voices grew from some perpendicular shaft. They were getting close. I clasped the coin through my shirt, for the second time, and I jumped down, descending once more… into the unknown murk below.
+
+&#x200B;
+
+[Part I](https://www.reddit.com/r/oldewolf/comments/12nd7ps/a_golden_ticket_to_undehael_part_1_of_3/)  [Part III](https://www.reddit.com/r/nosleep/comments/12ndtw8/a_golden_ticket_to_undehael_part_3_of_3/)

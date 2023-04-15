@@ -1,4 +1,4 @@
-It is with great trepidation that I begin to you relate the events which occurred in the small New England town of Dunwich. 
+It is with great trepidation that I begin to relate to you the events which occurred in the small New England town of Dunwich. 
 
 I have long been an admirer of the works of H.P. Lovecraft, and with a weeks vacation to spare I found the perfect opportunity to explote. It was with a sense of awe and reverence that I first set foot in this quiet, sleepy hamlet. Yet, it soon became apparent that something was amiss. The air was thick with a palpable sense of unease, and the few locals I encountered seemed to regard me with a wary suspicion. Despite this however, I recall my visit with great fondness - truly an atmosphere one must experience themselves to appreciate.
 
