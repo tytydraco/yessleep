@@ -170,4 +170,6 @@ Matt, however, was fuming. Without thinking, he went right inside the cart, rush
 
 Wait, I heard him enter. I'm holding my breath, typing this last part, hoping I won't get noticed. Please don't notice me. Please don't notice me.
 
-Please don't noti-
+Please don't notice...
+
+He hasn't, not even on the way back. Thank God, I heard the door to next cart open, leaving me again in the silence of the cart. Hopefully, I can find a way to save the rest.
