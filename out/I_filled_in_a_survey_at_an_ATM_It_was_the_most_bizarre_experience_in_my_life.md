@@ -60,9 +60,11 @@ I could still feel the person's warm breath on my neck, now feeling moist from t
 
 I held my breath and pressed the "Yes" button.
 
-**Are you really sure?**
+**ARE YOU REALLY SURE?**
 
-I could smell the person's breath now too. It was indescribably putrid, so much so that I gagged involuntarily.
+The capitalized letters almost seemed to shake as they showed on the screen
+
+I could smell the person's breath now. It was indescribably putrid, so much so that I gagged involuntarily.
 
 I was sweating all over. My heart was pounding and my chest was tightening.
 
