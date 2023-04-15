@@ -1,3 +1,5 @@
+[The End](https://www.reddit.com/r/nosleep/comments/12mt5ok/the_carousel_that_stole_my_brother_the_end/)
+
 I've always loved carnivals, and I have fond memories of attending them with my family as a child. The vibrant colors, the smell of popcorn and cotton candy, and the laughter of kids running from one attraction to another all contribute to the magical atmosphere. But one particular carnival changed everything for me and my family.
 
 My younger brother Timmy and I were visiting our grandparents in a small town when we heard about a carnival that had just appeared seemingly out of nowhere. Despite the unusual circumstances, we couldn't resist the allure, and our grandparents agreed to take us.
