@@ -17,13 +17,13 @@ Sophie felt a chill run down her spine. She had never heard a voice like this be
 
 Passersby gave her shocked expressions as she dashed past, running from a menace that they could clearly not see.
 
-She finally reached her apartment building and fumbled with her keys, trying to get the door open as quickly as possible. With panicked triump she managed to get inside and locked the door behind her.
+She finally reached her apartment building and fumbled with her keys, trying to get the door open as quickly as possible. With panicked triumph she managed to get inside and locked the door behind her.
 
 As she leaned against the door, trying to catch her breath, she heard the voice again. "You can't keep me out, Sophie. I'll always be with you."
 
 Sophie's heart sank. She realized the voice was coming from inside her own head. She had been suffering from anxiety for years, but this was different. This voice was real and it was terrifying. Had her anxiety gained consciousness?
 
-Days turned into weeks, and Sophie tried to ignore the voice inside her head, but it was always there, whispering to her in the dark. She started to feel like she was losing her grip on reality as the voice began to her incessantly, its voice invading her dreams.
+Days turned into weeks, and Sophie tried to ignore the voice inside her head, but it was always there, whispering to her in the dark. She started to feel like she was losing her grip on reality as the voice began to her speak to her incessantly, its voice invading her dreams.
 
 One night, as she was lying in bed, the voice spoke again. "Sophie, don't you want to be free from all your worries and fears? I can make that happen."
 
