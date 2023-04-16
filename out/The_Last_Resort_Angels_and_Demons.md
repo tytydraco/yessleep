@@ -534,3 +534,5 @@ I guess that is where I will end for today. Nothing too interesting happened aft
 Until next time,
 
 Lucy.
+
+[Part 7](https://www.reddit.com/r/nosleep/comments/12nowby/the_last_resort_in_too_deep/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
