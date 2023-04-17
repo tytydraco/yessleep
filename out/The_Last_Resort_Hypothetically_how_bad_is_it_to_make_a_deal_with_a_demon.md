@@ -535,3 +535,6 @@ Until next time,
 Lucy
 
 [Part 6](https://www.reddit.com/r/nosleep/comments/12911nd/the_last_resort_angels_and_demons/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+
+[Part 7](https://www.reddit.com/r/nosleep/comments/12nowby/the_last_resort_in_too_deep/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
