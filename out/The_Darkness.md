@@ -1,13 +1,45 @@
-I was young the first time it happened. Probably not even  10 (I’m 30 now) and I hadn’t been living in Alabama long just recently having moved from Texas after my grandmother passed away. She always talked about my light and how “special” I was but I never really believed her until it started. 
+I can still feel the weight of the book in my hands, the pages bound in human skin, the words on the pages written in blood. I can still hear the chanting of the ritual, the malevolent energy that surrounded us, and the whispers in the darkness that followed. But what haunts me most is the fate of my friends, James and Liam, and the darkness that consumed them.
 
-I had been outside the first time I remember hearing someone calling my name. It was haunting and evil. I remember moving  and a tree branch falling right where I had been standing. Shortly after that experience I began to see “shadow people.” Black blobs in the coroners of my eyesight, always just out of view. Always calling to me, always lurking in the shadows. Then came the demonic presence. Haunting me. Trying to attack me but always failing. I was a fighter and not so easy to just give into the evil. Even in my sleep they would come for me. I’d wake up bruised and scratched, screaming for God to save me. In church they would linger, always calling to me. I’d tell me mom and she’d said to make sure I never answered to their call. Sinister and dark, evil and impure. Satan himself trying to tempt me into his darkness, but I stayed strong. Then I just started having weird encounters. Hearing walking/scraping in my house, knocking, seeing weird apparitions. It was getting more intense. 
+&#x200B;
 
- I fought and fought some more. Years later and they still try to trick me, they’ll call my name and are always lurking just outside my vision. Still as sinister as ever.
+After we left the cabin that day, I thought we had dodged a bullet. I was wrong. A few days later, James and Liam started acting strange. They were pale, withdrawn, and didn't want to talk about what had happened in the cabin. I tried to talk to them, to get them to open up, but they wouldn't say a word.
 
-Thieves don’t come to rob empty houses, so what do they want from me? What do they seek to try to steal from me? What is it about me that attracts them?
+&#x200B;
 
-It gets worse at night still…especially between 2-4 am. I can hear the whispers. Feel their evil presence. It’s enough to make my stomach turn. My anxiety rises and I almost begin to panic but then I remember to whom I belong. Then I remember that I have no reason to fear but still they taunt me. My soul is what they are seeking, my light and my goodness. It has to be but I am not so easily turned. I often find myself telling them that I am not theirs, that I don’t belong to them but it’s never ending. That battle between dark and light, evil and good. It always lingers, just behind us or just beyond our vision. 
+Then, they disappeared.
 
-No matter how much I fight they lurk. Watching me, waiting on me to fail, waiting on one moment of weakness to swoop in and take advantage of that vulnerability. Never turn your back to them or let your guard down. 
+&#x200B;
 
-They are the darkness, the ones who lurk at night. The monster under your bed. The bogey man. Never underestimate them and never second guess yourself when they are around. They’ll do whatever they can to snatch you up. They are always lurking and watching. Always.
+At first, I thought maybe they had just run away, that they were scared of what we had done in the cabin. But as the days turned into weeks and the weeks turned into months, it became clear that something more sinister was going on.
+
+&#x200B;
+
+I went to the police, but they didn't believe me. They thought that James and Liam had just left town, that they were just rebellious teenagers acting out. But I knew the truth. I knew that the darkness we had unleashed in the cabin had taken them.
+
+&#x200B;
+
+I started to see things, dark shadows in the corners of my vision, whispers in the night. I knew that the darkness was following me, that it was coming for me next. But I couldn't stop. I had to find out what had happened to James and Liam, and what we had done in the cabin.
+
+&#x200B;
+
+So, I went back. I went back to the cabin, to the symbols etched into the walls, to the book of dark spells. And that's when I saw them. James and Liam, their bodies twisted and contorted, their eyes black pits of darkness. They were no longer human, no longer my friends.
+
+&#x200B;
+
+They attacked me, clawing at my flesh, tearing me apart. I fought back, but it was no use. The darkness had consumed them, and now it was consuming me too.
+
+&#x200B;
+
+And that's when I realized the truth. The cabin was not abandoned. It had been used for dark rituals for generations, passed down from one generation to the next. The symbols on the walls were not just random etchings, but a map to a world beyond our own, a world of darkness and despair.
+
+&#x200B;
+
+I was the last one, the last of my friends to fall. And now, I am just a vessel for the darkness, a pawn in its endless game. I wander the woods, seeking out new victims to feed the darkness, to keep it alive.
+
+&#x200B;
+
+And that's why I'm writing this. Not as a warning, not as a plea for help, but as a testament to the power of the darkness. It's out there, waiting for you, lurking in the shadows, waiting for you to make a mistake, to stumble into its grasp.
+
+&#x200B;
+
+So be careful, be wary, and always watch your back. The darkness is coming, and it's hungry.
