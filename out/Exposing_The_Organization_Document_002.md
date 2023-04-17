@@ -1,14 +1,14 @@
-Hello once again dear readers. I’ve finished typing up the 2nd Document, which is about the Dark Watchers, as mentioned in my first post. I must thank the rule stating everything is true, even if it is not. These stories may seem false, but understanding these things requires an open mind. We simply wish to send these stories out into the world, and it’s my job to do that now, and I must say I rather enjoy it.
+Hello once again dear readers. I’ve finished typing up the 2nd Document, which is about the Dark Watchers, as mentioned in my first post. We simply wish to send these stories out into the world, and it’s my job to do that now, and I must say I rather enjoy it.
 
 Anyhow, our 2nd Document awaits below.
 
 \--------------------------------------------------------------------
 
-Day 1: We finally reached the Santa Lucia mountain range, and we’ve already seen the Dark Watchers observing us from the mountains. We’re setting up camp, and I can’t wait to get up there and start setting up equipment. We think there may be some hidden, unwritten burial ground up in the mountains. I think that the Watchers are just ghosts, but a majority say they are something we haven’t encountered yet. Honestly, after the incident at the Minnesota facility with the Wendigo, anything is possible. I didn’t even believe in Wendigos until I heard about it.
+Day 1: We finally reached the Santa Lucia mountain range, and we’ve already seen the Dark Watchers observing us from the mountains. We’re setting up camp, and I can’t wait to get up there and start setting up equipment. We think there may be some hidden, unwritten burial ground up in the mountains. I think that the Watchers are just ghosts, but a majority say they are something we haven’t encountered yet. Honestly, after the incident at the [Minnesota facility with the Wendigo](https://www.reddit.com/r/nosleep/comments/12hmmxx/exposing_the_organization_document_001/), anything is possible. I didn’t even believe in Wendigos until I heard about it.
 
 Day 3: We got the equipment set up on a couple of the peaks, and we were surprised how little animal life there was. We also encountered multiple patches of dead foliage, occasionally even small portions of shrubbery withering. Perhaps such is the cost of the Watcher’s manifestation? I am a little worried about whether or not small wildlife shared a similar fate if they got too close…
 
-Day 4: We might need to think outside the box. We couldn’t find the Dark Watchers on anything last night, not even the night vision cameras. We knew they were up there, we could see them looking down at us. Their eyes were… unsettling, to say the least. 
+Day 4: We might need to think outside the box. We couldn’t find the Dark Watchers on anything last night, not even the night vision cameras. We knew they were up there, we could see them looking down at us. Their eyes were… unsettling, to say the least.
 
 Day 8: We requisitioned some small wildlife yesterday to distribute along the monitored sections of the range, just to see what would happen. They should be here tomorrow, but they aren’t coming with trackers, so we have to individually set up tracking devices and cameras on them. Everyone was really annoyed with this, but I like mice so I have no problem with it. Kinda worried about them though.
 
@@ -36,6 +36,6 @@ Day 45: I’m packed. The Watchers are outside. They see everything from their p
 
 This has to be my favorite recording we’ve found. I want us to go look for this Adam Monroe fellow, I think he would like to join our group, but who knows he’s still even alive. I think the Dark Watchers are neutrally destructive, based on what I’ve heard from this recording, it seems like they can’t control it. I must also admit, I find it creepy that he proclaims that the stars are their eyes. Doesn’t matter though, we found the camp during the day, no Dark Watchers to find and hunt us.
 
-I would like to thank u/ crazyace339 for the idea of looking into the Dogman of Michigan. We’re going on a little search to see if the Organization has conducted their research on the Dogman, and we’re hoping to find some more audio logs. If requested, I will document our expedition, and share it with you readers. Since I am participating in the expedition, it will be a few days before you receive our next document. Thank you for reading.
+I would like to thank the readers for the idea of looking into the Dogman of Michigan. We’re going on a little search to see if the Organization has conducted their research on the Dogman, and we’re hoping to find some more audio logs. If requested, I will document our expedition, and share it with you readers. Since I am participating in the expedition, it will be a few days before you receive our next document. Thank you for reading.
 
 Until Next Time…
