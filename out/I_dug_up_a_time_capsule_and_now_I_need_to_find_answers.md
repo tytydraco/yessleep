@@ -2,9 +2,9 @@
 
 The police were right about one thing—the writing all over my walls was indeed pretty easy to clean.  As I wiped away the numerous frenzied iterations of that haunting command, *to give them what I owe*, I contemplated my next move.
 
-(By the way, I really appreciate the comments and sound advice I’ve received here.  I hope I don’t sound too whiny; I’m not used to posting online like this.) 
+(By the way, I really appreciate the comments and sound advice I’ve received here.  I hope I don’t sound too whiny; I’m not used to posting online like this.)
 
-I contemplated going back to New York on the next flight out of Heathrow.  But the truth is that I have nothing to go back to.  I sold my apartment, I have no family, no job, too many ex-girlfriends, and my other “friends” are mostly interested in how I can subsidize their lifestyles.  I suppose I’m more than a little bit fatalistic, but this is all I have.  I’ve painted myself into a corner and the only way forward is to solve this mystery.  
+I contemplated going back to New York on the next flight out of Heathrow.  But the truth is that I have nothing to go back to.  I sold my apartment, I have no family, no job, too many ex-girlfriends, and my other “friends” are mostly interested in how I can subsidize their lifestyles.  I suppose I’m more than a little bit fatalistic, but this is all I have.  I’ve painted myself into a corner and the only way forward is to solve this mystery.
 
 Unfortunately, my village doesn’t have a library or a public archive where I could do research.  As for the parish church, given the population decline and the decreasing church attendance among those who remain, it was consolidated under some sort of regional administration a couple decades ago.  There’s not even a vicar there anymore, one comes around every couple months or so to have a Sunday service.  I’m not too familiar with the specifics of Church of England stuff—my mom was Catholic and my dad converted so that was how I was raised.  My dad was actually pretty enthusiastic about it, and now I wonder if that was partially due to his desire to forget his past, a desire I’m beginning to understand.
 
@@ -14,13 +14,13 @@ So there you have it—everything I know.  But as many of you have noted, I need
 
 My plan sorted, I cleaned the final letters off my wall.  It felt as though the objects from the time capsule glared at me in response.  I flipped through the postcards again, trying to think of their significance, but the only thing I could think of was that my great-grandmother’s name had been Elizabeth, like the future Queen Mother.  I picked up the horseshoe once more, trying a second time to discern any markings or any other clues, thinking I could hang it over the door, just like my mother often did.  But as I held it, my hands began to ache, and my arms felt weak, little pinpricks of pain danced around my fingers.  A wave of nausea broke over me.  Trying to suppress a dry heave, I opened the door to the patio and shoved the horseshoe outside, feeling immediately better once it left my hands.  Almost at the same time, I heard a window slam shut in my neighbor’s house.  *Do they have nothing to do besides watch me all day?*  I thought, bewildered.
 
-There was no one on the street when I got into my car and once the handful of stores and houses faded into gentle hills and forest, I began to relax a bit, though I’m still a little shaky on the whole driving-on-the-wrong-side-of-the-road thing.  The hum of the car amid the silence of nature soothed my frayed nerves.  
+There was no one on the street when I got into my car and once the handful of stores and houses faded into gentle hills and forest, I began to relax a bit, though I’m still a little shaky on the whole driving-on-the-wrong-side-of-the-road thing.  The hum of the car amid the silence of nature soothed my frayed nerves.
 
 In my peripheral vision, I sensed movement.  When I glanced over my right shoulder, I noticed a large group of deer, walking parallel to my car.  Their heads were not focused on grazing or their young, but rather on me, large black eyes unsettlingly focused.  Between them, barely visible in the distance, I could make out shadows, humanoid shadows.  With a shudder, I accelerated and the deer began to run, soon falling behind me.  Out of my rear view mirror, I saw them congregate on the street, watching my car speed away, eyes still fixed on me as they faded into the distance.
 
 Bereston could not be more different from my village, in mood and life.  The High Street was filled with cheerful-looking shops, crowded with tourists and weekend shoppers.  Suddenly ravenous and recalling my interrupted breakfast, I entered a cheese shop, advertising artisanal local cheeses with the tell-tale minimalist twee design that proclaimed “big city transplant.”  An attractive woman about my age was behind the counter, with shoulder-length auburn hair pinned back from her face and pretty green eyes.  She greeted me politely with a normal expression on her face.  It was nice to walk into a store and not immediately want to walk right out.
 
-“Can you tell me why Double Gloucester cheese is yellow?  I’ve always wondered,” I said, putting on my most charming smile.  
+“Can you tell me why Double Gloucester cheese is yellow?  I’ve always wondered,” I said, putting on my most charming smile.
 
 She gave me a bemused smirk.
 
@@ -50,9 +50,9 @@ She looked around, ascertaining that the shop was empty, and called to the back 
 
 “Gladly.  They won’t miss you here?”
 
-“It’s my shop.  I can come and go as I please.” 
+“It’s my shop.  I can come and go as I please.”
 
-She handed me my wheel of cheese.  Just as I exited the shop, I noticed a horseshoe hanging over the door.  
+She handed me my wheel of cheese.  Just as I exited the shop, I noticed a horseshoe hanging over the door.
 
 She led me down a narrow backstreet, away from the weekenders.  Now, I’m usually not predisposed to following complete strangers down alleys, but I was there to get information.  And besides, she was extremely good looking.  We entered a small café in a Tudor building.  She nodded at the barista behind the counter and we ascended a small, crooked wooden staircase to a deserted second floor filled with comfortable-looking couches and tables.  She sat down on one and gestured for me to follow suit.  Fighting temptation, I sat on the other end of the couch, a polite distance away.
 
@@ -96,7 +96,7 @@ I studied her face.  She appeared truthful enough.
 
 “Not a year Druwich would particularly like to remember then.”
 
-“I wouldn’t think so.  But apparently your great-grandfather thought differently.” 
+“I wouldn’t think so.  But apparently your great-grandfather thought differently.”
 
 “Now hold on there, Sarah.  I haven’t said anything about my great-grandfather.”
 
@@ -114,7 +114,7 @@ Her eyes caught mine and for a moment she held my gaze.  A shadow passed over he
 
 “Or just good luck,” she said quietly.
 
-“If we have such spectacular luck, why hasn’t any Catesby lived past 65 years old?  Why are they all dead?”  I said bitterly, the volume of my voice rising.  I thought of my mother on her deathbed, only forty-seven years old, body wasted away to nothing, my father dead on the bathroom floor, not even fifty-five.  
+“If we have such spectacular luck, why hasn’t any Catesby lived past 65 years old?  Why are they all dead?”  I said bitterly, the volume of my voice rising.  I thought of my mother on her deathbed, only forty-seven years old, body wasted away to nothing, my father dead on the bathroom floor, not even fifty-five.
 
 “I apologize, William.  I am just repeating the local folklore, that’s all.”  She patted my hand in sympathy.
 
@@ -160,40 +160,42 @@ I walked her back to the cheese shop, making sure the back of my hand would occa
 
 She nodded, waved, and joined her employee behind the counter who stared at me and then back to Sarah with a bemused expression on her face.  I hurried my way back to my car, not enthused by driving home in such a downpour, but still buoyed by my encounter with Sarah.
 
-The drive began normally enough.  I drove cautiously; the sky had darkened considerably and the rain had thickened, making visibility difficult.  What I had learned confirmed what I had feared, namely that my family may have been responsible for something nefarious, but our conversation had left me with even more questions.  I’m fairly certain that Sarah still knows more than she let on, but so far she was the only person who seemed willing to help me.  
+The drive began normally enough.  I drove cautiously; the sky had darkened considerably and the rain had thickened, making visibility difficult.  What I had learned confirmed what I had feared, namely that my family may have been responsible for something nefarious, but our conversation had left me with even more questions.  I’m fairly certain that Sarah still knows more than she let on, but so far she was the only person who seemed willing to help me.
 
 I was almost back to Druwich when a pale, writhing shape suddenly jumped before me.  I cranked the wheel, swerving violently, my wheels skidding over the wet road, my car propelled forward, smashing into a giant tree.  I was momentarily stunned, but otherwise uninjured.  I struggled against my seat belt and airbag.  The driver’s side door was still able to open and I stumbled out onto the wet grass, my head spinning.  The thing that I had narrowly avoided was in the middle of the road and twitching.  As I approached, I realized it was a naked man, crouched in a fetal position.
 
 I called out to him, but he made no response.  I pulled out my phone to call 999, but it was dead.  *Shit.*  He was moaning, a low and terrible sound.  I called out again, but he didn’t react.  His arms were covering his head.  I reached out to touch his shoulder and he spasmed violently, his arms flailing outwards.
 
-His face had been flayed, from forehead to chin the skin had been removed.  He opened and closed his bleeding mouth, his eyes rolled around in panic, searching for the safety of eyelids that no longer existed.  Ants had already found him, they swarmed the meat of his cheeks, the wetness of his eyes.  
+His face had been flayed, from forehead to chin the skin had been removed.  He opened and closed his bleeding mouth, his eyes rolled around in panic, searching for the safety of eyelids that no longer existed.  Ants had already found him, they swarmed the meat of his cheeks, the wetness of his eyes.
 
 “What the fuck,” I said.  At the sound of my voice, his eyes found me.  He began to convulse, a choked sound escaping from his lips as though he were trying to speak.  With a ragged moan, the man went limp.  I took his pulse, but he was dead.  I stepped back in panic.  I was still several miles away from Druwich and my car was completely totaled.  I scanned the road for any other motorists, but there were none.  There was no indication where the man had come from, no bloody footprints, no nearby sheds or houses or other structures.
 
-As I stared into the trees, I noticed a flicker of lights, one, now two, now several, a line of flames deep in the forest.  I ran towards them, powered not only by desperation, but by anger.  
+As I stared into the trees, I noticed a flicker of lights, one, now two, now several, a line of flames deep in the forest.  I ran towards them, powered not only by desperation, but by anger.
 
 “Hey, hey!” I shouted.  The more I ran, the farther the torches seemed until I tripped on a rock and flew into the ground, landing on my side.  I groaned, my body erupted with pain.  A pair of cold hands took my arm and helped me up.  Three women stood before me, naked as the man had been, their matted blonde hair woven with leaves.  Their faces were beautiful, but haunting, their features were sharp and their eyes burned with no mortal intensity.  They smiled with their mouths, but those eyes bore into me with an expression that did not match.
 
-They took my hands and began to lead me deeper into the forest.  I opened my mouth to speak, but my words failed me.  I wanted to shout at them about a dead man in the middle of the road, but I knew that would be futile.  As far as I knew, they were the prime suspects in his mutilation.  
+They took my hands and began to lead me deeper into the forest.  I opened my mouth to speak, but my words failed me.  I wanted to shout at them about a dead man in the middle of the road, but I knew that would be futile.  As far as I knew, they were the prime suspects in his mutilation.
 
 “Where are we going?” I asked, once I was finally able to speak.
 
-“William,” they whispered, their voices soft and inviting.  I tried to remember the dead man, but his memory was already confused in my mind.  *Much better to go with them, be free of the struggle*, that is what echoed within me.  I fought it, the horrific details of the man's flayed face my weapons against whatever glamour was being employed against me. 
+“William,” they whispered, their voices soft and inviting.  I tried to remember the dead man, but his memory was already confused in my mind.  *Much better to go with them, be free of the struggle*, that is what echoed within me.  I fought it, the horrific details of the man's flayed face my weapons against whatever glamour was being employed against me.
 
-We were in a clearing with a deep indentation of a circle in the ground, ringed with torches, their flames clearly impervious to the pouring rain.  I did not want to stay around for whatever they had planned.  Almost as if sensing my doubt, their hands strengthened their hold on my arms.  I shook myself free and took off running, too fearful to look behind me, but hearing no pursuit.  
+We were in a clearing with a deep indentation of a circle in the ground, ringed with torches, their flames clearly impervious to the pouring rain.  I did not want to stay around for whatever they had planned.  Almost as if sensing my doubt, their hands strengthened their hold on my arms.  I shook myself free and took off running, too fearful to look behind me, but hearing no pursuit.
 
-I felt as though I had been running for ages.  With a pang of anxiety, I realized I had absolutely no idea where I was going or in what direction I should be headed.  Though the rain had ceased, the landscape before me appeared the same, familiar and yet unfamiliar.  I began to despair when from behind, I heard a loud snort.  I turned around to find a massive black horse, stomping at the ground impatiently, its eyes glimmered with the same intensity as those of the ladies who had lured me so deep in the woods.  We stared at each other and I had the strong sense that he wanted me to ride.  I approached and saw that he had no saddle.  My mother had taught me to ride, but I had never done it bareback.  
+I felt as though I had been running for ages.  With a pang of anxiety, I realized I had absolutely no idea where I was going or in what direction I should be headed.  Though the rain had ceased, the landscape before me appeared the same, familiar and yet unfamiliar.  I began to despair when from behind, I heard a loud snort.  I turned around to find a massive black horse, stomping at the ground impatiently, its eyes glimmered with the same intensity as those of the ladies who had lured me so deep in the woods.  We stared at each other and I had the strong sense that he wanted me to ride.  I approached and saw that he had no saddle.  My mother had taught me to ride, but I had never done it bareback.
 
 Still, those eyes compelled me.  I found it surprisingly easy to launch myself onto his back.  My hands found his braided mane and he was off.  I steadied myself as he gained speed.  After only a few minutes, my concerns were assuaged when I saw the outline of Druwich come into focus.  *Never thought I’d be so happy to have found my way back here*, I thought.  A sense of calm descended over me.
 
-As we approached the town, I saw a decent number of people milling about, taking care of weekend shopping, mostly elderly and middle aged.  At the sound of the horse, they raised their heads in surprise.  Their eyes widened in terror, some gasped, others averted their gaze.  At first, I thought that this reaction was (rather justifiably) directed at the horse I was riding.  But as I watched the villagers recoil in fear, I realized that it wasn’t the horse.  Not at all.  
+As we approached the town, I saw a decent number of people milling about, taking care of weekend shopping, mostly elderly and middle aged.  At the sound of the horse, they raised their heads in surprise.  Their eyes widened in terror, some gasped, others averted their gaze.  At first, I thought that this reaction was (rather justifiably) directed at the horse I was riding.  But as I watched the villagers recoil in fear, I realized that it wasn’t the horse.  Not at all.
 
 It was *me*.  They had lifted their eyes to me, and what they saw filled them with dread.
 
-I stopped the horse and dismounted as we approached my house, at the end of the town’s main street.  The horse immediately galloped off back towards whence we came.  The villagers crept away from me and back to their own homes.  I recognized Alan the barman and Barbara the grocer among them, staring at me with undisguised apprehension.  
+I stopped the horse and dismounted as we approached my house, at the end of the town’s main street.  The horse immediately galloped off back towards whence we came.  The villagers crept away from me and back to their own homes.  I recognized Alan the barman and Barbara the grocer among them, staring at me with undisguised apprehension.
 
 The thought occurred to me that I should feel pity for them, or perhaps frustration at their misunderstanding of my intentions, but I couldn't feel anything at all.  I was cold from the rain, but there was a deeper cold inside of me now, a cold that was beginning to wake.
 
 I gave them a wave and closed the door behind me.
 
 [x](https://www.reddit.com/r/Wine_Dark_Sea_1239/)
+
+[\[Part 3\]](https://www.reddit.com/r/nosleep/comments/12pt25g/i_dug_up_a_time_capsule_and_im_not_who_i_thought/)

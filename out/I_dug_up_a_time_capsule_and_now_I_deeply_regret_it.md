@@ -149,3 +149,5 @@ And I fear things are about to get worse.  Much worse.
 [x](https://www.reddit.com/r/Wine_Dark_Sea_1239/)
 
 [\[Part 2\]](https://www.reddit.com/r/nosleep/comments/12ku4cs/i_dug_up_a_time_capsule_and_now_i_need_to_find/)
+
+[\[Part 3\]](https://www.reddit.com/r/nosleep/comments/12pt25g/i_dug_up_a_time_capsule_and_im_not_who_i_thought/)
