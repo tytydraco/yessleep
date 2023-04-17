@@ -2,7 +2,7 @@ Part 1: [https://www.reddit.com/r/nosleep/comments/12et0aq/i\_joined\_a\_cult\_c
 
 &#x200B;
 
-“For the cause, this man gave his life,” Dax said, motioning down to the corpse. “He died for the highest purpose imaginable. To connect human and divine is the goal. If we can succeed, we will save billions from death- this eternal cycle of annihilation.” 
+“For the cause, this man gave his life,” Dax said, motioning down to the corpse. “He died for the highest purpose imaginable. To connect human and divine is the goal. If we can succeed, we will save billions from death- this eternal cycle of annihilation.”
 
 A few of the cult members had tears in their eyes, but the rest had emotionless, vacant expressions on their faces. “And like all of us, in the end, we will give the human shell to the Angel of Death, so that the Angel may pass over us and leave us in peace for another night.” Dax turned to a young brunette to his right. “Have you called the High Priest in yet?” She nodded.
 
@@ -18,7 +18,7 @@ I stepped forward, shaking inside, and extended my hand.
 
 “It is nice to meet you, Archon,” I said. Archon grabbed my hand with immense strength. His skin felt like it was on fire, heat radiating out onto my palm. HIs eyes did not turn away from me, but simply observed me, reminding me of a slaughterhouse employee regarding his cattle.
 
-“What do you want, Joe Larson?” he asked me, raising one eyebrow slightly, holding my hand tight and refusing to release it. The heat that radiated off of his body seemed to be growing. I felt extremely uncomfortable. I wanted to yank my hand back and run out of there, screaming like a maniac. 
+“What do you want, Joe Larson?” he asked me, raising one eyebrow slightly, holding my hand tight and refusing to release it. The heat that radiated off of his body seemed to be growing. I felt extremely uncomfortable. I wanted to yank my hand back and run out of there, screaming like a maniac.
 
 I took a deep breath, trying to control my shuddering body. I kept eye contact with Archon, knowing I could not exhibit any sign of weakness.
 
@@ -60,7 +60,7 @@ Most of the members looked excited, but I saw one woman who looked absolutely te
 
 “How did you end up in the God Machine?” I asked. She made eye contact, giving a small half-smile.
 
-“Family.” She shrugged. “Archon is actually my half-brother. Though his birth name obviously isn’t Archon. He changed it a few years ago, after some really intense experience with the God Machine that left him in a catatonic state for a few days. He wouldn’t talk, or move on his own, or speak, or anything. We had to feed him through tubes. He just lay in bed, staring at the ceiling like a statue, and when he came out of it, he said God had revealed to him many things, including his new name.” I felt my eyes widen involuntarily as she spoke. 
+“Family.” She shrugged. “Archon is actually my half-brother. Though his birth name obviously isn’t Archon. He changed it a few years ago, after some really intense experience with the God Machine that left him in a catatonic state for a few days. He wouldn’t talk, or move on his own, or speak, or anything. We had to feed him through tubes. He just lay in bed, staring at the ceiling like a statue, and when he came out of it, he said God had revealed to him many things, including his new name.” I felt my eyes widen involuntarily as she spoke.
 
 “Holy shit, your brother? You look and act nothing like him!” I said. Just as I felt we were entering into a rhythm of conversation, it was broken by an announcement that rang through the hallways.
 
@@ -114,7 +114,7 @@ On our way, pushing through the rapidly-thinning crowds of people in the hallway
 
 Next to it was a painting of a wide-eyed, skeletal man, his mouth opened in an eternal scream, his body covered in blood. Darkness surrounded him on all sides, seeming to press in on and suffocate the figure.
 
-“Do you like it?” Mary asked me shyly. “I wrote it myself. And I did the painting. I did most of these paintings here.” 
+“Do you like it?” Mary asked me shyly. “I wrote it myself. And I did the painting. I did most of these paintings here.”
 
 “It was very… unique,” I said. “Did you write the other poems around here too?” She nodded. I realized we were about to be alone in the hallway. Not wanting to be late, we hurried out the backdoor, Mary leading the way.
 
@@ -141,3 +141,7 @@ The Angel of Death threw his body into its boat, causing it to rock and send out
 Turning her body away from me, the Angel of Death looked directly at me. Her eyes were covered in a thin film of blood, her mouth gnashing constantly, showing sharpened teeth and a flicking, snake-like tongue. The rags she wore on her skeletal body blew slightly in the wind, and a smell like rotting tomatoes and putrefying bodies carried on the breeze towards me.
 
 Without even realizing I was doing it, I started backing away, still holding onto Mary’s hand. With a skittering, jerking motion, the horrifying creature began to run at the cult members, and they scattered like cockroaches, running in all directions as death itself approached them.
+
+&#x200B;
+
+Part 3: [https://www.reddit.com/r/nosleep/comments/12ptwhh/i\_joined\_a\_cult\_called\_the\_god\_machine\_what\_they/](https://www.reddit.com/r/nosleep/comments/12ptwhh/i_joined_a_cult_called_the_god_machine_what_they/)
