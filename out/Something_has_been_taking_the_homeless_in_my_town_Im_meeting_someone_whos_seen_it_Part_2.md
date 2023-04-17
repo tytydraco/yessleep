@@ -55,3 +55,5 @@ Instead, I turned and began to jog back towards the parking lot. Reaching my car
 As I backed out and began to drive away to my meeting with Ray, I cast one final look down at the black water.
 
 For a moment, I swore I could see the exact red glow of eyes I’d imagined, watching me from just beneath the surface.
+
+[Final](https://www.reddit.com/r/nosleep/comments/12owfi6/something_has_been_taking_the_homeless_in_my_town/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)

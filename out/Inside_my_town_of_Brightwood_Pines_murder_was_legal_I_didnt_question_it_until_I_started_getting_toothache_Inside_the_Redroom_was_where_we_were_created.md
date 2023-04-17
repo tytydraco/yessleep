@@ -4,7 +4,7 @@ Including my parents' murderer.
 
 My classmate since we were little kids.
 
-[And one of Darkroom's biggest assets. ](https://www.reddit.com/r/nosleep/comments/12olg7r/inside_my_town_of_brightwood_pines_murder_was/)
+[And one of Darkroom's biggest assets. ](https://www.reddit.com/r/nosleep/comments/120xf14/in_my_town_of_brightwood_pines_murder_was_legal_i/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 *What did… you just say?*
 

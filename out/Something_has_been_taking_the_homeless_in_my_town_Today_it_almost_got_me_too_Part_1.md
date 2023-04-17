@@ -75,3 +75,5 @@ I caught a glimpse of one of the storm drains set into the side of the curb as w
 And I shivered as the horrifying image of that *thing* charging towards me and laughing replayed itself over and over in my mind.
 
 [Part 2](https://www.reddit.com/r/nosleep/comments/12k5ew1/something_has_been_taking_the_homeless_in_my_town/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[Final](https://www.reddit.com/r/nosleep/comments/12owfi6/something_has_been_taking_the_homeless_in_my_town/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
