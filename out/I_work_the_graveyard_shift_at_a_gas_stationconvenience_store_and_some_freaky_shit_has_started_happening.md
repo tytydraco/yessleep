@@ -53,6 +53,9 @@ Isaac shoots me a quick glance before looking around the parking lot again. Then
 I stare at him, slightly uneasy, awaiting his response.
 
 -
+-
+-
+-
 
 It feels like actual minutes pass before he says, "The fuck?"
 
@@ -65,6 +68,9 @@ His voice is calm. I'm expecting a joke about how it really is a bag of fingers 
 "What *is* it?" I say again. "Isaac?"
 
 -
+-
+-
+-
 
 A moment of silence, and then he finally acknowledges me. "It... it's a... I... don't think you want to see this. Why the..."
 
@@ -74,7 +80,15 @@ A moment of silence, and then he finally acknowledges me. "It... it's a... I... 
 
 -
 
-Isaac says nothing. He doesn't move. After maybe 10 seconds, he starts fumbling with the object again. Growing antsy, I watch him for just a few seconds before speaking up. "What the hell are you doing?"
+Isaac says nothing. He doesn't move.
+
+-
+-
+-
+-
+-
+
+After maybe 10 seconds, he starts fumbling with the object again. Growing antsy, I watch him for just a few moments before speaking up. "What the hell are you doing?"
 
 -
 
@@ -185,9 +199,37 @@ Then, just to make things worse, Isaac starts heading for the door.
 "No, please," I beg, but evidently, my words are falling on deaf ears. I watch helplessly as Isaac opens the door and leans outside, craning his neck to take a look at what was probably another dead bird in a bag. I stare into his blind spot, countless tiny sparks dancing in the darkness.
 
 -
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
 
 "Fucking get back in!" I whisper-yell. I'm so close to running up and tugging him inside by his shirt.
 
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
+-
 -
 
 Finally, he leans back and closes the door. Then he takes out his key and locks it.
