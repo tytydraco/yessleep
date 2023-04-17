@@ -1,8 +1,6 @@
-Hello again, sorry for the wait. I'm Travis Marcella. If you haven't kept track of my story so far then you should go here:  [Part 1](https://www.reddit.com/r/nosleep/comments/11kc214/i_didnt_follow_my_fathers_rules_and_ive_uncovered/), [Part 2](https://www.reddit.com/r/nosleep/comments/11lavnl/i_didnt_follow_my_fathers_rules_and_now_something/), [Part 3](https://www.reddit.com/r/nosleep/comments/11mik5w/i_didnt_follow_my_fathers_rules_and_now_im/), [Part 4](https://www.reddit.com/r/nosleep/comments/11p1o9e/i_didnt_follow_my_fathers_rules_and_now_im_a/), [Part 5](https://www.reddit.com/r/nosleep/comments/11qhrhp/i_didnt_follow_my_fathers_rules_and_now_im_a/), [Part 6](https://www.reddit.com/r/nosleep/comments/11sahoe/i_didnt_follow_my_fathers_rules_and_now_im_a/). [Part 7](https://www.reddit.com/r/nosleep/comments/11u3060/i_didnt_follow_my_fathers_rules_and_now_im_being/), [Part 8](https://www.reddit.com/r/nosleep/comments/11vvxnk/i_didnt_follow_my_fathers_rules_and_now_i_think/), [Part 9](https://www.reddit.com/r/nosleep/comments/122u3yh/i_didnt_follow_my_fathers_rules_and_now_im/),[Part 10](https://www.reddit.com/r/nosleep/comments/127zs1j/my_best_friend_went_missing_this_was_his_last_post/).  
+Hello again, sorry for the wait. I'm Travis Marcella. If you haven't kept track of my story so far then you should go here:  [Part 1](https://www.reddit.com/r/nosleep/comments/11kc214/i_didnt_follow_my_fathers_rules_and_ive_uncovered/), [Part 2](https://www.reddit.com/r/nosleep/comments/11lavnl/i_didnt_follow_my_fathers_rules_and_now_something/), [Part 3](https://www.reddit.com/r/nosleep/comments/11mik5w/i_didnt_follow_my_fathers_rules_and_now_im/), [Part 4](https://www.reddit.com/r/nosleep/comments/11p1o9e/i_didnt_follow_my_fathers_rules_and_now_im_a/), [Part 5](https://www.reddit.com/r/nosleep/comments/11qhrhp/i_didnt_follow_my_fathers_rules_and_now_im_a/), [Part 6](https://www.reddit.com/r/nosleep/comments/11sahoe/i_didnt_follow_my_fathers_rules_and_now_im_a/). [Part 7](https://www.reddit.com/r/nosleep/comments/11u3060/i_didnt_follow_my_fathers_rules_and_now_im_being/), [Part 8](https://www.reddit.com/r/nosleep/comments/11vvxnk/i_didnt_follow_my_fathers_rules_and_now_i_think/), [Part 9](https://www.reddit.com/r/nosleep/comments/122u3yh/i_didnt_follow_my_fathers_rules_and_now_im/),[Part 10](https://www.reddit.com/r/nosleep/comments/127zs1j/my_best_friend_went_missing_this_was_his_last_post/).
 
-
-Darius also made some posts before he went missing, check them out here:  [Part 1](https://www.reddit.com/r/nosleep/comments/11tfybd/i_am_best_friends_with_travis_marcella_one_of_his/),[Part 2](https://www.reddit.com/r/nosleep/comments/11wx1kt/i_am_best_friends_with_travis_marcella/),[Part 3](https://www.reddit.com/r/nosleep/comments/12442w8/i_am_best_friends_with_travis_marcella_we_are/).  
-
+Darius also made some posts before he went missing, check them out here:  [Part 1](https://www.reddit.com/r/nosleep/comments/11tfybd/i_am_best_friends_with_travis_marcella_one_of_his/),[Part 2](https://www.reddit.com/r/nosleep/comments/11wx1kt/i_am_best_friends_with_travis_marcella/),[Part 3](https://www.reddit.com/r/nosleep/comments/12442w8/i_am_best_friends_with_travis_marcella_we_are/).
 
 Me,Eddie,Martin and Jayden quickly made our way to the facility, making sure to be quiet, I avoided the leaves that littered the forest floor. We were a couple feet away from the main entrance now, hiding behind a couple of trees when we decided to put our plan into action. I quickly walked up to the  guards and acted confused and hurt. They immediately pulled their guns out from their holsters  and pointed them at me.
 
@@ -30,7 +28,7 @@ I watched as Eddie and Martin quickly stole the guards uniforms and took out som
 
 "You will have the keys to your own cuffs". Eddie said and handed Jayden and I keys to our handcuffs.
 
-We walked inside with little to no difficulty. As we continued through the corridors, not many people questioned us as we quickly made our way to the directors office. 
+We walked inside with little to no difficulty. As we continued through the corridors, not many people questioned us as we quickly made our way to the directors office.
 
 As we reached the directors office, Eddie handed one of the guards a key card and they grunted in approval. We walked inside and the door slammed shut.
 
@@ -90,7 +88,7 @@ The guards broke the door to see the scene in front of them.I stood over the bod
 
 The guards didn't object as they had to call more guards to the scene and deal with the crisis.
 
-We quickly made our way to the reception area. We had to abort our first plan because Eddie was now KIA and our only hope was to contact the government through the reception area. We quickly got to the reception area and we encountered a problem. None of us knew the government's call number. I frantically read through the paper Eddie gave me for any info that could help when on the back of the page I saw a code: "1787". 
+We quickly made our way to the reception area. We had to abort our first plan because Eddie was now KIA and our only hope was to contact the government through the reception area. We quickly got to the reception area and we encountered a problem. None of us knew the government's call number. I frantically read through the paper Eddie gave me for any info that could help when on the back of the page I saw a code: "1787".
 
 We called that number on one of the government's computers and Martin sent them the following message:
 
@@ -148,4 +146,7 @@ I didn't respond and kept running, dragging him with me. We made it to the medic
 
 I don't know what to do. I don't know what's happening. I can't think with so many questions zooming through my mind. IF anyone knows anything, ANYTHING that can help...I really need it. Please...
 
-I'll try to keep in touch... I...I promise.
+I'll try to keep in touch... I...I promise.  
+
+
+[Part 12](https://www.reddit.com/r/nosleep/comments/12p2qej/my_best_friend_went_missing_the_end_is_upon_us/).
