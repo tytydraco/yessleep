@@ -79,3 +79,7 @@ A tall, thin figure stepped out of the shadows. I could barely make out enough d
 "Wha - who are you? What are you talking about?" I asked, now standing and starting to back away.
 
 "I think you know exactly what I'm talking about, *Nate*," she said, pronouncing my name with a bit of a sarcastic hiss, as if flaunting the fact that she knew who I was and I couldn't say likewise. She approached closer, and as she stepped into the moonlight, I could see that her fingers ended in long, black claws, and her sinister smile revealed a mouth full of sharp, fang-like teeth.
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/12r82hc/i_was_never_afraid_of_the_dark_now_i_know_why/)
+
+&#x200B;
