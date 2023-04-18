@@ -82,7 +82,7 @@ Whistling to himself, the insane man took the cap off of a gallon of gas, pourin
 
 The pain of burning alive and suffocating was beyond anything that I could ever communicate. And, combined with my own screams, I heard the shrieking of tortured agony from my wife and daughter. That was, if possible, just as bad.
 
-This went on for what felt like weeks. I would awake in bed, and each time I died, a new scar or series of scars would show up from the encounter. Soon my entire body was just a patchwork of old, healed scars, from my face down to my legs. 
+This went on for what felt like weeks. I would awake in bed, and each time I died, a new scar or series of scars would show up from the encounter. Soon my entire body was just a patchwork of old, healed scars, from my face down to my legs.
 
 I would always try to run, and the man would find me. He would kill me along with my family. We would be shot, stabbed, bludgeoned, drowned or burned alive. He always found me, no matter what direction I went or how far away I made it. He was not human- I knew that much. He could somehow appear ahead of me, as if he either read my mind or was capable of teleporting.
 
