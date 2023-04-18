@@ -7,7 +7,7 @@ They had a strong, determined gaze. I bit my lip and stepped aside, buf they ste
 "What do you want…?" I asked.
 
 
-Their lips rolled up, exposing their gums. Blood red with nerves that squirmed around liked insects. Their teeth were regular pearly whites, but then they grew longer, then shorter, like this person could control the growth of their teeth at will. Chills ran straight down my spine.
+Their lips rolled up, exposing their gums. Blood red with bumps which moved around like insects. Their teeth were the average pearly whites, but then they grew longer, then shorter, like this person could control the growth of their teeth at will. Chills ran straight down my spine.
 
 
 The hell? Is this really happening right now? What's up with this person? As I thought to myself, it dawned on me that this clearly wasn't a person, but some creature that looked like a person. There were no genetic conditions that this matched the description of.
