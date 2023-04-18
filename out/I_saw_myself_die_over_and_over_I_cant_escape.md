@@ -22,7 +22,13 @@ At that moment, my daughter walked into the room. She was bleary-eyed, looking s
 
 “No, Lillian!” I shrieked. “Get out of here!” But it was too late. The psycho raised his gun and shot her. As if in slow motion, I saw a blossom of blood explode across her chest, and she fell, coughing up blood and rolling onto her side. She flailed her arms uselessly, trying to scream for help.
 
-I stood up, turning abruptly as the intruder pulled out a dagger from his belt. He shoved it into the side of my throat. An agony like I had never imagined took over my consciousness. I ran at him, spraying blood everywhere as I fought. But the blood loss and pain was too much. I punched him a few times in the mouth, but each punch was weaker than the one before it. I was bleeding out too fast, losing energy every second. The pain was overwhelming, and the fear was consuming me, eradicating all rational thoughts. I slumped over, the man laughing as he grabbed the dagger handle, yanking it out of my throat. An explosion of bright red blood followed it out, hitting the wall. I could hear my weakening heartbeats in my own ears. 
+I stood up, turning abruptly as the intruder pulled out a dagger from his belt. He shoved it into the side of my throat. An agony like I had never imagined took over my consciousness. I ran at him, spraying blood everywhere as I fought. But the blood loss and pain was too much. I was slow. I tried punching him in the face, tried breaking his nose or tearing out his eyes, but I knew the blood loss would soon end me.
+
+Without a second thought, I wrapped my hand around the dagger, pulled it out and stabbed the serial killer in the stomach.
+
+The blade slid in smooth and easy. But no blood came out. Instead, some black, vile fluid rushed out. It smelled like a rotten body, tones of rotting fruit and spoiled meat mixing with sickness and rancid blood.
+
+The man laughed, but after a few seconds, he looked affected. His eyes widened in surprise. He slumped over and kept giving off a weak chuckle as he landed on the floor. I fell next to him, the squirting, bright-red blood from my neck wound staining the walls.
 
 My vision started to go black as I died, and the pain faded away. Darkness consumed me.
 
@@ -32,9 +38,13 @@ And that was the first time I met the man who would haunt my life. I died fighti
 
 I awoke, covered in sweat and yelling at the top of my lungs. Next to me, my wife jumped up, her eyes wide, her skin pale.
 
-“Jesus Christ, Mike!” she said. “What are you trying to do, give me a heart attack?” I looked around. There was no blood in our room. The man wasn’t there. It was as if it had never happened. 
+“Jesus Christ, Mike!” she said. “What are you trying to do, give me a heart attack?” I looked around. The man was gone, but it was still the middle of the night.
 
-But I knew it wasn’t a dream. I felt every ounce of pain during the encounter. It was nothing like a nightmare. I knew it had been real.
+"Oh my God, what is that *smell*?" Tia asked. She looked at me, getting out of bed quickly. "And what happened to your neck?"
+
+"What do you mean, what happened to my neck?" I said. The spot where I had been stabbed still felt raw and sore. I rubbed a hand over it and felt the smooth skin of scar tissue. Looking down, I realized the black fluid that had spurted out of the home intruder still covered my body and had, by now, seeped into the bed as well.
+
+"What are you, sleepwalking?" she asked, a strong note of concern in her voice. I shook my head rapidly.
 
 “Tia, we have to get out of here,” I said, getting out of bed quickly and going to the closet for a suitcase. “We have to go, right fucking *now.* Something is coming. I mean, someone is coming. Go get Lillian up.” She looked at me as if I had gone crazy.
 
@@ -42,7 +52,7 @@ But I knew it wasn’t a dream. I felt every ounce of pain during the encounter.
 
 “I don’t give a shit about work!” I said, exploding. “Someone is coming here to kill us, all of us. Trust me. I know it sounds crazy, but I saw it happen. We have to go.” Lillian walked into the room, bleary-eyed, looking small and helpless, carrying her stuffed puppy in one arm.
 
-“Daddy, what’s wrong?” she said in a barely audible voice. “Are you sick?”
+“Daddy, what’s wrong?” she said in a barely audible voice. “Are you sick? What's that goop all over you?”
 
 “I am fine, sweetie,” I said, going over to her and stroking her smooth cheek. I was so happy to see her alive and healthy that tears started falling down my face. “But we have an emergency. Go pack your things, enough for a couple of days. We’re leaving here in ten minutes.” My wife sighed, getting out of bed. She grabbed a suitcase from the closet and started throwing clothes and toiletries into it. A sense of relief washed over me when I saw her packing.
 
@@ -66,23 +76,33 @@ Out of the silence, I heard it. Soft, even footsteps approaching from the field.
 
 “So you think you can run?” the high-pitched voice of the murderer said from outside my broken window. “You can’t run anywhere that I won’t find you.” I smelled his rancid stench, but underlying it was another acrid smell: gasoline.
 
-Whistling to himself, the insane man took the cap off of a gallon of gas, pouring it all around my car, sending a few splashes inside for good measure. I heard my wife and daughter waking up, their heaving sobs and stuttering questions sending waves of remorse through my mind. If only I had done something differently, I thought to myself. 
+Whistling to himself, the insane man took the cap off of a gallon of gas, pouring it all around my car, sending a few splashes inside for good measure. I heard my wife and daughter waking up, their heaving sobs and stuttering questions sending waves of remorse through my mind. If only I had done something differently, I thought to myself.
 
-“Goodbye, motherfucker,” the man said, chuckling. He lit a Zippo, dropping it down on the puddle of gasoline. 
+“Goodbye, motherfucker,” the man said, chuckling. He lit a Zippo, dropping it down on the puddle of gasoline.
 
 The pain of burning alive and suffocating was beyond anything that I could ever communicate. And, combined with my own screams, I heard the shrieking of tortured agony from my wife and daughter. That was, if possible, just as bad.
 
-This went on for what felt like weeks. I would awake in bed, try to run, and the man would find me. He would kill me along with my family. We would be shot, stabbed, bludgeoned, drowned or burned alive. He always found me, no matter what direction I went or how far away I made it.
+This went on for what felt like weeks. I would awake in bed, and each time I died, a new scar or series of scars would show up from the encounter. Soon my entire body was just a patchwork of old, healed scars, from my face down to my legs. 
 
-I thought I was in Hell. 
+I would always try to run, and the man would find me. He would kill me along with my family. We would be shot, stabbed, bludgeoned, drowned or burned alive. He always found me, no matter what direction I went or how far away I made it. He was not human- I knew that much. He could somehow appear ahead of me, as if he either read my mind or was capable of teleporting.
+
+I thought I was in Hell.
 
 But on the twenty-seventh death, something changed. I didn’t wake up in my bed this time.
 
 \*\*\*
 
-I awoke, strapped down to a gurney, screaming and thrashing. A doctor from the hallway came into the room. 
+I awoke, strapped down to a gurney, screaming and thrashing. A doctor from the hallway came into the room.
 
-“Mr. Dumas,” he said to me, looking down. “Are you OK?” I looked at the leather straps holding my arms and legs in place.
+“Mr. Dumas,” he said to me, looking down. “Are you OK?” I looked at the leather straps holding my arms and legs in place. The doctor's eyes widened. "What is that black substance all over your body?" I saw that I was indeed soaked in the serial killer's blood, yet again. I had grabbed a butcher knife when I left the kitchen. We had gone camping a five-hour drive away in the northern mountains, and he had, of course, shown up. But I had gotten him good as well- I had stabbed him directly in the heart.
+
+"This..." I said, indicating with my chin, "is the blood of the demon who has been haunting me." The doctor sighed.
+
+"And what are all those scars all over your body? You didn't have those when you came in, did you?" he asked, concerned. I shook my head.
+
+"I don't *remember* coming in this place," I said. "These scars are from the same man. Check my whole body- they're all over. He won't leave me in peace." The doctor looked away.
+
+"Well, you've been in *this place* for 27 days," he responded.
 
 “What… what is this place? Where is my family?” He shook his head sadly.
 
@@ -90,9 +110,9 @@ I awoke, strapped down to a gurney, screaming and thrashing. A doctor from the h
 
 “I would *never* hurt my family,” I whispered. “What kind of sick joke is this? It was the man with the black eyes and metal teeth who did it.” The doctor shook his head sadly, turning to leave the room.
 
-“You were in a psychotic fugue when you did it, and you have been ranting about this man ever since. The police and crime scene technicians did a full check of your home. There was no other man,” he said. “Until you realize that, you will never be able to start the road to recovery.” As he walked out of the room, he turned to look back at me one last time.
+“You were in a psychotic fugue when you did it, and you have been ranting about this man ever since. The police and crime scene technicians did a full check of your home. There was no other man,” he said. “Until you realize that, you will never be able to start the road to recovery.” As he walked out of the room, he turned to look back at me one last time. "I'll send someone to clean you up."
 
-His eyes were pure black, and his teeth metal. He smiled broadly at me, showing the shining points, and then left.
+His eyes were pure black, and his teeth metal. He smiled broadly at me, showing the shining points, and then left. I didn't think he was a doctor anymore.
 
 I’m writing you this letter from Whiting with some vague hope that the truth can be known. Whatever that thing was, man or demon, it will not leave me alone.
 
