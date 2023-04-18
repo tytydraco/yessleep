@@ -96,7 +96,7 @@ You see, the thing I grabbed in that canvas bag that day, which sat along with t
 
 I just barely managed to send myself back in time before Los Angeles was obliterated.
 
-It’s taken me a little while to make it all the way back here, to 2023. I didn’t dare jump more than a few decades back at a time after that first large jump. I was in untested waters, and I didn’t want to accidentally destabilize the wormhole and end up doing to myself what had been done to everyone else. And, I found, jumping back can physically drain you. It doesn’t cause any adverse effects such as cancer or tumor to grow, thank God. But it does tire you out, causing you to sleep for two or three days straight.
+It’s taken me a little while to make it all the way back here, to 2023. I didn’t dare jump more than a few decades back at a time after that first large jump. I was in untested waters, and I didn’t want to accidentally destabilize the wormhole and end up doing to myself what had been done to everyone else. And, I found, jumping back can physically drain you. It doesn’t cause any adverse effects such as cancer or tumors to grow, thank God. But it does tire you out, causing you to sleep for two or three days straight.
 
 And I should explain why I’m here in the first place. First, I have to say, I am so, so sorry. I am so sorry that I was so blind, so easily able to be used for my money to have such an evil plan enacted. I am so sorry that, whether or not I meant for it to happen, I was a part of what happened. I’m so sorry I was allowed, in my pursuit of a centuries long dream, to become a pawn.
 
