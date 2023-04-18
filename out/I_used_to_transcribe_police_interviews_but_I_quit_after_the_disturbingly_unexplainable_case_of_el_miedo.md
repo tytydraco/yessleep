@@ -72,9 +72,9 @@ I turned to flee, but froze at the sight of a bricked-up doorway. The barrier oo
 
 The peony-coated wallpaper started to tear, and that black sludge slithered through the wounds. I finally realised that it was tar — my uncle’s tobacco remnants.
 
-I gasped in horror at the photographs on my wall. Matthew’s face twisted to face me. I screamed at his enlarging eyes and grin. Exacerbated versions of the features that had haunted my youth.
+I gasped in horror at the photographs on my wall. Matthew’s face twisted to face me. I screamed at the sight of his enlarged eyes and grin. Exacerbated versions of the features that had haunted my youth.
 
-“You must be seen, but not heard,” A guttural voice croaked from the brickwork barrier behind me.
+“A child must be seen, but not heard,” A guttural voice croaked from the brickwork barrier behind me.
 
 My uncle always let me know that I was a burden. That’s why I still put everyone else first — whenever I thought of myself in that household, I suffered. I’m not altruistic. I’m just scared. I’ve *always* been scared.
 

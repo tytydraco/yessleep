@@ -140,4 +140,6 @@ Jonas shook his head. “No idea. Caddo Indians were some of the earliest tribes
 
 “Maybe that’s what this was, some old god they’d summoned up. Hell, maybe it’s the reason they’re not around anymore. Maybe they reached a little too far, grabbed hold of something beyond their control. Maybe not.
 
-“All I know is that we don’t go into the trees of  [Graves Stand."](https://www.youtube.com/channel/UC_JIsvWfQr41ant2OGjmJkg) 
+“All I know is that we don’t go into the trees of  [Graves Stand."](https://www.youtube.com/channel/UC_JIsvWfQr41ant2OGjmJkg)
+
+ [Story 2 - Harper's Hope](https://www.reddit.com/r/nosleep/comments/12q1dm6/stories_from_east_texas_the_mines_beneath_harpers/) 

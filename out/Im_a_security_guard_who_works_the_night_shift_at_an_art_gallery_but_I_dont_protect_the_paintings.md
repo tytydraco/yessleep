@@ -8,7 +8,7 @@ It was two years ago, but I can vividly recall every aspect of that interview. T
 
 “Yes,” I answered. “Are we talking about the art? I can’t say I’ll be able to give philosophical or religious insights.”
 
-“Don’t worry,” Miss Andrews replied, smiling. “I’m not trying to trip you up. In a way, my question *does*relate to the paintings, but perhaps not in the way you might expect.”
+“Don’t worry,” Miss Andrews replied, smiling. “I’m not trying to trip you up. In a way, my question *does* relate to the paintings, but perhaps not in the way you might expect.”
 
 “I just want you to know that I was a police officer for many years before working as a security guard at the embassy,” I said. “I have plenty of references.”
 
@@ -26,7 +26,7 @@ Hearing her speak, I thought Amy seemed just as unwell as her sister, but I woul
 
 “At night, the paintings must be closely guarded. Left unobserved for too long, they can… Well… Just make sure you keep watch.”
 
-*What is this? Night at the Museum?* I mused.
+*What is this? Night at the Museum?* I mused, trying not to chuckle.
 
 No. Far worse than fiction.
 
