@@ -189,3 +189,6 @@ Then she breathed hard against the glass of her window and quickly wrote a messa
 HELP. 
 
  [330](https://www.reddit.com/r/KyleHarrisonwrites/?utm_source=share&utm_medium=ios_app)
+
+
+[2](https://www.reddit.com/r/nosleep/comments/12qpd2k/an_artificial_intelligence_stole_my_family_from/?)
