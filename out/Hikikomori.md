@@ -74,15 +74,17 @@ When he looked towards the window, I was petrified by his face. His eye sockets 
 
 Tumbling backwards, I dropped my phone between the metal bars of the fire escape flooring. Too afraid to stand, I crawled towards my window. I was haunted by the silence of Kobayashi’s flat. It was as I hoisted myself up to my window ledge that I heard the sinister sound of sliding glass.
 
-The Hikikomori’s claw-like fingers slithered through his open window, and I screamed, scrambling over the ledge into my flat. I hurriedly shut my own window and backed through my empty, blackened apartment. I dialled 999 and begged for a police officer to save me from my murderous neighbour.
+The Hikikomori’s claw-like fingers slithered through his open window, and I screamed, scrambling over the ledge into my flat. I hurriedly shut my own window and backed through my empty, blackened apartment.
 
 The inhuman man crept to my window and surveyed me with eyeless sockets. I could only watch in horror as he pounded ferociously on the glass — cracks started to form a growing spiderweb.
 
 After frantically fumbling with the door handle behind my back, too afraid to turn from the abomination before me, I finally made it into the corridor. Locking the door behind me, I expected to hear smashing glass, but there was only dreadful silence.
 
-When the police finally broke into Flat 11, Mr Kobayashi was gone. Nobody has seen him. Tyson still doesn’t fully believe what I saw, even after the police investigation — I don’t think he *wants* to believe it.
+I pounded on Freya’s door, and she let me inside. One look at the ghastly expression on my face was sufficient for her to realise that I wasn’t playing around. She immediately dialled 999.
 
-I don’t know how much longer I can live here. The chalk is still on the door to Flat 11.
+When the police finally broke into Flat 11, Mr Kobayashi was gone. Tyson still doesn’t fully believe what I saw, even after the police investigation — I don’t think he *wants* to believe it.
+
+I can’t bear to live here much longer. The chalk is still on the door to Flat 11.
 
 *Hikikomori.*
 
