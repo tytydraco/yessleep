@@ -90,7 +90,7 @@ Magical.
 
 I never really understood her words until I saw the set-up; rows of pearly white benches canopied by cherry blossom trees strung with lights emitting a soft white glow. The benches themselves were tangled with wildflowers and greenery, vines and tendrils wrapped around the armrests. Entranced by the sight in front of me, I had a moment where I realized my best friend was going to walk down the aisle I was standing on and give herself to a man, and a family I despised. I should have felt happy for her, but all I could really feel was frustration and a twist in my gut which was definitely jealousy. Luckily, alcohol exists, and the rehearsal dinner wasn’t as bad I’d thought. I spent most of the night on the dance-floor with Astrid, until Adam’s mother, a witchy like woman with a patient smile, pulled her away to go over last minute preparations. So, I retreated to the snacks table, had to be the most obnoxious food possible. I didn’t think it was possible to roast a full pig, but the sight of it sitting with an apple lodged in its mouth made me nauseous.
 
-I knew I was being unsociable, but the other guests made no effort to speak to me, and if they did, it was to look me up and down with a wide smile which didn’t need words. “Why are you here?” Their expressions screamed. They knew who Astrid was, squealing and hugging her like they had been best friends their entire lives. But when  tried to join in or offer my name, I was greeted with dead eyed stares.
+I knew I was being unsociable, but the other guests made no effort to speak to me, and if they did, it was to look me up and down with a wide smile which didn’t need words. “Why are you here?” Their expressions screamed. They knew who Astrid was, squealing and hugging her like they had been best friends their entire lives. But when I tried to join in or offer my name, I was greeted with dead eyed stares.
 
 These girl’s weren’t even trying to be nice. They looked at me and scoffed. Just like Adam.
 
@@ -114,7 +114,7 @@ Which I was happy about. After a while of trailing around Astrid, telling her ho
 
 11:35. I glanced at my phone, noticing the mood around me had switched from girls dragging each other around for selfies, and guy’s hyping themselves up, to a more mellow murmur as the lights in the trees began to dim.
 
-I noticed the reflection of a half-crescent moon slowly bleeding from the clouds in a silver platter on the table. Adam and Astrid really must have timed it perfectly. Like the lights on the tress, the moon almost mimicked it, not too bright, but ethereal when you truly looked at it.
+I noticed the reflection of a half-crescent moon slowly bleeding from the clouds in a silver platter on the table. Adam and Astrid really must have timed it perfectly. Like the lights on the trees, the moon almost mimicked it, not too bright, but ethereal when you truly looked at it.
 
 I was entranced by the moon’s light very slowly beginning to envelope the sky, I barely noticed a figure loom behind me. “Are you ‘er mate?” 
 
@@ -404,7 +404,7 @@ Astrid sipped champagne, and her eyes reminded me of Adam’s. “Your lives,”
 
 “Every time you die, our marriage becomes that much more magical—- and it’s all thanks to you,” her smile became monstrous as a feral scream rang from my throat, and behind me, sudden war-cries, bare feet slapping through the dirt heading towards me like a pack of wild animals. A sharpened spear flew past me, hitting the tree behind me with a thunk. I twisted around to see the spear wielder.
 
-Spencer, still in his wedding getup, a flower crown sitting on his head, along with what was left of a human— no, animal skull. I started to run, stumbling over myself, while Astrid’s voice rang in my head, a melodic murmur catapulting me further into trees, war cries coming closer. 
+Spencer, still in his wedding getup, a flower crown sitting on his head, along with what was left of a human— no, animal skull. When his lips split into a manic grin, I started to run, stumbling over myself, while Astrid’s voice rang in my head, a melodic murmur catapulting me further into trees, war cries coming closer. 
 
 “You’re a great friend.”
 
