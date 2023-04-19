@@ -30,4 +30,4 @@ I expected this growing, darkening, dirty outline of my body to disgust or shame
 
 A bright flash went off in the distance, illuminating everything in its vicinity. My eyes fluttered open as the windows exploded, showering me in glass. Screams seemed to be coming from all directions, but quickly faded into nothing. The world outside my window faded to black, a deafening silence filling the space around me. 
 
-My heart rate slowed, my breaths becoming shallow and father apart. I felt no fear, no panic, no remorse - only comfort. I had found a seat for the end of the world, and it actually felt pretty damn good.
+My heart rate slowed, my breaths becoming shallow and farther apart. I felt no fear, no panic, no remorse - only comfort. I had found a seat for the end of the world, and it actually felt pretty damn good.

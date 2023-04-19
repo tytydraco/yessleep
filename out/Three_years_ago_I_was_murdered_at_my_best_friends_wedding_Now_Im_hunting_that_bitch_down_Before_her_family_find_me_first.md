@@ -50,13 +50,15 @@ He didn’t sound like he was intentionally being a dick. I figured he was just 
 
 Now, I was drunk. Several strawberry daiquiris down, I had no interest in buying a cocktail which sounded like a euphemism. I would usually stay quiet, but at that point I was pissed. So, I made a point of sliding the money back to him, getting up, and pulling my best friend onto the dance floor. Adam joined after acting like a spoiled child and realizing neither of us were going to buy into his shit—and we mostly forgot about it. But then that kind of shit kept happening—and happening—until he finally revealed his true colors and freaked out a restaurant had seated us near “other people.” 
 
-Adam said it was because of privacy, and yet had no problem when a B-list celebrity came to sit down. Astrid did yell at him and make a deal that he didn’t like that, and he pulled a face like a second grader, promising not to. And then went onto throw money on a homeless person and record it for his Instagram. Again, he had to justify it by saying he was giving to charity, which Astrid bought—to a degree. I stopped agreeing to hang out with them because every time we did, he would either go on an out of touch rant or be passive aggressive to others.
+Adam said it was because of privacy, and yet had no problem when a B-list celebrity came to sit down. Astrid did yell at him and make a deal that he wasn't like that, and he pulled a face like a second grader, promising not to it again. 
 
-All with this handsome smile and quirk of an eyebrow which was not cute in the slightest. I don’t know why he thought he could win her over with that. At this point I was so close to telling Astrid that he wasn’t worth it, and was actually an entitled, rich asshole, but I think I had already lost her at that point.
+And then went onto throw money on a homeless person and record it for his Instagram. 
+
+Again, he tried to justify it by saying he was giving to charity, which Astrid bought—to a degree. I stopped agreeing to hang out with them because every time we did, he would either go on an out of touch rant or be passive aggressive to others. All with this handsome smile and quirk of an eyebrow which was not cute in the slightest. I don’t know why he thought he could win her over with that. At this point I was so close to telling Astrid that he wasn’t worth it, and was actually an entitled, rich asshole, but I think I had already lost her at that point.
 
 There was no saving her. She was starstruck by his way of life, gushing to me about their spontaneous trip’s around the world, as well as Adam’s family’s multi-million dollar mansion (which apparently had three swimming pools). I’m sure the glitz and glam was part of what was blinding her, but the guy himself was exactly what she wanted. Adam was “funny” and “cute.”
 
-When I tried to tell her he was bad news, those interventions turned into arguments, and unbelievably she would call Adam to come and “act as the peacemaker.” So, in short, I didn’t like him. I didn’t like that he was fake and had already brainwashed my best friend with the promise of a life of luxury. It was on April Fools Day 2022, when I’d gotten the text I didn’t think I wouldn’t be getting for at least ten years. We were twenty years old, and after the pandemic, the two of us had made a promise to each other that we would go travelling during our gap-year. I thought it was an April Fools, and I had repeatedly asked her if she was playing some kind of sick joke. But no. 
+When I tried to tell her he was bad news, those interventions turned into arguments, and unbelievably she would call Adam to come and “act as the peacemaker.” So, in short, I didn’t like him. I didn’t like that he was fake and had already brainwashed my best friend with the promise of a life of luxury. It was on April Fools Day 2020, when I’d gotten the text I didn’t think I wouldn’t be getting for at least ten years. We were twenty years old, and after the pandemic, the two of us had made a promise to each other that we would go travelling during our gap-year. I thought it was an April Fools, and I had repeatedly asked her if she was playing some kind of sick joke. But no. 
 
 Sent, along with a message which just said, “We’re getting married!” was a photo which looked like it had just been taken off of an influencer’s Instagram. Astrid, standing under a perfect sunset in some unknown location, maybe Bali, engagement ring on her finger, her arms wrapped around a grinning Adam. 
 
@@ -268,7 +270,7 @@ When I was halfway up, I twisted around to see if she was following, when someth
 
 The shock of it was enough to send me backwards, tumbling, before my head hit concrete with a meaty smack, stars dancing in my eyes. No, not stars. Astrid. 
 
-Through fathered vision, I saw the two of them, their eloping hands, their kiss under a suddenly startlingly bright moon, as I slowly bled out. When they were pulling away, a darkness I had never seen before swirled in my best friend’s eyes, when she dropped down next to me.
+Through feathered vision, I saw the two of them, their eloping hands, their kiss under a suddenly startlingly bright moon, as I slowly bled out. When they were pulling away, a darkness I had never seen before swirled in my best friend’s eyes, when she dropped down next to me.
 
 My blood was ruining her dress when she lifted me onto her lap, her warm hands sifting through my hair.
 
