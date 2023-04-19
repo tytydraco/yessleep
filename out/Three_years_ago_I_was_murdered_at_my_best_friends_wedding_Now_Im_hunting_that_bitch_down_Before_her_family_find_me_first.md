@@ -120,7 +120,9 @@ I was entranced by the moon’s light very slowly beginning to envelope the sky,
 
 It wasn’t just the voice surprised me. It was the accent. I had seen a lot of things at that party which could only be seen to be believed during my time stumbling around trying to find a bathroom (a guy snorting coke off of a girl’s stomach in the bathroom—and in one of many, many bedrooms, an orgy with a diamond encrusted dildo) but a British guy wasn’t it. 
 
-The guy looked as uncomfortable as I felt, dressed in matching colors. Instead of a dress, a long sleeved shirt a shade lighter than what I was wearing, tight black pants, and a flower crown awkwardly perched on dark curls I knew had been tamed by fingers which weren’t his. He reminded. He looked around my age, maybe a little older. From the way he was gingerly holding his champagne glass and poking at shrimp tartar and violet colored macarons, I could tell this guy wasn’t part of Adam’s inner circle, or his family. I wasn’t sure what to look at, the odd way he was trying to salute to me with his drink, or the blonde girl hiding behind him trying to hide her smile behind her own glass. I didn’t know what to say at first, before the guy gestured to behind me where Astrid and Adam’s mother were murmuring to each other. The ceremony was starting. 
+The guy looked as uncomfortable as I felt, dressed in matching colors. Instead of a dress, a long sleeved shirt a shade lighter than what I was wearing, tight black pants, and a flower crown awkwardly perched on dark curls I knew had been tamed by fingers which weren’t his.
+
+He looked around my age, maybe a little older. From the way he was gingerly holding his champagne glass and poking at shrimp tartar and violet colored macarons, I could tell this guy wasn’t part of Adam’s inner circle, or his family. I wasn’t sure what to look at, the odd way he was trying to salute to me with his drink, or the blonde girl hiding behind him trying to hide her smile behind her own glass. I didn’t know what to say at first, before the guy gestured to behind me where Astrid and Adam’s mother were murmuring to each other. The ceremony was starting. 
 
 Without thinking, I downed my glass of champagne which was a sudden explosion of fizz in my mouth. “Astrid?” I spoke through a sour-lemon face. Until then, I had been sipping in intervals because it tasted like rotten orange. “Yeah, I’m her friend.” I briefly forgot my own name for a moment. “I’m Penny.”
 
@@ -210,7 +212,7 @@ I remember wondering why we were the sudden main attraction when something... pr
 
 I guess I had been too busy staring at Astrid and Adam, and not the people around us wearing black, their faces covered in white masks. I didn't feel pain at first-- or I did, and it wasn't fully hitting me yet. It had hit my body, however, when I felt myself slump. I didn't fall, not yet, but was able to slam my hand over intense red coming through my dress. 
 
-I think I screamed, or maybe I just made mouth-noises. When I looked up, whoever had stabbed me was gone. I started to think I'd imagined it, when my eyes found Spencer, whose gaze was glued to me, frenzied eyes on the rapidly growing blood stain just above my abdomen. Time seemed to slow down after that point. Two things elicited my fight or flight; a sudden shriek from the crowd which weren't Adam's family, a girl dropping dead, followed by a guy-- and then Spencer's eyes rolling into the back of his head, beads of rid slipping from his mouth which tried to speak, tried to say, "What the f---" before something was slicing through the back of his head. When his body hit the ground, I stumbled back, ready to run—ready to grab Astrid and run for my fucking life. 
+I think I screamed, or maybe I just made mouth-noises. When I looked up, whoever had stabbed me was gone. I started to think I'd imagined it, when my eyes found Spencer, whose gaze was glued to me, frenzied eyes on the rapidly growing blood stain just above my abdomen. Time seemed to slow down after that point. Two things elicited my fight or flight; a sudden shriek from the crowd which weren't Adam's family, a girl dropping dead, followed by a guy-- and then Spencer's eyes rolling into the back of his head, beads of red slipping from his mouth which tried to speak, tried to say, "What the f---" before something was slicing through the back of his skull. When his body hit the ground, I stumbled back, ready to run—ready to grab Astrid and run for my fucking life. 
 
 Then I saw the blood spatters, Spencer’s blood, all over a smiling Evie’s face. I thought her mind was slow to come to terms with what was going on, but her smile seemed to grow.  
 
@@ -220,9 +222,9 @@ They were just dropping like flies. Bodies.
 
 So many of them. 
 
-So many girls I’d mentally rolled my eyes at, and guy’s with square jaws I didn’t like from first glance. Evie stopped smiling when a masked figure stepped in front of her. I expected her to run, like I was supposed to—but I couldn’t stop looking at Spencer’s body lying in a rapidly growing pool of crimson mixed with whatever was leaking out of his skull. Evie surprised me with a sudden shriek, her expression crumpling into confusion.
+So many girls I’d mentally rolled my eyes at, and guy’s with square jaws I didn’t like from first glance. Evie stopped smiling when a masked figure stepped in front of her. I expected her to run, like I was supposed to—but I couldn’t stop looking at Spencer’s body lying in a rapidly growing pool of crimson mixed with whatever was leaking out of his ears. Evie surprised me with a sudden shriek, her expression crumpling into confusion.
 
-“Wait, no.” She stumbled back with a laugh. “I’m on the list.” She kicked at Spencer’s body. “As you can see, my family donated a hell of a lot of money for this.” She turned her nose at him, her lips curving in disgust. “Unlike him, I deserve to be a spectator.”
+“Wait, no.” She stumbled back with a laugh. “I’m on the list.” She kicked at Spencer’s body. “As you can see, my family donated a hell of a lot of money for this.” She turned her nose up at him, her lips curving in disgust. “Unlike him, I deserve to be a spectator.”
 
 Adam surprised me with a laugh. It’s amazing how you can forget about your own life when the world is coming apart around you.
 
@@ -286,11 +288,9 @@ I was trying not to choke on my own blood, but her words stayed with me, cementi
 
 -
 
-“Penn?”
+“Penn? Can you get up?"
 
-Astrid’s voice was in my mind, and I wasn’t sure how. I don’t think I could. With my face pressed against wet grass, I instantly knew my injuries. Sprained wrist, a pretty stab wound on my leg.
-
-Those words meant nothing to me. 
+Astrid’s voice was in my mind, and I wasn’t sure how. I don’t think I could. With my face pressed against wet grass, I instantly knew my injuries. Sprained wrist, a pretty bad stab wound on my leg. Those words meant nothing to me. 
 
 What I did wonder was why I was lying in grass. Where was my bed? My body felt like it was twisted like a pretzel. “Penn!” The voice became a screech. “Get up! You have half a minute until respawn. Are you going to spend it waiting to die?! Come on, on your feet!”
 
@@ -402,9 +402,11 @@ But her smile only widened when Adam joined her, pecking her on the cheek. “Th
 
 Astrid sipped champagne, and her eyes reminded me of Adam’s. “Your lives,” she said.
 
-“Every time you die, our marriage become that much more magical—- and it’s all thanks to you,” her smile became monstrous as a feral scream rang from my throat, and behind me, sudden war-cries, bare feet slapping through the dirt heading towards me like a pack of wild animals. A sharpened spear flew past me, hitting the tree behind me with a thunk. I twisted around to see the spear wielder.
+“Every time you die, our marriage becomes that much more magical—- and it’s all thanks to you,” her smile became monstrous as a feral scream rang from my throat, and behind me, sudden war-cries, bare feet slapping through the dirt heading towards me like a pack of wild animals. A sharpened spear flew past me, hitting the tree behind me with a thunk. I twisted around to see the spear wielder.
 
-Spencer, still in his wedding getup, a flower crown sitting on his head, along with what was left of a human— no, animal skull. I started to run, stumbling over myself, while Astrid’s voice rang in my head, a melodic murmur singing me to sleep as I ran. “You’re a great friend.”
+Spencer, still in his wedding getup, a flower crown sitting on his head, along with what was left of a human— no, animal skull. I started to run, stumbling over myself, while Astrid’s voice rang in my head, a melodic murmur catapulting me further into trees, war cries coming closer. 
+
+“You’re a great friend.”
 
 …
 

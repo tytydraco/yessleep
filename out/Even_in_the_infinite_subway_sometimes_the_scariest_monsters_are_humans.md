@@ -173,3 +173,7 @@ Wait, I heard him enter. I'm holding my breath, typing this last part, hoping I 
 Please don't notice...
 
 He hasn't, not even on the way back. Thank God, I heard the door to next cart open, leaving me again in the silence of the cart. Hopefully, I can find a way to save the rest.
+
+\-------------------------------------
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/12s7l6n/i_dont_want_to_be_alone_in_the_infinite_subway/)
