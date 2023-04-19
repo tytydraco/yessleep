@@ -126,7 +126,7 @@ I grimaced and said, “That’s fuckin’ *horrible*. I mean, yeah, I guess it 
 
 Len shifted in his seat and looked down at this lap. He said, “Back then, everyone was always hopped up on coke. It was everywhere. All the wiseguys were doing it. Not the older ones, the Mustache Petes, but a lot of us younger guys were flying almost all the time. It was the lifestyle, you know? Us guys would get too fucked up, and sometimes things would get out of hand.
 
-“Anyway, I was out at a club with some of the guys one night, all of us coked up to eyeballs. Mario Gibaldi gets into it with some asshole at the bar. I recognized the guy, and he wasn’t anything to worry about, if you know what mean. Just another greasy mook with a big mouth. I wandered over and told him to make himself scarce. He turned away like he was about to leave, and then he took a swing at me. Well, that wasn’t gonna happen. Me and Mario cleaned his clock. Just went off and stomped the nuts and guts out of this prick. There was blood all over the bar, the floor, it was everywhere.
+“Anyway, I was out at a club with some of the guys one night, all of us coked up to the eyeballs. Mario Gibaldi gets into it with some asshole at the bar. I recognized the guy, and he wasn’t anything to worry about, if you know what I mean. Just another greasy mook with a big mouth. I wandered over and told him to make himself scarce. He turned away like he was about to leave, and then he took a swing at me. Well, that wasn’t gonna happen. Me and Mario cleaned his clock. Just went off and stomped the nuts and guts out of this prick. There was blood all over the bar, the floor, it was everywhere.
 
 “So I go to yank him up by his hair and drag him out, right? And his friggin’ scalp almost comes off. I guess he musta had a pretty good split across his hairline, because it peeled back all the way to the crown of his skull.”
 
@@ -258,4 +258,4 @@ It was best not to dwell on that. I was learning many lessons during my time at 
 
 Softly, I murmured, “I’m coming to see ya, Kaz. I sure hope you have some ideas over there.”
 
-At that moment, the phone began to ring. I answered it and accidentally opened another can of worms. Such is life when you’re a Caretaker’s Assistant...
+At that moment, the phone began to ring. I answered it and accidentally opened another Pandora's Box of sheer insanity. Such is life when you’re a Caretaker’s Assistant...
