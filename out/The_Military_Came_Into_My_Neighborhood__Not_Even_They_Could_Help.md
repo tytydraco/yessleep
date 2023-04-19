@@ -6,17 +6,17 @@
 
 Another  police car whooshed past my house for the forth time. I could hear  distant screaming and gunshots, but I reckon that as another shooting.  No big deal, it was something fairly common in the neighborhood.
 
-Just  as I was about to curse at the monitor for the eight death streak in  Call of Duty, my phone on the desk buzzed, followed by an unfamiliar  ringtone which I immediately recognized as an amber alert. A  notification popped up on my phone as soon as I turned it on.
+Just  as I was about to curse at the monitor for the eight death streak in  Call of Duty, my phone on the desk buzzed, followed by an unfamiliar  ringtone which I immediately recognized as an emergency alert. A  notification popped up on my phone as soon as I turned it on.
 
 &#x200B;
 
->*“AMBER  ALERT: This is not a drill. All local residents of XXX town are  instructed to stay indoors immediately. Remain calm and shut all doors  and windows, and do not let anybody in. Your area is under attack by  unidentified threat. The military is expected to arrive shortly and will  neutralize anybody in sight. DO NOT ATTEMPT TO EXIT. It is recommended  to stay indoors until further instructions are given by the  authorities.”*
+>*“EMERGENCY  ALERT: This is not a drill. All local residents of XXX town are  instructed to stay indoors immediately. Remain calm and shut all doors  and windows, and do not let anybody in. Your area is under attack by  unidentified threat. The military is expected to arrive shortly and will  neutralize anybody in sight. DO NOT ATTEMPT TO EXIT. It is recommended  to stay indoors until further instructions are given by the  authorities.”*
 
 &#x200B;
 
-A  shock-wave of dread hit me. Initially, I had no idea what to do, but as  soon as I regained sanity, I rushed to the living room to shut the big  door and windows as instructed. I pulled out my phone and dialed my  husband who was at work, only to enter voicemail. Soon, I dialed my  parents’ number who lived far away from where I was, but the signal was  immediately cut off.
+A shock-wave of dread hit me. Initially, I had no idea what to do, but as  soon as I regained sanity, I rushed to the living room to shut the big  door and windows as instructed. I pulled out my phone and dialed my  husband who was at work, only to enter voicemail. Soon, I dialed my  parents’ number who lived far away from where I was, but the signal was  immediately cut off.
 
-From my  peripheral sight I noticed something odd from outside the window.  Instead of fences and beautiful neighborhood houses like one would  expect, they were shaded with layers of thick fog. In fact, it was so  thick I could only see as far as twenty meters ahead. The only things  visible were car headlights and the illuminated windows from houses  across.
+From my peripheral sight I noticed something odd from outside the window.  Instead of fences and beautiful neighborhood houses like one would expect, they were shaded with layers of thick fog. In fact, it was so  thick I could only see as far as twenty yards ahead. The only things  visible were car headlights and the illuminated windows from houses  across.
 
 Due to the thick fog  shading the entire neighborhood from the sun, my house got dark fast. I  hesitantly went to turn on the light switch when the ground below  unexpectedly shook. It became louder, followed by rumbling noises from  the distance. My heart was pounding harder as I took small steps towards  the other window to have a look.
 
