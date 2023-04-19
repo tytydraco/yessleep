@@ -42,7 +42,7 @@ Unknown Male: \[*In Background*\] Hey there, honey! You’ve been a bad little b
 
 ***A search of the nearby area produced a secondary crime scene located between Pepper’s Old Books and Kesterson’s Antiques on Short Street. Large amounts of blood were discovered in the location where Ella Ramirez reported seeing the subject in the rabbit costume dragging a body. No other evidence was recovered at the scene.***
 
-***A BOA notice was distributed to all local agencies for Ella Ramirez and the unidentified victim from the alleyway with no sightings reported.***
+***A BOLO notice was distributed to all local agencies for Ella Ramirez and the unidentified victim from the alleyway with no sightings reported.***
 
 ***6:23 AM: Randy Teague of Pasadena Creek calls PCPD to report a strange object discovered on his front steps.***
 
