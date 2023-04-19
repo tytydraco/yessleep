@@ -136,3 +136,5 @@ The lifelike model of me looked at the damage and then toward me. I couldn’t h
 Because I was sure even though the machine could show no emotion, it was already planning to kill me. 
 
 [330](https://www.reddit.com/r/KyleHarrisonwrites/?utm_source=share&utm_medium=ios_app)
+
+[3](https://www.reddit.com/r/nosleep/comments/12s6fax/an_artificial_intelligence_stole_my_family_from/?)
