@@ -302,7 +302,7 @@ I looked down at my empty hands. For some reason I began to pat down the pockets
 
 "No."
 
-Tim was pointing out the window. I leaned over in time to see a single frayed sheet of paper whisked off the ground by the wind and into sky. The list, our lifeline and last hope, had slipped out the door in the confusion and just liked that had disappeared into the air. 
+Tim was pointing out the window. I leaned over in time to see a single frayed sheet of paper whisked off the ground by the wind and into sky. The list, our lifeline and last hope, had slipped out the door in the confusion and just like that, had disappeared into the air. 
 
 It must have been then when I knew not all of us would make it off that mountain alive. 
 
