@@ -80,7 +80,7 @@ Ovme and I agreed and entered the same dream. After I summoned the Dream Man, Ov
 
 &#x200B;
 
- I looked at him nervously and told him I wanted the challenge of asking questions. His expression changed instantly. "No one had ever tried this challenge before." he said and walked away from me. With each correct answer, the Dream Man was getting weaker and collapsing. As he got the questions right, he collapsed to the ground and could not get up. It was obvious that he was having difficulty breathing. After I got 9 questions right, I looked at him. He was whispering something, but his whispering was not understood. There was only one question left. Ovme asked a random question because he didn't know much about me. This question was about anime and I didn't watch anime. At that moment, a chill ran down my spine. 
+ I looked at him nervously and told him I wanted the challenge of asking questions. His expression changed instantly. "No one had ever tried this challenge before." he said and walked away from me. With each correct answer, the Dream Man was getting weaker and collapsing. As I got the questions right, he collapsed to the ground and could not get up. It was obvious that he was having difficulty breathing. After I got 9 questions right, I looked at him. He was whispering something, but his whispering was not understood. There was only one question left. Ovme asked a random question because he didn't know much about me. This question was about anime and I didn't watch anime. At that moment, a chill ran down my spine. 
 
 &#x200B;
 

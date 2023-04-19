@@ -71,7 +71,7 @@ It’s inside me now. The laughter is sounding inside my head.
 
 Already my limbs are stretching, my face is become paper-white and I’m smiling a lot more.
 
-The men are still laughing. They’re laughing to a joke mo one else gets
+The men are still laughing. They’re laughing to a joke no one else gets
 
 But I get it now. It’s hilarious.
 
