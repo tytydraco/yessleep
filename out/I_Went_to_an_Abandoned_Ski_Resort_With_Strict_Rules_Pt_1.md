@@ -274,13 +274,13 @@ Behind me I could hear my brother and Russ pleading with me to close the door.
 
 Crouching down, I lifted with my legs and threw my whole body behind into the door, screaming with exertion.
 
-The skiers were close enough to touch, when the door finally gave slamming shut. I collapsed to the ground in a ball, waiting for the skiers the burst through the flimsy door. They were too close and going too fast to have stopped in time, but the only noise outside was the wind whipping against the windows.
+The skiers were close enough to touch, when the door finally gave, slamming shut. I collapsed to the ground in a ball, waiting for the skiers to burst through the flimsy door. They were too close and going too fast to have stopped in time, but the only noise outside was the wind whipping against the windows.
 
 I ran to check, but I knew what I was going to see when I looked. Nothing but the snow.
 
 "They killed Jerry man, my brother man. What the fuck, call the police, you," blubbering, the man pointed at me when I turned back around. His eyes were wide and wild, darting in every direction.
 
-Tim and Russ looked shock. Their mouths hung open and Tim looked at me the same way he always did when we were kids and he desperately needed his big brother's help.
+Tim and Russ looked shocked. Their mouths hung open and Tim looked at me the same way he always did when we were kids and he desperately needed his big brother's help.
 
 "There's no service," I held my hands up towards the hysterical man. "What's your name."
 
@@ -304,6 +304,6 @@ I looked down at my empty hands. For some reason I began to pat down the pockets
 
 Tim was pointing out the window. I leaned over in time to see a single frayed sheet of paper whisked off the ground by the wind and into sky. The list, our lifeline and last hope, had slipped out the door in the confusion and just like that, had disappeared into the air. 
 
-It must have been then when I knew not all of us would make it off that mountain alive. 
+It must have been then that I knew not all of us would make it off that mountain alive. 
 
 The story does not end here but I must take a break. Writing of these events has brought back terrible memories.
