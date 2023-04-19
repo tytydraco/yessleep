@@ -135,10 +135,10 @@ I woke up staring at the far side of the room. There were no clocks, so I had no
 I took out my phone and pressed the power button. The Samsung logo popped up! After the phone loaded up, the date was still going wild. July 5, June 2, May 3... I didn't give it much thought, as I had to type all of this up and post it as close to my time as possible. I opened the calendar app. September 2067. I typed the previous night up as quickly as possible, then I checked the calendar again. March 2025. I needed to hurry. My heart was racing as the need to post this, especially in spite of the creepy time traveling TikTok man, weighed down on my conscious.
 
 
-As I type this in the post body on r/nosleep, a man with black hair who looks to be in his 30s has popped into existence. His face went pale as he looked towards the man, then asked him something that sent chills down my spine...
+As I type this in the post body on r/nosleep, a man with black hair who looks to be in his 30s has popped into existence. His face went pale as he looked towards the man, who asked him something that sent chills down my spine...
 
 
 "What do you mean we're not stopping? W-who are you?"
 
 
-Of course we're not. I guess I'm dying. Screw this. I feel frozen, my thoughts are racing. I don't want to die, but for some reason, that's what's going to happen if this man doesn't let me eat. I'm going to post in my time. I just checked the calendar again. March 2024. I have 11 seconds left until I hit submit when it happens to be April 2023. If you're reading this on 4 19 2023, I got lucky and got to post in my actual present.
+Of course we're not. Athough, I didn't hear the man talk, so where did the new guy get those words from? Telepathy? At this point, I wouldn't be suprised if that were the case. I guess I'm dying. Screw this. I feel frozen, my thoughts are racing. I don't want to die, but for some reason, that's what's going to happen if this man doesn't let me eat. I'm going to post in my time. I just checked the calendar again. March 2024. I have 11 seconds left until I hit submit when it happens to be April 2023. If you're reading this on 4 19 2023, I got lucky and got to post in my actual present.

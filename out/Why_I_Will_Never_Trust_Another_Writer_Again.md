@@ -1,0 +1,17 @@
+I never expected to become the subject of a horror story – I was always the one behind the pen, crafting tales of love and mystery that kept readers glued to the page. But now, as I sit alone in my dimly lit apartment, I realize that my own life has become the stuff of nightmares.
+
+It all started when I moved to this new town, looking for inspiration for my latest novel. The locals were friendly enough, but there was always something off about them. They would stare at me with unnerving intensity, and I often caught snippets of whispered conversations that stopped abruptly when I entered a room.
+
+Then I met him. He was tall and impossibly handsome, with piercing blue eyes that seemed to see right through me. We struck up a conversation at the local coffee shop, and soon, we were spending all our time together. His name was Caleb, and he claimed to be a writer as well. I never saw any evidence of his work, but he always had a way with words that left me breathless.
+
+As our relationship grew more intense, I began to notice disturbing things. Whenever I slept over at his place, I would wake up to find strange bruises on my body, like someone had been holding me down. Caleb always brushed it off, saying that I must have bumped into something in my sleep. But the bruises continued to appear night after night, and I began to suspect that Caleb was responsible.
+
+One night, I decided to confront him. I demanded to know why he was hurting me, but he just laughed and said that it was all part of the game. He said that he loved me more than anything and that he wanted to keep me by his side forever. I tried to leave, but he was too strong, and soon I found myself trapped in his apartment, a prisoner to his twisted desires.
+
+Days turned into weeks, and I lost track of time. Caleb would bring me food and water, but other than that, he kept me locked up in a tiny room with no windows. I tried to break free, but the door was always locked, and the walls seemed to shift and twist whenever I tried to escape. I began to hear strange whispers and moans coming from the darkness, and I realized that Caleb was not alone in this place.
+
+One night, I woke up to find Caleb staring at me with a look of pure malice. He told me that he was finished with our little game and that it was time for me to die. I fought with all my strength, but it was no use – Caleb was too strong, and he seemed to be fueled by some dark, supernatural force. As his hands closed around my neck, I knew that my life was over.
+
+But then, something miraculous happened. The walls of the room began to crack and crumble, and beams of blinding light shone through the cracks. I heard a voice calling my name, and suddenly, I was lifted out of Caleb's grasp and carried up into the sky. As I looked down, I saw that Caleb was being dragged down into a pit of writhing tentacles and screaming faces, never to be seen again.
+
+Now, I am left to wonder what kind of horror story I have become. Was Caleb really just a madman, or was he a creature of the night, devoted to some eldritch god? And what of the voices and the light that saved me – were they angels or demons, come to claim my soul? I may never know the answers, but one thing is certain – I will never trust another writer again.
