@@ -46,7 +46,7 @@ There was dead  silence. So silent I could feel my heartbeat within my ribs. It 
 
 It  felt like an eternity for the “Object” to enter the room. During the  entire process of its appearance reveal I prayed even more that this was  just a bad dream. However reality was reality and I couldn’t escape  from it.
 
-Its appearance was  unearthly. It was humanoid, stood up to eight feet tall, and had  unbelievably lengthy limbs. The five pairs of fingers were razor sharp  long. Its skin was fleshy red and the face… oh god. The bulging eyes,  uncanny smile, I nearly passed out.
+As I gazed upon the creature, my mind struggled to comprehend its unearthly appearance. Towering at least eight feet tall, it seemed almost otherworldly. Its long, spindly limbs seemed almost too thin to support its weight. Each of its five fingers ended in razor-sharp claws that glinted menacingly in the dim light. Its skin was a sickening shade of red, glistening with an unknown liquid, and its face... dear God, its face. The bulging eyes seemed to bore into my very soul, and the twisted smile on its face made my blood run cold.
 
 That  entity took several steps and scanned my room, like an apex predator  searching for its prey. Every footstep, every growl, I backed an inch,  hoping it wouldn’t notice me. When the abominated entity approached  closer, still unaware of my presence, the window shattered into millions  of pieces with bullets riddling through and hitting the creature.  Before I could process anything, four military men jumped into my room  and opened fire at the demonic creature.
 
