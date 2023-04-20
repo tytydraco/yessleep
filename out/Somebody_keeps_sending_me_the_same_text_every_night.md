@@ -282,4 +282,4 @@ As if she was reading my mind, she smiled once more and got ready to leave but t
 
 She turned around one more time.
 
-"May, I never lie and[I do not like questions.](https://www.reddit.com/r/Likeeyedid/)"
+"May, I never lie and [I do not like questions.](https://www.reddit.com/r/Likeeyedid/)"
