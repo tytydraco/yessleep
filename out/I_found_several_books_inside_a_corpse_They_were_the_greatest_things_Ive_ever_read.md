@@ -72,7 +72,7 @@ I nodded and provided her the others. She read both with rapt attention, like a 
 
 “Do you need some water or something?” I asked. I was trying to be chivalrous. I was also starting to remember how nice it had felt to kiss her by the lake after homecoming. How soft her lips had felt. How nice it felt now to be bringing her something that made her salivate.
 
-“Can I keep these?” I asked, but I shook my head.
+“Can I keep these?” she asked, but I shook my head.
 
 “Sorry,” I said. “I feel like I should hold onto them.”
 
