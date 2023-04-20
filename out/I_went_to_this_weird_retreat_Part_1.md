@@ -935,3 +935,5 @@ Does anyone know how long I’ve got before every bone in my body breaks?
 &#x200B;
 
 Please help.
+
+[PART 2](https://www.reddit.com/r/nosleep/comments/12s5jr9/i_went_to_this_weird_retreat_part_2/)

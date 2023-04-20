@@ -1,5 +1,7 @@
 I hated Astrid’s fiancée.
 
+I'm going to tell you how I escaped my ex best friend's game. 
+
 I know you should always respect your best friend’s choices but Adam made it difficult. His family were rich, and I mean RICH. I’ m talking weekend trips to the Hampton’s and casually talking about high-tier influencers like they were personal besties rich. Initially, I actually liked him. When Astrid first introduced the two of us, he seemed like a pretty chill guy.
 
 I think it was the way he spoke which enchanted me. Adam had a way with words, almost like what he was saying were song lyrics.
@@ -128,7 +130,7 @@ I noticed the reflection of a half-crescent moon slowly bleeding from the clouds
 
 I was entranced by the moon’s light very slowly beginning to envelope the sky, I barely noticed a figure loom behind me. “Are you ‘er mate?” 
 
-It wasn’t just the voice surprised me. It was the accent. I had seen a lot of things at that party which could only be seen to be believed during my time stumbling around trying to find a bathroom (a guy snorting coke off of a girl’s stomach in the bathroom—and in one of many, many bedrooms, an orgy with a diamond encrusted dildo) but a British guy wasn’t it. 
+It wasn’t just the voice that surprised me. It was the accent. I had seen a lot of things at that party which could only be seen to be believed during my time stumbling around trying to find a bathroom (a guy snorting coke off of a girl’s stomach in the bathroom—and in one of many, many bedrooms, an orgy with a diamond encrusted dildo) but a British guy wasn’t it. 
 
 The guy looked as uncomfortable as I felt, dressed in matching colors. Instead of a dress, a long sleeved shirt a shade lighter than what I was wearing, tight black pants, and a flower crown awkwardly perched on dark curls I knew had been tamed by fingers which weren’t his.
 
@@ -264,7 +266,7 @@ Astrid wrapped her arms around me, and she smelled like flowers. “We’re gett
 
  “Right.” I groaned, biting against a cry. I had to staunch my wound as best as I could.
 
-Her eyes went to the gate ahead of us. That's a mechanical lock. “So, we… we climb over, right?”
+Her eyes went to the gate ahead of us. "That's a mechanical lock. So, we… we climb over, right?”
 
 Screaming from behind me.
 
@@ -422,7 +424,9 @@ Spencer, still in his wedding getup, a flower crown sitting on his head, along w
 
 Astrid if you’re reading this, I know you’re coming to get me--- but not before I get you.
 
-I don’t care if you were under a spell. I don’t care that your family are trying to hunt us down once again.
+I don’t care if you were under a spell. I don’t care that your family are trying to hunt us down once again. We escaped your game! You gave me this ability, after all. To come back. 
+
+Again, and again. 
 
 I will get you, and I’ll kill you again and again, until you’ve given me every single life back that you took away.
 
