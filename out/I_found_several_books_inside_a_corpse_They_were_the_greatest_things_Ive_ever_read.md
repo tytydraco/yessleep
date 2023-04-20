@@ -14,15 +14,19 @@ For some reason though, I hesitated to mention the swallowed pages in my officia
 
 The sentences were captivating, but even more striking was the title page. The work was called *Don Servante* and attributed to Miguel de Certvantes with a publication date of 1611, translated by Thomas Goodwell in 1665.
 
-As I continued to flip through the pages, it became immediately clear that it was a work of fiction–and one of the best things I’d ever read. Leading through to the end, I saw that the book ended mid-sentence: it was only a partial manuscript.
+As I continued to flip through the pages, it became immediately clear that it was a work of fiction–and one of the best things I’d ever read. Leafing through to the end, I saw that the book ended mid-sentence: it was only a partial manuscript.
 
 Quickly, I tore up the other bags, hoping to find the rest of the novel. Instead, I found two wholly different works. One was a longish short story by Edgar Allan Poe entitled “The Wrath of the Earthworm.” It chronicled a man’s experience being buried alive and his ongoing argument with an earthworm waiting for his demise. It had been a while since I’d read Poe, but I felt with some certainty, that this was by far the best thing of his I’d ever read.
 
-The third manuscript was a novel written in the late 90’s by an author named Sara Knave, who I’d never heard of. It seemed to be about a group of teenage girls who spent their last summer of high school working at a haunted amusement park. As soon as I started reading it, I couldn’t stop. Whoever Cameron Knave was, she had the horror chops of Stephen King and the literary virtuosity of Cormac McCarthy. It seemed impossible that she hadn’t been a bestselling phenomenon.
+The third manuscript was a novel written in the late 90’s by an author named Sara Knave, who I’d never heard of. It seemed to be about a group of teenage girls who spent their last summer of high school working at a haunted amusement park. As soon as I started reading it, I couldn’t stop. Whoever Sara Knave was, she had the horror chops of Stephen King and the literary virtuosity of Cormac McCarthy. It seemed impossible that she hadn’t been a bestselling phenomenon.
 
 Yet when I searched for her name on Google, I couldn’t find a single hit. As far as the internet was concerned, she didn’t exist. The same was true for Poe’s story and Cervantes’s book. Not a single reference existed for either one.
 
-I surreptitiously stashed all three manuscripts in my backpack and tossed the bags they’d come in. Then I filed the official report without any mention of the corpse’s stomach or its contents.
+I could have just turned the stories in. If I had, it would have saved me all of the pain that followed. But there was something in me that just wouldn't allow it. I'm thorough, I suppose. That's always just been the way I am. I've never started a book I didn't finish. I wasn't about to break that habit now.
+
+I took one last look at the corpse, realizing I might be looking at my own future: whoever had shot this man, wasn't going to stop looking until they'd retrieved their books.
+
+Then I surreptitiously stashed all three manuscripts in my backpack and tossed the bags they’d come in. Then I filed the official report without any mention of the corpse’s stomach or its contents.
 
 Back at home after work, I opened my backpack and devoured all three books. Coming off of them, I was buzzing with excitement–and furious that they were *all* only partially complete. I was left with Cervantes’s narrator sitting down to a tea party with the devil. With Poe’s protagonist finally clasping the worm with his left pinky. With Knave’s main character facing off with a possessed boyfriend in a hall of mirrors.
 

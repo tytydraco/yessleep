@@ -48,13 +48,15 @@ But like I said, the more time he spent with us, practically shoving himself int
 
 He didn’t sound like he was intentionally being a dick. I figured he was just out of touch, after finding out his family were insanely rich. I didn’t really think much about it, until I refused to buy a cocktail at a club, and again, he had given me that look. This time he was fully looking down on me. instead of questioning why I was refusing to buy it, he reached into his wallet with an over-exaggerated sigh and pulled out a wad of cash before plucking out a twenty dollar bill and slamming it down on the bar. 
 
-Now, I was drunk. Several strawberry daiquiris down, I had no interest in buying a cocktail which sounded like a euphemism. I would usually stay quiet, but at that point I was pissed. So, I made a point of sliding the money back to him, getting up, and pulling my best friend onto the dance floor. Adam joined after acting like a spoiled child and realizing neither of us were going to buy into his shit—and we mostly forgot about it. But then that kind of shit kept happening—and happening—until he finally revealed his true colors and freaked out a restaurant had seated us near “other people.” 
+Now, I was drunk. Several strawberry daiquiris down, I had no interest in buying a cocktail which sounded like a euphemism. I would usually stay quiet, but at that point I was pissed. So, I made a point of sliding the money back to him, getting up, and pulling my best friend onto the dance floor. Adam joined after acting like a spoiled child and realizing neither of us were going to buy into his shit—and we mostly forgot about it. But then that kind of shit kept happening—and happening—until he finally revealed his true colors and freaked out at a restaurant who had seated us near “other people.” 
 
 Adam said it was because of privacy, and yet had no problem when a B-list celebrity came to sit down. Astrid did yell at him and make a deal that he wasn't like that, and he pulled a face like a second grader, promising not to it again. 
 
 And then went onto throw money on a homeless person and record it for his Instagram. 
 
-Again, he tried to justify it by saying he was giving to charity, which Astrid bought—to a degree. I stopped agreeing to hang out with them because every time we did, he would either go on an out of touch rant or be passive aggressive to others. All with this handsome smile and quirk of an eyebrow which was not cute in the slightest. I don’t know why he thought he could win her over with that. At this point I was so close to telling Astrid that he wasn’t worth it, and was actually an entitled, rich asshole, but I think I had already lost her at that point.
+Again, he tried to justify it by saying he was giving to charity, which Astrid bought—to a degree. I stopped agreeing to hang out with them because every time we did, he would either go on an out of touch rant or be passive aggressive to others. All with this handsome smile and quirk of an eyebrow which was not cute in the slightest. I don’t know why he thought he could win her over with that
+
+At this point I was so close to telling Astrid that he wasn’t worth it, and was actually an entitled, rich asshole, but I think I had already lost her. 
 
 There was no saving her. She was starstruck by his way of life, gushing to me about their spontaneous trip’s around the world, as well as Adam’s family’s multi-million dollar mansion (which apparently had three swimming pools). I’m sure the glitz and glam was part of what was blinding her, but the guy himself was exactly what she wanted. Adam was “funny” and “cute.”
 
@@ -92,7 +94,9 @@ The actual ceremony was outside, and once I’d jumped out of the Uber, my stoma
 
 Magical. 
 
-I never really understood her words until I saw the set-up; rows of pearly white benches canopied by cherry blossom trees strung with lights emitting a soft white glow. The benches themselves were tangled with wildflowers and greenery, vines and tendrils wrapped around the armrests. Entranced by the sight in front of me, I had a moment where I realized my best friend was going to walk down the aisle I was standing on and give herself to a man, and a family I despised. I should have felt happy for her, but all I could really feel was frustration and a twist in my gut which was definitely jealousy. Luckily, alcohol exists, and the rehearsal dinner wasn’t as bad I’d thought. I spent most of the night on the dance-floor with Astrid, until Adam’s mother, a witchy like woman with a patient smile, pulled her away to go over last minute preparations. So, I retreated to the snacks table, had to be the most obnoxious food possible. I didn’t think it was possible to roast a full pig, but the sight of it sitting with an apple lodged in its mouth made me nauseous.
+I never really understood her words until I saw the set-up; rows of pearly white benches canopied by cherry blossom trees strung with lights emitting a soft white glow. The benches themselves were tangled with wildflowers and greenery, vines and tendrils wrapped around the armrests. Entranced by the sight in front of me, I had a moment where I realized my best friend was going to walk down the aisle I was standing on and give herself to a man, and a family I despised. I should have felt happy for her, but all I could really feel was frustration and a twist in my gut which was definitely jealousy.
+
+Luckily, alcohol exists, and the rehearsal dinner wasn’t as bad I’d thought. I spent most of the night on the dance-floor with Astrid, until Adam’s mother, a witchy like woman with a patient smile, pulled her away to go over last minute preparations. So, I retreated to the snacks table, had to be the most obnoxious food possible. I didn’t think it was possible to roast a full pig, but the sight of it sitting with an apple lodged in its mouth made me nauseous.
 
 I knew I was being unsociable, but the other guests made no effort to speak to me, and if they did, it was to look me up and down with a wide smile which didn’t need words. “Why are you here?” Their expressions screamed. They knew who Astrid was, squealing and hugging her like they had been best friends their entire lives. But when I tried to join in or offer my name, I was greeted with dead eyed stares.
 
@@ -100,13 +104,15 @@ These girl’s weren’t even trying to be nice. They looked at me and scoffed. 
 
 I guessed half of the people our age were trust fund kids he had grown up with, his inner circle.
 
-At that point, I was close to leaving. The wedding was set for 11:45, and I was hoping to get back to my hotel room and psyche myself up for what I was sure was going to be a night of hell. I was standing over the snacks table, picking at what a strawberry cupcake, when a voice sort of startled me. Coming from behind me, I wasn’t expecting it. Especially when the majority of the party had already decided I didn’t belong there. Before long, the wedding had finally arrived, the sky was perfect oblivion which Astrid had hoped for, meaning a moonlit ceremony, and I was trying and failing to suppress the urge, once slightly on the tipsy side, to pull my best friend aside and demand that she called the whole thing off. 
+At that point, I was close to leaving. The wedding was set for 11:45, and I was hoping to get back to my hotel room and psyche myself up for what I was sure was going to be a night of hell. Before long, the wedding had finally arrived, the sky was perfect oblivion which Astrid had hoped for, meaning a moonlit ceremony, and I was trying and failing to suppress the urge, once slightly on the tipsy side, to pull my best friend aside and demand that she called the whole thing off. 
 
 Because it was stupid. It was fucking stupid, and old Astrid wouldn’t have even liked it. 
 
 She would have raised her eyebrows at everything being so perfectly placed, and the handwritten notes on each table. I refused to get ready with the other girls, after walking in to find one of them mocking my lisp.  
 
-The dress was beautiful. I did a little squee moment in the mirror. I thought the flower crown’s to go with the dresses for both bridesmaid and groomsmen would be kind of over the top, but I was wrong. I guess what I wasn’t expecting was for the wedding to be… spread out? is that the right word? 
+The dress was beautiful. I did a little squee moment in the mirror. I thought the flower crown’s to go with the dresses for both the bridesmaid and groomsmen would be kind of over the top, but I was wrong.
+
+I guess what I wasn’t expecting was for the wedding to be… spread out? is that the right word? 
 
 What I mean is, we didn’t have to sit down. 
 
@@ -178,7 +184,7 @@ Her smile radiated. “You’re Penny, right? You can call me Evelyn, or Evie, o
 
 “It’s the exact same as yours.” Spencer deadpanned.
 
-In response, she thwacked him. From the look on his face, which was barely fazed, I could tell this kind of thing happened a lot between them. I could tell what it was after only knowing the two of them barely twenty minutes. The way Evangeline looked at him with starry eyes which definitely had been attached to him since the two of them and Adam were kids, while Spencer was oblivious—or maybe aware and didn’t have the same feelings. I did notice his gaze kept scanning the crowd for Adam, and then I wondering what relationships had happened between the three.
+In response, she thwacked him. From the look on his face, which was barely fazed, I could tell this kind of thing happened a lot between them. The way Evangeline looked at him with starry eyes which definitely had been attached to him since the two of them and Adam were kids, while Spencer was oblivious—or maybe aware and didn’t have the same feelings. I did notice his gaze kept scanning the crowd for Adam, and then I wondering what relationships had happened between the three.
 
 It was weird being around three kids who had clearly been close in the past and were now reduced to practically stranger’s at their best friend’s wedding. However,  I was intrigued by what Spencer meant when he referred to Adam’s family as “psychotic.” Before I could speak up and snap him out of the trance he’d fallen into, his eyes suddenly on the sky—Evangeline whispered, “It’s starting!” and I twisted around with the rest of the wedding party to see Astrid. I remember thinking it was magical how the moon illuminated her, turning her ethereal as she floated down the aisle. 
 
@@ -258,7 +264,7 @@ Astrid wrapped her arms around me, and she smelled like flowers. “We’re gett
 
  “Right.” I groaned, biting against a cry. I had to staunch my wound as best as I could.
 
-Her eyes went to the gate ahead of us. “That’s a mechanical lock. “So, we… we climb over, right?”
+Her eyes went to the gate ahead of us. That's a mechanical lock. “So, we… we climb over, right?”
 
 Screaming from behind me.
 
