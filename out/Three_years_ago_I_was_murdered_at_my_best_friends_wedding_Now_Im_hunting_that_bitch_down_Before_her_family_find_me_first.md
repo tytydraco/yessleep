@@ -58,7 +58,9 @@ Again, he tried to justify it by saying he was giving to charity, which Astrid b
 
 There was no saving her. She was starstruck by his way of life, gushing to me about their spontaneous trip’s around the world, as well as Adam’s family’s multi-million dollar mansion (which apparently had three swimming pools). I’m sure the glitz and glam was part of what was blinding her, but the guy himself was exactly what she wanted. Adam was “funny” and “cute.”
 
-When I tried to tell her he was bad news, those interventions turned into arguments, and unbelievably she would call Adam to come and “act as the peacemaker.” So, in short, I didn’t like him. I didn’t like that he was fake and had already brainwashed my best friend with the promise of a life of luxury. It was on April Fools Day 2020, when I’d gotten the text I didn’t think I wouldn’t be getting for at least ten years. We were twenty years old, and after the pandemic, the two of us had made a promise to each other that we would go travelling during our gap-year. I thought it was an April Fools, and I had repeatedly asked her if she was playing some kind of sick joke. But no. 
+When I tried to tell her he was bad news, those interventions turned into arguments, and unbelievably she would call Adam to come and “act as the peacemaker.” So, in short, I didn’t like him. I didn’t like that he was fake and had already brainwashed my best friend with the promise of a life of luxury. It was on April Fools Day 2020, when I’d gotten the text I didn’t think I wouldn’t be getting for at least ten years. We were twenty years old, the two of us had made a promise to each other that we would go travelling during our gap-year. 
+
+I thought it was an April Fools, and I had repeatedly asked her if she was playing some kind of sick joke. But no. 
 
 Sent, along with a message which just said, “We’re getting married!” was a photo which looked like it had just been taken off of an influencer’s Instagram. Astrid, standing under a perfect sunset in some unknown location, maybe Bali, engagement ring on her finger, her arms wrapped around a grinning Adam. 
 
