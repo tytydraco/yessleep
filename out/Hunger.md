@@ -1,13 +1,33 @@
-It has been exactly  7 days since my orange tabby Clementine has been missing, sighing, I close my front door and put down the staple gun from when I was putting up missing flyer's. Plopping down my bed, I cried myself to sleep, wondering if he'll ever come home again and what happened to him...
+The sound of dripping water echoed through the cave as the group of explorers made their way deeper into the darkness. The walls were slick with moisture, and the air was thick with the scent of earth and decay. Their headlamps illuminated the path ahead, casting eerie shadows on the jagged rocks and stalactites that jutted out from the ceiling.
 
-Waking up from my hunger, I groggily went to the kitchen. My other cat, Sadie, watches me from her cat tower as i pass by like a zombie. Of course not forgetting to greet and pet her fluffy head as I turn to the corner, into the kitchen. After finishing my quick meal, I put the dirty dish into the sink. My stomach starts hurting, a starving sensation I can't shake off. For almost 2 weeks I've been experiencing this, feels like everyday it's just getting worst and worst, like my stomach is about to burst open. It has gotten to the point ive collapse and lose consciousness, Ive gone to the Doctor but they said nothing was wrong... how can nothing be wrong when how much I eat nothing seems to get rid of this hunger. 
+As they descended further into the depths of the cave, the group began to feel uneasy. The darkness seemed to press in on them, suffocating and oppressive. They had been exploring for hours, and their nerves were starting to fray.
 
-Feeling hopeless I lay down on the cold kitchen floor, shutting my eyes close and wrapping my arms around my stomach as the feeling gets worst, and worst. Opening my eyes, due to the throbbing headache, I lose Orientation as I start to slowly black out, but from afar I could tell Sadie was coming over with something in her mouth. Before she could reach me I fully lose consciousness.
+"I don't like this," whispered Lisa, her voice barely audible over the sound of dripping water. "We shouldn't be here."
 
-Slowly waking up from Sadie's meows and walking over me, I put myself back together as I held my still throbbing head. Standing up, from the clock I saw it was already the next day. Sighing, I was about to walk out of the kitchen when I stepped on something. Screaming in agony, I looked down at what I stepped in, shards of the broken plate I used yesterday. Fuck, I hopped over the the bathroom just in front of the kitchen and cleaned my foot up and wrapped gauze around it. Going back in the kitchen, I cleaned up the rest of the broken plates. While I was silently cleaning, I smelled something weird, like something died. Looking around the kitchen floor, I couldn't find anything, but then I spot the trashcan hidden in the corner with all the garbage digged up everywhere and flies flying around it. On closer look, I realize there were rats half bitten and rotting away near the trashcan. I gagged and gave Sadie a deathstare as she continued to lick herself all pompous on the counter. 
+"Don't be such a baby," replied Tom, the group's self-appointed leader. "We've got plenty of light, and we're all experienced cavers. What's the worst that could happen?"
 
-Fatigued, I went back to bed, as I was laying and getting comfortable the feeling came back again. Uncontrollable aching, it's getting so annoying. I hate it. Forcing myself to sleep and bear the pain... but not a few seconds later, I feel myself going insane at how painful it was getting. Rushing into the kitchen, I grabbed anything I could eat. Bread, left overs, frozen beacon, raw chicken, anything. Shaking from the never ending hunger, I cried and sobbed on the floor, I just want it to end. As I was laying hopeless on the kitchen floor again, I see Sadie coming up to me again, this time dragging something bigger. A raccoon...? A dead raccoon. Looking into Sadie's eyes, it felt welcoming and yet so dark, I refused. Shutting my eyes tightly and Biting my lips, I pray for it to end. But it'll never will, something in my mind said. The hopelessness overcomes me and I reached for the dead raccoon. Sinking my teeth into it, ripping it apart as I eat it inside and out. Suddenly my hunger goes away... suddenly I feel nothingness as I come to my senses. I ate a dead raccoon...
+Famous last words, thought Lisa as they continued deeper into the cave. The group had been exploring for what felt like hours when they came across a narrow tunnel that branched off from the main path. Tom was the first to enter, his headlamp casting a weak beam of light ahead.
 
-It's been who knows how long at this point, I refuse to look at the clock or do anything other than be on this cold kitchen floor with only Sadie to accompany me and the meals she brings me. A knock on the door spooks Sadie, she hisses as someone calls out for me from outside. Who could it be? The slow creeking of the door and the voice getting cleaner tells me they came in. Turning around the corner into the Kitchen, a see an old woman, my neighbour, look at me in shock and horror. A dirty, smelly, fly infested, half dead, bony, hollow shell that I was once before.
+"This looks promising," he said, his voice echoing off the walls. "Let's check it out."
 
-Seeing her suddenly made me hungry again... for the first time in days that I've been glued to this floor, I crawled towards her as she gets on her knees to help me. God, I'm starving.
+The others followed reluctantly, their heartbeats quickening as they squeezed through the narrow passage. It was dark and cramped, and the walls were so close they could feel the cold dampness of the rock against their skin.
+
+Suddenly, the tunnel opened up into a large cavern. The group's headlamps illuminated a vast chamber, filled with stalactites and stalagmites that glittered in the light. But something was wrong. The air was thick with an acrid scent, and the ground was slick with something that looked like oil.
+
+"Guys, I don't like this," said Lisa, her voice shaking with fear.
+
+"It's just a little damp, that's all," said Tom, his bravado wavering.
+
+Suddenly, there was a sound like a gunshot, and the ground beneath them shook. The group stumbled, their headlamps flickering as rocks tumbled down from the ceiling.
+
+"What the hell was that?" shouted John, his voice panicked.
+
+"I don't know, but we need to get out of here!" yelled Tom, grabbing Lisa's hand and pulling her towards the tunnel.
+
+They were too late as the tunnel faded from view, rocks blocking the passage. Stumbling to get a hold amidst the rocking, Lisa's hand fell into the muck beneath their feet - grasping something smooth.
+
+Lisa screamed as she realized what was in her hand. A large human bone - possibly a femur - polished clean by the ooze surrounding them. Suddenly, there was a deafening roar, and the ground shook so violently that the group was thrown off their feet. They huddled together, their screams drowned out by the sound of falling rocks.
+
+When the dust settled, they were alone in the darkness. The entrance to the tunnel was blocked by tons of rubble, and there was no way out. They were trapped, with no food or water, and no hope of rescue.
+
+As they sat huddled together in the darkness, the ooze began to churn and rise. With terror they realized that this wasn't just a cave. It was the belly of a beast - and it was hungry.
