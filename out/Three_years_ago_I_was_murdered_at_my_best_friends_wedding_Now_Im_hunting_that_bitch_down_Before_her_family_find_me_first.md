@@ -294,7 +294,9 @@ I was trying not to choke on my own blood, but her words stayed with me, cementi
 
 3 years
 
-1095.73 days.
+1095.73 dayz
+
+And
 
 1,000+ deaths later.
 
@@ -322,9 +324,15 @@ It didn’t make sense where I was, surrounded by trees which looked like they w
 
 “They’re coming, Penn! Get up! Now!”
 
-I did, somehow. But the pain flattened me against the dirt, a cry carving out my lips. My feet were bare, dirt gritted between my toes. 
+I did, somehow. But the pain flattened me against the dirt, a cry carving out my lips. 
 
-But her voice was right. I could hear them coming through the trees, branches snapping under feet, which immediately sent me flying up despite my wounds. My mind knew what to do. Ripping off a strip of my dress, my hands trembled as I did my best to fashion out a bandage. “That’s it.” Astrid’s voice murmured. 
+My feet were bare, dirt gritted between my toes. 
+
+But her voice was right. 
+
+I could hear them coming through the trees, branches snapping under feet, which immediately sent me flying up despite my wounds. My mind knew what to do. 
+
+Ripping off a strip of my dress, my hands trembled as I did my best to fashion out a bandage. “That’s it.” Astrid’s voice murmured. 
 
 Her voice sounded wrong, melodic.
 
@@ -350,7 +358,9 @@ I started to walk, stumbling over myself.
 
 “Killed me.” The words wouldn’t fully register in my head. “You… killed me.”
 
-I could see the river which stretched into the sky. My steps quickened as I stumbled over myself to get to it. It wasn’t until I was wading into the shallows, did the memory finally come over me. “You fucking killed me, you psycho bitch!” I rolled up my dress to look at my stomach wound, but it was gone. “What did he do to you? Adam. What did that bastard to your head?” My breath was strangled. “But if you… if you killed me, how am I here?!”
+I could see the river which stretched into the sky. My steps quickened as I stumbled over myself to get to it. It wasn’t until I was wading into the shallows, did the memory finally come over me. “You fucking killed me, you psycho bitch!” 
+
+I rolled up my dress to look at my stomach wound, but it was gone. “What did he do to you? Adam. What did that bastard to your head?” My breath was strangled. “But if you… if you killed me, how am I here?!”
 
 “It’s not bad.” 
 
@@ -384,11 +394,15 @@ I twisted around, and she groaned. “No, don’t move! Remember in freshman yea
 
 I did, throwing myself into murky water. 
 
-Not deep enough to drown in, but just enough to hide me. I could hear footsteps. They were slow and deliberate, crunching through pebbles before splashing into the shallows. The water was ice cold, a relief against my body. I held in a breath. “Don’t… move.” Astrid murmured in my head. I didn’t, but still felt the sudden sleek metal of a gun slide under my chin, forcing my head up. Before I found myself face to face, staring down at the barrel pointed between my eyes. Evangeline. The girl was in the tatters of her bridesmaid dress, barefoot, a scratch down her face. Her finger was stable on the trigger.
+Not deep enough to drown in, but just enough to hide me. I could hear footsteps. They were slow and deliberate, crunching through pebbles before splashing into the shallows. The water was ice cold, a relief against my body. 
+
+I held in a breath. 
+
+“Don’t… move.” Astrid murmured in my head. I didn’t, but still felt the sudden sleek metal of a gun slide under my chin, forcing my head up. Before I found myself face to face, staring down at the barrel pointed between my eyes. Evangeline. The girl was in the tatters of her bridesmaid dress, barefoot, a scratch down her face. Her finger was stable on the trigger.
 
 The flower crown was still perched on her head, though it no longer matched wildly vacant eyes.
 
-“Wait.”
+ I managed a hiss. “Wait.”
 
 Her body moved like a robot, reloading the gun, and sticking it between my eyes.
 
@@ -404,7 +418,11 @@ Not long after that, I awoke faced down in grass, the memory of the gun ricochet
 
 Astrid’s voice disappeared after that. I called out to her, but I was alone. Alone, in my bridesmaid dress still stained with blood. 
 
-A small handgun lay next to me, a box of ammo, and a bottle of water. Slowly, I stood up. Before something glittered in the distance, a wall. Sliced between the trees was a wall made of glass. Slowly, I made my way over to it. I saw Astrid, dressed in a red gown. She looked older. Maturer. Astrid had grown up. I was still twenty. 
+A small handgun lay next to me, a box of ammo, and a bottle of water. Slowly, I stood up. Before something glittered in the distance, a wall. Sliced between the trees was a wall made of glass. Slowly, I made my way over to it. I saw Astrid, dressed in a red gown. She looked older. 
+
+Maturer. Astrid had grown up. 
+
+I was still twenty. 
 
 She looked me directly in the eye, before lifting something—- a mic, her lips curving.
 
@@ -416,7 +434,7 @@ Astrid sipped champagne, and her eyes reminded me of Adam’s. “Your lives,”
 
 “Every time you die, our marriage becomes that much more magical—- and it’s all thanks to you,” her smile became monstrous as a feral scream rang from my throat, and behind me, sudden war-cries, bare feet slapping through the dirt heading towards me like a pack of wild animals. A sharpened spear flew past me, hitting the tree behind me with a thunk. I twisted around to see the spear wielder.
 
-Spencer, still in his wedding getup, a flower crown sitting on his head, along with what was left of a human— no, animal skull. When his lips split into a manic grin, I started to run, stumbling over myself, while Astrid’s voice rang in my head, a melodic murmur catapulting me further into trees, war cries coming closer. 
+Spencer, still in his wedding getup, a flower crown sitting on his head, along with what was left of a human— no, animal skull. When his lips split into a manic grin, I started to run, stumbling over myself, while Astrid’s voice rang in my head, a melodic murmur catapulting me further into trees, war cries inching closer. 
 
 “You’re a great friend.”
 

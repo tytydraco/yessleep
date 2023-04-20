@@ -1,4 +1,6 @@
- I don't like to talk about what happened 15 years ago. I don't even like to think about the fact that on January 7th 2008, Sarah Collins, beloved member of the community left home to run an errand and was then never seen again. It was a huge case back then. Everyone seemed to want to know what happened to her, but no one was more desperate for answers than I was.
+[PART 2 HERE](https://www.reddit.com/r/nosleep/comments/12su1jt/my_wife_has_been_missing_for_15_years_until_she/?utm_source=share&utm_medium=web2x&context=3)
+
+I don't like to talk about what happened 15 years ago. I don't even like to think about the fact that on January 7th 2008, Sarah Collins, beloved member of the community left home to run an errand and was then never seen again. It was a huge case back then. Everyone seemed to want to know what happened to her, but no one was more desperate for answers than I was.
 
 Sarah and I had been married for five years. I knew as soon as I met her that I wanted to spend the rest of my life with her. She had one of those smiles that just lit up a room. That's why it was so hard to believe that such a beautiful, successful woman had seemingly disappeared.
 
