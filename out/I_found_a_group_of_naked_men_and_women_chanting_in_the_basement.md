@@ -1,0 +1,30 @@
+
+
+The house was surrounded by dead trees and abandoned cars, giving the area an eerie and ominous feel. All the windows were boarded up with framing lumber, and the words "Stay Out" were painted on the surface in bold, red letters. The front porch was covered in thick cobwebs, and a giant padlock secured the front door. As a child, I was warned never to venture into Woodman's estate, but the lore and mystery of the place had grown too irresistible. I decided to explore and investigate the premises.
+
+The family that once resided in the house had vanished without a trace, becoming a dark and unsettling secret in our community that no one dared to discuss. Rumors and speculations were rampant, with many suspecting that the family was involved in witchcraft or had met with a tragic end as a result of supernatural occurrences. Another prevalent theory suggested that the father had murdered the entire family and fled the country with his mistress.
+
+Despite the police closing the case years ago, I couldn't shake off the feeling that there was something more to the story. The mystery surrounding the family's disappearance led me to believe that there might be something supernatural or paranormal at play within the house. I was determined to investigate the property and uncover any clues that may have been overlooked in the past. 
+
+
+Arriving at the estate around midnight, I navigated my way through the dense forest of dead trees and abandoned cars. With the help of a stick I found on the ground, I cleared away the webs that plagued the front porch. Using a pair of bolt cutters which I had brought along with me, I attempted to cut the padlock on the front door, but to no avail. To my surprise, I noticed unfamiliar carvings and incantations on the padlock which I had never seen before.
+
+After several minutes of removing the lumber from one of the windows, I was finally able to make my way into the house. I was astonished by how well-maintained and clean the interior appeared, considering that the house had been abandoned for over five years. To my surprise, there wasn't a cobweb or speck of dust in sight. Additionally, all the lights in the house were on, which was strange since the electricity to the property should have been disconnected years ago.
+
+As I continued to search the rest of the house for clues about the missing family, I noticed more strange carvings and incantations on the walls. On top of every door frame in the house, there was a peculiar carving of a headless lion with unrecognizable incantations inscribed underneath. I was intrigued by the meaning of the carvings and tried a reverse image search, but I was met with no results. Strangely, every time I took a picture of the carvings with my phone, it never appeared in my photo gallery.
+
+The strange markings and their mysterious disappearance from my phone left me feeling disoriented and uneasy. I had a growing sense that there was something sinister at play within the house, and it was the reason for the disappearance of the family. I had to find out more, but for the first time since arriving, I started to feel more and more apprehensive about continuing to investigate the property.
+
+After scouring the house for several hours for any potential clues, there was one lone area that remained unexplored – the basement. Unlike any other door in the house, the basement entrance lacked any sort of inscription, symbol or carving above the frame. Instead, the door itself was a large, framed mirror with an ominous black handle attached as a doorknob. I have to admit that this strange, out-of-place door left me feeling increasingly hesitant and nervous about continuing my investigation.
+
+Despite my reservations, however, my curiosity got the best of me, and I found myself pushing forward to explore the basement. As I turned the black handle and pulled open the door, the overwhelming scent of incense and damp air enveloped me. I peered into the dark abyss of the basement, wondering whether I should make my way down the stairs or not. At this point, I had no idea what could be waiting for me below.
+
+As I carefully descended the stairs, my heart began to race as I realized that something horrifying was waiting for me at the bottom. My fears were quickly confirmed when I spotted a group of naked men and women standing at the center of the basement. In an instant, I felt a cold hand clutch my shoulder, and my body tensed with fear.
+
+I rapidly turned to run back up the stairs, but the door slammed shut with a resounding thud, trapping me inside with the group of individuals. They began to chant in an unknown language, and the sound of their voices reverberated dangerously through the air. The fear of what might happen next paralyzed me, and I collapsed onto the floor.
+
+When I woke up, I found myself lying in my own bedroom, enveloped in darkness. It took me a few moments to shake off the fog and remember where I was. As I tried to sit up, I realized that my clothes had been replaced with a hospital gown, and my limbs felt heavy and lethargic, as if I had been drugged. Fear and uncertainty flooded in as I tried to piece together what had happened to me.
+
+Just as I was about to call the police, I overheard my dad's voice outside my room, already talking to two police officers. He thanked them for bringing me home and reassured them that I wouldn't cause any more trouble. It was then that I realized that I must have been hallucinating, and what I thought had occurred in the basement had all been a vivid dream.
+
+Feeling relieved, but also confused by what had happened, I lay back down on the bed to process everything. The memory of what I had dreamt - the group of people in the basement - still sent shivers down my spine. Nevertheless, I tried to put it all behind me and get some sleep.
