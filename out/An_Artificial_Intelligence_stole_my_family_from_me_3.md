@@ -103,3 +103,5 @@ I saw that she or perhaps the machine had opened up the old storm cellar doors a
 “The next step.” 
 
 [330](https://www.reddit.com/r/KyleHarrisonwrites/?utm_source=share&utm_medium=ios_app)
+
+[4](https://www.reddit.com/r/nosleep/comments/12th0iw/an_artificial_intelligence_stole_my_family_from/?)

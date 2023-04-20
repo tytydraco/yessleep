@@ -66,7 +66,7 @@ He sighs and shrugs. "We'll see how it goes. What kind of response we get."
 
 I nod. "If you don't like it, we never have to do it again."
 
-As my laptop finishes booting up, I pluck a giant marshmallow out of my hot chocolate and let it melt in my mouth. *Marshmallows really do make everything better*. Finally, my desktop greets me: A photo of our cream-colored kitty, Jujube, staring out of the window on a snowy evening. He'll be turning 2 in February. I love the shit out of him.
+As my laptop finishes booting up, I pluck a giant marshmallow out of my hot chocolate and let it melt in my mouth. *Marshmallows really do make everything better*. Finally, my desktop greets me: A photo of our cream-colored kitty, Jujube, staring out of the window on a snowy evening. He'll be turning 2 in May. I love the shit out of him.
 
 Emmett is watching me, his hands wrapped around his mug. "You typing this in WordPad?"
 
