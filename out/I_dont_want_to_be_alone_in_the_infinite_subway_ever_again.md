@@ -4,19 +4,19 @@
 
 It's been a while. Now that I have enough time, and battery, I can write down everything that has happened so far since my new friends has been overtaken by a group of armed people.
 
-The first few hours were bad. Really bad. Having barely managed to slip away undetected, I set up camp 20 carts away from where everyone else was, trying my best to not just give up on everything and resign myself to the subway. My mind was racing with every possibility, not letting me be for one second. I could be eventually found out by the group and taken prisoner along with the rest. I could just starve to death in this place. Or, in the worst case scenario, I would run out of tickets and be taken by the Conductor, the only proof of my existence here being a black puddle, dripping on a chair. 
+The first few hours were bad. Really bad. Having barely managed to slip away undetected, I set up camp 20 carts away from where everyone else was, trying my best to not just give up on everything and resign myself to the subway. My mind was racing with every possibility, not letting me be for one second. I could be eventually found out by the group and taken prisoner along with the rest. I could just starve to death in this place. Or, in the worst case scenario, I would run out of tickets and be taken by the Conductor, the only proof of my existence here being a black puddle, dripping on a chair.
 
 I was thinking how everyone would eventually forget about me, thinking I ran away to God knows where. How I would never return to the outside world, never feel the sun's warmth, never eat my mom's blueberry pie, never see Marie's smile... I began to cry. Cry for the first time since I got stuck in this hellhole. In retrospective, it was cathartic, but in the moment, I couldn't focus on anything but the pain. Eventually, I fell asleep like that. The next two days I didn't do anything, bar for interacting with the Conductor. I couldn't go back to everyone, because I'd be either gunned down or captured. On the other hand, if I left, I would be wrecked with the guilt of leaving people who cared about me, even for just a day, behind. I was paralyzed in that cart...
 
-But, during the third day, I began feeling like the Conductor was my only companion, hearing his whistle being somewhat reassuring. For a brief moment, I wasn't alone. I wasn't forced to deal with anything else. Just me, him, and his whistle. He didn't feel malicious then. Just a man doing his job. If you have a ticket, he let's you be. If you don't, you have to pay a fine. Just like the outside world. 
+But, during the third day, I began feeling like the Conductor was my only companion, hearing his whistle being somewhat reassuring. For a brief moment, I wasn't alone. I wasn't forced to deal with anything else. Just me, him, and his whistle. He didn't feel malicious then. Just a man doing his job. If you have a ticket, he let's you be. If you don't, you have to pay a fine. Just like the outside world.
 
-"Yea," I remember saying out-loud, "this is just like the outside world. I'm just on my way home, of course. It's perfectly normal that I am alone here. It's late, so people are already home. Yea..." 
+"Yea," I remember saying out-loud, "this is just like the outside world. I'm just on my way home, of course. It's perfectly normal that I am alone here. It's late, so people are already home. Yea..."
 
 Sitting up from the floor, I put myself down on the chair nearby.
 
 "I will just pass the time sleeping a bit, 15 minutes should be enough. I will be home soon enough."
 
-I closed my eyes, wanting to sleep just a little bit. All my valuables were home, except my phone, which I kept closely. 
+I closed my eyes, wanting to sleep just a little bit. All my valuables were home, except my phone, which I kept closely.
 
 I almost dozed off when I heard the cart open. It couldn't be the Conductor because I would've heard him. It couldn't be one of the armed men cause they would immediately yell to get down. It didn't smell like salt, so it wasn't the Janitor. That meant that I've never seen that before. I bowed my head down, praying for the best. However, deep down, I knew I wouldn't have minded if this was it.
 
@@ -24,11 +24,11 @@ I almost dozed off when I heard the cart open. It couldn't be the Conductor beca
 
 That voice... That voice was too familiar. Looking up, I was met by a pair of emerald green eyes.
 
-"Marie?!!" I yelled as loud as I could, jumping from my chair. 
+"Marie?!!" I yelled as loud as I could, jumping from my chair.
 
 "Anthony???" She yelled back, being just as surprised as I was.
 
-After the initial shock we felt, we hugged each other. 
+After the initial shock we felt, we hugged each other.
 
 "Oh my God, I missed you so much." I said, beginning to tear up.
 
@@ -86,7 +86,7 @@ A faint whistle was beginning to be heard, getting closer.
 
 "Oooh," said Marie, "what a lovely tune! Reminds me of my grandpa- What are you doing?"
 
-I was scrambling in my pockets, looking for the tickets. The whistling was growing louder by the second, and then, I heard the door of the cart open. 
+I was scrambling in my pockets, looking for the tickets. The whistling was growing louder by the second, and then, I heard the door of the cart open.
 
 "Marie, eyes down. Quiet. Do. Not. Move"
 
@@ -146,6 +146,10 @@ We gave him the tickets and the Conductor left. I was feeling very relieved, mak
 
 "Love you too."
 
-She then gave me a kiss, ruffled my hair and went to sleep. 
+She then gave me a kiss, ruffled my hair and went to sleep.
 
 With that, this update finishes the first three days. I am too tired to continue with the final four, so I will finish the events of the past week tomorrow. I'm just waiting for my Conductor Shift to finish.
+
+\---------------------------------------
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/12td3g6/a_little_trickery_saved_me_and_the_rest_of_my/)
