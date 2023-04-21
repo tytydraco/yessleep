@@ -52,7 +52,7 @@ as she proceeded to focus on the organ. The men did as they were asked. Each car
  
 "Hey!  You think you're beautiful. Well, you're not. You…you…stupid bitch."
  
-The creole woman ignored the blonde woman who continued on spouting hateful remarks; she always knew this blonde woman as she was her neighbor. Sometimes seeing the blonde's racism But as for the Creole woman, she has something in store for her in the coming months. 
+The creole woman ignored the blonde woman who continued on spouting hateful remarks; she always knew this blonde woman as she was her neighbor. Sometimes seeing the blonde's idiocy But as for the Creole woman, she has something in store for her in the coming months. 
  
 walking towards her luxury Rolls-Royce with a black Dodge SUV from behind. Her chauffeur stood by the door and opened it for her. She got inside and drank the wine glass that was already prepared for her. The chauffeur got into the driver's seat and drove off, with the SUV following from behind. about the care of the world, as the people from the outside continued on with their celebration. 
 
