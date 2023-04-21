@@ -20,9 +20,9 @@ And I simply had to talk to her. So I just went up and introduced myself, feelin
 
 That was a month ago, and we're still seeing each other. That is to say, she's come over two or three times to my apartment in  the evenings, after I get off work. Just for an hour or so. We just chill on the couch and talk about stuff, mainly. Like music. Well, ok, not *too* much, I'm still feeling kind of sore on that front, after recent events. But she loves music as much as I do, I can see that. She never wants dinner or anything, though, and she's never invited me back to her place. I don't even know what that is. She hasn't revealed much about herself at all, actually. And she never stays the night.
 
-In fact, she doesn't even let me touch her, not even to put my arm around her, or something, far less try to kiss her. Come to think of it, we haven't even held hands.
+In fact - until tonight -  she didn't even let me touch her, not even to put my arm around her, or something, far less try to kiss her. Come to think of it, we hadn't even held hands.
 
-Odd, right? When she still keeps coming on over, and all, and when I still *want* her to keep coming over.
+Odd, right? When she still kept coming on over, and all, and when I still *wanted* her to keep coming over.
 
 So, yes, you're thinking, she's not really a girlfriend at all, right?
 
@@ -32,7 +32,7 @@ It's hard to explain, but it's like she has some hold over me. Like we have an i
 
 'Of course we know each other,' she said earlier tonight, when again we get to talking about it. 'We've know each other a *very* long time. You've just forgotten, that's all.'
 
-I was about to say something, I don't know what, when she surprised me by taking my hand in both of hers - we were sitting side by side on the couch, as usual. This was actually the first time we've had any kind of physical contact at all. Actually, the sensation wasn't as exhilarating as it might've been. Her hands felt small and dry and hard. I didn't *actually* flinch away, though, that probably would've been a bad move.
+I was about to say something, I don't know what, when she surprised me by taking my hand in both of hers - we were sitting side by side on the couch, as usual. This was actually the first time we'd had any kind of physical contact at all. Actually, the sensation wasn't as exhilarating as it might've been. Her hands felt small and dry and hard. I didn't *actually* flinch away, though, that probably would've been a bad move.
 
 She was stroking her fingers over mine, looking down at my hand as if fascinated, and then she reached for my other hand too. 'What hands,' she marveled, her voice infinitely softer than her touch. 'Such skillful hands. You've done so much with these hands, Jordan.'
 
