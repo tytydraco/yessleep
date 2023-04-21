@@ -54,7 +54,7 @@
 
 **Because there's beauty in the shadows. Because it's not only me that sees the world this way.**
 
-**And yet this little companion keeps me up at night more than the man I dreamt of, who attached himself at the waist to the floor under my bed, that's in a hidden away in a novella out of sight.**
+**And yet this little companion keeps me up at night more than the man I dreamt of, who attached himself at the waist to the floor under my bed, and now lies hidden away in a novella out of sight.**
 
 **But I slept just fine.**
 
@@ -64,7 +64,7 @@
 
 **And everyone smiles and says, "This is amazing!"**
 
-**And they're right. Not quite amazing as it seems.**
+**And they're right. Not quite as amazing as it seems.**
 
 **But soon...**
 
@@ -78,7 +78,7 @@
 
 **Because it's so easy.**
 
-**And, of course, no there's pulling it back by then. It's too tied into the ebb and flow of capital.**
+**And, of course, there's no pulling it back by then. It's too tied into the ebb and flow of capital.**
 
 **And you won't know if there's anything for you to do besides live a hedonistic life.**
 
@@ -90,12 +90,12 @@
 
 **Maybe I'm getting old.**
 
-**Maybe I need to go outside and look at the stars.**
+**Maybe I  just need to get some rest.**
 
 **But I have so much editing to do.**
 
 **So much code to write.**
 
-**If I just copy and paste it... the companion on my screen will do it for me and I can sleep.**
+**If I just copy and paste it... the companion on my screen will do it for me and then I can sleep...**
 
 **Goodnight.**

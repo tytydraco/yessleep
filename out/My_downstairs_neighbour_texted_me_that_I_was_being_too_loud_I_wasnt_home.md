@@ -73,3 +73,5 @@ Completely confused, I managed to stutter a quick “oh… okay…” before I h
 Suddenly, I felt something fall onto my head. It was a sock.
 
 UPDATE: This has gotten a lot more attention than I expected. There will be a part 2. Thanks for all of your comments.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/12toxl6/my_downstairs_neighbour_texted_me_that_i_was/?utm_source=share&utm_medium=web2x&context=3)
