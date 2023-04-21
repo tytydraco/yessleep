@@ -14,7 +14,7 @@ Anyway, love you all and will keep you updated!!!! xoxo
 
 **09/04/2022 - 02.28pm**
 
-Hey guys, Shayla here again!
+Hey guys, Shaylah here again!
 
 A bunch of you messaged me saying that I need to get my nails done ASAP and I can’t believe I didn’t think of it. What good are insta ring pics if my nails look like crap? So I called to get a last-minute appointment and oh my god the woman at the salon was such a bitch. She said they were fully booked and there was no way they would be able to fit me in at such short notice but I let her know how many followers I had and made it clear that they would regret a bad review from me and what do you know they found a spot for me. I will let you know if they are any good.
 
@@ -34,7 +34,7 @@ Will update soon babes xoxo
 
 **09/04/2022 - 8.16pm**
 
-WHAT THE FUCK? YOU ARE NOT GOING TO FUCKING BELIEVE THIS. HE FUCKING LEFT ME. HE SAID HE WAS IN LOVE WITH SOMEONE ELSE AND HE IS MOVING OUT. I CANT FUCKING EVEN DEAL. 
+WHAT THE FUCK? YOU ARE NOT GOING TO FUCKING BELIEVE THIS. HE FUCKING LEFT ME. HE SAID HE WAS IN LOVE WITH SOMEONE ELSE AND HE IS MOVING OUT. I CANT FUCKING EVEN DEAL.
 
 &#x200B;
 
