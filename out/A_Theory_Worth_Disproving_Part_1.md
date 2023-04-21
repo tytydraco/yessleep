@@ -82,7 +82,7 @@ Duncan? Who the Hell was—
 
 “For what, for God’s sake?”
 
-“Not that it’s any of your business,” he said, a sentient that struck me as rather fucking rude considering he’d called me up to ask for an absurd favor at an absurd hour of the morning, “but my paycheck was short this month, and while I would love to be able to say it doesn’t make much of a difference in my daily life, I fear it does. One must feed their cats and take their medications, after all.”
+“Not that it’s any of your business,” he said, a sentiment that struck me as rather fucking rude considering he’d called me up to ask for an absurd favor at an absurd hour of the morning, “but my paycheck was short this month, and while I would love to be able to say it doesn’t make much of a difference in my daily life, I fear it does. One must feed their cats and take their medications, after all.”
 
 I softened. I wasn’t struggling as much as many of my friends were, but I wasn’t exactly coasting on easy street, either. “I get that. But can’t accounting fix that for you?”
 
@@ -106,7 +106,7 @@ According to Samuel, oddly expert on such matters, Duncan lived a mere thirty mi
 
 He’d brought a coffee and muffin with him, pointedly did not offer to share, and spent the majority of the time gazing out the window as my shitty neighborhood bled into a nicer, more gentrified one, and then finally the tree-lined expanse of roads that signaled we were moving into wealthier territory.
 
-“So,” I said, disrupting the peaceful, albeit uncomfortable silence, “speaking of Duncan, you hear about the shitstorm Shelby gave him the other day?  She must’ve ranted at me for a good ten minutes afterwards.  Apparently he hasn’t been playing well the clean-up crew.  She said something about her guys coming in with hazmat suits if he didn’t—”
+“So,” I said, disrupting the peaceful, albeit uncomfortable silence, “speaking of Duncan, you hear about the shitstorm Shelby gave him the other day?  She must’ve ranted at me for a good ten minutes afterwards.  Apparently he hasn’t been playing well with the clean-up crew.  She said something about her guys coming in with hazmat suits if he didn’t—”
 
 The sentence died the second I glanced in his direction and realized he’d been staring at me, though for how long I hadn’t a clue.
 
@@ -124,7 +124,7 @@ Still, I didn’t much see the point in getting into some bullshit pissing match
 
 “No doubt.  But one might argue that an employee’s wage is a direct estimation of their value, and considering what it is we *do* for them, don’t you find that infuriating?”
 
-I glanced over.  “Considering what?  Seems pretty standard in this day and age, right?  Big corporations taking advantage of the working folks.  Eat and the rich and all, you know?”
+I glanced over.  “Considering what?  Seems pretty standard in this day and age, right?  Big corporations taking advantage of the working folks.  Eat the rich and all, you know?”
 
 He stared at me, unmoving and in such a way a pit of unease began to coil in my stomach.  I had to fight to turn my attention back to the road, fix my hands on the wheel.  Something old and simian didn’t want me to turn my back on him, and I was reminded of something my father told me years ago, when I was just a kid:
 
@@ -148,7 +148,7 @@ Being around Samuel outside of work was ushering in a recurrence of my headache.
 
 But this was something else.  Out here, in the world and and in my car, suddenly cramped and airless, I felt like I was trapped with an unknown and thus unpredictable animal.
 
-I chided myself for the thought, it seemed so unkind—though odd, Samuel had never actually been unkind to me, aside from a jab about my shitty car, and that was nothing, really—and I was just about to drudge up some mindless bit of small talk to ease the guilt when he pointed to a spot the side of the road just ahead of us and said, “There he is.”
+I chided myself for the thought, it seemed so unkind—though odd, Samuel had never actually been unkind to me, aside from a jab about my shitty car, and that was nothing, really—and I was just about to drudge up some mindless bit of small talk to ease the guilt when he pointed to a spot on the side of the road just ahead of us and said, “There he is.”
 
 Duncan was a large man, tall and broad with an an athlete’s build that had just started leaning towards soft in late middle age.  Decked out head to toe in a polyester track suit, he walked two small white dogs on leashes, both obediently trotting behind him.
 
@@ -200,7 +200,7 @@ He turned to me, placid, almost bovine, except for the sharpness of his gaze; ca
 
 I wasn’t sure if he could hear me.  I didn’t know a Goddamned thing about first aid, but it seemed to me there was already more blood outside of him than in—I’d never seen that much spill from a person, even on the worst B-flick the horror industry could churn up—and my hands were slick with it.
 
-“Am ambulance would be a very bad idea, Joel,” Samuel said behind me.
+“An ambulance would be a very bad idea, Joel,” Samuel said behind me.
 
 “Fuck *off*,” I snapped.  “Just shut up.  Where’s my phone?  I need my—”
 
@@ -254,7 +254,7 @@ I froze.  Heat crept up my cheeks.  “Meaning?” I asked, my voice low.
 
 I stared at Duncan’s lifeless corpse.  Never had anything against the guy.  He was neither the world’s greatest boss nor the worst.  But I had an aging Mom to take care of and a warrant I’d fled from and couldn’t afford to have catch up with me, and as much as I wanted to be a Good Guy, the kind of guy my mother tried to raise me to be, the one who made the right choices even when the right choice fucked you in the ass …
 
-Well, sometimes you just need to be the guy that survives.
+Well, sometimes you just needed to be the guy that survived.
 
 “Fine,” I whispered.
 
@@ -426,7 +426,7 @@ It took a second to place it, that sound, really put my finger on what it remind
 
 Which made sense, much to my horror, because I swiftly realized that was precisely where it originated.
 
-A stack of old mail I’d laid on a table next to the living room window shuddered with the force of every thump—they were spaced approximately five seconds apart, and didn’t seem ready to stop—and the table legs creaked quietly along with the force of it.
+A stack of old mail I’d laid on a table next to the living room window shuddered with the force of every thump—they were spaced approximately five seconds apart, and didn’t seem ready to stop—and the table legs creaked with the strain.
 
 “The fuck,” I mumbled, voice low, the sort one uses exclusively for solitary, self-aimed conversation lest they be overheard.
 
@@ -446,13 +446,13 @@ When I was a kid, my Dad came back from Desert Storm.  Wasn’t too much going o
 
 They laughed, he said.  Laughed all the goddamn time even when there wasn’t anything to laugh about anymore.  Eventually they’d be dragged in for a psych eval, and they’d keep on laughing, and some of them—the lucky ones, maybe, or the not-so-lucky ones, depending on how you looked at it—would be shipped back home to their families and their local therapist, laughing all the way.
 
-“It’s the denial,” he’d said.  “When the horrible meats the absurd you find yourself terrified, and if you ask me, the only thing to do about that is laugh.”  He’d never talked much about his time in the desert, not before he fucked off and ran off with bartender from his local haunt, a 30-something blonde who was always nice to me but didn’t seem to have much interest in marrying a man with a pre-made family, but that was one thing that always stuck with me.
+“It’s the denial,” he’d said.  “When the horrible meets the absurd you find yourself terrified, and if you ask me, the only thing to do about that is laugh.”  He’d never talked much about his time in the desert, not before he fucked off and ran off with bartender from his local haunt, a 30-something blonde who was always nice to me but didn’t seem to have much interest in marrying a man with a pre-made family, but that was one thing that always stuck with me.
 
 Point is, I laughed.  I laughed really fucking hard, so hard my stomach ached, the muscles tense against my frame, though there wasn’t a single thing funny about this.
 
 The man I helped murdered, the one I buried in the woods, was standing at my living room window, bumping up against the glass like a depressed fish at the local aquarium.
 
-“Fuck you, Duncan,” I said through the laughter.  “Fuck *you*, Samuel.”  I let the blinds dropped, scooped up the two dogs—still barking frantically at the headless remains of their owner—and started walking up the stairs to my bedroom.
+“Fuck you, Duncan,” I said through the laughter.  “Fuck *you*, Samuel.”  I let the blinds drop, scooped up the two dogs—still barking frantically at the headless remains of their owner—and started walking up the stairs to my bedroom.
 
 Turns out you can do more than just laugh when you’re terrified.
 
