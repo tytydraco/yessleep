@@ -199,3 +199,5 @@ I gave them a wave and closed the door behind me.
 [x](https://www.reddit.com/r/Wine_Dark_Sea_1239/)
 
 [\[Part 3\]](https://www.reddit.com/r/nosleep/comments/12pt25g/i_dug_up_a_time_capsule_and_im_not_who_i_thought/)
+
+[\[Part 4\]](https://www.reddit.com/r/nosleep/comments/12ugx3m/i_dug_up_a_time_capsule_and_ive_seen_whats_beyond/)

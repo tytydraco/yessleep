@@ -1,4 +1,4 @@
-[\[Part 1\]](https://www.reddit.com/r/nosleep/comments/12i0czp/i_dug_up_a_time_capsule_and_now_i_deeply_regret_it/) [\[Part 2\]](https://www.reddit.com/r/nosleep/comments/12ku4cs/i_dug_up_a_time_capsule_and_now_i_need_to_find/) 
+[\[Part 1\]](https://www.reddit.com/r/nosleep/comments/12i0czp/i_dug_up_a_time_capsule_and_now_i_deeply_regret_it/) [\[Part 2\]](https://www.reddit.com/r/nosleep/comments/12ku4cs/i_dug_up_a_time_capsule_and_now_i_need_to_find/)
 
 Back at Catesby House, my phone safely charging, I called the police.  They were not too keen on visiting me for a second time that day, but when they heard what I had to report, they came quickly.
 
@@ -30,7 +30,7 @@ I wanted to protest, but I knew it would be useless.
 
 “There is no shortage of missing hikers and other wanderers in that forest,” said PC Owens smugly.  “Perhaps an animal uncovered an old skeleton and dragged it in the middle of the road.”
 
-They gave me information about the recovery of my vehicle, reminded me to call my insurance, and other boring things before finally leaving me alone.  I tried to remember the last time I had eaten something and realized I hadn’t had anything all day.  While I lamented the loss of the wheel of Sarah’s cheese that was still in my car, I was actually not that hungry at all, a fact that surprised me greatly.  I suppose I might have attributed that to adrenaline or nerves, but at the moment I was calm, strangely so. 
+They gave me information about the recovery of my vehicle, reminded me to call my insurance, and other boring things before finally leaving me alone.  I tried to remember the last time I had eaten something and realized I hadn’t had anything all day.  While I lamented the loss of the wheel of Sarah’s cheese that was still in my car, I was actually not that hungry at all, a fact that surprised me greatly.  I suppose I might have attributed that to adrenaline or nerves, but at the moment I was calm, strangely so.
 
 Once again, I found myself before the items from the time capsule, still on the kitchen counter, which the police had blessedly ignored.  I picked up the stiletto and ran my fingers along the blade and handle.  *What did you do, Richard?* I thought.
 
@@ -42,9 +42,9 @@ Zach sent me five pictures of paintings that looked very different from my mom�
 
 I sent the picture back to Zach asking him for the title.  *Oberon*, he responded.  *Miranda loved Shakespeare.*  He was right, though that love began with my maternal grandmother, who named my mother after a character in *The Tempest.*  Oberon came from another play, however, *A Midsummer’s Night’s Dream*.
 
-“King of the fairies,” I muttered to myself, bile rising in my throat.  
+“King of the fairies,” I muttered to myself, bile rising in my throat.
 
-I went upstairs to my bedroom and located a large cardboard box of family photo albums that I had not yet unpacked.  I dug through them, finally locating the one I wanted, with *Christmas 1993* printed on the spine.  My first and only Christmas at Catesby House.  I opened the album to a group photo: my grandparents and parents seated on a sofa in front of the Christmas tree, my mother with 10-month-old me on her lap.  It was a joyous picture, one of my favorites, everyone smiling, no indication of the rift that would form between the generations.  But I hadn’t pulled out the album to engage in nostalgia.  There were my father and grandfather, true Catesby Crows, as my father liked to say, dark hair, dark eyes, a long hawk-like nose.  My grandmother also had dark hair, though streaked with gray in the photograph, and brown eyes.  My mother’s hair was brown as well, only slightly lighter, her eyes also brown.  
+I went upstairs to my bedroom and located a large cardboard box of family photo albums that I had not yet unpacked.  I dug through them, finally locating the one I wanted, with *Christmas 1993* printed on the spine.  My first and only Christmas at Catesby House.  I opened the album to a group photo: my grandparents and parents seated on a sofa in front of the Christmas tree, my mother with 10-month-old me on her lap.  It was a joyous picture, one of my favorites, everyone smiling, no indication of the rift that would form between the generations.  But I hadn’t pulled out the album to engage in nostalgia.  There were my father and grandfather, true Catesby Crows, as my father liked to say, dark hair, dark eyes, a long hawk-like nose.  My grandmother also had dark hair, though streaked with gray in the photograph, and brown eyes.  My mother’s hair was brown as well, only slightly lighter, her eyes also brown.
 
 Then there was me.  An adorable baby with blonde hair and blue eyes.  My hair would darken as I age, my mother would say.  It never did.  I once dated a geneticist who told me that this sort of thing is not that simple, that plenty of children are born with distinctive features that might skip a few generations.  But looking at this picture alongside that painting filled me with dread, especially when viewed in the context of the other strange things that have been happening to me since I dug up the time capsule.  My heart ached thinking that I could never talk to my mom about this.
 
@@ -52,9 +52,9 @@ It was dark now.  I thought I should go to bed, even though I didn’t feel that
 
 I was walking through the forest, at the center of a procession, on either side of me were two lines of people with torches, dressed in the tunics, trousers and circular brooches of thousands of years ago.  We came to a clearing, the same clearing the women had lured me to earlier.  A stone altar was set in the center, stained a tell-tale deep red.  Behind it was a throne of woven branches on a stone dais.  I ascended and sat in it, the torch-bearers forming a circle around the clearing.
 
-Two burly men came forward with a man, dragging him by a rope tied around his neck.  The man was young and strong, but did not struggle beyond occasional sputters at his rope.  His captors brought him forward to me and knelt, speaking in a language I did not understand.  I extended my arm, decorated with a braided gold torque, and gestured for them to approach.  The torch bearers around me murmured eagerly. 
+Two burly men came forward with a man, dragging him by a rope tied around his neck.  The man was young and strong, but did not struggle beyond occasional sputters at his rope.  His captors brought him forward to me and knelt, speaking in a language I did not understand.  I extended my arm, decorated with a braided gold torque, and gestured for them to approach.  The torch bearers around me murmured eagerly.
 
-The men brought their captive to the altar.  I nodded and descended from the throne.  The men pulled the knot of the rope into the man’s neck, deeper and deeper, until he was gasping for air, his eyes bulging, veins in his eyes and forehead about to burst.  I raised a finger and the knot was loosened, the man choking, falling, but caught by his captors who hit him in the back of the head with a wooden club.  They placed the bleeding, unconscious man on the altar.  
+The men brought their captive to the altar.  I nodded and descended from the throne.  The men pulled the knot of the rope into the man’s neck, deeper and deeper, until he was gasping for air, his eyes bulging, veins in his eyes and forehead about to burst.  I raised a finger and the knot was loosened, the man choking, falling, but caught by his captors who hit him in the back of the head with a wooden club.  They placed the bleeding, unconscious man on the altar.
 
 An attendant brought me a small elaborate knife which I raised to the onlookers with a smile.  I gazed down at the man before me, his eyes staring forward blankly, his face twitching.  With one swift, graceful movement I brought the knife down and sliced open the man’s throat.  The people cheered as I absorbed their adulation, and watched the rich, red blood pool around the altar.  The man was dead.  I carefully dipped my hands in his blood and raised them.  They began to chant, and I felt…powerful.
 
@@ -90,7 +90,7 @@ A smile flickered across her face, but she still seemed tense.
 
 “So I’ve gathered,” I said.  “That is why we need to talk.”
 
-She nodded.  
+She nodded.
 
 “A little overcast for sunglasses, no?” She reached towards them, but I caught her hand perhaps a bit too forcefully.  Her eyes widened.
 
@@ -130,7 +130,7 @@ Now the fae would occasionally sneak away for mischief, stealing a horse here, s
 
 Alan nodded solemnly.  Barbara shifted on the bench, her face contorted in anger.
 
-“My grandmother was there,” she said, practically hissing at me.  “She was there in 1923, on the night he did it.  Your family’s maid, she was, a lass of sixteen.  He had asked his valet, no more than a boy, to help him dig in the garden.  Told him he had heard there was something valuable buried there and needed an extra pair of hands.  My grandmother watched as they dug a deep hole.  Richard directed the boy’s attention to something and while he wasn’t looking, he took out a knife and slit the boy’s throat.  Until her dying day, my grandmother remembered how that terrible man smiled, how he thrust the knife into the dead boy’s eye and placed a piece of paper in his mouth, tying the jaws shut with a piece of cloth.  
+“My grandmother was there,” she said, practically hissing at me.  “She was there in 1923, on the night he did it.  Your family’s maid, she was, a lass of sixteen.  He had asked his valet, no more than a boy, to help him dig in the garden.  Told him he had heard there was something valuable buried there and needed an extra pair of hands.  My grandmother watched as they dug a deep hole.  Richard directed the boy’s attention to something and while he wasn’t looking, he took out a knife and slit the boy’s throat.  Until her dying day, my grandmother remembered how that terrible man smiled, how he thrust the knife into the dead boy’s eye and placed a piece of paper in his mouth, tying the jaws shut with a piece of cloth.
 
 The sky then erupted and thunder shook the town.  My grandmother heard a violent clap and then the smell of something burning.  She ran out of Catesby House to see the belltower of St. Edward’s in flames, the people weeping bitterly.  She felt a menacing hand on her shoulder.  Richard was behind her, his lips at her ears.
 
@@ -152,15 +152,15 @@ Alan put up a hand to calm her.
 
 “When you came, lad, we thought that opening the capsule would break our curse.  That whatever evil pact Richard had made would come undone.  But as you said, that has not been the case.”
 
-“The time capsule was the catalyst,” I said slowly.  “Not for the undoing of the curse.  But for…something else.”  *Something within me is changing.  Something that lay dormant for a long time.*  
+“The time capsule was the catalyst,” I said slowly.  “Not for the undoing of the curse.  But for…something else.”  *Something within me is changing.  Something that lay dormant for a long time.*
 
 “You must give them what you owe,” Barbara said.  “We’ve been paying attention, William.”
 
 “I’ve noticed,” I said coldly.
 
-“I think that now both you and I know what that means,” Alan said, standing.  
+“I think that now both you and I know what that means,” Alan said, standing.
 
-I stood as well.  I took a step backward, ready to run.  Instead, something cold and excruciatingly painful was clamped on my neck.  I howled in agony.  *Iron.*  
+I stood as well.  I took a step backward, ready to run.  Instead, something cold and excruciatingly painful was clamped on my neck.  I howled in agony.  *Iron.*
 
 “I am so, so sorry, William,” Sarah said behind me.
 
@@ -171,3 +171,5 @@ My knees buckled underneath me, my body weakened, and I fell into the dark.
 Now, obviously, I’m writing this out, posting this here.  I’m alive and, perhaps more importantly, I have an internet connection.  Don’t worry needlessly.  But the next parts are hard.  Very hard.  I’ll post when I can.  Thanks for sticking with me here.
 
 [x](https://www.reddit.com/user/Wine_Dark_Sea_1239)
+
+[\[Part 4\]](https://www.reddit.com/r/nosleep/comments/12ugx3m/i_dug_up_a_time_capsule_and_ive_seen_whats_beyond/)
