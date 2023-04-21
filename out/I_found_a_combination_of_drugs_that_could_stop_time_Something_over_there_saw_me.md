@@ -54,4 +54,12 @@ I did as he said, feeling his eyeless gaze following me out as a flood of police
 
 When I hear of people going mysteriously missing without bodies ever being recovered, or freak accidents that can’t be explained, I wonder how many of them are due to these creatures between the moments of time we experience, eating the bodies or ripping out their throats. I wonder if even more horrifying creatures exist between moments of time that would drive me insane simply to look at them.
 
-Needless to say, after that, I never used psychedelics again. I had already seen too much.
+Later on, the next month, I saw my neighbor working in his yard. I still thought back to the man who had gotten his throat ripped out by the monstrous spider creature. 
+
+"Hey Mr. Taylor," I said. He nodded at me. Behind him, I saw the same dark silhouette of a being I had seen in the forest. It wasn't faced towards me this time, however.
+
+He was trimming his bushes with a hedge trimmer. Out of nowhere, I saw a skeletal hand reach out and grab his ankle. He screamed as he was pulled under the ground, an opening like the one I had seen in the forest being created as he disappeared from view.
+
+I ran over, frantically trying to help him, but he was gone. The humanoid shape only looked at me.
+
+"You have seen too much," it said to me coldly. "You shouldn't be able to see us. We will come for you next."
