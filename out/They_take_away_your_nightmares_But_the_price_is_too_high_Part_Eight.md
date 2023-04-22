@@ -1,4 +1,3 @@
-
 [Part Seven](https://redd.it/1217u99)
 
 **** 
@@ -130,3 +129,5 @@ No.  It was *The* Hyena.
 The thing’s black lips curled back suddenly as a terrible bubbling noise came from its throat and filled the space around us.  It wasn’t the same as what I’d expected—it was a hundred times wilder and more varied—but it did remind me of hyena noises I had heard before.  And whatever those noises might have meant to the animals, I knew what it meant to this thing.
 
 [It was laughing.](https://redd.it/9ndww5)
+****
+[Part Nine](https://redd.it/12va5pi)

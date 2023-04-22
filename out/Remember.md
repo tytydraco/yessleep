@@ -1,31 +1,101 @@
-I can't remember when it started. It was like a slow, creeping thing, something that slithered its way into my life and took hold of me. At first, it was just little things. I would forget where I put my keys, or the name of someone I had just met. But then it began to escalate.
+One of my favorite things to do is reflect on relics from my past. I'm not a tax-paying person as much as I'm a repository for late '90s to mid 2000s pop culture. The phrase "remember (x)?" is a mere formality for me. How could I forget Surge Cola, Vanessa Carlton, Jet Force Gemini, Paramount Kings Island, Grounded for Life, MySpace bulletins. Invader Zim, the Dude You're Getting a Dell Guy or Deep Blue Sea? How could anyone my age? We were there.
 
-It was like I was living in a haze, everything blurry and indistinct. I would look at my hands and they seemed foreign to me, like I was seeing them for the first time. Sometimes, when I looked in the mirror, I didn't recognize the face staring back at me.
+Most people have a fondness for "their" era and I guess I was no different. For my parents, my aunts and my uncles, the zeitgeist ended on the night of December 31st, 1989. I don't think my mom has listened to a song (other than Uptown Funk) that came out after Nirvana got together nor do I think my dad pressed a single button on a console released since the NES. What's funny is despite our assurance we'll be young and hip forever, time has a nasty way of proving us wrong.
 
-It was like I was disappearing.
+It was at my nursing job when I realized the exact distance I was now removed from "it." I'd been at this gig for over a decade and the staff turnover was starting to really expose my advancing age. I still remember scoffing when the middle-agers of my first days would flex over passing notes in school or their insistence that Dirty Dancing is the greatest movie ever. It was just ok. Luckily, I had some fellow Millennials as coworkers who served as my own echo chamber. We were 22 years old and still on top of the world.
 
-And then, one day, I woke up in a hospital bed. I didn't know how I got there, or what had happened to me. The doctors told me that I had been in a car accident, that I had suffered a head injury. But it didn't feel right. It was like they were keeping something from me, something that was just out of reach.
+Just seems like days ago.
 
-I was discharged from the hospital a few days later, but things didn't get any better. If anything, they got worse. I would wake up in the middle of the night, screaming, my heart pounding in my chest. I couldn't shake the feeling that something was watching me, waiting for me to let my guard down.
+Over time, we got more and more cynical. The music sounded blander and more depressing, the movies were all the same and we had no clue who any of the big celebrities on TikTok were. Eventually, flagbearers for this generation we didn't understand became old enough to work with us. Slowly but surely, it became clear we were now the very same "old" people we used to groan at. We tried to make conversation. We just couldn't do it. Even when it looked like we had something in common, it was a mirage.
 
-And then, one day, I saw it.
+"Awesome, I love the Vengaboys," I exclaimed when We Like to Party erupted from a 20 year old's phone. The band must have been experiencing a resurgence online.
 
-It was like a shadow, a shapeless thing that moved in the corner of my eye. At first, I thought it was just my imagination, a product of my damaged brain. But then it began to take form.
+"Oh, I don't know what this song is called but it's part of the Nut Shot Challenge," she said. This was the same girl who only knew Kelly Clarkson as "that woman my mom watches all the time."
 
-It was like a person, but not quite. Its limbs were too long, its fingers too sharp. It had no face, just a gaping maw that seemed to stretch on forever. And it was always watching me, always waiting.
+"Karson told me she thinks Shrek memes are cringey and has no interest in ever seeing the movie," my friend and fellow nurse Topher was surprised. "Didn't even get my reference about making waffles."
 
-I tried to tell people about it, but no one believed me. They thought I was hallucinating, that I was still suffering from the effects of my head injury. But I knew it was real. I could feel it in my bones.
+"How do you not even know about that scene at least through osmosis?" I added.
 
-It began to follow me, everywhere I went. It was like a shadow, always lurking just out of sight. I would catch glimpses of it in reflections, or see it darting around corners. And every time I saw it, I felt a cold, sickening fear in the pit of my stomach.
+"I know, right?"
 
-I began to withdraw from the world, staying inside my apartment for days at a time. I stopped answering my phone, stopped seeing my friends. The only thing that mattered was the shadow, and the terrible, creeping feeling that it gave me.
+But it was whatever. We had to reconcile that decades had passed since the things we held dear came out. Back during Christmas, I attempted to show my gamer Fortnite-loving cousin the hits of my day. Within 5 minutes of the Gamecube being out, he was bored to tears. He clowned on the graphics and I stuttered in defense, trying to remember if they looked that choppy when I was a kid. We didn't grow up on the same things and I guess that's ok.
 
-And then, one night, I woke up to find it standing at the foot of my bed.
+However, I thought I had some things in common with the younger crowd.
 
-I could feel its breath on my face, hot and putrid. Its eyes were fixed on mine, and I could feel the weight of its gaze like a physical thing. And then it spoke, its voice a low, rumbling growl.
+In the breakroom at lunch, I noticed Fallon had brought in some food from Terry's Classic Burgers. There was something that never went out of style. The chain was just as big as it had been in my youth. Millions still ate there every day. However, the fries, in my opinion, were much too salty now and the constantly inflating prices were a big turnoff. The most offensive change was the brown bag that folded lifelessly on the table.
 
-"Remember."
+"Y'know," I reminded, expecting my next words to be common knowledge. "Terry's used to be green."
 
-And then it was gone.
+"Ew, like that ketchup my mom always talks about?"
 
-I don't know what it means. I don't know what it wants from me. All I know is that it's always there, watching, waiting. And I'm afraid that one day, it will consume me completely.
+"No," I replied, shocked. "Not the food. The packaging. It used to be fluorescent green."
+
+"Really?"
+
+"Yep!"
+
+"ok"
+
+My jaw hit the floor. The rebrand had happened in this child's life. Surely she had a very faint memory of that colorful covering. In fact, Terry's had been green for 60 years. No matter how much time had passed, I still thought of it as being green as did many who came before me. I turned over to Topher, needing some backup.
+
+"You remember it being green, don't you?"
+
+"Of course I do!"
+
+That affirmative response gave me some relief but I couldn't shake the ignorance of major American history. What else was this generation ignorant of? Sam Raimi's Spider-Man trilogy? WrestleMania X7? Woodstock '99? Did they even know what Ozzfest or Date My Mom were? The rabbit hole chilled me to the bone. I felt like I was in the Twilight Zone. Calling my siblings, I was thrilled to hear my brother definitely recalled Green Terry's. The response of my sister, a year older, gave me a spook.
+
+"I think so?"
+
+Scared for a minute, I remembered Ramona was a total airhead. This was an outlier. She thought Jurassic Park was a real place until she was 24 and had briefly joined an activist group who wanted to free the caged dinos. Bobby wasn't the most cognizant person in the world either so his remembrance gave me great hope. If he remembered it, I wasn't crazy. Of course I wasn't!
+
+Or I didn't think I was.
+
+"Can you believe Fallon didn't know Terry's used to have green packaging?"
+
+"Did it?" Topher played dumb and showcased his signature sarcastic humor.
+
+"Yep. Poor kid had no idea."
+
+"Huh, neither did I."
+
+"Ok, man, this joke is gonna dry up pretty soon."
+
+"What joke?"
+
+"Dude, stop."
+
+"It really wouldn't make sense for a restaurant to have green packaging. Was this like a promotion they did for the Kids' Choice Awards or something?"
+
+"No, they did it for years; decades!"
+
+"So it wasn't a limited time thing?"
+
+"No! The Shaq Pack was an LTO. This was like their whole fuckin' brand."
+
+"What's the Shaq Pack?"
+
+By now, I was in full panic mode. Topher knew what the Shaq Pack was. We had been pals since elementary school. I saw him order a bunch when we were kids. That's where those cheesy fries you shook for yourself came from. They were a vital part of the formative years of people our age. Everyone remembered them. Everyone!
+
+"Look, I'll pull it up right now," I frustratingly groaned as I took my phone out, knowing damn well I shouldn't have had to.
+
+No results for "Terry's Classic Hamburgers green."
+
+"I don't understand?"
+
+"Maybe it was a dream?"
+
+"It wasn't a damn dream! It was our whole childhood. Green Terry's and Splashdown Water Park?"
+
+"What's Splashdown Water Park?"
+
+"Are you shitting me?"
+
+Again, no results on Google.
+
+This was a cruel joke. Fallon had been so amused by making me feel much older than I am and was now at the center of a conspiracy against me. I called off for the rest of the day and hightailed it home, sweating from my Kafkaesque quagmire. I needed some comfort; an old movie from my past. Rat Race. Perfect. They didn't remember it but I did.
+
+"The title you're looking for does not exist," my Roku laughed.
+
+I dropped to my knees and called my brother, asking him for the second time in two days if he remembered when Terry's bags were green.
+
+"No, bro, they've always been white."
