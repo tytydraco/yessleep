@@ -424,4 +424,4 @@ It’s been a few years since this all happened, and I’ve made it through the 
 
 I’m eternally grateful for his sacrifice, yeah, but I can’t help but think that it was only our lives that were saved from the Skorstendyr. Are there more of them, or is it somehow able to relocate itself? Only my grandpa would have answers, but… yeah.
 
-Just in case; if you find yourself out in the wilderness and you see a steady plume of smoke rising from the trees, perhaps even smell the organic stench of digestion, it’d be best to call off the occasion entirely. Once it’s onto you, well, [I only hope you’re as lucky as we were on the day my grandpa died.](https://www.reddit.com/r/rephlect/comments/12v6x47/smoke_pluming_from_the_woods/)
+Just in case; if you find yourself out in the wilderness and you see a steady plume of smoke rising from the trees, perhaps even smell the organic stench of digestion, it’d be best to call off the occasion entirely. Once it’s onto you, well, [I only hope you’re as lucky as we were on the day my grandpa died.](https://www.reddit.com/r/rephlect/)
