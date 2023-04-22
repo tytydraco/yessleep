@@ -72,13 +72,15 @@ When I didn’t reply, or rather couldn’t reply, knowing I was losing my best 
 
 The last thing I wanted was to walk away from a life-long friendship over a guy. But this was Adam. Adam, who was the most out of touch person I had never met. Adam, who snorted when I said I couldn’t pay for my phone contract—and then offered to pay the whole thing for me. These were not nice things. 
 
-He knew exactly he was doing, and that was putting me in my place and reminding me that I was lesser than him. Fuck, he even did it with Astrid when they started dating, laughing when she mentioned her mom’s house wasn’t mortgaged, and then asking if she was being serious.
+He knew exactly what he was doing, and that was putting me in my place and reminding me that I was lesser than him. 
+
+Fuck, he even did it with Astrid when they started dating, laughing when she mentioned her mom’s house wasn’t mortgaged, and then asking if she was being serious.
 
 Not to mention, I had no idea what his family were like. Astrid said she loved all of them, and had met them numerous times, but when I asked what they were like, she either changed the subject, or smiled and said, “They’re just nice! I love them!”
 
 I did agree to go to the wedding. After a lot of thought I came to the realization that I was being childish, and she was my best friend.
 
-I didn’t want thing to move so fast, but of course they did. One minute the two of us were eating Thai food and watching trashy Netflix shows talking about the wedding playlist, and the next, Astrid was skipping class for sudden, unexpected trips to France, where her dress was being made and fitted by only the top designers, which Adam had mentioned only a thousand fucking times. He made it his mission to tell me my dress would have to be store bought from a boutique, because his mom didn’t know me well enough to include me in the fittings. Astrid, however, had called him out on it, and insisted on all of the bridesmaid dresses being from the boutique. 
+I didn’t want things to move so fast, but of course they did. One minute the two of us were eating Thai food and watching trashy Netflix shows talking about the wedding playlist, and the next, Astrid was skipping class for sudden, unexpected trips to France, where her dress was being made and fitted by only the top designers, which Adam had mentioned only a thousand fucking times. He made it his mission to tell me my dress would have to be store bought from a boutique, because his mom didn’t know me well enough to include me in the fittings. Astrid, however, had called him out on it, and insisted on all of the bridesmaid dresses being from the boutique. 
 
 For which he paid. Obviously. 
 
@@ -98,7 +100,7 @@ Magical.
 
 I never really understood her words until I saw the set-up; rows of pearly white benches canopied by cherry blossom trees strung with lights emitting a soft white glow. The benches themselves were tangled with wildflowers and greenery, vines and tendrils wrapped around the armrests. Entranced by the sight in front of me, I had a moment where I realized my best friend was going to walk down the aisle I was standing on and give herself to a man, and a family I despised. I should have felt happy for her, but all I could really feel was frustration and a twist in my gut which was definitely jealousy.
 
-Luckily, alcohol exists, and the rehearsal dinner wasn’t as bad I’d thought. I spent most of the night on the dance-floor with Astrid, until Adam’s mother, a witchy like woman with a patient smile, pulled her away to go over last minute preparations. So, I retreated to the snacks table, had to be the most obnoxious food possible. I didn’t think it was possible to roast a full pig, but the sight of it sitting with an apple lodged in its mouth made me nauseous.
+Luckily, alcohol exists, and the rehearsal dinner wasn’t as bad I’d thought. I spent most of the night on the dance-floor with Astrid, until Adam’s mother, a witchy like woman with a patient smile, pulled her away to go over last minute preparations. So, I retreated to the snacks table, which had to be the most obnoxious food possible. I didn’t think it was possible to roast a full pig, but the sight of it sitting with an apple lodged in its mouth made me nauseous.
 
 I knew I was being unsociable, but the other guests made no effort to speak to me, and if they did, it was to look me up and down with a wide smile which didn’t need words. “Why are you here?” Their expressions screamed. They knew who Astrid was, squealing and hugging her like they had been best friends their entire lives. But when I tried to join in or offer my name, I was greeted with dead eyed stares.
 
@@ -186,9 +188,13 @@ Her smile radiated. “You’re Penny, right? You can call me Evelyn, or Evie, o
 
 “It’s the exact same as yours.” Spencer deadpanned.
 
-In response, she thwacked him. From the look on his face, which was barely fazed, I could tell this kind of thing happened a lot between them. The way Evangeline looked at him with starry eyes which definitely had been attached to him since the two of them and Adam were kids, while Spencer was oblivious—or maybe aware and didn’t have the same feelings. I did notice his gaze kept scanning the crowd for Adam, and then I wondering what relationships had happened between the three.
+In response, she thwacked him. From the look on his face, which was barely fazed, I could tell this kind of thing happened a lot between them. The way Evangeline looked at him with starry eyes which definitely had been attached to him since the two of them and Adam were kids, while Spencer was oblivious—or maybe aware and didn’t have the same feelings. 
 
-It was weird being around three kids who had clearly been close in the past and were now reduced to practically stranger’s at their best friend’s wedding. However,  I was intrigued by what Spencer meant when he referred to Adam’s family as “psychotic.” Before I could speak up and snap him out of the trance he’d fallen into, his eyes suddenly on the sky—Evangeline whispered, “It’s starting!” and I twisted around with the rest of the wedding party to see Astrid. I remember thinking it was magical how the moon illuminated her, turning her ethereal as she floated down the aisle. 
+I did notice his gaze kept scanning the crowd for Adam, and then I was wondering what relationships had happened between the three.
+
+It was weird being around three kids who had clearly been close in the past and were now reduced to practically stranger’s at their best friend’s wedding. However,  I was intrigued by what Spencer meant when he referred to Adam’s family as “psychotic.” 
+
+Before I could speak up and snap him out of the trance he’d fallen into, his eyes suddenly on the sky—Evangeline whispered, “It’s starting!” and I twisted around with the rest of the wedding party to see Astrid. I remember thinking it was magical how the moon illuminated her, turning her ethereal as she floated down the aisle. 
 
 But then I wasn’t thinking of anything. I was only thinking of Astrid, and how angelic she looked. I caught her radiating smile, and it hit me that I could let go of my hatred for Adam if it meant she was going to be happy. I promised her. Hours earlier, the two of us had sat together after crying and sharing memories of mock weddings we used to do as little kids.
 
@@ -358,7 +364,7 @@ I started to walk, stumbling over myself.
 
 “Killed me.” The words wouldn’t fully register in my head. “You… killed me.”
 
-I could see the river which stretched into the sky. My steps quickened as I stumbled over myself to get to it. It wasn’t until I was wading into the shallows, did the memory finally come over me. “You fucking killed me, you psycho bitch!” 
+I could see the river which stretched into the sky. My steps quickened as I stumbled over myself to get to it. It wasn’t until I was wading into the shallows, did the memory finally come over me. “You fucking killed me."
 
 I rolled up my dress to look at my stomach wound, but it was gone. “What did he do to you? Adam. What did that bastard to your head?” My breath was strangled. “But if you… if you killed me, how am I here?!”
 
