@@ -1,3 +1,7 @@
+Part 2 here:  [My girlfriend never let me touch her - until tonight. (Part 2, Final) : nosleep (reddit.com)](https://www.reddit.com/r/nosleep/comments/12vlrje/my_girlfriend_never_let_me_touch_her_until/) 
+
+&#x200B;
+
 My new girlfriend, Anna, is kind of odd.
 
 To begin with, she just almost literally showed up out of nowhere. Well, alright, at that party at Jeff's. But no-one seemed to know exactly where she came from. She was just - there.
