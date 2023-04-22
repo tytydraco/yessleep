@@ -39,3 +39,5 @@ Every single part of my body still hurting, I got out of the bathroom and tried 
 I was thinking that maybe I could reach the section of the plane that carried the bags, or something, I was mostly just wandering around aimlessly in the plane when I saw a boy hiding between 2 rows of seats, he was around 14-15, I couldn’t really tell, he was curled up into a ball, just shaking and seemed to scared to speak, I couldn’t let him see that I was scared as well, so I have been sitting here for a while, typing this out on my phone now, occasionally trying to get him to calm down, reassure him that we are going to find out what is really going on, somehow I actually have 2 bars of signal now, but they keep coming and going, the boy seem to be a bit calmer, however I think I need to go now, there is a weird low scratching sound, I can’t tell exactly where it’s coming from, but I’ll update you guys again when I can.
 
 /Ken
+
+Update : [Some more things has happened](https://www.reddit.com/r/nosleep/comments/12v1r5b/ive_been_stuck_in_an_airplane_for_the_past_9/)
