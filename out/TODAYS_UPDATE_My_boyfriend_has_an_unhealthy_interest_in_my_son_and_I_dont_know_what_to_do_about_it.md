@@ -56,6 +56,12 @@ My muscles petrified as his legs slowly moved. *Oh God,* I thought, *he’s stil
 
 I looked in every direction – but no one else was there. Whoever had done this took under three minutes and had left us alone in the room, wondering what to do next as Jordan’s warm tears dampened my ribs while I pressed his face against my shirt.
 
+-------------
+
+[This is how things ended](https://redd.it/12v63ui)
+
+------------
+
 [FB](https://www.facebook.com/P-F-McGrail-181784199029462/)
 
 [BD](https://www.reddit.com/r/ByfelsDisciple/)
