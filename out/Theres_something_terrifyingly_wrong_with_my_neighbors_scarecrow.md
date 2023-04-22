@@ -48,7 +48,7 @@ The next morning, when I was walking to my truck to head to work, I looked towar
 
 It was quite a distance away from my house so I could only see the upper torso through the cornfield. What I could see of it seemed quite ragged, as if someone had taken decades-old clothes and aimlessly sewn them together.
 
-Straw shot up and out from its neck and wrists, giving its silhouette a jagged appearance. I couldn’t exactly make out what its face looked like, but I had no time to further examine it as I had to leave for work.
+Straw shot up and out from its neck and wrists, giving its silhouette a jagged appearance. I couldn’t exactly make out what its face looked like though, since I had no time to further examine it as I had to leave for work.
 
 A week had passed by without an issue and each day, as I’d head out to my truck, I’d spot the scarecrow still and silently doing its job.
 
