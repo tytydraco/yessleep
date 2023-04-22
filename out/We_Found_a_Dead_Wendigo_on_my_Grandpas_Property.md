@@ -378,9 +378,9 @@ My exhausted brain couldn’t fathom a single thing to say. I just listened, alm
 
 He was cut off by a tremendous splash, but the sound quality at this point made it sound more like a roar. I could only hear his whimpers, until that hissing trill crawled its way under my skin once more. It melded with the audio glitches. But then, I heard something I never could have expected, even after seeing what I’d seen.
 
-“*Ck-ck-ck-krrrr… Sssss… S. Thi-imb-ck-ck…”* it sounded as if the creature was stuttering, clearing its throat, before,
+“*Ck-ck-ck-krrrr… Sssss… S. Raaa-ck-ck…*” it sounded as if the creature was stuttering, clearing its throat, before,
 
-“*Exxx-alted be rrr…* ***Ra’odyth***\*. It-t-ts flow showsss us, ck-ck-ck, the path.”\*
+“*Exxx-alted be rrr… **Ra’odyth**. It-t-ts flow showsss us, ck-ck-ck, the path.*”
 
 It spoke. The unearthly, nightmare beast had *spoken*. Its words were jarring, like it was repeating after someone teaching it how to talk, broken by animalistic clicks and hisses.
 
