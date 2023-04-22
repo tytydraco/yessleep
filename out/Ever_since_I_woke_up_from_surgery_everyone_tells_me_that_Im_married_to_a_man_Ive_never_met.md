@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/12vadf7/ever_since_i_woke_up_from_surgery_everyone_tells/)
+
 It’s been ten months since I first remember meeting Brandon, but, according to the rest of the world, he and I became a couple three years ago.
 
 It all started after the surgery. When I awoke from my anesthesia-induced sleep, I nodded groggily as the doctor listed common post-operative symptoms – like drowsiness, dizziness, and disorientation. Then, two nurses wheeled me down an elevator, through the main lobby, and outside the hospital.
