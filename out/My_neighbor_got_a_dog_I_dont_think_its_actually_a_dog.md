@@ -42,7 +42,7 @@ This dog… didn’t make that sound.
 
 No clicking of nails against the wooden floor. Just… sort of a dull *thump, thump, thump* with each step.
 
-I glanced back at Toto. And I realized his movements were a little odd, too. His steps were a little jerky, a little stiff, a little clumsy for a dog of his build. He wasn’t limping or anything—just, overall, the movements didn’t look quite right. 
+I glanced back at Toto. And I realized his movements were a little odd, too. His steps were a little jerky, a little stiff, a little clumsy for a dog of his build. He wasn’t limping or anything—just, overall, the movements didn’t look quite right.
 
 “Hope you like snickerdoodles,” Jack said, pulling the tray out of the oven.
 
@@ -96,7 +96,7 @@ But this time, his black, glassy eyes sent chills down my spine.
 
 “I swear. There’s something fucked up about that dog.”
 
-The girls were asleep, and Mandy and I were enjoying some much-needed quality time. We sat on the couch with a bottle of wine, an episode of The Office in the background as we talked about our days. 
+The girls were asleep, and Mandy and I were enjoying some much-needed quality time. We sat on the couch with a bottle of wine, an episode of The Office in the background as we talked about our days.
 
 Mandy was surprisingly interested in the story. “So you’ve never heard him bark?”
 
@@ -159,3 +159,5 @@ Looking incredibly angry.
 I don’t know what he wants. But I think he knows that I know. That for some reason, he’s keeping what appears to be a full-grown man in his house, wearing a dog costume and pretending to be a dog.
 
 Because when I went over there that night, still tipsy from the wine… I totally forgot he has [security cameras.](http://www.reddit.com/r/blairdaniels)
+
+[Update here](https://www.reddit.com/r/nosleep/comments/12vp6zv/my_neighbor_got_a_dog_i_dont_think_its_actually_a/)

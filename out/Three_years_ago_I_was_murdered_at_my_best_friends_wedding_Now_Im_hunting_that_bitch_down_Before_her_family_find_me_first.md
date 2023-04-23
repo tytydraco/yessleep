@@ -300,13 +300,13 @@ I was trying not to choke on my own blood, but her words stayed with me, cementi
 
 3 years
 
-1095.73 dayz
+1095.73 days. 
 
 And
 
 1,000+ deaths later.
 
--
+... 
 
 “Penn? Can you get up?"
 
