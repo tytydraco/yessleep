@@ -62,7 +62,13 @@ Finally, the circle came out the bottom of whatever arcane tunnel we were in. It
 
 What looked like lines of long ants trudged forward below me. But as the circle of blood-soaked earth slowly descended through the air, floating down even though nothing was there to support it, I realized I wasn’t looking at ants at all, but people. Millions and millions of people were moving forward slowly, trudging along without interest, their eyes dead and their faces blank.
 
-Looking farther out, I saw huge pyramids being built by the enslaved masses. Some of them looked like they soared thousands of stories into the air. I saw dark-green and black reptilian gods hundreds of feet tall, tentacles whipping out of their mouths as they surveyed the masses. Flying monstrosities circled the assembled lines, looking like pterodactyls in some ways, but with glowing red eyes and dozens of whipping, razor-sharp tails. If anyone stepped out of line, the flying monstrosities would swoop down and pick them up, biting them in half or taking them away to destinations unknown.
+Looking farther out, I saw huge pyramids being built by the enslaved masses. Some of them looked like they soared thousands of stories into the air.
+
+I saw dark-green and black reptilian gods hundreds of feet tall, tentacles whipping out of their mouths as they surveyed the masses. Their wings moved languidedly behind them, stretched skin pushing out a soft breeze as the gargantuan, bat-like wings moved up and down. Claws bigger than a man appeared on the feet and hands of all these ancient gods, and I saw their likeness carved into many of the pyramids or sculpted into huge works of art.
+
+An odor like ozone, sulfur, copper and iron filled this entire wretched place, blowing on the wind underneath the black and red swirls of the sky.
+
+Flying monstrosities circled the assembled lines, looking like pterodactyls in some ways, but with glowing red eyes and dozens of whipping, razor-sharp tails. If anyone stepped out of line, the flying monstrosities would swoop down and pick them up, biting them in half or taking them away to destinations unknown.
 
 My circle came slowly to the ground, landing softly. In the nearest line of people, I saw my wife, holding my infant son, trembling. Her eyes were wide and unseeing.
 
@@ -79,3 +85,5 @@ My circle came slowly to the ground, landing softly. In the nearest line of peop
 After another few minutes, the circle had finished ascending, dropping me back into my backyard. The Pale One stood there, her smiling skull of a face looking out at me.
 
 “Are you… OK?” she asked me mockingly, her harsh, grating laughter starting up again. “I just… wanted to help.” I could do nothing else but fall on my knees, weeping.
+
+I knew, in that moment, that we could never be a family again.
