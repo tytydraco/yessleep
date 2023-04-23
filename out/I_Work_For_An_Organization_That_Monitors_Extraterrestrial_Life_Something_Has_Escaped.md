@@ -674,4 +674,4 @@ The Supremacy will come for her again, this I’m sure of. And when they do… I
 
 &#x200B;
 
-[For Gary.](https://www.reddit.com/r/HeadOfSpectre/)
+[For Gary.](https://www.reddit.com/r/nosleep/comments/12w3hz5/i_work_for_an_organization_that_monitors/)
