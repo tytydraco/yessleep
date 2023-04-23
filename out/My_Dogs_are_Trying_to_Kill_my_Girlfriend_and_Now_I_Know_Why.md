@@ -32,11 +32,11 @@ They timidly scurried off, tails between their legs.
 
 “Yeah, maybe.”
 
-We cuddled and watched cheesy rom coms for the remainder of the night. Benny and Rose were oddly absent, opting to remain in my room. I was unsettled by their attitude toward Megan. The visual of their minatory growling lingered in my mind. As Megan and I climbed into bed, I tried my best to push it out of my mind. The dogs didn’t stir. Maybe it really was just a repugnant scent.
+We cuddled and watched cheesy rom coms for the remainder of the night. Benny and Rose were oddly absent, opting to remain in my room. I was unsettled by their attitude toward Megan. The visual of their minatory growling lingered in my conscious. As Megan and I climbed into bed, I tried my best to push it out of my mind. The dogs didn’t stir. Maybe it really was just a repugnant scent.
 
 “OW!”
 
-I was ripped from my slumber by an anguish cry. My eyes shot open. My heart palpitated wildly upon soaking in the scene before me. Megan sat on the edge on the bed, whimpering while clutching her hand close to her quivering frame. Benny and Rose glowered at her from the doorway, still as statues.
+I was ripped from my slumber by an anguished cry. My eyes shot open. My heart palpitated wildly upon soaking in the scene before me. Megan sat on the edge on the bed, whimpering while clutching her hand close to her quivering frame. Benny and Rose glowered at her from the doorway, still as statues.
 
 “Baby, what happened!? Are you okay?”
 
