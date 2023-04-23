@@ -1,5 +1,7 @@
 [Part 1](https://www.reddit.com/r/nosleep/comments/112j4ep/ever_since_i_woke_up_from_surgery_everyone_tells/)
 
+[Part 3](https://www.reddit.com/r/nosleep/comments/12wgxop/ever_since_i_woke_up_from_surgery_everyone_tells/)
+
 I spent the first few weeks in the hospital in a state of resignation. I said little and occupied my many bedridden hours staring emptily at the tile ceiling.
 
 My head ached, my ribs were sore, and my legs were barely responsive. But when I cried, it wasn’t because of the physical pain. Every cautious, careful decision I’d made had been for nothing. I felt checkmated, with no way out and nowhere to hide.
@@ -58,7 +60,7 @@ Jean was in a neck brace, and bruises covered much of his face. “I’m so sorr
 
 I asked him the question that had been bothering me ever since I awoke at the hospital. “Jean, I need to know why he’s keeping me around. You said Grousel gets his power from fooling people. But I *know* it’s all an act now. So, what’s in it for him?”
 
-“He invested heavily in you…” Jean stopped to catch his breath before continuing. “He won’t give up until he knows that you’re…that you’re a lost cause. He may wait until he has another target. Play along…convince him that you believe him…that will buy you some time.” 
+“He invested heavily in you…” Jean stopped to catch his breath before continuing. “He won’t give up until he knows that you’re…that you’re a lost cause. He may wait until he has another target. Play along…convince him that you believe him…that will buy you some time.” 
 
 “I need to know how to kill him. Can he be shot, or stabbed?”
 
@@ -84,7 +86,7 @@ Martin spoke in the same nauseatingly high-pitched voice I’d grown to loathe o
 
 “Child…you must be lost,” responded Jean.
 
-“No, I don’t think so,” said Martin, as he slowly approached Jean. 
+“No, I don’t think so,” said Martin, as he slowly approached Jean. 
 
 “Who are you, child?”
 
@@ -102,7 +104,7 @@ Jean yelled expletives as he hit the nurse call button.
 
 “*That won’t do you any good*.” The voice that resounded from Martin sounded nothing like it had before. It was deep, but with a wispy echo that caused every word to reverberate with an unnatural energy. “*They won’t be coming to help you. I’ve disabled everything in here.*”
 
-Martin’s form changed. His skin liquified and melted into a thin layer of bloody residue, exposing underneath it a body made of murky green scales. Horns grew from the forehead of his new, angular face. A set of pink wings burst through his shirt. His fingers stretched and curved as they transformed into long, sharp claws. Meanwhile, the flesh they held – which had once been the face of the child claiming to be my own – solidified into a circular wooden oval. 
+Martin’s form changed. His skin liquified and melted into a thin layer of bloody residue, exposing underneath it a body made of murky green scales. Horns grew from the forehead of his new, angular face. A set of pink wings burst through his shirt. His fingers stretched and curved as they transformed into long, sharp claws. Meanwhile, the flesh they held – which had once been the face of the child claiming to be my own – solidified into a circular wooden oval. 
 
 “*What*…*what are you?*” asked a panicked Jean.
 
@@ -158,7 +160,7 @@ In time, my health had improved to the point that I could leave the house for sh
 
 I still kept up the act of being in worse shape than I was. Stairs, in particular, I pretended to need extensive help with. Brandon happily obliged, holding me lovingly around the waist and shoulder as he helped me climb up to our bedroom every night.
 
-I spent my days caring for a monster I pretended to love. Having no actual prior experience with childcare, I had to learn fast. Martin cried, threw fits, and generally left me exhausted. Nonetheless, I tried to treat him affectionately as I dressed him, worked with him on potty training, and read to him. 
+I spent my days caring for a monster I pretended to love. Having no actual prior experience with childcare, I had to learn fast. Martin cried, threw fits, and generally left me exhausted. Nonetheless, I tried to treat him affectionately as I dressed him, worked with him on potty training, and read to him. 
 
 Once, while picking up his stuffed animals, I felt a small, solid object on the inside of a purple rabbit he liked to hold while he slept. “Give me Mr. Boots!” commanded Martin, before I had a chance to investigate further. “Of course, sweetie,” I said, praying that whatever was inside of it was a choking hazard.
 
@@ -174,7 +176,7 @@ I rarely got much sleep.
 
 \~
 
-As part of my loving wife and mother act, I’d insisted on giving Brandon a break by taking Martin to a preschool friend’s birthday party at a neighbor’s house. After an hour, the noise of the many screeching children ignited a raging headache in me. It didn’t help that another mother kept talking my ear off despite my many attempts to evade her. 
+As part of my loving wife and mother act, I’d insisted on giving Brandon a break by taking Martin to a preschool friend’s birthday party at a neighbor’s house. After an hour, the noise of the many screeching children ignited a raging headache in me. It didn’t help that another mother kept talking my ear off despite my many attempts to evade her. 
 
 “I hear you’re forgetten’ things again?” she screeched. “Personally, I don’t get it. Nothing could ever make me forget about my Samantha. She’s the most important thing in the world to me!”
 
@@ -184,7 +186,7 @@ From outside, I looked in through the glass. Among the children stood a figure I
 
 As the kids thronged around a box labeled “party favors” that it placed in the room’s center, the cat turned towards me. Fear instincts kicked in as it locked its large, nightmarishly red eyes onto me and proceeded to move in my direction.
 
-I backed up until I hit the porch railing. Meanwhile, the costumed figure kept on coming. Fumbling awkwardly against the handle, it opened the front door and continued approaching me. 
+I backed up until I hit the porch railing. Meanwhile, the costumed figure kept on coming. Fumbling awkwardly against the handle, it opened the front door and continued approaching me. 
 
 My heart throbbed as the cat slowly extended a long, furry arm towards me. To my relief, it merely placed a small goodie bag at my feet before returning silently to the party.
 
@@ -208,7 +210,7 @@ Before I had a chance to act, Martin ran up to me excitedly. “My bag had gummi
 
 \~
 
-The party ended soon after, and I didn’t see the costumed figure again. 
+The party ended soon after, and I didn’t see the costumed figure again. 
 
 The words from the note ran through my mind as I drove Martin home. I had no better idea than to follow its instructions, but locating Brandon’s book – and the key I would need to unlock it – would be no easy task. And what ‘dinner’ did I need to survive until, and what “truth” did I need to confess?
 
@@ -216,7 +218,7 @@ I didn’t have to wait long for a few answers. It was around eight at night, ju
 
 I played it cool. Naturally, I wondered if they remained under Brandon’s control, or if they were there to help me. Had one of them been in the costume?
 
-Olivia announced that she had major news, revealing a rose gold ring with a deep purple diamond around her finger. 
+Olivia announced that she had major news, revealing a rose gold ring with a deep purple diamond around her finger. 
 
 “I had no idea!” I exclaimed, a little hurt that I hadn’t even known Olivia was seeing anyone seriously.
 
@@ -378,7 +380,7 @@ I thought about what I’d read in Brandon’s book, his recent advances, and hi
 
 But there was one idea worth trying – something that could keep me alive long enough to have a chance at escape. After all, if whatever was set to transpire at the dinner party didn’t work, I was as good as dead anyway.
 
-“Brandon, is that you?” I used as innocuous a voice as I could muster. As I spoke, I kept my head buried in my pillow. I didn’t want him to think I’d seen anything. “There’s something I’ve been meaning to tell you. Something important.” 
+“Brandon, is that you?” I used as innocuous a voice as I could muster. As I spoke, I kept my head buried in my pillow. I didn’t want him to think I’d seen anything. “There’s something I’ve been meaning to tell you. Something important.” 
 
 The chanting ceased. “Sorry if I woke you, April,” said Brandon. “I was just talking to myself. What is it?”
 
