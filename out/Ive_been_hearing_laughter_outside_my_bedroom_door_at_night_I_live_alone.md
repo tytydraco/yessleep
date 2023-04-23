@@ -71,6 +71,7 @@ It’s inside me now. The laughter is sounding inside my head.
 
 Already my limbs are stretching, my face is become paper-white and I’m smiling a lot more.
 
+
 The men are still laughing. They’re laughing to a joke no one else gets
 
 But I get it now. It’s hilarious.
@@ -78,3 +79,10 @@ But I get it now. It’s hilarious.
 I don’t feel sad about my transformation, I love it. It’s hilarious
 
 It’s so damn funny, that I just can’t stop laughing
+
+
+Posting this will likely become the last thing I do. Regardless, I have to do it, to spread the infection, to spread the disease.
+
+Because you see, if you've seen this post, lock your doors tonight
+
+The Laughing Men are coming

@@ -4,13 +4,13 @@ My boyfriend and best friend, Emmett, works the graveyard shift at a 24-hour Tim
 
 Emmett raises a brow. "Where? YourGhostStories.com? Does that place even still exist?"
 
-"Oh, God, I forgot about that website," I say, laughing. "I wrote fake stories there as a kid. People actually believed them, too. A few even accused me of being evil or something 'cause I had the word "devilish" in my username."
+"Oh, God, I forgot about that place," I say, laughing. "I wrote fake stories there as a kid. People actually believed them, too. A few even accused me of being evil or something 'cause I had the word "devilish" in my username."
 
 Emmett chuckles and shakes his head. "Troglodytes."
 
-I grin and lean against his shoulder. "Reddit. There's a place dedicated to creepy stories."
+I grin and lean against his shoulder. "Reddit. There's a page dedicated to creepy stories."
 
-"What, nosleep?" Emmett puts an arm around me, pulling me closer. "That's for fiction, Isla."
+"Reddit. Mhmm." Emmett puts an arm around me, pulling me closer. "Not a website with a stellar reputation, Isla."
 
 "So?" I look up at him. After 9 years of being together, he still gives me butterflies.
 
@@ -20,7 +20,7 @@ I shake my head. "I *do* believe it! I just don't think it's fuckin' ghosts, Emm
 
 "—a rational explanation, as you love to say," Emmett finishes. "Sugar, you don't work there. It's not really your place to pass judgment."
 
-"All right," I say, standing up. "I'm not going to argue with you about this. I love you, and I love it when you tell me about your Timmie's specter. And I want to share him with other people. Why's it matter if they don't believe in him? That doesn't change your lived experiences."
+"All right," I say, standing up. "I'm not going to argue with you about this. I love you, and I love it when you tell me about your Timmie's specter. And I want to share him with other people. Why's it matter if they "make light" of him? That doesn't change your lived experiences."
 
 Emmett sits there for a little while, bouncing his knee. That's something we both do when either we're waiting or we're thinking. So I give him time. I tell him I'm making us hot chocolate, then head down to the kitchen, praying we still have some giant marshmallows left.
 
