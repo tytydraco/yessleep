@@ -32,7 +32,7 @@ Slowly, the memory began to bleed into me, brutally slamming into my skull once 
 
 When screams started to fill my mind, screams of pain and mercy, those of us begging to die and others begging to live, I thrust my bleeding arms into warm water, focusing on the feel of it swimming around my elbows, and when I looked up, the flickering bulb above. The pop song coming out in vicious spurts on the radio. But it wasn’t enough. Because the  screams were echoing in my mind, I was chasing that memory, one which I had never looked for in the first place. I wasn’t human for those three years stuck in captivity. I did not have a mind to think with. I did not have senses which worked. And yet that part of me still had memories. All at once, the light flickering above me became brighter suddenly before it wasn’t a light at all. 
 
-It was the late afternoon poking through thick canopies of trees. My mind knew sunset was when the others began their hunt, and when Astrid decided to use me to take them out. 
+It was the late afternoon sun poking through thick canopies of trees. My mind knew sunset was when the others began their hunt, and when Astrid decided to use me to take them out. 
 
 It didn’t matter how many times they came back, I was the one who took them down once by own. That was if I could catch them. The thought filled my mind. Not one I could remember. And when I clung onto it, tried to make sense of my own words, I was violently pulled back. Initially, it felt like a physical pull in my mind. But really, it was my body’s visceral reaction to a memory I had both consciously and unconsciously tried to suppress. I could sense the panic attack brewing, the ache in my chest, the curl of pain and nausea twisting my gut and filling my mouth with my breakfast. 
 
@@ -66,7 +66,9 @@ It didn’t make sense to me. How the blossoms entangled in bedraggled curls cou
 
 The boy continued to dig until he was grasping at something, and I could sense his desperation. He was pulling something from the ground, his fingers tip-toeing, then his hands grasping onto what looked like a hand, which became an elbow. I stood frozen, while Astrid and Adam watched the boy pull a body from under the ground, before setting it in front of him. It wasn’t one of ours. Because we didn’t die. And when we did, we came back minutes later. Instead, the corpse was from the outside world. Astrid started squealing when the boy dug into the back of his pants, pulling out a knife, before kneeling over the body. 
 
-It was fresh. I could tell it had just been buried, maybe a few days before. From the look on his face, illuminated by the orange blur of the fire, the boy had no expression. He wasn’t feeling anything, even if he was. Because he was awake. I watched his trembling hand holding the knife, slice into the arm of the body, cutting off a chunk of flesh, and without hesitation, putting it into his mouth, chewing, and swallowing. But he didn’t stop. He continued, hacking away at the arm, and then dropping his knife all together, using his fingers, and then much sharper teeth, to strip flesh off emaciated bone. Adam let out an incredulous laugh. “Come on, Spence, I was rooting for you, man. And you join the freaks? You really know how to let a friend down, huh.”
+It was fresh. I could tell it had just been buried, maybe a few days before. From the look on his face, illuminated by the orange blur of the fire, the boy had no expression. He was feeling everything around him. Because he was awake.
+
+I watched his trembling hand holding the knife, slice into the arm of the body, cutting off a chunk of flesh, and without hesitation, putting it into his mouth, chewing, and swallowing. But he didn’t stop. He continued, hacking away at the arm, and then dropping his knife all together, using his fingers, and then much sharper teeth, to strip flesh off emaciated bone. Adam let out an incredulous laugh. “Come on, Spence, I was rooting for you, man. And you join the freaks? You really know how to let a friend down, huh.”
 
 “Are you surprised?” Astrid scoffed. “Didn’t you say he was your… lesser off friend? He’s the guy whose dad went broke, right? He owned half of London, and then… didn’t.”
 
@@ -202,7 +204,9 @@ Astrid was alert in my mind, telling me to back down when my wrist twitched and 
 
 Turning to me, Spencer swiped at his eyes. 
 
-“I’m fucking scared,” he whispered. “I’m scared of what I’m going to do next.” He paused, a darkness swirling in his eyes I recognise from Astrid’s; a dark which hadn’t quite rooted itself and taken full bloom. He was still scared, still human. “Can you… feel that? It’s there, Penny. It’s creeping up my spine, and in my gut, my chest, it’s a… hunger.” He grasped my shoulders again, shaking me violently. I could see and hear and feel exactly what he was taking about. A presence in the air which wasn’t the wind. The wind didn’t laugh. The wind wasn’t made up of tiny little invisible fingers prodding and poking and pulling at my hair, stabbing at my mouth.
+“I’m fucking scared,” he whispered. “I’m scared of what I’m going to do next.” He paused, a darkness swirling in his eyes I recognise from Astrid’s; a dark which hadn’t quite rooted itself and taken full bloom. He was still scared, still human. “Can you… feel that? It’s there, Penny. It’s creeping up my spine, and in my gut, my chest, it’s a… hunger.” He grasped my shoulders again, shaking me violently. I could see and hear and feel exactly what he was taking about. A presence in the air which wasn’t the wind. The wind didn’t laugh. 
+
+The wind wasn’t made up of tiny little invisible fingers prodding and poking and pulling at my hair, stabbing at my mouth, trying to gag me. 
 
 “Well?” Spencer’s lips broke out into a hopeful smile, the ghost of hope, when my head twitched slightly, my gaze finding a shadow bounding from the tree’s. 
 
