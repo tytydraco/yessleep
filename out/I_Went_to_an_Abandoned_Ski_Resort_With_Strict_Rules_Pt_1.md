@@ -272,13 +272,13 @@ The skiers would be at the door in mere seconds. I remember how each of them wer
 
 Behind me I could hear my brother and Russ pleading with me to close the door. 
 
-Crouching down, I lifted with my legs and threw my whole body behind into the door, screaming with exertion.
+Crouching down, I lifted with my legs and threw my whole body into the door, screaming with exertion.
 
 The skiers were close enough to touch, when the door finally gave, slamming shut. I collapsed to the ground in a ball, waiting for the skiers to burst through the flimsy door. They were too close and going too fast to have stopped in time, but the only noise outside was the wind whipping against the windows.
 
 I ran to check, but I knew what I was going to see when I looked. Nothing but the snow.
 
-"They killed Jerry man, my brother man. What the fuck, call the police, you," blubbering, the man pointed at me when I turned back around. His eyes were wide and wild, darting in every direction.
+"They killed Jerry man, my brother man. What the fuck, call the police, you," blubbering, the man pointed at me when I turned back around. His eyes were wide, wild, and darting in every direction.
 
 Tim and Russ looked shocked. Their mouths hung open and Tim looked at me the same way he always did when we were kids and he desperately needed his big brother's help.
 
@@ -296,7 +296,9 @@ I turned towards Russ and Tim with a hint of anger in my voice.
 
 He hurried over to his ski equipment taking care to trace a semicircle around the mumbling man.
 
-Tim asked, "Where are the rules?"
+Tim didn't move. There was a slight shiver that seemed to be racking throughout his body, and he gave me a slow nod. He believed me.
+
+"Where are the rules?" asked Tim.
 
 I looked down at my empty hands. For some reason I began to pat down the pockets on my snow pants, before turning three-hundred-sixty degrees in place scanning the cabin.
 
