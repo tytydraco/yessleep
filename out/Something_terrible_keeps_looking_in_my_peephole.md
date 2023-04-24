@@ -1,12 +1,10 @@
- 
-
 Someone was at the door of my apartment. I paused. Who could it be, I thought to myself. I didn’t have any friends, and my family never spoke to me. At this late hour, it couldn’t be anything good. I reluctantly got up from my chair in the kitchen and looked out the peephole. A figure dressed in black stood outside. I didn’t recognize the man, and his appearance was somewhat off putting, so I ignored him and sat back down. I had had a long day at work, and was eating dinner four hours too late.
 
 There was another knock at the door, this time louder. I turned around. What did this guy want? I went back to my meal, a frozen dinner from Marie Callender's. It wasn’t very healthy, but then again it wasn’t the worst thing I could be eating, and I was so tired and grumpy that I didn’t have the patience to eat anything better. The man knocked again, this time louder still. *The nerve of this guy!* I thought to myself. What could be so important that he would insist on talking late at night. I began to wonder if he was a police officer coming to deliver bad news, like that my car had been stolen. I got up and looked at him again.
 
 I gasped and took a step back. The man was smiling directly into the peephole. His lips curled high up into his cheek bones and were peeled back to reveal long white teeth that I thought looked a little too sharp to be human. I began to panic. This obviously wasn’t a police officer. This man wanted something to do with me and it *definitely* wasn’t anything good. I looked down at the door knob to make sure it was locked. It wasn’t. My heart sped up. Very slowly, and with great care so that the man wouldn’t hear, I turned the lock. Despite my best efforts, it made a metallic ‘click’. I cringed, hoping the man hadn’t heard. After a moment, I checked the peephole again. This time, I couldn’t see anyone. He was gone.
 
-I heaved a sigh of relief. The man hadn’t really done anything “wrong” per se, and yet I felt as though I had avoided some terrible tragedy. I went back to my chicken pot pie. 
+I heaved a sigh of relief. The man hadn’t really done anything “wrong” per se, and yet I felt as though I had avoided some terrible tragedy. I went back to my chicken pot pie.
 
 As I sat down, something violently pounded at the door. The doorframe shook and rattled the brass hinges. I jumped in my seat. For a moment I didn’t move, not wanting to alert this evil man of my presence. After a few moments of silence, I gathered the courage to check the peephole once again. When I looked I couldn’t see anything, only black. He was covering the peephole with something. My heart was now beating double time. My palms were sweating like waterfalls and my head began to spin. Something was very terribly wrong, and yet I couldn’t figure out what was going on or what to do about it. I thought about calling the police, but what would I tell them? *Uh, there’s a man knocking on my door, please send back up…* I sat there considering whether I should call them when, suddenly, I heard something that made me jump again. My phone rang.
 
@@ -14,16 +12,16 @@ I ran to the table to pick it up. The number was unidentified and from out of st
 
 “You,” said a voice so raspy and full of static that I couldn’t decide if it belonged to someone I knew. “Open the door. Please.” The voice said. I stood there with my mouth open. I didn’t know why or how he had my number, but hearing his voice inside my house made me feel more vulnerable than before. Even though I tried to tell myself I was safe within the walls of my home, I wanted to hide. *Should I answer?*, I thought. Could responding make me any more vulnerable than I already was? I panted and stammered into the phone until the line cut off. He had hung up. I put down the phone and turned to my left and saw something so horrendous I nearly fell to the floor. Outside my second story window was the man. He had his dirty hands pressed against the glass and cupped around his eyes, looking in. His skin was pale and shiny and his lips were turned up into a perverted smile. The few hairs on his bone white head were long and oily. Slowly he pointed towards the door and mouthed the words “open up.” I reached out for my phone to call the police, but another call was already coming in. It was from the same unrecognized, out-of-state number. I answered.
 
-“Step back,” the raspy voice said. 
+“Step back,” the raspy voice said.
 
 “What in God’s name do you want?” I cried, trembling as I spoke. There was no reply, and the call cut off again. I punched in the numbers 9-1-1, but before I pressed call I heard something that made me stop. Someone was fiddling with the door handle. Rigid with fear, I turned to see the handle was jiggling left and right. He started shoving something between the lock and the door. My heart jumped into my throat. There was nothing I could do except watch. Quick like an expert, the man unlocked the door and slowly twisted the knob. I looked around for something to protect myself with, but was too slow. The door flew open, and in front of me stood the maniacal smiling man. I gasped and fell back onto my kitchen table.
 
 “What do you want?” I cried. The man didn’t answer me but just smiled and reached a hand into his pocket. With long bony fingers he pulled out a piece of notepaper and held it up to his face, and with terrible wide eyes and grin he read aloud:
 
-“We are contacting you about your car’s extended warranty,” and I cried out into the night. 
+“We are contacting you about your car’s extended warranty,” and I cried out into the night.
 
 “I already told you, I ride a motorcycle!” The man’s smile turned to a frown and he stumbled backward as though he had been kicked in the stomach.
 
 “You got lucky this time,” he croaked ominously as he backed out into the night.
 
-“Please don’t contact me again!” I yelled out, then shut and locked the door. My evening was over, and my dinner was ruined, and for what? Nothing. The truth was that I had a car, and I knew that they would find out eventually. For the time being, however, I was safe. Now I just needed to find a new apartment.
+“Please don’t contact me again!” I yelled out, then shut and locked the door. My evening was over, and my dinner was ruined, and for what? Nothing. The truth was that I had a car, and I knew that they would find out eventually. For the time being, however, I was safe. Now I just needed to find a [new apartment](https://www.reddit.com/r/mybeautifulnightmares/)
