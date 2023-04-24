@@ -32,7 +32,7 @@ The road used to be called something else, a normal road name perhaps, but the s
 
 Trees align each side of the road as if pulling my car in for a tight hug.
 
-It’s strange but I feel myself staring to get unusually relaxed and tired.
+It’s strange but I feel myself starting to get unusually relaxed and tired.
 
 I don’t know what my mom was talking about, this road is so soothing.
 
@@ -137,7 +137,7 @@ Just then her eyes turned a bright yellow and her smile became crooked.
 
 I gasped and got up to run but it was too late. 
 
-I opened my eyes and I was back in my car on the road staring and the thing through the mirror.
+I opened my eyes and I was back in my car on the road staring at the thing through the mirror.
 
 “The road is your home now Luke”, the thing said before disappearing again.
 

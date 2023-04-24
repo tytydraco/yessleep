@@ -1,5 +1,3 @@
- 
-
 Have you ever heard the legend of the Grinning Man? I have. When I lived in the South as a kid, everyone at school would tell the tale of the Grinning Man. Back then, scaring the wits out of each other was all the rage. They’d tell you how he would stand outside your bedroom window at night and watch you as you slept, his mouth stretched into a wide, unsettling smile. Of course I never believed them. I never understood how anyone could stand outside a second floor window. It was way too high for even the tallest person to see through. Besides, there was nothing to be afraid of. All the stories said that he was seen in the North of the country. Why would he ever come here?
 
 &#x200B;
@@ -76,7 +74,7 @@ Just like the first time I saw him, I froze.
 
 &#x200B;
 
-There, at the end of my bed, the man was towering over me, staring down with his piercing eyes. I could have sworn he wasn’t this tall when he was at the window. The man was well over six feet in height, and and he had bony limbs that seemed ready to grab me. Somehow, his grin seemed even wider than usual.
+There, at the end of my bed, the man was towering over me, staring down with his piercing eyes. I could have sworn he wasn’t this tall when he was at the window. The man was well over six feet in height, and he had bony limbs that seemed ready to grab me. Somehow, his grin seemed even wider than usual.
 
 &#x200B;
 
