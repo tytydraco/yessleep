@@ -31,7 +31,7 @@ I learned that the supernatural man was not just a vengeful spirit, but somethin
 
 Armed with this knowledge, I devised a plan to defeat him once and for all. I gathered an arsenal of protective talismans and enchanted objects, and I sought out the help of a shaman who was known for dealing with supernatural entities.
 
-Together with the shaman, I returned to the forest where I had first encountered the supernatural man. The woods were eerily quiet, and a sense of foreboding hung in the air. But I was determined to confront him, to put an end to his reign of terror.
+Together with the shaman, I ventured into the forest where the supernatural man had fled to after escaping. The woods were eerily quiet, and a sense of foreboding hung in the air. But I was determined to confront him, to put an end to his reign of terror.
 
 As we ventured deeper into the woods, we felt his presence. The air grew colder, and the trees seemed to whisper with his malevolent energy. We followed the signs and markings that he had left behind, until we finally stumbled upon a clearing.
 
