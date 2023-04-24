@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/12xigqf/the_attics_dark_secret_pt2/?utm_source=share&utm_medium=ios_app&utm_name=ioscss&utm_content=2&utm_term=1) 
+
 I've always been fascinated by old houses with hidden nooks and crannies, and when I moved into my new home, I was thrilled to discover that it had an attic. But what I found in that attic was beyond my wildest nightmares.
 
 It was a rainy night, and I was alone in the house. I decided to explore the attic, armed with a flashlight and my curiosity. As I climbed up the creaky stairs, the air grew colder, and the atmosphere seemed to change. I brushed off the eerie feeling, chalking it up to my overactive imagination.
