@@ -67,3 +67,5 @@ She laughed again, softly this time. "You young ones always start out this way, 
 "It's quite simple," she said. "You won't long to return to your parents if they're not around anymore."
 
 And with that, she turned toward the house, and, practically faster than I could blink, opened the back screen door and slipped inside.
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/12yv74m/i_was_never_afraid_of_the_dark_now_i_know_why/)
