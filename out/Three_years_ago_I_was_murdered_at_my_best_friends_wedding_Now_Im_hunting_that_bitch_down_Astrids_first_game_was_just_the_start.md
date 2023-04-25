@@ -34,7 +34,9 @@ When screams started to fill my mind, screams of pain and mercy, those of us beg
 
 It was the late afternoon sun poking through thick canopies of trees. My mind knew sunset was when the others began their hunt, and when Astrid decided to use me to take them out. 
 
-It didn’t matter how many times they came back, I was the one who took them down once by own. That was if I could catch them. The thought filled my mind. Not one I could remember. And when I clung onto it, tried to make sense of my own words, I was violently pulled back. Initially, it felt like a physical pull in my mind. But really, it was my body’s visceral reaction to a memory I had both consciously and unconsciously tried to suppress. I could sense the panic attack brewing, the ache in my chest, the curl of pain and nausea twisting my gut and filling my mouth with my breakfast. 
+It didn’t matter how many times they came back, I was the one who took them down one by one. That was if I could catch them. 
+
+The thought filled my mind. Not one I could remember. And when I clung onto it, tried to make sense of my own words, I was violently pulled back. Initially, it felt like a physical pull in my mind. But really, it was my body’s visceral reaction to a memory I had both consciously and unconsciously tried to suppress. I could sense the panic attack brewing, the ache in my chest, the curl of pain and nausea twisting my gut and filling my mouth with my breakfast. 
 
 The clinical white of the bathroom, and the faucet I was clinging onto for dear life, morphed into woodland suffocating me, and the tiles beneath my converse, the ones I had been feverishly counting since walking into the bathroom, became thick, wet grass and dirt tickling the bare soles of my feet. I remember trying to scream for help. But my body was incapable of moving. All I could do was standing there, shivering, choking back vomit, as my mind yanked me back inside deep crevices I thought I had left behind.  
 
