@@ -10,7 +10,9 @@ No matter how much I washed and scrubbed at my hands, they were always covered i
 
 The red on my hands was old, and I was sure it wasn’t fully real. It couldn’t be. I had showered and bathed four times a day since escaping Astrid’s game, scrubbing myself over and over again until my skin was red and raw—and somehow I still felt filthy. I still felt disgusting.
 
-No matter how many times I washed my hands, they were always red. Always dripping. And no matter how many times I told myself it wasn’t real, that it was just one of many, many side-effects I was going through after being diagnosed with Post Traumatic Stress Disorder, I believed it. I didn’t have full clarity of how many people had died at my hand, and then came back multiple times to die all over again—or the amount of times I died myself. 
+They were always red. Always dripping. 
+
+And no matter how many times I told myself it wasn’t real, that it was just one of many, many side-effects I was going through after being diagnosed with Post Traumatic Stress Disorder, I believed it. I didn’t have full clarity of how many people had died at my hand, and then came back multiple times to die all over again—or the amount of times I died myself. 
 
 But the stains on my hands told me everything I needed to know. 
 
