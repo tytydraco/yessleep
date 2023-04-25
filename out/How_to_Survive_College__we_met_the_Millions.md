@@ -2,7 +2,7 @@
 
 I’m lucky in that I was raised knowing this.  Cassie had a long, hard journey to get to this point.  She had to rewrite everything she knew about her world and her place in it.
 
- (if you’re new, [start here](https://www.reddit.com/r/nosleep/comments/rnauck/how_to_survive_the_holidays/), and if you’re totally lost, [this might help](https://www.reddit.com/r/goatvalleycampgrounds/comments/s75n1c/how_to_survive_college_index/)) 
+(if you’re new, [start here](https://www.reddit.com/r/nosleep/comments/rnauck/how_to_survive_the_holidays/), and if you’re totally lost, [this might help](https://www.reddit.com/r/goatvalleycampgrounds/comments/s75n1c/how_to_survive_college_index/))
 
 It doesn’t escape my notice that she might have never come to accept how things are if we hadn’t met.  She wasn’t alone anymore.  She had someone else that saw the things she’d seen.
 
@@ -26,7 +26,7 @@ Sometimes innocuous things can be signs of a bigger problem.  I think Cassie has
 
 Josh shuffled into the room and let the door fall shut behind him.  He was very soft-spoken as he explained his problem.  Their dorm room had a mouse in it, he said.  Neither him nor his roommate wanted to tell their RA because then the school would put traps out and they didn’t want to get the mouse killed.  It wasn’t bothering anyone, he said.  It just sometimes poked its head out from behind the radiator or they’d hear it scratching in the walls at night.
 
-They got a live trap instead and set it out.  Then, once the mouse fell for the bait, they put it in a cage and hid it in his closet.  It was pretty easy to take care of, he said.  They got a battery powered light so it wouldn’t be shut up in darkness all the time, bought it some enrichment, and kept it fed.  It seemed quite content.  They were very careful to hide it so that no one would notice that they had a live animal in the dorms.  Josh wanted to take it home with him over the summer and make it his pet mouse.  
+They got a live trap instead and set it out.  Then, once the mouse fell for the bait, they put it in a cage and hid it in his closet.  It was pretty easy to take care of, he said.  They got a battery powered light so it wouldn’t be shut up in darkness all the time, bought it some enrichment, and kept it fed.  It seemed quite content.  They were very careful to hide it so that no one would notice that they had a live animal in the dorms.  Josh wanted to take it home with him over the summer and make it his pet mouse.
 
 Then it got loose.  Except how it got loose was rather strange, and when Cassie heard the story from Josh it made her concerned enough to immediately invite him over to talk to me.
 
@@ -108,7 +108,7 @@ Josh.  They were going for Josh.
 
 “GET OUT!” I screamed.  “SHUT THE DOOR!”
 
-I think if we hadn’t stressed over and over that there weren’t going to be any heroics, if we hadn’t explained to Josh that he was probably the person anything inhuman would go after since it was his room, if I hadn’t yelled explicit instructions, and if it wasn’t *very obvious* that the horde was ignoring us to make a beeline for him, he might have stayed right where he was.  
+I think if we hadn’t stressed over and over that there weren’t going to be any heroics, if we hadn’t explained to Josh that he was probably the person anything inhuman would go after since it was his room, if I hadn’t yelled explicit instructions, and if it wasn’t *very obvious* that the horde was ignoring us to make a beeline for him, he might have stayed right where he was.
 
 Remained there and died.
 
@@ -142,7 +142,7 @@ She laughed a little and I heard a faint trace of hysteria in it.
 
 I wanted to tell her that there’s nothing wrong with being a coward and that being brave didn’t necessarily involve putting yourself in danger.  That back home, we knew that not everyone could be saved and that trying just meant there were two funerals instead of one.  But I felt like a hypocrite saying any of this, so I said nothing instead, and Cassie kept talking.  I guess she was trying to distract herself from our predicament or maybe taking refuge in someone else’s bed while a horde of unnatural mice are trying to find a way up is the right time to work through some stuff, I don’t know.
 
-After her roommate vanished, she went a little crazy, she felt.  She couldn't reconcile what she’d seen and what was happening so after it all settled down and everyone just moved on as if her roommate had never existed, she decided she wouldn't think about it anymore.  Everyone else was doing that.  If she played along then maybe she’d be safe.  She stayed out of the rain and pretended not to notice that there were things out in it, things that moved in ways that weren’t human.  
+After her roommate vanished, she went a little crazy, she felt.  She couldn't reconcile what she’d seen and what was happening so after it all settled down and everyone just moved on as if her roommate had never existed, she decided she wouldn't think about it anymore.  Everyone else was doing that.  If she played along then maybe she’d be safe.  She stayed out of the rain and pretended not to notice that there were things out in it, things that moved in ways that weren’t human.
 
 None of this had happened, she’d decided.  None of it existed.  Her roommate had left and that was all.
 
@@ -160,7 +160,7 @@ And we both stared down at the milling hoard covering the floor of the dorm.
 
 We watched the mice for a moment more.  They’d stopped swarming from side to side and were now swirling in the middle of the room.  I felt a sense of dread grip my heart.  Their movements were turning uniform.  There was a circle, perfectly round, of spinning bodies and the mice trapped in the middle of it were blurring, their bodies seeming to meld together into one undulating wave of patchwork fur.
 
-Then it split open.  
+Then it split open.
 
 Two hollow eyes.
 
@@ -184,7 +184,7 @@ I think it named itself.
 
 I’m not sure how I know this.  I just feel it.
 
-“Do you have any food?” they asked.  
+“Do you have any food?” they asked.
 
 Their tone was so polite.  Impeccably so.  Like it was a bother to be asking us and they hoped we’d be ever so kind to consider their request.  The nature of the question, however, made my skin prickle.
 
@@ -228,7 +228,7 @@ She was pointing in the direction of the mini fridge.  I looked.
 
 The fridge was gone.  Just… *gone*.  They’d eaten the food, the packaging, and the fridge itself.
 
-We climbed down from the bed and opened the door to let Josh in.  We had some bad news, I told him.  There were mice in his closet.  There were *all* the mice and every other pet that had been secretly kept in a dorm room closet throughout campus.  
+We climbed down from the bed and opened the door to let Josh in.  We had some bad news, I told him.  There were mice in his closet.  There were *all* the mice and every other pet that had been secretly kept in a dorm room closet throughout campus.
 
 And they were hungry.
 
@@ -239,6 +239,8 @@ Yeah, I said.  It was going to be just fine.
 I told Cassie and Maria, later, when it was just the two of us, that we might need a new rule.  Cassie’s suggestion was boring so I vetoed it on the grounds that no one would be interested enough to read it and they certainly wouldn’t remember it (you kinda gotta trick people into learning these things, I feel, otherwise you wind up like my professor that makes dinosaurs boring).  Marie’s suggestion was like… an entire paragraph.  So we’re going with my version.
 
 Rule #9 - As tempting as it is, don’t keep a pet hidden in your dorm.  The Millions are always looking for new recruits… and for a new source of meals.  And their appetite is insatiable. [\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
+
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/12y5lwz/how_to_survive_college_the_cemetery_has_visiting/)
 
 [Read the first draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 
