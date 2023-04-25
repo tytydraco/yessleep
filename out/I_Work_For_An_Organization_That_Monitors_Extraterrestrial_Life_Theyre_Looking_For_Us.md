@@ -556,4 +556,4 @@ Slowly, I lowered the gun and went inside again.
 
 &#x200B;
 
-It seemed that we had a lot to talk about and a long night ahead of [us.](https://www.reddit.com/r/HeadOfSpectre/)
+It seemed that we had a lot to talk about and a long night ahead of [us.](https://www.reddit.com/r/nosleep/comments/12ymvgv/i_work_for_an_organization_that_monitors/)

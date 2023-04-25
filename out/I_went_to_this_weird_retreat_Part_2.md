@@ -1,4 +1,6 @@
-[PART 1](https://www.reddit.com/r/nosleep/comments/12iscn7/i_went_to_this_weird_retreat_part_1/)
+[PART 1 HERE](https://www.reddit.com/r/nosleep/comments/12iscn7/i_went_to_this_weird_retreat_part_1/)
+
+&#x200B;
 
 “Have you ever broken a bone?”
 
@@ -136,7 +138,7 @@ He invited us in to their plush McMansion – there was the detritus of teenager
 
 &#x200B;
 
-We didn’t have to ask Imran what was happening to him – he just rolled up his sleeve and showed us. A bandage, which he pulled back to reveal a nasty burn. Another on his leg. Another on his neck, like a lovebite. 
+We didn’t have to ask Imran what was happening to him – he just rolled up his sleeve and showed us. A bandage, which he pulled back to reveal a nasty burn. Another on his leg. Another on his neck, like a lovebite.
 
 &#x200B;
 
@@ -433,3 +435,7 @@ Then Zoe stood up and went to collect her daughter from the creche.
 &#x200B;
 
 Leaving us to stew over what happened to Seb – the shape of things to come.
+
+&#x200B;
+
+[PART 3 HERE](https://www.reddit.com/r/nosleep/comments/12yqkhw/i_went_to_this_weird_retreat_part_3/)
