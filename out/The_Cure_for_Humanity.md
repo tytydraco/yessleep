@@ -1,6 +1,4 @@
-  
-
- I need to get out a warning. Maybe if I get this story out in an anonymous place such as this, it could be enough to save some people. I am in a seedy hotel in the worst part of the city as I write this account of what befell earlier today. The Wi-Fi is not the greatest, but hopefully it will suffice. I am using a high security VPN, but with what I am dealing with I am not sure it will be enough to keep me hidden.
+I need to get out a warning. Maybe if I get this story out in an anonymous place such as this, it could be enough to save some people. I am in a seedy hotel in the worst part of the city as I write this account of what befell earlier today. The Wi-Fi is not the greatest, but hopefully it will suffice. I am using a high security VPN, but with what I am dealing with I am not sure it will be enough to keep me hidden.
 
 I was hired by a government agency to test a new medical procedure that could revolutionize all medical treatment as we know it. When I was hired, I was thrilled to be part of such a project. I had worked in computer and medical research facilities, but this was a huge advancement in my career. I was full of excitement, as my work up until this time had been pretty routine and boring.
 
@@ -18,15 +16,15 @@ Thomas nodded twice, the side of his mouth quirking up.
 
 “I’ve been briefed on the procedure,” he said softly. “This is my last chance, according to the doctors there is nothing they can do. I have less than three months to live.”
 
-I know I am supposed to be clinical and professional, but I hesitated on what to say to him. Do I give him hope? If the test failed, if the results were not as we expected from the simulations we had run, how do I tell him? 
+I know I am supposed to be clinical and professional, but I hesitated on what to say to him. Do I give him hope? If the test failed, if the results were not as we expected from the simulations we had run, how do I tell him?
 
-So, I just nodded and got up from my seat to lead him to the “slab” as we called it. It was made of a special glass, and was below an array of lasers that hung from the ceiling. It was not very comfortable, but if all went as planned he would not be there long. I gestured for him to lie down on his back, and then fastened straps over his forehead, wrists and ankles. 
+So, I just nodded and got up from my seat to lead him to the “slab” as we called it. It was made of a special glass, and was below an array of lasers that hung from the ceiling. It was not very comfortable, but if all went as planned he would not be there long. I gestured for him to lie down on his back, and then fastened straps over his forehead, wrists and ankles.
 
 ‘You okay Thomas?” I said when I was done.
 
 “Yeah, I guess.” Thomas replied, his eyes shining with a mix of apprehension and just maybe hope.
 
-I sat down at my computer station and started the program. A low hum filled the room, and a very light vibration could be felt. I waited for the AI that ran everything to come online and give me the sign that all was ready. 
+I sat down at my computer station and started the program. A low hum filled the room, and a very light vibration could be felt. I waited for the AI that ran everything to come online and give me the sign that all was ready.
 
 *Systems go, Maggie….*
 
@@ -36,17 +34,17 @@ My heart rate picked up, and I took a deep breath.
 
 *Go*
 
-I turned to watch as the lasers came down upon the prone man. Many beams of white light lit up his body, like a million tiny stars sparkling on his skin. I glanced at the screen that monitored his vitals. I let go a breath that I did not know I was holding as I saw all was in the green. Next I looked at the screen that showed me his progress. It was an outline of his body, and the areas being treated were blobs of red within it…so many blobs. I felt myself wince involuntarily. He must be in so much pain, it was amazing he could remain so calm. Next I watched the rush of data that the AI was collecting, the adjustments it was making. The lasers began to change colors, blinking in and out of the rainbow, I could not even make out Thomas’s form anymore. 
+I turned to watch as the lasers came down upon the prone man. Many beams of white light lit up his body, like a million tiny stars sparkling on his skin. I glanced at the screen that monitored his vitals. I let go a breath that I did not know I was holding as I saw all was in the green. Next I looked at the screen that showed me his progress. It was an outline of his body, and the areas being treated were blobs of red within it…so many blobs. I felt myself wince involuntarily. He must be in so much pain, it was amazing he could remain so calm. Next I watched the rush of data that the AI was collecting, the adjustments it was making. The lasers began to change colors, blinking in and out of the rainbow, I could not even make out Thomas’s form anymore.
 
 Slowly, the red blobs on his progress monitor began to shrink. It was working! I smiled and bit my lower lip so as not to shriek in elation and disturb Thomas in his cocoon of rainbow light. After twenty minutes, there were no more red blobs.
 
 *Great job* I typed to the AI. *Let’s wrap this up.*
 
-I waited for a reply…nothing from the AI. I tried again, but there was still no response. Nervously I looked at the screen that showed Thomas’s vitals. All was well, in fact more than well. The screen that showed his progress was free of red blobs still, but something else was happening. I jumped up and looked over at Thomas. The lasers blinded me, their light was so bright I reflexively threw up my hands in front of my eyes. 
+I waited for a reply…nothing from the AI. I tried again, but there was still no response. Nervously I looked at the screen that showed Thomas’s vitals. All was well, in fact more than well. The screen that showed his progress was free of red blobs still, but something else was happening. I jumped up and looked over at Thomas. The lasers blinded me, their light was so bright I reflexively threw up my hands in front of my eyes.
 
 “Thomas!” I called. “Are you okay?”
 
-I got no response. Shaking I tried typing in the override in to shut down the AI.
+I got no response. Shaking I tried typing in the override to shut down the AI.
 
 *That won’t work Maggie.*
 
