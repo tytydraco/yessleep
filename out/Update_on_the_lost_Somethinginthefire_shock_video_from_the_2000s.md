@@ -105,3 +105,6 @@ I have not been to that channel since 2008. If that video really is lost now, I 
 
 
 Wow... I never looked at the channel that uploaded Somethinginthefire. It makes sense that the other videos on there were similar in their unexplained, creepy nature. I'm going to look the channel up... I don't expect to get any results, but who knows. I'm only seeking it out for at least one trace of Somethinginthefire though... as I have goosebumps thinking about the possibility of running into those other videos, and worst of all, encountering anything filmed on that channel. I'm going to cover the search result thumbnails with my hand again. I'm going to make sure my curtains are closed too, as the irrational worries and dread are back.
+
+
+Edit: It doesn't seem like the channel is up anymore. Good? I guess we'll see if any other leads come up, which I guess will take another 7 months lol.
