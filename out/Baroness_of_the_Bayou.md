@@ -22,13 +22,13 @@ Alright, I counted twenty boats docked. Now if I were to assume that 15 were in 
 So I've got to stay focused. carefully rowing towards these tree stumps sticking out of the water, hoping that no one would take notice. Being a good distance away from it, I tied up my boat to a tree stump and got into the water without making a splash. began swimming heedfully. 
 
 
-I pray to the Lord himself that no alligator or alligator gar can get to him. The last thing I need is to become its dinner. And what makes it worse for me is that I heard about a bull shark being spotted in the Mississippi River. And to make matters worse, this goddamn bayou is only a few miles away from that very spot.
+I pray to the Lord himself that no alligator or alligator gar can get to me. The last thing I need is to become its dinner. And what makes it worse for me is that I heard about a bull shark being spotted in the Mississippi River. And to make matters worse, this goddamn bayou is only a few miles away from that very spot.
  
  
-As I swam so close to this cabin, I could hear a conversation coming from within. Heedfully, I came towards the back and spotted a small window. I climbed up without uttering a sound. But!  To my surprise, I found a hole in the wall as a streak of light pierced through it. Vigilant, I looked around to see if anyone was near him. Knowing that everything was clear, I peered through that very hole.
+As I swam so close to this cabin, I could hear a conversation coming from within. Heedfully, I came towards the back and spotted a small window. I climbed up without uttering a sound. But!  To my surprise, I found a hole in the wall as a streak of light pierced through it. Vigilant, I looked around to see if anyone was near me. Knowing that everything was clear, I peered through that very hole.
 
 
- Inside were three men preparing for their ceremony. But these three guys are big. like if they spend so much time at the gym. AsI do not want to be seen since they'll probably kick my chubby ass.
+ Inside were three men preparing for their ceremony. But these three guys are big. like if they spend so much time at the gym. As I do not want to be seen by them, since they'll probably kick my chubby ass.
  
 
 "Hurry up; we can't be late for the ceremony." She'll be pissed if we don't show up.
@@ -40,7 +40,7 @@ As I swam so close to this cabin, I could hear a conversation coming from within
 "Enough of the talking; we're going to take forever."
  
 
-"Alright, alright. Jesus, dude, don't be a little bitchy about the goddamn time. We're good."
+"Alright, alright. Jesus, dude, don't be a little bitch about the goddamn time. We're good."
  
 
 Watching them finish up with their face paint, the men stood up with some final preparations and headed towards the back door. There, I immediately hid on the side of the log cabin. The three men were now done with their traditional makeup and walked out of the back door as they headed straight to the woods, walking on a dirt path. It's weird that they're walking barefoot. knowing that there are cottonmouths around these parts. And let me tell you: It's better not to walk barefoot in the swamp.
@@ -50,7 +50,7 @@ Watching them finish up with their face paint, the men stood up with some final 
 I followed the three men into the woods, a few feet behind them. I saw a yellowish-orange glow coming from the woods, and as he got closer to it, he began to hear a lively commotion coming from there. I found a good spot where I could position myself to hide from the others while still maintaining a good view from behind the foliage. There I saw a large congregation of people around the campfire that was well over 300, with torches circling behind them. This is a freaking congregation. And on the other side of the great campfire was a cabin, with idols in front of it. Something serious was about to happen. Was this some sort of voodoo cult ceremony?
  
 
-Like, my god, there are so many of them in this big ass congregation of these voodoo worshippers. I've got to take out my phone from this pocket, which was inside a Ziploc bag. But what I saw walking out of this cabin was a beautiful Creole woman, wearing a quadrille dress, a neck full of jewelry, and rings on her finger. followed by two naked people. One was a heavyset man that he once met during his early investigations; the second was this voluptuous, brunette Asian woman with those huge, ridiculous knockers on her chest. When the Creole woman began to speak.
+Like, my god, there are so many of them in this big ass congregation of these voodoo worshippers. I've got to take out my phone from this pocket, which was inside a Ziploc bag. But what I saw walking out of this cabin was a beautiful Creole woman, wearing a quadrille dress, a neck full of jewelry, and rings on her finger. followed by two naked people. One was a heavyset man; the second was this voluptuous, brunette Asian woman with those huge, ridiculous knockers on her chest. When the Creole woman began to speak.
  
 
 "Tonight will be a great night. As these two poor sinners will offer themselves. For Baron Samedi." She said,
@@ -107,7 +107,7 @@ She began to speak in her incantations as the pages began to glow. And to my sur
 The drummers began to pick up the pace. Two voodoo dolls were placed before the voodoo priestess. The first one to be chosen was the fat doll, which represented Frank, the heavyset man. grabbed her pouch and blew out a gray powder that made him go into a deep trance. With her alluring voice and with his whole body possessed, Frank stood right before her as she held a pin in her hand and pierced the doll's abdomen. The heavyset man gasped as if he himself had been stabbed.
  
 
-Unfortunately, at first, I couldn't make out what was actually happening until I finally glanced and saw that not only was the voodoo priestess horizontally cutting the doll's own abdomen but also that of the man's. He saw the first victim's abdomen literally split open from left to right. Blood vomited out of it; like a gruesome mouth smiling wide open, the voodoo queen removed his intestines with her own bare hands as she chanted her dark incantations.
+Unfortunately, at first, I couldn't make out what was actually happening until I finally glanced and saw that not only was the voodoo priestess horizontally cutting the doll's own abdomen but also that of the man's. I saw the first victim's abdomen literally split open from left to right. Blood vomited out of it; like a gruesome mouth smiling wide open, the voodoo queen removed his intestines with her own bare hands as she chanted her dark incantations.
 
 
  With blood and bile coming from his cavernous abdomen, she tore out his stomach. And then digging in deeper as she finally removed his enlarged liver. Stretching her shoulders, she held the enlarged fatty liver over her head. Holding my smartphone, my jaw dropped as I became speechless, observing with open eyes in horror.
@@ -119,10 +119,10 @@ Unfortunately, at first, I couldn't make out what was actually happening until I
 feeling the warmth of the oversized organ in her hands, praying with her eyes closed,  as the dead man's entire digestive system steamed on the muddy floor. Of them not caring about the stink of bodily fluids and bile. The drummers continued on beating their drums, and the congregation began to cheer for their gruesome queen. Jesus fuckin Christ. That fucker is gutted like a pig. Until one of the priests grabbed his bolo machete, raised it over his shoulders, and cut the man's head off.
  
 
-There, the congregation continued to cheer as she threw the digestive organs onto the floor while she grinned. She ordered the big man to return to his spot. And so he did just that, coming back to his respective place with his carved-out abdomen as skin and muscle dangled. I have to muster what I've just seen.
+There, the congregation continued to cheer as she kicked the digestive organs onto the floor while she grinned. She ordered the big man to return to his spot. I have to muster what I've just seen.
  
  
-I'm trying to calm myself down as I continue to witness black magic being performed while holding my phone. shit! 32 percent left. I have to resort to taking pictures. There, the voodoo priestess raised her arms. Everyone suddenly stopped, indicating her next approach. the detective watching from the sidelines. She nodded her head to the drummers.
+I'm trying to calm myself down as I continue to witness black magic being performed while holding my phone. shit! 32 percent left. I have to resort to taking pictures. There, the voodoo priestess raised her arms. Everyone suddenly stopped, indicating her next approach. She nodded her head to the drummers.
  
 
 There they began to beat their drums slowly, giving off a rhythm that sounded like a heartbeat. She walked in the direction of that Asian woman with those ridiculous saline implants. I mean, who in their right mind would want to have that, especially with a bad heart condition? Holy shit! Is that what's going to happen next? Right there, her veins began pulsing from her chest. I don't like the look of this. Until then, the drummers had begun to increase the volume of their beats.
@@ -155,7 +155,7 @@ Annoyed that she was almost in between Lin's large breasts, she placed her left 
 She paused a bit, then with some difficulty. The voodoo priestess pulled her body back, with the sound of a loud pop, she finally ripped both of her hands out of Lin's chest. Whereupon Lin again gave out a loud final scream that echoed throughout the woods. The Voodoo priestess watched with menacing eyes. As in her hands was the gift that she longed for. With her arms quivering, the Voodoo priestess couldn't hold back the volume of her great excitement.
 
  
-Then I saw it. Holding something big with both hands over her head. My eyes were now clearly fixated of what it was. Thumping thunderously hot, was Lin's massively, globular enlarged heart. bigger than a full-grown man's head, if not twice as large. with its grotesquely dilated aneurysms of the fusiform superior vena cava, grapefruit-sized aorta, and with that large, plump pulmonary artery. all throbbing and pulsating on their own. And hanging down from Lin's oversized heart was also the aneurysms of the dilated inferior vena cava, and alongside it was that massive thoracoabdominal aorta, with those webs of pulmonary veins dangling from each side.
+Then I saw it. Holding something big with both hands over her head. My eyes were now clearly fixated of what it was. Thumping thunderously hot, was Lin's massively, globular enlarged heart. bigger than a man's head, if not twice as large. with its grotesquely dilated aneurysms of the fusiform superior vena cava, grapefruit-sized aorta, and with that large, plump pulmonary artery. all throbbing and pulsating on their own. And hanging down from Lin's oversized heart was also the aneurysms of the dilated inferior vena cava, and alongside it was that massive thoracoabdominal aorta, with those webs of pulmonary veins dangling from each side.
 
 
 Her hot blood gushing out from those veins and arteries with each heartbeat, while steaming down on the priestess's arms. Now I may be a fisherman, but I was once a medic in the National Guard. So I know what I was looking at. But, Jesus Christ. 

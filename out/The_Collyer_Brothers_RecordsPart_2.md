@@ -1,6 +1,6 @@
 Part 1
 
->[The Collyer Brothers Records](https://www.reddit.com/r/nosleep/comments/12snxcm/the_collyer_brothers_records/)by      [u/bubblesthshark](https://www.reddit.com/user/bubblesthshark) in      [nosleep](https://www.reddit.com/r/nosleep/)
+>[The Collyer Brothers Records](https://www.reddit.com/r/nosleep/comments/12snxcm/the_collyer_brothers_records/)
 
 It’s been a long couple of nights. I’ve stayed up through most of them sifting through the many cardboard boxes searching for more of those strange papers. You see, I’m not having to check through just a few boxes. If you haven’t seen the images of the Collyers’ collection, you should take a moment to look them up. The extent of the hoard is just as the papers describe them: mountains. I’m currently sitting here in my dining room, typing this out on my laptop, while surrounded by stacks and stacks of boxes and bound newspapers. I almost feel like the Collyer Brothers myself. In more ways than one.
 
@@ -102,5 +102,4 @@ Those were the only three that I have found, but what a find they have been. The
 
 Final
 
->[The Collyer Brothers Records (Final)](https://www.reddit.com/r/nosleep/comments/12vg703/the_collyer_brothers_records_final/)  
- by      [u/bubblesthshark](https://www.reddit.com/user/bubblesthshark) in      [nosleep](https://www.reddit.com/r/nosleep/) 
+>[The Collyer Brothers Records (Final)](https://www.reddit.com/r/nosleep/comments/12vg703/the_collyer_brothers_records_final/)

@@ -96,7 +96,4 @@ Have you noticed what unnerved me so much about these documents? Yes, obviously 
 
 These were only some of the pages, I'm sure, but they were the only ones of this kind within the letterbox. I have mixed feelings about all this. On the one hand, if what's written is true, it disturbs me quite a lot. On the other hand, though, the thought of me being the first person to read through these documents is exhilarating. I still have many more boxes full of documents to sift through. If I find more like these, I'll post an update.
 
- 
-
->[The Collyer Brothers Records(Part 2)](https://www.reddit.com/r/nosleep/comments/12u0ms2/the_collyer_brothers_recordspart_2/)  
- by      [u/bubblesthshark](https://www.reddit.com/user/bubblesthshark) in      [nosleep](https://www.reddit.com/r/nosleep/) 
+>[The Collyer Brothers Records(Part 2)](https://www.reddit.com/r/nosleep/comments/12u0ms2/the_collyer_brothers_recordspart_2/)

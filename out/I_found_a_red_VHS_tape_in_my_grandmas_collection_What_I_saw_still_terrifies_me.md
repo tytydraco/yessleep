@@ -62,5 +62,4 @@ It took a while, but life returned to normal. School was back in session before 
 
 Part 2
 
->[I found a red VHS tape in my grandma's collection. What I saw still terrifies me (Part 2)](https://www.reddit.com/r/nosleep/comments/12yyyhw/i_found_a_red_vhs_tape_in_my_grandmas_collection/)  
- by      [u/bubblesthshark](https://www.reddit.com/user/bubblesthshark) in      [nosleep](https://www.reddit.com/r/nosleep/) 
+>[I found a red VHS tape in my grandma's collection. What I saw still terrifies me (Part 2)](https://www.reddit.com/r/nosleep/comments/12yyyhw/i_found_a_red_vhs_tape_in_my_grandmas_collection/)
