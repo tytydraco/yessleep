@@ -2,7 +2,7 @@
 
 Now for those who enjoys everything dark and the maccab. This is a story for you. 
 
-Tonight's the night going to be a good catch. And I hope it'll be a good one. As I got out of my cabin here in the outskirts of Louisiana. I got everything prepared. Cooler, net, you name it. And of course gotta put some fuel in the engine. My goodness, it's hotter than the devil's ass out here at night. But as I was driving my boat straight to the bayou it suddenly got 86'd.  I've got to start paddlin' my boat. Gonna catch some crawfish here at night. Is going to be a big surprise for the folks. 
+Tonight's the night as its going to be a good catch. And I hope it'll be a good one. As I got out of my cabin here in the outskirts of Louisiana. I got everything prepared. Cooler, net, you name it. And of course gotta put some fuel in the engine. My goodness, it's hotter than the devil's ass out here. But as I was driving my boat straight to the bayou it suddenly got 86'd.  I've got to start paddlin' my boat. Gonna catch some crawfish here at night. Is going to be a big surprise for the folks. 
 
 because today is crawfish season. But! Sometimes I wonder why I am still a fisherman. The catch is getting hard out here in the bayou. I mean, I haven't seen any big catfish, bass, or bowfin. Heck! I haven't seen a goddamn gator out in this bitch. Wait a sec over there; is that a wooden log cabin on an island?
 
