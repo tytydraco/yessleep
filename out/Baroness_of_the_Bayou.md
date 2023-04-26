@@ -125,7 +125,7 @@ There, the congregation continued to cheer as she kicked the digestive organs on
 I'm trying to calm myself down as I continue to witness black magic being performed while holding my phone. shit! 32 percent left. I have to resort to taking pictures. There, the voodoo priestess raised her arms. Everyone suddenly stopped, indicating her next approach. She nodded her head to the drummers.
  
 
-There they began to beat their drums slowly, giving off a rhythm that sounded like a heartbeat. She walked in the direction of that Asian woman with those ridiculous saline implants. I mean, who in their right mind would want to have that, especially with a bad heart condition? Holy shit! Is that what's going to happen next? Right there, her veins began pulsing from her chest. I don't like the look of this. Until then, the drummers had begun to increase the volume of their beats.
+There they began to beat their drums slowly, giving off a rhythm that sounded like a heartbeat. She walked in the direction of that Asian woman with those ridiculous saline implants. I mean, who in their right mind would want to have that. Holy shit! Is that what's going to happen next? Right there, her veins began pulsing from her chest. I don't like the look of this. Until then, the drummers had begun to increase the volume of their beats.
  
  
 "I…I-I am s-scared." Lin spoke
@@ -161,7 +161,7 @@ Then I saw it. Holding something big with both hands over her head. My eyes were
 Her hot blood gushing out from those veins and arteries with each heartbeat, while steaming down on the priestess's arms. Now I may be a fisherman, but I was once a medic in the National Guard. So I know what I was looking at. But, Jesus Christ. 
  
  
-There, I saw the cultists erupt in cheers and joyous howls. They were filled with so much amusement, catching sight of the power conducted by the voodoo priestess. Contemplating the monstrosity of Lin's enlarged heart with the aneurysms of its great blood vessels. She firmly grasped it in her hands like a panther on its prey. However, I could see that, to her astonishment, Lin's heart was somewhat heavy as well by seeing her arms trembling. I mean, but still. Lin looked up at the sky once again and collapsed to the floor. Now laying dead on the muddy floor with a yawning hole in her chest.
+There, I saw the cultists erupt in cheers and joyous howls. They were filled with so much amusement, catching sight of the power conducted by the voodoo priestess. Contemplating the monstrosity of Lin's enlarged heart with the aneurysms of its great blood vessels. She firmly grasped it in her hands like a panther on its prey. However, I could see that, to her astonishment, Lin's heart was somewhat heavy as well by seeing her arms tremble. I mean, but still. Lin looked up at the sky once again and collapsed to the floor. Now laying dead on the muddy floor with a yawning hole in her chest.
  
 
 "Behold my children, and gaze upon the throbbing beast I have removed from Lin's chest; with its great size now in the palms of my hands. Thanks to the great power you have, Baron Samedi." said the voodoo priestess.
@@ -179,10 +179,10 @@ The Voodoo priestess turned around, walking before the crowd, presenting the con
 The drummers began beating their drums, becoming increasingly frenzied as their cheers grew louder and more chaotic. I was disgusted at the very sight of it, to see how people can lower themselves to such levels. They should all be punished for the crimes they have participated in. Some began to dance wildly around the campfire, while others fell to their knees.
   
  
-The voodoo priestess, chanting ever faster. growing louder and more fervent. Lin's heart is trying to pick up pace by beating wildly faster, but it's severe condition is too much for it. I locked eyes on that scene as if it were almost captivating, if not mesmerizing. As if it is trying to pull me in. Hearing the alluring rhythms of those drumbeats was spellbinding. The crowd cried with their menaced exhilaration. The winds picked up strength, with the roar of thunder and a crack of lightning piercing through the night sky.
+The voodoo priestess, chanting ever faster. growing louder and more fervent. Lin's heart is trying to pick up it's pace by beating wildly faster, but it's severe condition is too much for it. I locked eyes on that scene as if it were almost captivating, if not mesmerizing. As if it is trying to pull me in. Hearing the alluring rhythms of those drumbeats was spellbinding. The crowd cried with their menaced exhilaration. The winds picked up strength, with the roar of thunder and a crack of lightning piercing through the night sky.
 
 
- Dark storm clouds gathered. The rain began to pour down tremendously. She raises and lowers her hands repeatedly, her voice growing louder and more fervent, not holding back her sheer vehemence. Her wicked eyes widen as she contemplates on how oversized the enlarged heart is, thumping wildly in her grasp, while shaking its great dilated vessels back and forth.
+ Dark storm clouds gathered. Then the rain began to pour down tremendously. She raises and lowers her hands repeatedly, her voice growing louder and more fervent, not holding back her sheer vehemence. Her wicked eyes widen as she contemplates on how oversized the enlarged heart is, thumping wildly in her grasp, while shaking its great dilated vessels back and forth.
  
  
 With total exhilaration, swaying her gorgeous black hair. The power of her god, Baron Samedi, now flows within her. The beating of the drums and the people dancing before the great campfire I have seen crazy things in my lifetime. Sure, one of them may have been paranormal, I think, as I have seen voodoo ceremonies before. But seeing so much gore was too much, and I served in Iraq back in 04.
@@ -202,7 +202,7 @@ As the chanting reaches a crescendo,
 Smiling with a wicked expression on her face. The thumping Enlarged heart and its great dilated vessels reduced it's beating and immediately inflated as it finally ceased. The Voodoo priestess laughed as she smacked it. It looked like a huge ball of meat covered in veins. 
  
  
-A priest came before her holding a large, decorative, wood-carved box. placed the inflated, enlarged heart within this box, and by doing so, the servant with the jar poured a liquid substance inside the two wooden containers to preserve the hearts and their blood vessels.
+A priest came before her holding a large, decorative, wood-carved box. placed the inflated, enlarged heart within this box, and by doing so, the servant with the jar poured a liquid substance inside the wooden container to preserve the heart and its blood vessels.
  
  
 I was already soaked to the bone and starting to tremble because of the cold rain, and he began to feel something prickle in my nose when he sneezed out loud. by echoing through the ceremony. Everyone stopped; the voodoo queen was dismayed by this sudden interruption.
