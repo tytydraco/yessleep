@@ -214,7 +214,7 @@ The wind wasn’t made up of tiny little invisible fingers prodding and poking a
 
 “Well?” Spencer’s lips broke out into a hopeful smile, the ghost of hope, when my head twitched slightly, my gaze finding a shadow bounding from the tree’s. 
 
-I knew who it was from the whirlwind of golden curls spiralling in the breeze picking up around us. Her expression was just like mine, as she knelt onto the ground, aimed, and squeezed the trigger. The gunshot slammed into me, and I swore, at that moment, I could have sworn my mind was mind for a fraction of a second. 
+I knew who it was from the whirlwind of golden curls spiralling in the breeze picking up around us. Her expression was just like mine, as she knelt onto the ground, aimed, and squeezed the trigger. The gunshot slammed into me, and I swore, at that moment, I could have sworn my mind was mine for a fraction of a second. 
 
 Miss. 
 
@@ -276,7 +276,7 @@ I wasn’t expecting Evie to almost run me over in a hummer which she had defini
 
 It was the first time I had spoken to her since the three of us had gone our separate ways. Evie hadn’t changed. Or maybe she had and was too… Evie for me to notice. 
 
-The girl, playing a Nintendo DS lite in the back, didn’t look up at me. She had happily surrendered the wheel over  after admitting she couldn’t drive properly and had slumped in the backseat with her feet up, clutching a DS I was sure, once again, did not belong to her.  I wasn’t going to question why the screen was black. I had done my best not to question a lot of things the girl had done after we escaped. 
+The girl, playing a Nintendo DS in the back, didn’t look up at me. She had happily surrendered the wheel over  after admitting she couldn’t drive properly and slumped in the backseat with her feet up, clutching a DS I was sure, once again, did not belong to her.  I wasn’t going to question why the screen was black. I had done my best not to question a lot of things the girl had done after we escaped. 
 
 I was 100% sure she was the most fucked up out of all of us, but Evie was putting up one hell of a show to tell us the exact opposite.
 
@@ -288,7 +288,7 @@ Evie didn’t look up at me, but she did pause, sticking the stylus in her mouth
 
 “Vibes.” I twisted around to shoot her a look. “You mean you were stalking me.”
 
-“Counter question, babe,” Evie murmured, her eyes glued to the DS’s black screen. Why are you covered in blood?”
+“Counter question, babe,” Evie murmured, her eyes glued to the DS’s black screen. "Why are you covered in blood?”
 
 “That’s…” I had to swallow a mouthful of water my stomach had decided to reject. “That’s my business.”
 
@@ -298,7 +298,7 @@ Evie didn’t look up at me, but she did pause, sticking the stylus in her mouth
 
 She made a mocking gasping noise. “And did you?”
 
-Evie made herself comfortable. “You think we have trackers on us,” she giggled. “That’s cute, Sweetie. You think they’re tracking us with like, CIA level shit, when we have literal vibes bringing us together.” I could tell she was either high, drunk, or maybe just being a fucking psycho as usual. She peeked over my seat. I think it’s kinda hot, you know? Me, you and the reject. Like… undead polyamory. I mean, I wouldn’t be totally against it. We can get Astrid and Adam to join, and they can call off the death game, y’know? Then we can all live happily ever after, and it'll be cute."
+Evie made herself comfortable. “You think we have trackers on us,” she giggled. “That’s cute, Sweetie. You think they’re tracking us with like, CIA level shit, when we have literal vibes bringing us together.” I could tell she was either high, drunk, or maybe just being a fucking psycho as usual. She peeked over my seat. "I think it’s kinda hot, you know? Me, you and the reject. Like… undead polyamory. I mean, I wouldn’t be totally against it. We can get Astrid and Adam to join, and they can call off the death game, y’knooooow? Then we can all live happily ever after, and it'll be cute."
 
 I couldn’t resist a sputtered laugh.
 
