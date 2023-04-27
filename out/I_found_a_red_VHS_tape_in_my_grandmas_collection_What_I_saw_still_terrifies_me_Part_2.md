@@ -143,3 +143,7 @@ I pulled up my contacts, and went to call the people I should’ve called to sta
 With a weary heart, and a shaky hand, I looked through the peephole.
 
 And saw those same soulless eyes looking [in.](https://www.reddit.com/user/bubblesthshark)
+
+Part 3  
+
+>[I found a red VHS tape in my grandma's collection. What I saw still terrifies me (Part 3)](https://www.reddit.com/r/nosleep/comments/1303wmf/i_found_a_red_vhs_tape_in_my_grandmas_collection/)
