@@ -86,17 +86,7 @@ At the smell of blood, the girl’s eyes lit up. She pushed at the car door, and
 
 She reached forward with two hands, placing them on either side of my head. She began to press, and the pressure was insane, like nothing I’d ever felt, the way the ocean must press in at you when you’re a thousand feet deep.
 
-And just then, I heard a voice singing,
-
-*I am the son*
-
-*And the heir*
-
-*Of a shyness that is criminally vulgar*
-
-*I am the son and heir*
-
-*Of nothing in particular.*
+And just then, I heard a voice singing the first verse of "How Soon is Now?"
 
 Nina was standing behind me, singing her stupid Smiths song into the hot night air. As she did, the girl stood and began to dance. When the verse repeated, she mouthed the words quietly to herself. Soon, she was twirling and smiling, shaking her wet hair, filing saltwater into the night. And then, as Nina sang the last word, the girl bowed and walked off into the darkness.
 
