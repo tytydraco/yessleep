@@ -1,4 +1,7 @@
-[Part 2](https://www.reddit.com/r/nosleep/comments/12warkt/my_neighbor_drew_some_weird_chalk_symbols_on_the/)
+[Part 2](https://www.reddit.com/r/nosleep/comments/12warkt/my_neighbor_drew_some_weird_chalk_symbols_on_the/)  
+
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/130nqoo/my_neighbor_drew_some_weird_chalk_symbols_on_the/)
 
 One Saturday morning when I was two years old, I woke up hungrier than I’d ever been. Down the hall, I could hear my parents snoring off their hangover; they wouldn’t be up until past noon at least. I vaguely remember climbing over my half-collapsed baby gate and waddling down the hallway to the kitchen. I twisted the little black knobs on the stove just like my parents did, but no scrambled eggs appeared. Instead, the stove made a mean hissing noise and the kitchen filled with a nasty smell that I didn’t like at all. The smell kept getting worse and worse, and I had a feeling that I’d get into the worst trouble of my life if my parents found out. I went back to my room to play with my blocks, hoping that the problem would just magically go away.
 
