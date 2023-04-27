@@ -1,4 +1,4 @@
-The other day, my son Alex visited from college. It’s his sophomore year, and up then he’d been planning to go into computer science like me. That’s when he told me he wanted to sit down and talk man to man. So even though he’s not quite 21, I poured him a bit of my good scotch and we sat down in my study.
+The other day, my son Alex visited from college. It’s his sophomore year, and up until then he’d been planning to go into computer science like me. That’s when he told me he wanted to sit down and talk man to man. So even though he’s not quite 21, I poured him a bit of my good scotch and we sat down in my study.
 
 “I’m switching to environmental science,” he blurted out after a few seconds. “I know that’s not what you want, but I think it’s what I need to do. If you feel like I’m letting you down, I totally understand. If you want to stop paying my tuition, I get that too. It’s just–”
 
@@ -6,7 +6,7 @@ I held up my hand.
 
 “It’s fine,” I said. “Don’t say you’re sorry. If anything, I should be apologizing for making you think I’d be upset.” I motioned over to a poster that had been hanging on my wall for a few decades, an old black and white photo of William Carlos Williams with a quote beneath that read, *“It is difficult to get the news from poems yet men die miserably every day for lack of what is found there.”*
 
-He nodded like he understood. The thing with the quote was that it couldn’t *really* sink in until you’d lived a bit. Twenty years just wasn’t long enough to see the way life grinds your friends to dust. Sure, Alex had experienced the sharp pains of a few sudden losses, but he didn’t know–couldn’t truly know–the truth of entropy yet, or the desperation of decades slowly watching your soul leak out.
+He nodded like he understood. The thing with the quote was that it couldn’t *really* sink in until you’d lived a bit. Twenty years just wasn’t long enough to see the way life grinds your friends to dust. Sure, Alex had experienced the sharp pains of a few sudden losses, but he didn’t know the truth of entropy yet, the desperation of decades, slowly watching your soul leak out.
 
 “I’m going to tell you a story now,” I said. “It’s a true story. You can believe it or not. That’s up to you.”
 
@@ -38,7 +38,7 @@ She turned it down a hair and then sang along as the music blasted. To be honest
 
 “That’s not a plan.”
 
-We argued like that, back and forth as we drove east. At some point, the sun fell behind us and everything got dark. Even though it was night, it was still a hundred degrees outside. I kept checking my gauges, making sure we didn’t overheat. We were a long stretch of the 10 between Tuscon and El Paso, a million miles from any real civilization.
+We argued like that, back and forth as we drove east. At some point, the sun fell behind us and everything got dark. Even though it was night, it was still a hundred degrees outside. I kept checking my gauges, making sure we didn’t overheat. We were on a long stretch of the 10 between Tuscon and El Paso, a million miles from any real civilization.
 
 Suddenly, I saw something dart across the freeway up ahead. At first I thought it was a deer, but it was too small. I slammed on the breaks, almost skidding off the road. I came to a stop maybe twenty feet in front of the figure, only now realizing it was a little girl. She was maybe eight or nine and wearing an old-fashioned dress, dripping wet.
 
@@ -104,7 +104,7 @@ I stood up and began to pick the glass from my hand. After a few minutes, I real
 
 I poured myself another glass of scotch, then filled up Alex’s cup too.
 
-"I ended up paying for that trip Nina wanted to take down south,” I said. “When she came back, she ended up going to grad school in New Jersey. On my thirtieth birthday, she sent me that poster, and I’ve had it on my wall ever since. Of course, by then I'd already started to change the way I approached my life. Still, it was a good reminder." 
+"I ended up paying for that trip Nina wanted to take down south,” I said. “When she came back, she ended up going to grad school in New Jersey. On my thirtieth birthday, she sent me that poster, and I’ve had it on my wall ever since. Of course, by then I'd already started to change the way I approached my life. Still, it was a good reminder."
 
 Alex finished his drink and looked up at me, his eyes large. He looked sick.
 

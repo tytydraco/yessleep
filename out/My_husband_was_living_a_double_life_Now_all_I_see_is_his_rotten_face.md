@@ -150,7 +150,7 @@ The nursing assistants, Terrence and Terrence, they both tell me I can go home s
 
 The one that left me for dead terrifies me. I figure he should have his new face by now, so maybe that has changed him and helped him heal. But there are still so many questions.
 
-I’ve spoken with Earl a couple of times since I’ve awoken. He called and told me that they are actively searching for the person who attacked Terrence. The police have studied the surveillance footage that night and it shows Terrence’s limp body being dumped past the metal gate, but the video is so grainy and the feed strangely cuts out. It's so dark that they’ve pushed it to the public in the hopes of finding witnesses. He apologized for ever thinking my husband could have stolen from him.
+I’ve spoken with Earl a couple of times since I’ve awoken. He called and told me that they are actively searching for the person who attacked Terrence. The police have studied the surveillance footage that night and it shows Terrence’s limp body being dumped past the metal gate, but the video is so grainy and the feed strangely cuts out. There was a hooded figure--a man of large stature. It's so dark that they’ve pushed it to the public in the hopes of finding witnesses. He apologized for ever thinking my husband could have stolen from him.
 
 There have been a lot of stories in the news lately; watching TV has become all I do. 
 
