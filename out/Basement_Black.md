@@ -1,12 +1,12 @@
 Okay. So I’m a thief. Whatta you care? Yeah. The career choice wasn’t on any high school occupational test I took, but that’s what I am. Yeah. It’s a choice marred by risk to well-being and freedom if I were caught. But I’m pretty good, I think. Haven’t been caught yet but I never look a gift horse in the mouth. I rob mainly houses. People on vacation or out mourning their dead. As long as they weren’t home. My partner? He’s served time. His name is Bilbo. That’s not his real name but he insisted I call him that. He’s obsessed with anything Tolkien. Why a Hobbit’s name is not a question I can answer. I assume he has large, hairy feet with soles as thick as a $150.00 sneaker. Maybe it was because Bilbo was a thief in the *Hobbit*. God knows he was bulky like a hobbit. Maybe that’s why he’s done time. Robbery was for the slim and agile. What do I give a shit? I’m in my 50’s. A few more scores and I can retire early. Anyway, Bilbo has breaking and entering, trespassing, and robbery on his resume. He’s good, but sometimes he’s sloppy, especially under pressure. Especially at running away.
 
-So tonight we’re sitting in the dark, far corner of the yard of a single, family home. A half acre, beyond those shitty motion-sensor lights. The house was nice. A colonial, I think. An old one which meant easy window access. Four floors including a basement. We cased the place and found the lights on within the upper three floors. The basement windows were always black as pitch. We originally thought the glass was covered with black paper or something, but we finally found out it was clear glass. They just never put the lights on down there. Weird. We usually wait till the residents are out. Problem is, in all the time watching the place, they hardly left. And one day they arrived with a huge, freakin’ safe. Nobody buys one of those jobs unless their hiding a shitload of rich stuff. Rich. Every time I say that word, I think of my hopeful college years and useless college degree, finding more profit in stealing other people’s success. The degree was in psychology. Only thing was it taught me that I was *bent*. Crazy. Hell. Look what I do for a living!
+So tonight we’re sitting in the dark, far corner of the yard of a single, family home. A half acre, beyond those shitty motion-sensor lights. The house was nice. A colonial, I think. An old one which meant easy window access. Four floors including a basement. We cased the place and found the lights on within the upper three floors. The basement windows were always black as pitch. We originally thought the glass was covered with black paper or something, but we finally found out it was clear glass. They just never put the lights on down there. Weird. We usually wait till the residents are out. Problem is, in all the time watching the place, they hardly left. And one day they arrived with a huge, freakin’ safe. Nobody buys one of those jobs unless they're hiding a shitload of rich stuff. *Rich*. Every time I say that word, I think of my hopeful college years and useless college degree, finding more profit in stealing other people’s success. The degree was in psychology. Only thing it taught me was that I was *bent*. Crazy. Hell. Look what I do for a living!
 
 “Remember”, Bilbo said. “These fuckin’ lights cast in a wide dispersion. Stay close to the perimeter fence and we can duck under at the basement intersection point.”
 
-He liked to make people think he knew it all, but Bilbo was full of shit. He spouted words he’d read in his stories and dictionaries. I’m surprised he doesn’t think Sauron lives in the house making fucking rings of evil. I checked my watch. 9:30. The lights on the first floor should go dark. And they did. Sauron was heading to the second floor for beddy-bye. 
+He liked to make people think he knew it all, but Bilbo was full of shit. He spouted words he’d read in his stories and dictionaries. I’m surprised he doesn’t think Sauron lives in the house making fucking rings of evil. I checked my watch. 9:30. The lights on the first floor should go dark. And they did. Sauron was heading to the second floor for beddy-bye.
 
-Bilbo picked up his small duffel bag and made his way through the long yard, along the fence. I followed his every step. Didn’t carry a duffle bag though. I usually picked locks or broke a small window for access. When I worked with him, Bilbo liked to lead. He didn’t have a chance to in the *Hobbit*, but now he was King Shit. We arrived parallel to the first basement window. It was black as expected and almost aligned with the kitchen window above it. The motion lights didn’t trigger. The closest had its lamps directed away from us, but the motion sensor reach included us. It could go off if we cut across directly. But Bilbo had read that the outer part of the sensor wasn’t as sensitive than the inner part. He took his mark like a sprinter waiting for the staring pistol to fire. I did the same , but I aimed myself out of the front yard and down the street in case Bilbo set the light off. He dashed and arrived at the window. The hobbit moved pretty fast. He waved me on. I redirected myself and ran, holding my breath. I arrived safely, exhaling and unclenching my sphincter. The only sound were the song of crickets.
+Bilbo picked up his small duffel bag and made his way through the long yard, along the fence. I followed his every step. Didn’t carry a duffle bag though. I usually picked locks or broke a small window for access. When I worked with him, Bilbo liked to lead. He didn’t have a chance to in the *Hobbit*, but now he was King Shit. We arrived parallel to the first basement window. It was black as expected and almost aligned with the kitchen window above it. The motion lights didn’t trigger. The closest had its lamps directed away from us, but the motion sensor reach included us. It could go off if we cut across directly. But Bilbo had read that the outer part of the sensor wasn’t as sensitive than the inner part. He took his mark like a sprinter waiting for the starting pistol to fire. I did the same , but I aimed myself out of the front yard and down the street in case Bilbo set the light off. He dashed and arrived at the window. The hobbit moved pretty fast. He waved me on. I redirected myself and ran, holding my breath. I arrived safely, exhaling and unclenching my sphincter. The only sound were the song of crickets.
 
 “Okay”, Bilbo whispered. “These rich fucks won’t know what hit them.”
 
@@ -16,7 +16,7 @@ Bilbo took a knee and rummaged through his duffle bag. He took out a thin, 2 foo
 
 “Ahh, shit.”
 
-He placed it in the lower, frame separation. He was clearly looking for an obstruction. He slid right to left and found it. The lock or latch. He applied pressure. After a moment, the obstruction gave way and the window popped from its edge and hung open. Probably a hook latch. God, I love old houses. He pushed the window in and reached with it along its lower edge. The hinges were on the upper edge. As he pushed up, he found the hook with his fingers. It likely doubled as a way to keep the window open. After a moment, I heard a sharp click. Bilbo had locked the hook into its sibling eye hook. The window stayed opened. I love old houses.
+He placed it in the lower, frame separation and was clearly looking for an obstruction. He slid right to left and found it. The lock or latch. He applied pressure. After a moment, the obstruction gave way and the window popped from its edge and hung open. Probably a hook latch. God, I love old houses. He pushed the window in and reached with it along its lower edge. The hinges were on the upper edge. As he pushed up, he found the hook with his fingers. It likely doubled as a way to keep the window open. After a moment, I heard a sharp click. Bilbo had locked the hook into its sibling eye hook. The window stayed opened. I love old houses.
 
 The blackness was pure. Absolutely no details of the basement structure appeared. No walls, pipes, hanging electrical outlets. Nothing past the window. There was something else. The blackness looked…well…wet. Like fresh paint.
 
@@ -24,7 +24,7 @@ The blackness was pure. Absolutely no details of the basement structure appeared
 
 “Fuck that and give me the flashlight.”
 
-I did. The beam scanned the interior. It seemed to reflect back at us. Like headlights in thick fog, except this fog was black. Bilbo hung in at torso and then halfway in at waist. 
+I did. The beam scanned the interior. It seemed to reflect back at us. Like headlights in thick fog, except this fog was black. Bilbo hung in at torso and then halfway in at waist.
 
 “I see a water heater”, he recited. “A boiler. Some old bicycles. A sink. Washer. Dryer.” He pulled himself out. “No safe, but they keep the lights off down here. It could be in a corner beyond my reach. I’m going in. If I find it, I’ll flash the light three times.”
 
@@ -166,7 +166,7 @@ Sheeply waved over the Cowels. We were all in a prime viewing and listening spot
 
 “Don’t play with me”, Sheeply said. “We get an anonymous call about someone climbing into your basement and disappearing and find a window open. You obviously didn’t open it because you don’t go into the basement at night.”
 
-The Cowels were silent. 
+The Cowels were silent.
 
 “What’s…in…the…goddamn…basement?” Sheeply’s gaze didn’t swerve. This guy was good. If he’d looked at me like that, I’d be pissin’ in my pants.
 
@@ -178,7 +178,7 @@ The crowd emitted a *“Holy Shit”* in unison. The flares died down to cinders
 
 “Any eyes on the wounded”, Sheeply said into his mic. After some silence…”Nothing here”, came from the mic. “No”, followed. Then Hills announced, “Something here.”
 
-The officers, Cowels and crowd moved closer. Hills was just feet from our window, Sheeply just behind her. In the washed out basement, on the floor lit up by fierce light, there was a severed hand holding a gun. And what looked like a shredded uniform. 
+The officers, Cowels and crowd moved closer. Hills was just feet from our window, Sheeply just behind her. In the washed out basement, on the floor lit up by fierce light, there was a severed hand holding a gun. And what looked like a shredded uniform.
 
 “Oh my God”, Hills said.
 
@@ -200,11 +200,11 @@ Is it me or am I the only one who can tell who will be killed because of dumb-sh
 
 The Animal Control duo carried a cage, just right for something the size of a monkey. They also carried what looked liked stun sticks…the kind you prodded cattle with. Great if there were something to prod. This is as fucked as all the other prior attempts. Bilbo would be laughing his ass off if he wasn’t eaten. They set the cage down on the floor and separated about two yards, holding their Klingon pain sticks forward. No movement or sound.
 
-“C’mon, pissed-off monkey”, the male said. “C’mon to some pain.” 
+“C’mon, pissed-off monkey”, the male said. “C’mon to some pain.”
 
 The crowd stood silently. Waiting for monkey or death. I thought if the blackness could understand English, the douchebag just pissed it off. Here we go.
 
-A shriek. No movement. It was waiting. Either for the generator to go out or for that dumb-fuck to piss it off enough. Turned out the latter was the case. A black rope shot out from the left wall. Our left. A dark area the floodlights couldn’t fill. It smashed the cage against the wall, compacting it. This fucker was methodical. *Fuck the cage. You can’t capture me.* The male nodded to the female and she pulled a large spotlight around her shoulder that had been hanging behind her. She lit it up, shining it across the basement to the wall furthest from her, the accursed left wall. 
+A shriek. No movement. It was waiting. Either for the generator to go out or for that dumb-fuck to piss it off enough. Turned out the latter was the case. A black rope shot out from the left wall. Our left. A dark area the floodlights couldn’t fill. It smashed the cage against the wall, compacting it. This fucker was methodical. *Fuck the cage. You can’t capture me.* The male nodded to the female and she pulled a large spotlight around her shoulder that had been hanging behind her. She lit it up, shining it across the basement to the wall furthest from her, the accursed left wall.
 
 We inched in closer across the lawn, craning for a better view of the newly illuminated area. There were no utilities. No appliances. Nothing to hide behind. Only the darkness that a corner afforded as long as light wasn’t shown directly into it. But now it had.
 
@@ -212,7 +212,7 @@ A wet, black mass, clearly different from shadow and the night, flowed faster an
 
 A shriek. Something black and wet shot from the corner, blocking the lights momentarily, and wrapped itself around the female. Her light went out and her screams became muffled. The male watched, his face turning horrified. He was likely seeing what we had seen. Melting flesh and bone. He dashed up the stairs and disappeared from view. A black rope shot out and his screams stopped. With multiple thuds, presumably his head hitting each step, the male came back into view and was enveloped by the wet blackness. When it finished its attack and went back to its corner, there were no signs of Animal Control in the basement.
 
-At that point I was thinking flame thrower. Burn this fuckin’ place down to the foundation and fuck-thing with it. 
+At that point I was thinking flame thrower. Burn this fuckin’ place down to the foundation and fuck-thing with it.
 
 All was quiet. Both outside and inside. Billings looked at his fellow officers. He clearly didn’t know what to do.
 
@@ -286,7 +286,7 @@ A shriek.
 
 Sheeply was silent. He waved an officer over with his bandaged hand.
 
-“Sergeant?” The underling was green as asparagus. 
+“Sergeant?” The underling was green as asparagus.
 
 “Officer Gortle. Is the National Guard inbound?” Sheeply continued to look at me.
 
@@ -298,7 +298,7 @@ I didn’t answer. It was a classic blackmail moment but I didn’t point that o
 
 Sheeply raised a bandaged hand. “Thank you.”
 
-I hesitated. You don’t control me, Sheeply. Fuck it. I took his boxing glove and shook. 
+I hesitated. You don’t control me, Sheeply. Fuck it. I took his boxing glove and shook.
 
 “You didn’t cause this”, he said. “You just called it in. Don’t think I should cuff you.”
 
@@ -324,7 +324,7 @@ Pure, unfettered flame emitted from the flamethrower rifle. Unbiased and ready t
 
 The blackness shifted throughout the basement, moving through the flame, shrieking wildly as it went. It suddenly disappeared at the window the flame-throwing Guardsman was standing at. We didn’t know if it was dead. Only that it had stopped shrieking…or speaking. The flames flew from the basement windows, licking the 1st floor. Then that floor ignited, flames curling up to the 2nd. The Guardsman and their flamethrowers kept pouring it on. Even though the flames burned on their own just fine.
 
-It was sad. Bilbo. He found the safe and would’ve been rich had it not been for this scumbag blackness. He’d be alive had it not been for the shrieking monkey blackness. 
+It was sad. Bilbo. He found the safe and would’ve been rich had it not been for this scumbag blackness. He’d be alive had it not been for the shrieking monkey blackness.
 
 With a renewed shriek, the blackness erupted from the window, flying directly at the Guardsman. It impacted his head, precisely above the shoulders, enveloping the hazmat helmet. Without breaking flight or motion, it landed behind him. The headless Guardsman fell back flat on the lawn, his extinguished flamethrower falling from his dead hands to the grass.
 
