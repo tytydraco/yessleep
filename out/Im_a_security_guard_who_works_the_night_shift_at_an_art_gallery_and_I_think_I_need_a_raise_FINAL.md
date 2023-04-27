@@ -30,7 +30,7 @@ It was as if she’d been in a trance for years. And only at that moment, decade
 
 The woman bawled, and I wanted to empathise, but I kept seeing her younger sister’s neck — the very neck that Amy had viciously snapped several hours earlier. It was hard to trust her.
 
-“How long has it been?” I asked, pointing at the acid-shaped hole in the floor.
+“How long has it been?” I asked, pointing at the acid-formed hole in the floor.
 
 “I destroyed it shortly before you arrived… Within the hour, perhaps?” Amy absentmindedly replied.
 
