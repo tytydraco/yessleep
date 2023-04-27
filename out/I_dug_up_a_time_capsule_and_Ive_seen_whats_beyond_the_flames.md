@@ -104,8 +104,10 @@ Inside one of the rooms, a man lay on the ground, surrounded by oil lamps.  A fa
 
 I staggered and ran back to the main chamber, stumbling into the wall, which to my great astonishment, began to cough.  I stood and examined what I had bumped into.  It was a great mass of vine growing out of the dirt wall, blood red with leaves of green and purple.  But this was no ordinary plant growth.  For one, it had shoes, dusty leather things that once had likely been quite fine.  The vines wrapped around a part of rotting legs, little more than bones.  They snaked their way through a rib cage adorned with scraps of flesh and fabric.  Skeletal arms were spread out at its sides, buds bloomed at the fingertips.
 
-The source of the cough was the head.  I could recognize that it was the face of a man, though the skin was sallow and studded with plant growth.  The man’s eyes had been plucked out, replaced by the leaves of the vine.  His only discerning features were his voluminous mustache and a grinning mouth, still full of teeth. 
+The source of the cough was the head.  I could recognize that it was the face of a man, though the skin was sallow and studded with plant growth.  The man’s eyes had been plucked out, replaced by the leaves of the vine.  His only discerning features were his voluminous mustache and a grinning mouth, still full of teeth.
 
 “Hello, William,” it rasped.  “Don’t you recognize your old great-grandad, Richard?”
 
 [x](https://www.reddit.com/r/Wine_Dark_Sea_1239/)
+
+[\[Part 5\]](https://www.reddit.com/r/nosleep/comments/130uef3/i_dug_up_a_time_capsule_and_we_are_all_paying_for/)

@@ -201,3 +201,5 @@ I gave them a wave and closed the door behind me.
 [\[Part 3\]](https://www.reddit.com/r/nosleep/comments/12pt25g/i_dug_up_a_time_capsule_and_im_not_who_i_thought/)
 
 [\[Part 4\]](https://www.reddit.com/r/nosleep/comments/12ugx3m/i_dug_up_a_time_capsule_and_ive_seen_whats_beyond/)
+
+[\[Part 5\]](https://www.reddit.com/r/nosleep/comments/130uef3/i_dug_up_a_time_capsule_and_we_are_all_paying_for/)
