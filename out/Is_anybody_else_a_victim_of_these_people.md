@@ -1,3 +1,6 @@
+Only these two people in particular.
+
+
 It was around 9 PM one night. I was walking back home after a trip to the convenience store. I didn't expect anything out of the ordinary, as nothing of such nature ever happened to me. All I was thinking about was what I was going to watch on TV, then about five minutes away from my home, a person wearing a thick coat walked up to me and stood in front of me, blocking my route.
 
 
