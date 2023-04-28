@@ -171,3 +171,9 @@ How long has someone in this house known that those *things* \- I'm gonna be sic
 Why would they fix it?
 
 Please, please tell me what to do. I still don't know how my things got here. And now I no longer know who to trust in this place.
+
+&#x200B;
+
+&#x200B;
+
+Part 3:  [Why does my boyfriend have things from my childhood in his house? (3) : nosleep (reddit.com)](https://www.reddit.com/r/nosleep/comments/130d9h7/why_does_my_boyfriend_have_things_from_my/) 

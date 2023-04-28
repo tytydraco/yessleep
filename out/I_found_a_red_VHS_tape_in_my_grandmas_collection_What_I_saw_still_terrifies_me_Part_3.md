@@ -235,3 +235,7 @@ We got into two separate cars. Thomas drove grandma and grandpa in their wheelch
 As I stared out the window to the trees. And as dark, heavy clouds moved in, so similar to that afternoon so long ago, Isabelle asked a question which brought us one step closer to finding our man.
 
 “Did you leave your location [on?”](https://www.reddit.com/user/bubblesthshark)
+
+ 
+
+>[I found a red VHS tape in my grandma's collection. What I saw still terrifies me (Part 4)](https://www.reddit.com/r/nosleep/comments/131c5m7/i_found_a_red_vhs_tape_in_my_grandmas_collection/)

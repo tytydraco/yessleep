@@ -125,3 +125,9 @@ Oh God. I think he's awake.
 He's knocking on the bathroom door.
 
 Why do I feel so scared?
+
+&#x200B;
+
+&#x200B;
+
+Part 2 :  [Why does my boyfriend have things from my childhood in his house? (2) : nosleep (reddit.com)](https://www.reddit.com/r/nosleep/comments/12z9iof/why_does_my_boyfriend_have_things_from_my/) 

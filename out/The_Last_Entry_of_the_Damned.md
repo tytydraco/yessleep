@@ -2,11 +2,11 @@ Entry --
 
 He and I used to be very close before he died. I used to walk with him when he was angry at his dad. When his father came home drunk, a citrus powder scent latched onto him with pink lips stamped on his neck. He was no longer a husband to his wife but a father to their son. 
 
-I can't tell you why that description of the other woman stuck to me, as if I was always alone, it would crawl into my head. Crawly and thrashing through my memories.
+I can't tell you why that description of the other woman stuck to me, as if I was always alone, it would crawl into my head. Crawling and thrashing through my memories.
 
  I stare at him through my door window. He used to have this brilliant smile. It always warmed me up whenever I saw it, when he showed it to me, or the times I snuck glances at his beautiful smile; it always made the butterflies jump around, making my head fuzzy, and my breath shrink.
 
-Right now, as I look at him, that smile is not the one I longed for. It is a knowing smile it sees through my eyes. Through my thoughts, it sees my longing for him. It sees my unrequited hope for us to be. It knows my weakness, my weakest point. I know it is not him yet I am unable to hope It is him those cold eyes; those used to be a warm brown, a beautiful color that glowed when it hit the light at just the right angle when they looked at me. 
+Right now, as I look at him, that smile is not the one I longed for. It is a knowing smile it sees through my eyes. Through my thoughts, it sees my longing for him. It sees my unrequited hope for us to be. It knows my weakness, my weakest point. I know it is not him, yet I am unable to hope It is him those cold eyes; those used to be a warm brown, a beautiful color that glowed when it hit the light at just the right angle. My heavenly unrequited.
 
 When we went to get his girlfriend flowers. He told me all about her in passing, yet I was able to ignore the thought of her existing beside him. He talked about her with such care and dedication. I hated it so much I wanted to scream no, please no! What act of inhumanity did I do in my past lives? What did I commit to deserve this hell? But another question arose in my head, one that I will never in my life ask: Why her? 
 
@@ -18,15 +18,18 @@ I thought that was all the suffering I would be put through. Of course, I was wr
 
 He told me “There are things I can’t protect you from, your mother's family is damned and can never have their ties broken from this land, because your mother is damned, you are damned as our child”.
 
-He left me with that knowledge, never elaborating on the subject; leaving for work the next moment. I wondered for a while why my father only told me this information now as Mom would never leave me alone, let alone let me into the woods. She would tell me the opposite, telling me stories of leprechauns with gold waiting for me. Flowers of youth, riches, etc. Tails kids would believe in seconds. It would have worked if she would have only told me sooner, and she may have been freed from the damned.
+He left me with that knowledge, never elaborating on the subject; leaving for work the next moment. I wondered for a while why my father only told me this information now as Mom would never leave me alone, let alone let me into the woods. She would tell me the opposite, telling me stories of leprechauns with gold waiting for me. Flowers of youth, riches, etc. Tails kids would believe in seconds. It would have worked if she had only told me sooner, and she may have been freed from the damned.
 
  Knowing later how she fell to the Damned; Father had something to do with Mother. Father made Mother disappear into the clearing or gave her to the clearing.
 
  He knew more about the damned than me. He and my mother would talk about it late into the night. Always talking about emotions, how it made Dad almost damned. And there talks about what it meant to be damned. 
 
-"The child that we made together will never be normal, our mistakes when we were younger having it. It took most of the suffering from us. Now we only have to wait for it to fall," my mother said in a commanding tone, staring at my father looking through him. She stopped smiling with her salmon colored lips. All my father did was look at his drink. He looked at my mother and smiled. 
+"The child that we made together will never be normal, our mistakes when we were younger, having it. It took most of the suffering from us. Now we only have to wait for it to fall," my mother said in a commanding tone, staring at my father looking through him. She smiled with her glowing white teeth, framed by salmon colored lips. All my father did was look at his drink. 
 
-"Alright love", his eyes held no love, only the need for revenge because of her betrayal; not for me but for his.
+He looked at my mother and smiled. 
+ 
+
+"Alright love", he may have been smiling, but his eyes held no love, only the need for revenge because of her betrayal; not for me but for his.
 
 Before I knew what I knew now, I thought Dad was just good at reading Mom. He was always able to figure out what she was up to, always wearing the same pink colored lips and citron dusty perfume.
 
@@ -42,9 +45,9 @@ Or at least he tried to apologize to me by blaming my mom for saying it could ha
 
 I decided to go into the clearing when I was drunk thinking that the thing ended with my mom and dad since they both.  Of course that was a mistake as a damned I would not be safe from that thing. It will get me as it got my mom, dad, and Blacke's dad. 
 
-Walking into the clearing gave me a euphoric feeling. It is as if I found a new beginning in my life. I was wrong. The thing was everywhere in a moment. It shifted the metallic almost liquid of its body and moved towards me. bending itself wrapping around itself shifting its body into a human like shape until it formed into someone I once knew. It was my mom looking at me. I stopped and stared at her. It moved forward grabbing me with such force I fell into her chest as she hugged me. “My Jackie, “ the thing that looked like my mother said in such a sweet tone I almost accepted her, almost surrendering myself to it.
+Walking into the clearing gave me a euphoric feeling. It is as if I found a new beginning in my life. I was wrong. The thing was everywhere in a moment. It shifted the metallic almost liquid of its body and moved towards me. bending itself wrapping around itself shifting its body into a human like shape until it formed into someone I once knew. It was my mom looking at me. I stopped and stared at her. It moved forward grabbing me with such force I fell into her chest as she hugged me. “My Jackie, “ the thing that looked like my mother. It said in such a sweet tone I almost accepted her, almost surrendering myself to it.
 
-I quickly stopped and stared at it until I looked closely at its eyes. The metallic teeth pulsing; contorting until they slowly started to push at her eye until it finally stabbed through her sky blue eyes. I fell to the ground as the thing started to unmold itself of the shape of my mom screaming in my mom's choked voice it screamed: “ Take my Jackie.! Take Them, Please don't take me!”. As the thing was screaming at me I pushed at it as it continued to scream at me until. It hailed me up now in its metallic shape, it pulled me towards it until my lips touched a solid surface, it warped around me crawling over my mouth. I felt my mind scramble as I felt it take my flaw.
+I quickly stopped and stared at it, looking closely at its eyes. The metallic teeth pulsing; contorting until they slowly started to push at her eye until it finally stabbed through her sky blue eyes. I fell to the ground as the thing started to unmold itself of the shape of my mom screaming in my mom's choked voice it screamed: “ Take my Jackie.! Take Them, Please don't take me!”. As the thing was screaming at me, I pushed at it as it continued to scream at me until. It hailed me up now in its metallic shape. It pulled me towards it until my lips touched a solid surface, it warped around me crawling over my mouth. I felt my mind scramble as I felt it take my flaw.
 
 It threw me back onto the ground. It grabbed my neck and started squeezing. My nails tried to find purchase on the thing but my hands from squeezing my neck. My vision slowly started to fade to black until I was fully unconscious.	
 
