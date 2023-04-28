@@ -49,10 +49,10 @@ There I saw those three men from earlier walking towards the three others and si
 She began to speak in her incantations as the pages began to glow. And to my surprise, the book began levitating right before her as she chanted. I couldn't comprehend what the hell I just saw. Her eyes glowed as she read the page that was selected for her ritual.
  
 
-The drummers began to pick up the pace. Two voodoo dolls were placed before the voodoo priestess. The first one to be chosen was a fat doll, which represented Frank, the heavyset man. grabbed her pouch and blew out a gray powder that made him go into a deep trance. With her alluring voice and with his whole body possessed, Frank stood right before her as she held a pin in her hand and pierced the doll's abdomen. The heavyset man gasped as if he himself had been stabbed.
+The drummers began to pick up the pace. Two voodoo dolls were placed before the voodoo priestess. The first one to be chosen was a fat doll, which represented Frank, the heavyset man. There she grabbed her pouch and blew out a gray powder that made him go into a deep trance. With her alluring voice and with his whole body possessed, Frank stood right before her as she held a pin in her hand and pierced the doll's abdomen. The heavyset man gasped as if he himself had been stabbed.
  
 
-Unfortunately, at first, I couldn't make out what was actually happening, until I finally saw what was happening. Not only was the voodoo priestess horizontally cutting the doll's own abdomen but also that of the man's. I saw the first victim's abdomen literally split open from left to right. Blood vomited out of it; like a gruesome mouth smiling wide open, as the voodoo queen removed his intestines with her own bare hands, as she chanted her dark incantations.
+Unfortunately, at first, I couldn't make out what was actually happening, until I finally saw what was happening. Not only was the voodoo priestess horizontally cutting the doll's own abdomen but also that of the man's. I saw the first victim's abdomen literally split open from left to right. Blood vomited out of it; like a gruesome mouth smiling wide open, as the voodoo priestess removed his intestines with her own bare hands, as she chanted her dark incantations.
 
 
  With blood and bile coming out from his cavernous abdomen, she tore out his stomach. And then digging in deeper as she finally removed his enlarged liver. Stretching her shoulders, she held the enlarged fatty liver over her head. Holding my smartphone, my jaw dropped as I became speechless, observing with open eyes in horror.
@@ -68,10 +68,10 @@ There, the congregation continued to cheer as she kicked the digestive organs on
 As I'm trying to calm myself down,  I continued on to witness black magic being performed while holding my phone. shit! 32 percent left. I have to resort to taking pictures. My hands was shaking by what I just witnessed.There, the voodoo priestess raised her arms. Everyone suddenly stopped, indicating her next approach. She nodded her head to the drummers.
  
 
-There they began to beat their drums slowly, giving off a rhythm that sounded like a heartbeat. She walked in the direction of that Asian woman with those ridiculous saline implants. I mean, who in their right mind would want to have that. Holy shit! Is that what's going to happen next? I don't like the look of this. Until then, the drummers had begun to increase the volume of their beats.
+There they began to beat their drums slowly, giving off a rhythm that sounded like a heartbeat. She walked in the direction of that Asian woman with those large ridiculous breasts with saline implants. I mean, who in their right mind would want to have that. Holy shit! Is that what's going to happen next? I don't like the look of this. Until then, the drummers had begun to increase the volume of their beats.
 
  
-Watching her shed tears from her widened eyes, Lin trembled in fear, regretting the mistake she had made. She began to weep. First, the voodoo priestess raised her hand by caressing Lin's cheeks; there, she placed her hand in between Lin's breasts. As if her mind was scanning for what to do next. One priest came before her. holding the doll that represented the Asian woman in his hand.
+Watching her shed tears from her widened eyes, Lin trembled in fear, regretting the mistake she had made. She began to weep. First, the voodoo priestess raised her hand by caressing Lin's cheeks; there, she then placed her hand in between Lin's breasts. As if her mind was scanning for what to do next. One priest came before her. holding the doll that represented the Asian woman in his hand.
 
  
 The voodoo priestess turned her head around, looking at the priest holding the voodoo doll. With a smirk on her face and her left hand free. Took out a pin, gripping it tightly, and pierced the love-shaped heart on the voodoo dolls' chests. Lin immediately clenched her chest with both hands, reacting to the sharp pain she just felt. I mean why can't she just run away. Sure theres allot of them, but at least try to escape.
@@ -80,10 +80,10 @@ The voodoo priestess turned her head around, looking at the priest holding the v
 Everyone was suddenly quiet except for Lin, who was crying after feeling that sharp pain. Six minutes passed, as I saw the voodoo priestess, who I believed to be was feeling Lin's heartbeat in her right hand. Watching with her gentle eyes open at the sight of the weeping woman began chanting.
 
  
-To my utter surprise, the voodoo priestess plunged her hand deep within the Asian woman's chest cavity, clawing right inside of it like a bear digging in for honey that was inside a tree. While hearing Lin screaming at the top of her lungs by pulling her head back. 
+To my utter surprise, the voodoo priestess plunged her hand deep within the Asian woman's chest cavity. clawing right inside of it like a bear digging in for honey that was inside of a tree. While hearing Lin screaming at the top of her lungs by pulling her head back. 
  
 
-Annoyed that she was almost in between Lin's large breasts, she placed her left hand within the woman's chest cavity, digging inside. The voodoo priestess's eyes widened with sheer excitement as she finally stopped. Lin's body was trembling with so much distress. Seeing her eyes bulge out of terror, looking up to the sky hoping that God would save her, then lowering her head down looking at the priestess. Lin wheezed through her mouth until she took one gulp of air.
+Annoyed that she was almost in between Lin's large breasts, she placed her left hand within the woman's chest cavity, digging inside. The voodoo priestess's eyes widened with sheer excitement as she finally stopped. Lin's body was trembling with so much distress. Seeing her eyes bulging out of terror, looking up to the sky hoping that God would save her, then lowering her head back down while looking at the priestess. Lin wheezed through her mouth until she took one gulp of air.
  
 
 She paused a bit, then with some difficulty. The voodoo priestess pulled her body back, with the sound of a loud pop, she finally ripped both of her hands out of Lin's chest. Whereupon Lin again gave out a loud final scream that echoed throughout the woods. The Voodoo priestess watched with menacing eyes. As in her hands was the gift that she longed for. With her arms quivering, the Voodoo priestess couldn't hold back the volume of her great excitement.
@@ -134,7 +134,7 @@ Smiling with a wicked expression on her face. The thumping Enlarged heart and it
 A priest came before her holding a large, decorative, wood-carved box. placed the inflated, enlarged heart within this box, and by doing so, the servant with the jar poured a liquid substance inside the wooden container to preserve the heart and its blood vessels.
  
  
-I was already soaked to the bone and starting to tremble because of the cold rain, and he began to feel something prickle in my nose when he sneezed out loud. by echoing through the ceremony. Everyone stopped; the voodoo queen was dismayed by this sudden interruption. Now I was in deep shit. My heart was in my throat when I have done that. And I can't believe I let myself sneeze out loud. Now they're gonna really get me. 
+I was already soaked to the bone and starting to tremble because of the cold rain, and he began to feel something prickle in my nose when he sneezed out loud. by echoing through the ceremony. Everyone stopped; the voodoo priestess was dismayed by this sudden interruption. Now I was in deep shit. My heart was in my throat when I have done that. And I can't believe I let myself sneeze out loud. Now they're gonna really get me. 
  
  
  
