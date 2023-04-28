@@ -1,8 +1,8 @@
-I walked out of my cabin here in the outskirts of Louisiana. As I was prepared for hunting crawfish because right now it is that season. from bringing a Cooler, to a net and with other necessary items. And of course I gotta put some fuel in my boat's engine.. Since it's better to do it at night. 
+I walked out of my cabin here in the outskirts of Louisiana. As I was prepared for hunting crawfish Since today is that season. from bringing a Cooler, to a net and with other necessary items. And of course I gotta put some fuel in my boat's engine. Since, it's better to do it at night. 
 But holy shit, it's hotter than the devil's ass out here. And as I was about to drive my boat straight into the bayou , the engine suddenly got 86'd. There I begin to start paddling' my boat, cause that crawfish ain't gonna catch themselves. But what I do know is that it Is going to be a big surprise for the folks back home. 
 
 
- But! I Sometimes I wonder why I am still a fisherman. The catch is getting hard out here in the bayou. I mean, I haven't seen any big catfish, bass, or bowfin in weeks. Heck! I haven't seen a goddamn gator out here.  But then I spotted a log cabin. With so many boats in front. 
+ But! Sometimes I wonder why I am still a fisherman. The catch is getting hard out here in the bayou. I mean, I haven't seen any big catfish, bass, or bowfin in weeks. Heck! I haven't seen a goddamn gator out here.  But then I spotted a log cabin. With so many boats in front. 
 
 
 And why so many boats? Though it is weird seeing all them here at night. I know it's none of my business. But! Curiosity has always gotten the best of me. And since I have been in these parts before. But never in my life where i saw all of these boats docked here at night. Especially in an isolated area. But why this wooden log cabin. It got me thinking. I remember that this cabin hasn't been used in ages. And now seeing all these boats here makes me suspicious.
@@ -20,7 +20,7 @@ Alrighty then, I have counted twenty boats that are docked. Now if I were to ass
 So I've got to stay focused. carefully rowing towards these tree stumps sticking out of the water, hoping that no one would take notice. Being at a good distance away from it, I tied up my boat to a tree stump, and got into the water without making a splash. And began swimming carefully. 
 
 
-I pray to the Lord himself that no alligator or alligator gar can get to me. As the last thing I need is to become its dinner. And to make it worse for me is that I heard about a bull shark being spotted in the Mississippi River. And to make matters worse, this goddamn bayou is only a few miles away from that very spot.
+I pray to the Lord himself that no alligator or alligator gar can get to me. As the last thing I need is to become its dinner. And to make it worse for me, is that I've heard about a bull shark being spotted in the Mississippi River. And to make matters worse, this goddamn bayou is only a few miles away from that very spot.
  
  
 As I swam so close to this cabin, I could hear a conversation coming from within. Heedfully, I came towards the back and spotted a small window. I climbed up without uttering a sound. But!  To my surprise, I found a hole in the wall as a streak of light pierced through it. Vigilant, I looked around to see if anyone was near me. Knowing that everything was clear, I peered through that very hole.
@@ -30,26 +30,26 @@ As I swam so close to this cabin, I could hear a conversation coming from within
  
  
 
-Watching them finish up with their face paint, the men stood up with some final preparations and headed towards the back door. There, I immediately hid on the side of the log cabin. The three men were now done with their traditional makeup and walked out of the back door as they headed straight to the woods, walking on a dirt path. It's weird that they're walking barefoot. knowing that there are cottonmouths around these parts. And let me tell you: It's better not to walk barefoot in the swamp.
+Watching them finish up with their face paint, the men stood up with some final preparations and headed towards the back door. There, I immediately hid on the side of the log cabin. The three men were now done with their traditional makeup, and walked out of the back door as they headed straight to the woods, by walking on a dirt path. It's weird that they're walking barefoot. knowing that there are cottonmouths around these parts. And let me tell you: It's better not to walk barefoot in the swamp.
   
 
  
-I followed the three men into the woods, a few feet behind them. I saw a yellowish-orange glow coming from the woods, and as he got closer to it, I began to hear a lively commotion coming from there. I found a good spot where I could position myself, only to hide from the others while still maintaining a good view from behind the foliage. There I saw a large congregation of people around the campfire that was well over 300, with torches circling behind them. And on the other side of the great campfire was a cabin, with idols in front of it. Something serious was about to happen. And the one thing that came to my mind was, that this is a voodoo ceremony.
+I followed the three men into the woods, a few feet behind them. There I saw a yellowish-orange glow coming from the woods, and as i got closer to it, I began to hear a lively commotion coming from there. I found a good spot where I could position myself, only to hide from the others while still maintaining a good view from behind the foliage. There I saw a large congregation of people around the campfire that was well over 300, with torches circling behind them. And on the other side of the great campfire was a cabin, with idols in front of it. Something serious was about to happen. And the one thing that came to my mind was, that this is a voodoo ceremony.
  
 
-Like, my god, there are so many of them in this big ass congregation of voodoo worshippers. I've taken out my phone from my pocket, which was inside a Ziploc bag. But what I saw walking out of this cabin was a beautiful Creole woman, wearing a quadrille dress, a neck full of jewelry, and rings on her finger. followed by two naked people. One was a heavyset man; the second was this voluptuous, brunette Asian woman with those huge, ridiculous knockers on her chest. When the Creole woman began to speak. They introduced themselves as Frank and Lin.
+Like, my god, there are so many of them in this big ass congregation of voodoo worshippers. I've taken out my phone from my pocket, which was inside a Ziploc bag. But what I saw walking out of this cabin was a beautiful Creole woman, wearing a quadrille dress, a neck full of jewelry, and rings on her finger. followed by two naked people. One was a heavyset man; and the second was this voluptuous, brunette Asian woman with those huge, ridiculous knockers on her chest. When the Creole woman began to speak. They introduced themselves as Frank and Lin.
  
 
 This Creole woman—is she some sort of Voodoo priestess or something? If she is, then I think tonight is going to be a bad night.
 
- .
+ 
 There I saw those three men from earlier walking towards the three others and sitting in place with drums before them. Given a nod to start by the cult priest. They began by beating their drums little by little. One of the servants presented a grimoire to her. Now holding the heavy book in her hands, she began to pray as it suddenly opened by itself.
  
  
 She began to speak in her incantations as the pages began to glow. And to my surprise, the book began levitating right before her as she chanted. I couldn't comprehend what the hell I just saw. Her eyes glowed as she read the page that was selected for her ritual.
  
 
-The drummers began to pick up the pace. Two voodoo dolls were placed before the voodoo priestess. The first one to be chosen was the fat doll, which represented Frank, the heavyset man. grabbed her pouch and blew out a gray powder that made him go into a deep trance. With her alluring voice and with his whole body possessed, Frank stood right before her as she held a pin in her hand and pierced the doll's abdomen. The heavyset man gasped as if he himself had been stabbed.
+The drummers began to pick up the pace. Two voodoo dolls were placed before the voodoo priestess. The first one to be chosen was a fat doll, which represented Frank, the heavyset man. grabbed her pouch and blew out a gray powder that made him go into a deep trance. With her alluring voice and with his whole body possessed, Frank stood right before her as she held a pin in her hand and pierced the doll's abdomen. The heavyset man gasped as if he himself had been stabbed.
  
 
 Unfortunately, at first, I couldn't make out what was actually happening, until I finally saw what was happening. Not only was the voodoo priestess horizontally cutting the doll's own abdomen but also that of the man's. I saw the first victim's abdomen literally split open from left to right. Blood vomited out of it; like a gruesome mouth smiling wide open, as the voodoo queen removed his intestines with her own bare hands, as she chanted her dark incantations.
