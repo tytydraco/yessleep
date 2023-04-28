@@ -252,4 +252,4 @@ Secondly, though, I honestly wasn't real sure *I* actually believed that story m
 
 [Without](https://www.reddit.com/r/nosleep/comments/12z2mip/this_was_how_i_found_out_i_had_a_brother_it_was/?utm_source=share&utm_medium=web2x&context=3)...
 
-*No! No, he can't have me. He WON'T!*
+*No! No, he can't have me. He* [*WON'T*](https://www.reddit.com/r/nosleep/comments/131e2kr/this_was_how_i_found_out_i_had_a_brother_it_was/?utm_source=share&utm_medium=web2x&context=3)*!*
