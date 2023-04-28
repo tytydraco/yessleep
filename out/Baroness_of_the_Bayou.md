@@ -108,7 +108,7 @@ Seeing the Voodoo priestess turned around, walking before the crowd, presenting 
 The drummers began beating their drums, becoming increasingly frenzied as their cheers grew louder and more chaotic. I was disgusted at the very sight of it, to see how people can lower themselves to such levels. They should all be punished for the crimes they have participated in. Some began to dance wildly around the campfire, while others fell to their knees.
   
  
-The voodoo priestess, chanting ever faster. growing louder and more fervent. Lin's heart is trying to pick up it's pace by beating wildly faster, but it's severe condition is too much for it. I locked eyes on that scene as if it were almost captivating, if not mesmerizing. As if it is trying to pull me in. Hearing the alluring rhythms of those drumbeats was spellbinding. The crowd cried with their menaced exhilaration. The winds picked up strength, with the roar of thunder and a crack of lightning piercing through the night sky.
+The voodoo priestess, chanting ever faster. growing louder and more fervent. Lin's heart is trying to pick up it's pace by beating wildly faster, but it's severe condition was too much for it. I locked my eyes onto that scene, as if it were almost captivating, if not mesmerizing. As if it is trying to pull me in. Hearing the alluring rhythms of those drumbeats was spellbinding. The crowd cried with their menaced exhilaration. The winds picked up strength, with the roar of thunder and a crack of lightning piercing through the night sky.
 
 
 There I can see Dark storm clouds gathering. With the rain beginning to pour down tremendously. She raises and lowers her hands repeatedly, her voice growing louder and more fervent, not holding back her sheer vehemence. Her wicked eyes widen as she contemplates on how oversized the enlarged heart is, thumping wildly in her grasp, while shaking its great dilated vessels back and forth.
@@ -117,10 +117,10 @@ There I can see Dark storm clouds gathering. With the rain beginning to pour dow
 With total exhilaration, swaying her gorgeous black hair. The power of her god, Baron Samedi, now flows within her. The beating of the drums and the people dancing before the great campfire I have seen crazy things in my lifetime. But seeing so much gore was too much, and I served in Iraq back in 04.
  
  
- But! This was something else—a horror that only hell itself can provide. With a crack of lightning and feeling the cold air blowing upon him. I shivered, knowing the prospect of cold rain. But the congregation was undaunted and continued. Fucking great. I totally forgot it was monsoon season. I pray to God that it won't flood here
+ But! This was something else—a horror that only hell itself can provide. With a crack of lightning and feeling the cold air blowing upon me. I shivered, knowing the prospect of cold rain. But the congregation was undaunted and continued. Fucking great. I totally forgot it was also monsoon season. I pray to God that it won't flood here
  
  
-I felt the first droplets of rain, and gradually it rained straight away. soaking everyone in the area. The trees stretched and swayed in the winds as the sound of thunder and the crack of lightning streaked throughout the heavens.
+I felt how cold the rain is. soaking everyone in the area. The trees stretched and swayed by the winds, as the sound of thunder and the crack of lightning streaked throughout the heavens.
 The storm raged on as the rain pounded on the entire congregation, but the drummers weren't fazed and continued on beating their drums.
  
  
@@ -128,19 +128,20 @@ A young cult woman was so hysterical that she whirled and danced in front of the
  
  
 As the chanting reaches a crescendo,
-Smiling with a wicked expression on her face. The thumping Enlarged heart and its great dilated vessels reduced it's beating and immediately inflated as it finally ceased. The Voodoo priestess laughed as she smacked it. It looked like a huge ball of meat covered in veins. 
+Smiling with a wicked expression on her face. The thumping Enlarged heart and its great dilated vessels reduced it's beating and immediately inflated as it finally ceased. The Voodoo priestess laughed as she smacked it. Looking like a huge ball of meat covered in veins. 
  
  
-A priest came before her holding a large, decorative, wood-carved box. placed the inflated, enlarged heart within this box, and by doing so, the servant with the jar poured a liquid substance inside the wooden container to preserve the heart and its blood vessels.
+A priest came before her holding a large, decorative, wood-carved box. placed the inflated, enlarged heart within this box, and by doing so, the servant with a jar in hand, poured a liquid substance inside the wooden container to preserve the heart and its blood vessels.
  
  
-I was already soaked to the bone and starting to tremble because of the cold rain, and he began to feel something prickle in my nose when he sneezed out loud. by echoing through the ceremony. Everyone stopped; the voodoo priestess was dismayed by this sudden interruption. Now I was in deep shit. My heart was in my throat when I have done that. And I can't believe I let myself sneeze out loud. Now they're gonna really get me. 
+I was already soaked to the bone and starting to tremble because of the cold rain, and i began to feel something prickle in my nose when he sneezed out loud. by echoing through the ceremony. Everyone stopped; the voodoo priestess was dismayed by this sudden interruption. Now I was in deep shit. My heart was in my throat when I have done that. And I can't believe I let myself sneeze out loud. Now they're gonna really get me. 
  
- 
+
  
 The voodoo priestess was angry and wanted to know who interrupted her ceremony.
 The congregation became absolutely dumbfounded, chattering among themselves about this unexpected intrusion. I was hiding behind a tree, covering my mouth and nose, wishing that he had not done that.
  
+
  Until one of the members of the crowd spotted me behind the bushes. There he yelled out to the voodoo priestess, pointing right at me where I was hiding. and now everyone was heading straight towards my direction. Seeing the entirety of the whole congregation descending upon me. With the floor thick with mud, As I was now running for my life. I did not want to experience the same outcome as the two first victims. As I was now running for my life. I have never been this scared in my life. Heck! It was nothing like this when I was a soldier and medic back in Iraq.  But the only difference was, when I was in the front lines I had a weapon and body armor with fellow comrades having my back. But right here I felt entirely vulnerable. I have become prey to these worshipers and to their God.
 
 
