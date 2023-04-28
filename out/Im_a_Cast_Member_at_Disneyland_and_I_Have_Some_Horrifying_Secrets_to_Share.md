@@ -166,8 +166,4 @@ I just got a strange text message from Teddy’s cell phone number.
 
 See you at work tomorrow, buddy, it said, accompanied by a mouse emoji.  
 
-Me and some other cast members have a BIG surprise for [you.](https://www.reddit.com/r/JGcreepypastas/comments/zpi8zt/master_story_list_updated_regularly/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)  
-
-[YT](https://youtu.be/U0yYYRszGQA)
-
-[TCC](https://www.reddit.com/r/TheCrypticCompendium?utm_medium=android_app&utm_source=share)
+Me and some other cast members have a BIG surprise for [you.](https://youtu.be/J6QsVVLLqcQ)
