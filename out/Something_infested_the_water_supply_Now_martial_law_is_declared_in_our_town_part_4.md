@@ -91,3 +91,5 @@ In all of this, I saw Dr. Booth, still smiling, still humming Wagner. Within min
 “The reinforcements from your government are arriving in droves now, and the thousands of members of the hive are coming this way,” Samael said, grinning wide. He put his emaciated hands up the dreary sky, putting his head back and closing his jet-black eyes in an expression of ultimate pleasure. His multiple snake-like tongues flicked out of his mouth, each writhing and undulating in a different direction as it did so, like trying to taste all the possible currents of the air. “Run. If you value your life, run as fast as you can. Get out of here, now.” And I did. I grabbed my daughter, and my wife and I ran back towards the laboratory. I entered the code, taking refuge in the tunnels under the ground. The internet still worked.
 
 As I wait here for the final battle to start, I can only write my story, hoping that it will not be my last testament before death.
+
+Part 5: [https://www.reddit.com/r/nosleep/comments/1323c43/something\_infested\_the\_water\_supply\_now\_martial/](https://www.reddit.com/r/nosleep/comments/1323c43/something_infested_the_water_supply_now_martial/)
