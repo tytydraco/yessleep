@@ -26,7 +26,7 @@ The lady replied, "When my son returns from home to collect all of our ashes, af
 
 I was breathless. An alive breathless human. Yeah. I just swapped the alive with the dead ones.
 
-I turned my head and saw a big rat chasing a kitten. My guesses were correct. But does it make a difference? now?
+I heard the noises again. I turned my head and saw a big rat chasing a kitten. My guesses were correct. But does it make a difference? now?
 
 I walked slower with great difficulty, feeling like blocks of stones were tied to my legs. I got on my bike and started it. I turned a bit to get a glance from the corner of my field of vision.
 
