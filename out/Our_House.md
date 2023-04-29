@@ -1,3 +1,5 @@
+Our House
+
 I had just landed my job as a caretaker at a large mansion with overgrown vines. I had always been drawn to old houses, and the opportunity to live in one rent-free for a year was too good to pass up. I had no idea who the owners were until I arrived at the mansion and was greeted by my ex-boyfriend, Jack, and his new girlfriend, Lily. Jack and I broke up around a year ago and since then we never met each other.
 
 At first, I was determined to be professional. The mansion was huge, and there was always something that needed cleaning or fixing. It kept me busy, which was good because everyday at night i would hear whispers come from the bathroom that I somehow ignored.
@@ -13,5 +15,3 @@ One night, while I was asleep, I woke up to the sound of screaming. At first I t
 I tried to run, but the spirits were everywhere, trapping mw inside. It was clear that the spirits wanted me to die in the house as well and were not going to stop until I was dead.
 
 In the end, I managed to escape the mansion, shaken and traumatized by what I had experienced. I never went back to the mansion again, but the memory of the spirits and the dark void behind the bathroom mirror haunts me for years to come.
-
-(True Story)
