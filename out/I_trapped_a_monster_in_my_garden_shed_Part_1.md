@@ -1,3 +1,5 @@
+[\[Part 2\]](https://www.reddit.com/r/nosleep/comments/13362dc/i_trapped_a_monster_in_my_garden_shed_part_2/)
+
 Faith is an interesting thing.
 
 Lots of people seem to have their own definition of it, and many claim to have none at all. Everyone I meet has their own reactions when they find out I’m a preacher. Some are enthusiastic, due to sharing the same beliefs, while others are polite, but disinterested. Every once in a while, I do get the vicious insults from someone who had no issue with me until they found out about my religion, and I have to endure them screaming abuse until they stomp to their car, jump in, and speed away in a squeal of blind fury. It’s part of the job, as unpleasant as it can be, and I’ve learned to pay them no mind.
@@ -176,6 +178,6 @@ Granted, that’s if aiding such an entity is possible at all. Perhaps she doesn
 
 For she, like the rest, is clearly in torment.
 
-I have to go. I think the fiends outside are trying to rip down the shed door. They’re stubborn, and brave for trying to rescue their comrade, I’ll give them that. As much as it might weigh on my conscience later, I’ll have to put them down, or this entire experiment will be a failure. 
+I have to go. I think the fiends outside are trying to rip down the shed door. They’re stubborn, and brave for trying to rescue their comrade, I’ll give them that. As much as it might weigh on my conscience later, I’ll have to put them down, or this entire experiment will be a failure.
 
 God forgive me.
