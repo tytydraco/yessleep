@@ -108,7 +108,7 @@ Suddenly, I was the last kid standing. All my classmates were dead. The creature
 
 To my dismay, the blobs started making those god-awful sounds again. Their slimy skin jiggled as they moaned. Right before my very eyes, yet another army of blobs was being birthed. The floors were soaked in bile, most of the desks were overturned, and blood and guts were everywhere.  
 
-With my back against the wall, I closed my eyes and prayed, something I’d never done before: Please don’t let me die this way. I’ll do anything. This sucks. I’m too young to die. Surely, this can’t be happening.
+With my back against the wall, I closed my eyes and prayed: Please don’t let me die this way. I’ll do anything. This sucks. I’m too young to die. Surely, this can’t be happening.
 
 CRASH.
 
@@ -154,4 +154,4 @@ I don’t know.
 
 There’s only one thing I’m certain of, and no one from this planet or any other world can change my mind:
 
-There’s no way I’ll ever dissect a frog again.
+There’s no way I’ll ever dissect a frog [again.](https://www.reddit.com/r/StoriesFromStarr/)
