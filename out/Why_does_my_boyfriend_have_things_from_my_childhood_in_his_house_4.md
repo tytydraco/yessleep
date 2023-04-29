@@ -157,3 +157,7 @@ It was Tom, but a text. But, I noticed, whilst his calls were frequent, this was
 My mum watched as I tapped on his name - the messaging was what had unnerved me more, to be honest, and I wanted to know what he was saying so I could have some peace. Ignoring my mum's protests, I opened the chat.
 
 *You do know you still have your location on, right?*
+
+&#x200B;
+
+Part 5:  [Why does my boyfriend have things from my childhood in his house? (5) : nosleep (reddit.com)](https://www.reddit.com/r/nosleep/comments/132mqdc/why_does_my_boyfriend_have_things_from_my/) 

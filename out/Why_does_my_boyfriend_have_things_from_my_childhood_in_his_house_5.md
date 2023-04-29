@@ -56,7 +56,7 @@ If you have any information, please call the Pryham police department. Even thou
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-2/5/2023
+2/5/2021
 
 Reporting Officer (s) - PC Jacob Townsend and Miranda Sharp
 
@@ -76,7 +76,7 @@ Name: Emma Lane
 
 Age: 23
 
-Missing since: May 2nd, 2023
+Missing since: May 2nd, 2021
 
 Emma is described as 5'6 inches tall, slim build, with shoulder length brown hair and brown eyes. Last seen wearing blue jeans, a dark green top and boots. She also has her ears pierced and a distinctive, but small, beauty mark on her left cheek.
 
