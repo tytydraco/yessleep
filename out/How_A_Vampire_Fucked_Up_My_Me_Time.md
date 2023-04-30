@@ -250,7 +250,7 @@ I gave him a sharp whistle.
 
 &#x200B;
 
-*Are you fucking kidding me? He pulls the hottest girl in school and meanwhile, I'm stuck dealing with shit.*
+*Are you fucking kidding me? He pulls the hottest girl in school and meanwhile, I'm stuck dealing with this shit.*
 
 &#x200B;
 
