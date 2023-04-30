@@ -265,7 +265,7 @@ The skin of the entity’s face shifts in what I assume is a smile.
 
 Grynn’s accusation stops my heart. 
 
-My silence is met with the entity dragging one grime covered blade across my hospital gown. Somehow the ancient looking thing parts the fabric perfectly as it starts to make its way upward, toward my throat. The face this thing can do this while not even scratching the skin underneath isn’t lost on me. 
+My silence is met with the entity dragging one grime covered blade across my hospital gown. Somehow the ancient looking thing parts the fabric perfectly as it starts to make its way upward, toward my throat. The fact this thing can do this while not even scratching the skin underneath isn’t lost on me. 
 
 “I am. “ Is all I can think of to say before the carving blade is applied. 
 

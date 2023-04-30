@@ -15,3 +15,5 @@ As I stand there puzzled at the room I’m in, a door to a room that I knew neve
 Standing there, in utter bewilderment and somewhat shock of the situation I now find myself in. I start to notice how quiet this massive black room is. All I can hear is the sound of my own breathing. While the metal door was open, all the air rushing in made it very loud as the wind blew past me. But now. Standing with my phone in my hand, looking around, and down the grated stairs. I notice something else that terrifies me. I have no service, and worse, my phone only has 15% battery life remaining. 
 
 The flashlight will burn through that power
+
+Part 2: https://www.reddit.com/r/nosleep/comments/133hwsf/an_unfamiliar_door_part_2/?utm_source=share&utm_medium=ios_app&utm_name=ioscss&utm_content=1&utm_term=1
