@@ -24,7 +24,6 @@ And then, suddenly, it *changed.*
 
 The  creature's flesh burst, and as if it was molting, the skin fell off of  it, and a larger, fleshier mass of living tissue unfolded from the  shell, expanding and growing until it was the size of a full-grown man.  Its skin had grown darker, and it was dripping with a black viscous  liquid, with its entire head wrapped in the body of a disgusting ocean  worm, hundreds of feet and appendages digging into the monster's flesh.  The new humanoid monster stood in front of us, its gaze burning my soul  as I looked into the water beyond us.
 
-The storm had rolled back in, and the ocean looked like hell.  
-ENORMOUS  black shapes were moving under the surface of the water, and creatures  of ungodly size broke the surface as they surrounded out minuscule  fishing boat.
+The storm had rolled back in, and the ocean looked like hell.ENORMOUS  black shapes were moving under the surface of the water, and [creatures of ungodly size](https://www.reddit.com/r/SeasideUniverse/comments/mjn4ot/the_complete_seaside_trilogytimeline_in_order/) broke the surface as they surrounded out minuscule  fishing boat.
 
-"We're heading back," our captain said. "Before the ocean takes us."
+"We're heading back," our captain said. "Before the ocean [takes us."](https://www.reddit.com/r/SeasideUniverse/comments/xyitrx/the_ninth_circle_preview_while_working_on_several/)

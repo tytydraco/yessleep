@@ -64,7 +64,7 @@ On both sides of the street, the power lines were long grey tubes connected to g
 Walking along the sidewalk was like walking on rubber, which wasn't a bad thing. It was just something that felt very different. The bad thing was that whenever anybody stopped for any reason, they were given an electric shock by the nearest soldier. I experienced it first hand when I got too exhausted to keep walking. It was like one deep pinch on every part of my body at the same time. I chose to keep walking, that was for sure.
 
 
-Soon enough, we were escorted through a gate into a walled area. It was a base. There were camoflogued jeeps and trucks to our right and a long two story peach coloured building to our left. There was a bridge connecting the roof of the two story building to a neighbouring two story red building to our right. Once under the bridge, the soldiers stopped, and so did we.
+Soon enough, we were escorted through a gate into a walled complex. A base by the looks of it. There were camoflogued jeeps and trucks parked to our right and a long two story peach coloured building to our left. There was a bridge connecting the roof of the two story building to a neighbouring two story red building to our right. Once under the bridge, the soldiers stopped, and so did we.
 
 
 A tall man in camo walked onto the bridge. His suit included dozens of badges. Once at the center of the bridge, he spoke into a megaphone, in a language I couldn't recognize. When he was finished speaking, a second group of soldiers in marched towards us. They stopped feet away, then pulled out these handheld devices they pointed right at us for a minute before marching back inside the two story building.
