@@ -2,7 +2,7 @@
 
 \--------------------------------------------------
 
-After both me and Marie managed to get some rest, our number one priority was to find more tickets, because if we met the Conductor now, it was game over for us. Considering we couldn't split up to cover more ground due to the fact that the road was blocked by the armed group, we walked together through the carts she has visited previously, hoping to find stuff she previously missed. As we moved cart by cart, we were checking for tickets everywhere: under the chairs, in the corners, below the hot pipes, etc. 
+After both me and Marie managed to get some rest, our number one priority was to find more tickets, because if we met the Conductor now, it was game over for us. Considering we couldn't split up to cover more ground due to the fact that the road was blocked by the armed group, we walked together through the carts she has visited previously, hoping to find stuff she previously missed. As we moved cart by cart, we were checking for tickets everywhere: under the chairs, in the corners, below the hot pipes, etc.
 
 "Where were you going?" asked Marie suddenly while we were searching.
 
@@ -34,7 +34,7 @@ She just gave me a smile and said "We can still hope..."
 
 It was a fake smile. Marie never was that good at hiding her feelings, and quite frankly, I think that was why I began liking her all those years ago. It was very easy to see when she was happy, angry, when something bothered her... I hugged and said "We can still hope."
 
-She hugged me back and after a little bit, we went back to searching for tickets. If we're gonna be here forever, might as well be sure that me and her can live for as long as possible. 
+She hugged me back and after a little bit, we went back to searching for tickets. If we're gonna be here forever, might as well be sure that me and her can live for as long as possible.
 
 "I went to Central Park."
 
@@ -124,7 +124,7 @@ We were around fifty carts away from the group. Leaving her backpack halfway the
 
 "Stay back here," I whispered to Marie, "it would be easier to sneak if it's just me."
 
-She nodded and hid under one of the chairs. I waved, hoping for Matt to notice and once he saw me, he waved to come closer. Once I reached the door, he opened it slightly and began to whisper. 
+She nodded and hid under one of the chairs. I waved, hoping for Matt to notice and once he saw me, he waved to come closer. Once I reached the door, he opened it slightly and began to whisper.
 
 "Where have you been, kid?? Thought you bailed up on us!"
 
@@ -152,7 +152,7 @@ Matt gave me a very concerned look. "You're getting pretty dark kid. "Luckily" f
 
 "They're not particularly keen. They're too cocky with their guns, think they have a safe pass, never notice what's around them."
 
-After he said that, I sneaked in the cart and moved to the other side. What greeted my eyes almost made me puke. 
+After he said that, I sneaked in the cart and moved to the other side. What greeted my eyes almost made me puke.
 
 There were four people sitting around their leader, Jaques, pointing their guns at everyone else. He was sleeping with his head on the lap of Helen, who had a purple eye and a bloody lip. For that matter, everyone else were sitting in the far corner, bruised and beaten. Emily, Michael, Gabriel. Even Gertrude had a red hand print on her face. I was seeing red. So much so that I almost went in. Thankfully, Matt was holding me back.
 
@@ -236,19 +236,19 @@ He then stood up and gave Nick a big slap across the head.
 
 Jaques took the ticket before he even had time to finish.
 
-"Fantastic! Oh? You returned just in time! Do you hear that, ladies? We have a visitor! Nick, give the rest the tickets while at it." Soon, me and Marie heard the Conductor's whistle. 
+"Fantastic! Oh? You returned just in time! Do you hear that, ladies? We have a visitor! Nick, give the rest the tickets while at it." Soon, me and Marie heard the Conductor's whistle.
 
 The leader clapped and said "Positions, everyone!"
 
 After everyone settled in their chairs, the Conductor entered the cart and began checking. One by one, he got the tickets from the twins, their parents, Gertrude, Matt, Helen, Nick and the remaining three guys.
 
-"Tickets, please." echoed the Conductor in front of Jaques. He then put the ticket on the long fingers of the conductor. 
+"Tickets, please." echoed the Conductor in front of Jaques. He then put the ticket on the long fingers of the conductor.
 
-There were a few seconds of silence, in which the Conductor did nothing. Suddenly, the lights began to flicker intensely. Loud screeches were coming from the Conductor as its body began to twitch violently, its arms flailing around, while the void of its head was losing its uniformity, making it look more like a cloud than anything else. Soon however, just as suddenly, he went still again. His back was arched unnaturally, having a very sharp angle, with his long has bent backwards, touching the floor. The conductor broke the silence by yelling in deep, echoing growling. 
+There were a few seconds of silence, in which the Conductor did nothing. Suddenly, the lights began to flicker intensely. Loud screeches were coming from the Conductor as its body began to twitch violently, its arms flailing around, while the void of its head was losing its uniformity, making it look more like a cloud than anything else. Soon however, just as suddenly, he went still again. His back was arched unnaturally, having a very sharp angle, with his long has bent backwards, touching the floor. The conductor broke the silence by yelling in deep, echoing growling.
 
 "COUNTERFEITING IS A SERIOUS OFFENSE. CRIMINALS WILL NEED TO PAY FOR THEIR CRIMES."
 
-With the lights still flickering, the pale white uniform of the Conductor burst open, revealing a large, jagged mouth. Rows of teeth were spinning inside and outside at blindingly fast speeds, with a blood red eye in the middle. Five tongue like things began extending from the Conductor towards Jaques, grabbing him by his neck, wrists, and ankles. 
+With the lights still flickering, the pale white uniform of the Conductor burst open, revealing a large, jagged mouth. Rows of teeth were spinning inside and outside at blindingly fast speeds, with a blood red eye in the middle. Five tongue like things began extending from the Conductor towards Jaques, grabbing him by his neck, wrists, and ankles.
 
 "WHAT THE FUCK ARE YOU DOING??!!" yelled Jaques at his men. "SAVE ME!!!"
 
@@ -261,3 +261,7 @@ Fifteen more tendrils sprouted from the Conductor, grabbing the men and guiding 
 Once it was out of ear shot, we entered in the main cart. Everyone else was still in their chair completely pale. After a little bit of time, everyone managed to calm down and decided to go to sleep to forget what just happened. After everything was done, I thought we had finally some time to sit down and relax a bit. I thought that we will have smooth sailing from here. Me, Marie and the rest could settle down.
 
 I was wrong.
+
+\-------------------------------------------
+
+[Part 6](https://www.reddit.com/r/nosleep/comments/133xe6z/me_and_my_group_lost_everything_we_had_in_the/)

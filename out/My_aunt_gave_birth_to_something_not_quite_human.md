@@ -14,7 +14,7 @@ I went to visit my aunt after years of not seeing her. She lived on the West Coa
 
 “He’s upstairs. He hasn’t been feeling too good lately. Getting old isn’t for sissies, you know,” she said, laughing slightly before being overtaken by a coughing fit. I nodded again, happy to see her in such a good mood. “But come in, come in! I was just making lunch.” The smell of freshly baked bread and turkey rose from the kitchen, making my stomach growl. I had eaten some peanuts and drank a couple beers on the plane ride over here, but that hadn’t done much to satiate my hunger.
 
-Walking in, I saw photos of my father and mother lining the hallway. They had been killed by a drunk driver a few years earlier, and just seeing their happy, gleeful faces here made me feel depressed about it all over again. I turned my head away, looking at the photos on the other side of the hall. They showed a much younger Aunt Beth and Uncle Bob riding horses in Montana, posing in front of the Great Pyramids and standing next to the Grand Canyon. They had always loved to travel.
+Walking in, I saw photos of my father and mother lining the hallway. They had been killed by a drunk driver a few years earlier, and just seeing their happy, gleeful faces here made me feel depressed about it all over again. I turned my head away, looking at the photos on the other side of the hall. They showed a much younger Aunt Gretchen and Uncle Bob riding horses in Montana with her younger sister Aunt Beth, posing in front of the Great Pyramids with my grandparents and standing next to the Grand Canyon with my father. They had always loved to travel.
 
 “How was your plane ride?” she asked, making small talk as she poured us both some iced tea.
 
