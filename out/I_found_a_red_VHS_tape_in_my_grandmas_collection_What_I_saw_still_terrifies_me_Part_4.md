@@ -1,4 +1,4 @@
- [I found a red VHS tape in my grandma's collection. What I saw still terrifies me (Part 3)](https://www.reddit.com/r/nosleep/comments/1303wmf/i_found_a_red_vhs_tape_in_my_grandmas_collection/)
+[I found a red VHS tape in my grandma's collection. What I saw still terrifies me (Part 3)](https://www.reddit.com/r/nosleep/comments/1303wmf/i_found_a_red_vhs_tape_in_my_grandmas_collection/)
 
 The world outside was now dark and gray from the cloud cover. Soon it would begin to rain. We had all gathered in the large main room of the cabin-turned police station. My family, Cartwright, and the other two less useful troopers. After cussing them out for a healthy amount of time, Cartwright told Serrano, the younger one, to grab his laptop from the office. While the young trooper went off grumbling to do so, Cartwright relayed Isabelle’s realization to the group.
 
@@ -24,7 +24,7 @@ Serrano set down the bulky, out-of-date laptop on the round table we’d been si
 
 “Maybe he didn’t. Maybe he hung around in the woods, but just close enough to ambush you if you tried to come back. If you brought your grandfather along to help.”
 
-“Was no one else at the motel?” Isabelle asked. 
+“Was no one else at the motel?” Isabelle asked.
 
 I shook my head. “It’s not tourist season and why else would someone stay in this place. I had to call the owner. Insist that he came down to give me a key. Waiting in the Ranger was horrifying, but—”
 
@@ -40,7 +40,7 @@ The mood in the air never lessened. I felt the flash drive shifting in my pocket
 
 “Guess he got sick of waiting.”
 
-“Henton. Serrano. You’re both with me,” demanded Cartwright. “Suit up. Full kits. We’re getting this S.O.B. and we’re doing it quickly.” He turned to the five of us. “Can’t have y’all coming with me. It’s too dangerous.” 
+“Henton. Serrano. You’re both with me,” demanded Cartwright. “Suit up. Full kits. We’re getting this S.O.B. and we’re doing it quickly.” He turned to the five of us. “Can’t have y’all coming with me. It’s too dangerous.”
 
 He received no complaint from us. Then he told Thomas, Isabelle, and I to follow him deeper into the station. He unlocked a door to reveal a windowless room filled with guns and ammunition.
 
@@ -52,7 +52,7 @@ He winked at us and patted Thomas on the shoulder. We grabbed a rifle or shotgun
 
 “You think this is the real reason Gramps always took us out hunting? Made sure we knew guns?”
 
-I thought it over and found myself chuckling as well. As we unloaded all of the arms onto the large round table that we’d gathered around earlier, Cartwright gave us some final words. 
+I thought it over and found myself chuckling as well. As we unloaded all of the arms onto the large round table that we’d gathered around earlier, Cartwright gave us some final words.
 
 “The sun’s going down. Get some rest, but you might want to leave some lookouts awake. The cameras keep an eye all around the station. We left the door to the security room unlocked so you can see the screens. I’m sorry we didn’t have any vests for y’all. Only got three and they’re fitted for us.” He looked around seriously at each of us. “You can not. Let me stress this, you can *not* be too careful tonight. Make sure someone has an eye on those screens at all times.”
 
@@ -64,13 +64,13 @@ He nodded. “He’s probably wearing a vest under that coat of his.”
 
 He nodded in agreement. Then with a casual salute he was gone. They took each of their SUVs leaving us with only the van at the edge of the dirt driveway. Thomas went over and deadlocked the front door. As he did, he looked out the window at the blackened sky and the blurry, concealed sun as it touched the treeline.
 
-“It’s starting to rain,” he said. 
+“It’s starting to rain,” he said.
 
-Drops of liquid soon decorated the glass panes as if to prove him right. The similarities to that first encounter with the Hunter made my stomach uneasy. 
+Drops of liquid soon decorated the glass panes as if to prove him right. The similarities to that first encounter with the Hunter made my stomach uneasy.
 
 Could it be so easy? Would the three troopers catch the Hunter by surprise?
 
-My mind went back to what the Hunter said to me. What I had relayed to Cartwright. 
+My mind went back to what the Hunter said to me. What I had relayed to Cartwright.
 
 *“I underestimated you.”*
 
@@ -90,9 +90,9 @@ He smiled at me brightly, expecting a response. I didn’t give one. After the s
 
 It had been an hour of mostly silence. I stared through the open door to the room where my grandparents slept. The questions about my mother and how much of the blame was on my grandfather had been swirling through my head since Cartwright left.
 
-“I don’t know,” I said. “I don’t even know if I blame him in the first place. Maybe I do.” 
+“I don’t know,” I said. “I don’t even know if I blame him in the first place. Maybe I do.”
 
-I shifted my spot at the table and buried my head in my hands, deep in thought. 
+I shifted my spot at the table and buried my head in my hands, deep in thought.
 
 “I don’t think I’ll be able to make sense of it until the Hunter is put away at least. And maybe not for a while after. My whole life I thought my mom was the one to blame. I thought Grandma and Grandpa were saints for taking me in.”
 
@@ -104,7 +104,7 @@ After a moment I sighed and lifted my head again. Before Isabelle could speak I 
 
 “I know. I know. He couldn’t have foreseen what would happen. Even if he wanted to get out, it’s not like it was easy. I mean look where we’re at now.”
 
-“You think those guys are gonna get him?” Thomas asked. He was just near enough to hear the conversation. Inside the security room with the door open, examining the screens. 
+“You think those guys are gonna get him?” Thomas asked. He was just near enough to hear the conversation. Inside the security room with the door open, examining the screens.
 
 I looked down at the old laptop with the map pulled up. Cartwright had taken his phone with him. I logged into the website on that so he could more easily track the Hunter on the move. The marker had come to rest in a house on the edge of town. For a while it continued to move around the vicinity, but now it had remained in one place.
 
@@ -116,11 +116,11 @@ Isabelle instantly shot up from her resting state. I took my attention away from
 
 “I’m not sure. Just some moving in the bushes right now. It’s really hard to tell with how dark the screens are.”
 
-The two of us joined Thomas in the security room. He was right about the vision. Not only the darkness but also the storm. Very little could be seen. Then, just barely, we caught sight of it. 
+The two of us joined Thomas in the security room. He was right about the vision. Not only the darkness but also the storm. Very little could be seen. Then, just barely, we caught sight of it.
 
-We each sighed in relief and shared some mild, awkward laughter at the sight of a cow moose. 
+We each sighed in relief and shared some mild, awkward laughter at the sight of a cow moose.
 
-Isabelle went to lay on the couch again after a while. She hadn’t slept much on the plane ride and was exhausted. I kept Thomas company in the security room. We talked for the better part of an hour about everything we could think of. The revelation of our grandfather’s past. The refutation of all our ideas of imagined experiences. And the realization that both of us were starving. Thomas left the room to rummage through the fridge for something to eat. 
+Isabelle went to lay on the couch again after a while. She hadn’t slept much on the plane ride and was exhausted. I kept Thomas company in the security room. We talked for the better part of an hour about everything we could think of. The revelation of our grandfather’s past. The refutation of all our ideas of imagined experiences. And the realization that both of us were starving. Thomas left the room to rummage through the fridge for something to eat.
 
 That’s when everything went to hell.
 
@@ -134,39 +134,39 @@ Sure enough the walls of the hallway that led deeper into the cabin were lit by 
 
 “To the van!” Grandpa shouted over our yelling. “We have to get to the van, go!”
 
-Into the harsh rains we went. Thomas took the keys and ran through the mud to unlock the doors and turn on the vehicle. Then he stood guard. His gun held high and looking every which way. 
+Into the harsh rains we went. Thomas took the keys and ran through the mud to unlock the doors and turn on the vehicle. Then he stood guard. His gun held high and looking every which way.
 
 Isabelle helped Grandma through the mud to the van where they began to lower the ramp. They yelled at me to hurry, but the thin wheels of my grandfather’s chair digging deep into the slippery sticky earth slowed me immensely.
 
 “Leave me!” he yelled. “It’s me he wants, damn it! Leave me!”
 
-But I wouldn’t. I dragged the chair behind myself as I plowed through the muddy driveway. And then a sudden cracking noise filled the air. It was not thunder. The sound was followed by a shrill and haunting screech. A scream which I will never forget. 
+But I wouldn’t. I dragged the chair behind myself as I plowed through the muddy driveway. And then a sudden cracking noise filled the air. It was not thunder. The sound was followed by a shrill and haunting screech. A scream which I will never forget.
 
 Isabelle pulled Grandma into the van. Grandma who laid on her lap; a splotch of blood spreading through her apron. My grandfather yelled and cried in a way I had never heard before. With the adrenaline now at a peak, I was able to drag the wheelchair to the van. As Thomas shot into the woods, I shoved Grandpa’s chair in, pushed the ramp up, closed the door and got in the passenger's side.
 
-With his shotgun now empty Thomas jumped into the driver’s seat. He peeled away, kicking up mud and swerving his way out to the main road. I looked to the back seat to see my grandmother, thankfully still conscious. Grandpa held her hand and cried, completely unintelligible. 
+With his shotgun now empty Thomas jumped into the driver’s seat. He peeled away, kicking up mud and swerving his way out to the main road. I looked to the back seat to see my grandmother, thankfully still conscious. Grandpa held her hand and cried, completely unintelligible.
 
-“Get to the hospital!” I yelled. 
+“Get to the hospital!” I yelled.
 
 I prayed it would be enough.
 
-Grandma tried to soothe us, though her voice was getting faint. Isabelle ran her fingers through the copper and silver locks of her hair. For a moment nothing at all existed as I watched the color fade from the woman who raised me. Thomas broke the trance with a yell. 
+Grandma tried to soothe us, though her voice was getting faint. Isabelle ran her fingers through the copper and silver locks of her hair. For a moment nothing at all existed as I watched the color fade from the woman who raised me. Thomas broke the trance with a yell.
 
 “Behind us!”
 
-I snapped my head to see through the mirror a pair of bright headlights quickly approaching us. I pulled my handgun from its holster. 
+I snapped my head to see through the mirror a pair of bright headlights quickly approaching us. I pulled my handgun from its holster.
 
-“Is it him?” Isabelle asked. She was answered by the sudden jolt of the van being slammed into by a heavy truck. 
+“Is it him?” Isabelle asked. She was answered by the sudden jolt of the van being slammed into by a heavy truck.
 
-I rolled down my window and leaned out with my gun drawn. I emptied the magazine towards the truck. A few shots hit the vehicle but most ricocheted off the wet asphalt of the highway. I pulled myself back into the van to reload. My hair was dripping from the downfall outside. The inside of the door was soaked and slick from being open so long in such a storm. 
+I rolled down my window and leaned out with my gun drawn. I emptied the magazine towards the truck. A few shots hit the vehicle but most ricocheted off the wet asphalt of the highway. I pulled myself back into the van to reload. My hair was dripping from the downfall outside. The inside of the door was soaked and slick from being open so long in such a storm.
 
 “Drive steady,” I said.
 
 I once again leaned out of the van, this time going so far as to sit on the window sill and hold tightly onto the van's cargo bar to keep from falling.
 
-“Be careful!” Thomas yelled as the truck veered off to the side. 
+“Be careful!” Thomas yelled as the truck veered off to the side.
 
-I saw the Hunter driving. He wore his wooden mask even now. I steadied my gun at him just as he lifted his up to me. Two resounding shots rang out, and two bullets landed. Both of us missed our mark. 
+I saw the Hunter driving. He wore his wooden mask even now. I steadied my gun at him just as he lifted his up to me. Two resounding shots rang out, and two bullets landed. Both of us missed our mark.
 
 The side mirror below me cracked and fell onto the road. The truck decelerated rapidly. I had flattened one of the tires at least. I watched as the vehicle came to a stop, and as the lights faded in the storm.
 
@@ -174,7 +174,7 @@ The side mirror below me cracked and fell onto the road. The truck decelerated r
 
 “I’ll kill the son of a bitch! I’ll kill him!” Grandpa yelled all the way to the hospital.
 
-We got there just in time. The few members of the medical staff in the building were able to steady Grandma’s vitals. 
+We got there just in time. The few members of the medical staff in the building were able to steady Grandma’s vitals.
 
 “We have to life-flight her to Anchorage,” a nurse told us grandchildren just outside of the emergency room. “Only one person can fit in the helicopter with her. Considering how many of the medical staff needs to go with.”
 
@@ -188,7 +188,7 @@ Before he could explain what had happened, Grandpa flew into a rage. Wheeling hi
 
 “None of this would be happening if it wasn’t for you! You almost got us killed as children! You almost got my grandma killed! And you DID kill my mother! All of us are here picking up after you! So don’t just sit there, useless while the rest of us try and fix it!”
 
-Tears streamed down my face. I could hardly see. I could hardly think. And soon, I could hardly speak. As my throat closed tight from emotion. As my tongue stumbled over the words. I gave up and turned away, back to the van. 
+Tears streamed down my face. I could hardly see. I could hardly think. And soon, I could hardly speak. As my throat closed tight from emotion. As my tongue stumbled over the words. I gave up and turned away, back to the van.
 
 I cried. I cried with my head hung low until I felt a hand touch my shoulder. I looked up to see Thomas. He said nothing. But through my tears I saw that he was crying as well. I rested my head on his shoulder and he wrapped his arm around me.
 
@@ -196,7 +196,7 @@ I cried. I cried with my head hung low until I felt a hand touch my shoulder. I 
 
 We didn’t find the truck on the highway back to the station. The Hunter must have thrown on a spare. I rode with Cartwright. I wanted to keep some distance from my grandfather. The whole drive back, Cartwright told me about what had happened after they’d left to track the Hunter down. The GPS led them to a house on the edge of town. They slowly surrounded it before knocking the front and back doors down simultaneously.
 
-The house belonged to the motel owner. After talking to him for a while, they figured out what had happened. The Hunter must have answered the phone while hiding inside of the office. The owner said that the door had been unlocked when he got there despite him always leaving it secured. Once the Hunter realized the police were involved, he slipped the phone into the pocket of a coat left behind in there. When the owner arrived the Hunter was gone. None-the-wiser he grabbed the coat, thinking nothing of it, and went back home. 
+The house belonged to the motel owner. After talking to him for a while, they figured out what had happened. The Hunter must have answered the phone while hiding inside of the office. The owner said that the door had been unlocked when he got there despite him always leaving it secured. Once the Hunter realized the police were involved, he slipped the phone into the pocket of a coat left behind in there. When the owner arrived the Hunter was gone. None-the-wiser he grabbed the coat, thinking nothing of it, and went back home.
 
 We had tracked the owner as a distraction.
 
@@ -207,3 +207,7 @@ The SUV pulled into the driveway of the now charred police station. It was follo
 My grandfather sighed.
 
 [“I know where to go.”](https://www.reddit.com/user/bubblesthshark)
+
+ 
+
+>[I found a red VHS tape in my grandma's collection. What I saw still terrifies me (Final)](https://www.reddit.com/r/nosleep/comments/133e5rg/i_found_a_red_vhs_tape_in_my_grandmas_collection/)

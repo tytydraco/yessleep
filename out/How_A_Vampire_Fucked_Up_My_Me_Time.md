@@ -1,10 +1,10 @@
-If there’s one thing a teenager loves it’s having the house all to themselves. Such was my case. My parents were to spend the weekend at my maternal grandparents’ place for my Grandma’s birthday. I was supposed to go too and told them I needed to catch up on some homework. That wasn’t entirely a lie. 
+If there’s one thing a teenager loves it’s having the house all to themselves. Such was my case. My parents were to spend the weekend at my maternal grandparents’ place for my Grandma’s birthday. I was supposed to go too and told them I needed to catch up on some homework. That wasn’t entirely a lie.
 
 &#x200B;
 
 &#x200B;
 
-It was just that I didn’t have as much to do as I said I did. In my defense, what sixteen-year-old is going to pass that up? Don’t get me wrong, I loved my grandparents, but god damn their house was boring as hell. I can tolerate reminiscent stories of someone’s youth for a couple hours. An entire weekend of it, though was beyond what I could handle. 
+It was just that I didn’t have as much to do as I said I did. In my defense, what sixteen-year-old is going to pass that up? Don’t get me wrong, I loved my grandparents, but god damn their house was boring as hell. I can tolerate reminiscent stories of someone’s youth for a couple hours. An entire weekend of it, though was beyond what I could handle.
 
 &#x200B;
 
@@ -154,11 +154,11 @@ I heard a hiss and whipped my head up, surprised to see someone standing on the 
 
 &#x200B;
 
-In Batman-like fashion, he leaped off the roof, gliding straight for me. Luckily, my legs were faster than my brain and I ran out of the way, causing the vampire to faceplant into a street lamp and fall to the pavement. He was back almost instantly and I ran back to my house with him giving chase. I felt the breeze on the back of my neck from him trying to grab me before making it back inside, then slamming my door and locking it.
+In Batman-like fashion, he leaped off the roof, gliding straight for me. Luckily, my legs were faster than my brain and I ran out of the way, causing the vampire to faceplant into a street lamp and fall to the pavement. He was back up almost instantly and I ran back to my house with him giving chase. I felt the breeze on the back of my neck from him trying to grab me before making it back inside, then slamming my door and locking it.
 
 &#x200B;
 
-My breathing was rapid and no matter what I did I couldn’t calm myself down. I couldn’t believe it. On top of vampires apparently being real, one was trying to kill me. Why he wanted me specifically, I have no idea. 
+My breathing was rapid and no matter what I did I couldn’t calm myself down. I couldn’t believe it. On top of vampires apparently being real, one was trying to kill me. Why he wanted me specifically, I have no idea.
 
 &#x200B;
 
@@ -176,7 +176,7 @@ My throat went dry and I hoped he would just go away. When he didn’t say anyth
 
 &#x200B;
 
-Pacing back and forth in the kitchen, I was trying to decide what to do. The most obvious course of action would be to call the cops. However, somehow I didn’t think they’d take a teenager calling about a vampire seriously. Then again I could leave that part out. The problem with that, though would be how exactly would they be able to help? 
+Pacing back and forth in the kitchen, I was trying to decide what to do. The most obvious course of action would be to call the cops. However, somehow I didn’t think they’d take a teenager calling about a vampire seriously. Then again I could leave that part out. The problem with that, though would be how exactly would they be able to help?
 
 &#x200B;
 
@@ -249,9 +249,6 @@ I gave him a sharp whistle.
 &#x200B;
 
 &#x200B;
-
-   
-
 
 *Are you fucking kidding me? He pulls the hottest girl in school and meanwhile, I'm stuck dealing with shit.*
 
@@ -453,13 +450,13 @@ I snatched his hat off, revealing the now hissing vampire. With a scream, I back
 
 &#x200B;
 
-"Will you get out of here?" I yelled. 
+"Will you get out of here?" I yelled.
 
 &#x200B;
 
 &#x200B;
 
-Dropping the pizza boxes, he hissed, turned into a bat, and flew away. With a sinking feeling, I knew that the delivery driver he stole the clothes and pizza from most likely wasn't alive anymore. When I was sure he was gone, I looked down at the boxes. Free food would be one positive to this experience. I took them in and set them on the kitchen counter. 
+Dropping the pizza boxes, he hissed, turned into a bat, and flew away. With a sinking feeling, I knew that the delivery driver he stole the clothes and pizza from most likely wasn't alive anymore. When I was sure he was gone, I looked down at the boxes. Free food would be one positive to this experience. I took them in and set them on the kitchen counter.
 
 &#x200B;
 
@@ -477,13 +474,13 @@ First, I needed to make dinner. Since the water was now rapidly boiling, I dropp
 
 &#x200B;
 
-I filled it with water and garlic sauce, then grabbed half the loaf of garlic bread, taking a bite. My parents kept a Bible in their room. However, since I wasn't very religious, I wasn't sure how effective it would be. Steeling myself, I got ready to head outside. With luck, maybe the vampire decided to bother someone else. 
+I filled it with water and garlic sauce, then grabbed half the loaf of garlic bread, taking a bite. My parents kept a Bible in their room. However, since I wasn't very religious, I wasn't sure how effective it would be. Steeling myself, I got ready to head outside. With luck, maybe the vampire decided to bother someone else.
 
 &#x200B;
 
 &#x200B;
 
-There was only one way to find out. I opened the door and stepped out, carrying the garbage. So far so good. I kept in the shadows to be more innocuous and managed to reach the trash. Dropping the bags in, I was surprised I made it that far without any issues. That didn't mean I was going to lower my guard. Dropping the bags in, I started wheeling the trash bin to the curb. 
+There was only one way to find out. I opened the door and stepped out, carrying the garbage. So far so good. I kept in the shadows to be more innocuous and managed to reach the trash. Dropping the bags in, I was surprised I made it that far without any issues. That didn't mean I was going to lower my guard. Dropping the bags in, I started wheeling the trash bin to the curb.
 
 &#x200B;
 
@@ -501,7 +498,7 @@ All the while, I was constantly looking over my shoulder. Finally, I heard the w
 
 &#x200B;
 
-In his hands was a carton of eggs which were rotten based on the smell. 
+In his hands was a carton of eggs which were rotten based on the smell.
 
 &#x200B;
 
@@ -655,13 +652,13 @@ I tried fleeing to no avail. The vampire was much faster than me and cut me off 
 
 &#x200B;
 
-Just then there was the revving of an engine accompanied by headlights. The vampire was struck by a truck head-on and hit the asphalt. Connor got out. Cuts were on his face and a wooden stake was in his hand. Before I could ask him what happened, he stormed past me. The vampire was still dazed and he didn't let that opportunity go to waste. 
+Just then there was the revving of an engine accompanied by headlights. The vampire was struck by a truck head-on and hit the asphalt. Connor got out. Cuts were on his face and a wooden stake was in his hand. Before I could ask him what happened, he stormed past me. The vampire was still dazed and he didn't let that opportunity go to waste.
 
 &#x200B;
 
 &#x200B;
 
-He brought down the dagger, driving it straight into the vampire's chest. He could only let out a pained croak as Connor brought up his leg. With mad fury in his eyes, he slammed his foot down on the stake, driving it all the way in. The vampire screeched in pain and burst into flames, leaving only a pile of ash. The wind blew it away. 
+He brought down the dagger, driving it straight into the vampire's chest. He could only let out a pained croak as Connor brought up his leg. With mad fury in his eyes, he slammed his foot down on the stake, driving it all the way in. The vampire screeched in pain and burst into flames, leaving only a pile of ash. The wind blew it away.
 
 &#x200B;
 
@@ -671,7 +668,7 @@ Connor helped me up.
 
 &#x200B;
 
-"Thanks." 
+"Thanks."
 
 &#x200B;
 
@@ -743,7 +740,7 @@ He shrugged.
 
 &#x200B;
 
-"Have you been cooking something?" 
+"Have you been cooking something?"
 
 &#x200B;
 
