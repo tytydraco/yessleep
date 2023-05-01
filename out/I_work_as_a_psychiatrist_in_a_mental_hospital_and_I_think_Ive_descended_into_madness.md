@@ -1,7 +1,3 @@
-*Hello. Before reading this, I would like to say that I am a 15-year-old (don't be creepy, guys) who's a huge fan of horror stories, especially psychological horror. Throughout the pandemic, I loved reading* r/nosleep *stories while I was bored, especially reading one story that is now one of my favorites (please check this story out, it's amazing), "*[*Something walks whistling past my house every night at 3:03.*](https://www.reddit.com/r/nosleep/comments/dyqd5e/something_walks_whistling_past_my_house_every/)*" I decided to take action and start writing my own stories, and this is the first one that I've ever written. I'm sorry if it's pretty short and not to your liking, but I would appreciate a reply, a review/rating, and/or some suggestions for my writing skills. Thank you, and enjoy!*
-
-\-
-
 Throughout my life, I have been aware of the shadowy, intangible forces that have plagued my mind, leaving me grappling with the weight of both schizophrenia and depression for many years. Yet, through the struggles that have punctuated my life, I have developed a deep sense of empathy and understanding for those who also face the demons of mental illness, fueling a desire to help others that have become a defining feature of my life. The culmination of this drive came in the form of my attainment of the coveted title of "Dr. Emily Adams," a momentous achievement that I knew would change the course of my life in ways that were both profound and transformative.
 
 However, on this particular night, as I made my rounds in the towering edifice that was the psychiatric hospital, I couldn't shake the feeling of dread that gripped me. The patient's agonized cries seemed to reverberate through the walls, echoing my own feelings of hopelessness and despair.
@@ -42,7 +38,11 @@ Despite my best efforts, the hospital claimed me as its latest victim. I was swa
 
 &#x200B;
 
+&#x200B;
+
 *32 hours later, I woke up in a hospital bed.*
+
+&#x200B;
 
 &#x200B;
 
@@ -54,15 +54,15 @@ It was an unwelcome realization that shattered my already fragile sense of self.
 
 The shame and confusion were overwhelming as I struggled to reconcile what had happened. How could my own mind have betrayed me so completely, plunging me into a state of mental turmoil and chaos? The answers to these questions were not forthcoming, leaving me to grapple with the devastating consequences of my own deteriorating mental health.
 
-Over the course of my treatment and recovery, I gained invaluable insight into the complexities of mental health and the critical role that early intervention and support can play in proper recovery, something that I failed to do many years ago. Despite my initial belief that medication and therapy had freed me from the grips of schizophrenia, it has become apparent that the condition never truly left me. However, subsequent to my months-long discharge, I had successfully reinstated my employment at the psychiatric hospital.
+Over the course of my treatment and recovery, I gained invaluable insight into the complexities of mental health and the critical role that early intervention and support can play in proper recovery, something that I failed to do many years ago. Despite my initial belief that medication and therapy had freed me from the grips of schizophrenia, it has become apparent that the condition never truly left me. However, subsequent to my months-long discharge, I successfully reinstated my employment at the psychiatric hospital.
 
-One night, driven by a morbid curiosity, I delved into the surveillance footage of the fateful night when the hospital claimed me as its prey. As I was ready to click on the surveillance footage from that cursed night, I could feel the weight of trepidation sinking into my bones. 
+One night, driven by a morbid curiosity, I delved into the surveillance footage of the fateful night when the hospital claimed me as its prey. As I was ready to click on the surveillance footage from that cursed night, I could feel the weight of trepidation sinking into my bones.
 
-The footage flickered to life on the screen, revealing the hospital corridors shrouded in a murky darkness. Suddenly, a shape began to take form in the shadows. It was a monstrous figure, twisted and contorted in a way that defied human anatomy. Its movements were swift and silent, almost as if it was gliding across the floor, and its eyes glinted with a malevolent glimmer, and its gaping maw seemed to stretch wider and wider, as if preparing to swallow me whole. Throughout this nightmare of a video, only one thing stretched throughout my mind.
+The footage flickered to life on the screen, revealing the hospital corridors shrouded in murky darkness. Suddenly, a shape began to take form in the shadows. It was a monstrous figure, twisted and contorted in a way that defied human anatomy. Its movements were swift and silent, almost as if it was gliding across the floor, and its eyes glinted with a malevolent glimmer, and its gaping maw seemed to stretch wider and wider as if preparing to swallow me whole. Throughout this nightmare of a video, only one thing stretched through my mind.
 
 &#x200B;
 
-*How did I survive?* 
+*How did I survive?*
 
 &#x200B;
 
