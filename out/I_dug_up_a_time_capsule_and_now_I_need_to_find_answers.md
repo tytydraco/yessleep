@@ -202,4 +202,4 @@ I gave them a wave and closed the door behind me.
 
 [\[Part 4\]](https://www.reddit.com/r/nosleep/comments/12ugx3m/i_dug_up_a_time_capsule_and_ive_seen_whats_beyond/)
 
-[\[Part 5\]](https://www.reddit.com/r/Wine_Dark_Sea_1239/comments/132a0lp/time_capsule_series_part_5_removed_from_nosleep/?utm_source=share&utm_medium=web2x&context=3)
+[\[Part 5\]](https://www.reddit.com/r/nosleep/comments/130uef3/i_dug_up_a_time_capsule_and_we_are_all_paying_for/)
