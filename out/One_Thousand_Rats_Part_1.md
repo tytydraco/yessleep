@@ -582,4 +582,6 @@ But for now, just, watch out for yourselves.
 
  
 
- 
+ Link to part 2
+
+https://www.reddit.com/r/nosleep/comments/134d739/one_thousand_rats_part_2/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button
