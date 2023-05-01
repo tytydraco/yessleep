@@ -1,5 +1,7 @@
 [\[Part 1\]](https://www.reddit.com/r/nosleep/comments/1328o2v/i_trapped_a_monster_in_my_garden_shed_part_1/)
 
+[\[Part 3\]](https://www.reddit.com/r/nosleep/comments/1346qz4/i_trapped_a_monster_in_my_garden_shed_part_3/)
+
 I didn’t sleep well last night.
 
 My ears are still ringing, and I’m kicking myself for not putting in my earplugs. 30-30 rounds are loud enough, but when you’re shooting from inside a boarded-up church, the report is deafening. I went through another 67 rounds of ammunition, and if this keeps up, soon I’ll have to use my over-under twelve gauge. I wish I’d bought more ammo before coming here, but I didn’t expect to be fighting a war over God’s house, much less one where my opponents are ghoulish fiends of the night. Oh well, hindsight is 20/20 after all.
