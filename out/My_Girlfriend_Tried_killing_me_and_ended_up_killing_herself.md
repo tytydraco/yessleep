@@ -68,6 +68,8 @@ She was nervous at first and stayed quiet for a while but then "she replied:"
 "Aiden, I have the same feelings towards you and I wanted to make a move but I thought of staying longer before confessing to you, And by seeing you now and confessing to me that you have feelings for me...I TOTALLY AGREE!"
 ---------------------------------------------------------------------
 
+
+
 I was so happy and almost ended up crying due to the overload of happiness and dopamine flowing inside of me.
 And Yes, We Officially became together in a lovely relationship.
  (That turned into a nightmare...)
@@ -93,9 +95,10 @@ He never answered my calls or met me in person. Which was so off and weird.
 
 "Why the heck wouldn't her brother answer me or even meet me in person".
 *I said to myself*
+
 ---------------------------------------------------------------------
 
-After many tries of calming my gf and trying to contact her family to see what's going on. Cate started to talk about suicide and about ending her suffering. I suddenly realized that I'm dealing with a positive suicide case right now. If I don't pay attention to what I say. She would end killing herself.
+After many tries of calming my gf and trying to contact her family to see what's going on. Cate started to talk about suicide and about ending her suffering. I suddenly realized that I'm dealing with a positive suicide case right now. If I don't pay attention to what I say. She would end up killing herself.
 ---------------------------------------------------------------------
 
 I would always talk to her about leaving these thoughts and to do something she loves like going to parks or Cafés.
@@ -246,6 +249,7 @@ I was free from all her problems and her family's hell..But at what cost...
 
 Since that day, I never fell in love or even made contact with any girl or woman and never heard from Cate's family ever again...
 ---------------------------------------------------------------------
+
 
 
  -My Girlfriend Tried to Kill me and ended up killing herself-
