@@ -1,6 +1,8 @@
 I am going to begin with an apology. This is a long story. There are a lot of people involved and a lot has happened. I am determined to give everything its due.
 
-What follows is, as far as I am looking at it, an origin story. It is the story of how I came to be a part of The Séance Club. It is the story of a long weekend at Windhaven Manor, and how we found ourselves caught in a struggle between the living and the dead. 
+What follows is, as far as I am looking at it, an origin story. It is the story of how I came to be a part of The Séance Club. It is the story of a long weekend at Windhaven Manor, and how we found ourselves caught in a struggle between the living and the dead.
+
+ [Part 2](https://www.reddit.com/r/nosleep/comments/134kgom/the_s%C3%A9ance_club_a_second_s%C3%A9ance/)
 
 \----
 
@@ -10,27 +12,27 @@ A strange humming rose up in my body. It was something I had only felt once befo
 
 The buzzing intensified the moment I stepped into the bar. I gritted my teeth and told myself there was some other cause. Perhaps the wall of air warmed by radiators and the body heat of Friday night drinkers after a long week of work. Or the sickly smell of alcohol. Or the incessant staccato of chatter and laughter. But that was a lie, and I knew it.
 
-I tried to ignore it. To focus instead on Freddie, the tall Scot who, for the grand total of a month, had been my boss. He talked with a laconic drawl that was instantly engaging. In the bar, cradling three-quarters of a pint, he held court. The ring of colleagues all laughed as if on cue, and I forced a smile even though I missed the punchline. 
+I tried to ignore it. To focus instead on Freddie, the tall Scot who, for the grand total of a month, had been my boss. He talked with a laconic drawl that was instantly engaging. In the bar, cradling three-quarters of a pint, he held court. The ring of colleagues all laughed as if on cue, and I forced a smile even though I missed the punchline.
 
-I pulled at the collar of my shirt. Sickness rose in my stomach. I had forgotten that part. Beth touched the back of her hand to my shoulder and a thin voice penetrated the bubble. 
+I pulled at the collar of my shirt. Sickness rose in my stomach. I had forgotten that part. Beth touched the back of her hand to my shoulder and a thin voice penetrated the bubble.
 
 “Do you want another?”
 
-A mouthful of beer remained in my glass, but I didn’t want it. I nodded and broke eye contact and left the circle. I needed a breather. I had hidden in the school toilets that first time. Now, I fell back on old habits. This time my parents wouldn’t come and take me home. This time I was on my own. 
+A mouthful of beer remained in my glass, but I didn’t want it. I nodded and broke eye contact and left the circle. I needed a breather. I had hidden in the school toilets that first time. Now, I fell back on old habits. This time my parents wouldn’t come and take me home. This time I was on my own.
 
-I grabbed at the rail above the narrow stone steps leading to the lower floor. The cold and inert steel was like a limb gone numb refusing to join my body in its flurry of activity. My head swam. Why are the toilets always down in the cellar? 
+I grabbed at the rail above the narrow stone steps leading to the lower floor. The cold and inert steel was like a limb gone numb refusing to join my body in its flurry of activity. My head swam. Why are the toilets always down in the cellar?
 
-If upstairs was claustrophobic, the cellar was an oppressive cocoon. The vibration buzzed with such intensity it almost drowned out the heavy bass of the music from upstairs. I slipped on the bottom step and threw out my arms. The rough stone walls tore at my skin, but I barely felt it. 
+If upstairs was claustrophobic, the cellar was an oppressive cocoon. The vibration buzzed with such intensity it almost drowned out the heavy bass of the music from upstairs. I slipped on the bottom step and threw out my arms. The rough stone walls tore at my skin, but I barely felt it.
 
-At the end of the dimly lit passageway stood two wooden doors. The sign reading ‘*Gents’* offered itself as my saviour. If I could make it there and sit, perhaps it would pass. I didn’t make it. I buckled at the knees and collapsed to the floor a mere three paces from the stairs. 
+At the end of the dimly lit passageway stood two wooden doors. The sign reading ‘*Gents’* offered itself as my saviour. If I could make it there and sit, perhaps it would pass. I didn’t make it. I buckled at the knees and collapsed to the floor a mere three paces from the stairs.
 
-I scrambled into a seated position and propped against the wall. A severe pain radiated from the base of my skull. I leaned forwards and tried to raise myself from the ground. A man wearing a pair of rough leather shoes came from the other end of the corridor and stopped before me. 
+I scrambled into a seated position and propped against the wall. A severe pain radiated from the base of my skull. I leaned forwards and tried to raise myself from the ground. A man wearing a pair of rough leather shoes came from the other end of the corridor and stopped before me.
 
 “Are you here to help?”
 
 I didn’t understand the question. I was the one on the ground. I could have sworn my mouth filled with water and I turned to spit, but nothing came.
 
-Using the wall for support I stood. The small man stared up at me open mouthed. He wore a filthy button-up shirt that could have come from a thrift store and smelled of fish. He irradiated a warmth and seemed to buzz with the same electricity pumping through my own body. I thought of that boy, all those years ago. He had buzzed too. That was how I explained it to my mother. 
+Using the wall for support I stood. The small man stared up at me open mouthed. He wore a filthy button-up shirt that could have come from a thrift store and smelled of fish. He irradiated a warmth and seemed to buzz with the same electricity pumping through my own body. I thought of that boy, all those years ago. He had buzzed too. That was how I explained it to my mother.
 
 He lifted his eyebrows expectantly.
 
@@ -48,29 +50,29 @@ It was Beth. I pushed off the wall and stood under my own steam. I nodded.
 
 “Who are you talking to?”
 
-I searched her face for any sign that she was joking. I found only a genuine concern. I looked at the man in the tattered shoes and filthy shirt and then back to Beth. Her eyes flicked to the corridor behind and then back to me. She couldn’t see him. The other kids and the school maintenance man couldn’t see the boy stuck under the table either. 
+I searched her face for any sign that she was joking. I found only a genuine concern. I looked at the man in the tattered shoes and filthy shirt and then back to Beth. Her eyes flicked to the corridor behind and then back to me. She couldn’t see him. The other kids and the school maintenance man couldn’t see the boy stuck under the table either.
 
 I shook my head. “No one. I’m talking to myself.”
 
-The man reached out a hand and touched me. A blunt shock of electricity smacked my arm and I pulled away. 
+The man reached out a hand and touched me. A blunt shock of electricity smacked my arm and I pulled away.
 
 “I need help,” he said.
 
-I turned my back to him. 
+I turned my back to him.
 
 “Are you alright?” Beth asked.
 
 I shook my head. “I’m feeling a bit off. Better head home.”
 
-I pushed past her and stumbled up the stairs. A pair of voices entreated me to wait; Beth and the man who only I could see. I tripped on the top step and sprawled onto the floor. A group of guys with loosened ties and elbows on the bar laughed. I picked myself up and made a bee line for the door, keeping my head down and making eye contact with no one. Back then in the schoolyard, I had insisted the boy was there. That it was everyone else who was crazy. Today I would not be so stubborn. 
+I pushed past her and stumbled up the stairs. A pair of voices entreated me to wait; Beth and the man who only I could see. I tripped on the top step and sprawled onto the floor. A group of guys with loosened ties and elbows on the bar laughed. I picked myself up and made a bee line for the door, keeping my head down and making eye contact with no one. Back then in the schoolyard, I had insisted the boy was there. That it was everyone else who was crazy. Today I would not be so stubborn.
 
 On the train home I played the event back over in my head. By now Beth had returned to my colleagues standing in a circle drinking beer and told them. Would they laugh? Would they raise eyebrows? Would they say to each other that they had known from the first there was something wrong with me? Coming to the city was a bad idea. Mother had been right. I had hoped for so long that she was wrong.
 
-That night I did not sleep. I was caught between a home I had left and to which I did not want to return, and a future life that may already be slipping from my fingers. It was the loneliest night of my life. 
+That night I did not sleep. I was caught between a home I had left and to which I did not want to return, and a future life that may already be slipping from my fingers. It was the loneliest night of my life.
 
 \-----
 
-My mother often spoke of fate and God’s plan. For her nothing ever happened without a reason. If she were with me the night after the incident in the cellar of The Exchange, she would have said that it was God telling me I made a mistake leaving home and coming to the city. That I was never meant to live a normal life. Not someone like me. And I might have agreed with her. 
+My mother often spoke of fate and God’s plan. For her nothing ever happened without a reason. If she were with me the night after the incident in the cellar of The Exchange, she would have said that it was God telling me I made a mistake leaving home and coming to the city. That I was never meant to live a normal life. Not someone like me. And I might have agreed with her.
 
 I did not expect what happened next. There was no mention of it at work on Monday. The topic of conversation was football. I remained on the sidelines.
 
@@ -82,19 +84,19 @@ And then came the invitation. Beth asked me to join her friends on a trip to the
 
 Beth continued, undeterred. “We’re going to a place in Windhaven next week, you should come along.”
 
-Everything happens for a reason. Beth wasn’t shunning me as I feared, but throwing me a life preserver. I told her I would go. A split second decision I had no idea how to rescind. With every passing second I found justification. I came to the city to make friends, to live a life, a life my mother tried to deny me. I couldn’t spend it hiding. I couldn’t run away. I had run away from mother and home already. Where else was there to go? 
+Everything happens for a reason. Beth wasn’t shunning me as I feared, but throwing me a life preserver. I told her I would go. A split second decision I had no idea how to rescind. With every passing second I found justification. I came to the city to make friends, to live a life, a life my mother tried to deny me. I couldn’t spend it hiding. I couldn’t run away. I had run away from mother and home already. Where else was there to go?
 
 Deep down I knew the reason I said yes. There was a question that hung over my head every waking moment since that day in the schoolyard. Am I really different from everyone else?
 
-Beth promised to pick me up outside my flat. I twisted the handle of my bag as I waited. The night had brought the cold and I let my lower jaw rattle. A white Camry slowed and then stopped and I bent at the waist to search for Beth’s unfailingly friendly face through the window. The tint on the windows meant I saw my own reflection. I hesitated and then thrust out my hand and opened the door. She smiled under the glow cast by the light above her head. 
+Beth promised to pick me up outside my flat. I twisted the handle of my bag as I waited. The night had brought the cold and I let my lower jaw rattle. A white Camry slowed and then stopped and I bent at the waist to search for Beth’s unfailingly friendly face through the window. The tint on the windows meant I saw my own reflection. I hesitated and then thrust out my hand and opened the door. She smiled under the glow cast by the light above her head.
 
 Parker lived a five minute drive away and was ready at the front door when we pulled up. He piled his bags into the back – a small travel bag and three bigger, heavier bags. Beth warned me about this. Parker, she said, was a bit of a tech geek. He had temperature monitors and sound recorders and video cameras to record the séance. Together with Juliet they ran a small online channel and uploaded the videos of each event.
 
 I moved into the back seat and let Parker sit up front with Beth. They chatted away like the old friends they were and I let them. My knees were pushed high in the cramped back seat. I felt like an extra and unnecessary limb.
 
-As the city and its endless warren of bitumen and brick gave way to the motorway cutting through fields, the open spaces brought calm and reminded me of home. It had been a good idea to come, and even with a séance scheduled at midnight, it still might be the best night’s sleep for weeks. 
+As the city and its endless warren of bitumen and brick gave way to the motorway cutting through fields, the open spaces brought calm and reminded me of home. It had been a good idea to come, and even with a séance scheduled at midnight, it still might be the best night’s sleep for weeks.
 
-“Awful quiet back there,” Parker said, half turning but not taking his eyes off the road ahead. 
+“Awful quiet back there,” Parker said, half turning but not taking his eyes off the road ahead.
 
 I froze in my seat, unable to find a suitable response. Brushing aside an initial instinct to apologise, I tried to find a joke to insert into the silence and my brain blanked.
 
@@ -150,13 +152,13 @@ He turned to me now, a big smile on his face.
 
 “Have you not seen my equipment? It’s all very expensive and high tech. How dare you call me anything but legitimate. Did she tell you about Juliet?”
 
-“Yes.” Beth had mentioned Juliet. The third member of the so-called Séance Club. She hadn’t given any details, only that it was Juliet who had formed the club and it was she who led the séance itself. 
+“Yes.” Beth had mentioned Juliet. The third member of the so-called Séance Club. She hadn’t given any details, only that it was Juliet who had formed the club and it was she who led the séance itself.
 
 “She’s harmless,” Beth said.
 
-“She can be a bit much for first timers,” Parker said. “She’s so excited about it all she drove up early. After you first meet I’ll pull you aside and get a report on your first impression. And make sure you compliment her Ouija board. She’s proud of it.” 
+“She can be a bit much for first timers,” Parker said. “She’s so excited about it all she drove up early. After you first meet I’ll pull you aside and get a report on your first impression. And make sure you compliment her Ouija board. She’s proud of it.”
 
-Parker chuckled. 
+Parker chuckled.
 
 I had never even seen a Ouija board, except in the movies. I brought the image to mind, letters lined up alphabetically and a ‘yes’ in one corner and a ‘no’ in the other.
 
@@ -168,9 +170,9 @@ We left the main road and wound up the hill on a narrow gravel track. Beth squin
 
 “There,” Parker said, pointing.
 
-Two marble pillars and a giant steel gate marked the entrance. A fence of crumbling stone separated the grounds from the rolling countryside. The fence looked old, almost ancient. On the pillar to the right was a sign. Beth slowed and read the black lettering aloud. Windhaven Manor. 
+Two marble pillars and a giant steel gate marked the entrance. A fence of crumbling stone separated the grounds from the rolling countryside. The fence looked old, almost ancient. On the pillar to the right was a sign. Beth slowed and read the black lettering aloud. Windhaven Manor.
 
-The long driveway was lined with trees, skeletal and black in the winter darkness. The headlights struggled to reach beyond the front row of trees, hinting at a deeper and darker forest beyond. My mind formed impressions of decrepit structures hiding out there among the woods. 
+The long driveway was lined with trees, skeletal and black in the winter darkness. The headlights struggled to reach beyond the front row of trees, hinting at a deeper and darker forest beyond. My mind formed impressions of decrepit structures hiding out there among the woods.
 
 At the end of the driveway stood the house, illuminated on one side by a spotlight set in the front yard that shone back onto the house. It created an unusual effect, as if there should be a second light on the other side for symmetry. But as it was, one side of the house was bathed in light and the other side was obscured in murky shadow.
 
@@ -182,7 +184,7 @@ Parker jumped out and pulled the seat forward so I could exit. I stood tall and 
 
 “Are you alright?” Parker said.
 
-“Yes,” I lied. I took a couple of quick and deep breaths. The now familiar vibration buzzed again in my ears. I willed it to stop. It didn’t listen. 
+“Yes,” I lied. I took a couple of quick and deep breaths. The now familiar vibration buzzed again in my ears. I willed it to stop. It didn’t listen.
 
 Beth stopped unloading the car and put a hand on my arm. “Are you sure you’re ok?”
 
@@ -198,13 +200,13 @@ Beth put her hand on my back. “Do you need to be sick?”
 
 “Here, take a walk with me.”
 
-She wrapped her fingers around my forearm and led me to the side of the house. Tables and chairs of painted metal stood on a large grassed area. A giant oak tree stood alone surrounded by flower beds. The breeze carried the smell of the ocean. I took a deep breath. 
+She wrapped her fingers around my forearm and led me to the side of the house. Tables and chairs of painted metal stood on a large grassed area. A giant oak tree stood alone surrounded by flower beds. The breeze carried the smell of the ocean. I took a deep breath.
 
 “I don’t know what came over me,” I said.
 
 “You’ll be fine.”
 
-A storm brewed in the distance. Lightning lit up the sky and for a moment the vista of green field in the foreground and dark blue ocean in the background flashed before us. Thunder rumbled, low and deep. The wind picked up and smelled of rain. 
+A storm brewed in the distance. Lightning lit up the sky and for a moment the vista of green field in the foreground and dark blue ocean in the background flashed before us. Thunder rumbled, low and deep. The wind picked up and smelled of rain.
 
 “Maybe the talk of ghosts got to me a bit,” I said shakily.
 
@@ -214,15 +216,15 @@ A storm brewed in the distance. Lightning lit up the sky and for a moment the vi
 
 “Right.”
 
-Lightning streaked horizontally in the clouds above. I could make out the edge of the land before it fell away to the ocean below. A girl stood out there in the distance by the edge. She stood far off, but somehow I saw her as if she were right beside me. She wore red and her black hair fell in ropes as if it were wet. She looked up at the house, at us standing there. Then darkness came again. I was about to ask Beth if she had seen the girl and then another flash of lightning lit up the sky and the girl was gone. 
+Lightning streaked horizontally in the clouds above. I could make out the edge of the land before it fell away to the ocean below. A girl stood out there in the distance by the edge. She stood far off, but somehow I saw her as if she were right beside me. She wore red and her black hair fell in ropes as if it were wet. She looked up at the house, at us standing there. Then darkness came again. I was about to ask Beth if she had seen the girl and then another flash of lightning lit up the sky and the girl was gone.
 
-A clap of thunder, closer now. 
+A clap of thunder, closer now.
 
 The first drops of rain fell.
 
 “Let’s get the bags inside,” I said.
 
-Inside it was cold and I left my coat on. The narrow foyer led to a double-height space in the centre of the house, with a wide staircase at the back. A chandelier hung from the ceiling and portraits in gold frames hung on the walls. All the rooms, upstairs and down, were arranged around the perimeter. 
+Inside it was cold and I left my coat on. The narrow foyer led to a double-height space in the centre of the house, with a wide staircase at the back. A chandelier hung from the ceiling and portraits in gold frames hung on the walls. All the rooms, upstairs and down, were arranged around the perimeter.
 
 A door swung open in the back corner and Parker leaned out.
 
@@ -236,13 +238,13 @@ I crossed to the adjacent corner and knocked on the door. Beth stood over the be
 
 “Can we swap rooms?” I said.
 
-“Is it not to your liking Mr. Ash?” she said, putting on the air of a frustrated concierge. 
+“Is it not to your liking Mr. Ash?” she said, putting on the air of a frustrated concierge.
 
-“No,” I stammered, my addled brain searching for a way to keep the joke going, but I found none. And so my response hung in the air. I wiped back my fringe and looked away. 
+“No,” I stammered, my addled brain searching for a way to keep the joke going, but I found none. And so my response hung in the air. I wiped back my fringe and looked away.
 
 “Oh, no problem,” she said and zipped up the bag.
 
-I took a step back and gave her space. She slipped by and I mumbled an apology. She smiled. She opened the door and turned on the light. I entered my room and closed the door behind me. 
+I took a step back and gave her space. She slipped by and I mumbled an apology. She smiled. She opened the door and turned on the light. I entered my room and closed the door behind me.
 
 The bed looked like an antique, its ancient metal frame roughened with age. An oversized chair made of thick, dark wood was pushed into one corner. An elongated oval-shaped mirror hung on the wall beside the chair, tall enough to reflect my entire body. I turned away from my own gaze and punched the bed and wondered if Beth heard. I dumped my bag beside the bed and went downstairs.
 
@@ -254,11 +256,11 @@ The door Parker had appeared from led to the kitchen at the back of the house. A
 
 “When you want some they’ll be here. Don’t take the pizza out this room. Juliet doesn’t want the smell contaminating the rest of the house. She’s particular with the scents and the lighting and everything else.”
 
-Parker crammed the rest of the slice into his mouth. 
+Parker crammed the rest of the slice into his mouth.
 
 “Let’s go introduce you to Juliet,” he said.
 
-The formal dining room was as big as my apartment. Thick curtains were drawn against the huge windows. High above hung an ornate chandelier, but it and all other lights were off. Stationed around the perimeter of the room were a dozen or so candles giving off thin wisps of acrid smoke. 
+The formal dining room was as big as my apartment. Thick curtains were drawn against the huge windows. High above hung an ornate chandelier, but it and all other lights were off. Stationed around the perimeter of the room were a dozen or so candles giving off thin wisps of acrid smoke.
 
 Parker flicked on a set of lights hung from the wall. Juliet spun around and glared at him.
 
@@ -266,13 +268,13 @@ Parker flicked on a set of lights hung from the wall. Juliet spun around and gla
 
 “We haven’t started yet. I need a few minutes to set up the equipment. Come say hello to Sam.”
 
-Juliet winced and crossed the room. I held out my hand and she took it. She was small and impossibly thin and dressed all in white. She wore a gold necklace ending in a pendant shaped like a star. A thin line of black mascara framed the top row of eyelashes. 
+Juliet winced and crossed the room. I held out my hand and she took it. She was small and impossibly thin and dressed all in white. She wore a gold necklace ending in a pendant shaped like a star. A thin line of black mascara framed the top row of eyelashes.
 
 She took a step back, keeping hold of my hand. “Do you have something lighter to wear? We try to avoid black. It helps the spirits understand we are not here to harm.”
 
 I pulled at my coat. “It’s a bit cold in here. But I can take it off for the performance.”
 
-Juliet gave a slight shake of her head and released my hand. “I’m not feeling your energy. Do not take offence if I ask you to leave the room during the séance.” She hit the last word a little harder than the rest. 
+Juliet gave a slight shake of her head and released my hand. “I’m not feeling your energy. Do not take offence if I ask you to leave the room during the séance.” She hit the last word a little harder than the rest.
 
 I searched the table for the Ouija board Parker had mentioned.
 
@@ -280,7 +282,7 @@ I searched the table for the Ouija board Parker had mentioned.
 
 Juliet made a ticking noise with her tongue. “Sam, Ouija boards are children’s toys. We are not here on children’s business.”
 
-From across the room Parker smiled and winked. He had stitched me up. 
+From across the room Parker smiled and winked. He had stitched me up.
 
 Beth walked in holding a slice of pizza.
 
@@ -292,7 +294,7 @@ Juliet waved a hand and closed the door.
 
 “Come and help me Sam,” Parker said.
 
-Sam unzipped the largest of the black bags and pulled out a tripod. 
+Sam unzipped the largest of the black bags and pulled out a tripod.
 
 “Set that up in the corner.”
 
@@ -300,23 +302,23 @@ Sam unzipped the largest of the black bags and pulled out a tripod.
 
 “Right there.”
 
-I fumbled with the legs and finally got them to click. Parker swung in behind and propped a video camera on top. He switched it on and framed the table and turned it off again. 
+I fumbled with the legs and finally got them to click. Parker swung in behind and propped a video camera on top. He switched it on and framed the table and turned it off again.
 
 “This one does visible light. This guy here does the infrared.”
 
-He opened a second of the bags and pulled out a black rectangular contraption that had two lenses on the front and a tablet with a screen on the back. He propped it on a wooden chest against the back wall. 
+He opened a second of the bags and pulled out a black rectangular contraption that had two lenses on the front and a tablet with a screen on the back. He propped it on a wooden chest against the back wall.
 
 “Then we have these.”
 
-He handed me a small device a bit bigger than a television remote. At the top was a coloured scale protected by a glass screen. 
+He handed me a small device a bit bigger than a television remote. At the top was a coloured scale protected by a glass screen.
 
 “This one,” he said, “measures electromagnetic fields. And last but not least we have the sound recorder.”
 
-He plopped a silver box on the table in the middle of the room. 
+He plopped a silver box on the table in the middle of the room.
 
 “And that’s it. Ghost hunting 101.”
 
-I fingered the switches on the sound recorder, happy to have something to take my mind off the unease in my stomach and the cold. 
+I fingered the switches on the sound recorder, happy to have something to take my mind off the unease in my stomach and the cold.
 
 “Have you ever captured anything?”
 
@@ -336,7 +338,7 @@ I started with a beer. The first few sips bubbled in my stomach and threatened t
 
 Parker said, “There he is.”
 
-Rain belted against the windows. Another flash lit up the room and thunder followed immediately and we all brought our hands to our ears. The power went out. Juliet, led by the light of her phone, brought back four candles and stood them on the table and lit them. 
+Rain belted against the windows. Another flash lit up the room and thunder followed immediately and we all brought our hands to our ears. The power went out. Juliet, led by the light of her phone, brought back four candles and stood them on the table and lit them.
 
 Parker pushed his face into the glow of a candle and smiled. “Now we have the right atmosphere.”
 
@@ -382,17 +384,17 @@ And then there was a knock at the table. I opened my eyes. Juliet, Parker and Be
 
 “We thank you.” Juliet bowed her head.
 
-My heart beat faster. The vibration turned to resonance and threatened to burst through my skin. A strange feeling grew from within and my mind drifted as it does at the moment of falling asleep. The sound of the rain pelting against the window softened. I closed my eyes. 
+My heart beat faster. The vibration turned to resonance and threatened to burst through my skin. A strange feeling grew from within and my mind drifted as it does at the moment of falling asleep. The sound of the rain pelting against the window softened. I closed my eyes.
 
-When I opened them again the door to the dining room was open. I was sure it was closed when we began. A light came from the hallway and my first thought was that the power had come back on. The temperature dropped and I wished I had my coat. 
+When I opened them again the door to the dining room was open. I was sure it was closed when we began. A light came from the hallway and my first thought was that the power had come back on. The temperature dropped and I wished I had my coat.
 
 A figure appeared in the door. A girl dressed in white with long flowing blonde hair. Every muscle in my body tensed and I slapped my palms on the table. A rush of wind circled the room and a few candles went out. The girl dressed in white entered the room. She passed by Parker and as she did Parker sat bolt upright and opened his eyes wide. He swivelled his head from side to side, searching the darkened room.
 
-“What is happening?” Beth’s voice sounded distant even though she sat beside me. I looked to her and, like Parker, her eyes were open and she wore a look of pure terror. 
+“What is happening?” Beth’s voice sounded distant even though she sat beside me. I looked to her and, like Parker, her eyes were open and she wore a look of pure terror.
 
 Juliet brought down her arms. She opened her mouth but her voice faltered. She finally managed to say, “We acknowledge your presence.”
 
-The girl in white turned and came towards me. She walked slowly and deliberately. Around her neck was a gold necklace hanging a heart-shaped pendant. She held her hands together and in front as if she were carrying a bouquet down a wedding aisle, but there was nothing in her hands. A flash of lightning lit up the room and the girl. Her eyes were big and blue and hinted at tears. Where her mouth should be was nothing but a strip of skin. 
+The girl in white turned and came towards me. She walked slowly and deliberately. Around her neck was a gold necklace hanging a heart-shaped pendant. She held her hands together and in front as if she were carrying a bouquet down a wedding aisle, but there was nothing in her hands. A flash of lightning lit up the room and the girl. Her eyes were big and blue and hinted at tears. Where her mouth should be was nothing but a strip of skin.
 
 Behind her the door slammed shut and then opened and slammed shut again. Parker stood and picked up the camera from the tripod.
 
@@ -402,7 +404,7 @@ Behind her the door slammed shut and then opened and slammed shut again. Parker 
 
 A flash of lightning and thunder on its heels, the sound muffled like the voices in the room.
 
-The girl stopped beside me. A candle burned behind us and gave her pale skin a glow. She leaned down as if to whisper in my ear, but no words came. Her face was now inches from mine and the electricity buzzed in my ear with such intensity that I braced for a shock. 
+The girl stopped beside me. A candle burned behind us and gave her pale skin a glow. She leaned down as if to whisper in my ear, but no words came. Her face was now inches from mine and the electricity buzzed in my ear with such intensity that I braced for a shock.
 
 She brought her hands to her face and brushed them on the skin where her mouth should be. Some phantom transparent cord tied her wrists together.
 
@@ -410,9 +412,9 @@ My lungs filled with stale air. My eyes burned as if I had spent the last hour c
 
 “What do you want?” I said.
 
-The girl stood tall and she held my gaze. The table shook and the windows rattled. I felt a presence behind me. The girl in white looked up and over my shoulder. Her body tensed and she bent over and flailed as if she were having a seizure. She brought her hands to her face and covered her eyes. She grabbed at her hair and pulled. And then in an instant the girl in white went limp. She fell back, but she did not hit the floor and instead floated above it as if carried by some invisible force. 
+The girl stood tall and she held my gaze. The table shook and the windows rattled. I felt a presence behind me. The girl in white looked up and over my shoulder. Her body tensed and she bent over and flailed as if she were having a seizure. She brought her hands to her face and covered her eyes. She grabbed at her hair and pulled. And then in an instant the girl in white went limp. She fell back, but she did not hit the floor and instead floated above it as if carried by some invisible force.
 
-The hair on the back of my neck prickled. The sensation of a presence behind me grew. A shape, a silhouette appeared in my mind’s eye, dark and somehow hostile. I dared not turn and look.  
+The hair on the back of my neck prickled. The sensation of a presence behind me grew. A shape, a silhouette appeared in my mind’s eye, dark and somehow hostile. I dared not turn and look.
 
 The girl in white floated over the table and hovered for a moment. The door flung open and in an instant the girl in white flew through the opening and into the corridor. The door slammed shut.
 
@@ -428,8 +430,8 @@ A clap of thunder penetrated deep into my head and I fell back off my chair and 
 
 “Are they gone?”
 
-I sat up. Juliet remained in position at the table. The door to the dining room was shut. The girl in white was gone. I spun around to where I had sensed the silhouette, the dark presence, and there was nothing. 
+I sat up. Juliet remained in position at the table. The door to the dining room was shut. The girl in white was gone. I spun around to where I had sensed the silhouette, the dark presence, and there was nothing.
 
 Parker lowered the camera. “What just happened?”
 
- [X](https://www.reddit.com/r/SleeplessFromSundown/comments/y3ngzo/welcome_message/)
+[X](https://www.reddit.com/r/SleeplessFromSundown/comments/y3ngzo/welcome_message/)
