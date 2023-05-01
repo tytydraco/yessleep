@@ -17,3 +17,5 @@ When I came to, things seemed a bit blurry, I stood up and looked around, I was 
 I woke up again laying on the floor of the cargo area, I must’ve hit my head so hard that I passed out, and the last thing I can remember was the hatch slamming shut and hearing something being dragged on the floor above, my head and neck hurts really bad, I have tried opening the hatch again but it requires much more strength to open than I have right now, and what’s worse is, I now know where the missing passengers are, they are down here, in a big pile of slowly drying and rotting flesh, it’s really cold here as well and my phone is at 13% now.. I don’t think I’m going to make it out of here, I’m really scared..
 
 /Ken
+
+[Go here to see what happens next](https://www.reddit.com/r/nosleep/comments/134r3at/ive_been_stuck_in_an_airplane_for_the_past_12/)
