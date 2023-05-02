@@ -57,9 +57,10 @@ Before getting inside I stayed a couple minutes holding the door open and lookin
 
 "I don't care who stopped by or who said what, Susan! I dont want to hear it right now.. And I want you to get! my! f*king! dinner! on the table" Jim yelled while thudding on the table as he spoke. He seemed out of this world. Acting weirdly like being possessed. He seemed angry to an extent I have never seen before.
 
-"What do you want me to do? Run on every fucking street yelling her name? Get on the floor and cry until they found her body?? Huh?"
+"What do you want me to do? Run on every fucking street yelling her name? Get on the floor and cry until they find her body?? Huh?"
 
 Standing there I just froze. I couldn't feel my legs. I couldn't feel my breathing.. I just... literally froze. I couldn't walk. I couldn't talk or I couldn't even breathe.. I was in an utter shock on what I just heard. 
+
 "What "her" jim??? Huh?? And...and "what body"?? What are you talking about?" I muttered at the very first moment I gained the ability to speak.... Hearing my shaky words Jim seemed thunderstuck. I guess he was gaining his full senses now too.
 
 "I never said it was a "her" Jim! You..you never let me speak... How did you.. how did you know?"
