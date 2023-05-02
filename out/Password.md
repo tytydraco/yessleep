@@ -438,7 +438,7 @@ Then my heart was pounding in my chest from one second to the next, and I felt t
 
 “Samantha!” I shook her shoulders, not so hard but not gently either. “Samantha… wake up… please wake up…” My fingers pressed into her skin as I pulled her toward me.
 
-All she did was mumbled, “Hmm — wha — huh?” Her voice came from the bottom of her throat. Her eyes stayed closed as I lifted her head an inch off the pillow.
+All she did was mumble, “Hmm — wha — huh?” Her voice came from the bottom of her throat. Her eyes stayed closed as I lifted her head an inch off the pillow.
 
 And I said to her, “What’s my middle name? Do you know? Do you know me? Do know who I am?”
 
