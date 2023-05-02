@@ -1,4 +1,4 @@
-You know those voices, those voices that tell you things, and make you see things? Things that you don't want to see, imaginary scenarios ending in disaster...or that small sense of doubt in your mind? 
+You know those voices, those voices that tell you things, and make you see things? Things that you don't want to see, imaginary scenarios ending in disaster...or that small sense of doubt in your mind?
 
 Everyone lives with it, some choose to ignore it, whilst others like myself, who just..don't act...we don't push it out...we don't ignore it, we let them speak, but we don't fully listen to it.
 
@@ -28,17 +28,17 @@ I looked at the vial, it had some black liquid reading: 'Drink me.'
 
 I don't know why, but I opened it and took a sip out of the vial. Like, It felt as if I had no control over myself, I just opened it...next thing you know I had drank the whole thing. It felt like...something heavy was going down my throat, and it tasted metallic.
 
-I just looked at the empty vial, placed it on the table, and walked into my bathroom, and I looked at my reflection, expecting to only see me. I saw someone else in the mirror though, someone right behind me, staring at me through the mirror. A tall man wearing a trenchcoat and a fedora hat was standing in my shower. He was wearing a smiling mask on his face that looked to have been bolted on his face, and he had blond hair under his hat. He was bent over, as
+I just looked at the empty vial, placed it on the table, and walked into my bathroom, and I looked at my reflection, expecting to only see me. I saw someone else in the mirror though, someone right behind me, staring at me through the mirror. A tall man wearing a trenchcoat and a fedora hat was standing in my shower. He was wearing a smiling mask on his face that looked to have been bolted on his face, and he had blond hair under his hat. He was bent over, and looking at me.
 
 I jumped, shocked at the unknown man in my shower. He didn't speak to me, rather he walked up to me, walking out of my shower and right in front of me. He loomed over me, making me very uncomfortable.
 
-"Hey...What the F### are you doing in my house?" I asked, trying not to sound scared. The man looked down at me before grabbing my shoulders. I didn't notice how long his arms were earlier, they were all the way down his body and touching the ground. I also didn't notice the white gloves he was wearing on his hands, I mean who would care about that detail? This man was in my house...he was trespassing! 
+"Hey...What the F### are you doing in my house?" I asked, trying not to sound scared. The man looked down at me before grabbing my shoulders. I didn't notice how long his arms were earlier, they were all the way down his body and touching the ground. I also didn't notice the white gloves he was wearing on his hands, I mean who would care about that detail? This man was in my house...he was trespassing!
 
 He then spoke, his voice...I can't describe: "You are...broken child...it's not right...I can fix you...WE can fix you.."
 
- He pulls me close to him and I couldn't move, I couldn't even shout. Just as I was trying to struggle, I felt myself sinking, sinking into the man's body. Whatever this man was...there was no way he was human.
+He pulls me close to him and I couldn't move, I couldn't even shout. Just as I was trying to struggle, I felt myself sinking, sinking into the man's body. Whatever this man was...there was no way he was human.
 
- I blacked out after getting halfway into his body.
+I blacked out after getting halfway into his body.
 
 I remember waking up in...I don't know...it was somewhere...some inky black space. I just felt as if I was floating. I saw two figures looking down at me. One was the man I saw prior, and the other was another man, but he had an unkempt beard, a fancy suit, and a tall top hat. He too was smiling, but it wasn't in a mask, I could see his pale face.
 

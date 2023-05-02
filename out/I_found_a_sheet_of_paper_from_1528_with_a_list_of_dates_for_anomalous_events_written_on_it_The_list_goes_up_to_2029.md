@@ -188,3 +188,6 @@ And then that last one… January 1, 2029 — Alt. Smith… I'm guessing the lac
 
 
 My phone is making an unsettling erratic buzzing noise. I'm going to post this right now, then I'm going to figure out this anomaly.
+
+
+[Update](https://www.reddit.com/r/nosleep/comments/135xsid/i_found_a_sheet_of_paper_from_1528_with_a_list_of/)
