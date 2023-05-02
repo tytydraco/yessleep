@@ -1,10 +1,14 @@
-# 
+*This newspaper clipping was found in a stack of papers at an estate sale. I'm a collector of lost media, and I often buy stacks of books and papers from homes without much knowledge about the contents. However, this article was particularly concerning. The papers alongside this article were mostly reports of home break-ins, police affidavits, arrest records, and crime reporting. One thing that stuck out to me- when I arrived to purchase the papers, the front porch of the home was littered with cigarette butts. The deceased homeowner appeared to be deeply paranoid, had few guests, and lived alone.* 
+
+&#x200B;
+
+*Perhaps there was a reason for her concern.* 
+
+&#x200B;
 
 # IT WAS A TERRIBLE THING THAT HAPPENED TO THE FOSTERS
 
 By Douglas Ray Cleavon
-
-Originally Published for “The Disquisition”
 
 June 2006
 
