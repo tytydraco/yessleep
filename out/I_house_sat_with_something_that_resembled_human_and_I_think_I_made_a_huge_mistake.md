@@ -186,3 +186,5 @@ My heart stopped. I patted my shirt and pants’ pockets but the keys were not t
 I looked back at Daniel’s house in terror. The front door was opened. Standing there in a blood soaked t-shirt and sweatpants was no longer Thomas.
 
 It was me, smirking.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/135syd1/i_house_sat_with_something_that_resembled_human/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
