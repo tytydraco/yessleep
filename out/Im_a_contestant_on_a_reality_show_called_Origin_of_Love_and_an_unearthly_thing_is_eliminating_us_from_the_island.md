@@ -6,21 +6,21 @@ I would ask for somebody to send help, but I don’t even know this island’s n
 
 There were eight contestants, and we were each given a briefing before meeting one another:
 
-**Matthew (27):** A business consultant fromBirmingham. Loves climbing. Weak-willed.
+**Matthew (27):** A business consultant from Birmingham. Loves climbing. Weak-willed.
 
-\*\*Becky (28):\*\*A statistician from Bolton. Spends her free time playing guitar. Breaks hearts.
+**Becky (28):** A statistician from Bolton. Spends her free time playing guitar. Breaks hearts.
 
-\*\*Callum (25):\*\*A personal trainer from London.Raves every weekend. Fathered ten childrenwith seven women.
+**Callum (25):** A personal trainer from London. Raves every weekend. Fathered ten children with seven women.
 
-\*\*Kofi (31):\*\*A dentist from London. Likes watching horror films. Parents were arms dealers.
+**Kofi (31):** A dentist from London. Likes watching horror films. Parents were arms dealers.
 
-\*\*Billie-Jo (20):\*\*A social media influencer from Cornwall. Tennis enthusiast. Fibs.
+**Billie-Jo (20):** A social media influencer from Cornwall. Tennis enthusiast. Fibs.
 
-\*\*Han (35):\*\*A civil engineer from Cambridge. Parties in Ibiza. Skips quality checks at work, endangering lives.
+**Han (35):** A civil engineer from Cambridge. Parties in Ibiza. Skips quality checks at work, endangering lives.
 
-\*\*Zack (24):\*\*A real-estate agent from Cardiff.Takes pride in finding homes for people. Takes more than a fair share of their money too.
+**Zack (24):** A real-estate agent from Cardiff. Takes pride in finding homes for people. Takes more than a fair share of their money too.
 
-\*\*Gracie (22):\*\*A computer science student from Bristol. Dreams of making video games.Kleptomaniac.
+**Gracie (22):** A computer science student from Bristol. Dreams of making video games. Kleptomaniac.
 
 I’m Becky, by the way. I didn’t mention anything about breaking hearts in my interview, and I felt it safe to assume that none of the others revealed their secrets either. I eyed the cameras, which were clumsily hidden in bushes and between fence panels. *All of this* *is for entertainment*, I reminded myself. It wasn’t about romance, as the producers had purported. I was right, but I didn’t know what it was they *did* want.
 
@@ -36,7 +36,7 @@ Last night, however, this run-of-the-mill reality show transformed into a horror
 
 “Has there been a public vote?” Han nervously asked.
 
-“No,” The producer answered, chuckling and directly eyeballing one of the cameras. “The*island* will test which of our couples has the weakest connection. Follow me, contestants!”
+“No,” The producer answered, chuckling and directly eyeballing one of the cameras. “The *island* will test which of our couples has the weakest connection. Follow me, contestants!”
 
 Without any instructions, we were led from the villa into a nearby forest. The setting sun wasobscured by the canopy of leaves above us. But as Mr Wilson guided us deeper into the forest, he began to light torches on either side of the dirt path. Matthew held my hand and beamed at me.
 
@@ -50,35 +50,35 @@ Without any instructions, we were led from the villa into a nearby forest. The s
 
 “Silence!” Mr Wilson bellowed.
 
-His voice erupted so suddenly that all eight of us instantly ceased chattering. We found ourselves in a forest clearing encircled by torches and cameras on tripods. Our enigmatic host had adopted an unsettling energy,finally revealing what burgeoned beneath the surfaceof his disingenuous smile.
+His voice erupted so suddenly that all eight of us instantly ceased chattering. We found ourselves in a forest clearing encircled by torches and cameras on tripods. Our enigmatic host had adopted an unsettling energy, finally revealing what burgeoned beneath the surface of his disingenuous smile.
 
 “Private viewers,” He announced to one of the cameras. “You have suffered weeks of preamble. But now, the time is upon us. Which of these couples is truly meant to be? It is a primal decision left to nature. Left to *him*. The island shall show the way.”
 
 “The island shall show the way,” Voices chanted in unison from the darkness of the forest.
 
-A terrifying heaviness filled my insides as I watched Mr Wilson disappear beyond the tree-line with a malevolent grin on his face.Frightened beyond words, I squeezed Matthew’s hand until I felt it might break. When I looked at him, all colour had leaked from his face. The same could be said of everycontestant, but the true terror came when the ground beneath our feet began to quake.
+A terrifying heaviness filled my insides as I watched Mr Wilson disappear beyond the tree-line with a malevolent grin on his face. Frightened beyond words, I squeezed Matthew’s hand until I felt it might break. When I looked at him, all colour had leaked from his face. The same could be said of everycontestant, but the true terror came when the ground beneath our feet began to quake.
 
-Choral singing erupted from all sides of our blackened surroundings. And from the dirt in the clearing, arms began to emerge. Dozens of disembodied arms, bending into painful configurations. I felt frozen fingers working up my calf, numbing my flesh. I looked down in horror at the decaying limb that was attempting to sink my body into the ground below. As Iscreamed, Matthewwrapped his arms around my waist, tugging. I slammed my foot into theabhorrent arm, and it buckled, freeing me.
+Choral singing erupted from all sides of our blackened surroundings. And from the dirt in the clearing, arms began to emerge. Dozens of disembodied arms, bending into painful configurations. I felt frozen fingers working up my calf, numbing my flesh. I looked down in horror at the decaying limb that was attempting to sink my body into the ground below. As I screamed, Matthew wrapped his arms around my waist, tugging. I slammed my foot into the abhorrent arm, and it buckled, freeing me.
 
 “What the *fuck* is happening?” Gracie screeched, swatting a rotting hand. “Callum, what…”
 
-But Gracie’s supposed ‘boyfriend’ had instinctively sprinted towards Billie-Jo, Zack’s partner, pulling the girl back from a ghoulish limb that was clawing towards her.Before Zack or Gracie could say anything about their partners’ telling displays of character, however,their bodies suddenly snapped backwards into crab-like positions, breaking their spines in oneghastly instant. My shrieks of terror were drowned out by those of Billie-Jo.
+But Gracie’s supposed ‘boyfriend’ had instinctively sprinted towards Billie-Jo, Zack’s partner, pulling the girl back from a ghoulish limb that was clawing towards her. Before Zack or Gracie could say anything about their partners’ telling displays of character, however, their bodies suddenly snapped backwards into crab-like positions, breaking their spines in one ghastly instant. My shrieks of terror were drowned out by those of Billie-Jo.
 
-Callum tried to restrainher, as she tried to reach her boyfriend — the limp, lifeless boy who was enveloped by a growing mound of arms.Skeletalfingers dug into his body, pulling himinto whatever nightmare lay beneath the dirt. Icould only watch in unfathomable fright as the same fate befell Gracie. But horrifyingly, defying all reason, she took one final, painful gasp as she sank into the soil below. How she was still alive with a spine mangled so out of shape, I do not know. All I know is that it filled and *still* fills me with fear beyond comparison to imagine thehorror of drowning in soil — or, worse, meeting whatever lurks beneath the surface of the island. *Him*.
+Callum restrained her as she tried to reach her boyfriend — the limp, lifeless boy who was enveloped by a growing mound of arms. Skeletal fingers dug into his body, pulling him into whatever nightmare lay beneath the dirt. I could only watch in unfathomable fright as the same fate befell Gracie. But horrifyingly, defying all reason, she took one final, painful gasp as she sank into the soil below. How she was still alive with a spine mangled so out of shape, I do not know. All I know is that it filled and *still* fills me with fear beyond comparison to imagine the horror of drowning in soil — or, worse, meeting whatever lurks beneath the surface of the island. *Him*.
 
-By that point, Callum had successfully hauled the bawling Billie-Jo from the wretched forest clearing. And as the arms returned to the soil,the cult members emerged from the trees, led by Mr Wilson. In a state of horrified shock, unable to comprehend what we had just experienced, the six remaining islandersfollowed the producer and his followers back to the villa. We were no longer contestants. We were prisoners.
+By that point, Callum had successfully hauled the bawling Billie-Jo from the wretched forest clearing. And as the arms returned to the soil, the cult members emerged from the trees, led by Mr Wilson. In a state of horrified shock, unable to comprehend what we had just experienced, the six remaining islanders followed the producer and his cult back to the villa. We were no longer contestants. We were prisoners.
 
 “The island takes part,” The cult members sang in unison. “It shows the black. Reveals a heart. Takes the slack.”
 
-“Congratulations to our new couple!” Mr Wilson gleefully said. “Our viewers sensed a connection between Billie-Jo and Zack. Sometimes, it takes extreme duress to out the truth.”
+“Congratulations to our new couple!” Mr Wilson gleefully said. “Our viewers sensed a connection between Billie-Jo and Callum. Sometimes, it takes extreme duress to out the truth.”
 
 And before we could summon the bravery tofight back, the producer left the villa, locking the doors behind him.
 
-We’ve spent the past day trying to break free, but it’s a fortified compound. There’s no escape.And everybody’s been panicking about a note that was slid under the front door, which read:
+We’ve spent the past day trying to break free, but it’s a fortified compound. There’s no escape. And everybody’s been panicking about a note that was slid under the front door, which read:
 
 *Elimination on Friday.* *Form bonds to stay safe. True love always prevails on the island.* *And every test is different.*
 
-I scurried to the bathroom to recover the hidden phone from my bikini top. Weeks ago, Gracie hacked into the Wi-Fi router that DozMinus employees use — they have an office building next-door. She was happy to keep mycontraband phone a secret because it meant that she could use the internet to message her folks. She was a lovely girl. I want to tell them what happened to her, but I don’t know how to begin.
+I scurried to the bathroom to recover the hidden phone from my bikini top. Weeks ago, Gracie hacked into the Wi-Fi router that DozMinus employees use — they have an office building next-door. She was happy to keep my contraband phone a secret because it meant that she could use the internet to message her folks. She was a lovely girl. I want to tell them what happened to her, but I don’t know how to begin.
 
 I don’t even know how to explain it to myself.
 
