@@ -38,7 +38,7 @@ I detached from the instrument and protrude against the balcony, but nothing was
 
 "For three nights she agonized, and you did nothing!" the whisper said, but no sign of the face neither with the telescope nor with the naked eye. And then, I felt my throat growing sore. The ache became unbearable fast, and any attempt to produce a sound was negated to me. I was mute, and I couldn't quite close my mouth anymore.
 
-With footsteps devoid of sound, I ran to the mirror to check what was going on, and I would have fainted if the pain wasn't shaking me to the core. A face made of branches and leaves fitted my own like a mask, with tiny roots penetrating my ears. But the big root inside my mouth was ravaging my throat, and I knew by that point that my vocal cords and my eardrums were permanently lost. 
+With footsteps devoid of sound, I ran to the mirror to check what was going on, and I would have fainted if the pain wasn't shaking me to the core. A face made of branches and leaves fitted my own like a mask, with tiny roots penetrating my ears. But the big root inside my mouth was ravaging my throat, and I knew by that point that my vocal cords and my eardrums were permanently lost.
 
 And yet, as I was finishing to write this, I had the impression of hearing a sharp whistle howling through a distant forest. The cracking of the wood and the shuffling of the leaves were deafening, and I heard the wind blowing in and out of my cavity. But when I checked my ear, the hand came back with only blood dripping out of the palm.
 
