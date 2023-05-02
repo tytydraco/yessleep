@@ -16,7 +16,6 @@ The Guards tugged at me, despite my morbid-obesity, they somehow were managing t
 
 "NOOOOOOO"!! I wailed. "You are going to get everyone here KILLED"!! I screeched at the top of my lungs to bring everyone's attention to me.
 
-  
 "Is that a threat"?! One Of the guards asked, clearly annoyed at me.
 
 At this point, everyone nearby was looking at me as if I was insane, and it didn't help that I had a lot to drink last night.
@@ -43,12 +42,20 @@ I laughed as the cops put me in the back of their car and we began to speed off.
 
 I glanced back out the window to amuse myself, thinking now that I had just done the stupidest thing possible. Honestly, why would I trust my own assumptions- I was clearly drunk... right?
 
-As I glanced at the mall, I rubbed my eyes and my heart dropped... The mall was covered in red tendrils and I heard thousands of screams erupt through the air.
+As I glanced at the mall, I rubbed my eyes and my heart dropped... The mall suddenly disappeared and it was replaced with some kind of fake varient.
 
 I turned back to the cops and tried to tell them but as I turned, I was greeted with 2 demonic faces staring back, laughing at my reaction.
 
 Suddenly, Everything outside turned a dark shade of red and I realized we were entering the Underworld.
 
-&#x200B;
+I quickly used my phone to type this out as the underworld glowed brighter and brighter, demons faces poking out of the shadows and laughing at me as I was led towards some kind of dungeon. Thank god the internet still exists but as I entered the dungeon, I saw people in front of me having their phones taken away.
+
+With immense haste, while the demons weren't staring at me, I quickly shoved my phone in my purse.
+
+Demons are stupid anyway, they won't bother actually looking for stuff since they expect everything handed to them, such idiots.
+
+The searching went smoothly and I now found myself in the most HORRENDOUS room possible- A shabby hotel room that doesn't even have gold plating on the windows- which are blocked out by stupid metal pieces.
+
+I thought back at that stupid kid from before and I realized;
 
 I was right after all...
