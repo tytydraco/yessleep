@@ -38,7 +38,7 @@ Last night, however, this run-of-the-mill reality show transformed into a horror
 
 “No,” The producer answered, chuckling and directly eyeballing one of the cameras. “The *island* will test which of our couples has the weakest connection. Follow me, contestants!”
 
-Without any instructions, we were led from the villa into a nearby forest. The setting sun wasobscured by the canopy of leaves above us. But as Mr Wilson guided us deeper into the forest, he began to light torches on either side of the dirt path. Matthew held my hand and beamed at me.
+Without any instructions, we were led from the villa into a nearby forest. The setting sun was obscured by the canopy of leaves above us. But as Mr Wilson guided us deeper into the forest, he began to light torches on either side of the dirt path. Matthew held my hand and beamed at me.
 
 “We’ve got this one in the bag,” He said.
 
@@ -56,7 +56,7 @@ His voice erupted so suddenly that all eight of us instantly ceased chattering. 
 
 “The island shall show the way,” Voices chanted in unison from the darkness of the forest.
 
-A terrifying heaviness filled my insides as I watched Mr Wilson disappear beyond the tree-line with a malevolent grin on his face. Frightened beyond words, I squeezed Matthew’s hand until I felt it might break. When I looked at him, all colour had leaked from his face. The same could be said of everycontestant, but the true terror came when the ground beneath our feet began to quake.
+A terrifying heaviness filled my insides as I watched Mr Wilson disappear beyond the tree-line with a malevolent grin on his face. Frightened beyond words, I squeezed Matthew’s hand until I felt it might break. When I looked at him, all colour had leaked from his face. The same could be said of every contestant, but the true terror came when the ground beneath our feet began to quake.
 
 Choral singing erupted from all sides of our blackened surroundings. And from the dirt in the clearing, arms began to emerge. Dozens of disembodied arms, bending into painful configurations. I felt frozen fingers working up my calf, numbing my flesh. I looked down in horror at the decaying limb that was attempting to sink my body into the ground below. As I screamed, Matthew wrapped his arms around my waist, tugging. I slammed my foot into the abhorrent arm, and it buckled, freeing me.
 
@@ -72,7 +72,7 @@ By that point, Callum had successfully hauled the bawling Billie-Jo from the wre
 
 “Congratulations to our new couple!” Mr Wilson gleefully said. “Our viewers sensed a connection between Billie-Jo and Callum. Sometimes, it takes extreme duress to out the truth.”
 
-And before we could summon the bravery tofight back, the producer left the villa, locking the doors behind him.
+And before we could summon the bravery to fight back, the producer left the villa, locking the doors behind him.
 
 We’ve spent the past day trying to break free, but it’s a fortified compound. There’s no escape. And everybody’s been panicking about a note that was slid under the front door, which read:
 
