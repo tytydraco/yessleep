@@ -273,3 +273,5 @@ They were probably freaking out, we figured. If this had happened to us, who was
 Nick and I tried to put it behind us but it was unsettling to know that the architect, whoever he really was, was out there somewhere. What bothered me most though was the question of why. Why had he done what he'd done?
 
 Before long, I had an explanation.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/136ynaj/i_bought_a_prefab_modern_house_my_life_became_an/)

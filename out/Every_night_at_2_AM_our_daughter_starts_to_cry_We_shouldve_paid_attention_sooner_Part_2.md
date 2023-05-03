@@ -50,17 +50,17 @@ At some point during one of those moments, sitting in the silence of the room, l
 
 My eyes lingered on the stuffed bear, sitting at the edge of the bed like some sentry standing watch. From the moment we’d returned, even through the mental slur of the pain-killers, it had been the first thing she’d mentioned, and Allen had brought it to the room for her.
 
-I had moved it at some point, after rolling onto the thing only to be awakened by the sensation of it digging into my back, something in it firm and hard, complete with some pointed edge I could feel. 
+I had moved it at some point, after rolling onto the thing only to be awakened by the sensation of it digging into my back, something in it firm and hard, complete with some pointed edge I could feel.
 
 The sight of it there in the dark, sitting there unmoving, with its blank glass eyes peering forward seemingly through me, made me feel a strange sort of distress.
 
-I’m not sure how much time passed with me tossing and turning in the vain hope that sleep may lie in the next position, but I found my eyes kept lingering back towards that damned bear. 
+I’m not sure how much time passed with me tossing and turning in the vain hope that sleep may lie in the next position, but I found my eyes kept lingering back towards that damned bear.
 
 I glanced beside me, confirming that both Abigail and Allen were sleeping soundly, as I edged towards the end of the bed. With one quick motion, I booted the thing off the bed, those eyes watching me accusingly.
 
 It hit the ground with a thud that made me grit my teeth, peering back to ensure my daughter remained asleep, and muttering a silent thanks that she had.
 
-I glanced over my husband's sleeping form, at the digital clock on his night stand. 1:55, it read. Only five minutes or so away from the time of our daughter's nightly tantrums. 
+I glanced over my husband's sleeping form, at the digital clock on his night stand. 1:55, it read. Only five minutes or so away from the time of our daughter's nightly tantrums.
 
 The thought brought on a great sense of foreboding that I couldn’t shake lying there in the darkness, massing in my chest like the tangle of so many weeds. Perhaps it was the result of a day of mishaps, leading me to feel there could only be something worse around the corner and feeding my anxiety like trees and dry brush do a forest fire.
 
@@ -72,11 +72,11 @@ It had only been a few minutes, my ears tuned to the alternating sounds of my hu
 
 At first, I was certain it was my imagination, the sound was so faint I could almost dismiss it as such. But no, it was far too persistent, a strange mechanical hiss, like someone had switched on a broken television somewhere in the distance, that echoed out amongst the whirring of the fan and usual murmur of the house's innerworkings.
 
-Before I could even identify a source, I felt my heart pounding furiously against my chest. My eyes fell back on the glowing display of the clock. 
+Before I could even identify a source, I felt my heart pounding furiously against my chest. My eyes fell back on the glowing display of the clock.
 
 ‘*2:00*.’
 
-The timing, it seemed strangely…intentional? I could feel a chord of unease struck, reverberating through me with a chilling effect as my ears perked to listen closer. I sat up, wavering in my mind between waking up Allen or not, settling quickly on the latter. 
+The timing, it seemed strangely…intentional? I could feel a chord of unease struck, reverberating through me with a chilling effect as my ears perked to listen closer. I sat up, wavering in my mind between waking up Allen or not, settling quickly on the latter.
 
 He had to be up in a few hours, and while I felt unsettled, I saw no need to disturb him yet. Instead, as carefully as I could manage I slid out from beneath the covers, and stepped gingerly out of bed. The wooden floorboards creaked their protest, making me grimace as I watched Abigail stir.
 
@@ -88,7 +88,7 @@ I had owned one during my childhood, which I’d used to talk to some of my frie
 
 I stepped forward again as delicately as I could manage, my eyes scanning the dim light as best as they could, though I was relying almost entirely on my hearing to guide me. That mechanical hiss was growing louder with each step, somewhere to the right of me it seemed, near the foot of the bed.
 
-I could feel my heart in my throat with every footfall, my mouth running dry as the hairs on the back of my neck rose with the creep of anxiety. 
+I could feel my heart in my throat with every footfall, my mouth running dry as the hairs on the back of my neck rose with the creep of anxiety.
 
 It was louder now, so much so that I was beginning to worry it might wake my family, a series of cracking and popping noises audible amongst the hissing. It seemed to be coming from more than one place, though the noise faded in and out, I was almost certain it was coming from two different directions.
 
@@ -100,9 +100,9 @@ It was then that I heard it, faint but unmistakable. A voice, from amidst the di
 
 In the moment, I could have sworn my heart stopped, an icy shock tore through me as though I’d just been submerged in freezing waters.
 
-My eyes scanned the darkness, wide and searching for anything that might be the source of the sound. 
+My eyes scanned the darkness, wide and searching for anything that might be the source of the sound.
 
-“Babe?” 
+“Babe?”
 
 I leapt, nearly losing my balance as I stumbled away from the sudden sound, only to glance over and see Allen sat up in the bed.
 
@@ -110,9 +110,9 @@ He looked tired, and confused more than anything, hands running over his eyes, b
 
 “What the hell is tha -”
 
-“*..little bear….you there?*” 
+“*..little bear….you there?*”
 
-I sucked in a breath, head spinning with such force I was certain I might fall out from the sheer panic starting to flood my system. That voice again amongst that phantom static, raw and hissing. 
+I sucked in a breath, head spinning with such force I was certain I might fall out from the sheer panic starting to flood my system. That voice again amongst that phantom static, raw and hissing.
 
 Our eyes met, and I felt a surge of some gruesome satisfaction that I wasn’t alone, he heard it too.
 
@@ -120,15 +120,15 @@ Our eyes met, and I felt a surge of some gruesome satisfaction that I wasn’t a
 
 I spun to face behind me, certain I could hear that voice drifting from somewhere over my shoulder, and found only an empty room to greet me.
 
-From behind me again, the static grew louder, and for the first time since it had appeared, I could pinpoint from where. 
+From behind me again, the static grew louder, and for the first time since it had appeared, I could pinpoint from where.
 
 My eyes fell on the baby monitor on our nightstand. Its lights glowed with the hiss of the audio, sparking with color the louder it grew. Allen followed my gaze, snatching it up in one quick motion, before pressing the button to respond.
 
 “Who the fuck is this?”
 
-There was a shrill sound, like the squeal of audio feedback that made us both cringe, and set Abigail to stirring immediately, followed by an echo, as though his voice was being played back simultaneously  from…somewhere else, somewhere nearby, ceasing only when Allen released the monitor. 
+There was a shrill sound, like the squeal of audio feedback that made us both cringe, and set Abigail to stirring immediately, followed by an echo, as though his voice was being played back simultaneously  from…somewhere else, somewhere nearby, ceasing only when Allen released the monitor.
 
-In an instance, it was all gone. The air hung heavy with an electric sort of surreality, like the early moments of some waking nightmare, yet there was nothing but the usual sounds of our home to fill its void. The room was silent, or as close as it could be anyways. 
+In an instance, it was all gone. The air hung heavy with an electric sort of surreality, like the early moments of some waking nightmare, yet there was nothing but the usual sounds of our home to fill its void. The room was silent, or as close as it could be anyways.
 
 Abby had begun kick up, though still asleep, she was starting to wake - the sounds finally growing too much for her, and I could hear the beginnings of a tantrum building as sleep began to wane.
 
@@ -138,9 +138,9 @@ The door loomed ahead, as ominous as a gravestone, my mind fully prepared to mee
 
 It was the only thing I could think of at the moment that made some sort of sense. It was obvious that whoever we had just heard had been trying to speak to our daughter, and I could think of no other way we would have heard them over her monitor.
 
-“Janet, where are you going? Stop, wait!” Allen’s foot falls grew heavy as he rushed ahead of me, putting himself between me and the door.
+“Leanne, where are you going? Stop, wait!” Allen’s foot falls grew heavy as he rushed ahead of me, putting himself between me and the door.
 
-He shook his head, eyes locking with mine, a look that was part confusion, but a majority of visible worry etched on his features. 
+He shook his head, eyes locking with mine, a look that was part confusion, but a majority of visible worry etched on his features.
 
 “I’ll check, you - stay behind me, we don’t know who might be in there.”
 
@@ -148,25 +148,25 @@ I nodded, still nudging him forth until he was pushing the door open. As we push
 
 The baby monitor sat untouched. Allen began to search the room, flicking on the lights and checking under the bed, and in the closet. All the while I found myself lost in thought as I looked at the monitor, I was all but certain it had to be the source of the voice and yet…there was no one.
 
-The thought should have been comforting, but it only made my fear grow thicker. 
+The thought should have been comforting, but it only made my fear grow thicker.
 
-“*...awake, little bear?*” 
+“*...awake, little bear?*”
 
-Allen shot up, stiffening as he turned to face me. Our eyes locked, an unspoken terror shared between us, as the two of us hurried back to our bedroom. 
+Allen shot up, stiffening as he turned to face me. Our eyes locked, an unspoken terror shared between us, as the two of us hurried back to our bedroom.
 
 “What the fuck is going on?” Allen’s voice betrayed the discomfort we were both feeling, as he grabbed the baby monitor from the nightstand.
 
 “Who the fuck is this?” he growled into the receiver, “I swear to God I’ll -”
 
-“Just turn it off!” I couldn’t take it anymore, that sound, the way the air seemed uncomfortably heavy with a strange sort of unearthliness. 
+“Just turn it off!” I couldn’t take it anymore, that sound, the way the air seemed uncomfortably heavy with a strange sort of unearthliness.
 
-He stared at me, reluctant, before finally switching it off. 
+He stared at me, reluctant, before finally switching it off.
 
 The device went silent, and yet for a few moments, I could have sworn I still heard it. That faint hiss of static still hanging in the air, persisting somehow despite the monitor being off. A squeal, like the feedback of a microphone pierced the air, making the both of us jump.
 
 It was gone, as soon as it started, leaving only the thud of my heart and a buzzing unrest in the air in its place.
 
-Abby began to stir, angry coo’s soon turning into a full out tantrum. Allen and I said nothing, neither knowing what could be said to do away with the strangeness of the night. 
+Abby began to stir, angry coo’s soon turning into a full out tantrum. Allen and I said nothing, neither knowing what could be said to do away with the strangeness of the night.
 
 “I’ll take care of her…” I finally said, scooping her up and off the bed.
 
@@ -184,13 +184,13 @@ It felt like even then, I could still hear that voice. A man’s, rasping and ol
 
 He nodded, making his way towards the door, where he paused to face me.
 
-“Stay here with her. I don’t - I dunno, something doesn’t feel right about this.” 
+“Stay here with her. I don’t - I dunno, something doesn’t feel right about this.”
 
 “Okay.”
 
 With that he was gone. I listened as best as I could to the sounds of his footsteps moving about the house, my heart on edge that at any moment a sudden commotion might ring out as he stumbled upon some intruder.
 
-When none came, I let myself settle into the rocking chair we’d placed in the corner of the room, trying my best to soothe our daughter back to sleep, cradling her injured arm close. 
+When none came, I let myself settle into the rocking chair we’d placed in the corner of the room, trying my best to soothe our daughter back to sleep, cradling her injured arm close.
 
 Allen returned minutes later. His eyes glistened with a look of utter rage, in his hands dangled a series of wires from which hung various smaller gadgets. I didn’t want to ask what they were, some part of my mind already knew the answer, and was horrified by the implications.
 
