@@ -1,5 +1,7 @@
 \[Part 1 of 2\]
 
+[Part 2](https://www.reddit.com/r/nosleep/comments/1363vtf/i_found_a_letter_whilst_hitchhiking_along_the_i20/)
+
 It was a cold winters night when I arrived,
 
 I had booked out a room at a motel somewhere off of the I-59 as I was getting tired on my trip to Atlanta to visit some family. I had drove about 300 miles before I had my first proper rest and I thought I had gotten lucky booking the motel as it was so cheap for a last minute check in, I soon discovered how wrong I was.
