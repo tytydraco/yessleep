@@ -4,6 +4,8 @@
 
 [Part 4](https://www.reddit.com/r/nosleep/comments/132259h/my_neighbor_drew_some_weird_chalk_symbols_on_the/)
 
+[Part 5](https://www.reddit.com/r/nosleep/comments/136r195/my_neighbor_drew_some_weird_chalk_symbols_on_the/)
+
 It was strange to think that in all the years I’d known Ms. Mortimer, I’d never once entered her house through the front door. I felt like a trespasser as I crossed her overgrown lawn, looking for an unlocked door, a half-open window–anything that would allow access to the quiet little house at the end of the street. Outwardly, there was no sign that anything was wrong. I could see Ms. Mortimer’s study through the big bay window, and while it was dark and quiet, I was relieved to see that there were no signs of any cobwebby rags or glass-eyed animal skulls.
 
 Circling around the house, I finally found what I was looking for: a cat-flap in the back door.

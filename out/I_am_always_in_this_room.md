@@ -1,0 +1,19 @@
+ It is needlessly, impossibly tall. The ceiling looks bare from what I can see of it. When I lay on the floor, the ceiling looks as close as the walls. When I stand look closer, the ceiling has moved almost to a vanishing point. I don’t think about the ceiling anymore.
+
+There is light without source that falls on grey-white walls, like a photograph of faded paint. For its height, this room feels so very narrow. It is enough to walk but not run. At times the walls seem to pull away from me as I approach, or perhaps my arms are pulled back if I reach for them. The corners round out as I turn like the inside of a can, yet sit in sharp angles when I am still.
+
+The floor rises to my step so that every movement is at incline. The floor constantly pulls at me. I look down and the floor seems to slant away from me. I fall to lay down. It brings rest but not stillness. I am always in this room but never of this room.
+
+Sometimes this room has a door. It never opens. The door looks weak, like unfinished hollow fiberboard with a loose and tarnished knob. The frame around it looks loose, pulling up at the corners. It never opens. Sometimes I see it dart away from the corner of my eye. I whip my head as if to catch it, but it must most times be at my back. I have heard it creak a few times, but I have never seen it ajar. Sometimes it presents itself before me and the light seems to recoil from it. It lingers until I turn away. I am always in this room but dare not open the door.
+
+I remember a picture on a wall. A painted, tempestuous charcoal sea that churned upon itself and set my gut to rot. To stare at it was to swallow the maelstrom and be swallowed by it. It was just here, perhaps some years and seconds ago. I once saw the dark, dusty outline of its frame on the far wall from me but have not seen it since. I miss it sometimes.
+
+I think once this room had a window. I remember it rectangle, single hung, curtains drawn at the sides, set rigid like marble so as to discourage any desperate impulse to shut them. Out that window I saw a deep purple and black sky, a viscous blanket hung over this existence yet somehow littered with skyscrapers growing down from an endless abyss like stalactites, suspended and reaching toward whatever this place would be called were there someone else to call it. There is no up or down outside of this room.
+
+There is no one else in this room, yet I am never alone. I feel eyes and breath and the electric heat and tingle of close shoulders and fingers just beyond where I end and the room begins. Often I hear broken, skipping music coming from somewhere unseen, perhaps across from wherever the light comes. It could be playing outside of the room or maybe buried deep in my ear. The temp changes when I turn my head. When the music stops, I look around me and find nothing new, yet everything has become unfamiliar again. All and nothing are familiar to me now. That’s always when I see the door.
+
+I did something once, before being in this room. I belong here, I believe. I think. I hope I belong here. This is no place for anyone who doesn’t belong here. I don’t think there is anyone or anywhere else now. There can't be. There shouldn't be. There won't be.
+
+There is only this room. The endless ascending abyss and the painted maelstrom and the door and the endless, faceless, nameless things in the still, stale air around me are here and yet not. Everywhere is nowhere now. I want to leave but there is nothing. I dare not leave it. What was is gone. There is no will be.
+
+This room was and is and will be. And I will always be in it.

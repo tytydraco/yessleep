@@ -4,6 +4,8 @@
 
 [Part 4](https://www.reddit.com/r/nosleep/comments/132259h/my_neighbor_drew_some_weird_chalk_symbols_on_the/)
 
+[Part 5](https://www.reddit.com/r/nosleep/comments/136r195/my_neighbor_drew_some_weird_chalk_symbols_on_the/)
+
 “I had never been to the mirror realm before,” Ms. Mortimer was telling me. “I didn’t expect it to be so dangerous, and I certainly didn’t expect *you* to have to come in there after me!”
 
 We were sitting on the porch of a cottage, sipping lemonade.
