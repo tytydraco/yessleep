@@ -202,8 +202,8 @@ But no sooner had I started tightening, watching her gasp for breath, did I real
 
 I had just enough time to curse as my grip slackened and I fell to the ground beside her. Then the swirling silver fog faded as my eyes closed uncontrollably and I slipped into darkness.
 
-Everything reformed immediately, or maybe it was hours later. Hard to say. All I know is that when I woke up, I found myself in that same dark subconscious place I’d visited several times before. And just like those times, silver eyes were shining in the endless black expanse, glinting like steel as they stared at me. 
+Everything reformed immediately, or maybe it was hours later. Hard to say. All I know is that when I woke up, I found myself in that same dark subconscious place I’d visited several times before. And just like those times, silver eyes were shining in the endless black expanse, glinting like steel as they stared at me.
 
-I groaned and sat up, head aching; another groan came from beside me. Faith was sitting up too, managing to give me a hate-filled glare even as she rubbed her neck in pain. But I didn’t get a chance to talk to her—or better yet, to try and finish what I’d started when I’d wrapped my hands around her throat—because suddenly a familiar voice echoed in the nothingness, seeming to come from everywhere at once. 
+I groaned and sat up, head aching; another groan came from beside me. Faith was sitting up too, managing to give me a hate-filled glare even as she rubbed her neck in pain. But I didn’t get a chance to talk to her—or better yet, to try and finish what I’d started when I’d wrapped my hands around her throat—because suddenly a familiar voice echoed in the nothingness, seeming to come from [everywhere at once](https://www.reddit.com/r/nosleep/comments/13671vk/all_the_time_in_the_world_the_bar_at_the_edge_of/?utm_source=share&utm_medium=web2x&context=3).
 
-*Hello, Ian. Hello, Faith. Welcome back. We have much to discuss.* 
+*Hello, Ian. Hello, Faith. Welcome back. We have much to discuss.*
