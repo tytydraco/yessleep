@@ -1,3 +1,5 @@
+**Part I** - [Part II](https://www.reddit.com/r/nosleep/comments/136meu7/im_a_contestant_on_a_reality_show_called_origin/)
+
 I’m a fool who hungered for fame and fortune, and that kind of belly-rumbling desperation blinds a person to red flags. A £500,000 prize. Who would refuse that?
 
 I would ask for somebody to send help, but I don’t even know this island’s name. That was one of the conditions for applicants. No questions. They confiscated our technology on Day 1, but I concealed my phone in my top. And I hope, by revealing the truth of this insidious island, I’ll at least be able to stop them from claiming more lives. The company is called DozMinus Entertainment. Why can I no longer find any trace of them online?
@@ -83,5 +85,7 @@ I scurried to the bathroom to recover the hidden phone from my bikini top. Weeks
 I don’t even know how to explain it to myself.
 
 I hope we find a way to escape before Friday.
+
+[Part II](https://www.reddit.com/r/nosleep/comments/136meu7/im_a_contestant_on_a_reality_show_called_origin/)
 
 [X](https://www.reddit.com/r/dominiceagle)
