@@ -38,8 +38,8 @@ Drew's phone soon started blowing up with text messages. Malware had been plante
 
 It didn't take long for Drew's phone and laptop to lock him out, disabling his access and erasing his data. It occurred to him that all of the family pictures stored on his phone had been wiped out as well.
 
-Defeated, Drew put away his now-useless devices and sipped his coffee, unsure what to do next. Drew lost track of time as he sipped on his coffee, pondering his day. He lowered his coffee cup and saw three well-dressed men coming into the shop. They gestured in Drew's direction. One of them stood by the front door, one of them made their way to the back door, and the other approached Drew.
+Defeated, Drew put away his now-useless devices and sipped his coffee, unsure what to do next. Drew lost track of time as he sat in disbelief, pondering the events of the day. He lowered his coffee cup and saw three well-dressed men coming into the shop. They gestured in Drew's direction. One of them stood by the front door, one of them made their way to the back door, and the other approached Drew.
 
-"Sir, you're gong need to come with us," he said, displaying a federal law enforcement badge.
+"Sir, you're going to need to come with us," he said, displaying a federal law enforcement badge.
 
 Drew's life, as he knew it, was over.
