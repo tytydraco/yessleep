@@ -1,0 +1,20 @@
+This was my third for the month. This made me feel good about myself. It was also self help in a way. I've spent days getting ready and making sure he looked the part. 
+
+This is it "Are you okay?" I ask with quivering hands, and taking deep breaths. My heart thumping in my chest, it's not my first time yet the feeling subsides for a while. He just stares back at me with dead eyes "Honestly, I'm not. I'm not okay I've never been okay. Haven't been okay in a long time", I get a response but his mouth remain unmoving. "How do you deal with it? The pain, these feelings", I ask my next question. He just squints "Well, nothing really. I don't, I don't believe in getting high or drinking my problems away. I just let it eat at me. Sometimes I think of dying the most gruesome way" he scoffs.
+
+And again, his lips never moved. The voice sounded familiar. It's like it was coming from somewhere else not him. "So, so what stops you from acting on your feelings?", he gets all fidgety in his seat. Eyes wide open like a deer on headlights "I, I don't know. Maybe it's because I don't want my mom to see when I slit my wrists. Maybe I don't want my grandma to get a heart attack when she finds my body dangling from the tree. But. I feel it. A coldly clamy hand squeezing my heart. Urging me on. I need to feel more than just, just emotional pain I need to escape through physical pain". Whatever he was saying was true, and that was why I chose to help
+
+I nod "Do you think of hurting others? Animals? Plant?", he looks away "Of cause not. I'm not some looney! I just, I just have a lot of hurt on the inside, there's no bandage for whatever is inside but if it was out. Maybe it could feel a bit better" 
+
+
+I gulp, my palms sweaty. I keep rubbing them on my jeans. I stand up, walk towards him. The air getting stiff, eyes like daggers staring straight into my soul. I wonder why he hasn't moved an inch. I chuckle at my realization, he can't move because he's nailed to the chair. I can't clearly read his facial expressions, they're between scared and angry. I take the razor blade running a small line across his wrist. He struggles, and thrashes on the chair.
+
+I ask "How does that feel", I await for a response. "Feels, like nothing. I need something strong. That can get me pumped up. Stab myself, slit my neck".
+
+I stand in front of him, take the knife and brandish it before I plunge it into his chest. crimson red blood coating the knife that's sticking out of him. I drive it deep and deeper. I take it out and stab, pull, stab, pull stab. Again again again. As blood gushes from his wound. His voice cheering me on "Again, again, again, again". Then his lifeless body twitches. After that I exhale deeply, pat him on the shoulder "You did good. Now how did that feel", "Exhilarating! We need to do it again!", I nod. Grabbing the voice recorder that was playing from under the chair. 
+
+Then wipe the tears off his face, "Wow, the resemblance is uncanny. You look 89% like me!.. I know I know its weird talking to a dead person but I prefer to do the monologue after. My therapist gave me the best advice. She said 'Sometimes letting Go doesn't mean you're not strong' therefore I let go from trying to be normal to be okay. That's why I try so hard to find my lookalikes then give myself a therapy session through acting on my suicidal thoughts. Don't you get it? Of course you don't. Let me break it down. The voice recorder is for more realism. In sort I'm having a conversation with myself. You're me now and I'm me, so this is therapy. I can't hurt me but I can hurt you to make me feel better on the inside."
+
+He didn't answer, mainly because he was dead. And his lips were glued together.
+
+He's not my first and won't be my last. Ever since I started killing off these parts of me. I've been at peace, more alive than I could ever be. The only person who can save you, is yourself. So I'm saving me from life long of depression, anxiety and suicidal thoughts that plagued my mind.
