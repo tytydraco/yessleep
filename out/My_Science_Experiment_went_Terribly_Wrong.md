@@ -98,7 +98,7 @@ The frog was staring up at me, dead and bloated. What caught my attention – mo
 
 &#x200B;
 
-Unbeknownst to me, something horrific was about to be birthed.  
+Unbeknownst to me, something horrific was about to be birthed.
 
 &#x200B;
 
@@ -134,7 +134,7 @@ The classroom shrieked.
 
 &#x200B;
 
-The teacher tried restoring order, but it was no use. Mayhem ensued. To everyone’s horror, the mound of mucus was moving, slithering along the vinyl floor, collecting shape, until it formed a giant blob. Its head was huge, with narrow eyes and cauliflower ears; its rounded body a mass of sickly skin, swooshing and groaning as it expanded, until it was the size of a small person.   
+The teacher tried restoring order, but it was no use. Mayhem ensued. To everyone’s horror, the mound of mucus was moving, slithering along the vinyl floor, collecting shape, until it formed a giant blob. Its head was huge, with narrow eyes and cauliflower ears; its rounded body a mass of sickly skin, swooshing and groaning as it expanded, until it was the size of a small person.
 
 &#x200B;
 
@@ -152,9 +152,7 @@ Nobody moved.
 
 Tasha, a straight-A student whom everyone adored, was its next victim. With T-Rex arms, it shoved her into its ginormous mouth. She shrieked. The blob’s wart-infested tongue expanded, exposing a tray of coffee-colored teeth, sharp as razor blades. Fresh blood dripped from its licorice lips, while it swallowed her whole.
 
- 
-
-Billy was the first to react. Camera in hand, he stood on his desk and told the creature to eat a dick. With death-defying speed, the blob pounced. Billy flew from the desk, smashing his head on the floor; his bones snapped like twigs as the thing steamrolled over him, grumpy as a German tank. Billy fought like hell. I gotta hand it to him. He kicked and clawed and scraped and swore, but it was no use. The creature easily overpowered him. Billy was torn to shreds, stuffed inside its moist mouth, then swallowed. 
+Billy was the first to react. Camera in hand, he stood on his desk and told the creature to eat a dick. With death-defying speed, the blob pounced. Billy flew from the desk, smashing his head on the floor; his bones snapped like twigs as the thing steamrolled over him, grumpy as a German tank. Billy fought like hell. I gotta hand it to him. He kicked and clawed and scraped and swore, but it was no use. The creature easily overpowered him. Billy was torn to shreds, stuffed inside its moist mouth, then swallowed.
 
 &#x200B;
 
@@ -198,7 +196,7 @@ Everyone gulped.
 
 &#x200B;
 
-Twelve of us remained. Nobody knew what to do. It was up to me. I had to do something; Those insidious creatures came from my frog. Without hesitation, I picked the scalpel off the floor, gripping it tightly in my trembling hand, then I edged along the wall, creeping toward the window.  
+Twelve of us remained. Nobody knew what to do. It was up to me. I had to do something; Those insidious creatures came from my frog. Without hesitation, I picked the scalpel off the floor, gripping it tightly in my trembling hand, then I edged along the wall, creeping toward the window.
 
 &#x200B;
 
@@ -214,7 +212,7 @@ Suddenly, I was the last kid standing. All my classmates were dead. The creature
 
 &#x200B;
 
-To my dismay, the blobs started making those god-awful sounds again. Their slimy skin jiggled as they moaned. Right before my very eyes, yet another army of blobs was being birthed. The floors were soaked in bile, most of the desks were overturned, and blood and guts were everywhere.  
+To my dismay, the blobs started making those god-awful sounds again. Their slimy skin jiggled as they moaned. Right before my very eyes, yet another army of blobs was being birthed. The floors were soaked in bile, most of the desks were overturned, and blood and guts were everywhere.
 
 &#x200B;
 
@@ -254,11 +252,11 @@ Oh, sweet irony. Now I was the test frog.
 
 &#x200B;
 
-Like cooked meat, I was stuffed into machines that felt like ovens, and given drugs that induced hallucinations beyond my most terrifying nightmares. At some point, I gave up all hope of ever returning to the real world. But alas, I was released. 
+Like cooked meat, I was stuffed into machines that felt like ovens, and given drugs that induced hallucinations beyond my most terrifying nightmares. At some point, I gave up all hope of ever returning to the real world. But alas, I was released.
 
 &#x200B;
 
-Although my time at the facility remains a blur, I do remember the cops. Their questions came like rapid fire, wanting to know everything that happened that fateful day. Apparently, the cameras inside the classroom were destroyed, and the girls that got away were too traumatized to testify.  
+Although my time at the facility remains a blur, I do remember the cops. Their questions came like rapid fire, wanting to know everything that happened that fateful day. Apparently, the cameras inside the classroom were destroyed, and the girls that got away were too traumatized to testify.
 
 &#x200B;
 
@@ -278,4 +276,4 @@ There’s only one thing I’m certain of, and no one from this planet or any ot
 
 &#x200B;
 
-There’s no way I’ll ever dissect a frog \[again.\]([https://www.reddit.com/r/StoriesFromStarr/](https://www.reddit.com/r/StoriesFromStarr/))
+There’s no way I’ll ever dissect a frog [again.](https://www.reddit.com/r/StoriesFromStarr/)
