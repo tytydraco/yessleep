@@ -1,12 +1,12 @@
-So, all of that stuff I [hit you with last time](https://www.reddit.com/r/nosleep/comments/13671vk/all_the_time_in_the_world_the_bar_at_the_edge_of/?utm_source=share&utm_medium=web2x&context=3)—it actually happened a few weeks ago. Sorry for the delay. There’s a reason it took me a while to update you: I’ve been adjusting to a new version of life since everything happened. 
+So, all of that stuff I [hit you with last time](https://www.reddit.com/r/nosleep/comments/13671vk/all_the_time_in_the_world_the_bar_at_the_edge_of/?utm_source=share&utm_medium=web2x&context=3)—it actually happened a few weeks ago. Sorry for the delay. There’s a reason it took me a while to update you: I’ve been adjusting to a new version of life since everything happened.
 
 I suppose the easiest way to talk about it is to compare it to my life months ago, before the murders started, before I even knew Faith or the Ancient One or harbingers existed.
 
-Have things changed? Well, yes and no. 
+Have things changed? Well, yes and no.
 
 Back in the beginning, I started this with a *once upon a time.* To be exact: once upon a time, in a magical land far, far away, there lived a handsome, powerful prince, so incredible that the sun itself rose at his command.
 
-Most of that setup is just as false now as it was then. I’m still not that far away. The sun still doesn’t know I exist. 
+Most of that setup is just as false now as it was then. I’m still not that far away. The sun still doesn’t know I exist.
 
 Still handsome, though. And more powerful, supposedly. But let me back up.
 
@@ -32,25 +32,25 @@ We were on the front step now. I looked at him in surprise. “Really? That easy
 
 He shrugged. “I’d follow you anywhere. Except onto another skyscraper.”
 
-“Fair enough,” I said, and crossed the threshold with Milo, Asher, and Acacia in tow. 
+“Fair enough,” I said, and crossed the threshold with Milo, Asher, and Acacia in tow.
 
 I’d love to tell you the transition has been seamless, but of course it hasn’t. Ending centuries of grudges and superstitions doesn’t go away overnight. It’s still a work in progress, but I *am* making progress.
 
 Which brings me back to one of the things that’s different now: Griffin’s Edge. I mean, it has to be. It can never be the same without Henri’s calm presence and piercing lilac eyes. I spread the news about his death as soon as we got back, along with the news that the murder spree was over, and the announcement that I would be keeping the bar open and running it myself. I made it clear that *everyone* was welcome, including harbingers, and that I’d throw out anyone who disagreed.
 
-There’s been growing pains, of course. I got in a shouting match with a gnome the other day—turns out gnomes say some surprisingly racist stuff when drunk. After significant cursing on both sides, I finally just picked his two-foot-tall self up and threw him out the door. I’ve kicked out some more intimidating visitors, too, although they don’t give me as much trouble as you’d think. I see the side-eyed glances they give me. They sense it, that aura of time and power around me, and they respect it. 
+There’s been growing pains, of course. I got in a shouting match with a gnome the other day—turns out gnomes say some surprisingly racist stuff when drunk. After significant cursing on both sides, I finally just picked his two-foot-tall self up and threw him out the door. I’ve kicked out some more intimidating visitors, too, although they don’t give me as much trouble as you’d think. I see the side-eyed glances they give me. They sense it, that aura of time and power around me, and they respect it.
 
 Or are threatened by it. I’m not totally sure which. But I’m cool with not having to find out.
 
 Asher, Acacia, and Milo have been a huge help as I figure out how to run Griffin’s Edge. I mean, I’ve known how to mix cocktails since I was like eight years old, but I guess I never realized how much extra work Henri put in: budgets and supply chains and staff. I don’t think I’d be able to do it *entirely* alone, which is why my friends and the existing staff have been a huge help. Well, some more than others.
 
-Acacia, for instance, has been drawing in more harbingers. “The people of Oasis hate me less than they hate Asher,” she whispered to me before leaving one morning. “I’ll have a better chance than he will.” 
+Acacia, for instance, has been drawing in more harbingers. “The people of Oasis hate me less than they hate Asher,” she whispered to me before leaving one morning. “I’ll have a better chance than he will.”
 
-And I guess she was right, because slowly but surely, she’s dragged several other harbingers to the bar, and though they sit in the shadowy corner and look kind of uneasy, they come back. Their favorite seems to be our Witch’s Brew cocktail. Hey, I’m as surprised as you are, but I’ll take it. 
+And I guess she was right, because slowly but surely, she’s dragged several other harbingers to the bar, and though they sit in the shadowy corner and look kind of uneasy, they come back. Their favorite seems to be our Witch’s Brew cocktail. Hey, I’m as surprised as you are, but I’ll take it.
 
-Milo has decided that he will be in charge of renovations, particularly pool renovations. He’s been bringing me blueprints—and by blueprints I mean scribbled sketches on Griffin’s Edge napkins—of expansion ideas. These, so far, have included a wave pool, a waterslide taller than the bar, and an artificial beach. 
+Milo has decided that he will be in charge of renovations, particularly pool renovations. He’s been bringing me blueprints—and by blueprints I mean scribbled sketches on Griffin’s Edge napkins—of expansion ideas. These, so far, have included a wave pool, a waterslide taller than the bar, and an artificial beach.
 
-Remember how I said some of my friends have been a bigger help than others? Yeah. 
+Remember how I said some of my friends have been a bigger help than others? Yeah.
 
 Speaking of Milo, *that’s* one thing that hasn’t changed at all: our errands together. I know, I know, you’re probably like, *Ian, you just said you’re super busy with running the bar! How do you even have time for dumb errands, and* why *are you even still doing them??*
 
@@ -74,7 +74,7 @@ He nudged me harder. “Nice try. You’ve always been a terrible liar. It’s l
 
 I shrugged, failing to hide my smile. “Worth a shot.”
 
-“Too bad you’re not a good shot either,” he said, ducking naturally to avoid the fist I immediately swung at his head. 
+“Too bad you’re not a good shot either,” he said, ducking naturally to avoid the fist I immediately swung at his head.
 
 “Neither are you,” I grumbled as he straightened up and fixed his wildly askew glasses.
 
@@ -104,15 +104,15 @@ I recognized him. I knew instantly that this was the very same vampire from year
 
 Though my heart fluttered nervously like a trapped butterfly, I found that I wasn’t as scared as I once might have been. I wasn’t thirteen anymore. I pulled Sgrios from my belt. “For a plan that took over five years to come up with, it’s not very good.”
 
-“Or creative,” added Milo. 
+“Or creative,” added Milo.
 
-The vampire looked furious. “It doesn’t matter if it’s creative,” he snarled. “I’ll kill you both.” 
+The vampire looked furious. “It doesn’t matter if it’s creative,” he snarled. “I’ll kill you both.”
 
 “You can try,” I said. “You didn’t do so well the first time.”
 
 The vampire grinned, his eyes glinting hungrily. “Well, your uncle isn’t here to save you now.” And then he buried his teeth deep into Milo’s neck.
 
-Immediately, Milo’s face went blank, as if he was under hypnosis. Oh, not a *chance.* I wasn’t getting through all the murders and jumps and close calls I’d experienced in the last few months to see Milo die *now.* Not to mention that I was *not* a fan of the way the vampire had mentioned Henri with such disgust. I cursed and charged forward without a second thought. 
+Immediately, Milo’s face went blank, as if he was under hypnosis. Oh, not a *chance.* I wasn’t getting through all the murders and jumps and close calls I’d experienced in the last few months to see Milo die *now.* Not to mention that I was *not* a fan of the way the vampire had mentioned Henri with such disgust. I cursed and charged forward without a second thought.
 
 In one surprisingly fluid motion, I ripped Milo from the vampire’s hold—a little inhuman strength can be a good thing, as it turns out—and stabbed Sgrios into the vampire’s ribs.
 
@@ -140,11 +140,11 @@ He made a noncommittal grunting noise as he watched me search. I wasn’t findin
 
 And then he was gone, pulled back into the trees towards wherever the source of the vine was. The darkness swallowed him up completely, and even as I charged after him—letting out a string of colorful curses as I did—I already couldn’t tell where he’d been taken. The roars and whispers of the forest made it impossible to tell where his calls were coming from.
 
-*Don’t panic, Ian.* I’d just defeated the same vampire who’d nearly killed me five years ago. I was different now. I’d survived so much. I could do this. 
+*Don’t panic, Ian.* I’d just defeated the same vampire who’d nearly killed me five years ago. I was different now. I’d survived so much. I could do this.
 
-I closed my eyes. 
+I closed my eyes.
 
-I pictured Milo sunbathing by the pool. I pictured him fighting Faith to save my life. I pictured him sitting beside me in Henri’s office as Henri sternly told us off for painting the bar’s bathrooms glow-in-the-dark orange. 
+I pictured Milo sunbathing by the pool. I pictured him fighting Faith to save my life. I pictured him sitting beside me in Henri’s office as Henri sternly told us off for painting the bar’s bathrooms glow-in-the-dark orange.
 
 And it was just like in the fog. I could see a silver thread leading me to him, winding through the trees, thin but unbreakable. I ran after it.
 
@@ -158,7 +158,7 @@ Flames from Asher’s flamethrower. He sat up on a tree branch, legs dangling, f
 
 “I can’t, because there is no tally,” I said.
 
-“*You* might not be keeping one, but *I* am,” he said, smirking. 
+“*You* might not be keeping one, but *I* am,” he said, smirking.
 
 “Okay, well, you didn’t even save my life that time!” I argued. “You saved Milo’s. I was fine!”
 
@@ -174,9 +174,9 @@ I rolled my eyes and found us a tear in reality to come back to the bar. Just in
 
 Anyway, all this to say that some things have stayed the same, and some things have changed for the better. I’m just grateful to have my friends to help with everything. They’re the reason I survived at all, and they’re the reason I’ll continue to survive. Even for eternity.
 
-I’ve said it before: I didn’t want immortality. I saw Henri’s struggles. I saw how heavy his memories weighed on him. But I can shoulder that burden if it means saving everyone else. 
+I’ve said it before: I didn’t want immortality. I saw Henri’s struggles. I saw how heavy his memories weighed on him. But I can shoulder that burden if it means saving everyone else.
 
-Still, I won’t lie, I’ve thought about it a lot in the last few weeks, as I think about the future. 
+Still, I won’t lie, I’ve thought about it a lot in the last few weeks, as I think about the future.
 
 I was scared at first. Mermaids live a long time, but not forever. I won’t always have Milo. It’s a daunting thought, the looming possibility of someday being alone for eternity.
 
@@ -192,7 +192,7 @@ He raised his dark eyes to meet mine. “No, I mean forever. Or forever until yo
 
 I looked at him in surprise, the weight of his words sinking in. He meant eternity. The endless, looming amount of time I suddenly had before me. But he wouldn’t still be here…would he?
 
-My surprised glance turned to squinting. I’d never really noticed since it was so different than the auras I usually saw, but he *did* have one. Instead of a glow, it was more of a shadow, a shifting dark edge that seemed to *absorb* energy rather than exude it. Thin, like an outline made with a black marker, but strong. And more importantly: endless. I knew that energy; Henri had it, and now I carried it with me. I couldn’t believe I hadn’t noticed it before. 
+My surprised glance turned to squinting. I’d never really paid it much notice since it was so different than the auras I usually saw, but he *did* have one. Instead of a glow, it was more of a shadow, a shifting dark edge that seemed to *absorb* energy rather than exude it. Thin, like an outline made with a black marker, but strong. And more importantly: endless. I knew that energy; Henri had it, and now I carried it with me. I remembered noticing Asher's void-like aura when we'd first met, knowing that it meant he was more dangerous than he looked; I couldn't believe I'd forgotten about it after that. Other priorities, I guess.
 
 I felt like screaming with joy and crying with relief all at once. I settled for grinning. “You…you’re immortal.”
 
@@ -210,12 +210,12 @@ I hung up a portrait of Uncle Henri over the door, next to Lucille’s. I like i
 
 I have some ideas in mind for expansion, too. (And no, not Milo’s waterslides). Because I’m trying to get the word out to more and more beings, human and inhuman alike. Everyone is welcome here, and I want them to come. I want this to be a home, for everyone, forever.
 
-It’s working. Word spreads fast when you tell it to drunk humans and dwarves. I’ve started seeing some new faces around here. Take yesterday—this group that I’ve never seen before came in. An eclectic mix: a dark-haired human who looked utterly in love with some kind of water spirit; a man and a woman a little older than me who *looked* human, except she had glowing eyes and he had a powerful silver aura unlike any I’d seen before; and a cat. We don’t get a lot of pets, and I thought about turning them away, but those cat’s eyes were so intelligent that I knew it was no ordinary cat, and I figured, hey, we don’t have a strict no-pets policy, and besides, it’ll still be cleaner than a manticore. 
+It’s working. Word spreads fast when you tell it to drunk humans and dwarves. I’ve started seeing some new faces around here. Take yesterday—this group that I’ve never seen before came in. An eclectic mix: a dark-haired human who looked utterly in love with some kind of water spirit; a man and a woman a little older than me who *looked* human, except she had glowing eyes and he had a powerful silver aura unlike any I’d seen before; and a cat. We don’t get a lot of pets, and I thought about turning them away, but those cat’s eyes were so intelligent that I knew it was no ordinary cat, and I figured, hey, we don’t have a strict no-pets policy, and besides, it’ll still be cleaner than a manticore.
 
 It made me happy to see a group like that, even if I had to pull Asher away from a *very* intense glaring contest with the dark-haired guy when he brought them their drinks, and even if the water spirit gave Milo an unfortunate new idea for a *bridge* over a pool out back. Because it means that the word is getting out, and that the boundaries between species are continuing to weaken and break.
 
-And that’s all I really want. That’s what this entire bar is about. That, and really, *really* good specialty cocktails. You’re welcome. 
+And that’s all I really want. That’s what this entire bar is about. That, and really, *really* good specialty cocktails. You’re welcome.
 
-Hey, if you don’t believe me, you’re welcome to stop by and see for yourself. After all, a lot of interesting things happen here, and they’re only getting more interesting. Griffin’s Edge isn’t going anywhere, and you’re always welcome, no matter who, or *what,* you are. You just have to find us. 
+Hey, if you don’t believe me, you’re welcome to stop by and see for yourself. After all, a lot of interesting things happen here, and they’re only getting more interesting. Griffin’s Edge isn’t going anywhere, and you’re always welcome, no matter who, or *what,* you are. You just have to find us.
 
 And if you do, Asher and I will be happy to serve you at the [bar at the edge of reality](https://www.reddit.com/user/gonavy27/comments/1377tc1/the_bar_at_the_edge_of_reality_novel/?utm_source=share&utm_medium=web2x&context=3).
