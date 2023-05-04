@@ -1,20 +1,20 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/135rros/i_bought_a_prefab_modern_house_my_life_became_an/) 
+[Part 1](https://www.reddit.com/r/nosleep/comments/135rros/i_bought_a_prefab_modern_house_my_life_became_an/) | [Part 3](https://www.reddit.com/r/nosleep/comments/137zj2g/i_bought_a_prefab_modern_house_my_life_became_an/)
 
 At my next appointment with the obstetrician she told me that my bloodwork came back with trace amounts of oxcarbazepine, an anti-seizure medication known to make birth control pills less effective. She scolded me for not listing it among the medications I was taking, even though I'd never knowingly taken it.
 
 On the drive home, I thought of the architect's preoccupation with family. Of all the times that he'd asked Nick and me about having kids.
 
-Maybe, I thought, what he'd done had less to do with voyeurism than it did with getting me pregnant. 
+Maybe, I thought, what he'd done had less to do with voyeurism than it did with getting me pregnant.
 
 Clearly he'd had access to the house since the moment we moved in. He could've slipped the medication into anything in the fridge. From the cameras in the old house he would've known my cycle. The lingerie on the counter was his way of forcing the issue when the timing was right.
 
-This would've also accounted for why he vanished, why he couldn't be found. His work with us was done. A thought came to mind: the architect as some fucked-up Johnny Appleseed, planting families everywhere he went. 
+This would've also accounted for why he vanished, why he couldn't be found. His work with us was done. A thought came to mind: the architect as some fucked-up Johnny Appleseed, planting families everywhere he went.
 
 I shared my theory with Nick. He agreed it was plausible. Even likely.
 
-Now, this scenario was super creepy, but somehow less so than various alternatives. Per this explanation, the architect had serious issues but his intentions weren't destructive or malicious. 
+Now, this scenario was super creepy, but somehow less so than various alternatives. Per this explanation, the architect had serious issues but his intentions weren't destructive or malicious.
 
-Anyway, this is what I told myself as things gradually began to feel normal again, or close to it. At night our new exterior cameras would catch the occasional critter poking around. Sometimes a snake would slither past, which I wasn't too crazy about, though none were as large as that first one I'd seen. Nothing else, though -- nothing to concern us. There was still the feeling of some nearby presence that came over me from time to time, especially in quiet moments. Given what had happened I figured that feeling would never quite go away. 
+Anyway, this is what I told myself as things gradually began to feel normal again, or close to it. At night our new exterior cameras would catch the occasional critter poking around. Sometimes a snake would slither past, which I wasn't too crazy about, though none were as large as that first one I'd seen. Nothing else, though -- nothing to concern us. There was still the feeling of some nearby presence that came over me from time to time, especially in quiet moments. Given what had happened I figured that feeling would never quite go away.
 
 And the house itself, at least on the surface, belied this lurking anxiety. Sometimes I'd be walking through it when I was struck by a particular composition of lines and angles and empty spaces, of the way the light played within it, and I'd stop for a moment of appreciation.
 
@@ -28,7 +28,7 @@ He nodded toward the abstract sculpture I'd found at the secondhand shop. Alread
 
 "I don't know," I said. "I think it looks fine."
 
-In truth, though, I knew what he meant. The sculpture should've worked in the space. Like the house, it was modern, and like the house its aesthetic appealed to me, taken on its own. But something about it, no matter where it was, rung a discordant note. 
+In truth, though, I knew what he meant. The sculpture should've worked in the space. Like the house, it was modern, and like the house its aesthetic appealed to me, taken on its own. But something about it, no matter where it was, rung a discordant note.
 
 "Maybe it was better in the other corner," he said.
 
@@ -36,13 +36,13 @@ In truth, though, I knew what he meant. The sculpture should've worked in the sp
 
 "Thanks. I know it shouldn't bother me."
 
-I chalked it up to Nick wanting the place to look nice for company. We were about to have guests for the first and last time. 
+I chalked it up to Nick wanting the place to look nice for company. We were about to have guests for the first and last time.
 
 Since moving east, we'd established a little group of friends, mostly through Anton, Nick's old college buddy who lived near the rental house. I'd met him and his wife a few times over the years, at weddings and when they'd been out west on vacation. Now, after a year's worth of dinner parties and barbecues and nights on the town, we'd come to know and become friends with the other couples in their circle.
 
 It was a fun group of folks with a tendency to drink and laugh until late at night. I'd become closest with a woman named Cassie. Usually easygoing, she had a no-nonsense side that I'm sure came in handy at work -- she was a corporate attorney of some kind -- and which I admired.
 
-The new house was a bit of a hike for everyone, a good ninety minute drive, so when we extended an invitation to dinner we included an invitation to stay the night. Cassie and her husband took us up on the offer. Two other couples said they'd play it by ear. That was fine. This wasn't the sort of group that would expect pampering, should they decide to stay. 
+The new house was a bit of a hike for everyone, a good ninety minute drive, so when we extended an invitation to dinner we included an invitation to stay the night. Cassie and her husband took us up on the offer. Two other couples said they'd play it by ear. That was fine. This wasn't the sort of group that would expect pampering, should they decide to stay.
 
 Including us, there'd be six couples at dinner. We scheduled it on the early side, for those who'd have to drive back. Nick and I hadn't told everyone about the pregnancy, yet, though I'd told Cassie and Nick had told Anton. But everybody knew about what had happened with the architect, minus some of the details. It was a big topic of conversation, once everyone arrived. After, that is, they were able to get in the house.
 
@@ -62,23 +62,23 @@ As dinner parties always do, this one settled in the kitchen -- around the islan
 
 I started to notice it soon after we all sat down around the dining table. A kind of slipping of my senses. Minor warping of sounds and swimminess of vision. A slight heaviness in my limbs. It felt a little like tripping on mushrooms. I looked around the table and somehow knew that it wasn't just me, that other people were experiencing the same thing. It had to do with the way that people were laughing, maybe -- slightly too manic and sustained -- or their unblinking, dilated eyes.
 
-I hadn't had a drop to drink. And Nick and I had thrown away all the food away after finding the cameras, just to be safe -- there was no way anything was tainted. I kept waiting for someone to mention what was happening but no one did, and soon I couldn't concentrate enough on anything to wonder what was happening. The rest of that night comes back only in flashes. 
+I hadn't had a drop to drink. And Nick and I had thrown away all the food away after finding the cameras, just to be safe -- there was no way anything was tainted. I kept waiting for someone to mention what was happening but no one did, and soon I couldn't concentrate enough on anything to wonder what was happening. The rest of that night comes back only in flashes.
 
 I remember people on the deck, screaming into the woods.
 
 I remember sitting beside Cassie at the otherwise abandoned dinner table, the dirty dishes stretched out in front of us, watching Nick shamble across the living room, Cassie saying, "Look, look, that's what I mean. Look at how he's moving."
 
-I remember the music being very loud and people dancing. 
+I remember the music being very loud and people dancing.
 
 And I remember, impossibly, walking past one of the open bedroom doors and seeing two of our friends -- a man and a woman who were not married to one another -- rutting like animals.
 
 I say "impossibly" because this wasn't a wife-swapping sort of group. Sure, there was some harmless flirting, the way there often is when couples are friends and a things get loose, but that was it. Hell, even the screaming and dancing were uncharacteristic.
 
-Fortunately when I regained full consciousness I was in my own bed. It was morning and Nick was beside me, still sleeping. I was in my underwear and shirt from last night. My jeans were beside the bed so I pulled them on and went to check on our guests. 
+Fortunately when I regained full consciousness I was in my own bed. It was morning and Nick was beside me, still sleeping. I was in my underwear and shirt from last night. My jeans were beside the bed so I pulled them on and went to check on our guests.
 
-Everyone was gone. The air mattresses we'd set up in the other bedrooms/offices had clearly been slept on, as had the couch and living room floor. There were sheets and blankets and pillows strewn everywhere. 
+Everyone was gone. The air mattresses we'd set up in the other bedrooms/offices had clearly been slept on, as had the couch and living room floor. There were sheets and blankets and pillows strewn everywhere.
 
-I checked the microwave clock: a little past ten. Late but not crazy late. 
+I checked the microwave clock: a little past ten. Late but not crazy late.
 
 It was all very strange. These were the sort of considerate friends who usually helped with dishes after dinner, who volunteered to help with big household projects, who insisted on picking up the tab. But looking around it seemed like everyone had crashed, woken up, and left in haste.
 
@@ -114,13 +114,13 @@ I mentioned this to Nick and he admitted that something similar was happening to
 
 I pointed out for the thousandth time that I hadn't had anything to drink the night everyone came, but Nick seemed dismissive. I didn't get it. Not just his reasoning but why he was acting that way. He was never dismissive like that.
 
-One evening, I was watching him prepare dinner. We rotated nights, meal prep and dishes. Tonight was my night on dishes, so while Nick got dinner together I was sitting in the living room, reading. From my spot on the couch, I could see him moving around the airy, elegant kitchen, grabbing things out of drawers or from the pantry, going between the sink and the stovetop. I was watching him and thinking about how he hadn't been acting like himself and I'm not sure if it was something in this line of thought that made me finally see it. 
+One evening, I was watching him prepare dinner. We rotated nights, meal prep and dishes. Tonight was my night on dishes, so while Nick got dinner together I was sitting in the living room, reading. From my spot on the couch, I could see him moving around the airy, elegant kitchen, grabbing things out of drawers or from the pantry, going between the sink and the stovetop. I was watching him and thinking about how he hadn't been acting like himself and I'm not sure if it was something in this line of thought that made me finally see it.
 
-A quick memory of the dinner party. Cassie and I alone at the dinner table, watching Nick walk across the room. Cassie's words: "Look at how he's moving." 
+A quick memory of the dinner party. Cassie and I alone at the dinner table, watching Nick walk across the room. Cassie's words: "Look at how he's moving."
 
-The same way he was moving now, with certain movements that were smooth and slow, others that were quick and vigorous, fitful, discordant movements governed by some unusual physics. 
+The same way he was moving now, with certain movements that were smooth and slow, others that were quick and vigorous, fitful, discordant movements governed by some unusual physics.
 
-Moving, that is, just like the architect. 
+Moving, that is, just like the architect.
 
 "What?" Nick asked me later that night as he got ready for bed.
 
@@ -130,7 +130,7 @@ I'd been staring at him, I guess. I couldn't help it. I'd been observing him all
 
 Except it wasn't nothing. Unless I was going crazy.
 
-Needing outside validation, I texted Cassie, asked if she wanted to meet for coffee. 
+Needing outside validation, I texted Cassie, asked if she wanted to meet for coffee.
 
 "Glad you asked," she texted back. "Been thinking of you, meaning to call."
 
@@ -168,9 +168,9 @@ I thanked her and told her I was OK. And, while I appreciated her concern, there
 
 Before I drove back, she insisted on making a date for another coffee. "For my own peace of mind," she said.
 
-I couldn't pretend that there was no basis for what Cassie had said. About what she'd called the strangeness. Even aside from our friends' visit and the way that Nick was acting, there persisted the feeling that would come over me from time to time, of something lurking. Sometimes when it did I found myself unconsciously holding my belly, though it hadn't yet begun to bulge. 
+I couldn't pretend that there was no basis for what Cassie had said. About what she'd called the strangeness. Even aside from our friends' visit and the way that Nick was acting, there persisted the feeling that would come over me from time to time, of something lurking. Sometimes when it did I found myself unconsciously holding my belly, though it hadn't yet begun to bulge.
 
-One day I was standing in front of my bedroom closet when the feeling came, and I closed my eyes, forcing myself to focus on it, to let it in as deeply as possible, to better sense it. 
+One day I was standing in front of my bedroom closet when the feeling came, and I closed my eyes, forcing myself to focus on it, to let it in as deeply as possible, to better sense it.
 
 It seemed to come from all sides, as if inward, from the walls. Opening my eyes, I walked around the room to see if the feeling grew stronger or weaker or otherwise changed. As I did, and neared the bedroom door, I thought I felt a slightly new sensation, not just a lurking but an unseen moving, something active. Moving toward the feeling, I went out the door and into the hall, then into Nick's office -- the future nursery -- before the feeling passed.
 
@@ -188,11 +188,11 @@ Lulled by this period of relative normalcy, I was unprepared for what happened n
 
 I woke up and Nick wasn't in bed. This in itself wasn't unusual; sometimes he got up earlier than I did and vice versa. I went into the bathroom and splashed water on my face, then headed for the kitchen. On my way, I didn't smell coffee. Now this was unusual. By unstated agreement, whoever got up first always made a full pot. When I got to the kitchen, the coffeepot was empty, still clean.
 
-"Nick?" I called. 
+"Nick?" I called.
 
-I checked his office -- nothing. My office too. The hall bath, everywhere. I figured maybe he went to run an errand but his keys were still in the bowl along with mine on the table by the door. OK then, maybe he went on a walk; it looked like a nice, late September morning. That must've been it. Even though he usually left a note. 
+I checked his office -- nothing. My office too. The hall bath, everywhere. I figured maybe he went to run an errand but his keys were still in the bowl along with mine on the table by the door. OK then, maybe he went on a walk; it looked like a nice, late September morning. That must've been it. Even though he usually left a note.
 
-Except I went around and checked and all the bolts were engaged. The ones we'd installed after the scare with the cameras. The ones that could only be engaged from the inside. 
+Except I went around and checked and all the bolts were engaged. The ones we'd installed after the scare with the cameras. The ones that could only be engaged from the inside.
 
 So then where was Nick?
 
@@ -200,9 +200,9 @@ Nonsensically, I checked the closets and under the bed. Starting to panic, I gra
 
 I'd just thumbed the 9 when there came a knock at the front door.
 
-It startled me, and for one irrational moment I thought oh no, it's the architect. Then logic kicked it and I opened the door to see Nick on the stoop. 
+It startled me, and for one irrational moment I thought oh no, it's the architect. Then logic kicked it and I opened the door to see Nick on the stoop.
 
-He was shivering in the morning chill, wearing what he always slept in, gym shorts and a t-shirt. He was barefoot. 
+He was shivering in the morning chill, wearing what he always slept in, gym shorts and a t-shirt. He was barefoot.
 
 "Nick, what the hell?" I said, hugging him. "Where were you?"
 
@@ -210,7 +210,7 @@ He stood there blinking. "I- I don't know. I woke up, I was just down the hill."
 
 I corralled him into the house and poured him coffee.
 
-He had no memory of how he got outside but contended he must've been sleepwalking, even though he'd never sleepwalked in all the time I'd known him. I told him that wasn't possible -- that all the doors were bolted. He and I went around together and verified that all the windows were locked. 
+He had no memory of how he got outside but contended he must've been sleepwalking, even though he'd never sleepwalked in all the time I'd known him. I told him that wasn't possible -- that all the doors were bolted. He and I went around together and verified that all the windows were locked.
 
 "I don't know," he said. "It must've been the front door. It must not have been bolted when you opened it."
 
@@ -222,7 +222,7 @@ I didn't argue. The evidence was against me. And anyway he didn't seem much wors
 
 He stretched his neck, his arms, his legs, doing a kind of inventory. "A little stiff, but fine."
 
-He went to take a hot shower. I should've been relieved, I guess. He was fine. Perhaps to convince myself that this was really true, I went to check on him in the shower. 
+He went to take a hot shower. I should've been relieved, I guess. He was fine. Perhaps to convince myself that this was really true, I went to check on him in the shower.
 
 "Oh my god," I said when I saw him.
 
@@ -230,7 +230,7 @@ He turned around to face me. "What?"
 
 "Your back."
 
-Directly in the center of his back was a pattern a few inches wide: It looked like a sun the way a kid would draw it, with swoopy rays ending in points -- seven of them. Around the sun, between the rays, were seven circles. This pattern pink upon Nick's skin, like a chemical burn. 
+Directly in the center of his back was a pattern a few inches wide: It looked like a sun the way a kid would draw it, with swoopy rays ending in points -- seven of them. Around the sun, between the rays, were seven circles. This pattern pink upon Nick's skin, like a chemical burn.
 
 He stepped out of the shower to look in the mirror. "Wow. We must've been even drunker than I thought."
 
@@ -248,9 +248,9 @@ He stepped out of the shower to look in the mirror. "Wow. We must've been even d
 
 Was I? Surely I'd seen Nick's bare back in the two weeks or so since everyone visited. I tried to remember if I'd been in the bathroom while he was showering, or the closet while he was changing. Or if he'd walked around without a shirt at any point. Or if I'd seen him from the back during or after sex. These weren't the sorts of details you usually make a point of remembering with a timestamp. "It doesn't hurt?" I asked.
 
-He said he didn't feel it, and seemed more focused on how, while sleeping outside, he was lucky he hadn't been bitten by a snake, given how many we'd been seeing. 
+He said he didn't feel it, and seemed more focused on how, while sleeping outside, he was lucky he hadn't been bitten by a snake, given how many we'd been seeing.
 
-That prompted me to do something I'd been meaning to do. I called a pest control company and had someone come out to make sure that the house was snake proof, sealed up nice and tight. The guy who did the inspection told us we were in the clear, that there was no way in. Of course, no way in meant no way out -- or should've. But somehow Nick had found one. 
+That prompted me to do something I'd been meaning to do. I called a pest control company and had someone come out to make sure that the house was snake proof, sealed up nice and tight. The guy who did the inspection told us we were in the clear, that there was no way in. Of course, no way in meant no way out -- or should've. But somehow Nick had found one.
 
 My next coffee date with Cassie came around, and I was eager to talk to her about this new mystery. She was already there and waved me down. When I sat down I looked across the table to see that she was staring at me with horror.
 
@@ -264,7 +264,7 @@ My next coffee date with Cassie came around, and I was eager to talk to her abou
 
 I could see she really believed it. And I suddenly felt like I was going insane. I broke down crying. Cassie came around to the chair beside me and gathered me in her arms. People were staring at us. I didn't care.
 
-Here I'd thought Nick's way of moving had normalized. What must've happened, though, was that mine had begun to mirror his, to the point that I began to think it was normal. 
+Here I'd thought Nick's way of moving had normalized. What must've happened, though, was that mine had begun to mirror his, to the point that I began to think it was normal.
 
 I told Cassie everything. About what had happened with Nick waking outside. About the pattern on his back.
 
@@ -278,7 +278,7 @@ She had me sketch it on a napkin, which she tucked into her purse. "If you don't
 
 It hadn't even occurred to me that the symbol might mean something. Back home, I tried to track it down online but it was hard to know how to begin filtering through thousands of occult symbols.
 
-Preoccupied by these efforts, I found it difficult to focus on work. It didn't help that I continued to lose track of time, zoning out for hours at a stretch whenever I sat down at my desk. Only whereas previously the work I was doing while in an unaware state seemed to be fine, this gradually ceased to be the case. I would be working on the design library for the blocks in one of the game's new building suites, for instance, zone out, and when I snapped back to reality I'd see that I'd substituted a whole new color palette, or gave the rounding of the blocks' edges a shading treatment that was all wrong. 
+Preoccupied by these efforts, I found it difficult to focus on work. It didn't help that I continued to lose track of time, zoning out for hours at a stretch whenever I sat down at my desk. Only whereas previously the work I was doing while in an unaware state seemed to be fine, this gradually ceased to be the case. I would be working on the design library for the blocks in one of the game's new building suites, for instance, zone out, and when I snapped back to reality I'd see that I'd substituted a whole new color palette, or gave the rounding of the blocks' edges a shading treatment that was all wrong.
 
 I knew that Nick had been experiencing similar lapses of time and asked if he too had noticed a change in the work he was doing. "Yeah, I have," he said. "It's way better."
 
@@ -286,22 +286,24 @@ I knew that Nick had been experiencing similar lapses of time and asked if he to
 
 "Maybe, maybe not. But it might amount to something in the long run. Here, look."
 
-And he showed me some of the work he'd been doing by pushing code to his personal sandbox. A stripped-down version of the game's standard building interface appeared onscreen, with building tools in a tray along the side and a blank building grid in the middle of the game-space. 
+And he showed me some of the work he'd been doing by pushing code to his personal sandbox. A stripped-down version of the game's standard building interface appeared onscreen, with building tools in a tray along the side and a blank building grid in the middle of the game-space.
 
-"I've been modifying some of the existing tools," he said, "so that you can begin building with new combinations of standard blocks. It lets you build better and faster." He began dragging block formations onto the building grid. The formations looked like panels of various sizes. 
+"I've been modifying some of the existing tools," he said, "so that you can begin building with new combinations of standard blocks. It lets you build better and faster." He began dragging block formations onto the building grid. The formations looked like panels of various sizes.
 
 Suddenly I understood.
 
-I ran back to my office and grabbed my laptop, took it to him. 
+I ran back to my office and grabbed my laptop, took it to him.
 
-"What am I looking at?" he said as I scrolled through the work I'd been doing while zoned out. 
+"What am I looking at?" he said as I scrolled through the work I'd been doing while zoned out.
 
 "Look at these color palettes and design treatments," I said. "Now imagine them applied to these block formations you've enabled."
 
-He looked at me blankly. 
+He looked at me blankly.
 
 I wanted to shake him. I said, "It's the fucking house. The prefab panels."
 
 I don't know what I expected his reaction to be. Some version of what I was feeling: a sense of revulsion, of creeping dread. Because we'd been doing this work unwittingly, as if bidden by something.
 
 Instead, though, he looked at my screen, then at his screen, then back at my screen, then back at his. He nodded slowly. "You're right," he said. Then he turned to look at me and to my horror he was smiling widely, his face fixed in an expression of sincere joy. "It is the house."
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/137zj2g/i_bought_a_prefab_modern_house_my_life_became_an/)
