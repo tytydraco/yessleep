@@ -246,9 +246,9 @@ I froze. I had no idea what to do. I could try to run. Maybe these spirits would
 
 That’s when it hit me. I still couldn’t make sense of the situation, but I knew, in that moment, that, somehow, they were the ones who’d left the note for me. *They* were the ones with a plan to defeat Brandon.
 
-I *hated* them for what they’d just done to my friends. Yes, they were victims of an incredible crime, one I’d experienced the misery of firsthand, and they’d been turned into monsters by it. But I couldn’t find any sympathy for them, not after what I’d seen them do.
+I *hated* them for what they’d just done to my friends. Yes, they were victims of an incredible crime, one I’d experienced the misery of firsthand. But I couldn’t find any sympathy for them, not after what I’d seen them do.
 
-But, I recognized that they were giving me an opportunity to deal a finishing blow to Brandon - a chance to stop him from killing me, and from destroying the lives of every victim he would seek out next. I had to take it.
+Nonetheless, I recognized that they were giving me an opportunity to deal a finishing blow to Brandon - a chance to stop him from killing me, and from destroying the lives of every victim he would seek out next. I had to take it.
 
 I stood up and stepped forward, joining the circle they had formed around Brandon. “April, dear,” sobbed Brandon. “Please, please…I love you…”
 
@@ -300,7 +300,7 @@ They knew that, after Jean’s stunt, Brandon would be on the alert for any atte
 
 The most challenging part came after Emma retrieved the camera. In the weeks that followed, they set about identifying the full names and, then, the burial sites of each one of Brandon’s last four victims. At night, they snuck in, shovels in hand, and dug. These excursions required careful planning – after all, the last thing any of them wanted were criminal charges for graverobbing.
 
-At the six-foot mark, Casey would chisel away at the coffin that encased those Grousel had drained of life. They weren’t after the bodies – just stretches of their wooden encasings, which Casey and Emma then spent days carefully crafting into crude, unadorned masks.
+At the six-foot mark, Casey would chisel away at the coffin that encased those Grousel had drained of life. They weren’t after the bodies – just stretches of their wooden enclosures, which Casey and Emma then spent days carefully crafting into crude, unadorned masks.
 
 The final step came the night before the party, when Mae carefully lowered all four masks into the liquid base, leaving them to soak overnight.
 
