@@ -31,7 +31,7 @@ I approached the altar cautiously, my hands trembling as I reached out to touch 
 Her eyes were vacant, her face pale and gaunt. She stared at me, unblinking, and began to sing the same eerie melody that had haunted me for weeks. As she sang, others emerged from the shadows of the forest - the missing townspeople, all of them just as lifeless and ghostly as my sister I knew in that moment that I had to destroy the altar. Gripping the pocketknife tightly, I chipped away at the stone, ignoring the chilling music that filled the air. As the first crack appeared, the ghostly choir fell silent, and I could see fear flicker in their eyes.
 
 
-I continued to strike the stone, each blow bringing more cracks until, finally, the altar shattered into countless fragments. As the last stone fell, a violent gust of wind swept through the clearing, extinguishing my flashlight and plunging me into darkness. I was engulfed by an oppressive silence, broken only by the ragged sound of my own breathing.
+I continued to strike the stone, each blow bringing more cracks until, finally, the altar shattered into countless fragments. As the last stone fell, a violent gust of wind swept through the clearing, where I fell over, smashing my flashlight and plunging me into darkness. I was engulfed by an oppressive silence, broken only by the ragged sound of my own breathing.
 
 
 Blindly, I stumbled through the dark forest, desperately hoping to find my way back to town. Hours seemed to pass before I finally emerged from the trees and collapsed onto the familiar streets. Exhausted and disoriented, I made my way home, unsure of what had become of my sister and the other townspeople.

@@ -1,5 +1,7 @@
 [\[Part 2\]](https://www.reddit.com/r/nosleep/comments/13362dc/i_trapped_a_monster_in_my_garden_shed_part_2/)
 
+[\[Part 4\]](https://www.reddit.com/r/nosleep/comments/1373iid/i_trapped_a_monster_in_my_garden_shed_part_4/)
+
 I’ve experienced the will of God before, but this has been one confusing step after another. If I had to say where He is taking me, my answer would be simple; I have no idea.
 
 But I do know one thing.
@@ -254,7 +256,7 @@ My brain tingled with static unease, but I inched a little closer. “What are y
 
 Her eyes opened again to meet mine, brimming with tears, and despite my best efforts, I couldn’t find anything threatening in that gaze.
 
-“No.” She whimpered, her lower lip trembling, and I could see her fighting the panic with everything she had. 
+“No.” She whimpered, her lower lip trembling, and I could see her fighting the panic with everything she had.
 
 “Okay, well, what do you remember? Anything?”
 
