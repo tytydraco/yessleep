@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/135rros/i_bought_a_prefab_modern_house_my_life_became_an/) | [Part 3](https://www.reddit.com/r/nosleep/comments/137zj2g/i_bought_a_prefab_modern_house_my_life_became_an/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/135rros/i_bought_a_prefab_modern_house_my_life_became_an/) | [Part 3](https://www.reddit.com/r/nosleep/comments/137zj2g/i_bought_a_prefab_modern_house_my_life_became_an/) | [Part 4](https://www.reddit.com/r/nosleep/comments/1392boq/i_bought_a_prefab_modern_house_my_life_became_an/)
 
 At my next appointment with the obstetrician she told me that my bloodwork came back with trace amounts of oxcarbazepine, an anti-seizure medication known to make birth control pills less effective. She scolded me for not listing it among the medications I was taking, even though I'd never knowingly taken it.
 
