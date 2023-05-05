@@ -25,3 +25,8 @@ Weird, right? If anyone recognizes anything, definitely let me know - I'd feel b
 UPDATE 8:14pm EST: so glad I’m not in this alone! Makes me feel much less freaked out. I really want to post some more of the book (borrowing a negative scanner from a friend tomorrow!) but I’m working late tonight so sadly, it’ll have to wait to tomorrow. I’ll make a new post so it’s easier to follow? Or I can just post it here? Not sure what the protocol is but regardless, thanks for making me feel less alone in all this - and updates to follow!
 
 Update: https://www.reddit.com/user/oldmanriver1/comments/xotstt/update_i_found_a_book_on_the_beach_i_went_back_to/
+
+https://www.reddit.com/r/nosleep/comments/yg3uy5/update_i_found_a_book_on_the_beach/
+
+
+I made a game inspired by this experience: https://oxblud.itch.io/future-racer-2000

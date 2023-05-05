@@ -1,4 +1,4 @@
-Please, someone, help me. I am still determining where I am. It started when my friends and I were exploring this old abandoned building, just looking for something to do. Brandon and Adam were ahead of me, and we were making our way down a dark hallway.
+Please, someone, help me. I don't know where I am. It started when my friends and I were exploring this old abandoned building, just looking for something to do. Brandon and Adam were ahead of me, and we were making our way down a dark hallway.
 
 Then, I felt my foot give way, and I fell through a hole in the ground. I landed hard on the concrete below, and when I looked up, God, I knew something was wrong. The walls were a pale yellow color, and the fluorescent lights flickered overhead. There was a constant hum in the air, like the sound of a million electrical currents running through the walls.
 
@@ -18,7 +18,8 @@ I don't know how I managed to escape, I just found a fire exit. When I went thro
 
 Please, if you're reading this, help me. I don't want to be stuck here forever, wandering these halls with that disturbing, smiling creature lurking around every corner. I don't know what to do, or how to get out. But I'm scared, and I need help, I can't take it anymore, I can’t even kill myself. I refuse to let the damn smiling demon thing kill me.
 
-&#x200B;
+
+
 
 Update: My phone's clock is still frozen at 5:35 on May 5th, the day I fell into this wretched place. It feels like I've been trapped here for an eternity, but I know it can't be that long. It must only be a few days, maybe a week, at most. But time doesn't seem to work the same way in this place.
 
@@ -32,7 +33,8 @@ I don't know how much longer I can keep going like this. I'm tired, hungry, and 
 
 I hope someone finds this message, and if you do, please help me. I don't want to be stuck here forever.
 
-&#x200B;
+
+
 
 Update 2: It's been a while since I posted my last update. I'm still lost in this endless maze, but I've made some discoveries.
 
@@ -46,7 +48,8 @@ But I'm running out of hope. Every day is the same, and I feel like I'm losing m
 
 If anyone is reading this, please help me. I don't want to be stuck in this place forever.
 
-&#x200B;
+
+
 
 Update 3: It's been a while since I last updated this, but I wanted to conserve my phone's battery. I've been wandering for what seems like forever, and I finally found a door. It led me to an empty library, and at first, I was excited because it had a sign that said "The end is near." But my hopes were quickly crushed when I turned back and realized the side I came from was now endless. The sign was right all along.
 
@@ -56,7 +59,7 @@ I searched for hours until I found a room with a few bottles of the water. I too
 
 I don't know what to do. I feel like I've been here for months, but my phone's clock is still frozen at 5:35 on May 5th. I'm running out of options, and I'm starting to lose hope. If anyone is out there, please help me.
 
-&#x200B;
+
 
 Update 4: Okay, so, the air vent led me to a foggy field of tall grass that was just below my waist. I had no signal the entire time I was there, but I walked for what felt like months, saving every drop of the water I could.
 
@@ -64,13 +67,13 @@ After like 4 months, I stumbled upon a strange hilly place with houses that look
 
 Inside, I found a fridge full of the minty-flavored water that had sustained me for so long in the psychosis-inducing yellow rooms. It was a relief to have a steady supply, but at the same time, I couldn't shake the feeling that this was some kind of trap.
 
-Despite my uneasiness, I continued to stay in the house, exploring the strange hilly landscape outside. The houses all looked the same, and there was no sign of life anywhere. I couldn't even tell if it was day or night despite the sun being out.
+Despite my uneasiness, I continued to stay in the house, exploring the strangely uniform hilly landscape outside. The houses all looked the same, and there was no sign of life anywhere. I couldn't even tell if it was day or night despite the sun never setting. Never moving rather.
 
-The longer I stay, the more uneasy I feel. It’s like the air is thin, like on top of a mountain. Every time I open the fridge to get a bottle of water, I feel like I'm being watched.
+The longer I stay, the more uneasy I feel. Every time I open the fridge to get a bottle of water, I feel like I'm being watched.
 
 I don't know how long I've stayed here. Days? Weeks? Months? It all feels like a blur. All I know is that I have to get out of there before whatever was watching me decided to make its move. I have to find a way back to the real world, no matter what it takes.
 
-&#x200B;
+
 
 Update 5: It's been a while since I last updated. My phone was at 23%, and I had to conserve my battery. I was becoming increasingly uneasy with the feeling of constantly being watched. I wandered the vast town, searching for any signs of life or a way out.
 
@@ -80,7 +83,7 @@ Finally, I entered a door at the end of a dead-end hall, which led me back into 
 
 I will keep searching for a way out, but I fear that I may be stuck here forever. The thought of never seeing my sister again is almost too much to bear. I think I’m beginning to hallucinate.
 
-&#x200B;
+
 
 Update 6:  It’s been maybe six months since I updated last, at least in your time. My phone is at 3%. I am writing this as my final goodbye. I am hearing my sister's voice, and it's driving me insane. I’ve looked everywhere, and I can't find the source. I give up. I’m ending it soon with nothing but a bottle cap, the same bottlecap from the unlabeled minty-flavored water that's kept me alive.
 
