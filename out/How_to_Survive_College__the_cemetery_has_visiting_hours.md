@@ -236,6 +236,8 @@ I gave Cassie the piece of petrified wood and told her to keep it on her.  Grays
 
 It won’t make up for the cost of obtaining it though.  Nothing can. [\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
 
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/13876eu/how_to_survive_college_for_once_nepotism_is_a/)
+
 [Read the first draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 
 [Visit the college's website.](https://alderrayne.com/)

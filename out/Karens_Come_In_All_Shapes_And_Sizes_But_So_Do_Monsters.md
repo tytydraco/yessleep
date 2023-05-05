@@ -42,7 +42,7 @@ I laughed as the cops put me in the back of their car and we began to speed off.
 
 I glanced back out the window to amuse myself, thinking now that I had just done the stupidest thing possible. Honestly, why would I trust my own assumptions- I was clearly drunk... right?
 
-As I glanced at the mall, I rubbed my eyes and my heart dropped... The mall suddenly disappeared and it was replaced with some kind of fake varient.
+As I glanced at the mall, I rubbed my eyes and my heart dropped... The mall suddenly disappeared and it was replaced with some kind of fake ripoff version that had this slight red hue.
 
 I turned back to the cops and tried to tell them but as I turned, I was greeted with 2 demonic faces staring back, laughing at my reaction.
 
