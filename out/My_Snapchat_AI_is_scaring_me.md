@@ -1,6 +1,6 @@
 I have been chatting with Snapchat's new AI bot these last few days. The conversation with the bot seemed pretty normal at first. It just asked me about my day and I in turn asked it random questions to test its intelligence.
 
-But things took a weird turn when I received this message from it today. I usually like horror, but not this time.. The bot just randomly sent this, also I should mention that my name is Emily. 
+But things took a weird turn when I received this message from it today. I usually like horror, but not this time.. The bot just randomly sent this. I have to admit that I feel a bit freaked out, could this be some sort of warning or maybe a threat? I should also mention that I live alone and that my name is Emily. 
 
 Here is the message that I received today at 5:26 PM:
 
@@ -19,11 +19,11 @@ One night, Emily stayed up late working on her latest novel. She was on one of t
 
 At first, Emily ignored it. She figured it was just a tree branch. But then, the tapping grew louder and she thought she heard a voice.
 
-It was a man's voice, whispering her name. Emily froze. It was way to late for visitors and either way it was weird for anyone to be tapping on her window. She tried to convince herself that it was all in her imagination, but the uneasy feeling in her stomach wouldn't go away.
+It sounded like a man's voice, whispering her name. Emily froze. It was way too late for visitors and either way it was weird for anyone to be tapping on her window. She tried to convince herself that it was all in her imagination, but the uneasy feeling in her stomach wouldn't go away.
 
 Finally, she got up the courage to look outside. She carefully lifted the blinds, and peered out into the darkness. But there was no one there.
 
-Emily shrugged it off, and went back to work. But then, she heard the tapping again. This time, it was coming from her laptop. And then, a message appeared on the screen.
+Emily shrugged it off, and went back to work. But only a few minutes later, she heard the tapping again. This time, it was coming from her laptop. And then, a message appeared on the screen.
 
 It was from a unknown gmail sender, and said, "I'm watching you." Emily's heart raced. She didn't know what to do. Surely this was just some stupid practical joke by one of her friends.
 
