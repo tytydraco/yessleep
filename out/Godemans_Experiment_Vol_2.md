@@ -88,6 +88,8 @@ I realized that it was not naturally red. The coloring of the blanket came off i
 
 The professor, my good friend Jack Godeman, had been severed open from the neck down. What remained of his insides lay in great pink clumps all over the mattress.
 
+**RUUUUUAAAAAGH!!!**
+
 That was what it resembled to the best of my recollection. The sound that still wakes me from my sleep at night, haunting me even in consciousness. The sound of God's natural power when put into the hands of a mere mortal.
 
 Whatever it was, it came from someplace out in the labyrinth. I had to clamp Alfred's mouth shut with my hand out of fear that he may give away our position to it. I had no clue if it was far off down the hall in another chamber, or in fact standing right outside the door at this very moment, just waiting to make a move on us should we try to escape. The noise was just blaringly loud enough that I could not tell.
