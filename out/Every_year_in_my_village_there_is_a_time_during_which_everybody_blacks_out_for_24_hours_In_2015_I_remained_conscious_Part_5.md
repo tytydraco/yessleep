@@ -135,3 +135,5 @@ When I reached the living room, I heard Edlynn close the secret entrance to the 
 At that point, I could no longer hear clearly what was being said even though I tried hard for a few minutes. Afterwards, I could then hear several people searching the house. I thought about hiding in the basement until Edlynn finds me there later. I did not even open the basement door, when I heard one of the intruders open the cupboard's door, and with a hoarse male voice, he quietly said two words that meant the end for me:
 
 "Got you!"
+
+[Part 6](https://www.reddit.com/r/nosleep/comments/1384ift/every_year_in_my_village_there_is_a_time_during/)
