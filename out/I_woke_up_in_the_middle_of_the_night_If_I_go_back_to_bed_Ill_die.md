@@ -70,6 +70,12 @@ The clone snored again when I touched the doorknob.
 
 I counted nineteen seconds of breathless silence before slowly, slowly opening the door and slowly, slowly closing it. I tiptoed down the thirteen wooden steps without making a noise, then snuck into the kitchen.
 
+That's when I saw the note. Hands shaking, I picked it up, simultaneously wanting and not wanting to know what it said. Unable to read it with my hands trembling so badly, I pressed it against the table.
+
+>Hope is the hardest part, so let that go. I will be you forever.
+
+It was in my handwriting. 
+
 This is the farthest I’ve gotten. 
 
 I can’t wake them up. Calling the police to arrest my clone would make *me* look like the crazy one; even if they showed up, the cops would believe the word of the man next to my wife. 
