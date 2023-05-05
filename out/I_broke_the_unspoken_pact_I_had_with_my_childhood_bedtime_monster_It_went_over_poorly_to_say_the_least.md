@@ -30,8 +30,7 @@ There was something in my room, standing right next to the bed, illuminated by t
 
 I was suddenly laying supine when I had been on my side. I tried to turn over and realized I couldn't move. That thing was still standing over me, smiling its horrible inky grin. I was terrified, but I suddenly felt a sense of relief wash over me.  
 
-Sweet merciful Jesus, I was having sleep paralysis. I was fine and just had to try to go back to sleep.  
-I closed my eyes.  
+Sweet merciful Jesus, I was having sleep paralysis. I was fine and just had to try to go back to sleep. I closed my eyes.  
 
 Then I felt cold fingers on my lips and another set of cold fingers squeezing my cheeks so my mouth popped open. This felt really real for sleep paralysis.  
 
@@ -42,9 +41,10 @@ Fingers began probing into my mouth.
 Just breathe. It's sleep paralysis.  
 
 Fingers locked on one of my teeth, my upper left cuspid. Vice like grip, pressure began to be applied.  
+
 Genuine panic bubbling through me. This has to be sleep paralysis.  
 
-The pressure increased. It hurt so badly. I tried to scream, bur all that got out was a whispery moan. My arms were dead weights, unable to push it away.
+The pressure increased. It hurt so badly. I tried to scream, but all that got out was a whispery moan. My arms were dead weights, unable to push it away.
   
 The pressure increased, still. Pain quickly shifted into pure agony as I heard the roots of my tooth beginning to shift and crack from my head.  
 
@@ -79,6 +79,7 @@ I'm normally a baby about getting novacaine shots, but after what I had endured 
 I tapped out. Dr. Klepper looked perplexed by that tooth. That cuspid was rock solid and unlikely to go anywhere without extensive dental surgery. I went back to my mom's and ugly cried with my numb lips, drooling like a baby.  
 
 Too freaked out to sleep in my bedroom that night, I chose to sleep on the couch. I'd never felt the presence anywhere but in my room and I thought it might have a connection to something in that space.  
+
 Whatever it was to initially have a connection with, it had switched to me after that first tooth. I awoke in the night with cold fingers prying into my mouth while I was paralyzed and helpless to stop it. Tears poured down the sides of my face as it repeated the same gruesome ritual as it had the night before; ripping a tooth out with brutal efficiency and replacing it with an obsidian doppelganger procured from its horrible mouth. Second molar on the top right.   
 
 The pain was insane. I blacked out again.  
