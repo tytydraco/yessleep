@@ -341,3 +341,10 @@ I’m typing this to reach out, to see if anyone out there has any information t
 I know I fucked up, I know that bad things are going to happen because of me, but… 
 
 I don’t want to be the bad guy.
+
+
+
+
+Link to part 2
+
+https://www.reddit.com/r/nosleep/comments/139e9ck/visitation_part_2/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button
