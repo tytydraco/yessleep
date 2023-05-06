@@ -1,4 +1,4 @@
-There are days where I don’t believe that it happened. These are the best days, because then I can get through work without a panic attack. I can pretend the nightmare was just that: a nightmare. The sun rises, the dream fades, and life carries on like normal. 
+There are days where I don’t believe that it happened. These are the best days, because then I can get through work without a panic attack. I can pretend the nightmare was just that: a nightmare. The sun rises, the dream fades, and life carries on like normal.
 
 But every time I open my phone and see the group chat’s last message, a skull emoji sent by my friend Jamie six months ago, it all comes crashing back. The flames of fear consume me and the vines of survivor’s guilt immobilize me. And I’m taken back to that world, the land of the woven trees.
 
@@ -6,7 +6,7 @@ My therapist says writing about it might help. I don’t think writing to strang
 
 &#x200B;
 
-Jamie and I were sitting on a bench outside the guest center, our backpacks leaning against the table. “You know, I’m pretty sure smoking is illegal in public parks,” I said to Jamie. 
+Jamie and I were sitting on a bench outside the guest center, our backpacks leaning against the table. “You know, I’m pretty sure smoking is illegal in public parks,” I said to Jamie.
 
 “Pshhh, no one gives a fuck,” she said, blowing another puff of the joint. “Besides, we’re about to go hiking for a week. I need to get in a hit when I can, y’know?”
 
@@ -26,7 +26,7 @@ Jamie rolled her eyes, then looked at the lighter in my hand. “Maybe you can h
 
 The three of us walked towards the rest of our group. There were six of us in total: Jamie, my best friend and fellow engineer; Grant, my boyfriend and aspiring photographer; Tasha and Spencer, who were partners and medical students; Trevor, a college senior and the newest member of our group; and myself. We’d all met in a backpacking club at college, and stayed in touch since. We were having our annual backpacking trip, this time around a loop called the Woven Tree Trail. None of us had hiked it, but our trail guide had pretty good reviews online, so we figured we’d give it a shot.
 
-Tasha, Spencer, and Trevor were standing around a short man that looked to be in his 50s or 60s. He had a thin, wiry frame with light brown skin that reminded me of the surrounding trees. *If there was anyone fit to be a trail guide, it would be him,* I thought. He wore a dark green bucket hat, a tan collared shirt, black shorts, and carried a backpack that probably weighed as much as him. 
+Tasha, Spencer, and Trevor were standing around a short man that looked to be in his 50s or 60s. He had a thin, wiry frame with light brown skin that reminded me of the surrounding trees. *If there was anyone fit to be a trail guide, it would be him,* I thought. He wore a dark green bucket hat, a tan collared shirt, black shorts, and carried a backpack that probably weighed as much as him.
 
 “Good day everyone,” he said, his voice soft like leaves. “My name’s Rowan, and I’ll be your guide through the Woven Tree Trail.”
 
@@ -48,7 +48,7 @@ Rowan gave me one of the bracelets, which I studied. It really did just look lik
 
 None of us said anything else.
 
-“Oh yes, one more thing before we begin.” He stared at us with his pale green eyes. “I’d suggest you don’t fall behind.” 
+“Oh yes, one more thing before we begin.” He stared at us with his pale green eyes. “I’d suggest you don’t fall behind.”
 
 Without elaboration, Rowan started down the trail, and I couldn’t help but notice my stomach churn at those words.
 
@@ -56,11 +56,11 @@ Without elaboration, Rowan started down the trail, and I couldn’t help but not
 
 The morning hike passed uneventfully. Sometimes I walked with others, catching up on our lives and gossiping. Other times I walked by myself, soaking in the surrounding nature. Most days I’d be working my boring office job, so any opportunity to break from routine and return to the outdoors was one I’d take full advantage of. It was perfect backpacking weather too: the sun shone gently through the trees, the temperature hovering in the 60s. *I could use more of this,* I thought.
 
-We had a quick lunch together, then broke off into groups again for the afternoon part of the hike. I ended up walking with Grant, who stopped frequently to take pictures with his Polaroid. 
+We had a quick lunch together, then broke off into groups again for the afternoon part of the hike. I ended up walking with Grant, who stopped frequently to take pictures with his Polaroid.
 
 “You’re gonna run out of film by the end of the day if you keep that up,” I said.
 
-“That’s why I brought two extra packs,” Grant said, pointing the camera at a ladybug crawling up a fern. 
+“That’s why I brought two extra packs,” Grant said, pointing the camera at a ladybug crawling up a fern.
 
 “Well, we don’t want to take too long. You remember what Rowan said about falling behind, right?”
 
@@ -72,13 +72,13 @@ We walked in silence for a few more minutes before Grant stopped. “WHOA!” he
 
 “Another picture break?”
 
-“No, look at that tree,” Grant said, pointing off the trail. I followed his finger and saw what he was referring to. To the left of us, maybe 200 feet away, was the most gargantuan tree I had ever seen. It was easily the width of a car, maybe longer, but perhaps most striking was its structure: it looked like a hundred tree trunks woven together, twisting and looping and turning like the veins of some primordial giant. 
+“No, look at that tree,” Grant said, pointing off the trail. I followed his finger and saw what he was referring to. To the left of us, maybe 200 feet away, was the most gargantuan tree I had ever seen. It was easily the width of a car, maybe longer, but perhaps most striking was its structure: it looked like a hundred tree trunks woven together, twisting and looping and turning like the veins of some primordial giant.
 
 “This must be what the woven trees are,” I said.
 
 Grant, unsurprisingly, pulled out his camera again to take a picture. “Hopefully there are more of them further up so I can get a closer shot.”
 
-We kept hiking, spotting more of the woven trees as we did. Most weren’t as big as the first, but all were large enough to dwarf the surrounding trees, and tall enough that we couldn’t even see their tops through the canopy. They were all relatively far from the trail, almost like the trees wished to hide from less observant hikers. 
+We kept hiking, spotting more of the woven trees as we did. Most weren’t as big as the first, but all were large enough to dwarf the surrounding trees, and tall enough that we couldn’t even see their tops through the canopy. They were all relatively far from the trail, almost like the trees wished to hide from less observant hikers.
 
 We reached the campsite in the late afternoon, where Rowan was hunched over a crackling fire, stirring something in a pot. “Congrats on being the first ones,” Rowan said, not taking his eyes off his task.
 
@@ -108,9 +108,9 @@ Gradually, the rest of the group reached the camp; Tasha and Spencer arrived tog
 
 They all had a surprisingly delicious dinner of cooked veggies, beans, and rice. Sitting around the fire, we exchanged stories of incidents from the previous five hours; apparently Spencer had accidentally dropped his water bottle into a creekbed, which took him and Tasha nearly half an hour to get. Rowan also told them stories of previous times he’d hiked the Woven Tree Trail, some alone, some leading other backpackers. “I think this is the largest group I’ve hiked with,” he said. “Definitely more than I’m used to. But it’s exciting!”
 
-It slowly grew dark. Trevor, citing stomach pain, went back to his tent first. Soon, everyone else retired to their sleeping bags in preparation of a long hike tomorrow, including Rowan. Before long it was just Jamie and I sitting around the dying fire. 
+It slowly grew dark. Trevor, citing stomach pain, went back to his tent first. Soon, everyone else retired to their sleeping bags in preparation of a long hike tomorrow, including Rowan. Before long it was just Jamie and I sitting around the dying fire.
 
-We were quiet for a while before Jamie broke the silence. “Why aren’t there any stars in the sky?” she said, gazing upward. 
+We were quiet for a while before Jamie broke the silence. “Why aren’t there any stars in the sky?” she said, gazing upward.
 
 “Jamie, did you smoke that joint again?” I said, nudging her.
 
@@ -118,7 +118,7 @@ We were quiet for a while before Jamie broke the silence. “Why aren’t there 
 
 I followed her gaze and looked up. While the trees likely blocked most of the overhead, there should’ve been at least a few pinpricks of light poking through the leaves. Instead, there was nothing, not even the moon which would’ve risen by now.
 
-“Huh, you’re right,” I said. *Did it become cloudy?* 
+“Huh, you’re right,” I said. *Did it become cloudy?*
 
 “Maybe this is a sign for me to quit smoking,” Jamie said. She stood up and yawned. “And also a sign for me to go to sleep. Good night, Ash.”
 
@@ -146,7 +146,7 @@ We packed and left for our second day of hiking soon after. The trail was beginn
 
 “Babe, this hike has been kind of weird so far,” I said. “There’s the whole thing with Trevor leaving early, and I know it sounds dumb, but there weren’t any stars in the sky last night.”
 
-“Maybe it got cloudy,” Grant said. 
+“Maybe it got cloudy,” Grant said.
 
 “Maybe, but also there’s something… off about Rowan. Like he’s cool, but I just get weird vibes, y’know? He doesn’t even hike with us.”
 
@@ -154,11 +154,11 @@ We packed and left for our second day of hiking soon after. The trail was beginn
 
 “Yeah it’s just… very unique compared to what we’re used to,” I said, breathing hard. The uphill hiking was starting to wear on me. “Do you think we could take a small break? I’m-“
 
-“Woah, look at that!” Grant exclaimed. This time I didn’t need him to point - it was a woven tree maybe eight feet wide, growing directly to the right of the trail. He ran to the tree while I huffed and puffed to catch up. 
+“Woah, look at that!” Grant exclaimed. This time I didn’t need him to point - it was a woven tree maybe eight feet wide, growing directly to the right of the trail. He ran to the tree while I huffed and puffed to catch up.
 
 From up close I could see the intricacies in its trunk. Contrary to what I had assumed from a distance, the trunk itself was uneven in thickness; the threads of wood bulged out and folded in like an amateur had woven it. Each individual log climbed, twisted, branched off, branched together, even looped back into itself. There were multiple crevices large enough to fit a human into, and I was tempted to try when Grant called from the other side of the tree.
 
-“Uhhh… Ash?” 
+“Uhhh… Ash?”
 
 “What is it babe?”
 
@@ -196,9 +196,9 @@ We got ready to continue our hike. But before we left I looked at the deer again
 
 Perhaps out of fear, the five of us stuck together for the rest of the day. The trail continued steadily uphill, which meant lots of rest breaks. Compared to the morning, the afternoon was uneventful; although I couldn’t help but notice the woven trees were replacing more and more of the other flora.
 
-We were almost at the next campsite when Spencer stopped to get a rock out of his hiking boot. 
+We were almost at the next campsite when Spencer stopped to get a rock out of his hiking boot.
 
-“You all go ahead, I know you’re hungry for dinner,” he said to us. 
+“You all go ahead, I know you’re hungry for dinner,” he said to us.
 
 And hungry we were; Rowan had cooked a pot of mouth-watering mac and cheese, which we instantly devoured. For a moment, I was able to forget about all the strange happenings from that day. But the same couldn’t be said for everyone else.
 
@@ -220,11 +220,11 @@ Rowan paused, the question clearly catching him off guard. I saw something flash
 
 “Okay, well, make sure you at least eat something babe.”
 
-We sat around the fire and chatted through the evening, but a lot of the energy that we’d had the first night was gone. Rowan kept much more to himself this time, as if he’d gotten sick of us. Soon, Tasha retreated to her tent to take care of Spencer, and a few minutes later Rowan left to his, leaving Grant, Jamie and I. 
+We sat around the fire and chatted through the evening, but a lot of the energy that we’d had the first night was gone. Rowan kept much more to himself this time, as if he’d gotten sick of us. Soon, Tasha retreated to her tent to take care of Spencer, and a few minutes later Rowan left to his, leaving Grant, Jamie and I.
 
 “Is it just me, or is something up with him?” Jamie asked us once Rowan was out of earshot. By that point it was almost dark. “I mean, there’s clearly something he knows that we don’t.”
 
-“Honestly, he’s the least of our worries right now. This forest is weird as hell,” I said. 
+“Honestly, he’s the least of our worries right now. This forest is weird as hell,” I said.
 
 “Very true.” Jamie glanced upward. “Look up. Still no stars in the sky.”
 
@@ -232,7 +232,7 @@ Grant and I followed her gaze. Jamie was right. The sky was a navy blue, dark en
 
 “What could even explain this?” I asked. “There’s giant carnivorous trees and no stars in the sky. Not to mention that we hiked uphill for, like, eight hours, and it feels like we’ve gotten nowhere.”
 
-We sat in silence for a few minutes, the fire’s crackling flames gradually reducing to embers. 
+We sat in silence for a few minutes, the fire’s crackling flames gradually reducing to embers.
 
 “Well, we’ve completed a third of the hike,” Grant finally said. “Maybe we can power through to the end and we’ll be done with the weirdness.”
 
@@ -261,3 +261,5 @@ I climbed out of the tent, where through the gray morning light I saw Rowan hunc
 Rowan looked at me. “Last night, Spencer opted to leave. He was feeling sick.” Rowan’s voice was monotone, like he was reading from a script. “We walked to a nearby road, where park officials picked him up.”
 
 And without another word, Rowan started down the trail, leaving looks of disbelief on our faces.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/139twab/my_friends_and_i_went_backpacking_every_night_one/)
