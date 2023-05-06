@@ -278,3 +278,6 @@ Chilling all around. I exchanged looks with my other self, who looked just as te
 
 
 I don't know what's about to happen next. These maniacs want something from my other self and I, so I'm hoping they don't kill us. As for why they need us… I haven't figured that out yet. But when I do, I hope I don't get hurt by them or their nightmarish floating ball or the dread-inducing mouth creatures triggered by it.
+
+
+[Update 2](https://www.reddit.com/r/nosleep/comments/13a1q7t/i_found_a_sheet_of_paper_from_1528_with_a_list_of/?)
