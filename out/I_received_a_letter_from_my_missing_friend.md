@@ -1,0 +1,50 @@
+There's no point in hiding my identity because I know the government can easily find it through a quick search of my email or by tracking my IP address. So, let me introduce myself. My name is Carter Ernest, and I just turned 22 in March. But let's get to the point. 
+
+I want to share a story about my friend Robert Gettings and our high school days. We used to have a big group of friends called The Bang Gang, although I admit it sounds quite silly now. Please bear with me, as we were all immature back then. We were juniors, around 17 years old, except for Haile (pronounced High-Lee), who turned 18 a few months before us. We affectionately called her "Mama Bang." 
+
+Each of us had ridiculous nicknames that the others came up with. For instance, they named me "Tread Bang" because of a treadmill incident at the gym where we used to hang out. Joseph, the guy who brought us all together, found me lying on the ground after I tripped on my untied shoelaces while running. He decided to give me a ride to Haile's place, who was studying to become a nurse and could take care of me. While trying to help me up, my shoelaces somehow tied themselves together, causing me to stumble again. Fortunately, Joseph caught me before I fell hard. That's how we all got acquainted, and that's when I met Robert, the funny one in our group. On Saturday nights, we usually went bowling or visited the local brewery to play pool or table tennis.
+
+Now, let me tell you why I'm writing this. About an hour ago, when I returned home from work, the receptionist at my apartment complex told me I had received a letter. She handed it to me with caution, it looked as if it had been tossed around like a football in a baseball field. I took the letter upstairs to my apartment, placed it on my TV stand, and went to grab a bite to eat. Although I mostly forgot about the letter, it suddenly popped into my head while watching TV. Damn ADHD! I jumped off the couch, hurried over to the letter, and opened it carefully, avoiding the grimy parts. Inside was a piece of paper, folded into thirds, torn out of a spiral notebook. As I read the words at the top, "Carter, please believe me," my eyes shot to the bottom of the worn-out paper, which read, "Goodbye, Robert." I was stunned. At first, I thought it was a prank by someone from our old group. Robert had gone missing toward the end of our junior year and was presumed dead, but his body was never found. Disbelief and curiosity flooded my mind, urging me to read on.
+
+"Carter, please believe me. I swear what I saw tonight was true. I wasn't fooling around, I swear. None of you believed me when I tried to tell you about it around the campfire, thinking I was just trying to scare you. But I wasn't lying. The moon flickered. I know it sounds crazy, but I saw it happen. Two distinct lines appeared, flickering up the moon, like an old cartoon playing on a black-and-white television. It lasted for only a second, and when I told you all to look, it was gone. I wish you would just believe me. I can't sleep after what I witnessed. I tried researching online, but found nothing. Whenever I posted about it, the posts vanished, as if a bot instantly deleted them. I can't even text anyone about it. That's why I'm writing this letter. I can't text anyone, and I'm freaking out. My parents tell me to stop messing around. Carter, you were always the serious one in the group, so I'm hoping that by sending this to you, you will take it seriously. August 17th, 2013. Goodbye, Robert."
+
+I read the letter over 600 times, trying to make sense of its contents. It didn't add up. How could Robert have written this in 2013, the year he went missing? Doubt and confusion swirled within me, but I knew I couldn't keep this to myself.
+
+With a sense of urgency, I reached out to the remaining members of The Bang Gang, sharing the unsettling letter from Robert. Composing a message, I sent it to our group chat, urging everyone to read it and respond as soon as possible. It wasn't long before my phone buzzed with replies from each of them.
+
+Haile, now a full-fledged nurse, was the first to respond. She expressed shock and disbelief, questioning how Robert could have possibly written the letter after all these years. Joseph, always the voice of reason, suggested that we meet in person to discuss the situation and attempt to unravel the mystery.
+
+We agreed to gather at our old hangout spot, the local brewery where we had spent countless Saturday nights during high school. As I entered the dimly lit establishment, a palpable tension filled the air. The familiar sounds of laughter and clinking glasses felt hollow, as if the energy of the place had been drained.
+
+Haile, Joseph, and I settled at our regular table, anxiously awaiting the arrival of the others. One by one, the rest of our friends joined us—Emily, the quiet and observant one, and Jake, the adventurous thrill-seeker. Greetings were exchanged, each reflecting concern and confusion.
+
+I placed the crumpled letter on the table, and one by one, my friends took turns reading its contents. Their expressions mirrored my own—an unsettling mix of disbelief and unease. We engaged in a heated discussion, analyzing the letter and attempting to piece together a plausible explanation for its origin.
+
+Joseph suggested that it might be a cruel prank orchestrated by someone who knew about Robert's disappearance and our shared history. However, as we delved deeper into the details, an eerie realization washed over us. The mention of the flickering moon, the strange online censorship surrounding Robert's attempts to share his experience, and the inexplicable delivery of the letter after all these years—it was too peculiar to dismiss as a mere prank.
+
+An unsettling silence fell upon the table, broken only by the distant hum of conversations around us. We exchanged glances, each of us contemplating the implications of the letter and the growing sense that something extraordinary was at play.
+
+Driven by curiosity and a desire to uncover the truth, we made a collective decision to investigate further. Drawing upon our individual skills and expertise, we assigned tasks to each member of the group. Haile would delve into her nursing connections, searching for any records or peculiar incidents related to lunar phenomena. Joseph would scour online forums and deep web communities, hoping to uncover any traces of Robert's posts or similar experiences. Emily took on the responsibility of researching local legends and paranormal occurrences, seeking any folklore that might shed light on Robert's encounter. Jake volunteered to visit the location where Robert claimed to have witnessed the moon flickering, hoping to find physical evidence that could validate his story.
+
+Days turned into weeks as we immersed ourselves in research and analysis. Late-night conversations and frantic exchanges of information became the norm. Each new revelation fueled our curiosity and heightened our unease. We realized that what we had stumbled upon was far more profound than a simple prank or an odd coincidence.
+
+After weeks of tireless investigation, we had come up empty-handed. No concrete evidence, no substantial leads. It was frustrating, to say the least, but we refused to give up. Determination fueled our perseverance, and we knew we had to keep pushing forward.
+
+One evening, as I sat in my apartment, contemplating our next move, an idea struck me. I decided to set up a camera outside, pointed directly at the moon, hoping to capture any peculiar activity. I enlisted Joseph's help to program a rig that would constantly track and record the moon's movements. With everything set up, I left the camera running throughout the night.
+
+The following morning, I retrieved the camera and transferred the massive 215-gigabyte 4K video onto my laptop. The prospect of reviewing hours of footage was daunting, especially given my attention deficit hyperactivity disorder (ADHD). Realizing I would struggle to sit through it, I reached out to Jake, knowing his adventurous spirit and willingness to explore the unknown.
+
+After six days of anticipation, Jake sent me a screen recording. It was a snippet from the video, precisely at 4:48 a.m. The footage abruptly cut to black for one second before resuming. I watched in awe as the screen flashed back to life, revealing a startling image.
+
+The moon, typically serene and unchanging, flickered as if glitching in a digital display. Two distinct lines appeared, reminiscent of the static on an old black-and-white television. It lasted only a moment, but it was enough to send shivers down my spine.
+
+Excitement and trepidation surged through me. It was a breakthrough—a tangible piece of evidence that corroborated Robert's claims. I shared the screen recording with the rest of the group, and their reactions mirrored my own astonishment.
+
+We had just confirmed that Robert was right: the MOON had FLICKERED. It was an unimaginable sight. Hastily, I reached for my phone, eager to share the video clip on my Snapchat story. To my surprise, it actually sent. Anticipating the flood of views, I refreshed the page, only to find it had disappeared, just as Robert had predicted. The realization struck me like a bolt of lightning.
+
+Turning to the group, I confessed that the video hadn't gone through. The question that lingered in all our minds finally escaped my lips, "Is this the reason why Robert disappeared?" The answer was apparent to all of us. Our messages and posts were no longer going through. Fear overwhelmed us, and we trembled, struggling to find the right words. Uncertainty loomed large, and we sat there, anxiously awaiting the worst for hours. However, nothing came.
+
+One by one, Jake, Emily, and Joseph decided to head home. Eventually, I drove home. alone at my house, still unable to send texts or post anything. Desperate to communicate, I grabbed a piece of paper and began writing this. I can only hope that someone discovers it and shares our story.
+
+September 9th 2018
+Goodbye, Carter

@@ -42,7 +42,7 @@ Enough with the terrible popular advice you will find wherever you look. I am he
 
 It feeds off your fear.
 
-Whatever it is. From your friendly poltergeist to a malicious, evil, entity. It is always feeding off your fear.
+Whatever it is. From your friendly poltergeist to a malicious, evil entity. It is always feeding off your fear.
 
 Stay calm and collected as much as possible. Different creatures require different solutions, that is true. But you cannot proceed with protecting yourself if you are contributing to the creature's power over you. Control your emotions. It is easier said than done.
 
