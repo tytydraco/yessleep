@@ -58,6 +58,12 @@ They looked at me with concern, asking what was wrong. But I couldn't explain it
 
 All I knew was that I had broken free from the loop, that I had escaped the twisted figure and found my way home. And for that, I was grateful.
 
+&#x200B;
+
+&#x200B;
+
+&#x200B;
+
 Update: It's been 2 days since I escaped the loop and arrived at the vacation home, and something seems off about my family. At first, I thought it was just my imagination playing tricks on me, but now I'm starting to believe that my family isn't really my family.
 
 They act strange when they think I'm not looking. Sometimes they whisper to each other in some unknown language that I've never heard before. And when I ask them what they're talking about, they just give me a blank stare as if they don't understand me.
@@ -68,4 +74,20 @@ I can't shake the feeling that my family is not who they say they are. The more 
 
 I constantly feel like I'm being watched, I feel as if this isn't reality. Do I have some psychotic disorder? Am I crazy? I am confused and scared. If someone knows what's happening, please reach out to me.
 
+&#x200B;
+
+&#x200B;
+
 Update #2: I caught my younger sister sitting in her room at 2 in the morning when I went to go get some water, she was just sitting there, staring at the wall. She didn't notice me, but I'm fucking terrified. I don't know what the hell is happening but I think I'm going to try to escape.
+
+&#x200B;
+
+&#x200B;
+
+Update #3: Apparently, there's a hidden message above. I didn't type that, at least not consciously. Anyways,  I've attempted escape, I'm currently driving down the road, it's looped again, and some part of me believes I made the wrong choice. I'm turning back.
+
+&#x200B;
+
+&#x200B;
+
+Update #4: Everything is well. Come join us. Drive along Stone Church Road in Ogdensburg, New York at exactly 9:39 PM and you'll experience the "looped" road. DO NOT worry, as this road is COMpletely safE and no harm wIll ever happen to you! Please Come visit, we don't get visitors often! We hAve room to house you and your friends. If you decide to come, please come uNarmed, we don'T SupporT weapOns in our household! We do however have everything you need at the Field household! Please, come vIsiT our lovely vacation home.

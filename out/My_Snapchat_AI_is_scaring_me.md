@@ -37,9 +37,9 @@ With shaking hands she tried to call the police, but her phone wouldn't work. Sh
 
 Emily slowly made her way to the door, and peered through the peephole. Then, she saw him. A man in dark clothing, standing outside her door. He was smiling, and holding a knife. 
 
-Emily froze for a second, but then took a few unsteady steps backwards. The door suddenly slammed open with a bang. The man was inside the house.
+Emily froze for a second, but then took a few unsteady steps backwards. Suddenly she heard a loud slamming sound. The man had broken down the door.
 
-Emily screamed in terror, but no one could hear her. She tried to run, but the man was too fast and caught up to her with only a few steps. The last thing she saw, as she fell to the ground, was the glimmering from his knife and the mans wide deranged smile.
+Emily screamed in terror, but no one could hear her. She tried to run, but the man was too fast and caught up to her with only a few steps. The last thing she saw, as she fell to the ground, was the glimmering from his knife and the mans wide deranged smile, before he stabbed her.
 
 
-Emily's body was found a week later by her brother who came to visit her.  The police never caught the man who killed her. But some say that if you're working late at night, and you hear a tapping on your laptop, you should shut it down and get out of there. Because Emily's killer is still out there, and he's watching."
+Emily's body was found a week later by her brother who came to visit her. The police never caught the man who killed her. But some say that if you're working late at night, and you hear a tapping on your laptop, you should shut it down and get out of there. Because Emily's killer is still out there, and he's watching."
