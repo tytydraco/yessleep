@@ -232,4 +232,4 @@ I haven’t been back to the theater since that night. In my dreams I still see 
 
 I’ll end with a word of advice. A moral, if such a thing could be parsed from my nightmare. The next time someone in the restroom calls for a roll of toilet paper roll, pass one along.
 
-You never know who’s in the nextdoor stall.
+You never know who’s in the next stall.
