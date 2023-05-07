@@ -28,21 +28,21 @@ So I lay in bed, my mind racing. Nothing made sense; he was clearly trying to hi
 
 The blood could only mean one thing.
 
-I stayed awake for hours, staring at the ceiling in dark silence. I finally resolved to get up and call my sister; I at least wanted to know that I wasn’t going crazy, and I needed another opinion. I was about to sit up when I noticed a shadow move.
+I stayed awake for hours, staring at the ceiling in dark silence. I finally resolved to get up and call my sister; I at least wanted to know that I wasn’t going crazy, and I needed another opinion. I grabbed my phone and headed to the bedroom door, deciding to make the call in my kitchen. I cracked the door and peeked my head out.
 
 I froze. Even my heart seemed to stop beating. 
 
 The shadow glided so quietly that I wouldn’t have noticed anything if I hadn’t just spent hours in the dark and quiet. It was clearly a person, and they were obviously very experienced at hiding themselves. 
 
-I kept still, feigning sleep. The person walked in near silence as they approached the bedroom door.
+I kept still. The person walked in near silence as they approached the bedroom door.
 
 And as he crossed a sliver of moonlight that had crept through the curtains, I saw my husband’s face. 
 
-He slipped out the door and disappeared. 
+He slipped away and disappeared. 
 
 Now what?
 
-I can’t run away, because he’s obviously been tracking me far longer than I know. I can’t confront him, because he would never confess to something violent (unless he planed to admit the truth and then kill me). There’s no evidence to show the police. 
+I can’t run away, because he’s obviously been tracking me far longer than I know. I can’t confront him, because he would never confess to something violent (unless he planed to admit the truth and then kill me). There’s no evidence to show the police. For right now, he has me trapped.
 
 I guess I’ll just wait to see what happens. 
 
