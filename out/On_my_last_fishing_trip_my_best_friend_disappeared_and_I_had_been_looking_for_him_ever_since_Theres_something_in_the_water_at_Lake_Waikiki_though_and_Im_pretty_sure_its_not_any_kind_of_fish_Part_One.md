@@ -202,4 +202,4 @@ I was shaken out of my trance again when I felt Devin's hand on my shoulder. "Ia
 
 "I-I'm sorry, I..." I trailed off, sighing. Right then, all I felt like wanting to do was curl up and bawl like a fucking baby. He put his hand on my shoulder. I shook him off, telling him I was fine and started towards the opening of the trail. I heard him run up behind me.
 
-"Hey, wait up." I kept walking, gear dragging the ground beside me. My mind cleared itself, wiping itself of everything that didn't have to do with Lake Waikiki and more importantly, finding Tanner.
+"Hey, wait up." I kept walking, gear dragging the ground beside me. My mind cleared itself, wiping itself of everything that didn't have to do with [Lake Waikiki](https://www.reddit.com/r/nosleep/comments/13a8oo2/on_my_last_fishing_trip_my_best_friend/?utm_source=share&utm_medium=web2x&context=3) and more importantly, finding Tanner.
