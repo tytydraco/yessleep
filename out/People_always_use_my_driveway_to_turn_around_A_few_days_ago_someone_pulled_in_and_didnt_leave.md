@@ -1,10 +1,8 @@
- 
-
 It happens all the time, and I can’t help but find it irritating. I live on the outskirts of town, less than a mile from a busy highway, and people pull into my driveway at all hours of the day. It always makes me nervous, wondering if someone is dropping by unannounced. Only to see them sit at the end for a moment, before reversing out and driving away.
 
 It’s most unsettling at night. Seeing the headlights cut through the trees in my front yard while they sit there. It makes me wonder if someone’s scoping my house out, like they’re thinking of robbing me. I park my car in the garage, so it always looks like I’m not home. In the end they always drive away, and I’m left feeling foolish at someone’s lack of direction.
 
-Last night, however, someone pulled in and didn’t leave.
+A few days ago, however, someone pulled in and didn’t leave.
 
 I stood and watched them from the window of my living room, peeking out through the blinds. The car sat there suspiciously, idling just at the end of the driveway. I thought maybe they were lost and checking the GPS on their phone, trying to figure out where they missed a turn. I try not to be a total jerk about it, and give them time to figure out where they’re going before jumping to conclusions. But it was after eleven o’clock at night, and not only were they interrupting my movie, they were weirding me out.
 
@@ -32,7 +30,7 @@ The headlights were blinding, making it hard to see. I kept pushing forward, hol
 
 More crunching footsteps, and their car getting louder. The driver didn’t move a muscle, didn’t motion to me or anything. I realized I was holding my breath, the anxiety welling within me as I approached. The driver looked like a woman, her hands in front of her, holding the wheel. But it was so dark in there, I couldn’t *see* her hands, only the unmoving stare.
 
-A strong feeling of foreboding radiated from the eerie car, and my body begged to turn and run back to the house. Something was wrong. Very, *very,* wrong. 
+A strong feeling of foreboding radiated from the eerie car, and my body begged to turn and run back to the house. Something was wrong. Very, *very,* wrong.
 
 I walked around the front of the vehicle to the drivers side, and held up my flashlight to see them. They didn’t turn to look at me, they didn’t do anything. My eyes slowly calibrated what was in front of me, and when it finally pieced together, I wanted to scream.
 
@@ -60,7 +58,7 @@ Eventually, things went back to normal, and I was allowed to go back to work. It
 
 That was, until I was driving home last night. I was about halfway home when I started noticing an *odor*, like I had driven past some roadkill. I tried rolling up the windows and it got worse, a heavy rotting smell that made me gag.
 
-I realized it was something *inside the car.* 
+I realized it was something *inside the car.*
 
 When I pulled over to find it, I looked under the seats and in the trunk, thinking maybe I had left out some raw meat from the last time I went shopping. I didn’t find anything, and I found myself scratching my head at a loss.
 

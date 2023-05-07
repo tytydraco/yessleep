@@ -2,11 +2,11 @@
 
 &#x200B;
 
-Jamie and I walked to Tasha. She stood by the fire, fists clenched, watching Rowan as he left. She seemed to consider following him, but remained still. 
+Jamie and I walked to Tasha. She stood by the fire, fists clenched, watching Rowan as he left. She seemed to consider following him, but remained still.
 
 “What… happened to Spencer?” Jamie asked, her voice hushed.
 
-The tears started flowing. “I don’t know,” Tasha wailed. “He slept before me because he was feeling sick. I fell asleep right after. And then when I woke up, he was gone, along with all of his stuff.” 
+The tears started flowing. “I don’t know,” Tasha wailed. “He slept before me because he was feeling sick. I fell asleep right after. And then when I woke up, he was gone, along with all of his stuff.”
 
 “You don’t think he left because he was feeling sick?” Jamie asked.
 
@@ -20,13 +20,13 @@ Tasha nodded, wiping the tears from her eyes. “I’ll check back down the trai
 
 We split off, and I returned to the tent, where Grant had now sat up in his sleeping bag and was rubbing his eyes. “What’s going on?” he asked.
 
-“Spencer went missing. We’re trying to find him,” I said. 
+“Spencer went missing. We’re trying to find him,” I said.
 
 Grant seemed to think a bit before responding. “Ash, we should leave.”
 
 “What? Why?”
 
-“The person who made it last to the campsite each day went missing the next morning,” Grant said. “Trevor was the last one on the first day, and Spencer was the last one on the second.” 
+“The person who made it last to the campsite each day went missing the next morning,” Grant said. “Trevor was the last one on the first day, and Spencer was the last one on the second.”
 
 “So you think we’re in a sick version of The Amazing Race?”
 
@@ -60,7 +60,7 @@ Tasha shook her head. “The only way we’re going to get out of here is to fin
 
 I looked over at Grant, and he met my gaze. *At least it’s not us,* his eyes told me. I looked away.
 
-Jamie, Grant and I started on the hike a few minutes later. Somehow, the trail had grown even steeper, my legs aching with protest. We must’ve been thousands of feet up by then. 
+Jamie, Grant and I started on the hike a few minutes later. Somehow, the trail had grown even steeper, my legs aching with protest. We must’ve been thousands of feet up by then.
 
 “Do you think Tasha will go missing too?” Jamie asked us. Her voice begged for reassurance, but we had none to give.
 
@@ -72,7 +72,7 @@ Jamie, Grant and I started on the hike a few minutes later. Somehow, the trail h
 
 “How many more days of hiking do we have left?”
 
-“Four, I think,” Grant said. 
+“Four, I think,” Grant said.
 
 The implication of that number wasn’t lost on me.
 
@@ -88,11 +88,11 @@ Finally, we reached the campsite, with Rowan standing over the fire, cooking lik
 
 “Oh, do you now?” Rowan said, his expression unchanging. “If this is how you want to speak, I can always leave you behind to starve.”
 
-Grant and I darted eyes, fear exchanging between our glances. “N-No, we didn’t mean it like that,” Grant stammered. 
+Grant and I darted eyes, fear exchanging between our glances. “N-No, we didn’t mean it like that,” Grant stammered.
 
-“Yeah, we appreciate you cooking for us!” I said. 
+“Yeah, we appreciate you cooking for us!” I said.
 
-Rowan gave us a knowing smile. “Thought so.” He put on the pot lid. “Hope you three like couscous!” 
+Rowan gave us a knowing smile. “Thought so.” He put on the pot lid. “Hope you three like couscous!”
 
 We wolfed down the meal as Rowan watched, perhaps expecting us to comment on his cooking. Dinner was good like usual, although I couldn't help but feel that the meals served as meat hung from a pole, motivating us like we were greyhounds in a deadly dog race. We sat around the fire in silence.
 
@@ -106,13 +106,13 @@ Tasha looked at us with eyes that were a hundred years old. “He’s gone,” s
 
 Tasha gave a slight nod, and I handed her my water bottle. “I’m going to turn in early tonight,” she said, unscrewing the bottle. “I have a killer headache that’s not going away.”
 
-Jamie and I exchanged worried glances. “We should keep watch over her,” she said to me, quiet enough that Rowan wouldn’t hear. 
+Jamie and I exchanged worried glances. “We should keep watch over her,” she said to me, quiet enough that Rowan wouldn’t hear.
 
 I nodded then looked at Grant, beckoning him to come over. “Should we stay outside her tent or stay in with her?” I asked.
 
 Jamie looked over at Tasha, who was still gulping water. “I think we should stay in the tent and stay awake. If Spencer went missing without Tasha noticing, then who knows what happened to cause that.”
 
-The idea didn’t excite Tasha, but she was too tired to protest. “Just don’t stay up all night giggling or something,” she told them after the tent was set up and she laid in her sleeping bag. 
+The idea didn’t excite Tasha, but she was too tired to protest. “Just don’t stay up all night giggling or something,” she told them after the tent was set up and she laid in her sleeping bag.
 
 “We’ll just be sitting here to make sure everything’s ok,” Jamie assured her.
 
@@ -126,13 +126,13 @@ Time marched onward. The temperature dropped, making me wrap my arms around my l
 
 Ice shot down my spine. Jamie was right; somewhere during the sluggish mudflow of time, Tasha’s soft hum had stopped. I reached over and gently placed my hand on top of the sleeping bag. There was still something inside.
 
-“Tasha?” I said. “Tasha!” 
+“Tasha?” I said. “Tasha!”
 
 She didn’t move.
 
 “Grant, you have your flashlight right?” Jamie whispered.
 
-“Yep.” 
+“Yep.”
 
 There was a click. And what I saw in the light will forever haunt me.
 
@@ -148,9 +148,9 @@ The events immediately after we saw Tasha’s body are a blur to me. Someone scr
 
 I felt Grant nudge me. I opened my eyes, although I’m not sure if they were closed to begin with. It was still dark. “You awake, Ash?” came his voice.
 
-I made a noise that was something between a grunt and a gurgle. 
+I made a noise that was something between a grunt and a gurgle.
 
-“We should go,” he said. 
+“We should go,” he said.
 
 “Go where?”
 
@@ -168,7 +168,7 @@ Grant sucked in his breath as if bracing for my reaction. “Yes, just to make s
 
 “No, but at least we could’ve tried to figure out how to keep us all alive!”
 
-“Ash, we know the rules of this game now. There’s nothing left to figure out!” 
+“Ash, we know the rules of this game now. There’s nothing left to figure out!”
 
 “You don’t know that! The three of us could’ve come up with something and now we’re not going to try?”
 
@@ -186,9 +186,9 @@ I felt my legs collapse. My vision blurred. This was not the Grant I knew. He mi
 
 “Ash-”
 
-“Jamie’s blood will be on YOUR HANDS!” I screamed. The dam broke, and tears poured down my cheeks. “You fucking greedy excuse of a boyfriend!” 
+“Jamie’s blood will be on YOUR HANDS!” I screamed. The dam broke, and tears poured down my cheeks. “You fucking greedy excuse of a boyfriend!”
 
-We were both silent as the weight of my words set in. Between my sobbing gasps for breath, I could hear Grant crying as well. My head pounded, maybe from dehydration, exhaustion, anger, or a mix of all three. Regret began to fill me, but I couldn’t muster the courage to apologize. Three days of hiking stress poured onto the trail in a muddy river. Our sobs echoed through the cold, silent, cursed forest that surrounded us. 
+We were both silent as the weight of my words set in. Between my sobbing gasps for breath, I could hear Grant crying as well. My head pounded, maybe from dehydration, exhaustion, anger, or a mix of all three. Regret began to fill me, but I couldn’t muster the courage to apologize. Three days of hiking stress poured onto the trail in a muddy river. Our sobs echoed through the cold, silent, cursed forest that surrounded us.
 
 “I planned to propose to you,” Grant finally said. His voice strained. “When we got to the top, on the fourth day of the hike. Today.”
 
@@ -233,3 +233,5 @@ I shrugged. “I mean, what else is there to say?”
 I nodded. "He made that clear last night."
 
 "So, how hard would it be to kill him?”
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/13avle7/my_friends_and_i_went_backpacking_every_night_one/)
