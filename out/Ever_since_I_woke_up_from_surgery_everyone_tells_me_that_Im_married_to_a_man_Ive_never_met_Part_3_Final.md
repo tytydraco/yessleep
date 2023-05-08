@@ -32,7 +32,7 @@ I snapped out of my daze and shook her hand. “No, no, it’s nice to meet you,
 
 “It is *your* engagement dinner,” said Mae. “The least you can do is share with our generous hosts how-”
 
-“It’s alright,” interrupted Emma, putting her arm around Olivia. “I’ve got this, if that’s alright with you.”
+“It’s alright,” interrupted Emma, putting her arm around Olivia. “I’ve got this, if that’s okay with you.”
 
 “Sure,” said a relieved Olivia.
 
