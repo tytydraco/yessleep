@@ -1,0 +1,29 @@
+If you are walking in a forest, and feel the urge to go off trail to a specific direction, fight it, and keep walking on trail. If you see an old, mossy statue made of stone in the middle of the forest holding something, avoid it and don't touch it.
+
+
+One month ago i was hiking in a forest. As i was hiking, for some reason i began feeling this urge to go off trail to a specific direction. I gave in to my urges and began walking for what seemed like an hour. I didn't know what i was expecting to find, but as i went further, the urge to go to that direction grew stronger. After another 30 minutes i finally stopped when i saw some old, decayed and mossy statue, it was barely recognizable as a statue, and to me, it seemed like the statue was sitting there for hundreds of years. I didn't know what that statue meant, but deep down i knew, that i arrived to the right location.
+As i was looking around the statue i saw that it was holding an ancient item, it looked like an artifact of some kind. And now I had the urge to grab it. As i held it in my hands, i felt a tingling sensation that seemed to radiate through both of my arms. I quickly dropped the artifact in response, and as of result, it hit a rock and shattered into multiple pieces. I looked at the shattered artifact and had a feeling like i have done something wrong, but I thought nothing of it, and decided to begin my journey getting out of the forest, because it was starting to get dark.
+
+
+As i was walking through the forest, i kept feeling like someone was watching me from a bush, or behind a tree, but again, i assumed that maybe some animal was around me. After about 40 minutes i began hearing a very quiet and distant sound. It kind of sounded like boiling water, or someone gargling, and the sound would go on for a few seconds before stopping, and then it would start again. That's when i began feeling creeped out, and just started jogging. After about an hour of jogging while hearing that weird, and kind of disturbing sound. To my relief, i was back on trail, and the sound that i kept hearing seemed to stop too. But i was still too creeped out and just basically continued jogging back to my car, because i didn't want to be in that forest any longer.
+
+
+After i got into my car i began feeling a tingling sensation in my forearm, like the one i felt in the forest when i held that artifact. It felt electric. As i was driving home i started feeling tired, but of course, that could have been because i was jogging for an hour.
+
+
+After i got home, i sat down on my couch to watch some movies, but I still had a feeling that someone was staring at me. When the movie i watched was nearing the end, i began hearing that sound again, that weird boiling sound. I felt like i was going insane. I made sure that all the doors and windows in my house are locked and then i went to sleep.
+
+
+During the first week i felt paranoid, i had a feeling that someone was inside my house, so everyday i checked all of my closets, under my bed, and even in my cabinets. The whole week was quite uneventful but in evenings, as the sun started to set, i would begin feeling the same feeling of being watched that i felt the first day when i touched that artifact, also i would begin hearing the same sound that i heard after i touched the artifact but unlike the first day, the boiling noise sounded much louder, like it was way closer now, my arms would also begin to hurt instead of the tingling sensation that i felt on the first day. Now i was scared, i couldn't just ignore it, and try to come up with some explanation, i seriously began to question my mental health.
+
+
+On the second week things became more difficult, and sleep didn't improve my condition anymore. I began to smell rotting meat everywhere i went, but i would never find anything even if I looked for the source of that smell for hours. After some time i got used to it, but my paranoia got much worse. I didn't feel safe even with my windows and doors locked, so i began boarding up my windows and barricading my doors. When the sun started to set, as expected by now, the boiling-gurgling sound would come back to haunt me, but now, the noise sounded close, like it was coming from my yard. 
+
+
+In the middle of the second week since i touched that artifact i noticed that my arms began to turn purple and started feeling numb. It looked like my arms began losing blood flow. I decided to call the emergency services, but somehow i couldn't, like something was inside me that wouldn't let me do that. I couldn't even go to my car, since my paranoia was so strong, i felt like the second i would leave my house, someone or something would get me. I was trapped in my house.
+
+
+On the third week my arms started to feel unusually squishy, it was leaking weird fluids and now i could see that it is clearly decomposing. My whole body also began to slowly turn this weird purplish red color. I could now hear the gurgling sound even during the day, and when i had enough courage to look through my window, i felt like i could see something near the treeline outside my yard. Also my appetite started to increase, the more food i ate, the more i needed. Eating raw meat seemed to satisfy my cravings the most. I began to feel in danger, so i decided to lock myself in the basement, as i thought that i would only be safe there.
+
+
+Now i have been here for about 4 days, my arms look badly decomposed now, flesh around the arms feels loose, some chunks fall off if I'm not careful. My whole body is starting to do the same. I now also began feeling increasingly hungry for meat of any kind, i even started to look at my own body as food, but i keep fighting the urge to take a bite. And that gurgling noise sounds like it is right outside my basement door...
