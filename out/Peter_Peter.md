@@ -4,7 +4,7 @@ When terrible things happen to terrible people, sympathy is nowhere to be found.
 
 But when such terrible things happened to the boy called Peter Grimley, no one said much of anything. Instead, they would simply kick up some dirt and sigh, while mumbling something along the lines of: “Real shame. He was a good boy.”
 
-The Grimley family owned a vast swath of farmland just outside the dusty old town of Hollow Oaks. The property was seemingly infinite and stretched over sixty acres. Ever since Grimley Farms opened its grounds to the public back in 1953, locals flocked to the property. At first, the family offered small attractions like tractor tours and strawberry picking, but by the mid-1970s, the spectacle had grown to a spectacular degree. At Christmastime, carolers would occupy moving tractors while singing songs from the comfort of their haystacks. Around Valentine’s Day, the grounds became a hotspot for marriage proposals. 
+The Grimley family owned a vast swath of farmland just outside the dusty old town of Hollow Oaks. The property was seemingly infinite and stretched over sixty acres. Ever since Grimley Farms opened its grounds to the public back in 1953, locals flocked to the property. At first, the family offered small attractions like tractor tours and strawberry picking, but by the mid-1970s, the spectacle had grown to a spectacular degree. At Christmastime, carolers would occupy moving tractors while singing songs from the comfort of their haystacks. Around Valentine’s Day, the grounds became a hotspot for marriage proposals.
 
 But *Halloween* on the Grimley farm was something else entirely. This was when the family really shined, not to mention made more money than every other season combined.
 
@@ -18,17 +18,17 @@ By the time Peter returned from school that day, he arrived home to find his fat
 
 “So? What do you think?” Mr. Grimley asked.
 
-“What is it?” Peter responded. 
+“What is it?” Peter responded.
 
 The skinny boy tilted his head as if he thought he might have been looking at it from the wrong angle. From his perspective, it almost appeared to be some medieval torture device that you might find in some Renaissance fair or museum.
 
-“Come on over and find out,” Mr. Grimley said. 
+“Come on over and find out,” Mr. Grimley said.
 
 Peter cautiously stepped towards the machine, while his father grabbed a nearby pumpkin and loaded it into a rounded, circular bucket that was held into place by a thick rope.
 
 “Oh. It’s a—"  Peter didn’t even get to say the word before his father cut him off.
 
-“That’s right,” Mr. Grimley confirmed. “Now pull this lever right here and take cover.” 
+“That’s right,” Mr. Grimley confirmed. “Now pull this lever right here and take cover.”
 
 Peter did as his father told him. He reached down, pulled the lever and the catapult sprang to life. Peter jolted back as the wooden arm launched the pumpkin a hundred feet across the field before the orange ball finally exploded into a million tiny pieces.
 
@@ -56,7 +56,7 @@ Each day at lunch, Peter sat alone in the cafeteria and removed a foil-wrapped s
 
 “What’s on the menu today, Peter?” asked Todd Bennett, a football player with mean green eyes and muscles that looked too big for his body. He was standing there with his best friend, Mark Shansky, and their respective girlfriends, Lucille Paterson and Rhonda Lynch, who trailed behind.
 
-“Pumpkin and honey,” Peter told Todd. “The same as yesterday.” 
+“Pumpkin and honey,” Peter told Todd. “The same as yesterday.”
 
 Peter knew that in reality, Todd didn’t *really* care about what type of sandwich he was eating. He simply loved to use the opportunity to chant his favorite nickname to poor old Peter.
 
@@ -72,7 +72,7 @@ The cruel teenagers continued past Pater’s table, but Rhonda lingered for a mo
 
 “Sorry about them,” Rhonda said to Peter before she finally walked off and sat down at Todd’s table. 
 
-“It’s okay,” Peter replied, but he was talking to one – she was already gone.
+“It’s okay,” Peter replied, but he was talking to no one – she was already gone.
 
 A few days later, as Peter was walking home from school (he was making perfect pace to hit his goal), he passed by the bus stop to find Todd and Rhonda making out on a bench. Peter kept his head down and scurried past the lovebirds, but he eventually heard Todd’s grating voice shout: “Peter, Peter, Pumpkin Eater! Come over here!”
 
@@ -96,9 +96,9 @@ On October 31, 1978, Peter gathered exactly three pumpkins from outside the Grim
 
 Peter stabbed out a single letter on the front side of each one – representing the names of the three members of his family. He then lit three candles, placed them inside each fleshy ball, and wished himself a very Happy Halloween. 
 
-Sometime around midnight, Peter woke to the sound of *scratching* at his window. At first, he assumed it to be the wind, but then he heard what sounded like muffled laughter nearby. Peter flipped on the lamp that sat on his nightstand and peered through the window of his bedroom. He couldn’t see anything – but then he heard it again. 
+Sometime around midnight, Peter woke to the sound of *scratching* at his window. At first, he assumed it to be the wind, but then he heard what sounded like muffled laughter nearby. Peter flipped on the lamp that sat on his nightstand and peered through the window of his bedroom. He couldn’t see anything – but then he heard it again.
 
-Voices. 
+Voices.
 
 Somehow near and far, at the same time.
 
@@ -112,7 +112,7 @@ Then, more.
 
 He felt someone’s dirty fingers wrapped around his nose and eyes as they stuffed a wet cloth into his mouth. Then, a scratchy, burlap bag was slid over his head and his arms were bound with a thick rope, which was now digging into his tender flesh.
 
-“Gentle! Go easy!” an unseen female insisted. 
+“Gentle! Go easy!” an unseen female insisted.
 
 Peter would recognize the voice anywhere. He tried to plead with Rhonda and scream for help, but his mouth only produced muffled, muted sounds due to the cloth crammed down his throat which made him simply gag while doing so.
 
@@ -120,7 +120,7 @@ With his senses stripped away from him, Peter’s brain deferred to not working 
 
 After what felt like an eternity, Peter was sat down in what felt like a hard, wooden chair. A pair of hands ripped the sack off his face and suddenly he could see his captors, standing around him.
 
-“MmmmMMMMmm!” 
+“MmmmMMMMmm!”
 
 Peter begged to be let loose, but it became apparent that no one was planning on removing his gag anytime soon.
 
@@ -132,7 +132,7 @@ Peter begged to be let loose, but it became apparent that no one was planning on
 
 “Then let’s go ahead and give him what he wants,” said Todd. He leaned in over Peter and placed two gentle hands on his shoulders as if they were suddenly best friends. “Time to eat some pumpkin shit, right bud?”
 
-Peter writhed around in the chair as the four teenagers made their way back across the field. He tried to free himself. He tried to tip the chair over, but his restraints were too tight and the wooden legs had been pushed deep into the dirt. At first, Peter thought that the extent of this sick, twisted prank was that he was going to be left here all night, but then, he noticed something awful. Pumpkin guts and shells and seeds were covering his boots. 
+Peter writhed around in the chair as the four teenagers made their way back across the field. He tried to free himself. He tried to tip the chair over, but his restraints were too tight and the wooden legs had been pushed deep into the dirt. At first, Peter thought that the extent of this sick, twisted prank was that he was going to be left here all night, but then, he noticed something awful. Pumpkin guts and shells and seeds were covering his boots.
 
 He suddenly knew *exactly* where he was on the farm.
 
@@ -142,7 +142,7 @@ All the way across the field, Todd excitedly loaded a pumpkin into the catapult.
 
 “Todd has a better chance of winning the lottery than hitting that bullseye,” Mark laughed.
 
-“Fuck you,” Todd said. “I could win the lottery. Now *watch this.”* 
+“Fuck you,” Todd said. “I could win the lottery. Now *watch this.”*
 
 Todd pulled the lever and the wooden arm launched the pumpkin into the air and across the field. The teenagers watched with anticipation as Peter – a squirming shadow in the night – vibrated around in his chair while the pumpkin finally exploded about fifteen feet in front of him.
 
@@ -154,13 +154,13 @@ Todd pulled the lever and the wooden arm launched the pumpkin into the air and a
 
 “Because they’re guys,” Rhonda responded. “Can we go now? I think he’s had enough—”
 
-Just as the words left her mouth, Todd launched one final pumpkin into the sky. The four of them watched, seemingly in slow motion, as it barreled toward Peter. Suddenly, at the same time, they all knew the exact trajectory of the orange ball. 
+Just as the words left her mouth, Todd launched one final pumpkin into the sky. The four of them watched, seemingly in slow motion, as it barreled toward Peter. Suddenly, at the same time, they all knew the exact trajectory of the orange ball.
 
 It was dead on.
 
-“Wait—” is all Rhonda could muster before the pumpkin connected with Peter’s skull and exploded upon impact. 
+“Wait—” is all Rhonda could muster before the pumpkin connected with Peter’s skull and exploded upon impact.
 
-As loud as the sound of the cracking shell was, the sound of Peter’s neck *snapping* like a twig was even more audible. Even from the dark distance, the four of them could see the extent of Peter’s mangled, bent-up neck. 
+As loud as the sound of the cracking shell was, the sound of Peter’s neck *snapping* like a twig was even more audible. Even from the dark distance, the four of them could see the extent of Peter’s mangled, bent-up neck.
 
 His head was drooped sideways and covered in pumpkin guts and blood and seeds. 
 
@@ -168,7 +168,7 @@ Peter Grimley was as good as dead.
 
 \*\*\*
 
-“So… then what happened?” I ask Zeke, the resident storyteller in our group. 
+“So… then what happened?” I ask Zeke, the resident storyteller in our group.
 
 It’s Halloween and we’re stumbling through endless weeds and dirt. This is the place where, at least according to Zeke, Peter Grimley lost his head.
 
@@ -190,9 +190,9 @@ Jules and I exchange looks for a tense moment, before we both break into laughte
 
 “Why should we?” Jules adds.
 
-“Cool,” Zeke says as he wanders around the dirt like he’s looking for the perfect place to do his thing. Then, he begins: 
+“Cool,” Zeke says as he wanders around the dirt like he’s looking for the perfect place to do his thing. Then, he begins:
 
-“*Peter, Peter, Pumpkin Eater. Sat afar, a dozen meters. Plucked from bed, and he was dead, an ugly mess of orange and red...”*
+***"Peter, Peter, Pumpkin Eater. Sat afar, a dozen meters. Plucked from bed, and he was dead, an ugly mess of orange and red...”***
 
 Zeke smiles as he finishes, as if he’s proud of himself for remembering a few, short sentences that rhyme. “Cute poem,” I tell him.
 
@@ -220,15 +220,15 @@ We’re staring at a gaping hole in the ground. The dirt is so fresh I can smell
 
 Just before Zeke speaks, I look up and suddenly spot a figure rushing toward us in the dark. It’s too hard to tell what he looks like, but he seems to be around our age – and holding some type of farm tool.
 
-At first, I squint because I think it might be some jackass from class – perhaps one of Zeke’s accomplices. 
+At first, I squint because I think it might be some jackass from class – perhaps one of Zeke’s accomplices.
 
-But then, I see the shadowy figure force the rake through Zeke’s gut. 
+But then, I see the shadowy figure force the rake through Zeke’s gut.
 
 The prongs *protrude* from his back – and he promptly spits blood. It takes my brain longer than it should to acknowledge danger – maybe I’m in shock – but regardless, it finally occurs to me something is wrong.
 
 “Sadie! Come on!”
 
-Suddenly, Jules is screaming and I’m running and we’re both headed towards a dilapidated house in the distance. 
+Suddenly, Jules is screaming and I’m running and we’re both headed towards a dilapidated house in the distance.
 
 *What if that’s the Grimley farmhouse?* I’m thinking. *He won’t want us to go in there.* But there’s no time.
 
@@ -236,7 +236,7 @@ We shut ourselves inside and slam the door.
 
 “Zeke—” Sadie blurts out.  She’s hyperventilating and barely able to get her thoughts out. “He was… and now he’s…”
 
-But I don’t respond to her gibberish. Because I’m focused on something else. Inside the shitty old house, which is covered in piss and broken bottles and condoms and graffiti, there’s *light* coming from around the corner in the next room. 
+But I don’t respond to her gibberish. Because I’m focused on something else. Inside the shitty old house, which is covered in piss and broken bottles and condoms and graffiti, there’s *light* coming from around the corner in the next room.
 
 There’s a soft orange glow. Flickering in the dark.
 
@@ -248,13 +248,13 @@ I don’t know why, but I head towards the light. In the next room, we find doze
 
 “He was here…” Sadie whispers. “It’s Peter…”
 
-She’s right. “We need to leave,” I add. 
+She’s right. “We need to leave,” I add.
 
 But there’s no time. I’m cut off by the terrible and sudden sound of shattering glass. Sadie screams as Peter reaches in through the window from outside and wraps his hands around her throat. I’m trying to help her but by the time I think of a plan, it’s too late.
 
 Peter snaps her neck and she drops to the floor, her body crunching razor-sharp shards of glass.
 
-I’m involuntarily screaming again as Peter breaks through the remains of the window and reveals himself via the soft glow of the candlelight coming from inside the jack-o’-lanterns. 
+I’m involuntarily screaming again as Peter breaks through the remains of the window and reveals himself via the soft glow of the candlelight coming from inside the jack-o’-lanterns.
 
 He’s been partially decapitated, but the remains of his skull have been supplemented by the pumpkin that ended his life. The sight is enough to make me gag, but nothing comes out except for a dry heave.
 
@@ -274,7 +274,7 @@ As Peter closes in on me… I hear him say something.
 
 “Pe-tah, Pup-kin… Eat-ahh…”
 
-I realize he's saying the rhyme that Zeke recited earlier while he wraps his cold, dirty hands around my skull and begins squeezing it tight. 
+I realize he's saying the rhyme that Zeke recited earlier while he wraps his cold, dirty hands around my skull and begins squeezing it tight.
 
 The pressure is overwhelming and he’s now so close to me that I can see the pearly white bone of his spinal cord protruding.
 
