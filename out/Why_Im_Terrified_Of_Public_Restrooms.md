@@ -114,13 +114,15 @@ I noted a stiff sense of malice clinging to the word *please* this time.
 
 The monkey’s paw between the stalls curled up, wilting. I held my breath and prayed another request wouldn’t come. I slid my pants up, but the pale plastic toilet seat slammed down with a reverberation so loud I’m sure viewers in the neighboring IMAX theater heard it.
 
-The black boots in the other stall shifted, and the shadow of the thing inside rose. His shadow overtook mine across on the tile floor. The man in the stall groaned. Something putrid started to occur in his vocal chords. A feted wave of nauseating stink unfurled out the back of the man’s gullet. He let out a shrill shriek that sounded like the stridulating of an overgrown cicada.
+The black boots in the other stall shifted. The stranger's shadow overtook mine on the tile floor. He groaned and something putrid occurred in his vocal chords. A fetid wave of nauseating stink unfurled out the back of the man’s gullet. He let out a shrill shriek that sounded like the stridulating of an overgrown cicada.
 
 The next door stall opened, and the long shadow of the man encroached on my door before there was any chance to flee. His black boots cast a reaper’s outline across the dirty plastic toes of my sneakers. 
 
 *He was waiting for me.*
 
-A typhoon went off behind me as I accidentally disturbed the toilet’s red-eyed touch sensor. A bit of leftover paper spat out of the plumbing maelstrom, and drifted under the door. I reached for the stall’s latch, breath sputtering in measured beats of refined exhausts of fear. The man’s smell snuck its way under the walls worse than before. It should say something that in a room where people emptied their bowels that this *guy* smelled worse than brewing cauldrons of crap and piss. He had a noxious odor that turned the cramped space into a sepulcher of stink so foul I almost turned back to vomit into the toilet I’d completed my business relationship with. I plugged my nose and shook with the speed of a man in the grips of frostbite. I placed my fingers on the stall’s handle as the door shook. The thing outside chirped and parroted with insectile noises again.
+A typhoon went off behind me. I'd accidentally disturbed the toilet’s red-eyed touch sensor. 
+
+A bit of leftover paper spat out of the plumbing maelstrom, and drifted under the door. I reached for the stall’s latch, breath sputtering in measured beats of refined exhausts of fear. The man’s smell snuck its way under the walls worse than before. It should say something that in a room where people emptied their bowels that this *guy* smelled worse than brewing cauldrons of crap and piss. He had a noxious odor that turned the cramped space into a sepulcher of stink so foul I almost turned back to vomit into the toilet I’d completed my business relationship with. I plugged my nose and shook with the speed of a man in the grips of frostbite. I placed my fingers on the stall’s handle as the door shook. The thing outside chirped and parroted with insectile noises again.
 
 Sense finally broke through my battle lines of dread. I leaned in closer to the canyon between the latch and the stall’s steel skeleton. If I could parlay the weight of the door and my own strength, perhaps I could send the man outside flying. It would give me enough time to rush out of the restroom shouting bloody murder. But, oddly, as I peered in the gap... all I could make out was a pane of red staring back. 
 
@@ -128,9 +130,7 @@ And then it blinked.
 
 A violet pupil marked by sharp hexagonal corners gazed back at me. A shimmering conjunctiva octagon of malice. 
 
-Even now, I can see that eye. Gazing at me with lust and begging to open the latch so it could greet me with the delights it held within itself. 
-
-The devilish pupil adjusted, scanning the floor. The gnarled figure let out another word: 
+Even now, I can see that eye. Gazing at me with lust and begging to open the latch so it could greet me with the delights it held within itself. The devilish pupil adjusted, scanning the floor. The gnarled figure let out another word: 
 
 “Lie.”
 
@@ -148,15 +148,15 @@ I scrambled back, cowering atop the toilet.
 
 BANG! A screw flew out of the door hinge and whizzed past into the drywall.
 
-That was all the motivation required for me to scramble to the floor and crawl under the partition between the next stall. The man shattered and slammed down my old stall door, which would’ve crushed me if I hadn’t left when I did.
+That was all the motivation required for me to scramble to the floor and crawl under the partition between the next stall. The man shattered my old stall's door, which would’ve crushed me if I hadn’t left when I did.
 
-I pulled myself along into the next-door cubicle. My hands didn’t find cold porcelain of the tile, though. The floor of the neighboring stall was caked in a sticky and sinewy clear liquid. The mucus clung to my hands, dripping and oozing down my forearm. 
+I pulled myself along into the next-door cubicle. My hands didn’t find cold porcelain tile, though. The floor was caked in a sticky and sinewy clear liquid. Mucus clung to my hands, dripping and oozing down across my forearm. 
 
 *Christ, it was saliva.*
 
-I held back my disgust and threw my full weight against the stall’s door to secure it. I tried to dig my heels in for add leverage, but the substance on the floor stuck like gum to my shoe and claimed my sneaker.
+I held back disgust and threw my full weight against the stall’s door to secure it. I tried to dig my heels in for add leverage, but the substance on the floor stuck like gum to my shoe and claimed a sneaker.
 
-The terror's shadow darted back to my door, clawing again.
+The monster's shadow darted back to my door, clawing again.
 
 I shivered and screwed my eyes tight to try and imagine another universe where I’d never seen Jeff’s stupid fucking texts. Where I was home in bed, safe. Where a nameless gesticulating abomination wasn’t about to turn me into a snack. 
 
@@ -166,17 +166,16 @@ The silence the chaos left was louder than the booming of the nearby theaters. I
 
 A ghastly stretching noise rang out. A whining squeezebox of tension gasped and skipped through whatever organs this creature used to breathe. I felt this its true presence peeling from the shape of a man as elastic rubbery molecules reformed the abomination's shape. The latch was closed, but it was inching closer and closer under the door. I could feel the heat steaming off its false skin. A snake molting his shell. 
 
-The thing slunk into the booth, breaking bones and jittering as it adapted its form. I waited for decades in darkness, eyes shut. But, I knew… I knew I had to look. 
+The thing slunk into the booth, breaking bones and jittering as it adapted form. I waited for decades in darkness, eyes shut. But, I knew… I knew I had to look. 
 
-I took a deep breath, and opened my eyes.
+I took a breath, and opened my eyes.
 
-A pale head with an untold tally of bug-like eyes watched me from under the stall's divider. The ichor of the horror's skull was constructed from a melting waxwork of flesh and yellow pulsing fat. Its shape wilted and collapsed while its neck curved like a boa constrictor. The thing removed its flesh as if it were a Halloween costume. 
+A pale head with an untold tally of bug-like eyes watched me from under the stall's divider. The ichor of the horror's skull was constructed from a melting waxwork of flesh and yellow pulsing fat. Its shape wilted and collapsed while its neck curved like a boa constrictor. The thing removed its flesh as if it were a Halloween costume. One thing remained the same about him though. 
+His red mirror-ball peepers still reflected my frightened face back at me a hundred times over.
 
-But, one thing remained the same. The thing buggy red mirror-ball peepers reflected my terror back at me a hundred times over. Each octagonal pupil fixed on only me.
+A grin crept across the monster’s remaining human features. It had a smile constructed of teeth like wooden planks that stretched out from an unhinged jaw.
 
-A grin crept across the monster’s remaining human features. Its smile was constructed of teeth like wooden planks that retched out from its unhinged jaw.
-
-It spoke again, made worse by its jangled caricature of a mouth.
+It spoke again, made worse by its caricature of a mouth.
 
 “Paper. Please.”
 
@@ -188,15 +187,15 @@ Drool slid down its clattering pincers in a long bead. The space grew hot, like 
 
 “I… I…”
 
-I think it understood my confusion. Like it’d spent time with humans, but never fully become one or spoke their words. The man-thing nodded to the empty rolls of toilet paper in the stall we now shared. 
+I think it understood my confusion. The man-thing nodded to the empty rolls of toilet paper in the stall we now shared. And then, in a nauseating second, the nameless thing revealed why it gave off such putrid smells. 
 
-In a nauseating second, it was revealed why that nameless thing gave off such putrid smells. The creature’s face unwrapped like a present and birthed into a mantis’s beak, abandoning camouflage. A pink pulsing tongue curled out of the darkness from its mouth and pitched forth an intestine’s worth of waded, dissolved, and acid stained paper. A buffet of discarded cloth, wrappers, and cardboard were regurgitated into a stack.
+The creature’s face unwrapped like a present and birthed into a mantis’s beak, abandoning camouflage. A pink pulsing tongue curled out of the darkness from its mouth and pitched forth an intestine’s worth of waded, dissolved, and acid stained paper. A buffet of discarded cloth, wrappers, and cardboard were regurgitated into a stack.
 
 *Past meals.*
 
-I wish what followed came from a place of bravery. In reality, it was more like those tests they give you with the little hammer at a physical. A reflex from fear. I bent down into the digestive muck that coagulated on my sneakers and stuck my hand under the last divider. I found a full roll, and I tried to peel it free, but my hand was just out of reach.
+I wish what followed came from a place of bravery. In reality, it was more like the tests they give you with the little hammer at a physical. A reflex born from fear. I bent down into the digestive muck that coagulated on my sneakers and stuck my hands under the last divider. I found a full roll, and I tried to peel it free, but I was just out of reach.
 
-The man thing sniffed and spoke again. This time it dropped all attempts at human vocalization.
+The man thing sniffed at me. Then, it spoke again, this time dropping all attempts at human vocalization.
 
 “PPPPPPPPAAAAAAAAPPPPPPPPPEEEEEEEERRRRRR. PLLLLLLLLLLLLLLLLLEEEEEEEAAAAAAAAASSSSSSEEEEE.”
 
