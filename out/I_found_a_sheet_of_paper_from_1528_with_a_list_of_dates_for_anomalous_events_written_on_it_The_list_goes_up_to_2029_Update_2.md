@@ -209,3 +209,6 @@ No. They want me for some reason. They very likely have back up. If it turns out
 
 
 It's weird how that was the first page, but it read like it should've been the second. At least, the bit at the end. Unfortunately, I don't have time to translate the second page to see what's up, as there's a banging coming from downstairs now.
+
+
+[Final update](https://www.reddit.com/r/nosleep/comments/13c1yay/i_found_a_sheet_of_paper_from_1528_with_a_list_of/?)
