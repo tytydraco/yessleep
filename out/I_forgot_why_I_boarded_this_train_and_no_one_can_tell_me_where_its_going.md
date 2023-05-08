@@ -22,6 +22,12 @@ So I ask, "What happens when you get thrown off?", and he says you'll never get 
 
 **2:56** I've spent the last couple minutes texting my mom. I tried to call her, too, but it's not letting me. So I sent her a voicemail and she sent one back. She was a little confused because I kept telling her how much I love her. She's up really late for me, and she says she'll go to bed now, so I sent her another goodnight voicemail. I hope she keeps it, for when she misses me. I've listened to hers over and over again, and her voice is as sweet and comforting as always. I have to turn my phone off now. It's nearly dead anyways. 
 
-Jack is still awake. We're going to the same place so I guess I'll just keep talking to him. He's very understanding, actually. He's just been on the train longer, so he's had more time to "deal" with it all. We're both looking forward to getting off the train by now. I'll go ahead and post this, hope it comes through. Too bad I won't be able to share what's next.
+Jack is still awake. We're going to the same place so I guess I'll just keep talking to him. He's very understanding, actually. He's just been on the train longer, so he's had more time to "deal" with it all. We're both looking forward to getting off the train by now.
+
+___
+
+*10 a.m.* This is gonna be really hard to explain. Seven hours ago, I woke up in a hospital room. Some guy t-boned my car and apparently, things were looking dire for me. I was unresponsive; in fact, the medical staff thought I was gone for good. 
+
+Here's the thing—I found these notes on my phone. The stuff I shared up above. I swear, I don't remember any of this shit. My mom only just got notified of my accident, and she's on her way here. I already went through our chat history, and the texts and voicemails I've been describing... they're there, it's all there. It was all written while I was out cold, doctors fighting for my life. There should have been no way for these notes to come into existence. I can't fucking believe it. I don't know what to make of this. That is, I do know, but the implications are just too much for me right now. I figured I'd post this. I'm gonna sleep some more now, and wait for my mom to get here. I can't wait to see her.
 
 [X](https://www.reddit.com/r/CrypticPark?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
