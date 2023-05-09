@@ -1,12 +1,16 @@
+Part 1 - Current
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/13ckpmh/im_a_rescue_diver_specialized_in_underwater/) 
+
 *You’re two hundred and forty feet underwater, floating in darkness by the entrance to a deep cave. Before it stands a sign with large block letters and a simple warning: “Stop! Prevent your death, go no further.” Though eerie, you’re an experienced individual with a license as an advanced open water diver, with several trips within caves. You proceed, ready to map out thus far unexplored regions; only a trimix tank and a mouthpiece keeping you from an unpleasant demise.*
 
 *Proceeding within, you are shocked by the overwhelming darkness. You turn on your flashlight, which gives you a good view of the clear waters, but it also creates a bizarre sense of being trapped within the narrow passages.*
 
 *A line has been attached by the entrance, serving as a passive guide into the network before you. The plan is to extend it deeper into the network of caves, but should you lose it, there’s no calling for help, no turning back, no hope. You’ll get trapped, panic, and inevitably drown.*
 
-*Despite this, you keep moving, deeper and deeper into the darkness. You eventually reach the end of the marked path, not even noticing the slight decline leading even further down into the depths of the ocean.* 
+*Despite this, you keep moving, deeper and deeper into the darkness. You eventually reach the end of the marked path, not even noticing the slight decline leading even further down into the depths of the ocean.*
 
-*After thirty minutes in the cave, you check your residual pressure gauge, estimating the time you have left before surfacing becomes an absolute necessity. With your trimix tank and a reserve, you have just over two hours underwater. One third was reserved for the journey downwards into the cave, which happened so far without incident, leaving a generous margin of error. The second third is being spared for the outward trip, with the last third saved as a reserve.* 
+*After thirty minutes in the cave, you check your residual pressure gauge, estimating the time you have left before surfacing becomes an absolute necessity. With your trimix tank and a reserve, you have just over two hours underwater. One third was reserved for the journey downwards into the cave, which happened so far without incident, leaving a generous margin of error. The second third is being spared for the outward trip, with the last third saved as a reserve.*
 
 *Then you glance at your dive computer, which lets you know that the depth has increased to almost three hundred feet. Surprised, but not worried, you attach another point of the line, ensuring an easy trek back to the surface. Below you lie a ground void of all life, just fine dirt and sand dragged in by the current.*
 
