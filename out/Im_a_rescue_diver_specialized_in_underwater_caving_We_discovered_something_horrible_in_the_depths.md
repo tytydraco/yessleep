@@ -130,7 +130,7 @@ We promptly gathered around the four-foot-wide hole in the ground, which extende
 
 “Rick?” David asked, jolting me back to reality. “You ready?”
 
-I nodded, making sure my equipment was firmly secured to my person, before getting ready to attach myself to the harness. A metal tripod stood above the hole, with a wench ready to slowly lower us down into the cave with our diving equipment and bodycams.
+I nodded, making sure my equipment was firmly secured to my person, before getting ready to attach myself to the harness. A metal tripod stood above the hole, with a winch ready to slowly lower us down into the cave with our diving equipment and bodycams.
 
 “I’m going first,” Andrew announced, grappling his harness to the cable.
 
@@ -142,9 +142,9 @@ We locked our eyes, silently battling over control. But he stood firm, patiently
 
 “Go ahead, then,” I said, knowing an argument would do little more than delay the already sensitive mission.
 
-Once Andrew had vanished in the darkness, I followed suit. The wench whirred to life, slowly lowering me into the hole. On the way down, my equipment gently hit the edge of the rocky wall, causing me to squeeze my body tighter around the cable. I took a deep breath, preparing to be swallowed by the ground, the first bout of worry setting in my bones.
+Once Andrew had vanished in the darkness, I followed suit. The winch whirred to life, slowly lowering me into the hole. On the way down, my equipment gently hit the edge of the rocky wall, causing me to squeeze my body tighter around the cable. I took a deep breath, preparing to be swallowed by the ground, the first bout of worry setting in my bones.
 
-Within a minute, I’d been completely engulfed by darkness. I activated my flashlight, inspecting the rocky surroundings that seemed to narrow in around me with each descending foot. Though not a claustrophobic person underwater, the bizarre echoes reverberating through air filled caves sent shivers down my spine. Every whir from the wench and every crumble of rock loudly shooting through the air.
+Within a minute, I’d been completely engulfed by darkness. I activated my flashlight, inspecting the rocky surroundings that seemed to narrow in around me with each descending foot. Though not a claustrophobic person underwater, the bizarre echoes reverberating through air filled caves sent shivers down my spine. Every whir from the winch and every crumble of rock loudly shooting through the air.
 
 Then, as I finally passed the threshold into the chamber, the walls expanded in all directions. I exited the narrow tunnel, to find myself suddenly hanging in an enormous void of complete darkness. Below I heard soft splashing sounds from Andrew moving around in the water, fifty feet below.
 

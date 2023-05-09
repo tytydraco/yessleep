@@ -483,3 +483,7 @@ She smiled at her baby. The baby smiled back.
 &#x200B;
 
 And, cradling each other, they both died.
+
+&#x200B;
+
+[PART 5 HERE](https://www.reddit.com/r/nosleep/comments/13cz05t/i_went_to_this_weird_retreat_part_5/)

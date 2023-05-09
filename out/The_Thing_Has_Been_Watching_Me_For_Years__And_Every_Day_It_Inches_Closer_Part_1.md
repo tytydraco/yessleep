@@ -1,8 +1,8 @@
 My name is Sabrina, I am a twenty five year old female, and well... I can't hide this anymore. I'm finally taking to this website to get some help.
 
-I have a stalking problem... only it's not by a human. 
+I have a stalking problem... only it's not by a human.
 
-Allow me to explain. It all started many years ago, after I had just turned eighteen and graduated high school, I had been invited to a party hosted by my friend, Jessica. 
+Allow me to explain. It all started many years ago, after I had just turned eighteen and graduated high school, I had been invited to a party hosted by my friend, Jessica.
 
 I had nothing to do with my time at that point, so why not? I had entered the party and been greeted with the usual scene of a high school party, loud music blasting throughout the speakers with people dancing, chatting, having too much to drink.
 
@@ -10,15 +10,15 @@ I met up with Jessica and as the night had gone on, I myself had gotten involved
 
 That was when I saw *it* for the first time.
 
-It had only been a flash, but I could recall it standing outside, staring me dead in the eyes. I didn't get a good view, but all I knew was that it was big and furry. 
+It had only been a flash, but I could recall it standing outside, staring me dead in the eyes. I didn't get a good view, but all I knew was that it was big and furry.
 
-I paid no attention to it, assuming I had just gotten too much to drink (which, to be fair, I had.), and continued to party the night away, ignoring the beast that would soon become part of my future. 
+I paid no attention to it, assuming I had just gotten too much to drink (which, to be fair, I had.), and continued to party the night away, ignoring the beast that would soon become part of my future.
 
 &#x200B;
 
 The next time I saw it was only a few days later.
 
-I was helping my boss, Max, set up dresses to be viewed in the display case, the whole time we had started a round of playful teasing. 
+I was helping my boss, Max, set up dresses to be viewed in the display case, the whole time we had started a round of playful teasing.
 
 "What do you plan on doing this weekend?" Max asked, eyeing me.
 
@@ -26,7 +26,7 @@ I was helping my boss, Max, set up dresses to be viewed in the display case, the
 
 "Oh, so soon? It's only been a week since you graduated"
 
-While we were talking, I got distracted and continued to set up the dresses, all the while looking at the passerbys. 
+While we were talking, I got distracted and continued to set up the dresses, all the while looking at the passerbys.
 
 "Yeah, better earlier than later."
 
@@ -40,15 +40,15 @@ I looked through the display case, seeing the beast, only now I could see it mor
 
 The weirdest part, was how the people outside were reacting.
 
-They were simply walking by, ignoring the dog. 
+They were simply walking by, ignoring the dog.
 
-"Sabrina?" Max asked, tapping my shoulder. I turned toward him, startled. 
+"Sabrina?" Max asked, tapping my shoulder. I turned toward him, startled.
 
 "Are you okay?" Max pondered.
 
 "Do... do you not see the huge dog outside?" I asked, pointing as the grey dog.
 
-"...What are you talking about?" Max asked, trying to follow my line of sight. 
+"...What are you talking about?" Max asked, trying to follow my line of sight.
 
 "The huge, grey dog?" I repeated, confused.
 
@@ -60,7 +60,7 @@ I was just silent, staring down the dog, it's beady eyes connected with mine.
 
 "Maybe you should go home, I think your catching something." Max said with a sigh.
 
-While I wasn't feeling sick, I assumed I possibly could be undergoing something, so I nodded, and with a goodbye, left the store, crossing through the mall. I looked behind me, and saw the dog was now out of my line-of-sight. 
+While I wasn't feeling sick, I assumed I possibly could be undergoing something, so I nodded, and with a goodbye, left the store, crossing through the mall. I looked behind me, and saw the dog was now out of my line-of-sight.
 
 I tried to not panic, my mind crossing the fact that it might've been just a furry wearing an extremely life-like dog suit.
 
@@ -76,7 +76,7 @@ All of this reached a peak last night, which is what really inspired me to write
 
 It was around 11 PM and I had just been finished with watching Netflix, and I had went to go take a shower and prepare to go to bed.
 
-The rain tapped as I walked up the stairs, and faced the dark bathroom... It was only until I neared closer that I started to get chills. 
+The rain tapped as I walked up the stairs, and faced the dark bathroom... It was only until I neared closer that I started to get chills.
 
 Unexplainable, cold chills ran through my body, as if telling me to run the other direction, go back downstairs, leave the house, never go back.
 
@@ -84,7 +84,7 @@ I inched closer to the bathroom... and that was when I saw it again.
 
 A few feet away, the dog, bulky and big as ever, was standing directly in the bathroom, it's big spiky ears leaning over the doorway, it's paws holding the doorframe, as if to steady itself. The glowing red pinpricks staring back at me. Something blue was dripping down it's sides and onto the ground.
 
-I stayed silent and still, but my mind was an entirely different story. 
+I stayed silent and still, but my mind was an entirely different story.
 
 *How the fuck did he find out where I lived?*
 
@@ -98,18 +98,12 @@ It was then I called Jessica, explaining the situation. Jessica quickly came to 
 
 I've only been thinking about that dog, too scared to look out any windows or, of course, go to the bathroom.
 
-I've been gaining a stern suspicion that the dog isn't even human, but I'm still unsure. 
+I've been gaining a stern suspicion that the dog isn't even human, but I'm still unsure.
 
-I'm too scared, however, to find out what'll happen once it fully reaches me. So thus, I'm making this cry for help. hoping anybody here gives me any suggestions, or even better, *has* dealt with something like this before. 
+I'm too scared, however, to find out what'll happen once it fully reaches me. So thus, I'm making this cry for help. hoping anybody here gives me any suggestions, or even better, *has* dealt with something like this before.
 
 Meanwhile, I'm gonna try to research this thing and see if I find anything.
 
 Thank you,
 
 Sabrina.
-
-&#x200B;
-
-\--
-
-PART 2: TBA

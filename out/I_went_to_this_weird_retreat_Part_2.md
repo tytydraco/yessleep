@@ -441,3 +441,5 @@ Leaving us to stew over what happened to Seb – the shape of things to come.
 [PART 3 HERE](https://www.reddit.com/r/nosleep/comments/12yqkhw/i_went_to_this_weird_retreat_part_3/)
 
 [PART 4 HERE](https://www.reddit.com/r/nosleep/comments/135u6dn/i_went_to_this_weird_retreat_part_4/)
+
+[PART 5 HERE](https://www.reddit.com/r/nosleep/comments/13cz05t/i_went_to_this_weird_retreat_part_5/)
