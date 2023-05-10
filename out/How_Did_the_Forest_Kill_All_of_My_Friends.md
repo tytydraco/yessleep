@@ -130,7 +130,7 @@ My trembling hands raised the window up and I looked out into the night to see a
 
 The mouth on the face of the tree opened and a familiar voice spoke, laughing, and said two words.  
 
-“It’s [TIME.”](https://youtu.be/m2Kj7ezxSOI  
+“It’s [TIME.”](https://youtu.be/m2Kj7ezxSOI)
 
 [JG](https://www.reddit.com/r/JGcreepypastas?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
