@@ -1,0 +1,17 @@
+I don't know where it went wrong. When my husband(25) and I(26) received news that my last check up had revealed I was pregnant we were ecstatic. We immediattely rushed home to order things for a nursery. We could already imagine ourselves as a perfect little family. When the gender was revealed to be female it was even better as we had always wanted a little girl. When she was born she was crying but stopped as soon as she was placed into my arms. 
+
+She radiated pure sunlight. Everything in the room seemed to blur and I could only focus on her. My Angel. My Angelica. Eventually after feeding her the nurses took her away so I could rest. As I drifted off I could see my husband smiling and crying happy tears. When I woke up though 5 hours later something was wrong. My husband was crying still but not happy tears. These were loud wails. The doctor stood in front of him with a solemn yet saddened look on his face.
+
+The anesthesia hadn't worn off fully and I started moaning and screaming asking what was going on. The nurses had to put me to sleep as I was trying to rip out my iv. Later I would come to learn my baby had unfortunately been a victim of SIDS
+
+When I was cleared and checked out I went home and cried and screamed into my pillow for days. My work was very understanding and gave me even more payed leave days. If I hadn't been wallowing in misery I might have noticed my husband being suspicious. The support of family and freinds eventually helped me recover. A few days later I started going back to work.The week after on tuesday my husband said he would have a suprise for me when I got home. I expected to come home to a nice dinner or maybe a clean house but instead I came home to see my daughter. 
+
+My husband looked at me gleefully as he showed me her. My brain was so wild with thoughts I could hardly hear him talking about how he had her turned into a doll a while ago by some professianals. My eyes welled up with tears and I ran to my room crying. My husband came in to console me. He told me to just try it out. He eventually persuaded me into it. I tried to indulge him. I thought this was how he was dealing  with his grief. i thought he would get over it.
+
+I know it sounds stupid now but I was blinded by sadness. Immediately I hated it. It was so hard to watch as he would pretend to feed it a bottle and tuck it in. I was holding out hope and finding numbers for professional therapists all the while. one day I was off work and my husband wasn't so I was left at home alone. My husband had put it on the kitchen counter to feed it "Breakfast".
+
+I couldn't stand looking at it so I tried tom move it when I touched the thing I shreiked. It wasn't cold or hot but warm. ALIVE warm. My husband got home shortly after and I told him I was tired. I went to our bedroom and thought about what happened. From that point it all started to spiral downwards. A few days later my husband said "Look our baby's taking her first steps!" I looked over with gritted teeth and I could have swore I saw the doll move it's leg. 
+
+Another time I woke up in the middle of the night to what sounded like a baby crying only for it to stop seconds later. Even weirder  I've seen my husband whispering to the doll, at night and when he thinks i don't see him. I think i'm going insane. I don't know what to do! Who should I even talk to about this?!  All I know is I don't even wanna look at it!
+
+It's a terrifying and depressing reminder of what we could have had...
