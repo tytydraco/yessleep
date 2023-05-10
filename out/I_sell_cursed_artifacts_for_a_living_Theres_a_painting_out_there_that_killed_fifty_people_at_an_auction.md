@@ -237,3 +237,6 @@ I handed her a stack of cash. “I know you can’t say no to ice cream.”
 “Let’s.” Aster and I walked out, gathered the team and walked out into the night. 
 
 Another day, done. Another mission, complete. Perhaps the artifact would resurface- but perhaps another day, another time. Now, it was time to celebrate- for the fleeting moments of life were the ones we always took for granted.
+
+
+[Issue #2](https://www.reddit.com/r/nosleep/comments/13de659/i_sell_cursed_artifacts_for_a_living_this_is_the/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
