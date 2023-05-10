@@ -243,7 +243,7 @@ Reality started to settle in once I managed to pry my eyes open, finding myself 
 
 “Huh?”
 
-I gingerly stroked the back of my head, my gaze flicking from the boy’s unamused face to the crumbling ceiling. Tunnels, I thought dizzily. These must have been the tunnels underneath the fake town. When I sat up slowly, my vision began to clear. Felix was still in the bloody hospital gown he had been in when seen him, the exact same trickle of red staining running from his nose. The boy sighed. “There was a ladder,” he said. “You could have used it, y’know. Instead of almost giving yourself a concussion.” He waved his hands in front of my face. How many fingers am I holding up?”
+I gingerly stroked the back of my head, my gaze flicking from the boy’s unamused face to the crumbling ceiling. Tunnels, I thought dizzily. These must have been the tunnels underneath the fake town. When I sat up slowly, my vision began to clear. Felix was still in the bloody hospital gown he had been in when I last saw him, the exact same trickle of red staining running from his nose. The boy sighed. “There was a ladder,” he said. “You could have used it, y’know. Instead of almost giving yourself a concussion.” He waved his hands in front of my face. How many fingers am I holding up?”
 
 I shooed his hands away, reaching out for him to help me up. Though to my surprise, he stumbled back, pulling a face. “It’s probably better if you help yourself up.” His eyes darkened, his lips curving into a smile.
 
@@ -257,7 +257,7 @@ I joined him, drinking in my surroundings. “Where are we?” I squinted into t
 
 I didn’t see the boy started to walk forwards, only a slight shadow disappearing down the tunnel, his voice ricocheting off of the walls.
 
-“We’re on the outskirts,” he said. “These tunnels are sometimes used for performers to get where they need to be,” he paused. “You know, like at the Disneyland. I’m not completely clued into these tunnels. I just know Sim told me about them.”
+“We’re on the outskirts,” he said. “These tunnels are sometimes used for performers to get where they need to be,” he paused. “You know, like at Disneyland. I’m not completely clued into these tunnels. I just know Sim told me about them.”
 
 I struggled to keep up with him, watching his silhouette blur in and out of existence. “Right. And… do you have a plan?”
 
@@ -309,7 +309,7 @@ The boy sighed. “Both of them. When they put his memories inside your head, he
 
 His words sent something slimy creeping up my throat, and as if realizing he’d said the wrong thing, Felix’s tone softened. “You need to hurry up. I don’t mean to push you, but I don’t have much time. It’s a ticking clock, and Annalise and I are their best assets.”
 
-“But…” I struggled to swallow my words, though they were suffocating my mouth. I had to know. If this version of him existed, an entanglement of both Kaz and Felix, there was a possibility that his mind wasn’t gone, and Kaz was still buried in there.”
+“But…” I struggled to swallow my words, though they were suffocating my mouth. I had to know. If this version of him existed, an entanglement of both Kaz and Felix, there was a possibility that his mind wasn’t gone, and Kaz was still buried in there.
 
 Annoyingly, my subconscious mind with Kaz’s voice could read me like a book.
 
@@ -357,7 +357,7 @@ He cried out suddenly, a gut wrenching screech which almost sent me to my knees.
 
 “Fuck!”
 
-His whimper collapsed into a sob, and I found myself spiralling like him, drowning in a sudden darkness seeping into him, worse than the screen of red which had contorted his mind. Worse than the rods stirring his brain into mush. This was merciless torture taking hold of him. His cries continued drowning my thoughts, morphing into childish wails. “Please! There’s something.. something in my head!”
+His whimper collapsed into a sob, and I found myself spiralling like him, drowning in a sudden darkness seeping into him, worse than the screen of red which had contorted his mind. Worse than the rods stirring his brain into mush. This was merciless torture taking hold of him. His cries continued drowning my thoughts, morphing into childish wails. “Please! There’s something... something in my head!”
 
 “Elle.”
 
