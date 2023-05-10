@@ -1,6 +1,8 @@
 Part 1 - Current
 
-[Part 2](https://www.reddit.com/r/nosleep/comments/13ckpmh/im_a_rescue_diver_specialized_in_underwater/) 
+[Part 2](https://www.reddit.com/r/nosleep/comments/13ckpmh/im_a_rescue_diver_specialized_in_underwater/)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/13dpdmy/im_a_rescue_diver_specialized_in_underwater/) 
 
 *You’re two hundred and forty feet underwater, floating in darkness by the entrance to a deep cave. Before it stands a sign with large block letters and a simple warning: “Stop! Prevent your death, go no further.” Though eerie, you’re an experienced individual with a license as an advanced open water diver, with several trips within caves. You proceed, ready to map out thus far unexplored regions; only a trimix tank and a mouthpiece keeping you from an unpleasant demise.*
 
