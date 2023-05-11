@@ -38,7 +38,7 @@ A squishing sound from the dining room interrupted me. I twisted my head to the 
   
 
   
-“I just need somebody to pay,” I quivered, standing in the dining room.
+“I just need somebody to pay,” I whispered, quivering in the dining room.
   
 
   
