@@ -1,4 +1,3 @@
-
 [Part Eight](https://redd.it/12l89m6)
 
 **** 
@@ -118,3 +117,7 @@ Holliman raised an eyebrow at me.  “Take you to what?  You want to get somethi
 He puffed out a long breath as his face grew red.  “Clint, now is not the time or the place for this conversa…”  His words trailed off as he saw me pull the Sheriff’s revolver from my jacket pocket.
 
 [“I’m not asking this time, Gordon.  You’re taking me there.  Now.”](https://redd.it/10h9jfw)
+
+**** 
+
+[Part Ten](https://redd.it/13f18bu)
