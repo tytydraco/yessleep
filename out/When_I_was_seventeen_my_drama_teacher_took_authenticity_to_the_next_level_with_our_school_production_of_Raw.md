@@ -248,7 +248,7 @@ He sat down with a grin. “Cool! In that case, I’ll take the role of Ben.”
 
 The rest of us found out our parts a week later, when they were posted on the notice board in comic sans.
 
-HARTLEY HIGH SCHOOL PRESENTS: “WILD”
+HARTLEY HIGH SCHOOL PRESENTS: “RAW”
 
 Performers as follows:
 
