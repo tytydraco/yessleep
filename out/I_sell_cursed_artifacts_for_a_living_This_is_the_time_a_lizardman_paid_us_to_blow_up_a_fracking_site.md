@@ -245,3 +245,5 @@ But today was not that day. Today was just another day as the middleman. Such we
 &#x200B;
 
 [Issue #1](https://www.reddit.com/r/nosleep/comments/13cci6c/i_sell_cursed_artifacts_for_a_living_theres_a/)
+
+[Issue #3](https://www.reddit.com/r/nosleep/comments/13eb7ri/i_sell_cursed_artifacts_for_a_living_i_found_out/)

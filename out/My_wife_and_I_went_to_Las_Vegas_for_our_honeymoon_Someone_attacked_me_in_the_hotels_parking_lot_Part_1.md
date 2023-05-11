@@ -71,3 +71,5 @@ We approached the check in desk again, the man standing behind it looking up and
 A smile, almost wider than I’ve ever seen someone give, crossed the man’s face. He held out both of his arms. “Then, my dear, I bid congratulations to you, and your lucky husband!” He gestured all around him.
 
 “And I bid you both welcome! Welcome, to The Dunes Hotel and Casino!”
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/13ebgad/my_wife_and_i_went_to_las_vegas_for_our_honeymoon/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
