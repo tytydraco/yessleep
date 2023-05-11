@@ -412,7 +412,7 @@ The prop was in front of us, and it was the final scene. There was supposed to b
 
 The others dropped down beside me, and I was aware of the whimper which suddenly escaped Wylan's lips, before I dragged him down with me, forcing fake flesh into his mouth. Noah and Alyssa followed suit. I was aware I was moaning. Loudly. I ripped and pulled and tore at the prop until  I could see pearly white. 
 
-I started giggling. There was no laughing in the script, but I laughed, warm red messing my mouth and chin. And when the audience were clapping, and I was getting to my feet, dizzy, grasping the others’ hand, and bowing—I couldn’t stop smiling. I bowed again, while red seeped across the stage. It was running down my shirt and dripping down my chin. Someone in the audience screamed suddenly.
+I started giggling. There was no laughing in the script, but I laughed, warm red sliding down my mouth and chin. And when the audience were clapping, and I was getting to my feet, dizzy, grasping the others’ hand, and bowing—I couldn’t stop smiling. I bowed again, while red seeped across the stage. It was running down my shirt and dripping down my face. Someone in the audience screamed suddenly.
 
 Alyssa’s mother standing in the front fainted.
 
