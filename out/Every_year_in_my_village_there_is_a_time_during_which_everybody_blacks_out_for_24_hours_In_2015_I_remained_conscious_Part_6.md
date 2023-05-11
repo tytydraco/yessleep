@@ -99,3 +99,5 @@ Unlike what I expected, the potion tasted good, almost like pineapple juice. Edl
 "No, this for disguise only. It can last for two days straight." She revealed, ravishing me with the genuine smile of her real appearance in the reflective surfaces.
 
 While getting ready to depart, I wore Edlynn's backpack after hiding my salt weapons inside, then we waited indoors to avoid unnecessary exposure. Slowly replaced by the fear of the unknown, the assurance I built up earlier started to fade as noon and new threats loomed. At around 10:30 am, we stepped outside to what looked like a beautiful day trying to hide an ugly reality that I, particularly, had the task to correct. Therefore, Edlynn and I made our first steps toward the north.
+
+[Part 7](https://www.reddit.com/r/nosleep/comments/13ewk96/every_year_in_my_village_there_is_a_time_during/)

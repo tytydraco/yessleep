@@ -1,8 +1,8 @@
-Yesterday, I was driving my car to my home after a bad day at work. My boss basically humiliated me in front of all of my coworkers because of something I did when I was 12 years old (It’s not relevant to the story). And that’s not all: After everyone at the office laughed at me, I got angry and went to the bathroom. When I entered the bathroom, I didn’t notice the “WET FLOOR” sign and I slipped and hurt my butt. Thankfully, nobody else saw me, but it was painful to seat on my chair for the next 2 hours. What a sh\*t Friday.  
+Yesterday, I was driving my car to my home after a bad day at work. My boss basically humiliated me in front of all of my coworkers because of something I did when I was 12 years old (It’s not relevant to the story). And that’s not all: After everyone at the office laughed at me, I got angry and went to the bathroom. When I entered the bathroom, I didn’t notice the “WET FLOOR” sign and I slipped and hurt my butt. Thankfully, nobody else saw me, but it was painful to seat on my chair for the next 2 hours. What a sh*t Friday.  
   
 When I got home, I relaxed knowing that nothing could go wrong with my family. I was wrong.  
   
-I opened the door with my keys, and my daughter Lana came running from her bedroom. I thought she came to hug me, but instead she asked where was mom. I got annoyed by it, but the truth is that I didn’t knew either.   
+I opened the door with my keys, and my daughter Lana came running from her bedroom. I thought she came to hug me, but instead she asked where was mom. I got annoyed by it, but the truth is that I didn’t know either.   
   
 I asked Lana why she couldn’t find mom if she was supposed to watch over her when I was at work, just like every other day. She responded me with: “I haven’t seen her since I woke up today”. Suddenly, I felt something weird in my stomach, I could feel something wasn’t right. Lana told me she thought she went to work with me that day or something like that.  
   
@@ -47,10 +47,10 @@ Then, out of desperation, I called my mother. I took a deep breath and prepared 
 
 I ended the call.
 
-I confirmed my suspicions. I travelled to the past. I don’t know how. I don’t know why. I just know that I hate it. Now that I pay more attention, in my phone it says that we are in 2023. My body feels a little bit smaller. The scar in my arm disappeared . This is f*cking insane.  
+I confirmed my suspicions. I travelled to the past. I don’t know how. I don’t know why. I just know that I hate it. Now that I pay more attention, in my phone it says that we are in 2023. My body feels a little bit smaller. The scar in my arm disappeared. This is f*cking insane.  
   
 All the memories that I had with Lana. They technically don’t exist anymore. I’m in a separate reality, one that I have already experienced 10 years ago. I will have to live this sh\*t again. I don’t even know if this can happen again in the future. Or in the past? I don’t even know anymore; this is so confusing. I am now afraid to fall asleep.  
   
-I am losing my mind. This feels like a f\*cking movie. I don’t even know if I will have Lana now. Am I the only person in the world that remembers Lana? Her beautiful smile… Her black and long hair…  
+I am losing my mind. This feels like a f*cking movie. I don’t even know if I will have Lana now. Am I the only person in the world that remembers Lana? Her beautiful smile… Her black and long hair…  
   
 She is now only part of my memory.
