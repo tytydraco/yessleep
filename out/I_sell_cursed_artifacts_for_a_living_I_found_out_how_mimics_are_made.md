@@ -244,7 +244,7 @@ Still nothing on Matt’s end. “What is it?!”
 
 “It says here,” Steven began, “that after taking control they would replace the person entirely- and become a true mimic.”
 
-I sighed in relief, and then shouted into the radio. “Steven? We’re good, meet us back in here with a glass of elixir for Aster.”
+I sighed in relief, and then shouted into the radio. “Matt? We’re good, meet us back in here with a glass of elixir for Aster.”
 
 There was a long static pause, but Steven answered a moment later. “All right, I’ll be right down there.”
 

@@ -30,7 +30,7 @@ There was nothing binding my hands or holding me down, but I felt like there was
 
 Just like with my body, my lips felt wrong, the words more mental than physical. In front of me I noticed the other passengers moving in sharp flashes; one of them lunged from their seat in what looked like panic before I blinked, and they were back where they were originally sitting. Like I wasn’t supposed to see it. “Attempt three.” The mechanical voice said.
 
-“Now proceeding with Protocol 45ZE. Welcome, Kiera! Allow me to introduce myself! My name is Allison. I am your personal nurse. I am part of the Fix Me program, a (beta) procedure introduced to heal sick minds who have been through a great deal of trauma by being inserted into the hippocampus. I am simply here to help you, Kiera. With my help you will be able to revisit the blackened parts of yourself where I will place a protective filter.” 
+“Now proceeding with Protocol 45ZE. Welcome, Kiera! Allow me to introduce myself! My name is Allison. I am your personal nurse. I am part of the Fix Me program, a (beta) procedure introduced to heal sick minds who have been through a great deal of trauma by being inserted into the hippocampus. I am simply here to help you, Kiera. With my help you will be able to revisit the polluted parts of yourself where I will place a protective filter.” 
 
 Her words weren’t making sense, and with them, I started to panic again. And this time something happened. In a world where nothing happened, a bus on a winding path into nowhere—it was enough to send shivers creeping down my spine. I noticed it automatically. Outside, the sky darkened slightly. Just enough for me to notice.
 
@@ -368,7 +368,7 @@ Yep. Definitely plastic.
 
 Mrs Beck sighed. “It’s jackfruit, Noah. Commonly used to resemble human body parts. It’s perfectly fine for human consumption. There’s chicken, too.”
 
-Wylan let out a choked laugh, poking at the prop corpse’s face. “Mmmm!” He mocked, shooting me a smirk. “Don’t you just dry chicken strips covered in food coloring.” He swiped his fingers on the front of his sweater. “Better than a McDonald’s.”
+Wylan let out a choked laugh, poking at the prop corpse’s face. “Mmmm!” He mocked, shooting me a smirk. “Don’t you just love dry chicken strips covered in food coloring?” He swiped his fingers on the front of his sweater. “Better than a McDonald’s.”
 
 Thankfully, the prop was taken away, and we did one last dress rehearsal. It went as well as you would think. Mrs Beck’s idea to let us have soda and pizza backfired. I fucked up my lines, almost giving Mrs Beck a coronary, Wylan fell off the stage twice and miraculously didn’t break anything, and Lyssa and Noah were found backstage having sex when they were supposed to be, you know… playing their parts. Two critical members screwing, while the rest of us were slowly going crazy from the amount of times we had to run through the play. I don’t think that was a side effect of soda and pizza of Alyssa and Noah hooking up. The two of them had been drowning in sexual tension for a while, it was painful, so it wasn’t really surprising.
 
