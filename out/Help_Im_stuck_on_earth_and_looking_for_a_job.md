@@ -55,3 +55,5 @@ I really don’t want to have to fall back on Nettie. She’s obviously offered 
 That’s why I’ve decided to post here to fish for ideas. Is there anything you guys think I could do? Any particular place I should look? I do have some talents I suppose might be useful, but most of them have been perceived as unnerving in the past. I’m always a bit on the fence about startling people and I’d appreciate any and all input. If any of you happen to be inhuman as well, I would be happy to chat. It would be nice to feel a little more connected. 
 
 [X](https://www.reddit.com/r/CrypticPark?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[2: deadbeat roommate](https://www.reddit.com/r/nosleep/comments/13eovqy/im_stuck_on_earth_and_looking_for_a_job_also_i/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)

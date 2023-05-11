@@ -1,4 +1,4 @@
-Yesterday, I was driving my car to my home after a bad day at work. My boss basically humiliated me in front of all of my coworkers because of some something I did when I was 12 years old (It’s not relevant to the story). And that’s not all: After everyone at the office laughed at me, I got angry and went to the bathroom. When I entered the bathroom, I didn’t notice the “WET FLOOR” sign and I slipped and hurt my butt. Thankfully, nobody else saw me, but it was painful to seat on my chair for the next 2 hours. What a sh\*t Friday.  
+Yesterday, I was driving my car to my home after a bad day at work. My boss basically humiliated me in front of all of my coworkers because of something I did when I was 12 years old (It’s not relevant to the story). And that’s not all: After everyone at the office laughed at me, I got angry and went to the bathroom. When I entered the bathroom, I didn’t notice the “WET FLOOR” sign and I slipped and hurt my butt. Thankfully, nobody else saw me, but it was painful to seat on my chair for the next 2 hours. What a sh\*t Friday.  
   
 When I got home, I relaxed knowing that nothing could go wrong with my family. I was wrong.  
   
@@ -24,7 +24,7 @@ I fell asleep, even with all the stress that I had. I know that I should’ve st
   
 Today, it is Saturday, and I woke up at 1:00 p.m. I was feeling alright but I was still sad and confused about yesterday’s situation.  
   
-After I got of bed, I went downstairs to see where was Lana or the policemen. I could here someone in the kitchen. At first, I supposed it was Lana making herself a meal after she saw me asleep in the couch upstairs. When I entered the room, I couldn’t believe my eyes.  
+After I got out of bed, I went downstairs to see where was Lana or the policemen. I could here someone in the kitchen. At first, I supposed it was Lana making herself a meal after she saw me asleep in the couch upstairs. When I entered the room, I couldn’t believe my eyes.  
   
 It was my wife! Making some sandwiches! I was astonished. I hugged her (almost crying) and asked her where was she yesterday. She seemed a little bit confused. She told me that she went to work at 7:00 p.m. yesterday and stayed in the hospital until 4:00 a.m. of today. She then told me that she supposed that I already knew that because she told me she was going to work for a little longer on Friday.  
   
@@ -43,11 +43,11 @@ Then, out of desperation, I called my mother. I took a deep breath and prepared 
   
 “Hi mom, do you remember when the quarantine started?”
 
- "The Coronavirus one? Yeah, I think it was March of 2020. Now that I think of it, wow! Already three years! Time flies, hehe. Anyway why do you need to know that son?
+ "The Coronavirus one? Yeah, I think it was March of 2020. Now that I think of it, wow! Already three years! Time flies, hehe. Anyway why do you need to know that son?"
 
 I ended the call.
 
-I confirmed my suspicions. I travelled to the past. I don’t know how. I don’t know why. I just know that I hate it. Now that I pay more attention, in my phone it says that we are in 2023. Nobody else knows. This is f\*cking insane.  
+I confirmed my suspicions. I travelled to the past. I don’t know how. I don’t know why. I just know that I hate it. Now that I pay more attention, in my phone it says that we are in 2023. My body feels a little bit smaller. The scar in my arm disappeared . This is f*cking insane.  
   
 All the memories that I had with Lana. They technically don’t exist anymore. I’m in a separate reality, one that I have already experienced 10 years ago. I will have to live this sh\*t again. I don’t even know if this can happen again in the future. Or in the past? I don’t even know anymore; this is so confusing. I am now afraid to fall asleep.  
   
