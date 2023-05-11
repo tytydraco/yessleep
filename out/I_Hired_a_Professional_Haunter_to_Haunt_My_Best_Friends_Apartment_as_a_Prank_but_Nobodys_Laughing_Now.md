@@ -284,7 +284,7 @@ Caden’s gone now. I don’t know what that means. And I don’t want to find o
 
 My greatest prank proved to be too good - I guess I had “won” our lifelong war. Caden wouldn’t be getting me back, ever. Him and his dumbshit haircut were somewhere else.
 
-There wasn’t much time to ruminate and on my lost friendship though. 
+There wasn’t much time to ruminate and reflect on my lost friendship though. 
 
 That very same night, I heard it. The dry, decayed laugh next to my ear. The feeling of *something* occupying an empty space.
 

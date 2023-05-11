@@ -111,3 +111,5 @@ The source of the cough was the head.  I could recognize that it was the face of
 [x](https://www.reddit.com/r/Wine_Dark_Sea_1239/)
 
 [\[Part 5\]](https://www.reddit.com/r/nosleep/comments/130uef3/i_dug_up_a_time_capsule_and_we_are_all_paying_for/)
+
+[\[Part 6\]](https://www.reddit.com/r/nosleep/comments/13evy7f/i_dug_up_a_time_capsule_and_this_is_my_inheritance/) 

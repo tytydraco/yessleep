@@ -78,7 +78,7 @@ He removed the knife and gripped it in his hand, approaching his sleeping victim
 
 It was an iron horseshoe, unmarked and unused. Richard fingered it with curiosity and slid it into his coat pocket.
 
-*I had finally removed the parasites from my family’s accounts, but the damage was too severe. I still could not find employment. Elizabeth was still out of my reach. I was still a poor cripple who could barely keep a maid. But the horseshoe had awakened something from my memory, old wives’ tales the cook and scullery maids used to whisper to me as a child deep in the country.* 
+*I had finally removed the parasites from my family’s accounts, but the damage was too severe. I still could not find employment. Elizabeth was still out of my reach. I was still a poor cripple who could barely keep a maid. But the horseshoe had awakened something from my memory, old wives’ tales the cook and scullery maids used to whisper to me as a child deep in the country.*
 
 *Tales of cunning men who had bargained for their heart’s desire with the king under the barrows.*
 
@@ -90,7 +90,7 @@ The face was handsome and cruel, its features pointed and elegant. He wore a gra
 
 “I would rather you not cause a disturbance, Mr. Catesby,” he said, his voice cutting through me like ice.
 
-“How do you know my name?” Richard asked. He removed the horseshoe from his coat pocket. 
+“How do you know my name?” Richard asked. He removed the horseshoe from his coat pocket.
 
 The fae frowned.
 
@@ -200,9 +200,9 @@ I took a ragged breath, my body still shaking with fury, heart heavy with sorrow
 
 The rumbling only increased as the entire wall sprouted more and more of them, vines whipping out at me.  Some cried out with the terrible moan of the tongueless, others still capable of words begged me.
 
-“Please, please end it,” they rasped.  
+“Please, please end it,” they rasped.
 
-I began to run.  The corridor seemed endless, vines desperately trying to entangle me, only just failing, until one managed to find my ankle.  My body fell to the ground in a shock of pain as it dragged me towards it.  
+I began to run.  The corridor seemed endless, vines desperately trying to entangle me, only just failing, until one managed to find my ankle.  My body fell to the ground in a shock of pain as it dragged me towards it.
 
 I grabbed the vine and freed my ankle.  I stood and my eyes met the rotting holes of the corpse bound to the wall.  It had no mouth or tongue to form words.  A thin layer of skin remained on the face, pockmarked by plant growth.  A vine lashed out and wrapped itself around my neck.  I thrust out my hands, touching the remaining flesh, which shriveled underneath my fingers.  The thing convulsed and, as with Richard, the plant life tore apart the remaining pieces of human inside.  The vine at my neck dropped.
 
@@ -211,3 +211,5 @@ From behind, I heard polite clapping. I turned around to find the King of the Fa
 “Now, if you have had your fill of amusement, you and I are long due for a chat, my son.”
 
 [x](https://www.reddit.com/r/Wine_Dark_Sea_1239/)
+
+[\[Part 6\]](https://www.reddit.com/r/nosleep/comments/13evy7f/i_dug_up_a_time_capsule_and_this_is_my_inheritance/) 
