@@ -132,7 +132,7 @@ We nodded.
   
 “*Good*. But I think you need to be reminded of your actions against True Love. Against us. Fred?”  
   
-Luna’s dad stepped forward, and in his hand was a rope tied over itself to resemble a collar. He put it around Allison’s neck, and tightened it until Allison’s breath came out in sore puffs.  
+Luna’s dad stepped forward, and in his hand was a rope tied over itself to resemble a collar. He put it around Luna’s neck, and tightened it until her breath came out in sore puffs.  
   
 “Put your head under the bed,” he said.   
   
