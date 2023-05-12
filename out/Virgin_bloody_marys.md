@@ -1,6 +1,6 @@
 
 
-Working at a dove bar has its perks. I work at one where I pretty much the entire place, along side our cook, Sue Ellen. She makes all your typical bar foods and I serve drinks. The owner rarely comes in because he knows we’ve got it under control and we’re always turning profit. 
+Working at a dive bar has its perks. I work at one where I pretty much the entire place, along side our cook, Sue Ellen. She makes all your typical bar foods and I serve drinks. The owner rarely comes in because he knows we’ve got it under control and we’re always turning profit. 
 
 We are almost an “all rules go” kinda bar. Don’t be a jerk and take it outside is basically our only two rules. We’ve had dunk tanks outside, dancing competitions, and all kinds of live music. People will park a good three blocks away to come pack out our small 900 sq ft building. 
 

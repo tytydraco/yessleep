@@ -86,7 +86,7 @@ He smiles.
 
 “And uh, that’s the other thing. We’re not going fishing.”
 
-The guys are surprised.
+The guys are surprised. 
 
 “I’m sorry. I lied to you. I need your help. One last time.”
 
@@ -116,7 +116,7 @@ John cuts his wrist.
 
 “What the fuck man,” Mike whimpers. “I did not sign up for witchcraft.”
 
-John smiles and slams his hand against the tree.
+John smiles and slams his hand against the tree. The sap turns thick and red. The sight of it dripping down the bark makes my stomach turn. 
 
 “He signs his spirit over to the lake. That way there is nothing left for Satan to take. He gives his body to the leaves. That way there’s nothing for the demons to eat. He gives his blood to the trees…”
 
@@ -138,19 +138,17 @@ Danny appears out of the distance. He’s dragging something through the reeds.
 
 “The water grows restless with its new inhabitants. Waves of white froth back and forth. A whirlpool forms at the center. The boat is trapped in it but so are the beasts. Demons and titans and the Devil himself are caught up in the awful churning and chucking and turning. The lake opens up. Creatures cling to the edge. The wicked screams of furious spirits echo for miles. But it’s no use. Mother Nature unhooks her jaw and swallows the poisonous lot whole.”
 
-John smiles.
+John smiles. 
 
 “Hell and all of its acolytes sink back to the underworld.”
 
-He looks at me.
+He looks at me. 
 
 “And now it’s gone quiet. The sky opens up. Buckets of rain pour forth and replenish the creeks and streams. Flames extinguish as fallen trees disappear underneath the breach. The soldiers stand up. One of them starts to laugh. Another begins to cry. Aching wounds are made mended. Cut legs are turned whole. The four run up the coast and shout with the unbridled joy of madmen given a second chance at life.”
 
 John sighs. 
 
 “But amidst the celebration, the blue canoe drifts lazily back to shore. The group looks into the bottom and sees it’s empty. The soldiers take this to mean that their friend is damned. He’s paid the ultimate price. They pack up in a solemn silence. They start to leave. But on their way out of the valley, a funny thing happens.”
-
-John smiles.
 
 “They pass by a tree. This tree. In the bark is written a message. A pact with the water. A promise to the leaves. The soldiers realize then that this death is a beautiful thing. A wondrous thing. A trick between two ancient powers. A choice to remain here, in the valley, forever. Outside of the Devil’s reach.”
 
@@ -162,7 +160,7 @@ John pulls out a pistol.
 
 “That no matter how they die. No matter *when* they die. They will all return to the lake. One last time. To join it.”
 
-He loads one round. He looks at each of us.
+He loads one round. He looks at each of us. My skin is crawling. I’m not ready.
 
 “Now. Do you know what I want you to do?”
 
@@ -178,11 +176,11 @@ An excited voice shouts out in the distance.
 
 Then he starts to scream.
 
-The lake begins to boil. It burns so quickly that the shoreline evaporates. Lightning cracks in the distance. The night is alive. Shadows race down from the hilltop and rip at the earth with hoofed feet. Their eyes are all rotted. Their teeth are like knives. They’re on us. Razor claws rip up my sweatshirt. Blood bursts from the holes like a sprinkler. I’m suddenly tired. So tired. I can’t open my eyes. I can’t scream.
+The lake begins to boil. It burns so quickly that the shoreline evaporates. Lightning cracks in the distance. The night is alive. Shadows race down from the hilltop and rip at the earth with hoofed feet. Their eyes are all rotted. Their teeth are like knives. They’re on us. Razor claws tear up my sweatshirt. Blood bursts from the holes like a sprinkler. A rush of adrenaline hits and I want to fight. But I’m suddenly tired. I can’t open my eyes. I can’t hear. I don’t want to die. Not yet. Not here.
 
 A single gunshot rings out. 
 
-Then as if somebody turns on the sink faucet, it starts to rain. 
+Then, as if somebody turns on the sink faucet, it starts to rain. 
 
 Water overtakes the banks. The lake fills up like a bathtub. The boat drifts back to shore. Jeff gets up to check. The rest of us don’t need to see. We know. 
 
@@ -190,4 +188,10 @@ It’s empty.
 
 On the way out of the valley we pass by a tree. Our tree. Carved into the wood are five names. Below them is a fresh one. The writing is much easier to read.
 
-“John was here.”
+“**John was here.**”
+
+The contract is sealed now. Our bond is formed in blood. His journey is finished. Ours has just begun. Because one day, at the end of it all, each of us will row into Hell alone. 
+
+I pray the lake buries me and brings me back home.
+
+[fb1](https://firstbreath1.com)
