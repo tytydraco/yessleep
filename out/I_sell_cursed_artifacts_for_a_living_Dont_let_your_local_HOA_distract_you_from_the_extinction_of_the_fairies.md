@@ -290,4 +290,10 @@ And yet as small and insignificant as they were, their survival touched my heart
 
 &#x200B;
 
+[Issue #1](https://www.reddit.com/r/nosleep/comments/13cci6c/i_sell_cursed_artifacts_for_a_living_theres_a/)
+
+[Issue #2](https://www.reddit.com/r/nosleep/comments/13de659/i_sell_cursed_artifacts_for_a_living_this_is_the/)
+
 [Issue #3](https://www.reddit.com/r/nosleep/comments/13eb7ri/i_sell_cursed_artifacts_for_a_living_i_found_out/)
+
+[Issue #4](https://www.reddit.com/r/nosleep/comments/13f8u81/i_sell_cursed_artifacts_for_a_living_dont_let/)
