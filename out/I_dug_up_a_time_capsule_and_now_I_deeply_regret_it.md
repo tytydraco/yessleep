@@ -155,3 +155,5 @@ And I fear things are about to get worse.  Much worse.
 [\[Part 4\]](https://www.reddit.com/r/nosleep/comments/12ugx3m/i_dug_up_a_time_capsule_and_ive_seen_whats_beyond/)
 
 [\[Part 5\]](https://www.reddit.com/r/nosleep/comments/130uef3/i_dug_up_a_time_capsule_and_we_are_all_paying_for/)
+
+[\[Part 6\]](https://www.reddit.com/r/nosleep/comments/13evy7f/i_dug_up_a_time_capsule_and_this_is_my_inheritance/)
