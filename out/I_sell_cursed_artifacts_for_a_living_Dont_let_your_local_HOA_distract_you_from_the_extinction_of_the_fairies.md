@@ -288,6 +288,8 @@ And we watched the small folk upon their city, blissfully ignorant of the outsid
 
 And yet as small and insignificant as they were, their survival touched my heart, and it was then when I truly realized how significant even the smallest things could be.
 
+And though I was scared of the beasts the fairies had summoned, the thought of victory was good enough to assuade me.
+
 &#x200B;
 
 [Issue #1](https://www.reddit.com/r/nosleep/comments/13cci6c/i_sell_cursed_artifacts_for_a_living_theres_a/)
