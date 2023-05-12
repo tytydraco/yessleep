@@ -268,7 +268,7 @@ Steven spoke next. “I’ve lived here all my life, and this park has brought m
 
 The crowd rumbled in both agreement and disagreement. Aster reached beyond the veil, tugging at the very heart of the community.
 
-“Then let us vote!” struck the man with the rosary.
+“Then let us vote!” struck the man with the rosary. "And personally- I have decided to keep the park."
 
 And so we voted. To vote for the both the soul of the community and for the survival of a species. For Steven’s memories. For my conscience. A step forward in a brighter path.
 

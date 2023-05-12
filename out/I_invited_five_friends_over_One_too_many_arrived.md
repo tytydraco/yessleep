@@ -182,7 +182,7 @@ I scrambled along the grass, desperate to get further away. My back was burning,
 
 The house is clearly a loss, but I called the fire department anyway. I didn’t know what else to do. I don’t know what I’ll tell the police when they find the bodies inside. I don’t even know how many they’ll find.
 
-If Angelo got it, whatever it was, then there’ll be at least four bodies. Him, Deena, Christof and the other. Probably five, assuming it got Kay early on. Maybe six, if Martina didn’t make it out.
+If Angelo got it, whatever it was, then there’ll be at least four bodies. Him, Deena, Christof and the other. Probably five, assuming it got Kay early on. Maybe six, if Marina didn’t make it out.
 
 One of them must have, though. I’m not alone out here.
 
