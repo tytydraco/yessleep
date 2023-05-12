@@ -2,7 +2,7 @@
 
 ***These transcripts are being made available to all law enforcement bodies in the region in hopes of gathering evidence to identify or locate the suspect. While not currently investigating the case, the nearest FBI office recommended our department make contact with the Oakland Grove Police Department due to the similarities of a*** [crime committed](https://www.reddit.com/r/nosleep/comments/11zr11j/911_transcript_for_the_teddy_bear_abduction/) ***on 3/13/2023 in their jurisdiction. All pertinent documentation has been forwarded to their department and we await a reply.***
 
-***7:38 PM: Ella Ramirez, a seventeen year old female from Pasadena Creek, contacts PCPD to report being stalked by an unknown person wearing an Easter Bunny costume. An audio recording of this call is available upon completion of a request form at the Pasadena Creek City Hall.***
+***7:24 PM: Ella Ramirez, a seventeen year old female from Pasadena Creek, contacts PCPD to report being stalked by an unknown person wearing an Easter Bunny costume. An audio recording of this call is available upon completion of a request form at the Pasadena Creek City Hall.***
 
 911 Operator: 911. What's your emergency?
 
@@ -36,7 +36,7 @@ Unknown Male: \[*In Background*\] Hey there, honey! You’ve been a bad little b
 
 \[*Loud crunch followed by disconnect tone*\]
 
-***7:24 PM: End Call.***
+***7:38 PM: End Call.***
 
 ***PCPD officers Berry and Denton arrived on the scene behind the Martin 4 Cinema Movie Theater on McGlothlin Avenue. After a brief search of the scene, a smashed iPhone 12 was found behind the corner of a garbage dumpster. There was a small quantity of blood by the phone leading to a set of black tire marks. The blood was tested against samples from the Ramirez home and determined to belong to Ella Ramirez. Pictures of the tire tracks were sent to the crime lab and determined to be a mass-produced tread pattern common to industrial vans. No unique identifiers in the tire tracks were detected.***
 
