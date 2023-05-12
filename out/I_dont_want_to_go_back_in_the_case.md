@@ -42,14 +42,16 @@ I was eventually donated to an occult museum. And that's where I… NO NOT I, IT
 
 And, at long last, today somebody did - a new cleaner, one who wasn't smart enough to read the very clear warning sign on the glass.
 
-When the poor dimwitted Matthew, may his soul find more peace than mine, put the cardigan on, I felt a spark of hope. Maybe this would be the person who could help me escape my prison - the first body I'd had since I'd felt that art collectors unfortunate manservant bubbling to mulch within me, my sleeves flattening and collar sagging for the last time in far too long. When I felt him picking me up I felt a sudden rush of determination. I'd get out of here, go to England, track down Mr. Zarasashael, and…
+When the poor dimwitted Matthew, may his soul find more peace than mine, put the cardigan on, I felt a spark of hope. Maybe this would be the person who could help me escape my prison - the first body I'd had since I'd felt that art collectors unfortunate manservant bubbling to mulch within me, my sleeves flattening and collar sagging for the last time in far too long. When I felt Matthew picking me up today there came a sudden rush of determination. I'd get out of here, go to England, track down Mr. Zarasashael, and…
 
 Again, I was being naïve.
 
-But today, as soon as I gained full control over Matthew's body and I felt the final screams of his burning consciousness ebb away, I knew that it was futile. The possession was too strong - it was always too strong - so instead I've decided to make use of this internet thing - and the knowledge left once Matthew's soul and memories had been forced out of this brain - to tell my story.
+I'd almost forgotten the despair and the helplessness of it, you see. It came back soon enough. As soon as I gained full control over Matthew's body and I felt the final screams of his burning consciousness ebb away, I knew that it was futile. The possession was too strong - it was always too strong . So, instead, I've decided to make use of this internet thing - and the knowledge left once Matthew's soul and memories had been forced out of this brain - to tell my story.
 
 As I type through Matthew's body thanks to him wearing the cardigan, I'm literally watching his hands begin to dissolve. I will never get used to this, the grotesqueness of it. Nor will I ever be able to truly move past the guilt of what borrowing Matthew's body meant his final moments were lik, what I know all my once-hosts went through. It was a fate worse than death, and I was the cause of it. I have possessed dozens of people over the years, and every time, it ends in tragedy.
 
-I am a prisoner in my own creation, and I don't know if I'll ever be free. I imagine I'll be put back in the glass case tomorrow. Hopefully the next few decades will go by a little faster now I know someone out there is aware I still exist. I've had a chance to tell my story to the world for the first time after being silenced by circumstance since 1811.
+I am a prisoner in my own creation, and I don't know if I'll ever be free. I imagine I'll be put back in the glass case tomorrow. Hopefully the next few decades will go by a little faster now I know someone out there is aware I still exist. I've had a chance to tell my story to the world for the first time after being silenced by circumstance since 1811. 
 
-(Sorry Matthew.)
+It's been a good day.
+
+(Sorry Matthew).
