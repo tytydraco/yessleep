@@ -161,3 +161,5 @@ This spells trouble, no doubt. I have enough on my plate already, as the saying 
 [X](https://www.reddit.com/r/CrypticPark?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [1](https://www.reddit.com/r/nosleep/comments/13dr5g0/help_im_stuck_on_earth_and_looking_for_a_job/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[3: creepy crush](https://www.reddit.com/r/nosleep/comments/13fnc4u/stuck_on_earth_and_looking_for_a_job_everyone/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)

@@ -57,3 +57,5 @@ That’s why I’ve decided to post here to fish for ideas. Is there anything yo
 [X](https://www.reddit.com/r/CrypticPark?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [2: deadbeat roommate](https://www.reddit.com/r/nosleep/comments/13eovqy/im_stuck_on_earth_and_looking_for_a_job_also_i/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[3: creepy crush](https://www.reddit.com/r/nosleep/comments/13fnc4u/stuck_on_earth_and_looking_for_a_job_everyone/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
