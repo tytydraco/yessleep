@@ -15,29 +15,33 @@
 
 *Note: each area of the Midnight Mall operates under their own rules and guidelines. Please contact stores individually for a complete list of regulations and opening times.* 
 
-The first time I encountered the Midnight Mall, I hadn’t been looking for it. None of us had even heard of it before. And by us, I mean Mike, Remy, Carter, and me. The Frightful Four. That’s what we had been calling ourselves for years, ever since a pissed off substitute had bestowed the title upon us in the seventh grade. She said the four of us together was a teacher’s worst fear, and although she had obviously meant it as an insult, it was a moniker we tried our best to live up to. While others (mostly conservative, middle-aged Algebra teachers) trembled before us, we aimed to live life to the fullest, never cowering before anything or anyone. In middle school, that meant staying up late playing Five Nights at Freddy’s and watching Nightmare on Elm Street; but as we grew older, we grew more restless, too. Craving adventure, adrenaline, that nighttime feeling…and I guess that’s how we found the Midnight Mall. 
+The first time I encountered the Midnight Mall, I hadn’t been looking for it. None of us had even heard of it before. And by us, I mean Mike, Remy, Carter, and me. The Frightful Four. That’s what we had been calling ourselves for years, ever since a pissed off substitute had bestowed the title upon us in the seventh grade. She said the four of us together was a teacher’s worst fear, and although she had obviously meant it as an insult, it was a moniker we tried our best to live up to. While others (mostly conservative, middle-aged Algebra teachers) trembled before us, we aimed to live life to the fullest, never cowering before anything or anyone. In middle school, that meant staying up late playing Five Nights at Freddy’s and watching Nightmare on Elm Street; but as we grew older, we grew more restless. Craving adventure, adrenaline, that nighttime feeling…and I guess that’s how we found the Midnight Mall. 
 
-Kind of. Not really. Like I said, at the time, we didn’t know it existed. We were only trying to break into the mall. Not to shoplift or vandalize – we just wanted somewhere to hang out without our parents snooping around. And since Carter was working the closing shift at the food court, he had perfect access to the Employees Only back door to sneak us in. Remy had grabbed a half-empty bottle of fruit schnapps from her mom’s stash and Mike had scored a handful of weed gummies, and our plan was to get crossed in the parking lot, wait for Carter to sneak us in, then fuck around the empty halls, dodging the janitors and, I don’t know, probably daring each other to make out with the faceless mannequins or something. 
+Kind of. Not really. Like I said, at the time, we didn’t know it existed. We were trying to break into the mall. Not to shoplift or vandalize – we just wanted somewhere to hang out without our parents snooping around. And since Carter was working the closing shift at the food court, he had perfect access to the Employees Only back door to sneak us in. 
 
-Our lives would have looked a lot different if we had stuck to that plan. Or if we had taken the stairs instead of the elevator. If Mike hadn’t dared Remy to press the ‘Do Not Touch’ button on the elevator. If it hadn’t taken us down, down, down onto a lower level that even Carter had never seen before. If I had listened to the awful feeling in my gut and refused to get out. 
+Remy had grabbed a half-empty bottle of fruit schnapps from her mom’s stash and Mike had scored a handful of weed gummies, and our plan was to get crossed in the parking lot, wait for Carter to sneak us in, then fuck around the empty halls, dodging the janitors and, I don’t know, probably daring each other to make out with the faceless mannequins or something. 
 
-So many ifs, buts and maybes, but none of that matters. What matters is that we were the Frightful Four, ready to take on the world, and when we stepped out of the elevator and saw a plain wooden door next to a set of rules about something called the Midnight Mall, we looked at each other, laughed, and headed inside.
+Our lives would have looked a lot different if we had stuck to that plan.
+
+Or if we had taken the stairs instead of the elevator. If Mike hadn’t dared Remy to press the ‘Do Not Touch’ button on our way up. If it hadn’t taken us down, down, down onto a lower level that even Carter had never seen before. If I had listened to the awful feeling in my gut and refused to get out. 
+
+So many ifs, buts and maybes, but none of that matters. What matters is that we were the Frightful Four, ready to take on the world, and when we stepped out of the elevator and saw a plain wooden door next to a set of rules about something called the Midnight Mall, we looked at each other, laughed, and headed inside. None of us thought it was going to be anything more than a weird prank. 
 
 “What the hell?” 
 
-That’s the first thing Carter said when we walked through the door. And I’m pretty sure all of were thinking the same thing. We had been expecting something cramped and dingy, hidden away in a space where almost nobody could find it. 
+That’s the first thing Carter said when we walked through the door. And I’m pretty sure we were all thinking the same thing. We had been expecting some cramped and dingy storage closet, hidden away in a space where almost nobody could find it. 
 
 Instead, we walked into an exact replica of our mall. 
 
-At least, that’s what it looked like at first. It was as though we had blinked and found ourselves back at the entrance of the first floor. Kiosks, boutiques, the food court up ahead. The layout was a clear copy, and if it weren’t for the hordes of people wandering around and enjoying themselves, I would have thought the elevator had glitched, and we had simply gone in a weird loop back to the first floor. 
+At least, that’s what it looked like. It was as though we had blinked and found ourselves back at the entrance of the first floor. Kiosks, boutiques, the food court up ahead. The layout was a clear copy, and if it weren’t for the hordes of people wandering around and enjoying themselves, I would have thought the elevator had glitched and we had simply gone in a weird loop back to the first floor. 
 
 Again: *if.* 
 
 “I don’t understand,” Remy said. “What just happened? What is this place?” 
 
-“The Midnight Mall,” Mike replied. Out of all of us, he looked the less anxious. “Duh. Didn’t you read the sign?” 
+“The Midnight Mall,” Mike replied, a dopey smile on his face. “Duh. Didn’t you read the sign?” 
 
-“I read it just fine. But that doesn’t explain…this. We were three floors underground.” 
+“I read it just fine. But that doesn’t explain - this. We were three floors underground.” 
 
 “And we still are,” I said. “We have to be.”  
 
@@ -47,13 +51,13 @@ At least, that’s what it looked like at first. It was as though we had blinked
 
 “But where did all these people come from?” Remy pressed. “There were barely any cars in the parking lot.” 
 
-“They probably Ubered,” Mike said. His nose started to scrunch up in the way it always did when he was annoyed. “Or they parked somewhere else so they wouldn’t spill the secret. Probably because this place is a sick find. A sick find that we’re completely ignoring – come on, you saw the sign. The place closes at 3:33. We only have a few hours. Are we really going to spend it arguing about semantics? Us? The Frightful Four?” 
+“They probably Ubered,” Mike said. His nose scrunched up the way it always did when he was annoyed. “Or they parked somewhere else so they wouldn’t spill the secret. Probably because this place is one of those cool underground finds. A find that we’re completely ignoring – come on, you saw the sign. The place closes at 3:33. We only have a few hours. Are we really going to spend it arguing about semantics? Us? The Frightful Four?” 
 
-At that, Remy pursed her lips. Although Remy was the most cautious of all of us, she was also the most prideful – and she’d never live down an accusation of being scared. 
+At that, Remy pursed her lips. Although she was the most cautious of all of us, she was also the most prideful – and she’d never live down an accusation of being scared. 
 
 “Come on,” Mike said. “Let’s see what this place has to offer.” 
 
-We followed Mike a few steps forward to a large directory. There were hundreds of store names written in tiny font – more stores than I thought could physically fit into a mall – but I didn’t recognize most of the names. Not like I had brought much shopping money with me. I hadn’t figured I would need it. 
+Eyes wide, we followed Mike a few steps forward to a large directory. There were hundreds of store names written in tiny font – more stores than I thought could physically fit into a mall – but I didn’t recognize most of the names. Not like I had brought much shopping money with me. 
 
 “Why don’t we check out the pet store?” I recommended. Partially because dogs were adorable, but mostly because petting puppies and cuddling kittens cost nothing.  
 
@@ -102,7 +106,7 @@ I headed closer to the dogs. There were only three or four in the cages, and all
 
 “Oh,” I said. Some of my indignance deflated. “Sorry. Do you work here?” 
 
-“Yes. I am the curator,” he said. 
+“Yes. I am the curator."
 
 “The curator? You mean, like you decide what animals to buy for the store?” 
 
@@ -116,23 +120,23 @@ I headed closer to the dogs. There were only three or four in the cages, and all
 
 *Riiiiip.* The nightmarish creature tore another long line of flesh from Mike’s thigh, as easily as if his skin was a fruit roll-up peeling off the bone. Mike jerked forward, but before he could move an inch, the creature speared him once more with its beak. 
 
-“Fuck!” Mike yelled, his body convulsing as he tried desperately to escape the massive bird thing. As he shook, his head jerked to the left and we made eye contact. “Fuck! Kiera! Help me!”
+“Fuck!” Mike yelled, his body convulsing as he tried desperately to escape. As he shook, his head jerked to the left and we made eye contact. “Fuck! Kiera! Help me!”
 
-And just like that, I could feel my limbs again. With a burst of adrenaline, I rushed forward, grabbing Mike’s arms and tugging him forward. But the bird wasn’t finished eating. Threatened by my presence, it clamped its massive beak over Mike’s ankle. When I pulled, it pressed its beak down harder; hard enough that Mike’s curses became an incessant wail, painfully loud and just as animalistic as the creature holding him in place. 
+With a burst of adrenaline, I rushed forward, grabbing Mike’s arms and tugging him forward. But the bird wasn’t finished. Threatened by my presence, it clamped its massive beak over Mike’s ankle. When I pulled, it's beak pressed down harder; hard enough that Mike’s curses became an incessant wail, painfully loud and just as animalistic as any of the other creatures in the store.
 
-*Crunch.* Splinters of yellow-white bone shard rose through Mike’s skin like cheese pushed through a grater. In some distant corner of my mind, I was ready to panic-vomit, but I worked in autopilot, my mind going blank as I played tug-o-war against the bird with Mike as the rope. The creature was much stronger than me, but as I pulled, it yanked more flesh from Mike’s foot – allowing me just enough wiggle-room to pull him backwards. 
+*Crunch.* Splinters of yellow-white bone shard rose through Mike’s skin like cheese pushed through a grater. In some distant corner of my mind, I was ready to panic-vomit, but I worked in autopilot, my mind going blank as I played tug-o-war with the bird. The creature was much stronger than me, but as I pulled, it yanked more flesh from Mike’s foot – allowing me just enough wiggle-room to pull him backwards. 
 
-We both fell to the floor, gasping. But there was no time to rest. Mike’s ankle was already a purple, swollen mess decorated with bone splinters, and his left thigh looked even worse. Blood, gaping muscle tissue, tendons shredded like plucked piano chords. Holding in the urge to vomit, I tore off my cardigan and pressed it to the wound. But with the amount of blood he was losing, I knew that wasn’t going to be nearly enough to save him. 
+We both fell to the floor, gasping. But there was no time to rest. Mike’s ankle was already a purple, swollen mess decorated with bone splinters, and his left thigh looked even worse. Blood, gaping muscle tissue, tendons shredded like plucked piano chords... Holding in the urge to vomit, I tore off my cardigan and pressed it to the wound. But with the amount of blood he was losing, I knew that wasn’t going to be nearly enough to save him. 
 
 “Help!” I yelled. “Someone help us!” 
 
-My gaze darted back and forth down the aisles, searching for the Curator, but he was nowhere to be seen. Apparently touching the dogs was a criminal offense, but helping save someone after his damned Franken-bird ripped them apart wasn’t in his job description. I swallowed. Mike was in no condition to walk, but I had to get him to a hospital. And fast. I would let myself think about how fucking insane the situation was after that. 
+My gaze darted back and forth down the aisles, searching for the Curator, but he was nowhere to be seen. Apparently touching the dogs was a criminal offense, but customers being pecked to death wasn't his problem. I gritted my teeth. Mike was in no condition to walk, but I had to get him to a hospital. And fast. I would let myself think about how fucking insane the situation was after that. 
 
 Placing both my arms underneath his pits, I pulled him backwards with a grunt. Shit. If he made it out of here alive – no, when, I chastened myself – I was going to tell him to go on a juice cleanse. 
 
 “Just hold on,” I said. “You’re going to be okay.” 
 
-Another step backwards. His blood smeared against the tiles, and the vulture let out an enraged cry. Although it had eaten nearly a quarter of Mike’s leg, apparently it had room for seconds. At the sound of the avian cry, Mike gave a harsh cry, his body convulsing in my hold. I tried my best to make soothing noises, even as I jerked him toward the entrance, his ankle bones skidding across the floor in a way that was probably not the most comfortable for him.
+Another step backwards. His blood smeared against the tiles, and the vulture let out an enraged squack. Although it had eaten nearly a quarter of Mike’s leg, apparently it had room for seconds. At the sound of the avian cry, Mike gave a harsh whine, his body convulsing in my hold. I tried my best to make soothing noises, even as I jerked him toward the entrance, his ankle bones skidding across the floor in a way that was probably not the most comfortable for him.
 
  “It’s okay,” I repeated. “You’re going to be okay.” 
 
@@ -146,7 +150,7 @@ I headed closer to the dogs. There were only three or four in the cages, and all
 
 And then he passed out. 
 
-“Mike? Mike!” I shook him, but he was out cold. And still, more blood leaked from him, like water oozing out of a sponge. He was running out of time. “Dammit.” 
+“Mike? Mike!” I shook him, but he was out cold. He was running out of time. “Dammit.” 
 
 Pressing my hand against his shredded, weeping skin, I tugged with all my might, finally managing to pull him out of the store. But I hadn’t made it more than three feet when my back hit a sturdy, muscular wall. 
 
