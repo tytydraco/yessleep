@@ -1,7 +1,8 @@
 In 1995, a series of unexplained events rocked the once peaceful beachfront hotel of Newhall Suites. The sinks and baths began to ooze foul smelling water. Clothes, keys, and later, children started to go missing.
 
 On the cool Virginia beach things started to be found. Ancient artifacts from a time gone bye. Shattered clothes marred with teeth and blood. Chess pieces embedded with teeth.  
-The string of occurrences came to climax in the summer of 1996, in which Newhall Suites suffered a fatal blackout. When the lights finally returned- seventy people had vanished- half the staff and guests, chosen at random.
+
+The string of occurrences came to a climax in the summer of 1996, in which Newhall Suites suffered a fatal blackout. When the lights finally returned- seventy people had vanished- half the staff and guests, chosen at random.
 
 Since then, curious visitors have reported feelings of distinct paranoia, a sense of being watched.
 
