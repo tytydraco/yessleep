@@ -1,4 +1,4 @@
-Hello there reader, i'm Dominic and today i'm starting this diary on my phone. Let me explain why. So, today at around 10:30 ish, I was hanging around with my friends. We had 3 days off school as it was a parents teachers meeting today, so we planned to do something crazy. We were gonna go to an abandoned building. 
+Hello there, i'm Dominic and today i'm starting this diary on my phone. Let me explain why. So, today at around 10:30 ish, I was hanging around with my friends. We had 3 days off school as it was a parents teachers meeting today, so we planned to do something crazy. We were gonna go to an abandoned building. 
 
 We searched up on google the nearest abandoned place near us and it was this abandoned clothes factory for refugees during ww2. It was perfect as there were multiple floors to it and it was pretty far from people but not so far that it was hard to get to. 
 
