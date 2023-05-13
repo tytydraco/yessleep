@@ -210,9 +210,9 @@ He pleaded for us to save the fae. And to Aster and Matt’s credit, they listen
 
 “Then let’s do this!” I cheered, already stepping out the door.
 
-We took Steven’s van. Also, he was the only one who drove to work- I lived inside the building sometimes, and Aster and Matt both had apartments. 
+We took Steven’s van. Also, he was the only one who drove to work- I lived inside the building sometimes, and Aster and Matt both had apartments.
 
-City turned to cookie cutter stores, and those stores turned to the suburbs, and before we knew it, we were there. 
+City turned to cookie cutter stores, and those stores turned to the suburbs, and before we knew it, we were there.
 
 Steven’s post had drawn enough members in to redo the vote, and we’d arrived a whole hour earlier to convince the people. I and Aster would head one direction and go door to door, while Steven and Matt would do the same.
 
@@ -300,5 +300,6 @@ And though I was scared of the beasts the fairies had summoned, the thought of v
 
 [Issue #4](https://www.reddit.com/r/nosleep/comments/13f8u81/i_sell_cursed_artifacts_for_a_living_dont_let/)
 
+[Issue #5](https://www.reddit.com/r/nosleep/comments/13g5lnp/i_sell_cursed_artifacts_for_a_living_in_an_old/)
 
 [House of Lorreno](https://www.reddit.com/r/JulianPageInstitute?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)

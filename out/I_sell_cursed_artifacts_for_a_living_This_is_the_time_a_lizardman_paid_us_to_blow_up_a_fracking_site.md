@@ -186,9 +186,13 @@ Organic, breathing, dripping pods lined the walls, and pulses of something conne
 
 All the Stetski slept within the pods, eyes eerily open, dreaming open dreams.
 
+Was I going to die then? Alone with my team? The thought itself terrified me, and I shuddered in fear.
+
 “Matt,” I whispered, “where the hell is Steven?”
 
 Bob’s head turned, and his jaws clashed, revealed thousands of sharp, pointed teeth. “Who issss Sssssssteven?”
+
+My already-scared self increased then. Now I was risking it all- my team Steven. I felt goosebumps on my skin, fear brewing within me.
 
 And then, as if fate befell us the earth shook and rocks came tumbling down. The organic, living lights of the Natum flashed brightly, and then darkened, confusing our opponents.
 
