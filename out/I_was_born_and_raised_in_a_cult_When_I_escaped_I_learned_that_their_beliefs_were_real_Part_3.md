@@ -1,6 +1,6 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/12l06cd/i_was_born_and_raised_in_a_cult_when_i_escaped_i/)  | [Part 2](https://www.reddit.com/r/nosleep/comments/12qsin8/i_was_born_and_raised_in_a_cult_when_i_escaped_i/) | [Part 4](https://www.reddit.com/r/nosleep/comments/12xhd6k/i_was_born_and_raised_in_a_cult_when_i_escaped_i/) 
+[Part 1](https://www.reddit.com/r/nosleep/comments/12l06cd/i_was_born_and_raised_in_a_cult_when_i_escaped_i/)  | [Part 2](https://www.reddit.com/r/nosleep/comments/12qsin8/i_was_born_and_raised_in_a_cult_when_i_escaped_i/) | [Part 4](https://www.reddit.com/r/nosleep/comments/12xhd6k/i_was_born_and_raised_in_a_cult_when_i_escaped_i/)
 
-\- 
+\-
 
 The sunlight gleamed through the crack of the cave, illuminating slowly moving waves of dust in the air like poppy seeds blown off their skeletal stems. My throat ached for water, and as I began to move, my body pleaded for more rest. Each blink of the eye wanted to stay shut. It took me a painful minute to come to my senses; the sleep deprivation made relevant thoughts hard to come by, and fresh, blood-soaked memories were a stew of on-and-off delirium. A terrible nightmare. A lived-in terror. The burden of being alive was thrust upon me with force, but I did not feel awake, much less alive. I moved my arm across the peeking sunlight, and its warmth was an antidote for the wish of death that had begun to ferment in the back of my mind. A single conviction lifted me to stand on my shaking legs: *keep moving*.
 
@@ -32,7 +32,7 @@ I didn’t answer. I imagined a knife manifesting into the palm of my hand, but 
 
 I kept silent, which just seemed to amp him up. I could feel his fuse burning short.
 
-“You son of a whore! Just like your mother, a degenerate cunt with no mind to speak of. You think your little play was smart? You’re fucking dead, I’ll make sure of it!”
+“You whore! Just like your mother, a degenerate cunt with no mind to speak of. You think your little play was smart? You’re fucking dead, I’ll make sure of it!”
 
 On the other side of the pit, a sweaty man dumped another body on the mountain. Their limbs were like snakes in heat, twisting and turning over and under each other as heads popped out in between, oozing out brains flocked by hundreds of flies, the sun fermenting their insides. “That’s the last one,” the man said carefully, noticing the tense scene before him. I stared into his eyes, begging for mercy.
 

@@ -94,6 +94,13 @@ She whisked Ella out the room, calling to me once more as she left. “You’ll 
 
 Then she [disappeared from sight](https://www.facebook.com/P-F-McGrail-181784199029462/).
 
+-----------
+
+[The night](https://redd.it/13gfxfr)
+
+-------------
+
+
 [BD](https://www.reddit.com/r/ByfelsDisciple/)
 
 

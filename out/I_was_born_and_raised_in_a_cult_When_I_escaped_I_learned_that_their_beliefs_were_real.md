@@ -50,7 +50,7 @@ I looked around, and waited for my chance, but then the elders said something an
 
 “Now, open their hearts! Open their true love for our children, my brothers! Look into your mothers, children! They bless you with True Love!” the elder screamed into the microphone.
 
-All of the women in the compound kneeled and bowed their heads. I started to hear screaming from afar. My dad interrupted me by grabbing my head and turning it to face him. A few feet away, my mother was kneeling like all the others. “You must watch this, boy,” he said, “and don’t let your eyes wander.”
+All of the women in the compound kneeled and bowed their heads. I started to hear screaming from afar. My dad interrupted me by grabbing my head and turning it to face him. A few feet away, my mother was kneeling like all the others. “You must watch this,” he said, “and don’t let your eyes wander.”
 
 Staring at me to make sure that I was watching, he approached my mom and grabbed her hair, wrapping her long ponytail around his fist. “For the One True God,” he said, and began to pull.
 
