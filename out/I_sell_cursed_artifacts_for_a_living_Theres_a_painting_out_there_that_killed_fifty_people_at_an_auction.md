@@ -158,7 +158,9 @@ I told her it had killed fifty people more than half a century ago. She got the 
 
 The place, no offense, looked like the insides of an uncleaned vacuum cleaner. We coughed at every turn. And we also had no idea if he still had the painting or not.
 
-Still, the place was thick with dread, and the implacable fear shot at me like knives.
+Still, the place was thick with dread, and the implacable fear shot at me like knives. It, by full honesty, was terrifying.
+
+I shuddered in fear, wondering what lay within.
 
 Luckily, Aster was a Canary- those who had the ability to sense the things beyond normal human perception, born with an attraction to the uncanny and a desire to find and- in most cases, destroy.
 

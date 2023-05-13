@@ -59,22 +59,37 @@ I noted her clearly ignoring my question. I wasn’t in the business for questio
 The odd, unknown man also wore a sweater, despite being in the depths of summer. “Coincidentally, that was the year this man paid for a room. His identity remains unknown, but what is known is that he spent the whole summer in his room.” She paused to make sure I was digesting the information. “Passerbys would often hear him, in his room, talking to a woman teaching him to paint. And children would find themselves suddenly awake in his room, staring directly at a painting I suspect is a genuine Corelli.”
 
 I pondered on this. “A genuine Corelli? Or could it be a reproduction?” Even facsimiles of powerful artifacts- especially sigils or paintings, could replicate at least half of the effect.  
+
 She smiled and laughed, dismissing the thought. “Something that made seventy people disappear, kid, has to be a genuine Corelli. They say the painting trapped the souls of vanished into the art, and they loom in the background, waiting to be freed, tormented eternally.” She opened a briefcase, revealing not cash this time- but gold. “Survive the trip, bring back the Corelli and this can all be yours.”  
+
 I inspected a bar. “Are these unmarked?” She nodded. “What’s the quality? Is this all vanity gold or are some enchantable.”  
+
 This was the kicker. “All of them enchantable.” Gold, the most refined and rare, could be used as a conduit for energy, allowing us to enchant and create whatever sigils or spells we needed.  
+
 I called over my psychic, Aster, to verify her claim. But knowing the client, I knew it would be true. “You always bring out your Canary to judge me,” the client commented. “Why can’t you have faith?”  
+
 Aster handled a bar, sensing its power. “I have a name, you know. Aster.” The client shrugged it over; it did not concern her. “And Canary is such an old term.”  
+
 Old terms or not, this was a sweet deal, and Aster knew enough not to provoke the client. “We accept your deal,” I decided, extending a hand. She shook it, cold, and unforgiving.   
+
 She smiled and offered me the entire case of Slisik, to which I accepted. “Always a pleasure doing business with you, Mr. Lorreno.” She stood and tossed me a small glass sphere. “This was once your father’s, but now I hand it to you.”  
+
 I studied the glass sphere, empty but engraved with symbols. “You knew my father?”   
+
 She only waved and walked away. I wondered when I’d really know how deep my father’s dealings went. And how much longer it would take to pay off his debts.  
 Mysterious woman or no, we had a mission.  
+
 As soon as the House was closed to the public I gathered the rest of my team. Together, united, we were a force to be reckoned with. My knowledge and access to my father’s files- Aster’s gift for the bizarre, Steven’s affinity for spellcast, and Matt’s plain old brute force.  
+
 The client had given us a small fortune of money we could spend on tickets. With spellcast, getting through airport security would be a breeze.  
+
 Matt raised a hand. “Question- what if the painting tries to eat us. Like the seventy people abducted?” This was a good and valid point.  
 Luckily, Steven had an answer. “It’s been over two decades since that event, and nobody in the area has vanished since then. I’d even venture that it was an isolated incident.”  
+
 Aster was next to point something out. “Right, but realistically, who’s going near that place?” she pointed at the images I had projected. “It’s creepy, and being demolished.”  
+
 “Exactly- it's being demolished- there must’ve been construction workers or surveys recently, right?” Steven argued.   
+
 “We barely know anything about the place,” Matt added; this, for the most part, was true. Besides the client’s story, we’d found little information online, which surprised me- seventy people missing should have raised more than just a buzz. “Do we really want to go in blind?”
 
 “We go in blind all the time,” Steven reminded, starting to point out all the times we’d recovered artifacts not knowing anything about the place.
@@ -202,20 +217,33 @@ Steven weaved some ancient art into the air. It pulsed, disintegrating the spiri
 The warped and spiraled, transforming into a sinkhole that steadily grew. “To hell with this!” Matt screamed, tossing flash-sphere into the hole.
 
 Nothing happened. Aster suddenly developed a dark look into her eyes. “It’s awake- the thing inside- no, he’s- he’s awake.”  
-The sinkhole grew in size. I found myself against a wall, batting painted constructs away from me. “Can you communicate?!”  
+
+The sinkhole grew in size. I found myself against a wall, batting painted constructs away from me, terrified. “Can you communicate?!”  
+
 Aster tried. “He- he wants us to leave!” My mind shot back to the image of the unknown guest. “We’ll leave!” Aster shouted. An unseen thing spoke to her. “We’re looking for the Corelli!”  
+
 This was when the chaos stopped. The sinkhole closed, the walls slide away. The heightened cold vanished.  
+
 The hallway, dark- paint and color gone from the walls extended ad infinitum. At the end was the figure of a man with hands in his pockets and a stern, tall look.  
+
 “We were sent to find the Corelli!” I shouted. “Who are you?”  
+
 Aster tugged at me and shushed me. “You don’t understand- we need to leave-” she started to back away, and so did the rest of us.  
+
 The figure stepped into the light. It was indeed the man in the photograph, the young artist, hands kept in pockets. But in the dark, he seemed false, almost, different, a mere facsimile of a man.  
+
 “Corelli has given me life anew,” the figure boomed, voice coming from all around us. “It is not yours to take!”  
+
 I didn’t understand. But Aster did. “He- he is the Corelli!” The man was the thing created by the long-dead painter. He was the enchanted thing the woman so wanted.  
 We should not have gone in blind.  
+
 The Painted Man phased forward- and then again. He outstretched a hand, and the walls began to return to their original, colored state.  
+
 “Those who seek the Corelli,” he declared, “must die!”  
 And then the creatures returned, beings borne of pain. Bravely, we retreated, but with every corner we turned- he was there.  
+
 And then we stopped, painted limbs rising from the floor. I struggled, slashing at them with my knife. Aster reached out and crushed her bonds. Matt fired wildy. Steven cast spheres of fire-   
+
 Sphere?
 
 That was it. I found the glass sphere the client had given me and opened it.
