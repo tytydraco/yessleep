@@ -151,7 +151,7 @@ It was a basic steel chair, the arms were set high so that your arms would be le
 In place of cushions on all surfaces of the chair were nails. Actual…nails. Around six inch. The back, legs, arms and base covered in them. 
 
   
-*What the* ***fuck****?*
+*What the* ***fuck?***
 
   
 Swallowing some vomit, hiding my emotions, I opened the file. It was a basic brown paper file and inside there were two pieces of A4 paper. One told of Nicola’s specifications, not her personality, not her quiz, just her age and basic proportions along with two brief sentences on why she was here.
@@ -176,21 +176,20 @@ But, as it turned out, I didn’t need to know.
 **Because Nicola did.**
 
   
-I put the file down and followed her to the chair. She happily sat down and put her arms up. The smile was still fixed on her face, the drool dripping, her pupils incredibly enlarged.    
+I put the file down and followed her to the chair. She happily sat down and put her arms up, her bones creaking slightly as she turned her palms to the ceiling. The smile was still fixed on her face, the drool dripping, her pupils incredibly enlarged.
+
 The nails dug into her bare flesh but she didn’t seem to care or notice. She spoke, her pale lips barely moving,
 
   
 “Ahhh, acupuncture.”
 
-  
-Nicola’s bones creaked slightly as she turned her palms to the ceiling, settling her arms down  as she sat.
 
   
 This was when a metallic scraping reverberated around the room, I almost had to cover my ears.   
 A white helmet with wires and four prongs slid out and clamped itself around her head.
 
   
-Metal straps emerged from the chair around Nicola’s neck, arms, wrists, ankles, torso, legs and ankles. 
+Metal straps emerged from the chair around Nicola’s neck, arms, wrists, ankles, torso and legs. 
 
   
 These straps tightened around her limbs and blood started to drip onto the floor. The nails as they totally impaled her body, the straps only stopped moving when the nails were fully inside of her. 

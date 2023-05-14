@@ -286,4 +286,4 @@ That was the day I started to wonder if we should ask questions.
 
 [Issue #4](https://www.reddit.com/r/nosleep/comments/13f8u81/i_sell_cursed_artifacts_for_a_living_dont_let/)
 
-[Issue #6](https://www.reddit.com/r/nosleep/comments/13hg9j6/i_sell_cursed_artifacts_for_a_living_the_bone/)
+[Issue #6](https://www.reddit.com/r/nosleep/comments/13hgbhf/i_sell_cursed_artifacts_for_a_living_the_bone/)
