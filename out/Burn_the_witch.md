@@ -186,31 +186,9 @@ Why would they? I was a “crazy girl” and was “a threat to others and mysel
 
 Needless to say, I was locked up. One day, the nurse came by with something folded in her arms.
 
-“Hold your arms out, Katie.” A nurse accompanied by guards asked, a jacket slung over her elbows. The entire surface was a shiny, chocolate brown leather with buckles down the back. 
+A straight jacket. They forcefully shoved me into it, rendering me immobile. 
 
-A straight jacket. 
-
-“Why?” I stammered.
-
-“They want you wearing this jacket.”
-
-“Why?”
-
-“To protect you. Arms out please.”
-
-“I’m not crazy.” I said as I half heartedly stuck out my hands.
-
-“I need your arms straightened out or the guards will make you.”
-
-“I’m not crazy!” I repeated.
-
-“Lock your elbows straight out please. Last chance.” I did, not wanting to get beaten with batons again. She slipped my arms into the thick, endless sleeves as she began to buckle the back. The constant jangling agitated my senses as the jacket got heavier and tighter around me. When she finished, she walked around the front to face me. 
-
-“Cross your arms in front of your chest.” I obeyed the command as the heavy leather of the jacket squeaked and popped. It felt like the heaviest winter coat you could imagine. 
-
-“Breathe out as I buckle your arms.” I did so, and then angrily realized it was to ensure a tighter fit. I became encased, my arms buckled tight around me. I couldn’t move. She ran her hands over the entire jacket for several minutes, smoothing out every single wrinkle until it fit like skin. My arms began to ache and fill with blood as the bulky cowhide constricted my circulation.
-
-“Kill kill kill…” The voices from the witch. They returned, and I couldn’t act on them.
+“Kill kill kill…” The voices from the witch. They returned, and I couldn’t even act on them.
 
 This went on for years.
 
