@@ -133,3 +133,5 @@ Nora stepped forward, taking the dagger back. She peeled a small piece of the bl
 I wiped the blood away on my shirt, returning to my group. We looked at the seven trails. I wondered what the first six held.
 
 Without hesitation, though, we took the last one, walking forward to find my grandfather- or whatever was left of him in this cursed place.
+
+Part 2: https://www.reddit.com/r/nosleep/comments/13habs1/i_found_a_trail_behind_my_grandfathers_house/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button

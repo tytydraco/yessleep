@@ -16,7 +16,7 @@ Today, as I was browsing the city, I always felt like there was someone followin
 
 As I was having dinner back at the hotel, I had the feeling that someone was behind me again. This time, however, I feel like that person was HOLDING SOMETHING. I turned around and saw the exact same shadow I saw last night, except I saw it for a whole second. I shouted loudly, “Who are you? What do you want? Why the fuck are you following me? I’m seriously creeped out dude, fuck off.” No response. I was starting to question my sanity.
 
-And right now, as I’m typing this, I feel it again. Someone’s behind me, and this time I’m certain. It’s getting on my nerves. I'm literally going to shit myself. This person is approaching me slowly, like a predator who is about to catch its prey. Is "he" even a person? I’m seriously scared. I can feel that something’s pointed right at me. Probably a gun. It’s getting closer. I am about to have a mental breakdown and cry. I want to scream out loud. I want to call for help, but I know it’s useless. No one is going to be able to help me. It’s too late for that. It’s way too late.
+And right now, as I’m typing this, I feel it again. Someone’s behind me, and this time I’m certain. It’s getting on my nerves. I'm literally going to shit myself. This person is approaching me slowly, like a predator who is about to catch its prey. Is "he" even a person? I’m seriously scared. I can feel that something’s pointed right at me. Probably a gun. It’s getting closer. I am about to have a mental breakdown and cry. I want to scream out loud. I want to call for help, but I know it’s useless. No one is going to be able to help me. It’s too late for that. It’s way too late. I can feel the gun getting pressed painfully upon my neck.
 
 I’m going to die.
 
