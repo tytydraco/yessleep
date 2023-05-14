@@ -30,11 +30,11 @@ But flash forward 20 years and my parents have since passed on. There was a bad 
 
 So, as a little remembrance trip, my brother and I had planned a final journey up into the woods that our family had frequented. It’s up near the town of Clement Wisconsin. 
 
-It’s where my family had always camped. But this time we were to go a little deeper into the woods. Just to have a little extra privacy from the normal campground tenants. Plus we were planning on getting a little drunk and didn’t want any Officers kicking us out. 
+It’s where my family had always camped. But this time we were going a little deeper into the woods. Just to have a little extra privacy from the normal campground tenants. Plus we were planning on getting a little drunk and didn’t want any Officers kicking us out. 
 
 So, we made our plans. 
 
-We were going to meet up at 3pm on Friday afternoon in the parking lot of the Clement Park Campgrounds. After which we’d head up north for a couple of hours. We found a pretty decent sized clearing through Google Maps we wanted to check out. After all was said and done, the plan was to head back to our cars on Sunday afternoon.
+We were going to meet up at 3pm on Friday afternoon in the parking lot of the Clement Park Campgrounds. After which we’d head up north for a couple of hours. We found a pretty decent sized clearing through Google Maps we wanted to check it out. After all was said and done, the plan was to head back to our cars on Sunday afternoon.
 
 It was just a dumb-drunk-greiving kind of weekend getaway. We both wanted to talk things through but neither of us could be described as the types to go through armchair therapy. 
 
@@ -46,7 +46,7 @@ I had parked my car in the rundown dirt lot of Clement Park around 2:30pm. There
 
 But although I didn’t see any familiar people, I did see familiar faces. 
 
-The trees that had stood tall since I was a child still remained in their proper places. They held rebelliously firm and were left untouched by time. If anything, they had appeared larger to me that day. They had loomed over me with an intensity that I hadn’t felt in years. Either they had grown larger, or I had felt that much smaller. 
+The trees that had stood tall since I was a child still remained in their proper places. They held on rebelliously firm to their plots and were left untouched by time. If anything, they had appeared larger to me that day. They had loomed over me with an intensity that I hadn’t felt in years. Either they had grown larger, or I had felt that much smaller. 
 
 With a deep breath I took in the strong nostalgic smell of the cypress and pine trees that had filled the woods. 
 
@@ -64,7 +64,7 @@ I knew that at the end of the day there was nothing I could do about it. I just 
 
 I walked behind my rusted little Honda Civic and popped opened the trunk. What was inside my beaten up little sedan was worth more to me then my entire life's work. Right in front of me lay the same beaten up rucksack that my Dad had always taken with us. 
 
-When he had passed my brother and I found all his camping gear still prepped and ready to go in his garage. At that point we hadn’t camped together for at least a decade. As a man I had held back tears when we found it. I think Paul did too. 
+When he had passed, my brother and I found all his camping gear still prepped and ready to go in his garage. At that point we hadn’t camped together for at least a decade. As a man I had held back tears when we found it. I think Paul did too. 
 
 “Hey, Dad” I remembered saying as I picked up the heavy bag. “We’re going on another trip together. Paul will be here soon.”
 
@@ -76,7 +76,7 @@ One bad foot placement and you’d end up snapping more than just a tree limb.
 
 With that in the back of my mind, I started my journey. The first thing you have to pass through is the standard campsites. They were full of beat up trailers and half-assed tents. We called most of the trailers out there the ‘Regulars.’ They pretty much lived out there during the summers. They were good people, just a little odd. 
 
-Once you got past all of them you finally hit the start of the Clement Trail. It was less of a sanctioned path and more of a dusty foot trail. Years of fishermen coming and going had created the thin line of dirt that my family had enjoyed walking through for over a decade.
+Once you got past all of them you finally hit the start of the Clement Trail. It was less of a sanctioned path and more of a dusty foot trail. Years of fishermen coming and going had created the thin line of dirt that my family had enjoyed walking through for well over a decade.
 
 My brother and I had walked down that exact path time and time again with our parents. It was basically a mile loop around a lake that happened to find itself surrounded by the Jack Pines and the Red Cedars that had made up the bulk of the Clement’s ecosystem. 
 
@@ -84,7 +84,7 @@ Past that was relatively untouched land.
 
 Now was it legal for us to camp out past the sanctioned areas? Probably not. But what Conservation Officer would head several hours into the woods on a hunch there might be some buffoons grieving out there.
 
-And so I pressed forward, continuing northbound into the depths of the treeline. Before I knew it the Clement Campgrounds were out of sight and out of mind. 
+And so I pressed forward, continuing northbound into the depths of the treeline. Before I knew it, the Clement Campgrounds were out of sight and out of mind. 
 During my hike I used the sun as my marker and kept a good pace. I was actually a little ahead of schedule without having to keep pace with Paul.
 
 Incidentally it was just over an hour of me walking due north that I started to notice something. 
@@ -255,7 +255,7 @@ I left everything I had brought in that exact spot. I never went back for it. I 
 
 I contacted the Officers in charge of the area and they conducted a search. 
 
-They refused to listen to anything I had to say about what I had seen. But the thing is, they didn’t just dismiss me like I was crazy. It was like they had already known what had happened and just had refused to acknowledge it. 
+They refused to listen to anything I had to say about what I had seen. But the thing is, they didn’t just dismiss me like I was crazy. It was like they had already known what had happened and had just refused to acknowledge it. 
 
 We never found my brother and I could never take another walk in those woods either. 
 
