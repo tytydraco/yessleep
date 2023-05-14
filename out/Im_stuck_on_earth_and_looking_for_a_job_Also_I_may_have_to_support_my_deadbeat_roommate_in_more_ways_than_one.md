@@ -165,3 +165,5 @@ This spells trouble, no doubt. I have enough on my plate already, as the saying 
 [3: creepy crush](https://www.reddit.com/r/nosleep/comments/13fnc4u/stuck_on_earth_and_looking_for_a_job_everyone/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [4: relocation](https://www.reddit.com/r/nosleep/comments/13gjpwd/stuck_on_earth_and_looking_for_a_job_does_anybody/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[5: concert](https://www.reddit.com/r/nosleep/comments/13heih5/stuck_on_earth_and_looking_for_a_job_something/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)

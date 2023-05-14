@@ -227,3 +227,5 @@ I didn't, but I showed her my previous post when we were at home. It left her ra
 [2: deadbeat roommate](https://www.reddit.com/r/nosleep/comments/13eovqy/im_stuck_on_earth_and_looking_for_a_job_also_i/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [3: creepy crush](https://www.reddit.com/r/nosleep/comments/13fnc4u/stuck_on_earth_and_looking_for_a_job_everyone/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[5: concert](https://www.reddit.com/r/nosleep/comments/13heih5/stuck_on_earth_and_looking_for_a_job_something/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
