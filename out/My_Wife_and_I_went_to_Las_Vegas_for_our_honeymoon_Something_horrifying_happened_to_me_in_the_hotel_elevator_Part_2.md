@@ -87,6 +87,6 @@ Finally, a sound cut through the seemingly muted noises. “Danny, what’s wron
    
 I set the paper down in the center of the table, turning it so she could read it. I saw her lean in and mouth the words. I saw her expression change, from concern to utter shock. She snapped her head up at me as if to search my eyes for an explanation, but I had none to give.  
   
-The picture on the front of the page, was of John F. Kennedy. I can’t remember the exact headline it proclaimed above it, though I know it contained the words “President Kennedy”. But to this very day, I can still perfectly recall the date displayed under the newspaper’s name.  
+The picture on the front of the page, was of John F. Kennedy. I can’t remember the exact headline it proclaimed above it, though I know it contained the words “President Kennedy”. But even now, almost three months being back, I can still perfectly recall the date displayed under the newspaper’s name.
   
 *July 22nd, 1962*
