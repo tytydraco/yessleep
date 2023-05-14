@@ -192,7 +192,7 @@ A white helmet with wires and four prongs slid out and clamped itself around her
 Metal straps emerged from the chair around Nicola’s neck, arms, wrists, ankles, torso and legs. 
 
   
-These straps tightened around her limbs and blood started to drip onto the floor. The nails as they totally impaled her body, the straps only stopped moving when the nails were fully inside of her. 
+These straps tightened around her limbs and blood started to drip onto the floor. The nails did not bend as they impaled her body, the straps only stopped moving when the nails were fully inside of her.  
 
   
 This was when I noticed tears falling from her eyes before she spoke again,
