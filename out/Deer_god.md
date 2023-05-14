@@ -6,7 +6,7 @@ When I arrived I asked around about the turnovers and kept getting weird respons
 
 On my second week I found out it was all true. One night me and the crew were asleep in our cabin and was awoken by the sounds of bleating, grunting, groaning and snorting. I knew them to be the sounds of a deer but they sounded wrong. Louder, deeper, and somehow sinister.
 
-The thing broke down the cabin door. In the dart it looked like a giant man but it’s legs looked tiny and it appeared to have antlers on its head, and it wore a white linen robe that gave it an almost majestic appearance.
+The thing broke down the cabin door. In the dark it looked like a giant man but it’s legs looked tiny and it appeared to have antlers on its head, and it wore a white linen robe that gave it an almost majestic appearance.
 
 It began thrashing around wildly, attacking the crew. They attempted to fight it off but it overpowered everyone with ease. It tore off flesh and limbs. It disemboweled a man with its antlers and pressed on with his guts hanging off them. Someone turned on a lantern and once my eyes adjusted I could see that it looked like a human deer hybrid.
 
@@ -16,7 +16,7 @@ Then came the silence. I paused and listened for the beast but I heard nothing. 
 
 When I awoke I found that I was in one peace but the cabin and the crew and my own clothes were ruined, blood stained everything revealing the truth of the matter, that it hadn’t been a nightmare. That it had all been real. Everyone was shaking and showed signs of PTSD. Ruined by the horror of what had happened to us. We all quit and even gave up on logging.
 
-Everyone else did there best to move on and pretend it never happened. They coped with drugs and alcohol. One even took the cowards way out, although I must admit the thought has crossed my own mind a few times since the incident. But me, I searched for answers. The best that I could find was stories of skin walkers online, something that I previously would never have taken seriously. 
+Everyone else did there best to move on and pretend it never happened. They coped with drugs and alcohol. One even took the cowards way out, although I must admit the thought has crossed my own mind a few times since the incident. But I searched for answers. The best that I could find was stories of skin walkers online, something that I previously would never have taken seriously. 
 
 Eventually I reached out to locals native to the region where this occurred. When I spoke with one, a gigantic man with long flowing dark hair that was almost hypnotic, and presented the idea of it being a skin walker he was clearly offended. He assured me that was not the case. That the thing was actually a deer god, corrupted by man’s cruelty and carelessly destroying the land, it’s domain. That hunting for sport, trapping, and pollution had twisted the mind of this once noble majestic beast.
 
