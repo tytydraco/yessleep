@@ -230,13 +230,15 @@ His words sent pinpricks down my spine.
 
 “I’ve seen what we did,” his voice shook. “The real world. The real us. I know you can sense it, Key. The cold? The ice cold which is slowly killing us? The breath in front of your face you think you know, and the promise that we’ll be healed.” His tone darkened, collapsing into a hiss. “If you know what is good for you,” his grip tightened on my shoulder. “You’ll leave curiosity alone and let us fucking rot in here.” 
 
-I tried to pull away, but he held on, and I could sense his fingernails suddenly caked with her, his breath stinking of her rotten flesh. “Trust me, Kiera.” He pointed to himself. “Who we are right now inside here, is before it all went… you know… wrong. Seventeen years old with our whole lives ahead of us. Post- school play? Doing what we did to Lily, and everything after; all the shit that put us in here in the first place. Those parts of us don’t  exist anymore.” I could sense his emotion, agony he was trying to hide. “We’re safe here, Key. We can stay here.”
+I tried to pull away, but he held on, and I could sense his fingernails suddenly caked with her, his breath stinking of her rotten flesh. “Trust me, Kiera.” He pointed to himself. “Who we are right now inside here, is before it all went… you know… wrong. Seventeen years old with our whole lives ahead of us. Post- school play? Doing what we did to Lily, and everything after; all the shit that put us in here in the first place. Those parts of us don’t  exist anymore.” I could sense his emotion, agony he was trying to hide. 
+
+“We’re safe here, Key. We can stay here.”
 
 He let out a sigh. “Before we… you know….ate our fucking classmate and engaged in acts which deeeeefinitely justify sending us to rot in fake paradise.”
 
 I started to argue, because Noah was crazy… for wanting to stay in this prison where our memories were forced onto us.
 
-As if sensing my protest, he pulled away, and this time I could see him without the blood. He looked so much younger, and I wanted that version of him to stay. Before he doused himself in Lily’s blood, drowning in her. “What would rather do? Live in blissful ignorance in here, chilling inside the version of yourself which was never fucked up—- or start to remember?”
+As if sensing my protest, he pulled away, and this time I could see him without the blood. He looked so much younger, and I wanted that version of him to stay. Before he doused himself in Lily’s blood, drowning in her. “What would you rather do? Live in blissful ignorance in here, chilling inside the version of yourself which was never fucked up—- or start to remember?”
 
 The air in front of us… glitched suddenly. 
 
@@ -306,7 +308,7 @@ The voice trying to get the dismantling code, and the one which had spoken to No
 
 “Please.” I said. “You asked earlier if I wanted to know my convictions. Surely you can tell me how I got here, right?”
 
-“I am unable to calculate your current location. However, I can assure you, you inside our state of the art facility. Due to The Kilbride Incident which devastated your entire town, you were brought here four months ago to undergo emergency treatment. In a private trial between government personal, the judge ruled that it was either you were put through the Fix Me program to revert you to a previous stable mental state before you underwent significant trauma or be given the death penalty. Many parties argued that the cause of your actions were influenced by a second party, and thus, your actions could be justified. After deliberation, the judge agreed, and you were sentenced here to undergo treatment which will fix you.” Her words played on my mind. 
+“I am unable to calculate your current location. However, I can assure you, you are inside our state of the art facility. Due to The Kilbride Incident which devastated your entire town, you were brought here four months ago to undergo emergency treatment. In a private trial between government personal, the judge ruled that it was either you were put through the Fix Me program to revert you to a previous stable mental state before you underwent significant trauma or be given the death penalty. Many parties argued that the cause of your actions were influenced by a second party, and thus, your actions could be justified. After deliberation, the judge agreed, and you were sentenced here to undergo treatment which will fix you.” Her words played on my mind. 
 
 The real world definitely didn’t feel like a facility. It was… cold. I was somehow outside.
 
@@ -324,7 +326,7 @@ My head hit the window, and I closed my eyes.
 
 “As always Keira, I will begin with a question: What did you do on the evening following opening night?”
 
-I was back on stage, staring down at my hands slick with glistening scarlet. Snapping out of the trance we had held me, I sucked in a breath, my vision clarity. I turned to Wylan, and the boy’s gaze found mine. I couldn’t see the blood, the gore, all over him. I think Allison was blocking it out at that moment. He tugged his  hand from mine. The manic excitement in his eyes was flooded with a primal fear, an agony, which sent him stumbling away muttering gibberish to himself. “No.” Wylan stared down at his bloody hands, and then his costume. “No, no, this…. this isn’t happening. What is this? Some kind of sick joke?”
+I was back on stage, staring down at my hands slick with glistening scarlet. Snapping out of the trance we had held me, I sucked in a breath, my vision clarity. I turned to Wylan, and the boy’s gaze found mine. I couldn’t see the blood, the gore, all over him. I think Allison was blocking it out at that moment. He tugged his  hand from mine. The manic excitement in his eyes was flooded with a primal fear, an agony, which sent him stumbling away muttering gibberish to himself. “No.” Wylan stared down at his bloody hands, and then his costume. “No, no, this…. this isn’t happening. This is a sick joke."
 
 “Mom.”
 
