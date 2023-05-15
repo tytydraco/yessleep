@@ -14,7 +14,7 @@ I will have to rewind time a bit, back to after we dealt with Jaques and his gro
 
 "We're tired, kid," replied Matt, shuffling to put himself in a more comfortable position, "so don't be so loud."
 
-"Sorry, sorry..." 
+"Sorry, sorry..."
 
 "Eh, it's alright, just... mind the noise."
 
@@ -100,7 +100,7 @@ Nick remained silent.
 
 Helen, noticing that Nick wasn't saying anything, stood up from the pipes and went to him. She looked right at him and said. "Not hungry?"
 
-Nick whispered a very soft "Not really..." before everyone heard his stomach rumbling. 
+Nick whispered a very soft "Not really..." before everyone heard his stomach rumbling.
 
 "Really? You sure?" said Helen.
 
@@ -168,7 +168,7 @@ John gave me a big smile and put his hand on my shoulder, looking me straight in
 
 "I understand Anthony. That feeling will always be there. For me, it still is. But you will learn to live with it."
 
-Saying that, he took of a golden ring he was wearing and said: 
+Saying that, he took of a golden ring he was wearing and said:
 
 "Here. This is my wedding ring. I will ask Emily to give you her ring as well so that you can do it properly"
 
@@ -262,7 +262,7 @@ My face grew pale the moment I realized it and jumped up, quickly dragging Marie
 
 They realized what was going on and began grabbed whatever they could as quickly as possible. John and Emily got the kids, Nick got his gun and his backpack, Helen picked up Gertrude, who was small enough to be carried around. They then all began running. All, except Matt, who was still sitting down.
 
-"WHAT ARE YOU DOING???" I yelled at him. 
+"WHAT ARE YOU DOING???" I yelled at him.
 
 "I can't run with this leg, kid. I'd just drag you down and get you killed."
 
@@ -274,7 +274,7 @@ They realized what was going on and began grabbed whatever they could as quickly
 
 "Both of you are idiots..." said Matt, however smiling a little bit as me and Marie began carrying him, one arm on each of our shoulders.
 
-John was in front of us, opening the doors and leaving them open. The darkness was closing in on us, the figure of the Janitor being visible in front of it. Looking behind, he was definitely not as pristine as the Conductor normally is. While the Conductor was somewhat composed, the Janitor was far more chaotic, as the barely visible red man was bouncing around the cart, shaking and trembling as if he was a junkie craving a fix. To say it was terrifying sight would be an understatement. 
+John was in front of us, opening the doors and leaving them open. The darkness was closing in on us, the figure of the Janitor being visible in front of it. Looking behind, he was definitely not as pristine as the Conductor normally is. While the Conductor was somewhat composed, the Janitor was far more chaotic, as the barely visible red man was bouncing around the cart, shaking and trembling as if he was a junkie craving a fix. To say it was terrifying sight would be an understatement.
 
 When we got twenty carts away from the base, the Janitor almost caught us. The cart behind us got dark and we were too far away to get to the next one. Fortunately, it stopped right then and there. Everyone took a moment to catch their breath as the lights began to turn back on where the Janitor was. Afterwards, we began walking back, and when we did eventually get back...
 
@@ -285,3 +285,7 @@ And we began walking. Walking the same, boring carts over and over for days on e
 In one of the carts, there was a skeleton of a man, clutching some sort of leather book with nothing else valuable on him, except for an empty backpack and the clothes he was wearing. Taking the book from the skeletal hands, I opened it and began reading.
 
 "My name is Pablo Ramirez. In the case someone finds this in the wake of my death, I will do my best to document my findings in this journal as I explored the Subway, searching for the Garden and the life-time subscription pass."
+
+\--------------------
+
+[Part 7](https://www.reddit.com/r/nosleep/comments/13ij2v6/in_the_infinite_subway_falling_asleep_in_the/)
