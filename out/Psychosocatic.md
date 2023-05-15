@@ -32,6 +32,10 @@ I awoke in a cold sweat, with the feeling of being watched. I looked over at my 
 
 My cat was standing on the chair but there was something wrong with her body. Baggy’s neck was elongated above her body, stretching out to about three feet. Her head was moving erratically, jerking back and forth. She stared at me with those viridescent globes, I almost didn’t catch the wide smile she displayed. The cat looked amused, almost delighted at the fear she was causing me. My hair stood up on end and the entire room felt freezing. ‘What the hell was this thing?’ I thought to myself.
 
-I tried to tell my parents about what happened that night but I was frantic, they must have assumed I had a nightmare. The last thing I remember before passing out on the floor was the ¨cat¨ sauntering towards me with her neck bobbing steadfastly.
+I woke up with deep scratches riddling my body, they were black and bloody, lining my arms and stomach. I ran to my parents to tell them what happened but I was hysterical, I showed them my wounds but they just chalked it up to me having a nightmare and scratching myself in my sleep. The last thing I remember before passing out on the floor was the ¨cat¨ sauntering towards me with her neck bobbing steadfastly, her claws out and ready to attack.
 
-I would never see Baggy again after that night, but I think I have an idea of where she disappeared to. I attempted to draw what it looked like. If you wish to see it, I've posted a picture on this account. I don't know what that thing was; but I know damn well it wasn't any kind of cat, whatever was wearing that poor cat as a skin was something I never want to encounter again. After this experience, I think it's safe to say I wouldn't call myself a cat person anymore.
+I have not seen Baggy again after that night, but I think I have an idea of where she disappeared to. I attempted to draw what it looked like. If you wish to see it, I've posted a picture on this account. I don't know what that thing was; but I know damn well it wasn't any kind of cat, whatever was wearing that poor cat as a skin was something I never want to encounter again. The scars it left me with are proof to me that this world contains things I could never understand. After this experience, I think it's safe to say I wouldn't call myself a cat person anymore. If anything else happens, I´ll be sure to update you guys. Writing about it helps a lot.
+
+Signing off for now,
+
+\-Cat (aka Insipid)

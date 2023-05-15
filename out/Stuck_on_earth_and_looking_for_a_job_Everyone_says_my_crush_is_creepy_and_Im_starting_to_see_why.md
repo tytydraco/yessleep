@@ -209,3 +209,5 @@ After a minute, I tuned out her well-meaning chatter. Truth be told, I have no i
 [4: random relocation](https://www.reddit.com/r/nosleep/comments/13gjpwd/stuck_on_earth_and_looking_for_a_job_does_anybody/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [5: concert](https://www.reddit.com/r/nosleep/comments/13heih5/stuck_on_earth_and_looking_for_a_job_something/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[6: first date](https://www.reddit.com/r/nosleep/comments/13ib2es/stuck_on_earth_and_looking_for_a_job_my_first/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
