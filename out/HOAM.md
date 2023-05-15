@@ -154,7 +154,7 @@ I recognized the house on the other side. It was white with yellow trim. Marigol
 
 The bus pulled up. Right in the window. I could hear the brakes squealing as it came to a stop, as its doors opened.
 
-Sometimes I had control of the body. This time I didn't. It's like living on rails. The eyes staring intently, pointing me towards two little kids getting off the bus. A little boy with an oversized back, and a younger Melody.
+Sometimes I had control of the body. This time I didn't. It's like living on rails. The eyes staring intently, pointing me towards two little kids getting off the bus. A little boy with an oversized backpack, and a younger Melody.
 
 &#x200B;
 
@@ -170,17 +170,17 @@ At first she didn't believe me. But as I kept going into detail. There seemed to
 
 When I was finished. She only asked me one thing, "Why was he after my brother?"
 
-I was afraid to tell her, but I was also tired to telling half truths. So I told her, "He wasn't. He was after you."
+I was afraid to tell her, but I was also tired of telling half truths. So I told her, "He wasn't. He was after you."
 
 &#x200B;
 
 &#x200B;
 
-We didn't talk for a few days after. Not because she was avoiding me in the halls. But simply because she didn't come at all.
+We didn't talk for a few days after. Not because she was avoiding me in the halls. But simply because she didn't come to school at all.
 
 So that Saturday, when I was least expecting it. When she showed up at my front door. I couldn't help but hug her. And for a second, I was afraid that she was angry at me. But she hugged me back.
 
-During our time apart, she found out that her neighbor had died shortly after her brother went missing. And the house had been all but abandoned. And that she had gone inside, desperate for any clues. But it was unusually empty. Except for the few pieces of dusty furniture.
+During our time apart, she found out that her neighbor had died shortly after her brother went missing. And the house had been abandoned. And that she had gone inside, desperate for any clues. But it was unusually empty. Except for the few pieces of dusty furniture.
 
 It's why she wanted my help to find him. She wanted me to comb through the murderer's memories, the ones that still lingered with me. So that she could find her brother's body, so that she could have something to bury.
 
@@ -230,7 +230,7 @@ The taste of salt on my tongue was much stronger now. My throat felt dry as the 
 
 I shook my head.
 
-"See, I've been thinking for awhile. I even did some digging after you told me about how you could see things. How you could feel them. I came across many articles. Most of them duds. But as I kept searching, a picture slowly started revealing itself in my head. It started with a man who was shot in the face and needed a blood transfusion. He recovered, and suddenly became a virtuoso pianist. Another person got a steel pipe through their frontal lobe and became someone else entirely. A woman who was blind, received a pair of eyes, and could suddenly so ghosts.
+"See, I've been thinking for awhile. I even did some digging after you told me about how you could see things. How you could feel them. I came across many articles. Most of them duds. But as I kept searching, a picture slowly started revealing itself in my head. It started with a man who was shot in the face and needed a blood transfusion. He recovered, and suddenly became a virtuoso pianist. Another person got a steel pipe through their frontal lobe and became someone else entirely. A woman who was blind, received a pair of eyes, and could suddenly see ghosts.
 
 She came closer. I could barely breathe.
 
