@@ -84,78 +84,76 @@ Jerry snapped his head towards him. "WHAT!?" He blurted.
 
 The newcomer turned to Jerry. "Yeah. One of my crew threw me overboard. Probably trying to save my life! Heh... Poor Jackson... I remember watching it chase after them. Then the jaws opened up. It swallowed them whole, then dove back into the abyss..."
 
-"....WHAT!!!!???" Jerry practically shrieked, I could see the hair on his neck standing up like a cat. "JAWS!? IT HAS FUCKING JAWS!!?? HOW GODDAMN BIG WAS IT!!??" 
+"....WHAT!!!!???" Jerry practically shrieked, I could see the hair on his neck standing up like a cat. "JAWS!? IT HAS FUCKING JAWS!!?? HOW GODDAMN BIG WAS IT!!??"
 
-"Wait! Wait a second!" I interjected. "It ATE, your ship? What like is this thing some kind of animal?" 
+"Wait! Wait a second!" I interjected. "It ATE, your ship? What like is this thing some kind of animal?"
 
-"That thing was no animal..." Jerry responded. "Whatever that thing was, God had no part in its creation..." 
+"That thing was no animal..." Jerry responded. "Whatever that thing was, God had no part in its creation..."
 
-"It was a weird-looking boat with a face." The newcomer added. 
+"It was a weird-looking boat with a face." The newcomer added.
 
 Me and Jerry both stared at him in silence.
 
-"What?" I finally said. 
+"What?" I finally said.
 
-"Yeah, like the bow of the ship! It opened up like a mouth, my ship went inside, then it closed its mouth. Then went underwater." 
+"Yeah, like the bow of the ship! It opened up like a mouth, my ship went inside, then it closed its mouth. Then went underwater."
 
-The silence resumed. 
+The silence resumed.
 
-"Okay, this guy is just fucking nuts." Jerry said. "Listen, the thing we pulled from the water, it was... something else, like something not from this world!" 
+"Okay, this guy is just fucking nuts." Jerry said. "Listen, the thing we pulled from the water, it was... something else, like something not from this world!"
 
-"Hang on, I'm the one thats nuts? And what your saying you fished up some kind of alien or something? I'm telling you kid, I saw that ship with my own two eyes! It showed up as soon as the storm hit!" 
+"Hang on, I'm the one thats nuts? And what your saying you fished up some kind of alien or something? I'm telling you kid, I saw that ship with my own two eyes! It showed up as soon as the storm hit!"
 
-Jerry's eyes suddenly went wide. 
+Jerry's eyes suddenly went wide.
 
-"The storm...." He said, "God, Richard would have never made us fish in that gail..." 
+"The storm...." He said, "God, Richard would have never made us fish in that gail..."
 
 ***BOOM!***
 
-Dethening thunder blasted from outside the haul, the room was once again quiet. 
+Dethening thunder blasted from outside the haul, the room was once again quiet.
 
-"Oh shit..." Said the newcomer. 
+"Oh shit..." Said the newcomer.
 
-The door to the room burst open once again. 
+The door to the room burst open once again.
 
 "Captain!" The deckhand called out. "The men have spotted another vessel through the fog."
 
-"Does it have a face?" I asked. 
+"Does it have a face?" I asked.
 
-"What...? No why would it... Captain it's fast approaching us!" 
+"What...? No why would it... Captain it's fast approaching us!"
 
-"Here she comes..." The newcomer muttered. Poor Jerry had gone white as a ghost. 
+"Here she comes..." The newcomer muttered. Poor Jerry had gone white as a ghost.
 
-I rushed out on deck, the fog at sea was still present, barely giving us maybe fifty yards of sight in any direction. In the distance though, through the mist, I could see its silhouette. It was massive, dwarfing our ship by nearly four times. The hair on my neck began to stand, when I realized the silouette was growing larger. 
+I rushed out on deck, the fog at sea was still present, barely giving us maybe fifty yards of sight in any direction. In the distance though, through the mist, I could see its silhouette. It was massive, dwarfing our ship by nearly four times. The hair on my neck began to stand, when I realized the silouette was growing larger.
 
-"Try the radios!" I shouted. "See if there's any way we can make contact! The rest of you, lights, emergency flares! Light em all up! We need them to see us!" 
+"Try the radios!" I shouted. "See if there's any way we can make contact! The rest of you, lights, emergency flares! Light em all up! We need them to see us!"
 
-"NO!" Jerry shouted from behind me. "We need to try and lose it in the fog! Put this thing into gear! I don't know what that thing is, but if that man isn't completely nuts, I don't think we want it to see us!" 
+"NO!" Jerry shouted from behind me. "We need to try and lose it in the fog! Put this thing into gear! I don't know what that thing is, but if that man isn't completely nuts, I don't think we want it to see us!"
 
-"It already does..." The newcomer said, staring at the shape with almost a vacant expression. "That's her alright. 
+"It already does..." The newcomer said, staring at the shape with almost a vacant expression. "That's her alright.
 
 A pair of floodlights suddenly flashed on from the approaching titan, beaming on us like a pair of eyes.
 
-A loud groan rumbled from its direction. Like a low broken call of a whale. 
+A loud groan rumbled from its direction. Like a low broken call of a whale.
 
-"It's... it's alive... isn't it?" Jerry said. 
+"It's... it's alive... isn't it?" Jerry said.
 
-"How should I know." The newcomer responded nonchalantly. "Welp, this worked out for me last time. Good luck!" 
+"How should I know." The newcomer responded nonchalantly. "Welp, this worked out for me last time. Good luck!"
 
-"What?" I asked. Before I fully realized what was happening, the newcomer had climbed on top the railing and hurled himself into the water below.  
+"What?" I asked. Before I fully realized what was happening, the newcomer had climbed on top the railing and hurled himself into the water below.
 
-"Captain..." The Deckhand had returned. "Captain we ummm, we have radio contact with the ship, but ummm...." 
+"Captain..." The Deckhand had returned. "Captain we ummm, we have radio contact with the ship, but ummm...."
 
-"But what!?" I hissed. 
+"But what!?" I hissed.
 
-"I think you should hear it for yourself." 
+"I think you should hear it for yourself."
 
-I could hear it before I even opened the door to the wheelhouse. The sound penetrating through the thick metal haul. It became deafening when I opened the door. The crew stared up at me, fear and bewilderment in their eyes as what sounded like a thousand voices screaming in anguish blasted from the radio. 
+I could hear it before I even opened the door to the wheelhouse. The sound penetrating through the thick metal haul. It became deafening when I opened the door. The crew stared up at me, fear and bewilderment in their eyes as what sounded like a thousand voices screaming in anguish blasted from the radio.
 
-The beast of a vessel behind us let out another groan. 
+The beast of a vessel behind us let out another groan.
 
 I remember being frozen for a moment. starring dead ahead as the rain began to fall onto the windows, subtly now, but the storm was just beginning.
 
-"Captain...?" 
+"Captain...?"
 
-"...Full steam ahead!" I nearly growled. "All hands on deck! Let's get ready to fucking run..." 
-
-r/sawyershuntinglodge
+"...Full steam ahead!" I nearly growled. "All hands on deck! Let's get ready to fucking run..."
