@@ -37,13 +37,15 @@ I’m here to warn you.
 
   
 There are no shortcuts to grieving. Though you may seek them out while in it’s clutches and I cannot blame you. I did the same.  
+
 If you’re lucky, or unlucky, you may receive a phone call to invite you to The Crying Rooms. You will, more than likely based on our research, accept. 
 
   
-Do not be fooled by the comforting tone on the  other end of the line. They have been watching you and have waited until you are deep in the throes of grief and at your most vulnerable state of mind to make contact. This system is worldwide, they have bases everywhere, but it started here.
+Do not be fooled by the comforting tone on the  other end of the line. They have been watching you and have waited until you are deep in the throes of grief, at your most vulnerable state of mind, to make contact. This system is worldwide, they have bases everywhere, but it started here.
 
   
 There are six stages; introduction, counselling, trial, high, need/desire & ***special guest***.  
+
 After agreeing, one day you will wake up there. For a microsecond, you will wonder how you got there as you can’t remember, but then a warm feeling will wash over you and you won’t question it again.
 
   
@@ -55,7 +57,7 @@ You are then walked into one of the “quiz” rooms. These rooms are identical 
 They don’t care about your answers all that much.
 
    
-After doing your quiz, you will be asked single or group. This is the type of therapy you will experience. It starts vanilla, just talking, and they have dirty little secrets to make sure that  every time you visit you will leave feeling a little better about whatever brought you here, in whatever way they can.
+After doing your quiz, you will be asked single or group. This is the type of therapy you will experience. It starts vanilla, just talking. They have dirty little secrets to make sure that every time you visit, you will leave feeling a little better about whatever brought you here, in whatever way they can.
 
   
 There is a narrow hallway with small rooms with shut doors either side. Hundreds.
@@ -117,7 +119,8 @@ Nicola got third degree burns trying to break a reinforced window and the follow
 She said goodbyes and cried along with the victims, reaching desperately until the firefighters pulled her away. The skin on her forearms were stuck and melted to the bars. 
 
   
-You better believe the company jumped right on her while she was recovering in the hospital. She was experiencing suicidal thoughts combined with survivor’s guilt and her prominent scars being a constant reminder.
+
+You better believe the company jumped right on her while she was recovering in the hospital. She was experiencing suicidal thoughts combined with survivor’s guilt. Her prominent scars being a constant reminder.
 
   
 You can see why she would be perfect for their motives.
@@ -195,7 +198,7 @@ Metal straps emerged from the chair around Nicola’s neck, arms, wrists, ankles
 These straps tightened around her limbs and blood started to drip onto the floor. The nails did not bend as they impaled her body, the straps only stopped moving when the nails were fully inside of her.  
 
   
-This was when I noticed tears falling from her eyes before she spoke again,
+This was when I noticed tears falling from her eyes before she spoke once more,
 
   
 “After this will I see my family again?”
