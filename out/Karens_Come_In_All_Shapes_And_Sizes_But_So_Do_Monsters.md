@@ -58,4 +58,7 @@ The searching went smoothly and I now found myself in the most HORRENDOUS room p
 
 I thought back at that stupid kid from before and I realized;
 
-I was right after all...
+I was right after all...  
+
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/13huqmu/karens_come_in_all_shapes_and_sizes_but_so_do/)! 

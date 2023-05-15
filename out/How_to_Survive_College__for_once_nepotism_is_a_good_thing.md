@@ -2,7 +2,7 @@ Maria has already forgotten about [Steven](https://www.reddit.com/r/nosleep/comm
 
 I remain immune and I don’t know why.  And now Cassie appears immune as well.
 
- (if you’re new, [start here](https://www.reddit.com/r/nosleep/comments/rnauck/how_to_survive_the_holidays/), and if you’re totally lost, [this might help](https://www.reddit.com/r/goatvalleycampgrounds/comments/s75n1c/how_to_survive_college_index/)) 
+(if you’re new, [start here](https://www.reddit.com/r/nosleep/comments/rnauck/how_to_survive_the_holidays/), and if you’re totally lost, [this might help](https://www.reddit.com/r/goatvalleycampgrounds/comments/s75n1c/how_to_survive_college_index/))
 
 I’m not doing great right now.  I’m trying to accept that people can make their own choices and I’m not responsible for that, but that insidious voice at the back of my head keeps whispering that he wouldn’t even have been there if not for me.  That I’d dangled something he’d want in front of him just so I’d have someone else that the monsters could go after instead of me.  I feel sick just thinking that way and maybe I’m just making things up so that I can hate myself and justify the guilt I’m feeling.
 
@@ -30,7 +30,7 @@ No, I am not introducing her to the devil.  I had plenty of other people that he
 
 “Unfortunately,” I sighed, “you’re not going to like what I have to ask you.  It’s about Daniel.”
 
-She didn’t reply.  She just groaned and buried her head in her arms.  Once she was done with her theatrics, I launched into my explanation of everything that’s happened.  I told her about my encounter with the flickering man.  How he was looking for the student that was the intended victim and that if he needed Daniel’s involvement, that meant that Daniel was still the only person that could do anything about the worm.  
+She didn’t reply.  She just groaned and buried her head in her arms.  Once she was done with her theatrics, I launched into my explanation of everything that’s happened.  I told her about my encounter with the flickering man.  How he was looking for the student that was the intended victim and that if he needed Daniel’s involvement, that meant that Daniel was still the only person that could do anything about the worm.
 
 How he’d asked me to give him Daniel’s name.  That’s all he needed.  A name.
 
@@ -70,7 +70,7 @@ Like Kate.  The kind of person that throws people to the inhumans.  Someone that
 
 “You could ask.”
 
-Holy shit. 
+Holy shit.
 
 I could ask.
 
@@ -146,11 +146,11 @@ There’s no way to comfort someone in a situation like this.  I remember the th
 
 “I’ve been thinking about death too,” I said.
 
-I told him about Steven.  How he died in the graveyard and it was so sudden and senseless.  After that… I just kept going.  I told him about how the flickering man has been stalking me and I’m terrified that he’s going to eventually kill me.  I barely allow myself to think of that fear, but I blurted it right out to Grayson.  
+I told him about Steven.  How he died in the graveyard and it was so sudden and senseless.  After that… I just kept going.  I told him about how the flickering man has been stalking me and I’m terrified that he’s going to eventually kill me.  I barely allow myself to think of that fear, but I blurted it right out to Grayson.
 
 I’m scared I’m going to die.
 
-We just sat in miserable silence for a bit after that, because really, there was nothing either of us could say that would sound like comfort.  At least we could admit these things to each other.  At least we weren’t carrying our fears and worries all by ourselves now.  
+We just sat in miserable silence for a bit after that, because really, there was nothing either of us could say that would sound like comfort.  At least we could admit these things to each other.  At least we weren’t carrying our fears and worries all by ourselves now.
 
 Then it started raining.  It wasn’t even the warning drizzle, either, just one moment it was overcast (hardly unusual around here) and the next moment it was pouring.  That happens sometimes and it’s always a problem when it does.  I think of these as the ‘bad rains’, the ones that are most likely to have something harmful accompanying them.  Like the rain is trying to trap students out in the open.
 
@@ -180,11 +180,11 @@ I guess that’s why I woke up when something came into our room.  I wasn’t sl
 
 I heard the click of a door latch and at first I thought it was Grayson, but then the door didn’t close again and I thought groggily that I should make sure the door was shut and he hadn’t left it hanging open by accident.  This was important, I thought, though I wasn’t quite awake enough to remember why.
 
-I opened my eyes and looked down through the slats of the loft towards the door.  
+I opened my eyes and looked down through the slats of the loft towards the door.
 
 And framed in the doorway was something human, but not, its clothing was mere patterning on its skin and its fingers were far too long.  Like a frog’s, wrapped around the doorframe as it peered inside.
 
-The door had been shut, I thought frantically.  It was.  I heard the lock click open.  
+The door had been shut, I thought frantically.  It was.  I heard the lock click open.
 
 It could get inside anytime it pleased.
 
@@ -213,6 +213,8 @@ But I know.  I heard everything.
 More importantly - Grayson now knows he can use his status as the president’s son against the inhumans.  And I told him about the flickering man trying to kill me.
 
 And Grayson *likes* me. [\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
+
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/13huynb/how_to_survive_college_i_have_a_name_and_a/)
 
 [Read the first draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 
