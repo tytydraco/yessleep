@@ -72,7 +72,7 @@ I asked him the question that had been bothering me ever since I awoke at the ho
 
 “Then *what do I do*?” I pleaded.
 
-Jean’s response made little sense to me. “To defeat Grouse…shatter the illusions that give him his power. Only then will he be vulnerable. I left an athame with Emma that might-”
+Jean’s response made little sense to me. “To defeat Grousel…shatter the illusions that give him his power. Only then will he be vulnerable. I left an athame with Emma that might-”
 
 “I don’t understand. How-”
 
