@@ -1,4 +1,3 @@
-
 ________
 
 It starts with me and six others waking up in total darkness, my body aching and my head throbbing. I’m sure the others in the elevator feel the same as I grab at the wall and pull myself to my feet. 
@@ -121,7 +120,7 @@ Right past the second hour mark, he’s the one who voices his paranoia, almost 
 
 “No one is going to find us here,” he says. 
 
-“I’ve managed to send out a few texts, but nothing is coming back on my end. We might only have a signal strong enough to send an SOS, when that network comes back on I could get to my Reddit account,” Chloé tells us. I decide to use that to document these notes via uploads and she offers me her uploads. “Maybe someone out there on the big World Wide Web will help…” 
+“I’ve managed to send out a few texts, but nothing is coming back on my end. We might only have a signal strong enough to send an SOS, when that network comes back on I could get to my Reddit account,” Chloé tells us. I decide to use that to document these notes via uploads and she offers me her password. I plan to upload this when I have signal as a distress call. “Maybe someone out there on the big World Wide Web will help…” 
 
 Phil keeps reiterating the need to keep calm, but the paranoia soldier isn’t hearing him. He is sure something has caused all of this. 
 
