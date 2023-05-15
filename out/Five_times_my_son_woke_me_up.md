@@ -286,7 +286,7 @@ He sounded muffled. I wanted to scream, but as my mouth opened nothing came out.
 
 “I wanted to tell him I found this hammer. I can come out of the TV now.”
 
-It swung towards the screen and it shattered. I’m screaming my head off, scared to death of what’s about to happen. Who is this man? What does he want? I run to grab Noah, slamming the door behind me. It doesn’t help much as an ax breaks the door down.
+It swung towards the screen and it shattered. I’m screaming my head off, scared to death of what’s about to happen. Who is this man? What does he want? I run to grab Noah, slamming the door behind me. It doesn’t help much as a hammer breaks the door down.
 
 I have the ability to protect myself.
 
@@ -304,7 +304,7 @@ I put my finger on the trigger as the TV man reaches the bottom step.
 
 “If you take one more step I swear to god I will shoot. Do not fucking test me.” I’m shaking. I really don’t know if I have the ability to shoot this thing. Is it even human?
 
-“Why would you shoot me? I just want to be Noah’s friend,” he swings the ax upwards.
+“Why would you shoot me? I just want to be Noah’s friend,” he swings the hammer upwards.
 
 I have the ability to protect myself.
 

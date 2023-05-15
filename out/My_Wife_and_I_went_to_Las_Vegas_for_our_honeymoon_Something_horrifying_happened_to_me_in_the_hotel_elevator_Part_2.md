@@ -90,3 +90,5 @@ I set the paper down in the center of the table, turning it so she could read it
 The picture on the front of the page, was of John F. Kennedy. I can’t remember the exact headline it proclaimed above it, though I know it contained the words “President Kennedy”. But even now, almost three months being back, I can still perfectly recall the date displayed under the newspaper’s name.
   
 *July 22nd, 1962*
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/13hv5h4/my_wife_and_i_went_to_las_vegas_for_our_honeymoon/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
