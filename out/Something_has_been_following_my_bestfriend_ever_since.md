@@ -127,3 +127,7 @@ Nikola in front of me in a chair.
 Ellis to the right.
 
 Behind Nikola the only entrance to the room.
+
+
+[Pt2]
+https://www.reddit.com/r/nosleep/comments/13j1pb5/something_is_following_my_bestfriend_ever_since/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button

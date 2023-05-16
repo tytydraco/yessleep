@@ -14,13 +14,13 @@ One of the rules stated that I was not allowed to enter any of the rooms, except
 
 It was around noon when I arrived at the house and was in awe when I saw it.
 
-The yard was immaculate and the house was huge reminding me of those homes you'd see in an architect magazine.
+The yard was immaculate and the house was huge reminding me of those houses you'd see in an architect magazine.
 
-The house or should I say, mansion, was located on a cul-de-sac and was one of only four houses on Maple Lane.
+The house or should I say, mansion, was located in a cul-de-sac and was one of only four houses on Maple Lane.
 
 As I stood at the door, took a deep breath, then rang the doorbell.
 
-I swore I could hear the doorbell ringing echo throughout the house.
+I swore I could hear the ringing of the doorbell echo throughout the house.
 
 Anyway, as if on cue, the door opened in front of me.
 
