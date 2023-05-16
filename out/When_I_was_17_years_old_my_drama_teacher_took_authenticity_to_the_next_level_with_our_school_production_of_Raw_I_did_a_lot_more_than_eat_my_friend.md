@@ -220,9 +220,9 @@ His words sent pinpricks down my spine.
 
 “You have a minute. Starting now.”
 
-“29.”
+“59.”
 
-“28…”
+“58…”
 
 “Whatever you do,” he said in a low murmur. “Whatever they show you—- you can’t give them the dismantling code.”
 
@@ -274,7 +274,7 @@ With two fingers, he saluted me. “Remember what I said.” Noah mimed cutting 
 
 And just like he never existed, Noah, after stumbling over to the back of the bus, a snapshot of who I knew best— the class clown wearing the oversized football jersey-- joined the three motionless shadows, his identity bleeding into null nothing.
 
-I was alone again, choking on my own breath. Turning to the window, the sky was a darker blue. “This is normal, Keira. Outside the window reflects your current mental state inside your memory. Would you like me to replace it? I can make it anything you would like. For example, the view of Mount Fuji on vacation in Japan. It is a precious memory and an image you hold close to your heart. If you would like, I can turn the view into something much suited to your taste. Would you like that?”
+I was alone again, choking on my own breath. Turning to the window, the sky was a darker blue. “This is normal, Kiera. Outside the window reflects your current mental state inside your memory. Would you like me to replace it? I can make it anything you would like. For example, the view of Mount Fuji on vacation in Japan. It is a precious memory and an image you hold close to your heart. If you would like, I can turn the view into something much suited to your taste. Would you like that?”
 
 “No.”
 
@@ -318,13 +318,13 @@ Freezing to death.
 
 “Yes.”
 
-“Good! Now, I must warn you. Your memories where your mental state is significantly low will cause you distress. Unfortunately, I will be restricting the use of your arms to prevent self-inflicted injury. Do not worry, Keira."
+“Good! Now, I must warn you. Your memories where your mental state is significantly low will cause you distress. Unfortunately, I will be restricting the use of your arms to prevent self-inflicted injury. Do not worry, Kiera."
 
 I felt it automatically, the sensation of stars filling me. Numbing my body.
 
 My head hit the window, and I closed my eyes.
 
-“As always Keira, I will begin with a question: What did you do on the evening following opening night?”
+“As always Kiera, I will begin with a question: What did you do on the evening following opening night?”
 
 I was back on stage, staring down at my hands slick with glistening scarlet. Snapping out of the trance we had held me, I sucked in a breath, my vision clarity. I turned to Wylan, and the boy’s gaze found mine. I couldn’t see the blood, the gore, all over him. I think Allison was blocking it out at that moment. He tugged his  hand from mine. The manic excitement in his eyes was flooded with a primal fear, an agony, which sent him stumbling away muttering gibberish to himself. “No.” Wylan stared down at his bloody hands, and then his costume. “No, no, this…. this isn’t happening. This is a sick joke."
 
