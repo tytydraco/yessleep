@@ -40,7 +40,7 @@ Okay. So the TV was off. He must’ve had a nightmare, I figured. However, this 
 
 As my teeth continued to grind my anger moved away from him. How could I have been mad? The kid is scared shitless. Even if we were going in circles, his father shouldn’t have put it in his room. I had said this would happen. Yet, I am the one handling it, like I always do.
 
-My hands had been grazing the screen. A soft tingle of electricity made the arms on my hand stand up. The high frequency hum is barely intelligible to my adult ears. This would have annoyed me in the master bedroom. How anyone could sleep with this constant distraction was beyond me.
+My hands had been grazing the screen. A soft tingle of electricity made the hairs on my arm stand up. The high frequency hum is barely intelligible to my adult ears. This would have annoyed me in the master bedroom. How anyone could sleep with this constant distraction was beyond me.
 
 “What did he look like?”
 

@@ -66,3 +66,5 @@ After I was in the safety of my grandparents house once more, I called the polic
 I didnt survive that night based on pure luck. I survived because it wanted me to. It wanted me to live the rest of my life knowing what can happen if you explore the wrong place. And to tell you. To warn you. 
 
 Never. Go into the woods of Tennessee late at night.
+________
+[EDIT: visit my page if you'd like to see a drawing of what I saw that night]
