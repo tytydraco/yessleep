@@ -68,7 +68,7 @@ I stopped dead in my tracks.
 
 Reaching for the door, I remembered what Mr. Jones said but opened it anyway.
 
-Instead of a room though, I was now, facing a very long hallway.
+Instead of a room though, I was now, facing a very, very long hallway.
 
 When leaving through the door I came in from though, I found myself inside a windowless room.
 
@@ -78,7 +78,7 @@ Panic began to set in when I realized that there was no other way out but the ha
 
 So, I continued down the hallway. 
 
-I could still hear the TV that I was watching only moments ago too.
+I could still hear the TV blaring in the distance.
 
 I wondered somehow, if I was in one of those escape rooms.
 
