@@ -4,7 +4,7 @@
 
 In the morning, Duncan was gone.  All was bright and clear outside, the sort of weather that made it easy to think you hallucinated the events of the night previous.  Yet I knew I hadn’t; a quick tour around the property, over to the depressing flower patch I’d tilled last summer, revealed the crushed remains of dead flowers.  Footprints, too large to be mine, confirmed what I’d already known: Duncan came for a visit.
 
-I fed the dogs and paced around the kitchen, head aching.  I put on a pot of coffee and flipped out the television, letting the late-morning news drone on about this and that.  Thought the noise might help.
+I fed the dogs and paced around the kitchen, head aching.  I put on a pot of coffee and flipped on the television, letting the late-morning news drone on about this and that.  Thought the noise might help.
 
 I still struggled to wrap my head around the past week.  Everything seemed impossible, but then, as my mother would’ve said, impossible didn’t exist; only the highly improbable, and improbable implied an inherent possibility.
 
@@ -40,8 +40,7 @@ A fresh wave of guilt washed over me.
 
 Something would *definitely* have to be done.
 
-\*\*\*  
-Samuel never returned my call, but rather showed up at my house unannounced an hour after his shift ended.  He’d brought a Starbucks cup and muffin—again, only enough for himself, which I found amusing and increasingly in character—and noted he lacked so much as a shred of self-consciousness as he waddled up to my door.
+\*\*\*Samuel never returned my call, but rather showed up at my house unannounced an hour after his shift ended.  He’d brought a Starbucks cup and muffin—again, only enough for himself, which I found amusing and increasingly in character—and noted he lacked so much as a shred of self-consciousness as he waddled up to my door.
 
 Curious, that.  I remembered the days when I’d fallen for his carefully implemented image; when I’d been convinced my attention was a kindness.
 
@@ -81,7 +80,7 @@ Samuel smiled, obsequious.  Made me want to punch him right in the goddamned fac
 
 “What else?  You don’t find a man rising from the dead, headless, to visit your very home to be something of a miracle?”
 
-“I was thinking more along the lines of abject horror.” 
+“I was thinking more along the lines of abject horror.”
 
 “Your problem, Joel—do you want to know your problem?”
 
@@ -153,7 +152,7 @@ Duncan’s belly thumped up against my window, and I shuddered.  Would never be 
 
 “I thought you said ‘he’ a moment ago?  You seemed quite insistent.”
 
-I rolled my eyes.  “How the Hell does *Duncan* know where I  live?  Why come here, of all places?  I’m not even the one who—” Samuel and I locked eyes, the moment hanging between us.  But then I finished it: “—killed him.”
+I rolled my eyes.  “How the Hell does *Duncan* know where I  live?  Why come here, of all places?  I’m not even the one who—” Samuel and I locked eyes, the moment hanging between us.  But then I finished it: “—killed him.”
 
 “An excellent question, though one I fear we won’t get an answer to.”  Samuel stood, nudging one of the dogs out of the way, and walked up to the window.  He tapped on it, once, twice, three times, as if pestering a fish at the aquarium.  “Doesn’t seem overly responsive to sound.  I don’t suppose you tested his other faculties?”  He glanced at me, and something in my blank, dull, irritated expression must’ve made the answer clear.  “Ah, no.  Of course not.  Well then, we really must do that, don’t you think?”
 
@@ -169,10 +168,9 @@ I did.
 
 Unfortunately.
 
-\*\*\*
+\*\*\*
 
-The best way to get Duncan into the backyard, we figured, was to rope him like a wound-up foal.   
- Samuel suggested taking his hand and leading him, but for the life of me I couldn’t stand the idea of touching him.  I didn’t particularly want to know if he was cold or warm, or what life—if you could call this life—had in store for him.
+The best way to get Duncan into the backyard, we figured, was to rope him like a wound-up foal.Samuel suggested taking his hand and leading him, but for the life of me I couldn’t stand the idea of touching him.  I didn’t particularly want to know if he was cold or warm, or what life—if you could call this life—had in store for him.
 
 I’d had some rope in my garage, a remnant from an old project, and we turned it into a makeshift lasso, strung it around Duncan’s waist, and led him, show-pony style, through the house (whereupon he bumped into basically everything, knocking over my Mom’s old lamp, and terrorizing the dogs) and into the backyard.
 
@@ -186,7 +184,7 @@ Once we got him into the backyard, however, and removed the rope from his waist,
 
 He was right about that, at least.
 
-Up close, Samuel’s body was more horrifying than I could’ve imagined.  Mostly it was the lack of rot.  
+Up close, Samuel’s body was more horrifying than I could’ve imagined.  Mostly it was the lack of rot.
 
 Everything was still stable, pink, humming with something that resembled life, but couldn’t be.
 
@@ -286,8 +284,7 @@ I shuddered.  “Shit.”
 
 An idea dawned on me.  “What about his head?  You still have it, don’t you?”
 
-He glanced at me, sly.  I realized he didn’t want to give away more than he had to.  “It doesn’t do much.   
- Mostly just blinks and looks around.”
+He glanced at me, sly.  I realized he didn’t want to give away more than he had to.  “It doesn’t do much.Mostly just blinks and looks around.”
 
 “It doesn’t talk?”
 
@@ -299,35 +296,35 @@ He glanced at me, sly.  I realized he didn’t want to give away more than he ha
 
 I cast one more glance at poor Duncan’s body, then shook my head.  If he was aware, he had to be miserable.  There was nothing merciful about letting this continue.
 
-“Let’s just get this over with."
+“Let’s just get this over with. "
 
 \*\*\*
 
 All I had for accelerant was rubbing alcohol.  Samuel didn’t even want to use any, scoffed at the very idea, but I ignored him.  Whatever it was Duncan could or couldn’t feel, I wanted it over with as quickly as possible.
 
-It was lucky that my neighbors never really paid much attention to my comings and goings.  Wasn’t that kind of neighborhood, thankfully, so odd as it was I wasn’t overly worried about burning Duncan’s body, though I did hiss at Samuel to stop poking him.
+It was lucky that my neighbors never really paid much attention to my comings and goings.  Wasn’t that kind of neighborhood, thankfully, so odd as it was I wasn’t overly worried about burning Duncan’s body, though I did hiss at Samuel to stop poking him.
 
-Samuel seemed almost distraught at the idea that we were putting an end to his favorite “creation,” but I didn’t have the emotional or mental energy to deal with his Dr. Frankenstein bullshit.
+Samuel seemed almost distraught at the idea that we were putting an end to his favorite “creation,” but I didn’t have the emotional or mental energy to deal with his Dr. Frankenstein bullshit.
 
-I doused Duncan with the alcohol—I’d read somewhere that was the best accelerant, although I couldn’t remember where, and I hoped to God it worked.  And then there was the zippo; Samuel’s Zippo—he’d come prepared, and I realized that even though he was sad to see this form of Duncan go, he was excited, too.  Excited to see what would happen given the right circumstances.
+I doused Duncan with the alcohol—I’d read somewhere that was the best accelerant, although I couldn’t remember where, and I hoped to God it worked.  And then there was the zippo; Samuel’s Zippo—he’d come prepared, and I realized that even though he was sad to see this form of Duncan go, he was excited, too.  Excited to see what would happen given the right circumstances.
 
-The look on his face was upsetting; practically gleeful.  He was hungry; his eyes alight, his mouth set hard; he watched everything, eager for every detail.  It sickened me.
+The look on his face was upsetting; practically gleeful.  He was hungry; his eyes alight, his mouth set hard; he watched everything, eager for every detail.  It sickened me.
 
-Still.  I mumbled my apologies and touched the zippo to the edge of Duncan’s clothes; the fire roared to life and swallowed him whole, until Duncan was nothing more than a flailing mass of limbs, wandering helplessly.  A couple of times it seemed like his hands slapped at the fire, but I told myself that wasn’t possible, couldn’t be possible.
+Still.  I mumbled my apologies and touched the zippo to the edge of Duncan’s clothes; the fire roared to life and swallowed him whole, until Duncan was nothing more than a flailing mass of limbs, wandering helplessly.  A couple of times it seemed like his hands slapped at the fire, but I told myself that wasn’t possible, couldn’t be possible.
 
-Told myself that and yet didn’t believe it, not really.  I thought about the head Samuel had taken with him; briefly, I had a mental image of it screaming in agony, disembodied yet feeling everything, and I hated myself almost as much as I hated Samuel.
+Told myself that and yet didn’t believe it, not really.  I thought about the head Samuel had taken with him; briefly, I had a mental image of it screaming in agony, disembodied yet feeling everything, and I hated myself almost as much as I hated Samuel.
 
-It took ten fucking minutes for the body to stop writhing.  Ten minutes of watching it fumble around, slap at itself, a wordless expression of horror and agony if I’d ever seen it.
+It took ten fucking minutes for the body to stop writhing.  Ten minutes of watching it fumble around, slap at itself, a wordless expression of horror and agony if I’d ever seen it.
 
-At the end we were left staring at the smoldering remains, the air thick with the scent of charred meat.
+At the end we were left staring at the smoldering remains, the air thick with the scent of charred meat.
 
-“God forgive me,” I whispered, staring at what I hoped was Duncan’s Actually Dead body.
+“God forgive me,” I whispered, staring at what I hoped was Duncan’s Actually Dead body.
 
-“What’s to forgive?” Samuel asked.
+“What’s to forgive?” Samuel asked.
 
-“Get the fuck out,” I said.
+“Get the fuck out,” I said.
 
-\*\*\*
+\*\*\*
 
 We buried Duncan’s body in my backyard, right under the barren patch of earth that I’d once wanted to plant something in but never got around to.  Tomatoes had been the goal, not a body, but in my darker moments I supposed planting anything in there was better than nothing.
 
@@ -419,7 +416,7 @@ I shoved him away from me, enjoying the clatter of pens and a coffee cup as he b
 
 I wanted to see the killing floor.
 
-\*\*\*
+\*\*\*
 
 To their credit, they tried to stop me.  Men in hazmat suits—I had vague memories of Shelby mentioning something about this, and at the time I’d thought it was a joke—came out of the abattoir just as I was pushing my way in.  They tried to urge me backwards, but I was having none of it.  I shoved through them and into the double doors before they could stop me, ignoring their cries of “Sir, wait!  You can’t—”
 
@@ -429,7 +426,7 @@ I’d seen a killing floor, once, albeit only briefly.  My father worked in one 
 
 That was one hogs, not cows.  Not that it made much of a difference.  The nightmares lasted for months.
 
-But this?  This was unlike any killing floor I’d ever seen.  It was … clean.  Quiet.  No smell of blood or shit, just a vague hay-like earthiness mixing with the bright chemical lemon of cleaning materials.  
+But this?  This was unlike any killing floor I’d ever seen.  It was … clean.  Quiet.  No smell of blood or shit, just a vague hay-like earthiness mixing with the bright chemical lemon of cleaning materials.
 
 There were no sounds of mammalian panic.  No sounds at all, actually, and when I looked around at the stalls where the animals were held, I finally understood why:
 
@@ -471,8 +468,7 @@ Samuel shook his head in disgust.  “You really think they’ll let you live af
 
 “I don’t even know if I can die, considering what you’ve done to me.”
 
-“That’s rather my point.  I can’t imagine what they’d have in store for you would be … pleasant.   
- Somewhere, an alarm was going on in the building.  I heard rushing footsteps, yelling from a distance.  Samuel turned in the direction of the noise, watched for a moment, and then turned back to me.  “They’ll be here shortly.”
+“That’s rather my point.  I can’t imagine what they’d have in store for you would be … pleasant.Somewhere, an alarm was going on in the building.  I heard rushing footsteps, yelling from a distance.  Samuel turned in the direction of the noise, watched for a moment, and then turned back to me.  “They’ll be here shortly.”
 
 “Who?”
 
@@ -496,7 +492,7 @@ He simply nodded.  “I suppose we’ll see.”
 
 Just as the sounds of the security mob grew closer, I scrambled to my feet and fled out the door, pushing past a protesting Shelby a second time.  I dove into my car and didn’t bother to look back as I sped away, the packing plant slowly growing into nothing more than a glow of artificial light in the background in my rearview mirror.
 
-\*\*\*
+\*\*\*
 
 If you’re curious, I was right.  By the time I got back to my place, the patch of dirt where we’d buried Duncan was writhing.  He was still under there, aware on some level, however remote it may’ve been.
 
@@ -530,12 +526,12 @@ If you do happen to live in a nothing town, just like I did, be on the lookout f
 
 And if you see Henderson’s pop up in your town, move the fuck out.
 
-I don’t think it’ll be that long until they're everywhere, if you want the truth.
+I don’t think it’ll be that long until they're everywhere, if you want the truth.
 
-But I thought—
+But I thought—
 
-I don’t know.  I suppose I thought I’d warn you while I could.
+I don’t know.  I suppose I thought I’d warn you while I could.
 
-Enjoy this peace, in whatever form it takes, while you have it.
+Enjoy this peace, in whatever form it takes, while you have it.
 
-If I had to guess, I’d wager [it won’t last much longer](https://www.reddit.com/r/rachaeljacobs/).
+If I had to guess, I’d wager [it won’t last much longer](https://www.reddit.com/r/rachaeljacobs/).
