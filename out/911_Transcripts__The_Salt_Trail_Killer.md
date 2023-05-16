@@ -1,4 +1,4 @@
-**Transcripts of a series of calls received by the Delacosa department of police and emergency services on 08/05/23 and 09/05/23, the series of calls lasted from 05:21pm to the final call which occurred at 10:47pm.**
+**Transcripts of a series of calls received by the Delacosa department of police and emergency services on 08/05/23, the series of calls lasted from 05:21pm to the final call which occurred at 10:47pm.**
 
 *911 Dispatcher Sakkil received the initial call on 5:21pm, the call was from Lindel Brook, a 39 years old local office worker who lived alone in a 2 story house with a sizable backyard facing some dense woods. The house is near the outskirts of the neighborhood with woods on two sides of it, the main road on another side and a run down, abandoned house next to it.*
 
