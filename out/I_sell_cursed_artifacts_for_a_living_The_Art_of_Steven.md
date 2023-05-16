@@ -1,4 +1,4 @@
-[Issue #1](https://www.reddit.com/r/nosleep/comments/13f8u81/i_sell_cursed_artifacts_for_a_living_dont_let/)
+[Issue #1](https://www.reddit.com/r/nosleep/comments/13cci6c/i_sell_cursed_artifacts_for_a_living_theres_a/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [Issue #2](https://www.reddit.com/r/nosleep/comments/13de659/i_sell_cursed_artifacts_for_a_living_this_is_the/)
 
@@ -341,3 +341,5 @@ But though we were in dire straits and lost but for the tiniest sense of hope, w
 I had my father’s book to find. A reason behind the mimics and the bones. An explanation for the things he left hidden away. A generational debt to certain Stetski to pay.
 
 No, this was not the end of the House of Lorreno. There would always be more.
+
+[House of Lorreno ](https://www.reddit.com/r/JulianPageInstitute?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)

@@ -298,6 +298,8 @@ Things were good. Celebration was in order.
 
 [Issue #5](https://www.reddit.com/r/nosleep/comments/13g5lnp/i_sell_cursed_artifacts_for_a_living_in_an_old/)
 
+[Issue 7: Final](https://www.reddit.com/r/nosleep/comments/13iotg7/i_sell_cursed_artifacts_for_a_living_the_art_of/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
 &#x200B;
 
 [House of Lorreno](https://www.reddit.com/r/JulianPageInstitute/)
