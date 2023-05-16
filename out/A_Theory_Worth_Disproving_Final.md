@@ -40,7 +40,9 @@ A fresh wave of guilt washed over me.
 
 Something would *definitely* have to be done.
 
-\*\*\*Samuel never returned my call, but rather showed up at my house unannounced an hour after his shift ended.  He’d brought a Starbucks cup and muffin—again, only enough for himself, which I found amusing and increasingly in character—and noted he lacked so much as a shred of self-consciousness as he waddled up to my door.
+\*\*\*
+
+Samuel never returned my call, but rather showed up at my house unannounced an hour after his shift ended.  He’d brought a Starbucks cup and muffin—again, only enough for himself, which I found amusing and increasingly in character—and noted he lacked so much as a shred of self-consciousness as he waddled up to my door.
 
 Curious, that.  I remembered the days when I’d fallen for his carefully implemented image; when I’d been convinced my attention was a kindness.
 

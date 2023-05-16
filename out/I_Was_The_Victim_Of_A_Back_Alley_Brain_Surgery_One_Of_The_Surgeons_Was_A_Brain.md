@@ -208,4 +208,4 @@ Pulling back, she gave me a smug smile, undoubtedly aware of how much pain she w
 
 “You're going to want to get out of here as soon as you can stand, before Crowley's cronies show up,” she said as she undid my restraints one by one.  "Feel better, mister!"
 
-Singing happily, she turned around and skipped off with her parents, the sound of their footsteps slowly receding until eventually fading altogether, leaving me and Crowley both helpless prisoners in our own bodies as we lay impotent and defeated in the now silent and [forsaken](https://www.reddit.com/r/TheVespersBell/) [operating](https://www.reddit.com/r/Odd_directions/) [theatre](https://www.reddit.com/r/TheCrypticCompendium/).
+Singing happily, she turned around and skipped off with her parents, the sound of their footsteps slowly receding until eventually fading altogether, leaving me and Crowley lying humiliated and defeated in the now silent and [forsaken](https://www.reddit.com/r/TheVespersBell/) [operating](https://www.reddit.com/r/Odd_directions/) [theatre](https://www.reddit.com/r/TheCrypticCompendium/).
