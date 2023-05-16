@@ -128,7 +128,7 @@ She kisses me back.
 
 And we do that for awhile until her tears stop.
 
-She talked for awhile, and I just listened. She talked about her brother, asked if I'd go with her to visit the empty plot her parent's bought for him.
+When she was ready to talk, I waited and listened. She talked about her family, her mom and dad being distant. About school. What scared her. She talked about her brother and even asked if I'd go with her to visit the empty plot her parent's bought for him.
 
 "Of course!"
 
@@ -180,7 +180,7 @@ We didn't talk for a few days after. Not because she was avoiding me in the hall
 
 So that Saturday, when I was least expecting it. When she showed up at my front door. I couldn't help but hug her. And for a second, I was afraid that she was angry at me. But she hugged me back.
 
-During our time apart, she found out that her neighbor had died shortly after her brother went missing. And the house had been abandoned. And that she had gone inside, desperate for any clues. But it was unusually empty. Except for the few pieces of dusty furniture.
+During our time apart, she found out that her neighbor had died shortly after her brother went missing. And the house had been abandoned. And that she had gone inside, desperate for any clues. But it was unusually empty. Except for a few pieces of dusty furniture.
 
 It's why she wanted my help to find him. She wanted me to comb through the murderer's memories, the ones that still lingered with me. So that she could find her brother's body, so that she could have something to bury.
 
