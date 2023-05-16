@@ -1,37 +1,27 @@
-It was a dark and stormy night when John decided to venture into the woods. He had always been curious about the rumors of a haunted forest deep in the wilderness, and tonight he finally decided to investigate.
+At the time of writing this I'm currently 29 years old. The only reason I'm writing this, revisiting this memory. Is because my friend just showed up at my house. The only issue.. he's been missing for 14 years.
 
-As he walked deeper into the woods, he could feel an eerie presence around him. The wind howled and the trees creaked, and he heard whispers in the darkness. Suddenly, he heard a blood-curdling scream that sent shivers down his spine.
+From a young age my father always told me to stay away from the forest. I never asked any questions and I agreed. I've never been very popular in school. My main friends are Dylan, Jack and Joshua. Dylan is brave, never backs down from a fight. Jack is smart, getting straight A's in every class. And Joshua shows no emotion, he just stares into thin air. 
 
-Despite his fear, John continued on, determined to find the source of the scream. As he walked, he stumbled upon an old abandoned cabin. The door creaked open and he cautiously entered.
+One night we were all out and we realised we were right next to the forest. I asked them if we could turn back but they knew how scared I was of that place so they nudged me closer. And so very hesitantly I entered. Dylan and Jack were making jokes about how creepy it all was while Joshua just slowly followed behind. 
 
-Inside, he saw an old book lying on a table, with a strange symbol etched onto the cover. He opened it and began to read, but the words on the pages seemed to blur and swirl, and he suddenly felt a cold breath on the back of his neck.
+Every few minutes I could have sworn I saw something out of the corner of my eye but every time I turned to look there was nothing there. Suddenly, all the joking stopped. We approached an opening in the forest in the shape of a perfect circle. No trees, no rocks. Just dirt. 
 
-He turned around to see a ghostly figure hovering in the air. Its eyes were hollow and its skin was as pale as snow. The figure reached out and touched John, and he felt a surge of cold energy coursing through his body.
+We all froze in fear as we heard a branch snap. We looked around but there was nothing to be seen. I felt something tug at my shirt and when I looked around there was a little boy. Maybe 8 years old if I had to guess.
 
-Terrified, John ran out of the cabin and back into the woods. But as he ran, he realized that he was lost. The trees seemed to be closing in around him, and he heard the ghostly figure's laughter echoing through the forest.
+"Can you help me find my mommy" the boy said in a unsettling voice. 
 
-Suddenly, he heard the sound of a twig snapping behind him. He turned around, but there was nothing there. He heard the sound again, and this time he saw a pair of glowing eyes staring back at him.
+Again we heard a branch snap but once more, there was nothing there. When I looked back the little boy was nowhere to be seen. Dylan cried out in pain and we all looked over and saw a claw mark going up his arm. Joshua was the first to run and we all followed. 
 
-John knew he had to get out of the forest, but he had no idea which way to go. He started running blindly, hoping that he would eventually find his way out.
+I ran home and explained to my dad what happened. He had this angry tone to his voice that soon turned into panic. He sat me down and started to explain.
 
-As he ran, he felt something cold and slimy wrap around his ankle, pulling him to the ground. He tried to free himself, but the slimy grip tightened, pulling him deeper into the forest.
+"Son, I've told you many times to never enter that forest. There's a reason it's so dark even during the day, why you constantly feel like you're being watched, why you can swear you see something moving out of the corner of your eye." He sighed before getting emotional "when I was your age, my best friend Simon and I went into that forest. We were drunk and barely knew what day it was. But we knew something was wrong. I can't remember all the details but there was a boy who approached us and we ran for it. Simon acted strange the next few days and within a week, no one knew where he was. He was never found. Please son, don't go back to that forest" 
 
-John struggled against the slimy grip, but it was too strong. He realized that it was not a physical force, but something supernatural that had a hold of him.
+I agreed, I'd never step foot anywhere close to that place ever again. I went to bed and forced myself to sleep. The next day at school Dylan had his arm wrapped in a bandage. But he never spoke. He sat in his seat with a blank expression on his face. He didn't do work, didn't join in at recess, never moved. Weeks went by and eventually Dylan and his family moved house to try and find help for him.
 
-He looked up and saw the ghostly figure hovering in front of him, its hollow eyes fixed on him. The creature's skin had a sickly glow, and its face twisted into a menacing smile.
+One day my father showed me a post on Facebook. During the night Dylans mother awoke to find their front door wide open. Dylan was nowhere to be found. About 3 days later my father drove us past the forest due to roadwork. I could have sworn with every bone in my body that I saw Dylan standing at the edge just by the trees. I begged my dad to stop the car but he told me to stop being silly. There was no way Dylan could be here since his new home was over an 8 hour drive from here. He couldn't have just walked here. 
 
+I was forced to believe what I saw was my eyes playing tricks on me. I forgot all about the incident. I grew up, I moved out, had a few rocky relationships before finding my wife and having a daughter together. And here we are in the present day. I woke up at roughly 4am to someone knocking on my door. I looked through the peep hole and there he was. Dylan... with that same blank expression on his face. The knocks were slow and became weaker as he continued. 
 
-John screamed in terror, and the creature let out a haunting laugh. Its laughter echoed through the forest, sending chills down John's spine.
+The scariest part.. he hasn't aged a day. 14 years later and he still looks like that 15 year old boy I grew up with. The knocking stopped. I looked through the peep hole once more and there was no one there. I leaned my back against the door and sat down. I was shaking, on the verge of breaking down. That's when I heard it..
 
-Suddenly, the creature vanished into thin air, and the grip around John's ankle loosened. He scrambled to his feet and ran as fast as he could, not daring to look back.
-
-As he ran, he stumbled upon an old pathway that he hadn't seen before. It seemed to lead deeper into the forest, but John didn't have a choice. He had to keep moving.
-
-The pathway was overgrown and covered in thorns, and John's clothes were torn and bloody by the time he reached the end. He saw a small clearing ahead, and a flicker of hope lit up in his heart.
-
-But as he entered the clearing, he realized that he had made a grave mistake. The clearing was filled with hundreds of ghostly figures, all hovering in the air, their eyes fixed on him.
-John froze in terror, and the figures started closing in on him. He tried to run, but it was no use. They were too many, and they were too fast.
-
-The last thing John heard was the haunting laughter of the ghostly figures as they enveloped him, dragging him down into the darkness.
-
- John was trapped in the haunted forest, surrounded by the ghosts of those who had met a similar fate. No one knows what happened to John, or if he ever escaped the forest. But some say that on quiet nights, you can still hear his screams echoing through the woods.
+"Excuse me... can you help me find my mommy..."
