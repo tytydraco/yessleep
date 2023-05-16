@@ -230,3 +230,5 @@ He turned to leave, and by the time the following thought flashed through my hea
 [4: relocation](https://www.reddit.com/r/nosleep/comments/13gjpwd/stuck_on_earth_and_looking_for_a_job_does_anybody/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [5: beach concert](https://www.reddit.com/r/nosleep/comments/13heih5/stuck_on_earth_and_looking_for_a_job_something/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[7: temp work](https://www.reddit.com/r/nosleep/comments/13ja7jx/stuck_on_earth_and_looking_for_a_job_temp_work/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
