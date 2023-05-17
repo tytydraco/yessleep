@@ -6,7 +6,7 @@ I was one of these kids, unfortunately.
 
 But can you blame me? If you never fantasized about flying to Neverland and living forever fighting pirates as a little kid, you lacked an imagination. I didn’t jump out of my window, but I did try to do the famous Peter Pan swoop out of the tree in our yard, which of course landed me in a room of white with a broken arm and my mother screaming in my face. 
 
-When Harry Sutton, the kid on my street, announced to the group of us at his eight birthday he was going to dive out of his bedroom window, the majority of us were excited to see him attempt it. Even me, who already had first-hand experience on how bad of an idea it was. I knew he had been steaming with jealousy that I had ended up with a cast on my arm and smothered in attention from classmates. I figured he was going to pull this stunt sooner or later. Harry was constantly trying to be better than everyone else. 
+When Harry Sutton, the kid on my street, announced to the group of us at his eighth birthday he was going to dive out of his bedroom window, the majority of us were excited to see him attempt it. Even me, who already had first-hand experience on how bad of an idea it was. I knew he had been steaming with jealousy that I had ended up with a cast on my arm and smothered in attention from classmates. I figured he was going to pull this stunt sooner or later. Harry was constantly trying to be better than everyone else. 
 
 Still though, we were eight years old and filled with birthday cake and chocolate frosting. The adults were all inside talking about how amazingly talented Harry was, because he was one of the smartest in our class—led of course by his mother who would not stop talking about how her son was already being recommended to Ivy league colleges. 
 
@@ -28,11 +28,11 @@ Joining in with Isadora and the others, I forgot about the unimaginable pain I h
 
 Raising my voice over everyone else’s, I urged a grinning Harry to take the dive. But to my annoyance, he stumbled back, the confident smile on his face morphing into fright. He was looking down at all of us, and the drop, as well as the concrete patio and glistening pool water below him—and I think at that moment, Harry Sutton realized he had made a huge mistake. 
 
-“Maybe you should get down?” Roman Faircliffe downed his own cup of soda, shouting up at Harry. 
+“Maybe you should get down?” Roman Fairview downed his own cup of soda, shouting up at Harry. 
 
 I guessed Roman had taken one look at the concrete patio and imagined Harry’s head cracking like an egg on impact.  In response, of course, the birthday boy shook his head and scowled. Instead of giving up, he stepped closer to the edge, and one girl screamed. Being kids, I don’t think common sense existed among us. 
 
-The filter which told you to “stop” wasn’t quite formed yet. Because, when we all started to call him a baby and a chicken, Harry Sutton actually defied all our  expectations.
+The filter which told you to “stop” wasn’t quite formed yet. Because, when we all started to call him a baby and a chicken, Harry Sutton actually defied all our expectations.
 
 And jumped.
 
@@ -52,21 +52,19 @@ Something clawed its way up my throat.
 
 But this time it wasn’t undigested cake. 
 
-A cry erupted from my throat, a yell I wasn’t in control. Harry Sutton hadn’t plunged onto the ground with a splat. No. Because he never left the air, his body floating above us, suspended in mid-air like a real superhero. It took me a disorienting moment to notice Harry himself was screaming, in both terror and glee. I didn’t blame him. The kid had actually achieved every other kid’s dream. Being Peter Pan. But I wasn’t sure he was looking for Neverland. Part of me expected him to do just that, to swoop into the air just like the animated character. But no. 
+A cry erupted from my throat, a yell I wasn’t in control of. Harry Sutton hadn’t plunged onto the ground with a splat. No. Because he never left the air, his body floating above us, suspended in mid-air like a real superhero. It took me a disorienting moment to notice Harry himself was screaming, in both terror and glee. I didn’t blame him. The kid had actually achieved every other kid’s dream. Being Peter Pan. But I wasn’t sure he was looking for Neverland. Part of me expected him to do just that, to swoop into the air just like the animated character. But no. 
 
 His body was twisting and contorting, his arms flapping like a bird as if he struggled to stabilise himself. There were no strings. It wasn’t a trick of the eye, or a show I had been oblivious of.
 
 Harry was flying. Just like Peter Pan. From the look on his face, wide, cartoon-like eyes and a wild grin, the boy had no idea what he was doing or how he was doing it. The rest of the party was as you would expect when the birthday boy was kind of… stuck in the air. Harry’s mom fainted, while the rest of the parents sort of stood there in disbelief. After being stuck in the air, struggling and trying to control himself, Harry did manage to touch down onto the ground, and stumbled straight into his horrified father’s arms.
 
-Initially, my town had no idea what to think. Parents thought was some kind of miracle kid, while church-goers were either convinced he was a gift from God, or the physical embodiment of hell itself. Like in all small towns, the latter became a rumour which couldn’t be stopped. 
+Initially, my town had no idea what to think. Parents thought he was some kind of miracle kid, while church-goers were either convinced he was a gift from God, or the physical embodiment of hell itself. Like in all small towns, the latter became a rumour which couldn’t be stopped. 
 
 Two days after the boy had somehow flew in front of a group of parents and kids at his eighth birthday, strangers were already stalking him on his way from school. 
 
 Harry lived opposite me, so I would wake up every morning to people from the church holding up huge wooden signs and demanding they take Harry to “purify” him. 
 
-When the adults were all arguing, with Harry’s parents being verbally and physically attacked. 
-
-Harry came over, eager to hide in my bedroom.
+When the adults were all arguing, with Harry’s parents being verbally and physically attacked, Harry came over, eager to hide in my bedroom.
 
 Mom was sceptical at first, because in her eyes it was technically kidnapping, but Harry was terrified. He thought he was going to die, and to my surprise, wrapped his arms around my mom, and begged her to protect him.
 
@@ -84,7 +82,7 @@ But when I walked into class the next day, Harry was sitting at his seat like us
 
 This time he wasn’t enjoying the attention. 
 
-Harry explained the whole thing had been a one-time thing, and he was okay after multiple visits to the doctor, as well as a baptism at the church. From the look on his face, I knew he didn’t have a choice whether he was baptised or not. Still though, Harry seemed his chipper self when he talked more, explaining that he was expected to talk at the carnival about his “trick” and how it had absolutely nothing to do with any odd gifts—and it was just that, a “trick”. Harry Sutton was lying about it being a one-time-thing. 
+Harry explained his gift had been a one-time thing, and he was okay after multiple visits to the doctor, as well as a baptism at the church. From the look on his face, I knew he didn’t have a choice whether he was baptised or not. Still though, Harry seemed his chipper self when he talked more, explaining that he was expected to talk at the carnival about his “trick” and how it had absolutely nothing to do with any odd gifts—and it was just that, a “trick”. Harry Sutton was lying about it being a one-time-thing. 
 
 Because he had been hovering in front of my window two nights before, the two of us seeing how long he could float for. He managed twenty minutes before my mom quite literally dragged him back inside. It looked like his parents had strictly told him that it couldn’t happen again. Harry seemed happy with that.
 
@@ -116,9 +114,13 @@ Mrs Jackson had never laughed at us. Ever. In fact, I always saw her as one of t
 
 But I hadn’t touched it. Then, across the room, Lissa Jason’s pen flew out of her hands and hit the wall. “I can’t read it!” Roman shrieked, before jumping to his feet and shoving his desk over.
 
-But his desk wasn’t the only one which moved. I thought it was an earthquake at first. Though it wasn’t the ground which was shaking, it was every object in the classroom, shaking, quivering, before dropping onto the ground. The first wave was relatively normal. Some kids screamed in fright, and the teacher dropped to her knees to cover her own head, while yelling at us to get under our desks. Before Roman dropped to his knees, sobbing and pulling out chunks of his hair. When he pounded the floor with his fists, everything seemed to go in slow motion in front of me. My desk flew up, up, up into the air and crashed into the ceiling with every other—hovering for maybe half a second, before crashing back onto the ground.
+But his desk wasn’t the only one which moved. I thought it was an earthquake at first. Though it wasn’t the ground which was shaking, it was every object in the classroom, shaking, quivering, before dropping onto the ground.
 
-I wasn’t aware that I had been crushed by one, and with foggy thoughts bleeding through me, I could only lay on my back and stare at Ben Tanner who sat in front of me. His body was still in the air, but it was contorted and wrong, twisted, like his bones had been ripped from him. There were three others like Ben, hanging suspended in mid-air. Dead. They were dead. Lucy, Jane, and Ryan. 
+The first wave was relatively normal. Some kids screamed in fright, and the teacher dropped to her knees to cover her own head, while yelling at us to get under our desks. Before Roman dropped to his knees, sobbing and pulling out chunks of his hair. When he pounded the floor with his fists, everything seemed to go in slow motion in front of me. My desk flew up, up, up into the air and crashed into the ceiling with every other—hovering for maybe half a second, before crashing back onto the ground.
+
+I wasn’t aware that I had been crushed by one, and with foggy thoughts bleeding through me, I could only lay on my back and stare at Ben Tanner who sat in front of me. His body was still in the air, but it was contorted and wrong, twisted, like his bones had been ripped from him. There were three others like Ben, hanging suspended in mid-air. Dead. They were dead. 
+
+Lucy, Jane, and Ryan. 
 
 I could see their blood hanging with them, pooling in thick beads around head wounds I knew wouldn’t get better. 
 
@@ -186,9 +188,11 @@ Not when you’re eight years old and have no control over it. Just like Sam Sut
 
 She didn’t come to school for a week and I thought she had the flu, before mom came to my room and told me calmly that Isadora was sick like the other kids. I didn’t understand what she meant until I woke to the stink of smoke choking the back of my nose and throat, and a fiery orange glow through the window we usually talked through. Our windows had always faced each other since we were kids, so the two of us had grown up talking to each other. 
 
-Isadora’s bright pink curtains had been set alight, consumed in brilliant, beautiful and yet terrifying orange. Mom dragged me outside where we watched Isadora’s house explode, with Isadora and her mother standing outside, watching their house crumble. Isadora seemed remarkably calm, her eyes lit up in the glow of the dancing flame in front of her. 
+Isadora’s bright pink curtains had been set alight, consumed in brilliant, beautiful and yet terrifying orange. Mom dragged me outside where we watched Isadora’s house fall apart, with Isadora and her mother standing outside, watching their home crumble. Isadora seemed remarkably calm, her eyes lit up in the glow of the dancing flame in front of her. 
 
-When I tried to talk to the girl, my mom pulled me away and strictly told me I was to not speak to any of the infected kids. It became almost the norm to see a tree set on alight on the way home in the car, or a dead body in the road. Where there was a corpse, a kid from my school was always nearby, and 9 times out ten, they were in hysterics. Some kids had found a way to use their abilities for their own personal benefit. Though it’s not like they were hurting anyone. A girl who could turn invisible was caught stealing candy from the store and was treated like a criminal. The mayor declared a curfew, and announced a crisis meeting which would be held at the town hall, which all parents had to attend. The infected kids, which the majority of the elementary school, were locked up in the sheriff’s office.
+When I tried to talk to the girl, my mom pulled me away and strictly told me I was to not speak to any of the infected kids. It became almost the norm to see a tree set on alight on the way home in the car, or a dead body in the road.
+
+Where there was a corpse, a kid from my school was always nearby, and 9 times out ten, they were in hysterics. Some kids had found a way to use their abilities for their own personal benefit. Though it’s not like they were hurting anyone. A girl who could turn invisible was caught stealing candy from the store and was treated like a criminal. The mayor declared a curfew, and announced a crisis meeting which would be held at the town hall, which all parents had to attend. The infected kids, which the majority of the elementary school, were locked up in the sheriff’s office.
 
 After multiple visits to the town doctor, and an MRI scan, mom told me I seemed to be okay—but I had to be kept under constant observation. So, that meant going along with her to the town meeting. When we walked in, however, I was stared at like I was a feral beast, and my mother was told to escort her “monstrous” child out of the premises. That’s how I ended up sitting on the concrete steps leading into the town hall, the sun baking through my shirt, a sickly feeling in my gut which wouldn’t go away, and Pokémon Sun on my 3DS. 
 
@@ -196,7 +200,7 @@ I knew about the whole craze with Pokémon go. Teenagers across town were obsess
 
 I did ask mom for a phone, but apparently I was too young for one. So, it was just my 3DS and me. I was gritting my teeth through a tough match, when a shadow loomed over me, accompanied with a sudden wave of nausea. When I lifted my head, I found myself staring at one of the most beautiful grown up’s I had ever seen. 
 
-Though I wasn’t sure if he even was a grown up. His face looked… strange. It’s like I was staring at a being pretending to be human.
+Though I wasn’t sure if he even was a grown up. His face looked… strange. It’s like I was staring at an alien being pretending to be human.
 
 The man wore a white lab-coat and jeans, though when my eyes travelled up to his face, his ears were oddly pointy, and his skin was far too white, a sheen to it. The man’s eyes though, were… hypnotising; a shade of green I had never seen before. I found myself lost in his eyes, in his wide grin, before I managed to tear my gaze from his face, and drink in the rest of him.
 
@@ -220,7 +224,9 @@ He looked taken aback for a moment before side-stepping past me and pushing thro
 
 When I twisted around, Tommy, one of my friends, was in front of me. Tommy had voices in his head. He told me they sounded like roaring waves, a string of unintelligible words constantly inside his head. At first, it had driven him crazy. 
 
-He had to be carried out of class, screaming about his brain being taken over by aliens. After a while though, he seemed to have at least gotten used to it. Tommy knew exactly what I was thinking or going to think. He could also make people do things if he grabbed their hands. Luckily, he only used that ability to stay up late or get extra pudding. To combat the voices, Tommy wore headphones. Tommy’s smile was wide, but I knew he was faking it. Being locked in the sheriff’s office with half of the town’s kids couldn’t have been fun. I jumped to my feet, shoving my DS in my pocket. “Nobody,” I said, “How did you get out?”
+He had to be carried out of class, screaming about his brain being taken over by aliens. After a while though, he seemed to have at least gotten used to it. Tommy knew exactly what I was thinking or going to think. He could also make people do things if he grabbed their hands. Luckily, he only used that ability to stay up late or get extra pudding. To combat the voices, Tommy wore headphones. Tommy’s smile was wide, but I knew he was faking it.
+
+Being locked in the sheriff’s office with half of the town’s kids couldn’t have been fun. I jumped to my feet, shoving my DS in my pocket. “Nobody,” I said, “How did you get out?”
 
 Tommy folded his arms. “Harry can fly, remember?”
 
