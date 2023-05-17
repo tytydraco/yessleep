@@ -245,6 +245,6 @@ As much as we don’t want to go, we’ve resolved that we have to.  We can’t 
 
 Next weekend we’re making the trip back up there.  Even if it kills [us.](https://youtu.be/-ufIEcSFfjA)
 
-[JG](https://www.reddit.com/r/JGcreepypastas?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+[JG](https://www.reddit.com/r/JGcreepypastas/comments/zpi8zt/master_story_list_updated_regularly/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [TCC](https://www.reddit.com/r/TheCrypticCompendium?utm_medium=android_app&utm_source=share)
