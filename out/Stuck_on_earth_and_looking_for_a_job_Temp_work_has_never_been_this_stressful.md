@@ -256,3 +256,5 @@ I retired to my bedroom to catch up on some rest. And here I am now. It's weird;
 [5: beach concert](https://www.reddit.com/r/nosleep/comments/13heih5/stuck_on_earth_and_looking_for_a_job_something/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [6: First date](https://www.reddit.com/r/nosleep/comments/13ib2es/stuck_on_earth_and_looking_for_a_job_my_first/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[8: roommate talk](https://www.reddit.com/r/nosleep/comments/13k8088/stuck_on_earth_and_looking_for_a_job_a_talk_with/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
