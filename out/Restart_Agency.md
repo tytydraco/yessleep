@@ -1,6 +1,6 @@
 It had been a typical hectic morning in the life of a married mother of two children; I’d dragged myself out of bed, made breakfast for the family, checked my kid’s schoolbags for contraband and (in)completed homework. My husband, Jack, was already well out the door before I hustled the kids to the bus stop. It was washing day – when wasn’t it with two kids – and I rolled up the sleeves of my dressing gown to get to work sorting sports gear, socks, and towels, from the massive hamper in the laundry room.
 
-In moments like these, when tacking huge domestic chores, I liked to remind myself of what I had. Jack and I were lucky that we had his salary, this big house inherited from his parents, and that I didn’t need to work so I could be a full-time mum. We also knew that if anything went terribly wrong, we could rely on my parents to bail us out, as they were fairly wealthy, even though only my mother still worked.
+In moments like these, when tackling huge domestic chores, I liked to remind myself of what I had. Jack and I were lucky that we had his salary, this big house inherited from his parents, and that I didn’t need to work so I could be a full-time mum. We also knew that if anything went terribly wrong, we could rely on my parents to bail us out, as they were fairly wealthy, even though only my mother still worked.
 
 I had a good life – no, a *great* life – and I knew many people would practically die to have it. My days might have a decent amount of domestic drudge to them, but I felt more useful here at home, looking after my family, than I ever had in an office where I’d been writing reports or replying to dreary emails.
 
@@ -30,7 +30,7 @@ He shook his head, his features unreadable, “No, you’re not in trouble *Mrs 
 
 Confused and with a growing gnaw of anxiety in my belly, I led them to the living room and seated them in the long leather couch, while I ducked into the kitchen.
 
-“I’m getting a drink, my throat is dry, do you gents need anything.”
+“I’m getting a drink, my throat is dry. Do you gents need anything?”
 
 “No thankyou,” came the gruff reply.
 

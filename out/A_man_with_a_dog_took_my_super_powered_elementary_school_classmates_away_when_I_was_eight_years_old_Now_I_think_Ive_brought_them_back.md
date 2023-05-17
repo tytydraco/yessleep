@@ -92,7 +92,7 @@ I took my usual seat. Class started out as normal as it had ever been. Though I 
 
 This time, though, when he raised his hand to answer questions she was throwing at the class, the teacher completely ignored him—and even gone as far as moving away from him, making it very obvious she didn’t want to be near the kid in the politest way possible. 
 
-Harry seemed angry at first. Upset. He gritted his teeth all the way through reading time which was usually his time to shine, since he was several reading stages above all of us. Instead, Mrs Jackson picked out Roman Carlisle to read a passage from a book I knew he couldn’t understand or read. Neither could I. 
+Harry seemed angry at first. Upset. He gritted his teeth all the way through reading time which was usually his time to shine, since he was several reading stages above all of us. Instead, Mrs Jackson picked out Roman Fairview to read a passage from a book I knew he couldn’t understand or read. Neither could I. 
 
 The cover was very grown up, and when I peeked inside, every single word was gibberish to me. Usually, Harry would be able to breeze through the first few pages to bring us all into the story. But now that it was Roman, the kid who only spoke to announce he had accidentally stuck a needle through his finger, I was expecting chaos. 
 
@@ -128,7 +128,7 @@ When the boy collapsed into her chest, sobbing into her shoulders, our dead clas
 
 If one of my classmates was going to kill me. 
 
-Mom came to collect me, not saying a word in the car. Instead of talking to me about my three dead classmates, and Roman Carlisle, she took me to Target to distract me. She bought me a new coat, some dry shampoo, and a comic book. 
+Mom came to collect me, not saying a word in the car. Instead of talking to me about my three dead classmates, and Roman Fairview, she took me to Target to distract me. She bought me a new coat, some dry shampoo, and a comic book. 
 
 When she was loading groceries into the car, I glimpsed a kid standing on the other side of the road. Mimi Wainwright. She had been sick on the day of Roman’s breakdown. I don’t think her mom had told her, because when she saw me, she waved. “Cole!” Mimi bounced up and down with a wide smile. “Hi! Did you watch the new episode of SpongeBob?!” 
 
@@ -168,7 +168,7 @@ I blinked rapidly.
 
 Before… red.
 
-There was an explosion of red where Mimi’s father was supposed to be, before his headless body slammed into the ground with a meaty smack. And that was the first time I realized that it wasn’t just Harry Sutton and Roman Carlisle who could do scary things. Our whole town was cursed with kids who could suddenly hurt people without wanting to, or even realizing.
+There was an explosion of red where Mimi’s father was supposed to be, before his headless body slammed into the ground with a meaty smack. And that was the first time I realized that it wasn’t just Harry Sutton and Roman Fairview who could do scary things. Our whole town was cursed with kids who could suddenly hurt people without wanting to, or even realizing.
 
 They were murderers without motive. Or the motive was as pathetic as not being able to go to the park or being unable to read a book properly. Problems which usually plagued us which would cause us to cry or get angry, were suddenly being solved by exploding heads or sending inanimate objects flying into the air. I cried to get my own way or went to my bedroom to make some kind of point. My classmates, however, were barbecuing their teachers. I wasn’t in class when it happened, but enough kids who weren’t traumatised were already talking about it. Sam Sutcliffe, after being told he wouldn’t be making the junior soccer team, had set the coach on fire during an argument. 
 
