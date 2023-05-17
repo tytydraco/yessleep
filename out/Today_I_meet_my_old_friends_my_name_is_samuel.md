@@ -15,6 +15,8 @@ Finally after two month inviting him to visit my house he finally agree,we then 
 It's midnight, he then tell me that he about to show the surprise, he then give me the razor blade, he also bring one out for himself, I know what he doing, we about to have fun tonight, that night is my fucking best night, but then I waked up, realizing it just a dream, I then look at my side, oh yeah he already dead, it just a corpse 'right mom and dad?' I look at my right, wait yeah, they won't talk.... 
 Not anymore...... 
 
-I shouldn't be sleeping here, maybe you all would never hear from me again, haha
+I shouldn't be sleeping with this in my room, maybe you all would never hear from me again, haha
+
+Mom,dad you just need to wait a little bit more you both and my friend will meet me soon,
 
 -samuel
