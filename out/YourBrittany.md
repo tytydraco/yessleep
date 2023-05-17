@@ -376,4 +376,4 @@ I just want to know that whoever did this to me is dead and I don’t care how t
 
 &#x200B;
 
-I just want to feel safe again.
+I just want to feel safe [again.](https://www.reddit.com/r/HeadOfSpectre)
