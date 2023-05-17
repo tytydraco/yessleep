@@ -46,7 +46,7 @@ I swear I froze for a few seconds. I closed the blinds before they would get a c
 
 I wanted to stop over thinking but I couldn't. Not even Dave could respond to my calls or messages and he was the last one who called me. I started walking around my house, creating more scenarios of what could happen. I think I did this for around 25 minutes. I started biting my nails till they started bleeding out cause of the stress. 
 
-They suspense was eating me from the inside, I had to check if they were there again, I had to check if my mind made it up. I slowly walked up to my room and looked through the blinds. Apparently, nothing was there, but the door was bust open and had scratches. The front windows were broken. I made sure it was a figment of my imagination.. I shouldn't have checked a second time.. 
+The suspense was eating me from the inside, I had to check if they were there again, I had to check if my mind made it up. I slowly walked up to my room and looked through the blinds. Apparently, nothing was there, but the door was bust open and had scratches. The front windows were broken. I made sure it was a figment of my imagination.. I shouldn't have checked a second time.. 
 
 As I started rising my view for a second, to Tom's second floor window, I saw 2 big black orbits staring Into my soul with a wicked smile that was salivating like fucking dog. At that moment I realised they could see, they could see more than us. I couldn't look back, it was like it made me stare, like it wanted to steal my soul and mind. It was one of the creatures that was in front of the house. We kept staring at eachother for a few seconds until he turned around and ran away. My heart started pumping as I realized that it was coming to my house. 
 
