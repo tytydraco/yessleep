@@ -1,4 +1,4 @@
-Thank you again to everyone who is still following and reaching out. If you missed the earlier parts, this all started [here](https://www.reddit.com/r/nosleep/comments/130mkjv/the_s%C3%A9ance_club_an_invitation_to_windhaven_manor/). The previous post (Part 4) is [here](https://www.reddit.com/r/nosleep/comments/13cnxrf/the_s%C3%A9ance_club_a_voice_from_the_forest/).  
+Thank you again to everyone who is still following and reaching out. If you missed the earlier parts, this all started [here](https://www.reddit.com/r/nosleep/comments/130mkjv/the_s%C3%A9ance_club_an_invitation_to_windhaven_manor/). The previous post (Part 4) is [here](https://www.reddit.com/r/nosleep/comments/13cnxrf/the_s%C3%A9ance_club_a_voice_from_the_forest/). The next post (Part 6) is [here](https://www.reddit.com/r/nosleep/comments/13jz60k/the_s%C3%A9ance_club_escape_from_the_dungeon/) 
 
 \------
 

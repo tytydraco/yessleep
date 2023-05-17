@@ -44,7 +44,7 @@ The few pieces of furniture I did notice though were located in the living room 
 
 As I sat down on the couch, I noticed that there was a note on the coffee table. 
 
-I picked it up and began to read its content.
+I picked it up and began to read it...
 
 *"Hello Anne,* 
 
