@@ -181,3 +181,5 @@ I proceeded to sit down in my room and *think*. It's almost hard to believe how 
 [6: First date](https://www.reddit.com/r/nosleep/comments/13ib2es/stuck_on_earth_and_looking_for_a_job_my_first/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [7: Temp work](https://www.reddit.com/r/nosleep/comments/13ja7jx/stuck_on_earth_and_looking_for_a_job_temp_work/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[9: dismal worldview](https://www.reddit.com/r/nosleep/comments/13l69a9/stuck_on_earth_and_looking_for_a_job_the_world/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
