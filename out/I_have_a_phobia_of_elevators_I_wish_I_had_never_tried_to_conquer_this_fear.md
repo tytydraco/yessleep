@@ -42,7 +42,7 @@ I stepped into the metal box, doubting myself with every step. Even as my hand r
 
 The call had ended. I had forgotten that elevators often do that. Not only do they wish to trap you from the outside world physically, but also mentally. I had no way of communicating with Maria, and was left with my own thoughts, all of which were negative. I tried to fight the feeling of dread, trying to not even acknowledge the fact that I was in an elevator. It must have been about a minute in that I realised something was wrong - Elevators were not supposed to take this long. The number above the door indicated that I was still on the fourth floor. But I could feel the elevator moving - Or, was that just my anxiety making everything spin?
 
-I pressed "G" again. I don't know how many times I pressed it before switching to the "Open Doors" button. Neither seemed to do anything to help my shakey breathing from speeding up. It felt as though the air I was breathing was giving me no oxygen at all - Suffocating on air.
+I pressed "G" again. I don't know how many times I pressed it before switching to the "Open Doors" button. Neither seemed to do anything to help my shakey breathing from speeding up. It felt as though the air I was breathing was giving me no oxygen at all - Suffocating on nothing.
 
 I pressed the Emergency button, waiting for a response. For a brief moment, as a man's voice interrupted the music, I felt myself feel more grounded with the Earth. "Hello, is everything okay?"
 
@@ -76,7 +76,7 @@ I only noticed that the music had stopped when the man on the elevator's helplin
 
 The longer I stared at the silhouette, the more I seemed to see. It wasn't motionless - It seemed to move slightly up and down. I would say it was breathing if the pattern was more regular; This was more like a grotesque quaking. A dripping sound began, as a puddle of liquid emerged from the darkness.
 
-"Perhaps some fears are " -- The power went out, as the lights flickered away, the gentle crackle of the speakers vanished.
+"Perhaps some fears are " -- The power went out, and as the lights flickered away, the gentle crackle of the speakers vanished.
 
 I could hear only my breathing, and the dripping.
 
@@ -88,9 +88,7 @@ I didn't know what to expect. Every small movement I made felt like it could be 
 
 I heard a whirring, and the doors close. I had never felt so relieved to be locked in by something beyond my control. The elevator descended again, and I had a moment to reflect on what had just happened. The lights of the elevator remained off, but the red glow from the display above the door remained - I watched as the numbers blinked from "2", to "1", to "G", I was waiting for the doors to open and to be met with the familiar, beaming face of Maria.
 
-As light from the lobby poured into the elevator, I saw that the lobby was empty.
-
-As my phone reconnected to the network, it got multiple notifications at once.
+As light from the lobby poured into the elevator, I saw that the lobby was empty, and as my phone reconnected to the network, it got multiple notifications at once.
 
 "You're taking a while, is everything okay?"
 
@@ -98,4 +96,48 @@ As my phone reconnected to the network, it got multiple notifications at once.
 
 "I'm gonna come upstairs and find you."
 
-[===](https://reddit.com/r/BriteWrites)
+My hands still shaking, tried their best to type out a reply.
+
+"Don't take the elevator."
+
+As the message failed to send, my dread was all but confirmed. I ran out of still pitch-black elevator, through the lobby, and sprinted up the stairs.
+
+"MARIA?" - I called out to her up the stairwell, although even if she called back I probably wouldn't have heard her over my panic. "MARIA!" - I kept calling out, until I reached the third floor.
+
+The blank wall of this floor meant something new to me. Once simply a wall with no door was now a barrier, keeping something at bay. Slowly, but as fast as my anxiety would allow, I placed a finger on the wall, then my palm, then my ear. I gently tapped on the wall, and it seemed to echo louder than a normal wall should.
+
+I stayed as silent as possible, not even entirely sure what I was listening for. My own heartbeat seemed to grow louder and louder, thumping right through my entire body. My own fingertips moved slightly with every beat, as I stayed silent.
+
+Waiting.
+
+Like the creature on the other side, waiting.
+
+I almost fell backwards as a loud *BANG* echoed - Turning around, I saw that it came from behind me. It was Maria.
+
+"Oh my god, you look so stressed - It's okay if you couldn't take the elevator in the end!"
+
+"I did take it. I wish I didn't."
+
+I briefly explained what I saw. Trying to make it sound like reality was difficult - It felt like I was lying to her, when I was simply explaining the very events I had just witnessed.
+
+I think she would have laughed if I didn't have tears streaming down my face.
+
+She hugged me tightly, as I let my head sink into her shoulder. Muffled through my crying, I was able to get out, "I thought you were dead."
+
+I stayed at Maria's house that night, and the whole week. To my surprise, she seemed to believe everything I had told her. She wanted to help me find the truth. She always has been a good friend - I'm truly honoured to have someone like her in my life.
+
+The first thing we found was an image of the building's exterior from 2008. Windows on the third floor - Some open, some closed, many with plants visible, or clothes hanging out to dry. People lived there some time ago. The next image we could find was from 2015 - The windows were gone. In those 7 years, something happened, the question is simply a matter of what.
+
+A local news article from 2012 seemed to hold some answers - "15 residents left furious as they are evicted from their homes". It spoke about the apartment building, and how a leak on the third floor kept coming back. Residents described it as a "deep, black, gooey liquid, dripping with an inconsistent rhythm" - An awful lot like what I had seen. The eviction was temporary at first, whilst the leak was investigated, but it seemed to slowly transition to something permanent.
+
+What piqued my interest is that they specified "We were able to catch up with 14 of those affected" - So where's the missing one? After reading through the names of everyone they caught up with, and investigating public documents, I found only 1 resident's name that didn't appear in the article. Dr Victor Moros.
+
+He was reported missing shortly after the article was published.
+
+He had a PhD in Psychology - Specifically specializing in phobias.
+
+I managed to track down a relative of Victor. Their most recent address is the small English countryside town of Sonder. I want to talk to them, but I don't want to be disrespectful - They'll just think I'm crazy.
+
+I did visit the apartment lobby yesterday, just to check in on everything. The elevators were "Out of Order" - Not that I needed a sign to stop me using them again anyway.
+
+All of this seems to link together somehow, I just know it.
