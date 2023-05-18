@@ -1,4 +1,4 @@
-I’m a huge creepypasta fan. My personal favorites are The Russian Sleep Experiment, Zalgo, The Harbinger Experiment, and I’m a Guard Stationed at a Secret Government Prison. I’ve listened to hundreds of hours of creepypasta readings, creepypasta icebergs and so on. To say I am well entrenched in the fandom is an understatement. However, I also knew all of these creepypastas were fake, even if some of them had a modicum of truth behind them. They’re just stories. So the idea that I would be swept up in a real life creepypasta, yet alone a Pokemon related creepypasta, seemed ridiculous. However, that is the reality I find myself in. Now don’t get me wrong, this isn’t some haunted cartridge with the ghost of some kid in it who wants to possess me. No, this is simply nothing more or less than a hacked cartridge, totally within the realm of possibility. 
+I’m a huge creepypasta fan. My personal favorites are The Russian Sleep Experiment, Zalgo, The Harbinger Experiment, and I’m a Guard Stationed at a Secret Government Prison. I’ve listened to hundreds of hours of creepypasta readings, creepypasta icebergs and so on. To say I am well entrenched in the fandom is an understatement. However, I also knew all of these creepypastas were fake, even if some of them had a modicum of truth behind them. They’re just stories. So the idea that I would be swept up in a real life creepypasta, yet alone a Pokemon related creepypasta, seemed ridiculous. However, that is the reality I find myself in. Now don’t get me wrong, this isn’t some haunted cartridge with the ghost of some kid in it who wants to possess me. No, this is simply nothing more or less than a hacked cartridge, totally within the realm of possibility.
 
 &#x200B;
 
@@ -71,3 +71,7 @@ I never saw the game again, which I do think was probably a good thing. The poli
 &#x200B;
 
 I don’t know if Craig is alive or not. I wonder if they’re living under a different name or something. I find myself thinking about Craig a lot, even now in my adult years. I hope he’s safe, I hope he’s out there living a happy life. Perhaps publishing this story may get him to get back in touch with me. Who knows, I just want to know he’s okay, even if we never talk again after getting that confirmation. I still have one question that haunts me to this day, a question that makes me awaken with a cold sweat. A question with an answer that had horrifying implications. Was it really Craig who made that hack?
+
+&#x200B;
+
+Next part: https://www.reddit.com/r/nosleep/comments/13knyy2/my\_friend\_is\_being\_followed\_by\_someone\_i\_cant\_see/
