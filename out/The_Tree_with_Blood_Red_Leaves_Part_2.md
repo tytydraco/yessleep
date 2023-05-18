@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/11m30dm/the\_tree\_with\_blood\_red\_leaves/](https://www.reddit.com/r/nosleep/comments/11m30dm/the_tree_with_blood_red_leaves/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/11m30dm/the\_tree\_with\_blood\_red\_leaves)
 
 &#x200B;
 
@@ -192,7 +192,7 @@ While we were walking back to Chrissy's room, I told her more about the tree and
 
 &#x200B;
 
-"I don't know what happened," she said. "I just remember seeing Chrissy and then the tree, and then you hitring me with the snowball."
+"I don't know what happened," she said. "I just remember seeing Chrissy and then the tree, and then you hitting me with the snowball."
 
 &#x200B;
 
@@ -345,3 +345,5 @@ There was more too. When they went to his house, they found Mrs. Roberts and dis
 &#x200B;
 
 I had to fill in Chrissy when she was released from the hospital on the gruesome details of the murders. She couldn't believe it, just like the rest of us in town. As I drove her to her house, I told her we need to do something about that tree. She nodded her head in agreement, but her eyes seemed somewhere far away.
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/13k3d9q/the_tree_with_blood_red_leaves/)
