@@ -1,7 +1,7 @@
 There is an obscure YouTuber out there. I won't reveal his name, but I will refer to him as Jeff. On April 16, 2023, he uploaded a video titled Destroying My Brother's Phone Then Buying Him a New One. I found this in my recommended section and got caught off guard by the title. Destroying his brother's phone? Buying a new one? It sounded like vandalism and gaslighting. Now, I had watched one of his videos before, and I never thought he was the kind of person to do such a thing.
 
 
-I hoped it was clickbait and pressed the title anyway. I wanted to make sure this wasn't actually somebody being a dipshit for views. Unfortunately, that turned out to be the case. The video began with the guy, Jeff, excitedly greeting the viewer, telling us that today, he was going to sneak into his brother's room, take his phone, and smash it.
+I was hoping it was just a joke and pressed the title anyway. I wanted to make sure this wasn't actually somebody being a dipshit for views. Unfortunately, that turned out to be the case. The video began with the guy, Jeff, excitedly greeting the viewer, telling us that today, he was going to sneak into his brother's room, take his phone, and smash it.
 
 
 This had to be a joke. Nobody would actually destroy other people's stuff like that, right?
@@ -37,7 +37,10 @@ I replied, telling him what he did wasn't positive. He didn't respond, so I repl
 The next day, I got an email from Jeff. The weird thing was I never had my email displayed anywhere Jeff could see. Not on my YouTube profile, nowhere. This is what the email read:
 
 
-"Can you stop commenting on my video? Please? There was a reason I made that damn video in the first place. I needed to appease the man. The man wanted me to make the video so he wouldn't have to take extra measures.
+-----
+
+
+Can you stop commenting on my video? Please? There was a reason I made that damn video in the first place. I needed to appease the man. The man wanted me to make the video so he wouldn't have to take extra measures.
 
 
 By the way, it's all acting. My brother was in on the prank. Yes, I understand posting videos like this, especially for rage bait, is harmful. Yes, I'm not responsible for anybody's actions, but I get it. It's the wrong message to send... to say gaslighting works. And it's wrong to make rage bait when people with ASD exist.
@@ -106,34 +109,58 @@ The following week, he gave me another idea.
 I told him I wouldn't be able to, as I didn't have enough money for the materials.
 
 
-"Well… don't blame me," he said, looking into my eyes with a distorting smile. His skin began to shribble. Multiple thoughts popped into my head, making me wonder if I was going to be feeling on edge for the rest of my life. Chills ran down my spine as the what if thoughts flew around in my head.
+"Well… don't blame me," he said, looking into my eyes with a distorting smile. His skin began to shribble. Multiple thoughts popped into my head, making me wonder if I was going to be feeling on edge for the rest of my life. Chills ran down my spine as the what if thoughts flew around in my head. Then... the kicker.
 
 
-"We… when I-I get the money, I can do it," I said.
+"Soon you might wake up and find you have no skin."
 
 
-His face returned to its normal look.
+My heart sunk further. "What? Why... what the fuck?" I thought to myself. He sounded so sure of himself too... I know what he sounds like when he's sure of himself. "...the hell?"
 
 
-"You have four years," he said.
+"We… when I-I get the money, I can make the video," I said.
 
 
-By now, I've done 12 videos for him. I don't know why he needs these videos, and it's creeping me out, but I need to do these videos. He's been very cryptic about the consequences, which gives me a lot more anxiety.
+(Reading this part of Jeff's email made my stomach turn, believe me. It caught me so off guard.)
 
 
-He told me to do the destruction video, so I had to do the destruction video. In case you're wondering, Im friends with a couple other YouTubers who have done similar videos... they confirmed to me there isn't some creepy dude forcing them to make those videos.
+His face returned to normal, but what he told me was still making my stomach turn.
 
 
-All I can do is tell you about this. You, unfortunately, can't do anything about it. I'm sorry."
+"You have four years to post it," he said.
 
 
-I thought this was pure bs. There was no way this was happening to him. It read like a creepypasta, if I'm being honest. Well, at least he admitted gaslighting is wrong.
+To hopefully get out of this, I obliged. Maybe he'll go away, maybe he won't. I dread him fulfilling his threat. I mean, all I had to do was make a video, right?
 
 
-NOTE: Okay, this is freaky. I heard leaves being ruffled right outside my bedroom window. I looked back and saw a man with a distorted face staring in. My heart sank. He glared at me in a sinister way, then it seemed he was smiling with his distorted eyes, but in the same sinister way.
+By now, I've done 12 videos for him. He brings up the no-skin threat every time, even gluing a drawing of me without skin to the ceiling above my bed. I don't know why he needs me to make these videos, and it's creeping me out.
 
 
-I wanted it to be a hallucination, to the point where I waited for him to leave, then when he did, I looked out the window and saw the bush right outside had been flattened, with leaves strewn all over the place.
+He told me to do the phone destruction "prank" video, so I had to do the destruction video. In case you're wondering, Im friends with a couple other YouTubers who have done similar videos... they confirmed to me there isn't some creepy dude forcing them to make those videos.
 
 
-Freaky things like that really do exist… Jeff's email is the most chilling thing I've ever read. I'm considering deleting it and closing my curtains for a long time. And calling the police to report a stalker, as I don't know what this man's intentions are.
+All I can do is tell you about this. You, unfortunately, can't do anything about it. I'm sorry.
+
+
+-----
+
+
+I thought this was pure bs. There was no way that was actually happening to him. It read like a creepypasta, if I'm being honest. Well, at least he admitted gaslighting is wrong, but why did he need to tell me all that? All it did was leave me feeling cold for a couple hours. There was another sensation too. A dark dreadful one that felt... imminent, if that makes sense. I had never felt such a thing before, which got me thinking, what if Jeff was telling the truth? I took my mind off of it as best I could to alleviate the dread.
+
+
+That night, I was sitting on my bed, surfing the web, when I heard a ruffling of leaves coming from what I assumed was the bush outside my bedroom window. I looked out the window and saw a tall man in plain grey and black clothing standing in the bush, staring at me with a look of sinister determination. My heart sunk. What was worse was his face appeared as if it was poorly generated by an AI. His features, aside from his eyes, were barely recognizable as human.
+
+
+Jeff must've been telling the truth. I shouldn't have bothered him. Now I have to face this maniac who wants to, what, take my skin?
+
+
+Why???
+
+
+The man stepped up to the window, pressing himself up against it, then he puching the glass. A pit formed in my stomach as I instinctually backed away. He hit the glass again... and again... and again.
+
+
+I sprinted into the bathroom and called the police, telling them an intruder was trying to break into my house.
+
+
+I just heard the window break. Damn it. I guess, freaky things like that really do exist… I hope I can get out of this somehow, but it doesn't look like there's a way, sadly, especially with the fact the man somehow found out where I lived... I can hear his footsteps now... I'm going to get this out in case I don't survive this encounter.
