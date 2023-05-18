@@ -84,7 +84,7 @@ I did not know whether this thing was in front of me, or far away from me. I lis
 
 The darkness seemed thick, like I could cut right through it. If I had a knife on me, I'd probably have tried - At least I'd be protecting myself in the process.
 
-I didn't know what to expect. Every small movement I made felt like it could be last.
+I didn't know what to expect. Every small movement I made felt like it could be my last.
 
 I heard a whirring, and the doors close. I had never felt so relieved to be locked in by something beyond my control. The elevator descended again, and I had a moment to reflect on what had just happened. The lights of the elevator remained off, but the red glow from the display above the door remained - I watched as the numbers blinked from "2", to "1", to "G", I was waiting for the doors to open and to be met with the familiar, beaming face of Maria.
 
@@ -141,3 +141,5 @@ I managed to track down a relative of Victor. Their most recent address is the s
 I did visit the apartment lobby yesterday, just to check in on everything. The elevators were "Out of Order" - Not that I needed a sign to stop me using them again anyway.
 
 All of this seems to link together somehow, I just know it.
+
+[===](https://reddit.com/r/BriteWrites)
