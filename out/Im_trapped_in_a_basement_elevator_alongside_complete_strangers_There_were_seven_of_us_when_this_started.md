@@ -245,3 +245,5 @@ These people are the ones I’m supposed to rely on to help each other and get o
 And I can’t trust any of them. 
 
 [330](https://www.reddit.com/r/KyleHarrisonwrites/?utm_source=share&utm_medium=ios_app)
+
+[UPDATE](https://www.reddit.com/r/nosleep/comments/13l2qf8/im_trapped_in_a_basement_elevator_alongside/?)
