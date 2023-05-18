@@ -38,7 +38,7 @@ I wanted to recoil and run away from my grandma, close my eyes against the depra
 
 But the way she was describing the taste, it made me think of mom’s special supper. She made it every so often, and she made a huge deal out of it. I wasn’t allowed to go over to my friend’s place or invite anybody over. 
 
-I gulped, and grandma sees it, and her face changes, and she started wailing. 
+I gulped, and grandma saw it, and her face changed, and she started wailing. 
 
 I ripped my hand out of her grasp, and mom immediately opened the door, as if she was standing there.
 
