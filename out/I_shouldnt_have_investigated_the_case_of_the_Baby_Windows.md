@@ -26,13 +26,13 @@ Too late, it turned out.
 
 As I ascended towards the unknown blackness, I heard more rattling noises and muffled voices. My chest tightened in terror as I braced myself to find the eleven victims. Based on the commotion, I hoped they were alive and well. When I swung the end of my torch across the room, I discovered they were indeed alive, but not well.
 
-Eleven unclothed women hung from the ceiling of the unlit attic, arms and legs hoisted by meat hooks which had elasticated their bloodied skin. They existed in a darkened attic. Not that they would know. Their entire world was darkness because Roué had stitched a large, circular sheet of flesh over each woman’s eyes, nose, and mouth. He had, even more heinously, carved bloody smiles into their new faces.
+Eleven unclothed women hung from the ceiling of the unlit attic, arms and legs hoisted by meat hooks which had elasticated their bloodied skin. Their entire world was darkness because Roué had stitched a large, circular sheet of flesh over each woman’s eyes, nose, and mouth. He had, even more heinously, carved bloody smiles into their new faces.
 
 I emptied the contents of my stomach onto the floor, which briefly drowned out the haunting chorus of muffled wails and groans from the suspended women. But as I approached the hanging victims, I realised that I’d only glimpsed a fraction of the ghastliness Roué had inflicted upon them. I saw what he’d used for the circular sheets of flesh – something more terrible than anything I could have conjured in my wildest nightmares.
 
-The skin had been removed from each woman’s pelvis, and each gaping hole was covered by layers of a translucent, plastic material – polyethylene – which held their innards in place. More specifically, the material served to secure their bulging uteruses, which also bore gaping holes, sealed with plastic. And when I bent down to inspect the women and ensure they were still breathing, I found myself eyeballing their unborn foetuses through plastic windows.
+The skin had been removed from each woman’s pelvis, and each gaping hole was covered by layers of a translucent, plastic material – polyethylene – which held their innards in place. More specifically, the material served to secure their bulging uteruses, which also bore gaping holes, sealed with plastic. And when I bent down to check that all eleven women were still breathing, I found myself eyeballing their unborn foetuses through plastic windows.
 
-I dry-heaved, thankful that I’d already emptied my gut during the initial shock. I prayed the material would be sturdy enough to hold the women together until help arrived. They’ve lasted this long, I thought, horrified at that idea.
+I dry-heaved, thankful that I’d already emptied my gut during the initial shock. I prayed the material would be sturdy enough to hold the women together until help arrived. *They’ve lasted this long*, I thought, horrified at that idea.
 
 “Do you like the windows to my children?” A voice giggled from the darkness.
 
@@ -46,7 +46,7 @@ I screamed, propelling the lunatic off me with all of my upper strength. We both
 
 “You look sad, Louise,” He said, smiling. “So did the others. But I can fix that.”
 
-He launched his body towards me for the second time, and I slammed the sole of my boot squarely into the maniac’s scrawny, malnourished torso. He catapulted through the attic door, and there was a resounding thud as he connected with the landing carpet.
+He launched his body towards me for the second time, and I slammed the sole of my boot squarely into the maniac’s scrawny, malnourished torso. He catapulted through the attic door, and there was a resounding thud as his body connected with the upstairs landing.
 
 Scurrying sounds followed.
 
