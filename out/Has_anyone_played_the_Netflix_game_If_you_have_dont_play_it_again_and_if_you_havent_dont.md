@@ -439,7 +439,7 @@ At the end of a long story, I just wanted to reiterate the message in the title.
 
 
 
-This is not a YMMV kind of situation, so I do not want anyone else’s life on my conscious because I kept this to myself. If you’ve read this story and thought ‘It’s not true, it’s just a story!’ then I can’t help you, but I can pray for you. My friends and I are proof that this isn’t a game. You have been warned. Please! If you value your life, and the lives of your friends and family, if you’ve played the ‘Netflix game’, don’t play it again, and if you haven’t, don’t.
+This is not a YMMV kind of situation, so I do not want anyone else’s life on my conscious because I kept this to myself. If you value your life, and the lives of your friends and family, if you’ve played the ‘Netflix game’, don’t play it again, and if you haven’t, don’t.
 
 
  
