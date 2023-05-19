@@ -142,7 +142,7 @@ His voice seemed distant, too far away. Clearly wherever he was, the signal wasn
 
 “Can’t you report it to the Company?” The Company hunted, destroyed, and collected the bizarre. They were not a force to be trifled with.
 
-They were also after us. Me and Matt, for our own experiences with the divine. “Can’t have them on our trail- plus, I think I can dispel this.”
+They were also after us. Me and Matt, for our own [experiences](https://www.reddit.com/r/nosleep/comments/13cci6c/i_sell_cursed_artifacts_for_a_living_theres_a/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button) with the divine. “Can’t have them on our trail- plus, I think I can dispel this.”
 
 He sighed. “If you say so. Has Quentin contacted you?” I shook my head. We chatted a bit more of cursed artifacts, divine things, and beyond the veil.
 
