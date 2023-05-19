@@ -120,3 +120,5 @@ It pulled her into its mouth and she screamed as much as she could. But there wa
 It grabbed at her and pulled her all the way into its frightening thin mouth. 
 It happened so fast I couldn’t even scream as she was swallowed up. 
 The monster slithered away and In her place the elevator door closed leaving behind a pool of blood.
+
+[UPDATE](https://www.reddit.com/r/nosleep/comments/13lzwug/im_trapped_in_a_basement_elevator_alongside/?)
