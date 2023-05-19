@@ -243,3 +243,5 @@ Frankie’s bed was so perfectly made and unwrinkled that it was difficult to im
 [7: Temp work](https://www.reddit.com/r/nosleep/comments/13ja7jx/stuck_on_earth_and_looking_for_a_job_temp_work/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [8: roommate talk](https://www.reddit.com/r/nosleep/comments/13k8088/stuck_on_earth_and_looking_for_a_job_a_talk_with/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[10: at the warehouse](https://www.reddit.com/r/nosleep/comments/13m8e9w/stuck_on_earth_and_looking_for_a_job_something/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
