@@ -40,8 +40,7 @@ I did my best to sound calm, though truth was, we were desperate for any informa
 
 "No!" he was shouting now. "You don't understand. They... They did something... They took that thing out of the water at it was like..."
 
-"What thing?" I cut him off. "This was your old crew I'm guessing? What did they pull out of the water?"  
-The man was silent for a moment. He was shaking harder, I don't believe it was from being pulled from the ocean anymore. He seemed to stare off into a spot on the table for a moment, his eyes were filled with terror.
+"What thing?" I cut him off. "This was your old crew I'm guessing? What did they pull out of the water?"The man was silent for a moment. He was shaking harder, I don't believe it was from being pulled from the ocean anymore. He seemed to stare off into a spot on the table for a moment, his eyes were filled with terror.
 
 "We were a fishing crew." He finally said, not bothering to lift his eyes. "Our captain had made a special arrangement, we were being paid to ferry two passengers. They..."
 
@@ -53,8 +52,7 @@ The man shook his head harshly. "Doesn't matter, never told me, don't believe th
 
 "...Jerry."
 
-"CAPTAIN! CAPTAIN!!!" One of the deckhands suddenly yelled out, bursting through the door. "Captain! We spotted another one! They're pulling him out now!"  
-\-
+"CAPTAIN! CAPTAIN!!!" One of the deckhands suddenly yelled out, bursting through the door. "Captain! We spotted another one! They're pulling him out now!"-
 
 The newcomer looked around the room with curiosity. Like Jerry, he seemed uneased, though he was holding his nerves better so far. Jerry, stared at him with confusion in his eyes.
 
@@ -90,7 +88,7 @@ Me and Jerry both stared at him in silence.
 
 "What?" I finally said.
 
-"Yeah, like the bow of the ship! It opened up like a mouth, my ship went inside, then it closed its 
+"Yeah, like the bow of the ship! It opened up like a mouth, my ship went inside, then it closed its
 
 mouth. Then went underwater."
 
@@ -128,8 +126,7 @@ I rushed out on deck, the fog at sea was still present, barely giving us maybe f
 
 "It already does..." The newcomer said, staring at the shape with almost a vacant expression. "That's her alright.
 
-A pair of floodlights suddenly flashed on from the approaching titan, beaming on us like a pair of eyes.  
-A loud groan rumbled from its direction. Like a low broken call of a whale.
+A pair of floodlights suddenly flashed on from the approaching titan, beaming on us like a pair of eyes.A loud groan rumbled from its direction. Like a low broken call of a whale.
 
 "It's... it's alive... isn't it?" Jerry said.
 
@@ -152,3 +149,5 @@ I remember being frozen for a moment. starring dead ahead as the rain began to f
 "Captain...?"
 
 "...Full steam ahead!" I nearly growled. "All hands on deck! Let's get ready to fucking run..."
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/13lsm06/lost_at_sea_part_2_the_belly_of_the_whale/)
