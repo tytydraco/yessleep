@@ -15,11 +15,12 @@ Before I could answer, she walked off, leaving me with many unanswered questions
 –
 
 
-The principal was really weird.. I still remember how weird I felt as he spoke. His words were stern, and clear. It felt like my presence disturbed him or something. Other than that, my first day was somewhat okay. That day, I found out Rose was in one of my classes so I ended up befriending her. I never asked her who they were, though.
+The principal was really weird.. I still remember how weird I felt as he spoke. He just handed me my timetable, and told me to obey the rules, expecting me to know what he was talking 
+about. His words were stern, and clear. It felt like my presence disturbed him or something.  Other than that, my first day was somewhat okay. That day, I found out Rose was in one of my classes so I ended up befriending her. I never asked her who *they* were, though.
 
 The first two weeks of school were somewhat okay. They were normal. By the third week, I started noticing how abnormal the school was.
 
-First, the students. Everytime a class started, everyone would say the rules of the school. Though, it was more like they would chant them. It sounded robotic. I always decided to follow them, because I didn't want to get in trouble. These were what they would say:
+First, the students. Everytime a class started, everyone would say the rules of the school. Though, it was more like they would chant them. It sounded robotic. I always decided to follow them, because I didn't want to get in trouble, and I guessed these were the rules the principal had told me to obey. These were what they would say:
 
 *We cannot speak when the teacher is talking.*
 
@@ -59,11 +60,11 @@ I stopped in front of the gates, which were locked, and just broke down crying. 
 
 Then someone tapped my shoulder.
 
-When I turned to see who it was, it was Rose. Well… it looked like her. But… something was extremely off. her eyes were black, her head was tilted to an unnatural angle, and she was…smiling. Black tears were falling out of her eyes.
+When I turned to see who it was, it was Rose. Well… it looked like her. But… something was extremely off. her eyes were black, her head was tilted to an unnatural angle, and she was…smiling. Her smile looked somewhat painful... Black tears were falling out of her eyes.
 
 The thing imitating Rose said, " You just broke a rule. 5 days left for you… since you're new…" Then it disappeared. 
 My heart was beating so fast I thought it would leap out of my chest. What was that..thing? When I turned back, something unusual had happened… everything was black and white, and blurry… then I saw fire, engulfing my surroundings. There was a circle of fire around me, and I just watched in shock and despair. Smoke flooded my nostrils and I started coughing, the smoke slowly suffocating me. I thought I was going to die. Then after a minute of what seemed like hell on earth, it just.. went to normal.
 
-I ran back home, locked the door shut, and broke down crying once again. I opened my parents room to tell them what I had witnessed, but those things weren't my parents. I know they weren't. They had the same black eyes, and they were smiling at me, their heads tilted in that same angle. I slammed the door shut and locked myself in my room.
+I ran back home, locked the door shut, and broke down crying once again. I opened my parents room to tell them what I had witnessed, but those things weren't my parents. I *know* they weren't. They had the same black eyes, and they were smiling at me, their heads tilted in that same angle. I slammed the door shut and locked myself in my room.
 
 That was 4 days ago. It's Friday now, and I've not been to school since. I've been in and out of my room, but my "parents" haven't come out of their room since. Tomorrow is my time. If this gets through, please…help me.
