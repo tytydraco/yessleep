@@ -193,3 +193,5 @@ Then Chloé lost her grip and Sidney was dangling onto the ceiling with every la
 Around me I heard the others collapse from the mist and I couldn’t see if she made it. 
 
 Something told me deep in my gut told me either way our problems were far from over.
+
+[UPDATE](https://www.reddit.com/r/nosleep/comments/13mzgy4/im_trapped_in_a_basement_elevator_alongside/?)
