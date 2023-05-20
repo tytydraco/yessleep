@@ -94,7 +94,7 @@ I arrived at the hospital’s emergency entrance, but when I arrived, the hospit
 
 The simple answer is, I didn’t think. I was just in “protect loved ones” mode. It’s not like I think much anyway. I can barely comprehend my surroundings in a normal environment, nevermind this clusterfuck of an event.
 
-At this pointI just sat there, in shock. I didn’t know what to do.
+At this point I just sat there, in shock. I didn’t know what to do.
 
 This was the point I realized I was truly fucked.
 
@@ -109,8 +109,6 @@ Somehow, I wasn't shot, but disarmed. While I was distracted by the soldiers hol
 I tried to use this moment to decompress but to no avail. Eventually, I arrived home. I was removed from the humvee and put back into my house
 
 At this point I was completely broken. I did the only thing any man would do. I walked to my bedroom, laid down, and cried. I just wanted it all to end. Before this, I was just proud to get through each day, even though I would spend the entire time playing video games and watching YouTube videos. Just losing Grandma alone was enough to make me break down.
-
-Apparently I was sobbing too loudly as the soldier stationed by my house ordered me to shut up. His shouting was far louder than my sobbing, so if volume was a concern this was quite ironic.
 
 The soldiers stationed at my hometown refuse to elaborate on what’s going on and
 
