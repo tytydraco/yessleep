@@ -68,6 +68,12 @@ I think that helplessness is the greatest of all fears, because every terror is 
 
 Obviously, I made it out. [But not everyone did](https://www.facebook.com/P-F-McGrail-181784199029462/).
 
+----------
+
+[How I made it out](https://redd.it/13mq968)
+
+----------
+
 [BD](https://www.reddit.com/r/ByfelsDisciple/)
 
 
