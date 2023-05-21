@@ -107,3 +107,7 @@ My grandfather tried to turn in his deathbed, his weak frame barely holding him 
 “Sure, grandpa, I’ll make sure to put coins on your eyes.” But I knew it was just some delirious conviction of a dying man. Of course, I wasn’t going to put coins over his eyes.
 
 My grandfather died an hour later, and that was when everything went wrong.
+
+&#x200B;
+
+Part 2: https://www.reddit.com/r/nosleep/comments/13nph6b/my\_family\_always\_placed\_coins\_over\_the\_eyes\_of/
