@@ -153,3 +153,5 @@ And then, everything got dark and I heard Nettie scream.
 [8: roommate talk](https://www.reddit.com/r/nosleep/comments/13k8088/stuck_on_earth_and_looking_for_a_job_a_talk_with/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [9: a dismal worldview](https://www.reddit.com/r/nosleep/comments/13l69a9/stuck_on_earth_and_looking_for_a_job_the_world/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[11: staircase dimension](https://www.reddit.com/r/nosleep/comments/13o0npw/stuck_on_earth_and_looking_for_a_job_we_visited_a/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
