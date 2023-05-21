@@ -1,5 +1,4 @@
 
-
 ______
 
 I remember when I was a little boy sitting in catholic school the deacon taught us all about the circles of hell. 
@@ -203,3 +202,5 @@ My mouth feels dry.
 “Thank you for giving me the courage to do this,” he tells Chloé. 
 
 Then he puts the gun in his mouth and pulls the trigger.
+
+[UPDATE](https://www.reddit.com/r/nosleep/comments/13o09nb/im_trapped_in_a_basement_elevator_alongside/?)
