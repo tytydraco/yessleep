@@ -16,3 +16,5 @@ After our doctor visit, life carried on as usual…it had to. We cared for over 
 One night, I was tending to Wanda, a pregnant pig under our care and I felt the warm. Usually when I feel the warm, it starts in my face and works it’s way down…stopping at my chest. This time, I felt it start in my belly and it just stayed there. I waited for it to pass, as the feeling would usually pass after a minute or so, but this time it stayed. Wanda, as big as she was, tried her best to shuffle her big body closer to me. I looked into her eyes and we shared, knowing. Almost the same way I would share knowing with Grady. She told me to not be frightened and I told her I wasn’t…the warm was always a good feeling. A feeling of comfort and safety. She looked at me with fear in her eyes. She knew something other than the warm was coming but she was too frightened to tell me.  
 
 Continue to part 2…
+
+[It’s Come Back For Me (Part 2)](https://www.reddit.com/r/nosleep/comments/13n3xbx/its_come_back_for_me_part_2/?utm_source=share&utm_medium=ios_app&utm_name=ioscss&utm_content=2&utm_term=1)
