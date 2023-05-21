@@ -1,115 +1,51 @@
- 
+It happened during the early hours of the morning. I was driving home from yet another late night at the office. The road was completely deserted, like it always was. 
 
-I strained to force open my crust coated eyelids as rays of sunlight beamed full force into my face. My head pounded, pleading with me to shut the blinds. I nearly gagged as the stench of my own rancid breath wafted out of my dry sticky mouth and collided with my nostrils.
+There wasn’t a single light post in the area, the headlights on my car were the only source of light guiding me along this long, deserted stretch of road.
 
-I lazily glanced over at the alarm clock. Twelve minutes past one. I rolled over and shut my eyes, attempting in vain to quell the thunderstorm raging in my head.
+My eyelids were starting to feel heavier by the second, and I was struggling to stay awake. 
+To fight back against the urge to close my eyes, I reached for the glove box and grabbed a pack of cigarettes. There was just one cigarette left. I grabbed it and threw the empty packing out the window.
 
-Suddenly my stomach lurched and I shot out of bed, darting down the hall to the bathroom. I’d barely lifted the toilet seat when scalding hot vomit flowed from my mouth like burning magma. Yep, there was no doubt about it. I’d blacked out again.
+After a few seconds of clumsily looking for my lighter, I managed to light the cigarette and I inhaled deeply. I put my hand back on the steering wheel and held the lit cigarette between my fingers.
 
-I spat the last remaining chunks of puke into the bowl. I pulled the handle and as I watched the remains of last night’s liquid dinner swirl down the drain, I tried to recall even a sliver of my wild misadventure. I couldn’t remember a thing after I took my seat at the bar in Slim Jimmy’s.
+Usually, I hated these trips to and from the office, but there was something about driving along this deserted road in pitch-black darkness, enjoying a cigarette, that felt strangely soothing.
 
-I’d become a regular at Slim’s after I’d caught my girlfriend of three years cheating on me with my childhood best friend. The bar had become a sort of safe haven for me, somewhere I could go to share a laugh with fellow patrons and drown my sorrows. But what no one tells you is, no matter how many shots you throw back, no matter how many beers you kill, your sorrows have a nasty habit of bubbling back up to the surface. 
+My mind must have wandered off for a bit, because suddenly, I felt a burning sensation in my fingertips. The cigarette had continued to smolder between my fingers and had now gotten short enough to burn them.
 
-I brushed my teeth, purging the foul taste from my mouth. By the time I stepped out of the shower my hangover was beginning to subside a bit. I still felt completely sapped of energy and my stomach hadn’t entirely settled, but the hammering in my head had devolved into a minor headache. 
+Instantly, I dropped the cigarette, and it fell on the floor, between my legs.
 
-I haphazardly tossed my clothes into my room and slunk into the kitchen. After chugging a couple glasses of water, I poured myself a bowl of Fantastic Flakes; an obvious Frosted Flakes rip off (I make minimum wage, don’t judge).
+“Fuck!” I exclaimed.
 
-I turned to the medicine cabinet and began rifling through it in search of Tylenol or Advil. I slammed the cabinet so hard that it nearly flew off its hinges when I realized that I’d depleted my supply a couple days prior following yet another long night at Slim’s.
+I tried to grab the cigarette, while also keeping my eyes on the road. But as hard as I tried, I had no luck picking it up from the floor, and so I looked down to see where it was.
 
-“Hey hey hey, what’s going on in here?” a concerned voice called, followed by a head peeking from behind the door frame.
+I managed to spot it, just inches away from my right foot, and I bend over to pick it up. Once I got a hold of it, I turned my eyes back towards the road and gasped…
 
-“Sorry Zach everything’s fine, I just ran out of painkillers and this hangover is wreaking havoc on me,” I admitted wearily. 
+The headlights revealed a shape, standing in the middle of the road.
 
-“I think I might have some in my room. Let me go check,” he chimed as he disappeared back around the corner.
+I slammed the brakes as hard and as fast as I could, but a crash was unavoidable. 
+The sound of screeching tires pierced my ears, the windshield cracked, and I was jolted forward as the car came to a sudden stand-still.
 
-Zach and I had been roommates since college. We’d bonded over how excruciatingly boring our shared calculus class was and we’d stuck together ever since. We’d grown especially close after my relationship abruptly ended and sometimes he’d accompany me on my drunken escapades. Did Zach go with me to the bar last night? I couldn’t remember. 
+Then, all that noise went away and made room for a deafening silence. I tried to control my breathing and process what just happened.
 
-“You’re in luck. Found some Tylenol on my nightstand,” he grinned as he re-emerged into the kitchen, extending his palm triumphantly. 
+Once I had finally mustered the courage to look out the cracked windshield, I saw a body lying in the middle of the road, lit by the headlight beams of the car. 
 
-“Dude you’re a lifesaver. I owe you one.” I grabbed the pills from his hand and greedily tossed them back, chasing them with another glass of water. 
+I exited the car, ran over to the body, and knelt next to it to check for signs of life, even though I could instantly tell that there was nothing that could be done.
 
-I joined Zach on the couch, my third bowl of cereal nearly gone. He’d been watching the local news. I plopped down next to him as a petite blond news anchor began her segment; 
+I looked around the area, but there was nothing. No lights, no cars, and no signs of life anywhere in the vicinity.
 
-*Police say the body of Lauren Beckett was found in the middle of the road in the early morning hours on Peachtree Avenue. A medical examiner determined that Lauren, twenty-six, was killed on impact in a likely hit and run. Police urge anyone with information to call crime stoppers at 888-CASH.* 
+“What have I done?” I muttered to myself.
 
-“Man it takes a real fucked up person to hit someone with their car and just drive off like that,” Zach muttered, shaking his head. 
+But just at that precise moment, the headlights of the car went out, leaving me and the body in complete darkness. I grabbed my phone from my pocket, turned on the flashlight, and looked back at the car. But I couldn’t see what had caused this.
 
-“Yeah must’ve been a true monster,” I agreed solemnly. 
+I looked back at where the body was, but there was no trace of it. Like it had never been there in the first place. Horrified, I fell backwards onto the road and dropped my phone.
 
-“Soooo, long night again?” Zach prodded. 
+After having found my footing again, I made a mad dash for the car and tried to get it to start. The lights flickered each time I turned the ignition.
 
-“Yeah you know, the usual. You didn’t happen to go with me did you? I can’t remember shit.” 
+I looked in the side-view mirror, and the flickering taillights revealed a figure standing just behind the car. I continued to turn the ignition, without success.
 
-I was eager to know if he'd accompanied me in case he could shed some light on anything that might’ve gone down last night. 
+Suddenly, the rear door behind me flew open, and I heard something crawling into the vehicle. I froze up, and a tense silence filled the inside of the car. All I could hear was heavy breathing coming from the backseat.
 
-“Nope. Did have to repark your car this morning though. You gotta stop parking in the front lawn man,” he chuckled. 
+I reached for the rearview mirror and slowly adjusted its position to see who, or what, was sitting behind me. I kept turning the mirror, until I could see two reflective, red eyes staring back out me.
 
-My eyes grew wide as saucers and I broke out into a nervous sweat. 
+An intense sense of terror come over me, and I practically fell out of the car. Without looking back, I started running down the road as fast as I possibly could, and I kept running until daybreak. That’s when I saw the first house I had seen for hours, and I went inside to get help.
 
-“I-I didn’t. Tell me I fucking didn’t,” I stuttered, staring at him in shock. 
-
-“Ha! You should see the look on your face!” he taunted as a wave of relief washed over me. “But seriously though, I think you ran over some roadkill or something. Looks like you might’ve dented your front bumper.” 
-
-His shit-eating grin melted back to his normal chill demeanor and I knew instantly that he was being serious this time.
-
-Dented was an understatement. My jaw hung open as I gawked in disbelief at the mangled front end of my car. 
-
-“I must’ve hit a deer,” I thought as my mind struggled to process the message my eyes were relaying. My bumper was hanging on by a thread and blood spatter caked the grill of my 2020 Ford Fusion. 
-
-“FUCK!” I screamed, pacing back and forth, a cocktail of emotions coursing through me. I’d just paid off my car note the previous month and I’d already managed to wreck the damned thing. 
-
-Out of nowhere, a bout of rage enveloped me and I began furiously kicking my vehicle as if it were to blame for the state I found it in. On what must have been my six-hundredth blow, a glint within the grill caught my eye. 
-
-I curiously bent down to investigate. The foreign object was lodged too deep to be able to discern what it was. After a few frustrating attempts to reach it, I retrieved a long screwdriver from the garage. 
-
-I jabbed at the thing before it finally came loose, dropping to the ground with a soft plop. I blindly swept my hand beneath the car until it came into contact with something solid. I pulled the elusive item into view. 
-
-I immediately dropped it back to the ground. 
-
-All the color drained from my face. My head started to spin and my vision grew hazy. Hot bile crept up my throat and a torrent of undigested corn flakes flew across the driveway, unable to be forced down any longer. 
-
-The object trapped in my grill was a human finger. 
-
-I made a beeline for my room in a zombie-like trance. I couldn’t even begin to process what I had just seen. 
-
-“Hey man, is everything okay? You look kinda pale,” Zach asked quizzically. 
-
-“Yeah fine,” I mumbled as I threw the door shut to my room. 
-
-I climbed into bed and hugged my knees to my chest, rocking back and forth. The scene around me blurred as tears threatened to overflow from my eyes. I was sweating bullets as a million thoughts raced through my head simultaneously.  I couldn’t have killed someone. I wasn’t a murderer. Surely if I had hit someone last night I would’ve remembered, or at least tried to help them. 
-
-Right? 
-
-I was still lost in my horrified stupor when I perceived a knocking at the front door followed by muffled voices. I was too petrified to eavesdrop, but a couple agonizing seconds later I had my answer to the identity of our visitors. 
-
-A rapid pounding on my bedroom door startled me out of my trance. 
-
-“POLICE PUT YOUR HANDS UP!” 
-
-I hurriedly obeyed as cops flooded into my room, guns drawn. A tall beefy officer with muscles bigger than my head lifted me up and forcefully slammed me against the wall. He handcuffed me while a scrawny policeman with glasses read me my rights. It was all too much. Everything started to go dark around the edges. I blacked out.
-
-I opened my eyes. I was in the back of a police cruiser. Panic overtook me and I began to hyperventilate. Then Zach trotted up to the car. He lightly rapped on the passenger window. Muscles slowly rolled it down. 
-
-“What do you want?” he barked. 
-
-“Can I talk to him? It’ll only take a minute.” 
-
-The officer reluctantly agreed. 
-
-“Make it quick,” he growled impatiently. 
-
-“Zach, help me! You have to get me out of here! You know I’m innocent right?” I blurted, slinging words a mile a minute. 
-
-“Dude I know it looks bad, but just calm down. I’ll help you however I can.” 
-
-His words brought with them a tiny sliver of fleeting tranquility. 
-
-“Oh and Mason, thank you,” he murmured, almost imperceptibly. 
-
-I was utterly confused. 
-
-“Thank me for what?” I asked, perplexed. 
-
-His stern countenance twisted to form a wide manic grin. 
-
-He leaned in mere inches from my ear and whispered, “for letting me borrow your car last night.”
+Obviously, I never told the police the truth about what happened, but the incident is still seared into my memory. And I still lie awake at night, wondering when the figure will come back for me…
