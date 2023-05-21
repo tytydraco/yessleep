@@ -96,7 +96,7 @@ He turned around some more to look at me, down at my hands and then back up with
 
 “These are my favourite, how’d you know?”
 
-The corners of my brow fall and I brought a hand up to block a potential tear.
+The corners of my brow fell and I brought a hand up to block a potential tear.
 
 “I, uh, it’s me, Porter. I’m your son.”
 
