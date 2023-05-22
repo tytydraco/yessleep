@@ -17,3 +17,7 @@ With all of this on my mind, things started getting worse. I felt watched on the
 I came home, and as I walked down the hallway of my floor, I definitely heard footsteps behind me. When I turned around, I saw nothing, but when I started walking again, the footsteps continued, matching my pace. When I started running, they started running too. I locked the door desperately when I reached it. My heart was pounding. I decided to look through the peephole and nearly fell backward when I saw a brown eye staring into the depths of my soul. I checked the door lock once again, and when I looked again, the eye was gone, thankfully. I decided to take the painting off the wall and put it back in the box and decided to share it on this subreddit since I've heard that you guys understand these things.
 
 Do you think it could be something beyond the ordinary, supernatural, or am I going crazy?In case any of you know anything, please contact me.
+
+Update: I hadn't been able to put the picture of the painting here, but I believe that with this external link everything is right. And no, I wasn't the one who took that picture, I refuse to take that thing out of the box, so I tried to look up some information on the internet. I found this in a forgotten art blog in the wayback machine and apparently is the only online reference of this:
+
+[https://ibb.co/MCMrpVh](https://ibb.co/MCMrpVh)
