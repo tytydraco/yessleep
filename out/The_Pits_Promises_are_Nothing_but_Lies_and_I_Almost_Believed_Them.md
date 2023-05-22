@@ -150,7 +150,7 @@ I don’t know how far I was dragged into the abyss, but hand’s grip weakened,
 
 I woke up gasping on the floorboards of my bedroom, lying on top of broken glass and dried blood. I shot up to a sitting position and looked above me. The ceiling was unbroken in its off-white mundanity. The pit was gone, and so was its call.
 
-My body fell back to the floor, sobbing and heaving in exasperation. I was alive, somehow. Face all cut up, neck raw and bruising, but alive. My flame had almost been snuffed out, but there was so much wax left in my candle. It couldn’t go out yet, not until I saw what there was after it all melted away.
+My body fell back to the floor, sobbing and heaving in exasperation. I was alive, somehow. Face all cut up, neck raw and bruising, palm lacerated messily, but alive. My flame had almost been snuffed out, but there was so much wax left in my candle. It couldn’t go out yet, not until I saw what there was after it all melted away.
 
 I looked down at the broken picture frame. Eric’s face stared back in a sneer, and I stood up and stomped on it until it was nothing more than split wood and torn paper. I needed him as much as he needed me. Dad needed me though. Even if he forgot who I, who *he* was, I had to stick with him until the end. I couldn’t just leave without him.
 

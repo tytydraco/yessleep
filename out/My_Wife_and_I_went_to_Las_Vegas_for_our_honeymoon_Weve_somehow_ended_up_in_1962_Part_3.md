@@ -96,3 +96,5 @@ Still holding the receiver, I began moving towards the sliding door to the balco
 “When you and your lovely wife wake up, you’ll understand everything” Arthur’s voice, now filled with an almost sadistic tone filtered into my ears from what sounded like miles away, and he let out another laugh. It would become one I would hear often in my nightmares after we made it back, even months later. Blackness overcame me, and as I slipped away, I heard him say two final words in a mocking, sing-song manner.  
   
 “Sweet dreams!”
+
+[Final](https://www.reddit.com/r/nosleep/comments/13p5j02/my_wife_and_i_went_to_las_vegas_for_our_honeymoon/?utm_medium=android_app&utm_source=share)
