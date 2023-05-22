@@ -450,8 +450,6 @@ So um, can one of you lovely folks on Reddit stop by our house in Kansas for a b
 
 [I—sorry, she—desperately need you.](https://www.reddit.com/r/SimbaKingdom/comments/vpixk6/boo/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
 
-&#x200B;
-
 [(SK)](https://www.reddit.com/r/SimbaKingdom/)
 
 &#x200B;
