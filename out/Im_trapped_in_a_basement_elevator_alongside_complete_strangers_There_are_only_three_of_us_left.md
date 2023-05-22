@@ -1,4 +1,3 @@
-
 ______
 
 I can’t bare to put down into words what happened [when](https://www.reddit.com/r/nosleep/comments/13mzgy4/im_trapped_in_a_basement_elevator_alongside/?utm_source=share&utm_medium=ios_app&utm_name=iossmf&utm_content=1&utm_term=15) Nick chose to end his life. 
@@ -206,3 +205,5 @@ She looks over the edge and her eyes widen.
 I try to reach for her. 
 
 And then she steps into the void.
+
+[UPDATE](https://www.reddit.com/r/nosleep/comments/13oxwkf/im_trapped_in_a_basement_elevator_alongside_a/?)
