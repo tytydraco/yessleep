@@ -1,8 +1,8 @@
-*This newspaper clipping was found in a stack of papers at an estate sale. I'm a collector of lost media, and I often buy stacks of books and papers from homes without much knowledge about the contents. However, this article was particularly concerning. The papers alongside this article were mostly reports of home break-ins, police affidavits, arrest records, and crime reporting. One thing that stuck out to me- when I arrived to purchase the papers, the front porch of the home was littered with cigarette butts. The deceased homeowner appeared to be deeply paranoid, had few guests, and lived alone.* 
+*This newspaper clipping was found in a stack of papers at an estate sale. I'm a collector of lost media, and I often buy stacks of books and papers from homes without much knowledge about the contents. However, this article was particularly concerning. The papers alongside this article were mostly reports of home break-ins, police affidavits, arrest records, and crime reporting. One thing that stuck out to me- when I arrived to purchase the papers, the front porch of the home was littered with cigarette butts. The deceased homeowner appeared to be deeply paranoid, had few guests, and lived alone.*
 
 &#x200B;
 
-*Perhaps there was a reason for her concern.* 
+*Perhaps there was a reason for her concern.*
 
 &#x200B;
 
@@ -18,7 +18,7 @@ June 2006
 
 **Part One: The Interloper**
 
-&#x200B;
+Part Two: [The Son](https://www.reddit.com/r/nosleep/comments/13otu2h/has_anyone_heard_from_christopher_foster/)
 
 &#x200B;
 
