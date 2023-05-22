@@ -102,15 +102,21 @@ Beating thunderously on my hands was my own mother's massively abnormal yet glob
 Watching it all in front of me, just like what the letter described in the mail, feeling the cold black blood streaming down to my hands as I was astonished by how heavy my mother's heart and aneurysms were. But they were all black; her blood is black. I didn't completely understand why—was it her condition, or could it be that she was evil, or both? Until my stomach couldn't handle it as I vomited to the floor.
  
  
+
 Until a realization came upon me. I just killed my mom. Fear consumed me as I murdered her. People all looked at me as I was on the ground. I didn't understand any of it. They're going to call the police on me. Like, what have I done? I don't want to go to jail. I just don't want to be abused anymore.
  
  
+
 I wanted to run away, but I heard the shadow man's disembodied voice, assuring me all would be fine. I don't know what happened. But everyone started to laugh; it was the strangest thing ever, until I saw him emerge out of the crowd like a presenter at a circus. 
+
 
 
 He leaned down to me, took out a black leather pouch, and blew out a black powder on my mom's pale face. I could feel my body going numb as I saw her twitch. Until then, I had no control over the situation. Why was he doing this? I could feel my heart race in my chest as I watched her body move. The shadow man smiled as he said, "You can keep your mother's black heart, but for now, however, you belong to her." I didn't understand what he meant by that.
  
+
+
 It was when I saw my mom rise up as she smiled. Looking directly at me with her black eyes. I was so confused and afraid that sweat poured down my face. The shadow man stated that I not only had to be with her but that my own mom had made a deal with him as well. To be zombified, as I'll never leave her sight. I mean, like, why did she want to do that? She was the one who started the whole thing. It was her plan, wanting me to stumble upon him. 
+
 
 
 I was being used at the start of this. Me being a damn idiot and believing that I have all control A dark love that she embraced me with open arms. How long did she know this? Did she meet the shadow man before? Now I am regretting it. 
@@ -123,10 +129,12 @@ I wanted to run, but I am under no circumstances in control. My mom wrapped her 
 And when I heard her speak, she said, "You will be with me forever, and as for now, you'll never leave my sight." Kissing me with her cold black lips on my cheek. Her obsession with me is truly unhealthy and uncomfortable.
  
  
+
 I was violently shaking, trying to get away from her. I asked the shadow man why he did this to me and did not tell me the truth about the deal he made with my mom. I was crying my eyes out as everyone was there savoring my agony. 
 
 
 Are they all with him? Was I just a joke to him? I begged my mom to let me go, even calling her "mommy, please don't do this" twenty times to stop squeezing me tightly. I was that same little boy for many years, and I am terrified like a kitten.
+
 
 
 Me, an 18-year-old who is terrified of his undead mom. This has to be an embarrassing nightmare. I must wake up. I have to wake up. I need to wake up. This can't be real. Please let this not be real.
