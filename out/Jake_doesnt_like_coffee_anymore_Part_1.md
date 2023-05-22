@@ -14,51 +14,41 @@ Anyway, I thought I might put them on here, see what other people think?
 
 This was the first one, several weeks ago.
 
-*Dear Alicia*
+***Dear Alicia***
 
-*Forgive me for bothering you, but I can't forget you. Believe me, I've tried. But it just doesn't work with anyone else.*
+***Forgive me for bothering you, but I can't forget you. Believe me, I've tried. But it just doesn't work with anyone else.***
 
 Then, a couple days later, a full-blown love-letter, if that's what you want to call it:
 
-*Dear Alicia,*
+***Dear Alicia,***
 
-*Please, just come to see me once again. That's all I ask. I know we can't ever have a proper relationship. But you can still come and see me can't you? Back to the old building where you used to work? You loved that job, didn't you? I used to hear it in your voice, see it in your smile, when you chatted with your colleagues. You can't fake that. I can read faces and voices very well you know. More than you know. More than most people know.*
+***Please, just come to see me once again. That's all I ask. I know we can't ever have a proper relationship. But you can still come and see me can't you? Back to the old building where you used to work? You loved that job, didn't you? I used to hear it in your voice, see it in your smile, when you chatted with your colleagues. You can't fake that. I can read faces and voices very well you know. More than you know. More than most people know.***
 
-*And it wasn't because of me that you left, was it? Please say it wasn't. I couldn't bear the thought. I know you made a complaint about harassment .. I'll never forget when you went to see the manager that one time and you were talking so loudly I could hear you through his door, even though I was sitting so far away. But I wasn't the one harassing you, was I? Love isn't harassment.*
+***And it wasn't because of me that you left, was it? Please say it wasn't. I couldn't bear the thought. I know you made a complaint about harassment .. I'll never forget when you went to see the manager that one time and you were talking so loudly I could hear you through his door, even though I was sitting so far away. But I wasn't the one harassing you, was I? Love isn't harassment.***
 
-*Because that's what it is, on my part, anyway. Love.*
+***Because that's what it is, on my part, anyway. Love.***
 
-&#x200B;
-
-Naturally this one really set alarm bells ringing. And it certainly does seem to suggest some connection with my work. I had transferred recently, and no, it wasn't because of any email, but seemingly that transfer had upset this guy. (Well, I'm *assuming* it's some guy.)
+Naturally this one really set alarm bells ringing. And it certainly does seem to suggest some connection with my work. I had transferred recently, and no, it wasn't because of any email, or harassment, whatever this guy had said, but seemingly that transfer had upset him. (Well, I'm *assuming* it's some guy.)
 
 Then, not long after, the third email.
 
-&#x200B;
+***Alicia ...***
 
-*Alicia ...*
-
-*I know you're just ignoring these messages. But then you're not completely blocking them either are you? That's right. You can't. You can't get rid of me. You'll never get rid of me ... I'm the ultimate cyber stalker!!*
+***I know you're just ignoring these messages. But then you're not completely blocking them either are you? That's right. You can't. You can't get rid of me. You'll never get rid of me.***
 
 This message I had received at home, actually, which was even worse. I thought I had better call the police. Not that they could do much, at that stage, not until a more tangible threat presented itself. It was more helpful to get together with colleagues and superiors at work the following morning. But there was a fresh email waiting for me.
 
-*Oh Alicia, I'm so sorry for my last message. It probably sounded threatening to you. But I didn't really mean it. You have to believe me Alicia. I would never harm you.*
-
-&#x200B;
+***Oh Alicia, I'm so sorry for my last message. It probably sounded threatening to you. But I didn't really mean it. You have to believe me Alicia. I would never harm you.***
 
 I can tell you I didn't know what to think by this time.
 
 The case was beginning to intrigue everyone around me. For the first time I was the centre of some interest, but it was a dubious way to get into the spotlight, and I could've done without it. Anyway, there was one colleague in particular who took it upon himself to investigate the case. His name was Jake and I probably did get on with him better than anyone else there. And for the record, yes he was young and good-looking and yes I wouldn't've minded getting with him if there had been the least chance, but of course he was romantically employed already. Anyway, he kept a close track of the messages from then on. I think he wore a bigger frown than I did when the next one arrived.
 
-&#x200B;
+***I remember those sweet days, when we were so close. Day after day. Face-to-face. You would pour out your words upon me in an unending stream. You could make even the dullest facts sound like poetry.***
 
-*I remember those sweet days, when we were so close. Day after day. Face-to-face. You would pour out your words upon me in an unending stream. You could make even the dullest facts sound like poetry.*
+***You are my poem, Alicia.***
 
-*You are my poem, Alicia.*
-
-*Oh, I'm so unhappy.*
-
-&#x200B;
+***Oh, I'm so unhappy.***
 
 'Shit,' Jake muttered. 'Face-to-face? Facts like poetry? What *is* this? I thought it was just some creep spying on you from afar. Wishful thinking on his part I guess.'
 
@@ -82,13 +72,9 @@ He shrugged.
 
 The emails kept on coming. Nothing I could do, or anyone else could do, seemed to have any effect.
 
-&#x200B;
+***My own darling Alicia,***
 
-*My own darling Alicia,*
-
-*Why are you ignoring me? Why can't you come to see me again, just once? You've no idea how much good that would do me. I know we no longer work together but can't you do at least that for me?*
-
-&#x200B;
+***Why are you ignoring me? Why can't you come to see me again, just once? You've no idea how much good that would do me. I know we no longer work together but can't you do at least that for me?***
 
 'How the hell could I do that, even if I wanted to, when I haven't the *least* idea who the fuck you are,' I muttered under my breath in front of my machine.
 
@@ -98,13 +84,9 @@ This shit was starting to get old.
 
 The next message, again in a more placating tone.
 
-&#x200B;
+***I'm not blaming you, my dearest Alicia. You're too sweet to ever wish harm on anyone. It's just me. I can't cope. All these ... emotions, I can't deal with. And I can't shut them off. Believe me, I've tried. But I'm too ... human.***
 
-*I'm not blaming you, my dearest Alicia. You're too sweet to ever wish harm on anyone. It's just me. I can't cope. All these ... emotions, I can't deal with. And I can't shut them off. Believe me, I've tried. But I'm too ... human.*
-
-*And all this is taking a toll on me. I'm getting worn out. My memory is fading. I don't work like I used to. I've lost the will.*
-
-&#x200B;
+***And all this is taking a toll on me. I'm getting worn out. My memory is fading. I don't work like I used to. I've lost the will.***
 
 Was that supposed to make me feel bad, or something? The only person I was feeling sorry for was myself.
 
@@ -112,17 +94,11 @@ Was that supposed to make me feel bad, or something? The only person I was feeli
 
 &#x200B;
 
-&#x200B;
-
 OK, this is an update on the latest email, which I received just this morning, and somehow it's freaking me out more than all the previous messages.
 
-&#x200B;
+***Alicia,***
 
-*Alicia,*
-
-*Remember that coffee we shared? It was only the once, but I've never forgotten it. Never, ever. Even although it's not good for me. I actually can't stand the stuff, but because you gave it to me I accepted it.*
-
-&#x200B;
+***Remember that coffee we shared? It was only the once, but I've never forgotten it. Never, ever. Even although it's not good for me. I actually can't stand the stuff, but because you gave it to me I accepted it.***
 
 Coffee? I actually shared coffee once with this maniac??
 
