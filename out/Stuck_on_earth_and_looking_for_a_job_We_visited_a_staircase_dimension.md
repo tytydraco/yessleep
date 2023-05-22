@@ -192,3 +192,5 @@ I pulled a face. "Right! I do. I'm sorry, I wasn't thinking."
 [9: a dismal worldview](https://www.reddit.com/r/nosleep/comments/13l69a9/stuck_on_earth_and_looking_for_a_job_the_world/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [10: warehouse](https://www.reddit.com/r/nosleep/comments/13m8e9w/stuck_on_earth_and_looking_for_a_job_something/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[12: discussion](https://www.reddit.com/r/nosleep/comments/13p2dw3/stuck_on_earth_and_looking_for_a_job_we_might/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
