@@ -4,14 +4,14 @@ Oh God.
 
 I never thought it would come to this. Ten months ago, I made the decision to leave Mark, my husband of three years. He was controlling, manipulative, and had a temper that... well, explosive doesn't cover it. He didn't have a hair trigger, that thing was permanently squeezed and attached to a fully automatic Grade-A bastard. I couldn't take it anymore. The constant belittling, the isolation from my friends and family, the... the other stuff - it was all too much.
 
-So I left. I got a restraining order and moved in with my sister in a different state. But Mark didn't take it well. He called me relentlessly, leaving voicemails filled with anger and threats. He showed up at my sister's house, pounding on the door and screaming my name. He even went as far as to track down my workplace and wait outside for me to leave.
+So I left. I got a restraining order and moved in with my sister in a different state. But Mark didn't take it well. He called me relentlessly, leaving voicemails filled with anger and threats. He showed up at my sister's house, pounding on the door and screaming my name. He even went as far as to track down my first couple diners I managed to find a job in when I moved here, spending entire 10 hour shifts waiting outside for me to leave.
 
 I was terrified. I felt like I was always looking over my shoulder, always living in fear of what he might do next. It wasn't until my lawyer got involved that he finally backed off. But even then, I couldn't shake the feeling that he was still out there, waiting for his chance to get to me.
 
-And now, tonight, it feels like all my worst fears have come true. I don't know how he found me, but he did. 
+And now, tonight, it feels like all my worst fears have come true. I don't know why he chose tonight or how he found me, but he did. 
  
-I was walking home from work - a shitty job at a burger bar I got to help cover my sister's rent. As usual I was checking over my shoulder every few steps, making sure Mark wasn't following me. I kept repeating the mantra "you have the restraining order, he's in a different state, he won't show up". 
-Thagt had gotten me through every night since moving here. Every time the sun went down I'd worry the shadows I'd spy lurking in alleys or behind lit cigarettes in cars in parking lots were my ex-husband-turned-stalker. He won't show up. He never showed up.
+I was walking home from work - my third shitty job at a burger bar I got to help cover my sister's rent. As usual I was checking over my shoulder every few steps, making sure Mark wasn't following me. I kept repeating the mantra "you have the restraining order, he's in a different state, he won't show up". 
+That had gotten me through every night since moving here. Every time the sun went down I'd worry the shadows I'd spy lurking in alleys or behind lit cigarettes in cars in parking lots were my ex-husband-turned-stalker. He won't show up. He never showed up.
 
 Tonight he did.
 
