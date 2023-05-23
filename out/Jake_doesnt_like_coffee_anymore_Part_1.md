@@ -1,6 +1,6 @@
-&#x200B;
+Link to Part 2:
 
-&#x200B;
+https://www.reddit.com/r/nosleep/comments/13q3jme/jake\_doesnt\_like\_coffee\_anymore\_part\_2\_of\_3/
 
 I've had a series of emails recently which all things considered, definitely suggest that I have a stalker of some kind.
 

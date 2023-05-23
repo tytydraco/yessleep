@@ -247,7 +247,7 @@ I was the one dragging them.
 
 I had dragged multiple kids down these exact stone steps, laughing when they cried out for their mommy.
 
-When I was shoved onto my knees, the blindfold was finally tugged off. Candlelight my eyes. It was enough to transfix me, the warm glow bathing me, and everyone around me in a heavenly-like allure. 
+When I was shoved onto my knees, the blindfold was finally tugged off. Candlelight hit my eyes. It was enough to transfix me, the warm glow bathing me, and everyone around me in a heavenly-like allure. 
 
 Around me, I could sense them. Kids dressed in black on their knees. Next to me, Hot Stuff and Ponytail knelt, blank, heads tipped back, unseeing eyes glued to something... when I lifted my own head, I found myself staring at... gold. No, not just gold; a mountain of gold, silver, cash and riches, watches and anything of worth, anything tinted with diamonds, underneath a single swaying corpse pinned to the wall. 
 
