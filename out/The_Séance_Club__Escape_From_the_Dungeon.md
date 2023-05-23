@@ -1,4 +1,4 @@
-We're starting to get close to the end of the story now. Sorry it has taken so long. If you missed the earlier parts, this all started [here](https://www.reddit.com/r/nosleep/comments/130mkjv/the_s%C3%A9ance_club_an_invitation_to_windhaven_manor/). The previous part (Part 5) is [here](https://www.reddit.com/r/nosleep/comments/13ger77/the_s%C3%A9ance_club_a_dark_tunnel_leads_to_an_even/). 
+We're starting to get close to the end of the story now. Sorry it has taken so long. If you missed the earlier parts, this all started [here](https://www.reddit.com/r/nosleep/comments/130mkjv/the_s%C3%A9ance_club_an_invitation_to_windhaven_manor/). The previous part (Part 5) is [here](https://www.reddit.com/r/nosleep/comments/13ger77/the_s%C3%A9ance_club_a_dark_tunnel_leads_to_an_even/). The following part (Part 7) is [here](https://www.reddit.com/r/nosleep/comments/13po9ag/the_s%C3%A9ance_club_back_inside_windhaven_manor/). 
 
 \-----
 
