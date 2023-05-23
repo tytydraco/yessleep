@@ -1,5 +1,4 @@
 
-
 _________
 
 I’ve recovered enough to update what happened the moments [after](https://www.reddit.com/r/nosleep/comments/13o09nb/im_trapped_in_a_basement_elevator_alongside/?utm_source=share&utm_medium=ios_app&utm_name=iossmf&utm_content=1&utm_term=15) Chloé stepped off the edge of the elevator toward the beast that was pursuing us. 
@@ -168,3 +167,5 @@ I curl myself up into a corner on the roof of the broken elevator as it shutters
 The silence is deafening as I realize I am now alone and unable to halt the elevator. 
 
 No matter what is above, I am powerless to stop it.
+
+[FINAL UPDATE](https://www.reddit.com/r/nosleep/comments/13pwbnf/im_trapped_on_the_roof_of_a_basement_elevator/?)
