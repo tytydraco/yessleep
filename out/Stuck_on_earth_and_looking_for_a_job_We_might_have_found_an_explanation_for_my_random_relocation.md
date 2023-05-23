@@ -174,3 +174,5 @@ With my face a flayed mess and my clothes drenched, I went about my walk of sham
 [10: warehouse](https://www.reddit.com/r/nosleep/comments/13m8e9w/stuck_on_earth_and_looking_for_a_job_something/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [11: staircase](https://www.reddit.com/r/nosleep/comments/13o0npw/stuck_on_earth_and_looking_for_a_job_we_visited_a/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[13: hurt](https://www.reddit.com/r/nosleep/comments/13q2hrx/stuck_on_earth_and_looking_for_a_job_i_should_not/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)

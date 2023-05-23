@@ -233,9 +233,7 @@ I thought she was finished before Josie scrawled down something else, holding th
 
 This was blindly worshipping someone I didn’t even know. Josie didn’t stop until the pen had run out, and she was using her fingernails instead. When I grasped at her hand and told her to stop, she shoved me back with strength I didn’t know she had. 
 
-Suffice to say, I did sleep that night. Josie fell asleep after chewing all of her fingernails off, and after attempting to try and get the school nurse, I was told she only operated during daylight hours. 
-
-So, I guessed kids just died during the night, then. 
+Suffice to say, I did sleep that night. 
 
 There was nothing else to do but freak out and attempt to break out of the window which surprise, surprise, had bars on them. I wasn’t sure when I fell asleep, but I woken up with a familiar scalding hot and clammy hand slamming over my mouth, gagging my screams. Hot Stuff. Next to him, to my surprise, was the boy with the ponytail, and Barbie. This time, his touch was blistering. When I screamed, he removed his hand, and ordered me to get out of bed.
 
@@ -303,7 +301,7 @@ Until my gaze found bloody sheets, and under my shirt, clumsy stitches barely ho
 
 I am stuck here with Abigail implanted inside of me. She is everywhere, and I can’t escape.
 
-I know I am a bad person. I did something awful, and she is making me pay for it rightfully so. However, Isn’t this going too far? How is it even possible to take control of the school like this? How can this girl have so much power over everyone—and most importantly, why hasn’t she killed me?  I knew she weird. But this is way beyond anything I have even heard of.
+I know I am a bad person. I did something awful, and she is making me pay for it rightfully so. However, Isn’t this going too far? How is it even possible to take control of the school like this? How can this girl have so much power over everyone—and most importantly, why hasn’t she killed me?  I don't even know I can get an Internet connection. I knew she weird. But this is way beyond anything I have even heard of.
 
 Witchcraft. But this isn’t the type we caught Abigail doing.
 
