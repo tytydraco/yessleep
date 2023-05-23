@@ -90,7 +90,7 @@ The EA alert that had broadcast-ed that local news broadcast from earlier had be
 
 I instantly started panicking and the same thought started bouncing around in my skull; "The government is lying".
 
-I quietly but quickly started boarding up and locking the apartment and went to wake up Rebecca when something had tugged at my shirt.
+I quietly but quickly started boarding up and locking the apartment and went to wake up Brittany when something had tugged at my shirt.
 
 &#x200B;
 

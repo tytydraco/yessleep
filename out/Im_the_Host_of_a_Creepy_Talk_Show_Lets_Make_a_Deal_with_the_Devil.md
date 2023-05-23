@@ -1,6 +1,6 @@
 Season 2
 
-“You ready Ray?”
+“You ready Bruce?”
 
 “Ready as I’ll ever be.”
 
