@@ -18,7 +18,7 @@ So, what led me to Roué on May 1st? An anonymous trail of clues. Hand-written n
 
 “Is anyone here?” I asked, climbing the stairs with a torch in my outstretched hands. “This is Detective Smith. Please announce yourself.”
 
-A rattling noise from the attic filled me with a deep, animalistic fear. *Anywhere but the attic*. That was all I could think as I took hesitant strides across the landing. My light caught the ladder, which had already been pulled to the carpet. I knew it was a trap. *Come alone, Detective Smith*. A clichéd demand on one of the notes. I shouldn’t have agreed, but I knew my fellow officers were hiding on the other side of the road. Besides, I feared the abductor would do something horrible if I’d entered the building with anyone else.
+A rattling noise from the attic filled me with a deep, animalistic fear. *Anywhere but the attic*. That was all I could think as I took hesitant strides across the landing. My light caught the ladder, which had already been pulled to the carpet. I knew it was a trap. *Come alone, Detective Smith*. A clichéd demand on one of the notes. I shouldn’t have agreed, but I knew my fellow officers were hiding on the other side of the road. Besides, I feared the abductor would do something horrible if I were to enter the building with anyone else.
 
 Too late, it turned out.
 

@@ -86,7 +86,9 @@ The audience gasps.
 
 (Cut to camera three)
 
-Closeup of Damion wearing his elaborate, skin-tight red devil suit. His leather tail swings confidently, as his glowing eyes burn into television screens and devices all across the world, keeping millions of viewers glued to the edges of their seats. On his head is a black fedora. He tilts it slightly so, then he extends an arm, hushing the audience.
+Closeup of Damion wearing his elaborate, skin-tight red devil suit. His leather tail swings confidently, to the delight of our viewers. Apparently, Hell beings get one hour of leisure time a week, and they love this show. How they get this small-scale show in the first place is beyond me. Maybe Hell has good WiFi. 
+
+Damion tilts his black fedora, then he extends an arm, hushing the audience.
 
 “Good evening!”
 
@@ -94,7 +96,7 @@ The audience applauds.
 
 Damion smiles slyly, showcasing his gold-tooth display.
 
-“So, Bertha,” he exaggerates her name. “Let’s cut to the chase. Tell me… no tell the world… what it is you most desire?”
+“So, Bertha,” he exaggerates her name. “Let’s cut to the chase. Tell me… no tell the viewers… what it is you most desire?”
 
 (Split screen)
 
@@ -216,7 +218,7 @@ Thunder crashes. Shots ring out. Everyone screams, including me. This wasn’t p
 
 The Devil snaps his finger. 
 
-The studio dissolves into dust. Suddenly, instead of being inside a Hollywood studio, we’re packed inside a football stadium. The smell of stale beer and popcorn prevails.
+The studio dissolves into dust. Suddenly, instead of being inside a cheap Hollywood studio, we’re packed inside a football stadium. The smell of stale beer and popcorn prevails.
 
 I stumble as my heart threatens to explode. I clutch my chest, fearing the worst. My face turns red, then green, then settles on pale-white.
 
@@ -298,7 +300,7 @@ Bertha is choking on cash, tears leaking from her frantic eyes.
 
 The Devil, delighted in her discomfort, applauds. 
 
-“You’re rich, Bertha!” His laughter fills the stadium, plus millions of homes across the world, with dread.
+“You’re rich, Bertha!” His laughter fills the stadium, plus millions of homes in Hell, with dread.
 
 Bertha cusses.
 

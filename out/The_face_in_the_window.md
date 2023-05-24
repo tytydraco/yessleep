@@ -1,0 +1,29 @@
+  
+The wind howled outside like a pack of wolves, rattling the windows and sending shivers down my spine. Violent clouds concealed the small village of Orhei. They seemed to writhe and twist, as if they were trying to escape from the sky. Rain lashed the roofs of the houses beneath. The skeletal finger of lightning struck a towering tree and caused it to groan and collapse. Thunder crashed through the streets, shaking the town to its core. Dim amber streetlights started to fail, creating a wall of darkness that swamped the land. This was the kind of night that even the bravest souls couldn’t help but feel a shiver down their spine.   
+  
+I stumbled along the beach, running frantically to get to my fishing boat. Strong, vicious winds sliced at my throat. I needed to get to my island. The slimy sand was so thick that I got stuck twice. My shoes and socks were drenched in rainwater. Only minutes ago, I saw a face from the medieval lighthouse in the comfort of my own home. Distress signals. My father, who had been a scientist for thirteen years, was the only resident on the island, temporarily carrying out private experiments. I had not seen him for two weeks. What was happening to him on the island? The face that I saw was not his, I was sure I was not dreaming. Who else was on the island? It was vital that I had to get there, now.    
+  
+The journey to the island was a treacherous one, even though it was only a mile or two offshore. The fearsome winds had already ripped away parts of the wooden pontoon, making it a challenge to get to my boat. Foamy jet-black waves crashed into the side of the boat, as if they were trying to claw their way into the defiant craft. I wobbled over to the small and cramped cabin; my legs trembled in the freezing temperatures. I frantically fired up the old, frail engine, desperately hoping for it to start. It was clear that this gallant little fishing boat had been through a lot. The wooden wheel was shiny with overuse and the exterior paint had started to peel away, revealing the severely scarred plywood underneath. It seemed like the journey was endless. The waves kept battering and bruising the boat from side to side, making me nauseous. Constantly the rain was striking the windows, and more than once I thought the windows were going to be breached. Yet somehow, through all the chaos, I had managed to navigate to the beach of the island.    
+  
+Rain continually beat the cliff like fists of angry ghosts. Smooth black pebbles crunched beneath my feet. Delicate and delightful flames wriggled around frantically in the perforated lantern. The uneven stone staircase that led to the once eloquent lighthouse was almost unusable. Bushy heather swaggered in unison in the ferocious wind.    
+  
+The lighthouse loomed ahead, its tower silhouetted in the lightning-streaked sky on the dangerous and arduous cliff edge, once a friend to all those who came in this weather. However, it was in a state of disrepair, with its once strong concrete walls starting to crumble. Some of the mullioned windows had already cracked. The iconic red and white stripes of paint on the walls had disappeared, leaving only exposed tawny stones.   
+  
+I opened the great red door, with my entire body quivering in the bitter cold. Door hinges screeched at me as they moved, as if they were warning me not to enter. The moment I entered, something seemed to be a little... different. It almost seemed like nobody had ever been here before. The smell of rotten wood and paint were overpowering. Black mould coated the corners of the roof. Tree branches were being lacerated by the wind outside. A copy of The Daily Mail flapped through the cool air. Cigarette stubs’ ashes covered the damp carpet. A small lopsided metal table was placed by the entrance.    
+  
+I called for my father twice. Only the faint bickering of rodents was my answer. Then, out of the corners of my eye, I saw something.    
+  
+A trapdoor.    
+  
+There was never a trapdoor there, not since the last time I visited. It was rough and made of ancient timber. Its hinges had decomposed to a blood red colour. I knew I shouldn’t enter but something compelled me to investigate. It took an enormous amount of force from my tired body to open the hatch. Rusty metal rungs led downwards to a dark and endless vacuum. Cobwebs lined the mossy stone bricks. The lantern’s light penetrated through nothing but even more of the void. Whatever was in the bottomless abyss, I had to go in there.    
+  
+I started the descent into the darkness, and suddenly I was quite nervous. The metal rungs felt unsteady and unsafe. They groaned with every step I took. The sound waves from the steps echoed back to me.    
+  
+Then, out of nowhere, the trapdoor slammed shut.    
+  
+The bang echoed loudly, with the void enveloping and devouring it entirely. Complete silence, except for my yelp of surprise. How peculiar, I thought, for there was no wind in the lighthouse. How could it shut by= itself? With the lantern in between my teeth, I decided to open it back out. But the hatch wouldn’t open no matter how hard I pushed and shoved.    
+I was stuck, and the only choice seemed to be to keep descending. Big mistake.    
+  
+After what felt like an eternity, I hit the bottom. There was a corridor, one that had eerily smooth walls, unlike the rough stone before. It extended far beyond the island and into the ocean. I carried on walking, at this point my body almost at breaking point. Then, I saw something that made my blood run cold. There, in the middle of the corridor, was my father’s body. His eyes were wide open, staring blankly upwards, and his limbs were bent and contorted that no human body should be able to stand.    
+  
+At that instant, I felt a cold metal blade come across my throat, and my body thumped to the ground.
