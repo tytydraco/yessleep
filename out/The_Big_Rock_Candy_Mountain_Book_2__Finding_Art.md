@@ -299,3 +299,8 @@ I try to respond, something deep within me desperately wants to help her, but be
 I’d say Mike is snoring like a saw, but that would be a bit too on the noise in my current situation. 
 
 And that’s where things sit. Me soaked and shivering in the cold cell, lit by nothing more than my dying phone, and wondering what if my dream was something meaningful, or, to coin a phrase, just a bit of undigested beef.
+
+
+Link to Part 2
+
+https://www.reddit.com/r/nosleep/comments/13qcl3m/the_big_rock_candy_mountain_book_2_finding/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button
