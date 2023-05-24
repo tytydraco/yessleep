@@ -2,7 +2,7 @@ Someone is behind me right now. I’m fairly certain. No, someone is DEFINITELY 
 
 I daren’t move. Hopefully I’m just being excessively paranoid.
 
-I’ll explain. I have always been planning to go on a vacation to South Korea, as I have been locking ourselves up due to the pandemic. The government basically forced us to wear this band that tracks you and would alert you if you have left the house. These regulations are finally lifted, and I have been itching to go on a vacation. Yesterday, I finally arrived. I was LITERALLY over the moon. This hotel room is over 1000 square feet, which is way more spacious than my shitty 100 square foot apartment. It was suspiciously cheap though.
+I’ll explain. I have always been planning to go on a vacation to South Korea, as I have been locking myself up due to the pandemic. The government basically forced us to wear this band that tracks you and would alert you if you have left the house. These regulations are finally lifted, and I have been itching to go on a vacation. Yesterday, I finally arrived. I was LITERALLY over the moon. This hotel room is over 1000 square feet, which is way more spacious than my shitty 100 square foot apartment. It was suspiciously cheap though.
 
 I explored the hotel room. There was this small cabinet that was covered in dust. It had a card on it that said "DO NOT OPEN". I am a curious person, so naturally I opened the cabinet. It had a rock in it that looked like it was from another planet. I took it out and inspected it. I instantly had a feeling of unease, like I shouldn't have picked it up. I immediately put it back in its original place.
 

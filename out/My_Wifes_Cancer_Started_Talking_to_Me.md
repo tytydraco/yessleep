@@ -18,7 +18,9 @@ That's right about when it said its first word to me.
 
 It might be hard to grasp, but there was no misunderstanding where this voice had come from. It had beamed straight to me, missing those other two entirely. The squeaky, almost infantile speech relayed its primitive instincts direct to me. Completely oblivious to the sentience of the body it was to feed from. It seemed to relish in its security.
 
-It was like the lump was mocking me.I wonder if it knew the doctor would soon tell us the tumor was currently inoperable. The medical jargon is beyond me, but something in its placement made it a precarious surgery, too much of a risk. Other options had to be exhausted before it grew large enough to cut out.
+It was like the lump was mocking me.
+
+I wonder if it knew the doctor would soon tell us the tumor was currently inoperable. The medical jargon is beyond me, but something in its placement made it a precarious surgery, too much of a risk. Other options had to be exhausted before it grew large enough to cut out.
 
 She and the doctor seemed to understand this fine, however I couldn’t make real sense of it.
 
@@ -60,9 +62,9 @@ And every time it’d wait a second. Just until I had some hope. Then it’d spe
 
 ***growing faster now***
 
-They scheduled a surgery day, said the tumor had grown large enough to operate on, but the date was impossibly far. The idea of waiting just exacerbated my anger further. She said she noticed a change in me, getting more temperamental I guess.I
+They scheduled a surgery day, said the tumor had grown large enough to operate on, but the date was impossibly far. The idea of waiting just exacerbated my anger further. She said she noticed a change in me, getting more temperamental I guess.
 
-f she knew the things I was hearing she’d be doing the same.
+If she knew the things I was hearing she’d be doing the same.
 
 I thought it ironic, because the changes were most obvious in **her**. That fucker had tripled in size, bulging to the point that it seemed ready to peel its way out. She had grown frailer. Her beautiful tanned skin running pale. I was now helping her up the stairs every night to bed.
 
