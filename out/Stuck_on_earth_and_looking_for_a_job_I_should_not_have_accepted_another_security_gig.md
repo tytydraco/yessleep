@@ -250,3 +250,5 @@ I’m not sure if I finished that sentence. I merely rested my head against Elij
 [11: staircase](https://www.reddit.com/r/nosleep/comments/13o0npw/stuck_on_earth_and_looking_for_a_job_we_visited_a/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [12: explanation](https://www.reddit.com/r/nosleep/comments/13p2dw3/stuck_on_earth_and_looking_for_a_job_we_might/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[14: hospital](https://www.reddit.com/r/nosleep/comments/13r0f31/stuck_on_earth_and_looking_for_a_job_i_dont_like/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
