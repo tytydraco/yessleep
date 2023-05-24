@@ -74,7 +74,7 @@ The chill started in my belly and quickly spread to my face and feet at the same
 
 What I saw next made the claws in the bathtub the night before look like kitten paws. The heat in the truck rose so quickly and became so intense that it quivered. Frozen stiff into the seat I watched in horror as the quivering heat formed  an outline of a creature. A creature I can’t compare to anything else that I’ve ever seen. It’s horns, or what I think were horns, were long and curved slightly inward. It’s face was short, wide at the top and narrow at the bottom…it’s arms were long with rapture-looking claws at the ends of them…the same claws I saw in the bathtub.
 
-One of the claws reached over from the passenger seat and touch my face. Then...whatever it was, smelled me. I felt it take a heavy inhale right at my neck as tears streamed down my face.
+One of the claws reached over from the passenger seat and touched my face. Then...whatever it was, smelled me. I felt it take a heavy inhale right at my neck as tears streamed down my face.
 
 At that moment, all I could think about was Grady and the last moment we spent together. It wasn’t watching the sunset while drinking his homemade cherry limeades. Our last moment together was of me keeping something from him and hurting him. His sad eyes would have been the last thing on my mind if I would have died right then and there. I couldn’t let that happen. I forced myself to speak, in the hopes I could reach the creature and make it stop.
 
