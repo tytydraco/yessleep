@@ -144,7 +144,7 @@ My name is Amanda Marks.  And I'm going to be killed by Frank Marks - AKA Franci
 
 He'll tell the doctors and nurses to kill me and they'll do it.  But it won't be their fault.  No one can say no to Frank.
 
-If you want to stop him - you better shoot him on [sight.](https://youtu.be/-ufIEcSFfjA)
+If you want to stop him - you better shoot him on [sight.](https://youtube.com/@JordanGrupe)
 
 [JG](https://www.reddit.com/r/JGcreepypastas?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
