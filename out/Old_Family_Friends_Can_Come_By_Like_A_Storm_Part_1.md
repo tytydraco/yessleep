@@ -1,3 +1,5 @@
+(Next: https://redd.it/13q647f)
+
 I live in a hunting town so small I swear I’ve been in Discord servers with more people. I can’t afford to move even if I sold the home I grew up in. At least I have a stable internet connection. I earn my living by being a freelance video editor. I sometimes did thumbnails or podcast editing. If you come across one of those life hack videos with recycled clips of the worst crafts ever, it’s possible I edited it or a similar video. Sorry about that, but I gotta eat. 
 
 I went to bed late one night crunching to finish a video. I woke up in the afternoon to the sound of glass breaking and a car taking off. I ran downstairs to see the damage. A rock had been tossed through the front window and thankfully only broke a single panel. I charged outside trying to see the car but was too late. It already turned into the long road and was hidden behind the trees that line my driveway. I lived too far from a neighbor to witness the incident. Besides the rock, they also tossed a few dead squirrels on my porch. Great. Just the way I wanted to be woken up.   

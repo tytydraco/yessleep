@@ -1,5 +1,3 @@
-*Her house is my prison.*
-
 That is what I tell myself every day. Staring out the window, watching the cotton candy clouds drift past me bathed in orange, I can’t help but feel jealous.
 
 They are so *free.* Like a bird. Flying around the world, seeing the sights and sounds. And I am stuck here behind four walls. Chained by my ambition, my misfortune.
@@ -436,7 +434,7 @@ It was her secret. Her life’s work. A way that combined the science of plastic
 
 I shudder to think what happened to those who…didn’t make it.
 
-Her house is my prison; her body is my chains. I can’t leave. She won’t let me. Neither would she let me undo her mess. There’s a dead end at every turn; each solution twists myself tighter into knots.
+Her house is my prison, and her body my chains. I can’t leave. She won’t let me. Neither would she let me undo her mess. There’s a dead end at every turn; each solution twists myself tighter into knots.
 
 And every night I fall asleep with memories that are not my own: a smiling boy that looks like a younger version of me (her?), strange smells of bleach and chlorine, attempts to climb a wall with barbed wire twenty feet high. Deals to gods I shouldn’t have made.
 

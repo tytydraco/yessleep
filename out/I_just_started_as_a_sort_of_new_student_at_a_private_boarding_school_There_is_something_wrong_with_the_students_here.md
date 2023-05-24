@@ -301,7 +301,7 @@ Until my gaze found bloody sheets, and under my shirt, clumsy stitches barely ho
 
 I am stuck here with Abigail implanted inside of me. She is everywhere, and I can’t escape.
 
-I know I am a bad person. I did something awful, and she is making me pay for it rightfully so. However, Isn’t this going too far? How is it even possible to take control of the school like this? How can this girl have so much power over everyone—and most importantly, why hasn’t she killed me?  I don't even know I can get an Internet connection. I knew she weird. But this is way beyond anything I have even heard of.
+I know I am a bad person. I did something awful, and she is making me pay for it rightfully so. However, Isn’t this going too far? How is it even possible to take control of the school like this? How can this girl have so much power over everyone—and most importantly, why hasn’t she killed me?  I don't even know how I can get an Internet connection. I knew she was weird. But this is way beyond anything I have even heard of.
 
 Witchcraft. But this isn’t the type we caught Abigail doing.
 
