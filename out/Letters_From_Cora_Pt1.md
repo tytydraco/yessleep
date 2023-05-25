@@ -18,7 +18,7 @@ But I'm posting it here and now, if only so I am not burdened alone by it.
 
 *Things Are Looking Up*
 
-To my dearest brother Demetri,
+To my dearest brother Dimitry,
 
 Winter has taken its toll on me. It came rather late this year. Many of my friends had placed bets on whether it would snow at all in December, and it seemed as though it would not. But, in its final days, a blizzard came to pass and this little town has been painted white. In just the two days we have had of snow, I have seen a car slide into a ditch and another that had not been moved in a time be buried up to its windows. It isn't very good and I have never wanted to go home more than now.
 
@@ -38,11 +38,11 @@ I awoke some hours later, not many, maybe just four. When I did, I was immediate
 
 I ran downstairs. I didn't even get to close the window, I was too scared. I tried to sleep, but I had become acutely aware of my surroundings. I could hear it, the sound of her footsteps. Their marching matched the frantic thrumming of my blood and the beating of my heart. I was so afraid. I'm still so afraid.
 
-But, again, I am also curious. I cannot help it. It is my nature. I knocked on the girl's unit door yesterday. I didn't expect anyone to answer, but she did. Demetri, I tell you honestly, you would have left Elizabeth in a heartbeat if you saw her. She has bright red hair that stops at her shoulders and beautiful green eyes. Freckles dust her cheeks like flower petals. I've never been so envious and so entranced before. She was tall, too, much taller than I. When she asked what I wanted, I suddenly realized that curiosity is not reason enough to knock at someone's door. I'm foolish, and even more so when nervous. So I asked her, "My dog has run away, have you seen her?"
+But, again, I am also curious. I cannot help it. It is my nature. I knocked on the girl's unit door yesterday. I didn't expect anyone to answer, but she did. Dimitry, I tell you honestly, you would have left Elizabeth in a heartbeat if you saw her. She has bright red hair that stops at her shoulders and beautiful green eyes. Freckles dust her cheeks like flower petals. I've never been so envious and so entranced before. She was tall, too, much taller than I. When she asked what I wanted, I suddenly realized that curiosity is not reason enough to knock at someone's door. I'm foolish, and even more so when nervous. So I asked her, "My dog has run away, have you seen her?"
 
-The woman shook her head and I excused myself. But as I was leaving, she asked where I got my jacket from. (It's the one Mama bought in Milan). I told her from a distance and she waved me back towards her. I don't know why I did, but I walked to her again. Her name is Lily Walckenaer. We stood at the doorway and talked of the coat's quality and whatnot before she asked if I enjoyed rabbit. I said yes, even though I have never tasted it.
+The woman shook her head and I excused myself. But as I was leaving, she asked where I got my jacket from. (It's the one Mom bought in Milan). I told her so from a distance and she waved me back towards her. I don't know why I did, but I walked to her again. Her name is Lily Walckenaer. We stood at the doorway and talked of the coat's quality and whatnot before she asked if I enjoyed rabbit. I said yes, even though I have never tasted it.
 
-Demetri, she has invited me to dinner tonight.
+Dimitry, she has invited me to dinner tonight.
 
 My friends are all in the city and my family is out of the country. Everyone feels so distant. And, oh, how easy it is to tire when love feels so distant. I believe I have made a local friend. At least, I hope so. Like me, she lives alone. I don't know if she has other friends. But upon returning home, I remembered that the spinning girl had long hair. Lily did not. I'll ask about it tonight and I'll let you know all about it in my next message.
 

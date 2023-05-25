@@ -64,4 +64,4 @@ The fear of realizing that slowly I was able to interpret the symbols as though 
 
 The paralyzing fear of reading:
 
-*He said he would be back…but it’s too soon. I can’t let him have her.*
+*He said he would be back…but it’s too soon. I can’t let it have her.*
