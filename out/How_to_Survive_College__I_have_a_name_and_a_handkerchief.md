@@ -210,6 +210,10 @@ I hadn’t realized I’d been crying in the moment, but I think… when James r
 
 He was wiping away a tear.
 
-(also if anyone has ideas for getting Professor Monotone’s handkerchief back to him without it being super awkward and weird I would really appreciate it kthanks)[\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)  
-[Read the first draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)  
+(also if anyone has ideas for getting Professor Monotone’s handkerchief back to him without it being super awkward and weird I would really appreciate it kthanks)[\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
+
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/13r7xl0/how_to_survive_college_the_library_enforces_its/)
+
+[Read the first draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
+
 [Visit the college's website.](https://alderrayne.com/)
