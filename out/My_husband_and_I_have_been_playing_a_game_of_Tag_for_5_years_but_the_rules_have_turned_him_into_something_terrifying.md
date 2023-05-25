@@ -1,4 +1,4 @@
-It all started after we saw the comedy film called *Tag* in 2018. For those of you who are unaware, it's based on a real story about a group of friends who played an endless version of the children’s game. I think I enjoyed the film at the time, but I can’t remember now. After years of this gradually-worsening Hell, I shudder every time I remember the concept that inspired my husband, Elliot.
+It all started after we saw the comedy film called *Tag* in 2018. For those of you who are unaware, it's based on a real story about a group of friends who played an endless version of the children’s game. I think I enjoyed the film at the time, but I can’t remember now. After years of this gradually-worsening hell, I shudder every time I remember the concept that inspired my husband, Elliot.
 
 “Let’s do it,” He said.
 
