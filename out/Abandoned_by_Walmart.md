@@ -1,5 +1,3 @@
- 
-
 I live a painfully mundane life slaving myself to the corporate confinement known as "Walmart". Every single day (besides my days off, obviously) consists of me doing repetitive tasks involving manual labor in the store. If I'm not sweeping and mopping the aisle floors, I'm either restocking their shelves or scrubbing those despicable toilets on my bare knees.
 
 &#x200B;
@@ -16,7 +14,7 @@ I rolled my eyes and deeply sighed. I reluctantly complied with him, until he ke
 
 "Fuck you, Steven," I spat venomously. "I said fuck you! And your eyebrows!" I yelled again, pointing at his thick asymmetric set of eyebrows. I proceeded to trash some of the stocked shelves out of anger; my fury scattering their contents about.
 
-"Wipe down this!" I exclaimed once more, rubbing my crotch mockingly. Steven's jaw-drop grew even wider when I slammed my carcinogenic employee vest on the floor, spitting on it to finally seal the deal. That was the day I decided to burn bridges with Steven.
+"Wipe down this!" I exclaimed once more, rubbing my testicles in front of him. Steven's jaw-drop grew even wider when I slammed my carcinogenic employee vest on the floor, spitting on it to finally seal the deal. That was the day I decided to burn bridges with Steven.
 
 ***3 years later***
 
