@@ -107,3 +107,5 @@ My heart dropped into the pit of my stomach. I asked him why he kept it from me 
 I felt a horrifying chill of truth run through my body.  It was true. The creature…it wanted me.
 
 It took something from me that night in 1996...now it was back for what it left behind.
+
+Please continue to [\[PART 2\]](https://www.reddit.com/r/nosleep/comments/13rmgm4/its_come_back_for_what_it_left_behind_in_the/?utm_source=share&utm_medium=web2x&context=3)...
