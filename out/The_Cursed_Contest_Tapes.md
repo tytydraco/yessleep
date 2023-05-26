@@ -1098,7 +1098,7 @@ We were on the edge of our seats, hoping for some way that she could overcome th
 
 &#x200B;
 
-\*\*Ludus: “\*\*Only one thing can make people take such drastic actions. Unfortunately, it won’t be enough for you to win. My turn.”
+**Ludus:** "Only one thing can make people take such drastic actions. Unfortunately, it won’t be enough for you to win. My turn.”
 
 &#x200B;
 
@@ -1240,7 +1240,7 @@ Since watching the video we’ve done some investigating. Thanks to the news rep
 
 &#x200B;
 
-\*\*Luella: “\*\*Thank you.”
+Luella: "Thank you.”
 
 &#x200B;
 
@@ -1306,6 +1306,4 @@ It seems to be after us specifically if the tapes being discovered at my old fos
 
 This is [Zane,](https://www.reddit.com/r/StoriesFromRose/) logging [out.](https://twitter.com/RoseBlack2222)
 
-
-
-https://www.reddit.com/r/nosleep/comments/11d7unm/the_cursed_contest_tapes_part_2/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button (Condolences you had to go through that, Ellen.)
+[https://www.reddit.com/r/nosleep/comments/11d7unm/the\_cursed\_contest\_tapes\_part\_2/?utm\_source=share&utm\_medium=android\_app&utm\_name=androidcss&utm\_term=1&utm\_content=share\_button](https://www.reddit.com/r/nosleep/comments/11d7unm/the_cursed_contest_tapes_part_2/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button) (Condolences you had to go through that, Ellen.)
