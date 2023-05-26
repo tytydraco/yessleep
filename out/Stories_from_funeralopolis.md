@@ -1,4 +1,4 @@
-Chapter 1: junkhead
+
 
 
 As the good Lord sent another round of rainfall belching out of the clouds, people in all walks, with the anticipation of dread in their footfall walked wearily towards the rusted over chapel to give their good fortunes for the promise of eternal glory. The bus screeched in it's tracks, falling apart at the seams, bus driver looks content with dying at the closest instant. The local junkie mutters to himself sermons and regrets until he gets another stab on the grimy, infected pipe.
@@ -14,8 +14,6 @@ The town a few blocks east was abandoned and rumoured by the locals to be one of
 
 A party went out in the night and crept passed the bridge and traversed to the rustic gates that bore the grounds with a path winding in the dirt roads towards the chapel, dilapidated and crumbled from the inside, laying like a wreckage of old, rubble and debris pooled the floor, memories came flooding back as the junkhead took a swig of whisky while burning another foil, the eyes on that thing, glowing a hellish amber like the sunset on the wretched universe, the smell of rot, it filled the air when he reminisced, as if the thing was there in his room, and the claws, how they were sharper than a thousand blades, they cut and sliced into his skin, he remembers the agony as they drained the fear out of his soul. 
 
-Chapter 2: Diane
-
 There was a girl that me and the junkhead knew named Diane, she used to kick about with us back in the day, she weren't no stranger to whippings by her cruel dad and his iconic whip, we all ran for the hills when he growled and barked like a rabid mutt for Diane to "get your stupid ass back in" she always hated this place yet knew deep inside she would die here, she wasn't wrong.
 
 The party was reduced to two as they left that demented church, they all ran in fear for themselves, not noticing that Diane was nowhere to be found. Junkhead knew what happened to her though, it was written on his face, pale as a sheet, white as snow, I have never seen fear on a boy like that before or since then, he never spoke a word to me after that night's events, nor to his folks, they sent him off to the funny farm, this was the seventies so it weren't art therapy, it was more like electro shock, beatings and pedophiles 
@@ -23,8 +21,6 @@ The party was reduced to two as they left that demented church, they all ran in 
 I went to see him a few years later, he told me it was as if he had just reached lucidity after being trapped in an eternal nightmare, trapped in an endless void of a land raptured in darkness and the deafening eeriness of silence, he was only aware of his existence by the feeling of his feet touching the ground, every step was pain beyond belief as shards of glass etched their way into his feet, he attempted to scream, yet no sound would exfoliate, after a while he regained the gift of sight, then he wished he could be a blind man once again, the sights he percieved were beyond the mechanisations of the most twisted of minds and cruelest man's fantasies, he retched from the horror and recoiled from the fiery depths he saw before him, screams resounded through the eternal night and he awoke in a sanitised room with padding along the walls and that familiar stench of rot flooded his senses once again.
 
 He has long since expired his time there and is out on the streets simply existing, not living and nowhere near thriving, you may have seen him begging you for money, you may have spat on him, and he would have stabbed you, your body left in a dark alleyway somewhere and in the morning people step over you like a swatted bug.
-
-Chapter three: the great destroyer
 
 The trees along the shores violently swung to and fro, another grim winter's morning like many others that came before it, rain drenched the soil and flowers just starting their lives were ripped out of their roots as the earth that morns them were swept into a puddle in the street.
 
@@ -34,7 +30,6 @@ These were the visions the junkhead summoned while on another bender, he sought 
 
 After he finished another round of existential rambling he nipped to the loo, me being a nosy bugger, I figured I'd have a mosey round and see what was written in that journal he carries about with him, these were the contents; 'God is dead and we all killed him through our blasphemies and perversions, soon he will rise from eternal hell fire to drag us down there with him, we shall lie for six days like that wretched angel before we descend deeper into a place where light does not reach and darkness shrouds all that exists; total annihilation, I have seen the light and I never desire to gaze upon it once more'.
 
-Chapter 4: the betrayal of the wretched disciples
 
 It'd been a few days since my last encounter with that old nutcase, but recent events have brought back to mind them scrambled poems that tell of our imminent demise, repeating in my head and resounding like a piercing screech through my skull, some long forgotten artifact of knowledge that we were not supposed to discover, a few days of this and I was ready to self-admit to the asylum. 
 
@@ -45,8 +40,6 @@ In the next couple of weeks things went from horrific to terrifying as a hand co
 I watched with indifference as civilized people devolved into barbarians, scientists turned to fanatics, and violence erupted in every city, blood-soaked battles between Christians and Muslims, people were found hanging from their necks, hands ravished in a hue of blue and eyes sunken and bloodshot, carved within their nude torso were words: sinner, homosexual, blasphemist. 
 
 Collective insanity flooded the minds of all the people, fear had made man forget his social etiquette and morals, a race to survive the imminent rapture or hopes of a more kindly judgement from the almighty.
-
-Chapter 5: the new prophets
 
 I became fearful for the junkhead, he had withdrew himself from all social settings, none of us had heard a word from him, I emerged at his chamber and gently tapped at the frame of his dank apartment, with little surprise at no answer, I grabbed my key he had gave me and entered, the sight I percieved before me will never leave me for my belonging days. Blood and entrails were strewn about the room, written on the walls were the following: I have seen the light, I can't look away, he compels me'
 
@@ -60,7 +53,6 @@ New leaders started popping up, conmen promising their followers salvation and r
 
 A moment, just a spec of lucidity and realization dawned upon the folks as they travelled through the blood-ridden streets and stepped over the corpses gathered in the meadows and alleyways, passing by the nooses bearing strange fruits, and the serpents whispering into their ears, remorse and guilt plagued them and one by one and hand in hand, a hundred or so accepted their fates and gave their souls to god, they lifted their daggers and shred their necks, staring into the sunset which bore that great eye once again, weeping as the moonlight shed it's rays upon their wounds and reflected the gore before them, stumbling to their knees in a final gesture of prayer till their soul was no more, one hundred kindred spirits twinkling in the stars and glistening In the night sky, hope is with them that they are indulging in all of the precious nectars God has to offer.
 
-Chapter 6: the end times 
 
 Broadcasts from the few remaining televisions flickered in the shop window and echoed resounding down the winding alleyways of funeralopolis, they spoke of the final days, a scroll found in the sea which, when unraveled revealed to them that our time was very nearly through, the moment to choose between sin and purity was upon us, and me, having been enlightened by the junkheads rambling, knew better than to live the rest of my life in fear of the almighty, for I know that eternal damnation awaits us all, I pledged to indulge myself in the forbidden fruits that remained in this world, to do things I never dreamt of doing, to see the sunset of this wretch and I shall grit my teeth and go flailing and resisting, biting the hand that feeds until it bleeds and screams blue murder, this is my promise, I shall not leave without a brawl, one of us will die, and it won't be me.
 
