@@ -185,3 +185,5 @@ It took me ages to calm her down. Figuratively, of course. I don't think I've be
 [12: explanation](https://www.reddit.com/r/nosleep/comments/13p2dw3/stuck_on_earth_and_looking_for_a_job_we_might/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [13: hurt](https://www.reddit.com/r/nosleep/comments/13q2hrx/stuck_on_earth_and_looking_for_a_job_i_should_not/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[15: ocean](https://www.reddit.com/r/nosleep/comments/13s762l/stuck_on_earth_and_looking_for_a_job_the_day_the/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
