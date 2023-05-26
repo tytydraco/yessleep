@@ -1,4 +1,4 @@
-*TRIGGER WARNING*
+*TRIGGER WARNING, KIDNAPPING AND MENTION OF MURDER*
 
 Yesterday, my daughter had done he normal routine. Got up, went to the white shack at the end of our road, waited for the bus, and got to school. I’m not too sure what had happened. At around 2:30, I had gone down to the shack and waited for my daughter. The other parents had left by 3:00.
 
