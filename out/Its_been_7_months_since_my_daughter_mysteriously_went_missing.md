@@ -46,4 +46,18 @@ I said yes, and that one evening my daughter was found injured badly, but alive.
 
 “Thank you for saving me daddy.” Her voice was in fear.
 
-I than got a firm hug, and was the happiest parent alive.
+I than got a firm hug from my daughter. She smiled, and I smiled back.
+
+I went back to Officer Vada, and asked if the other kids were okay, or if it was just my daughter who was alright.
+
+She responded “Your daughter was the only one found.” 
+
+I felt a wave of guilt rush through my body.
+
+I wanted to help those poor kids. So I did. We ended up finding 24 kids. Sadly, it wasn’t all of them. But at least those kids were safe.
+
+I felt good about myself. I was at Home. I had everything I needed. Food, water, a roof over my head, and my loving daughter.
+
+Although, my daughter had been acting weird, and looked a little different I didn’t suspect anything.
+
+Until I realized that that kid was not mine. And my kid is still out there.
