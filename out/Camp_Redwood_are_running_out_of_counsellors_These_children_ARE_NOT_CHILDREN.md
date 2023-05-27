@@ -176,11 +176,11 @@ I nodded. “Did anyone find a phone?”
 
 “Carmel.” I had to fight back the urge to yell at her to keep her voice down. Kids were curious, and I wouldn’t be surprised if we had some littles peeking into our conversation. “You’re okay.” I said softly. 
 
-“I mean, we’re not okay, because yes, things are very.. screwed up right now, but we need to be… optimistic.” I exhaled out a breath, searching for eyes in the dark. I tried to smile, tried to keep up that Camp Redwood façade we were all held hostage by until the last day of camp (According to rule 5 in the Camp Redwood counsellor handbook, all counsellors must retain a smile and a positive attitude. If any councillor is caught making a frowny face, or spreading what we call “unhappiness” we will be forced to send the councillor home).
+“I mean, we’re not okay, because yes, things are very.. screwed up right now, but we need to be… optimistic.” I exhaled out a breath, searching for eyes in the dark. I tried to smile, tried to keep up that Camp Redwood façade we were all held hostage by until the last day of camp (According to rule 5 in the Camp Redwood counsellor handbook, all counsellors must retain a smile and a positive attitude. If any counselor is caught making a frowny face, or spreading what we call “unhappiness” we will be forced to send the counselor home).
 
 At this point, I didn’t give a fuck—but part of me didn’t want to scare the little kids.
 
-“No, Josie.” The girl grasped hold of my shoulders with a grin rivalling the joker. “I am so sick of being told to keep smiling, because what is that doing? Three of my cabin-mates are missing! I’m the one left, and Rowan and co expect me to keep up this cat? We are fucked!" 
+“No, Josie.” The girl grasped hold of my shoulders with a grin rivalling the joker. “I am so sick of being told to keep smiling, because what is that doing? Three of my cabin-mates are missing! I’m the one left, and Rowan and co expect me to keep up this act? We are fucked!" 
 
 She cupped her mouth. “F. U. C. K. E. D. We have zero adults, an unexplainable loss of power every few hours which makes no sense in the middle of nowhere—I mean what the fuck is out there which is sucking that much power, huh? There is no explanation! There should be an explanation. I should be able to think, “oh, yeah! That’s why! But no. Things are happening, and I don’t know why they’re happening. Rowan is trying to force us to act like things are okay —but in reality? He is shitting himself, Josie! We are ALL shitting ourselves!”
 
@@ -262,7 +262,7 @@ I nodded. “Yeah. I mean, I just saw her five minutes ago.”
 
 “We’ve all been trained to know every inch of these woods,” Rowan catapulted the cushion right back at her. “They’re not lost.”
 
-“Well, where are they?!” Callan sat up, bringing his knees to his chest. I had never seen the guy looked this vulnerable. “Allison made sense. She probably had other duties, and left us to look after the kids. But six councillors? All of them disappearing—- our phone signal completely cutting out, electricity cutting off, not once, but twice? What is even sucking all of our power?”
+“Well, where are they?!” Callan sat up, bringing his knees to his chest. I had never seen the guy looked this vulnerable. “Allison made sense. She probably had other duties, and left us to look after the kids. But six counselors? All of them disappearing—- our phone signal completely cutting out, electricity cutting off, not once, but twice? What is even sucking all of our power?”
 
 “I got the emergency generator working,” Olive raised her arm. “Connor and I managed it before…” she trailed off.
 
@@ -304,7 +304,7 @@ Harry rolled his eyes. “Do I have a choice?”
 
 “No.”
 
-Rowan cleared his throat. “We all keep up appearances. If the others turn up, after getting high or… I don’t know, having an orgy in the woods—- I will fucking kill them.” The way he smiled through his teeth, jumping off the bunk, his toes primed like a wild animal,  I knew he wasn’t joking. If this was a well-constructed prank the other councillors were playing, I had no doubt Rowan would rip them apart for leaving him as a reluctant leader. To my surprise, the others wandered off with their tasks.
+Rowan cleared his throat. “We all keep up appearances. If the others turn up, after getting high or… I don’t know, having an orgy in the woods—- I will fucking kill them.” The way he smiled through his teeth, jumping off the bunk, his toes primed like a wild animal,  I knew he wasn’t joking. If this was a well-constructed prank the other counselors were playing, I had no doubt Rowan would rip them apart for leaving him as a reluctant leader. To my surprise, the others wandered off with their tasks.
 
 I watched Rowan lift up his pillow and pull out a pack of animal crackers, ripping open the bag and pouring the contents into his mouth. He caught my eye, crunching through mini animal crackers. “I didn’t have lunch,” he said through a mouthful.
 
@@ -386,7 +386,7 @@ REGARDING PROJECT SPEARHEAD SUBJECTS:
 
 PLEASE DO NOT INGEST UNLESS ABSOLUTELY NECESSARY. IF MULTIPLE SUBJECTS INGEST, PLEASE USE SELF DESTRUCT.
 
-ONLY USE IN CASES SUCH AS IMMINENT DESTRUCTION TO THE PLANET/THREAT OF NUCLEAR WAR 
+ONLY USE IN CASES SUCH AS IMMINENT DESTRUCTION TO THE PLANET/THREAT OF NUCLEAR WAR. 
 
 (PLEASE CONTACT FAMILIES IN ADVANCE. MAKE SURE TO INGEST WITH WATER TO AVOID NEUROLOGICAL SYMPTOMS SUCH AS PSYCHOSIS, EXTREME VIOLENCE. PLEASE APPROACH SUBJECTS WITH CAUTION.
 
@@ -396,17 +396,17 @@ Abandoning the boxes, I searched through a cabinet filled with files which were 
 
 **Eleanor Summer’s.**
 
-**Sex: Female**
+**Sex: Female.**
 
-**DOB: 08/05/1977**
+**DOB: 08/05/1977.**
 
 Initially, I thought I was reading the dates wrong. But then, with my heart in my throat, I was grasping for other files.
 
 **Eli Evermore.**
 
-**Sex: Male**
+**Sex: Male.**
 
-**'DOB: 08/03/1979**
+**'DOB: 08/03/1979.**
 
 “Rowan.” I managed to get out through a breath.
 
