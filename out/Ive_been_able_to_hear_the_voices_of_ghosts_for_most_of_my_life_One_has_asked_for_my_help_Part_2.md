@@ -1,6 +1,6 @@
 Part 1
 
-https://www.reddit.com/r/nosleep/comments/13ocxei/ive\_been\_able\_to\_hear\_the\_voices\_of\_ghosts\_for/?utm\_source=share&utm\_medium=web2x&context=3
+[https://www.reddit.com/r/nosleep/comments/13ocxei/ive\_been\_able\_to\_hear\_the\_voices\_of\_ghosts\_for/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/13ocxei/ive_been_able_to_hear_the_voices_of_ghosts_for/?utm_source=share&utm_medium=web2x&context=3)
 
 As it turns out, trying to solve a murder using the ghost of the victim as a witness isn’t as easy as I thought. I mentioned it in my previous post, but her recollections of her last moments aren’t clear in the slightest.
 
@@ -54,7 +54,7 @@ My face immediately flushed. The lady looked at me for a moment with squinted ey
 
 “Sorry,” I said. “I’m not really very good at talking to people. I never have been and I just don’t want to be implicated with committing murder.”
 
-“Who said anything about murder?” she asked. 
+“Who said anything about murder?” she asked.
 
 Oh fuck, I thought. I forgot that the body was reported as being a victim of an animal attack. I couldn’t exactly explain to the officer that the ghost of the dead body had followed me home and specifically told me that she was murdered.
 
@@ -137,3 +137,7 @@ I didn’t know what to do. Who do you call when the person hunting you is the p
 Only then did I realize how dangerous this had become. As Alice tried to comfort me, I wondered,
 
 How long until I end up like her?
+
+Part 3
+
+https://www.reddit.com/r/nosleep/comments/13tl2st/ive\_been\_able\_to\_hear\_the\_voices\_of\_ghosts\_for/?utm\_source=share&utm\_medium=web2x&context=3

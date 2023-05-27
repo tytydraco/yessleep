@@ -1,75 +1,133 @@
+In 2017, my roommate was busted for drug paraphernalia.  To make matters worse, the bust happened on the landlord’s property, so even though no charges were placed on me, I was evicted.  Money was already tight, so without my roommate’s contribution to rent I would’ve had to move out anyway, but now I only had 3 days to find a place to stay.
 
+Living in a rural area, my options were limited.  There was only one other small apartment complex and their rates were twice as high.  However, I did find a newly listed rental only five miles away.  It looked like an old barn that had been renovated and turned into a vertical duplex.  The listing said both floors were vacant, but only showed pictures of the bottom floor.  It was shabby, but I had no room to complain.  I called the owner, a sweet-sounding old man with a thick Southern drawl, and reserved the bottom floor.  The next day, I collected the few possessions I had and drove over to the farmstead.
 
-Years ago, when I still went to school my parents used to move around a lot. My mother had to  change jobs often and it was my dad's fault , due to his own job. At the time the story happened, we were looking at yet another relocation, planned months in advance. 
+The old man was waiting for me at the main house.  He looked like what I had imagined; dirty jeans, old boots, a big belly, and a long gray beard that matched his cotton shirt.  I parked and headed over to greet him.
 
-I was a not very successful 9- grader. In total we have been staying at this place for 4 years, living at the 6th floor of a 9 -floor building.
+“Howdy,” he nodded at me as I walked over to him.
 
-Things would have been doable but in the apartment above us there lived an old woman, a hag if you will. At first glance you could think she had gone entirely insane. In the summer the window of my room was always open and due this our entire family could hear her talk all the time. She would spontaneously start monologuing and just as spontaneously she would stop. She would start talking in her apartment in the middle of the night and as if to piss everyone off she would do it more often than during the day. Her day didn't have any structure, she was free to do as she pleased. She would talk about things no one understood, trying to get someone to understand her in her own very confusing way. The locals didn't pay attention to her at all, force of habit, I think. But I woke up a few times in the middle of the night, that's how loud she was talking.  I have to admit I was really scared because she changed her voice a lot and you could have the impression that different people were upstairs.
+“Hello!” I answered, forcing any ounce of charisma I could muster into my tone.  “I’m Melissa.  Your property is beautiful!”
 
-One evening I was at home alone, killing time in front of the PC as usual. I was lost in thought as I suddenly heard scratches on our front door. Confused, I approached our door and looked through the spy. There stood the old woman from upstairs. I slightly opened the door but couldn't say a word as she interrupted me.
+He extended his hand, “Eli.  And thank you.”  I dropped my bags to welcome his handshake.  “She’s not what she used to be, but she’s home.”
 
-"You stole from me! Return my gold!" She spoke with a voice full of malice.
+He knelt to grab my bags.  “Oh, you don’t need to do that.  It’s not that much,” I told him, but he shook his head and picked them up anyway.
 
-I wasn't sure what to reply to this, it happened so fast. She on the other hand kept talking as if having forgotten what she said a few seconds ago.
+“Where you’re stayin’ is around back,” he said as he started to walk that way.  “Sorry, but I don’t have a driveway over to it yet.  You’re welcome to drive ‘round and park in the grass if you’d like.”
 
-" My little son Alex, where have you been?" She inquired, her face assuming an entirely different expression.
+There was no way my beater could drive through the tall grass.  “That’s alright, I don’t mind walking.”
 
-" I'm sorry but my name is Eugene!"  I replied. But she just kept talking as if she knew what I would say.
+The duplex was less than fifty yards away from the main house and there was a worn path through the tall grass to get there.  It was vertically symmetrical with the windows in the same places for the first and second floor.  The second floor window looked to not have any glass.  It looked smaller than in the photos, but I was looking forward to the serenity of nighttime on a farm.  He unlocked the front door and flipped the lights on.  It smelled of hay, manure, and wood; something I would have to get used to.  To my right, there was an old tube TV on a cabinet with a dusty recliner pointed at it.  Behind that was the bathroom, and behind that was the bedroom.  The kitchen was along the back wall.  To my left was a ladder leading right up to a hatch in the ceiling.
 
-" I have several of you, I can't remember everyone!" She squeezed the words from her barely parted lips before turning around and walking back upstairs. I did not understand what she came for but I have to admit I felt uncomfortable after that conversation. There was something in her eyes that was beyond insanity, as if something from within her consciousness was successfully manipulating her. Forcing the philosophical thoughts out of my mind I returned to my PC. Strangely, there was nothing to hear from her till the evening.
+“What’s that?” I asked Eli, pointing to the ladder.
 
-I couldn't fall asleep for half the night. At one moment,  silence descended upon the room as if someone had cast a spell. But it was not a normal silence. I had the feeling that I got tossed in a vacuum or worse, had gone entirely deaf. As if nothing has changed but the silence was entirely within my head. I kept listening intently but didn't pick up any sounds except my own breath which for some reason annoyed me immensely. Those moments felt like a calm before the storm, as if something was bound to happen any moment.
+“That’s the way upstairs for now.  I’ll be adding a door and steps upstairs to the back of the place eventually, just haven’t gotten ‘round to it.”  He dropped my bags in the center of the room.  “Don’t worry, no one else is living here yet, and I don’t plan on renting the upstairs out until I’ve finished the other entrance.”
 
-Frustratingly my expectations came true, I heard steps upstairs and the woman started to speak.
+“That’s OK,” I said as I continued to look around the space.  “Did you just turn this into a living space recently?”
 
-"You will kill me! I know! Leave me alone, I am fed up with this!" she spoke with a voice that grew ever louder.
+“Oh no,” he answered.  “My granddad turned this place from a barn into a house many years ago for some distant cousins.  Twins, apparently.  I didn’t know any of them very well, I just inherited this place a couple years ago.”
 
-Having barely finished the sentence she continued in a changed voice .
+“Oh, I’m sorry for your loss,” I said, but he shook his head.
 
-" Why do you act this way around us dear, your dad is still with us, I'll tell on you and he'll punish you!" she spoke in a slightly lisping voice.
+“Ah, I wasn’t very close to my folks after eighteen,” he huffed.  “I wasn’t much into farming, but as I’ve gotten older, the more appealing it’s been.  My parents worked tirelessly to try and keep this farm as big and profitable as my granddad did, but they struggled.  Since I had made a small farm of my own, I thought when I inherited this place that I could make it work, but I’ve struggled just like they did.  That’s why I’m renting out the place,” he said as he shrugged.
 
-But all those changes faded to nothing as she, after standing there in complete silence for a minute suddenly started yelling loudly and incomprehensibly. She was either threatening someone or trying to scare something off. Despite all her quirks I have never experienced her acting like this. After the yelling I heard a loud thud as if something fell onto the floor, something very heavy. After this the night was quiet again. I kept trying to listen to something but all I heard were some light steps and I have never heard anything of the kind before. I must have dozed off at some point.
+“I’m sure running a farm is incredibly difficult, especially by yourself.”
 
-In the morning I woke up with a horrible headache. For the first time I felt happy going to school. I didn't tell my parents because I knew they have other things on their mind right now. I also knew that my dad hated talking about these things. I wasn't paying attention as I gathered my things and left. Strangely I felt better after a few steps away from the house. Maybe the fresh air did me good or the change of scenery.
+“Well,” he paused.  He looked around the room a bit before continuing, “it wouldn’t be so bad if it weren’t for something messing with my crops and killing livestock.”
 
-The day went by without anything strange happening, aside from the fact that time somehow seemed to pass way quicker. I was so distracted by my studies that I barely noticed that it was time to go back home. Usually I would be the first one out of the school door but not today.
+“Oh.”
 
-When I returned home I was greeted by deadly silence as usual. Only the clock  in the hallway kept counting down seconds. I caught myself wishing for a cat so I wouldn't be so lonely.
+He looked at me, “Now I don’t mean to scare you.  I’m sure it’s just a few coyotes, and the livestock are all the way past the house on the other side.”
 
-Entering my room I noticed with surprise how messy it was. My things were thrown all around, the bedsheets  crumpled up, some kinds of strange marks everywhere. I didn't pay it much attention, instead thinking "challenge accepted" and shifting into cleaning mode. To not get bored I put up music on my PC and pumped up the volume. During my cleanup I was confused several times as I kept finding my things in such spaces that it seemed as if someone was deliberately hiding them from me.
+His attempt to comfort me was appreciated, but I was starting to feel like this was a mistake.  I would stay there for as long as I had to, but I’d continue looking elsewhere.  I guess that was a positive of renting from this man, as there was no contract and I just paid every month.  “I’m sure it’s fine,” I said, trying to match his affirmation.
 
-After a few minutes I heard loud knocking from above. Apparently the woman disapproved of the loud music. To get back at her, as form of petty revenge I turned the volume up even more. It felt good getting some payback for the night plus I wasn't doing anything illegal.
+“I don’t have much of any livestock anymore, just a couple cattle and a few chicks, so I don’t think it should be much issue,” he handed me the key and stepped out the front door.  “If you need anything – anything – just call me or come knocking.  Don’t be shy.”
 
-After a minute the knocking stopped and I figured she got tired. Having pity on the old lady plus having finished the cleanup I turned off the music and decided to rest.
+“Thank you very much,” I told him as he walked back to his house.  I walked around the space a bit before unpacking my bags and accustoming myself to my new home.
 
-I laid down on the bed, having put my phone on charge and got lost in my thoughts. After a while I noticed that it was time for the old woman's talk again but she was silent . My window was open but instead of her gibberish I heard children playing outside and people talking. It was a welcome change I thought as I drifted off to sleep.
+That evening, I sat in the recliner and browsed on my phone for other places to stay.  I looked for hours, expanding the boundary further and further away, but couldn’t find anywhere I could afford.  I even contemplated posting online for roommates, but after getting evicted due to the last one and the thought of living with a stranger, I would just as rather risk being eaten by the coyotes.
 
-I rarely dream but maybe because of last night or some other reasons this was one of those rare occasions. In my dream I was going on about my day, seeing glimpses and bits of it. But in the entire dream I was not alone. It is a feeling I have difficulties to express. As if some unknown entity was following me from a distance. And as the day progressed the world around me kept getting smaller , effectively bringing the observing entity closer to me. I was really scared, especially when in my dream I entered my room I got this overwhelming feeling that I was caught in a trap and someone has been waiting...
+It had gotten late, and I could already start to smell the dew on the grass outside.  When I got up to go to bed, the floor creaked loudly with every step.  It sounded like the entire house groaned for every move I made.  I didn’t remember the house being this noisy earlier, but perhaps the silence of the evening made it that much more noticeable.  I made my way to bed, but hardly slept.
 
-I woke up to the entrance door to our apartment slamming. Struggling to open my eyes I looked at my phone and wondered about two things. Number one: apparently I slept for several hours which means I will be having difficulties falling asleep again. And number two: my phone was disconnected from my charger and the charger was lying in the corner of the room.
+&#x200B;
 
-Getting up I felt how cold it was in my room. I blamed the open window yet as I moved to close it I felt the warm breeze of wind from outside. It was warmer outside than in my room. I have no idea why it was cold in my room specifically but as I went to my parents I felt warm again.
+The next morning as I walked back to my car, I saw Eli carrying a shovel over to the barn.  I waved to him, but he must not have seen me.  He disappeared inside and I left for work.
 
-My mother and father were fighting about something and it has been a while since such heavy conflicts occurred in our family. They never led to anything good anyway. After a few more words my father left the room, preferring to withdraw from supper and my mother's company. My mom warmed up the food and we set down. I tried to tell her about what happened today but she just kept showing her disinterest in listening to me. I finished my supper in silence, thanked my mom and went to my room.
+When I returned that evening, Eli was sitting on the porch smoking.  He nodded to me as I got out of my car.
 
-I decided to spend the evening preparing for the math exam tomorrow. I did a few math exercises and solved some equations. Having finished that I laid down and tried to sleep and to my surprise I fell asleep very quickly..
+“Hello,” I called over to him.  I could tell he had had just as long a day as I’d had.  “Long day?”
 
-I don't remember the dreams I had but I only remember it was unpleasant. A persistent and somehow strange sound from upstairs woke me up. Again I had difficulties opening my eyes, my entire body was shivering. Touching my forehead I felt it was wet and immediately thought that I am drenched in sweat due to my nightmares. Yet as my eyes adjusted to darkness I noticed a big wet spot on the ceiling directly over my bed.
+“Same as always,” he said and smiled.  “Does misery love company?”
 
-"The old hag has forgotten to turn off the faucet and is ruining our ceiling!" I exclaimed before stumbling towards the light switch, my entire body aching and exhausted. As I flipped the lights on , my attention focused on the wet spot on the ceiling..there was nothing! I stood there, staring at the space where the spot used to be and couldn't believe my eyes. I was sure I saw it. I was shocked but after a while I laid back down on the bed without turning the lights off. I kept staring at the ceiling and the second I closed my eyes the woman started talking again.
+I laughed.  “Indeed, it does,” I answered.  I walked over to him and we talked for an hour or so about our lives, growing up, and how we got to where we are.  He was sweet and genuine, listening intently and sharing his own stories.  It was exactly what we needed.
 
-" Leave me alone, you bastard! You killed me! Go to hell!" Her voice sounded somehow unnatural, hoarse and malicious.  I was scared of the words she spoke and debated with myself whether I should tell my parents about it. But I was convinced they wouldn't believe me and didn't want to hear what my father would say. After some time of lying there indecisively  I must have fallen asleep again.
+“So am I the first person to stay here?” I asked.
 
-The next thing I remember was the annoying melody of my alarm. I had a horrible headache and wasn't sure if any of it was real. Despite feeling awful I decided to go to school and skipped breakfast to get out of the house quickly . Contrary to my expectations the day went by fine, I did good on the exams and met up with some friends for a few beers later.
+“Actually, I had one other lady stay here before you.  She was probably ‘bout your age.  She didn’t stay very long, though.  We had a bit of an argument early on.”
 
-As I came home it was dark. I was steeling myself for the atmosphere of discord between my parents and was pleasantly surprised to find them together and not fighting. We even had a visitor, a neighbour lady who liked to gossip.
+“What happened?” I asked.
 
-I barely closed the door behind me when they called me to them. After a pause, my father told me that the neighbour upstairs died a few days ago, directly in her room. Apparently some of the people who looked after her now and then became alarmed and discovered her. I wanted to tell them about what I heard and experienced but decided against it.
+“Well, she had rented out the bottom floor, but she let her sister stay on the top floor without talkin’ with me first.”  He sighed.  “I should’ve just let it go since I’m still not ready to rent that top floor out, but it just seemed poor manners.  I brought it up to her kindly at first and she just kept denying it.  But I would see them both standing at the windows together, one in the bottom and one in the top window, staring at me.  I saw them several times over the course of a couple weeks doin’ that.”  He sighed again.  “They were odd ones.”
 
-A month later I was at home again, minding my own business. There was no more talking or noise upstairs. Also no new neighbors, the apartment remained empty. I was exiting the kitchen when I heard scratches at the front door.
+“That’s definitely rude,” I replied.  “I don’t blame you.”
 
-I was feeling uneasy as I peeked through the spy. In front of our door was the old woman who immediately turned around and went upstairs. I have never been so afraid before or after than in this moment. I felt hot and cold as I heard steps in the apartment above and they stopped directly above my room.
+He smiled at me.  “Well, it’s late.  It’s ‘bout time we go to bed.”  He got up and headed inside.  “Goodnight,” he called out as he closed the door behind him.
 
-Up until us moving out I kept hearing the scratches on the front door. Out of fear I have never approached it again to check.
+“Goodnight,” I answered as I walked around the house and back to the duplex.
 
-As far as I know, the apartment  upstairs remains empty to this day.
+As I stepped inside, I noticed the loud creaking again.  With each step, a squeak echoed around the house.  It took me walking to the bedroom to notice that each creak under my feet sounded again right above me.  I rocked back and forth to make sure I was hearing it right, and with each shift, the thud echoed upstairs.  Was someone up there? I wondered.
+
+“Hello?” I called out, but no one answered.
+
+Was the sister still living up there?  I tip-toed over to the ladder, each squeak upstairs matching my steps.  No, it must just be something with how this place was constructed, I assured myself.  I stared up at the hatch, contemplating taking a peek.  Maybe it’s best I wait until morning.  I sat in the recliner that night, staring at the ladder.  I may have dozed off a time or two, but it was another night of poor sleep.
+
+&#x200B;
+
+I didn’t see Eli in the morning, or I would’ve asked him to investigate the second floor for me.  I went off to work but left early to check out the second floor before it got too dark.  When I came back, Eli was back near the barn with a shovel, covered in dirt and sweat.  I waved at him again, but he didn’t see me.
+
+When I got to the duplex, I stepped around a few times to see if the creaks were echoing upstairs, but they weren’t anymore.  I turned on my phone’s flashlight and climbed the ladder.  I found the light switch and flicked it on.  The second floor was identical to the first floor.  Everything was exactly the same except for the missing windowpane in the front of the house, adjacent to the ladder.  I crept over to the kitchen to see if there was anything to cover the window with, but all the drawers were empty.  Then I noticed the bedroom door was closed.  I tried to open it, but the door was locked.
+
+“Hello?” I called out as I knocked on the bedroom door, but no response.  If someone had been living on the second floor, they didn’t have any belongings.  The only way out that I wouldn’t notice would be the open window, but there would be no way back in without a ladder.  They might have been sneaking in and out midday while I was at work, but surely Eli would’ve seen an intruder.
+
+I went back downstairs to find something to cover the window with.  Despite how late it was, I decided to call Eli to ask him about the upstairs bedroom.  I found a spare sheet under the bed as Eli picked up.
+
+“Hello?”
+
+“Hey Eli, it’s Melissa.  I’m sorry to bother you so late, but I was checking out the second floor and noticed the bedroom door up there is locked.  Is there a reason?”
+
+He grumbled a bit to make it more obvious I had woken him up.  “Huh?  There’s no lock on the bedroom doors.”
+
+I froze for a moment, then pressed one foot down.  The creak echoed upstairs just like the night before.  I took another step and it echoed again.
+
+“Goodnight,” Eli said as he hung up the phone.
+
+I froze.  The only sound I could hear was the crickets outside.  I dropped the sheet and sprinted towards the kitchen.  The thuds and creaks I made were equally matched above.  I grabbed a knife from the drawer and ran to the ladder.  Again, every thump matched me in step.  I climbed up and put my hand on the trapdoor, pausing for a moment to prepare myself, before bursting through.
+
+There was no one.  I rocked back and forth, listening to the creaks coming from below my feet and above my head.  Then I stomped a couple of times and it echoed loudly, but it still sounded like it was coming from above.  It must just be how this place is constructed, how the sound bounces around or how the frame moves, I told myself.  But then I noticed the bedroom door was open.  I took a couple steps towards the bedroom and peered inside: empty.  Strange, but I was relieved.  I guess the door opened when I was stomping around.
+
+My phone rang.  It was Eli.  “Hello?” I answered.
+
+“What are you doing?” he asked.
+
+“I was just looking around upstairs.  There were some noises and the bedroom door opened so I-” but he cut me off.
+
+“No,” he said.  “Why are you on the roof?”
+
+“What?” I replied.
+
+“What are you doing on the roof?  Why were you stomping on it?”
+
+I froze again.  My mind raced.  I stared at the open window above the ladder.  “Are you in your room?” I asked.  I couldn’t see the house through the window at the angle I was at, so he shouldn’t have been able to see me.
+
+“Of course, I was in bed,” he answered.
+
+I raised my hand and waved.
+
+“Yes, hello!” Eli said.  “I see you!”
+
+I dropped my knife and jumped down the hatch.  I grabbed my keys, got in my car, and never went back.  I left the few things I had behind.
+
+&#x200B;
+
+Eli called me the next day and insisted I answer him as to why I was on the roof.  I tried explaining that it wasn’t me, that someone or something else lived there, but he wouldn’t listen.  Before we got off the phone, he asked me why there were blood and feathers in the upstairs bedroom.
+
+“I don’t know,” I answered, “but I don’t think you have coyotes, I don’t think the woman who lived there before me had a sister, and I don’t think your cousin had a twin.”
