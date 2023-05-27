@@ -158,7 +158,7 @@ I’m looking out the window at the first rays bursting from the horizon. Their 
 
 If the pit calls to you, please think about what you’re doing. It lies. There’s no light past the shadows. It stays dark, and cold, and there is no salvation. I can’t claim to know what the thing down there wants, truly, but it doesn’t care about you.
 
-Sitting here now, hell… the sunrise looks just a little bit prettier than before.
+Sitting here now, hell… [the sunrise looks just a little bit prettier than before.](https://www.reddit.com/r/rephlect/comments/12prnjx/welcome_to_my_sub_stay_awhile/)
 
 ___
 
