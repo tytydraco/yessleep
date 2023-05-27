@@ -10,7 +10,7 @@
 “Most of you younger people haven’t,” he said gruffly. “But my family was involved in the Battle of Scarville. If you have a few minutes, I can tell you all about it.” He motioned to a bench next to the statue, one that I could have sworn wasn’t there just a few seconds earlier. I shrugged it off though, admitting to myself that I might have missed it due to the glare of the sun, which was slowly disappearing behind the trees. We both sat down. He told me his name was Franklin, and I told him mine was Ted. We shook after we had introduced ourselves, the small, bird-like bones of his fragile hand feeling almost weightless under my grasp. And then Franklin began to tell me a story that would change my life forever.
 
 
-*****
+\*****
 
 
 I was just a kid when this happened. My father was a soldier in the area, but he never liked to talk about what he did. Then one day, he came running in the living room, his eyes all wide, telling me and my mom to get all our stuff, quick, it was time to go, and all this other nonsense. My mother asks why. He starts screaming gibberish about monsters and this and that. And my mother says the strangest goddamn thing- “Oh, is it that time again?” 
@@ -127,7 +127,7 @@ All of the people who died in the Battle of Scarville were reported as casualtie
 I wonder why those creatures from underground didn’t keep going. After all, they had won the “Battle” of Scarville, which was really just more of a massacre. But then I thought about how deer hunters are only allowed to hunt so many per season, to allow their population to regrow every year. And I thought about those abominations under the earth. And I wondered if maybe, just maybe, they might not be doing the same to us- waiting for the human population to grow for a hundred years or so, then, when the population is fat and healthy and lazy, come back out to feed on the herd.
 
 
-*****
+\*****
 
 
 The old man stopped, clearing his throat and looking over at me. His story had apparently come to an end. He smiled slightly at me, but I kept looking at him suspiciously, waiting for some sort of punchline.
