@@ -149,3 +149,5 @@ Bathed in sunlight and with the soft, salty air playing in her hair, Nettie Pete
 [13: hurt](https://www.reddit.com/r/nosleep/comments/13q2hrx/stuck_on_earth_and_looking_for_a_job_i_should_not/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [14: hospital](https://www.reddit.com/r/nosleep/comments/13r0f31/stuck_on_earth_and_looking_for_a_job_i_dont_like/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[16: diner](https://www.reddit.com/r/nosleep/comments/13t8gny/stuck_on_earth_and_looking_for_a_job_i_may_have/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
