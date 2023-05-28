@@ -38,9 +38,31 @@ He sighed. "Exactly like she is now. A passer-by called emergency services. We'v
 
 He looked back at me, but not directly. His eyes appeared foggy and seemed to linger at a faraway point, without really comprehending what he was looking at. Grief, I assumed.
 
-"....uh. Yeah. Yeah. There was this note, found by the body." He finally said.
+"....uh. Yeah. Yeah. There were a couple of items found beside the body." He finally said.
 
-He left to go get it, and came back with a small piece of folded paper in his hands, which he passed onto me.
+He left to go get it, and came back with a both small piece of folded paper in his hands and a small silver wristwatch, which he passed onto me.
+
+The watch caught my attention. It seemed familiar.
+
+Well, I suppose all silver chain-link watches with three faces look the same. But this one seemed different, somehow. The weight and the feeling of metal against my palm seemed to awaken a long-forgotten memory in the back of my mind. I could see myself holding this watch, years ago, and sliding it onto my wrist. Or someone else's. 
+
+I turned the watch over.
+
+Two simple letters were engraved on the backside of the watch face. Two simple letters that made the color drain out of my face, and made the world seem as if it was collapsing on top of me. Two letters that I had put there, 6 years ago.
+
+*A.E.* 
+
+Alice Edwards. My sister. 
+
+She was presumed missing over 3 years ago, after she left her house to go for an evening jog and never came back, leaving behind a grieving husband and a four year old daughter. The search was given up eventually, there was no leads and no witnesses. How do you begin to find someone who's vanished?
+
+With my mind clouding up with questions, I made my way back to the body. I forced myself to look past the blood and the toothpicks, and the sight of mutilated flesh. I looked at the eyes, the only part of the body not completely covered in toothpicks, and collapsed into fits of tears. Because in that moment I knew. The eyes were bloodshot and lifeless, but I had seen all I needed to.
+
+The woman on the ground before me was my sister.
+
+I thought she was dead, and now I had seen her die. Without even knowing her true identity. I turned my gaze away from her, and from all the others. All of these events were too much to process, and I knew I had to leave the scene, or risk having a breakdown. In that moment the pain was too great, and the tears too strong. I nodded to the police man guarding the tape, and crossed it once more.
+
+As I left, I became aware of a piece of folded paper in my hands, given to me by the paramedic, as it was also found near the body. 
 
 I opened it up.
 

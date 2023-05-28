@@ -106,7 +106,7 @@ I laughed.
 
 "That's good. I guess."
 
-He got a cigarette out of his back pocket and offered one to me.
+He got a pack of cigarettes out of his back pocket and offered one to me.
 
 I shook my head. From the things he was saying felt as if he was scared of something but he spoke in such a calm way.
 
