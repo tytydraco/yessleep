@@ -154,7 +154,7 @@ That agent stepped back out, making eye contact with me, then looking over my sh
 The agent pulled the trigger. The cultist tumbled to the floor. With a look more straight faced than what would seem normal, the agent dragged mr. cultist into the portal. The cultist was frozen, mumbling on his way. A minute later, the agent stepped back out of the portal. To my delight, she told us she was going to get us out of here.
 
 
-She walked us downstairs. Once we got to the living room, she blew a hole into the wall between the front door and the window. She stepped through the hole and we followed. Lights flashed through the fog, but no one was making any noise. The agent stood close to us and pulled out her phone. Teeth were sticking out of the screen.
+She walked us down the stairs. Once we got to the living room, she blew a hole into the wall between the front door and the window. She stepped through the hole and we followed. Lights flashed through the fog, but no one was making any noise. The agent stood close to us and pulled out her phone. Teeth were sticking out of the screen.
 
 
 "What… in the… what is happening here?" the agent asked herself.
@@ -202,16 +202,22 @@ Typical. Cheesy even…
 The man covered my mouth and brought me to the ground. As he tackled me, I noticed the fog was getting lighter. I could see the silhouettes of nearby cars and buildings, then the outlines, then their actual appearance.
 
 
-Two men in suits ran up to me. They argued with the cultist, then eventually pulled him off of me. I felt relieved. I glanced at the library. The agent ran out, closing the door behind her. Black liquid spilled out of each of the windows, piling up on the grass.
+Two men in suits ran up to me. They argued with the cultist, then eventually pulled him off of me. I felt relieved. I glanced back at the library. A wild chilling croak made the ground vibrate. I could hear some crashing and smashing coming from inside the building. I began to be able to hear the noises with greater clarity, as if all the windows on the building had been smashed. The agent better be winning, I hoped.
 
 
-"You need to tell us exactly who you are and who you're affiliated with," said one of the men in suits.
+I couldn't see anything, but the sounds I was hearing were putting me in a frozen trance. They were so erratic... and sinister. I couldn't explain exactly what I was hearing aside from the croaking and some animalistic screeching mixed together. They were rough. Not knowing who was winning kept me on edge further.
+
+
+There was a loud but soft explosion, then the screeching and croaking stopped. Seconds later, I began to see the outline of the library. Black liquid was leaking out of each of the windows. The front door was opened, then the sound of quick footsteps ran across the grass, getting louder and louder. I could see the outline of the agent. She was running by a couple men in suits.
+
+
+"You need to tell us exactly who you are and who you're affiliated with," said one of the men.
 
 
 "Well, my name is Arilyn Campbell," said the agent. "As for my affiliates, how about I write a report for you guys?"
 
 
-The agents told her that was fine, where to contact the FBI to give the report, and who they were. They left with the cultist, who was aggressively trying to break free from their grip.
+The agents told her that was fine, where to contact the FBI to give the report, and who they were. They left with the cultist, who was aggressively attempting to break free from their tight grip.
 
 
 All I could think about was the Arilyn Campbell I read about. The one who tanked an entire world's creature-fighting economy. Arilyn walked up to me. I gave her a look of confusion as she reached me and stopped.
@@ -262,13 +268,13 @@ I was relieved to hear Arilyn wasn't evil, but not so much that I fell for a 500
 "May 15, 2023," I said. "But instead of a surname, it just said Switzerland."
 
 
-"Huh," Arilyn said. Suddenly, she had a look of urgency on her face. "Okay, I don't have much time to chat right now. Your town is freed and the connections between realities have been closed. Have a good day."
+"Huh," Arilyn said. "A trick I use is I go to an alternate reality where it's essentially the same as thelne I was in, but a sometime in the future. I'll do that to make sure nothing drastic happens." Suddenly, she had a look of urgency on her face. "Okay, I don't have much time to chat right now. Your town is freed and the connections between realities have been closed. Have a good day."
 
 
 Arilyn opened up another portal and walked in. The portal vanished, leaving me with the sight of a dozen agents, dented SUVs, broken shop windows across the street, and a phone with teeth and grey withering veins hanging out of every hole.
 
 
-The end of this was so sudden, but welcoming. It looked like the situation was really over.
+The end of this was so sudden, but welcoming. It looked like the situation was really over!
 
 
 I'm glad this is over, although I still need to bring up the tracking chip to somebody who can help me out in that regard, and my other self is still here too although now I can actually have fun with her being a mirrored version of me. I feel weird about new phones now, so I might stick to older models for a while.
