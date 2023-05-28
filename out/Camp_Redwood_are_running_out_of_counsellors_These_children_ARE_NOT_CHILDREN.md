@@ -34,9 +34,9 @@ Entertaining the kids was supposed to be Teddy’s assignment—and he was who k
 
 Harry was supposed to be joining the search party for the missing councellors, but had ended up becoming the little’s personal punching bag.  
 
-When I first met him, Harry Carlisle had been the kid who sat on the side-lines and offered sarcastic remarks behind his copy of some pretentious novel I didn’t know of. Now, he had been reduced to a playground ride the kids pretended didn’t have an off switch. 
+When I first met him, Harry Carlisle had been the kid who sat on the side-lines and offered sarcastic remarks and crude jokes. Now, he had been reduced to a playground ride the kids pretended didn’t have an off switch. 
 
-He had enjoyed maybe the first two rides to raise morale,  but now I could see the strain in his eyes. “Ow!” Harry winced when the little girl’s fingers prodded at his eyes. “Hey! Eleanor, not my eyes!” He was dangerously close to toppling over, though managed to lepe his footing, ordering all of them off of his back. “Horse Rides are over!” He cupped his mouth, shouting across the cabin when a group of kids surrounded him with equally terrifying faces. Harry backed away and threw his hands up.  “Come on, guys, my back isn’t built for all of you!”
+He had enjoyed maybe the first two rides to raise morale,  but now I could see the strain in his eyes. “Ow!” Harry winced when the little girl’s fingers prodded at his eyes. “Hey! Eleanor, not my eyes!” He was dangerously close to toppling over, though managed to catch his footing, ordering all of them off of his back. “Horse Rides are over!” He cupped his mouth, shouting across the cabin when a group of kids surrounded him with equally terrifying faces. Harry backed away and threw his hands up.  “Come on, guys, my back isn’t built for all of you!”
 
 “Horsey!” The kids shouted back in a cacophony of giggles.
 
