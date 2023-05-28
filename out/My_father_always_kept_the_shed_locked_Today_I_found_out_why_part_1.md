@@ -4,7 +4,7 @@ Growing up, I remember it all vividly: any time my friends or I got too close to
 But as I grew older and eventually moved off to college, I began to question the shed more. My father still wouldn’t let me look in there. In fact, he kept the sole key on his person at all times. Even when he slept, he would keep the key in his pocket.
 
 
-Then, during my second semester at the nearby state university in the spring of 2021, I got a call that every son or daughter dreads. I was attending a lecture on anatomy when my phone lit up, ringing silently in the great, crowded hall. Looking down, I saw it was my brother’s number. I went outside, lighting up a cigarette and answering it.
+Then, during my second semester at the nearby state university, I got a call that every son or daughter dreads. I was attending a lecture on anatomy when my phone lit up, ringing silently in the great, crowded hall. Looking down, I saw it was my brother’s number. I went outside, lighting up a cigarette and answering it.
 
 
 “Hello?” I said. “Gil?” My brother answered immediately.
@@ -49,7 +49,10 @@ He really wanted to get at the money dad had left us. He wanted the money from t
 \***
 
 
-Gil stayed up late downstairs, watching TV and smoking a joint. He made himself a night-cap from my father’s liquor cabinet, pouring some Jack Daniels and ice in a cup with some Coke and sipping it slowly. I stayed with him for a while, talking.
+This all happened from yesterday to this morning. We ended up leaving that place together a few hours ago, bloodied and bruised and injured, after being trapped inside all night.
+
+
+The day before it started, Gil stayed up late downstairs, watching TV and smoking a joint. He made himself a night-cap from my father’s liquor cabinet, pouring some Jack Daniels and ice in a cup with some Coke and sipping it slowly. I stayed with him for a while, talking.
 
 
 We talked about the good times we had with Dad, about going hiking with him at the Green Mountains, or traveling to New York City with him to see the museums. I thought about how much I really missed him, and a knot formed in my throat. I quickly blinked my eyes to try to get the tears to go away.
