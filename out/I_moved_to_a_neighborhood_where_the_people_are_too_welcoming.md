@@ -216,4 +216,4 @@ He saw the look on my face and knew immediately.
 
 "Is it odd that I don't feel bad about that? I mean, I kept trying to get out but when I couldn't, I wasn't really disappointed. It's like I belong-"
 
-"I know," he interrupted me. ["I feel the same way."](https://www.reddit.com/r/Likeeyedid/)
+"I know," he interrupted me. ["I feel the same way."](https://www.reddit.com/user/likeeyedid)
