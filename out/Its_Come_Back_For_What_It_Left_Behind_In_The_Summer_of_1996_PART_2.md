@@ -2,7 +2,7 @@ Please read [\[Part 1\]](https://www.reddit.com/r/nosleep/comments/13punq5/its_c
 
 About a week after my encounter with the creature inside the truck, Grady had to hire extra help to make up for my absence. 
 
-I was too afraid to leave our room. Every time I thought I had mustered enough courage to step out, my body should tremble and my breath became labored.I missed the animals so much that every now and then Grady would bring a few in to keep me company, including Wanda.
+I was too afraid to leave our room. Everytime I thought I had mustered enough courage to step out, my body should tremble and my breath became labored.I missed the animals so much that every now and then Grady would bring a few in to keep me company, including Wanda.
 
 One night Wanda waddled her way over to my desk as I was journaling and she shared knowing with me again. She said, “He’ll always love you, even though you won’t be able to see him.” I looked at her fearfully, hoping she wasn’t speaking of the creature. 
 

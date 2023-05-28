@@ -140,4 +140,4 @@ How long until I end up like her?
 
 Part 3
 
-https://www.reddit.com/r/nosleep/comments/13tl2st/ive\_been\_able\_to\_hear\_the\_voices\_of\_ghosts\_for/?utm\_source=share&utm\_medium=web2x&context=3
+https://www.reddit.com/r/nosleep/comments/13u95d4/ive\_been\_able\_to\_hear\_the\_voices\_of\_ghosts\_for/?utm\_source=share&utm\_medium=web2x&context=3
