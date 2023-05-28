@@ -6,7 +6,7 @@ I tried to start a relationship with Samantha. I had gone to High School with he
 
 Things around my community changed once the Murphy family went missing. 
 
-The first sign that something was off on that Wednesday was how their blinds had closed. Their silver Chevy Chrysler remained parked in the driveway. 
+The first sign that something was off on that Wednesday was how their blinds had closed. Their silver Chrysler remained parked in the driveway. 
 
 A tennis instructor at the country club noticed the wife of that house did not show up for the program. He called their number to make sure everything was alright. When no one responded, he notified the authorities. Rumors abounded immediately among the home owners association about an alleged affair. The gossip only furthered when the married couple and their three kids were not found in the abode.
 
