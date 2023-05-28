@@ -2,7 +2,7 @@
 
 I stood up, awaken from my sleep from the knocking sound on the elevator door. My friends stood up with me as we all heard it. The sound of banging became so much louder. Giggling can be heard with it. What's behind the door is unknown and I'd rather not face it than die to this thing. In the edges of the door, thin fingers began to seep through it. Such horrible looking fingers. I watched the door getting turned into a broken mess. Something grabbed my hand and I saw it was Rishika's. I looked at her and saw fear and sadness on her face. 
 
-Questioning death can be answered by judgement, revenge, luck, curse, or just nothing. The concept fate over people sounds so simple that people think that it's ok that fate exists. Is it ok if I was in this situation? What if one of your loved ones died right in front of you by a murderer? You won't like it and you'd definitely blame god for that. 
+Questioning death can be answered by judgement, revenge, luck, curse, or just nothing. The concept of fate over people sounds so simple that people think that it's ok that fate exists. Is it ok if I was in this situation? What if one of your loved ones died right in front of you by a murderer? You won't like it and you'd definitely blame god for that. 
 
 The door is beginning to make an opening. Sweat rapidly runs down on my forehead. My eyes widened with terror as I see the creature's face. It's as accurately described from the documentary. Its teeth shines like bright white marbles and its eyes are like melted butter. The creature's face slowly gets closer, while we stepped far back until there's no space for us to move anymore. 
 
@@ -16,7 +16,7 @@ Its many arms spread around the elevator room, trying to grab us with its menaci
 
 Then, something happened right in front of our eyes. The creature was being pulled back by something. Something inside the darkness. I can hear it's the same women who saved me from the pale face. We couldn't see anything in the darkness but Billy's flames can surely help us along the way. I took his flamethrower and a torch. Lighting up the torch with it carefully. Not wanting to burn us. Turning off the flamethrower, I lighted the area with my torch in hand and saw them clashing each other with blade like arms. 
 
-We stepped out of the elevator with Ronald's dead body on Cody's arms. Why would Cody keep holding on to him for? He's already dead and there's no way for us to say a better goodbye. I guess maybe he wanted to bury him somewhere which I honored that idea. 
+We stepped out of the elevator with Ronald's dead body in Cody's arms. Why would Cody keep holding on to him for? He's already dead and there's no way for us to say a better goodbye. I guess maybe he wanted to bury him somewhere which I honored that idea. 
 
 She cuts the jaw of the creature that it screams the way a person should. I can see the whole body of the creature. It was humanoid and tall. About 9 feet tall and its body is dark skeletal human. It grabbed her with its large hand and threw her off into the wall. She crushes onto the wall with such heavy force. A groan can be heard from her before a blade penetrates through her abdomen. Her screams are both man and woman at the same time. 
 
@@ -26,13 +26,13 @@ She grabbed its face with her free arm and tears its face off. Its eyes bounces 
 
 The woman digs her sharp fingers into the creature eye sockets with the sound of digging flesh. She then splits its head with the pull of her hands. Black and bloody flesh spread onto the walls and ground. One of its discarded flesh landed on my shoe. My stomach twists and turns. Watching her brutally kill it while flesh and blood spills. I gagged, watching her 3 fingered hands dig into its throat and pulled out its large heart. 
 
-Geralt vomited to the ground, spilling the acid from his stomach. That didn't bother me. Instead I watched her feast on the heart. The sound of chewing on flesh and blood made me sick to my stomach from an imaginary smell of rotten flesh. The creature's body slowly melts away to the ground. Rendering it to be dead into a puddle of flesh and bone. There's now nothing left of it. Just a puddle. 
+Geralt vomited to the ground, spilling the acid from his stomach. That didn't bother me. Instead I watched her feast on the heart. The sound of chewing on flesh and blood made me sick to my stomach from an imaginary smell of rotten flesh. The creature's body slowly melts away to the ground. Rendering it to be dead into a puddle of flesh and bone. There's nothing left of it. Just a puddle. 
 
 "Holy shit." With just one word came out from Billy's mouth, the woman turns her head to look at us. Her eyes seemingly looked bright and harmless. Not sure whether or not if this is a tactic to hunt or it's really her instinct. The familiar color of her right eye caught my attention. 
 
 She fell to the ground with a big gap in her abdomen. Heavy breaths came out from her voice as she slowly gets back up on her feet. The light from my torch reveals her hoodie to be grey and the gap in her abdomen slowly began to heal itself. Small tendrils from the sides of the gap stitching back together.
 
-I stepped back, giving ourselves space in order for us to escape if she'd attack us. I held my hammer high and so does my friends with their weapons. "Darwin wait!" Did I just heard her say my name? I didn't know what to do or how to react. Either it's just a hallucination or trickery. "How did you know my name?" I asked with the fear in my voice. 
+I stepped back, giving ourselves space in order for us to escape if she'd attack us. I held my hammer high and so does my friends with their own. "Darwin wait!" Did I just heard her say my name? I didn't know what to do or how to react. Either it's just a hallucination or trickery. "How did you know my name?" I asked with the fear in my voice. 
 
 "I uh. I just guessed I suppose." Her eyes were on the dead Ronald in Cody's arms. She looked saddened by it. Even grieved. She shook her head and went back to to us with a clear voice. "But that doesn't matter. You all need to get out of here before he gets here."
 
@@ -64,9 +64,9 @@ With a warm and calm voice, she answered. "My name is Enid."
 
 We finally left the building safely with her guidance. The bright shining sky brightens around us. Giving us the comfort of our safety. But still, we grieved the death of Ronald. Billy grieved the most out of everyone else. He kept muttering all over and over while we were following Enid. His mutterings, from what I can hear are apologize. "Billy. It's not your fault. I think he knew as well."
 
-"No it is. I kept saying mean and horrible things to many of you but mostly it's on him. I just wanted him to think I'm strong and all. I'm lost Darwin. And I shouldn't have said those awful things. All I want was to show you all that I'm strong. But look at me. I'm bloody weak and I can't do anything to protect you all. All I can do is to just stand still and spout bullshit." 
+"No, it is. I kept saying mean and horrible things to many of you but mostly it's on him. I just wanted him to think I'm strong and all. I'm lost Darwin. And I shouldn't have said those awful things. All I want was to show you all that I'm strong. But look at me. I'm bloody weak and I can't do anything to protect you all. All I can do is to just stand still and spout bullshit." 
 
-He began sobbing so terribly that it shocks me to my core. His face turning red and he fell to his knees, unable to stand back up. We all stopped to try to at least give him the comfort we wanted give him. We've never seen him in such a state like this. Throughout our times together, he always acts like a jerk but now he's crying right in front of us. I didn't know what else to do except to sit down next to him. Ronald's body is now pale in Cody's arms. His eyes were shut. 
+He began sobbing so terribly that it shocks me to my core. His face turning red and he fell to his knees, unable to stand back up. We all stopped to try to give him the comfort we wanted give him. We've never seen him in such a state like this. Throughout our times together, he always acts like a jerk but now he's crying right in front of us. I didn't know what else to do except to sit down next to him. Ronald's body is now pale in Cody's arms. His eyes were shut. 
 
 "I know how it feels, Billy." Rishika, already knelt down in front of Billy, said with a warm tone in her voice. This has got to be the 3rd or 4th time I've heard her say a full sentence. Either way, it was encouraging. Billy doesn't seem to be able to reply. None of us does. "I used to be harsh and cruel to others because I wanted them to accept me. But I was wrong because that's not how it works. We can both change together. It's ok to be on your good side. It won't be too bad. I think Ronald would like that too."
 
@@ -80,7 +80,7 @@ He began sobbing so terribly that it shocks me to my core. His face turning red 
 
 "Yeah. Even me too. I get scared a few times but that doesn't mean that others will look down on me." Geralt stutters a bit in his voice but kept the strength to say those words. 
 
-"Same here. Even that I'm this, I'm still scared too." Enid joins in with a sad look on her face. For someone like her, I thought she never felt fear. I guess there are others like her can feel that way.
+"Same here. Even that I'm this, I'm still scared too." Enid joins in with a sad look on her face. For someone like her, I thought she never felt fear. I guess there are others like her that can feel that way.
 
 I wanted to tell him something too. Something that feels connecting to each other that I don't want him to be left alone. "You don't have to do this alone. I'm scared too and that's alright because that's human. We can help you Billy. You're our friend. And I think Ronald would consider you as a friend too."
 
@@ -92,7 +92,7 @@ Large gigantic shining eyes watch over the world below us from the sky. Its pupi
 
 By the time I stepped back, it turned its menacing eyes towards me. I felt like it was staring into my soul. My very soul in my body. Its own saliva dripping from its mouth. Hungry for our souls. It didn't move nor spoke a word. Thunderous noises kept coming from the abomination. They were red lightning and menacing. If people get hit by them, I'm pretty sure they'll turn into whatever nightmarish flesh creature they'll turn into.  
 
-"Guys! We have to go! There's not much time!" Edin ran and so we followed. Cody picked up Ronald's body with us. Billy gained back his strength to run. And I slowly started to run as I kept staring at its menacing eyes. It doesn't leave me alone. I don't see it following me or do anything than to smile with evil intentions. This is different than the ones we encountered. Not because of their looks. It's because I knew its intentions and the void creatures, I don't. 
+"Guys! We have to go! There's not much time!" Edin ran and so we followed. Cody picked up Ronald's body with us. Billy gained back his strength to run. And I slowly started to run as I kept staring at its menacing eyes. It doesn't leave me alone. I don't see it following me or do anything than to smile with evil intentions. This is different than the ones we encountered. Not because of their looks. It's because I knew its intentions. The void creatures, I don't. 
 
 A great thunderous red beam shot out from the abomination's mouth and a loud boom can be heard far away from us. The sound snapped me out and I began to run as fast as I can, trying to keep up the pace of my friends and Enid. 
 
@@ -112,9 +112,10 @@ Their wings are of a bat and their body was humanoid and blood red. Their mouths
 
 The demon nearly scratched my face before a bullet teared through the side of its brain. I turned my head to see Rishika, already wielding her sniper rifle. "I got you." She turned around and shot another bullet at another demon. 
 
-I heard a crushing noise coming from Cody. He slams his club right at a demons head, exploding it on impact. The demon wore an armor set of dark stones that could come from hell itself. It was carrying a blade that shines pure diamond. Geralt penetrating his spear at the demons chest, electrocuting it from a high voltage. "Holy shit! This is crazy!" A shout came from his voice. A voice of panic. 
+I heard a crushing noise coming from Cody. He slams his club right at a demons head, exploding it on impact. The demon wore an armor set of dark stones that could come from hell itself. It was carrying a blade that shines pure diamond. 
+Geralt penetrated his spear at the demons chest, electrocuting it from a high voltage. "Holy shit! This is crazy!" A shout came from his voice. A voice of panic. 
 
-I turned around when I felt something was approaching me. There was a demon with 4 arms and held a large hammer, bigger than the one I wielded. Its face full of hatred that Its eyes glared into my soul. I quickly swung my hammer by the time it swings its own at me. Our hammers clashes together, making a loud slam around us. It swung again but I jumped away from its heavy blow. It's the good thing we had those boots. They're able to give us enough push to jump twice higher than the original person can. 
+I turned around when I felt something was approaching me. There was a demon with 4 arms and held a large hammer, bigger than the one I wielded. Its face full of hatred that Its eyes glared into my soul. I quickly swung my hammer by the time it swings its own. Our hammers clashes together, making a loud slam around us. It swung again but I jumped away from its heavy blow. It's a good thing we had those boots. They're able to give us enough push to jump twice higher than the original person can. 
 
 I then swung my hammer directly at its face. I made impact as its face tears apart from the slam of my hammer. A crunching sound can be heard from its skull. Its head exploded into a pool of blood with scattered flesh and bones. 
 
@@ -124,13 +125,14 @@ I landed on my feet and watched the world turned into the new hell as dark flame
 
 "Will it take us home!?" Geralt asks with a panic in his voice. I can see the sweat pouring down on Enid's face as she stares back at us in a hurry. "No but it'll take you somewhere safe! Somewhere you can start a new life!" 
 
-Cody, with Ronald's body in his arms, is the first to get in the portal. By the time he jumps into the portal in the pool, a flash of blue energy can be seen emerging out of it. Then goes for Geralt. He was scared at first as he cowers back. "Will I be hurt if I fall?" 
+Cody, with Ronald's body in his arms, is the first to get in the portal. By the time he jumps into the portal in the pool, a flash of blue energy can be seen emerging out of it. 
+Then goes for Geralt. He was scared at first as he cowers back. "Will I be hurt if I fall?" 
 
 "Don't worry. You'll be fine." And so, he jumps in and flashes of light emerges out. 
 
 Then goes for Billy. He looked back at Enid for a moment before he jumps into the portal. 
 
-Lastly, Rishika stops near the edges of the pool. She turned around to see Enid with a hurried look on her face but also with relief. "Thank you Eddie." Then she jumps into the portal.
+Lastly, Rishika stops near the edge of the pool. She turned around to see Enid with a hurried look on her face but also with relief. "Thank you Eddie." Then she jumps into the portal.
 
 Did I just heard her right? Did she just said my lost friend's name. "What did she just say?" 
 
@@ -138,7 +140,7 @@ She looked at me with a sad look in her blue eye. I felt a connection between us
 
 I remembered the time Eddie shape shifted into the Ice cream man. It was a time when we were young. We both got the ice cream we wanted just for free without anyone noticing. It was funny but also worrying because we could get caught. But that never happened and still felt funny every time I remember that day. 
 
-"Eddie? You're Eddie." She nodded in reply. A gesture of yes. Then, right in front of my eyes, she formed into a grown up version of Eddie. The Eddie I remembered. My heart felt shocked as to what I've just learned. I ran to her and hugged her deeply than I could've ever done. We both hugged for a moment until she gently pushes me off. Tears started to appear beneath my eyes. I don't know what I was feeling but what I can say was joy. "Why didn't you tell me?" 
+"Eddie? You're Eddie." She nodded in reply. A gesture of yes. Then, right in front of my eyes, she formed into a grown up version of Eddie. The Eddie I remembered. My heart felt shocked as to what I've just learned. I ran to him and hugged him deeply than I could've ever done. We both hugged for a moment until he gently pushes me off. Tears started to appear beneath my eyes. I don't know what I was feeling but what I can say was joy. "Why didn't you tell me?" 
 
 "Because I knew you would drag me with you If I tell you. You have to understand that I have to stay here. This is where I belong and I'm too dangerous to be with you."
 

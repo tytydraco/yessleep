@@ -209,3 +209,5 @@ That was that. I'm still very curious about Tom's Diner, but for the time being,
 [14: hospital](https://www.reddit.com/r/nosleep/comments/13r0f31/stuck_on_earth_and_looking_for_a_job_i_dont_like/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [15: ocean](https://www.reddit.com/r/nosleep/comments/13s762l/stuck_on_earth_and_looking_for_a_job_the_day_the/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[17: government work](https://www.reddit.com/r/nosleep/comments/13u20f7/stuck_on_earth_and_looking_for_a_job_so_this_is/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)

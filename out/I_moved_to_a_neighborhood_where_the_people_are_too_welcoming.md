@@ -38,7 +38,7 @@ Everyone was insanely friendly. People waved at me and smiled as soon as they sa
 
 I smiled.
 
-"Well, you don't need to get me anything, I already feel very welcome, everyone is so nice. My name is Maria, by the way."
+"Well, you don't need to get me anything, I already feel very welcome, everyone is so nice. My name is Maira, by the way."
 
 I extended my arm to shake her hand.
 
