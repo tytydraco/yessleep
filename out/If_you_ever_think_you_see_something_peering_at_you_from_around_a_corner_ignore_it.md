@@ -105,7 +105,7 @@ I know I'm going to find out soon enough.
   
 Because all of today, they’ve been getting closer. I caught one trying to grab my leg under my desk. That wasn’t the scariest encounter I’ve had. The worst was driving back to the motel. Looking in the rear view mirror of my Starion. And seeing one of them glaring at me from just behind the rear seat. It caused me to nearly crash into a telephone pole. I’ve locked myself in my motel room, which is where I’m writing this. I don’t have much time left. They’re beginning to poke their heads out from everywhere in here. Multiple have popped their heads up from under the bed, watching me frantically typing this out on my laptop. And they’re all laughing at me. Today is when they're going to take me. They know *I* know that. I can’t do anything more now. I can’t run from them anymore. I’m too tired. Too weak.  
   
-But I can do one final thing. I can warn you. I can post this account of this here as a warning. I know for a fact most of you won’t believe me. And that’s fine. It may even be what saves you in the end.  
+But I can do one final thing. I can warn you. I can post this account here as a warning. I know for a fact most of you won’t believe me. And that’s fine. It may even be what saves you in the end.  
 But please, listen to me when I say this. If you ever think you see something peering at you from around a corner? If you ever catch a glimpse of a black and silver blur disappearing just out of sight? Don’t investigate it. Just ignore it. Tell yourself it’s nothing, and go about with your lives.  
    
 Because you don’t *ever* want them to realize you can see them.
