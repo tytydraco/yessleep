@@ -1,6 +1,6 @@
 My radio came to life, as sound crackled through the speakers. "Immediate assistance needed at the park on Grande Ave. Unidentified woman attacked and in critical condition."
 
-Grande Ave was only a couple of blocks away. I turned the car's ignition on, and picked up the radio and while clicking the side button. "Copy that. On my way now. Any information as to the nature of the attack?"
+Grande Ave was only a couple of blocks away. I turned the car's ignition on, and picked up the radio while clicking the side button. "Copy that. On my way now. Any information as to the nature of the attack?"
 
 "That's a negative." Was the distorted reply.
 
