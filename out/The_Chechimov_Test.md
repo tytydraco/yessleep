@@ -46,4 +46,4 @@ As they began to tear into my flesh, I realized that this was my fate. To die al
 
 As the darkness closed in around me, I could hear their teeth grinding against my bones, their claws scraping against the ground. And then, finally, everything went black.
 
-I woke up in the worst pain I have felt in my life. When the guard brought me my daily serving of beans, he screamed a noise of pure terror. I hope it will all be over soon.
+I woke up in the worst pain of my life. When the guard brought me my daily servings of beans, he screamed and fumbled his phone. I am writing this through his account. Hopefully this nightmare will end.
