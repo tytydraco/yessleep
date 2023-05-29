@@ -127,3 +127,45 @@ I immediately drew a connection to the stars in the sky.
 This may be what I can write at the moment. I need to sleep.
 
 My alcohol is getting low and I don't wanna talk about this. I'm going to speak on this, tomorrow.
+
+(*Day 2 of post*)
+
+So what happened?
+
+I immediately drew a connection between the stars in the sky and the avoidance of the city.
+
+My mother was right all along. 
+
+The stars had a secret.
+
+*April 27, 2022*
+
+I had went on the Internet and specifically a conspiracy theory discord server. They might be crackpots but they are smart. Kinda like detectives. So what do we have so far?
+
+A connection between the stars, the avoidance of the city, intelligent carnivorous herbivore wildlife, weather and gravity control, and these messages
+
+STOP LOOKING UP
+WOLVES EAT SHEPHARDS
+WARNING
+WE HAVE ALWAYS BEEN HERE
+
+...
+
+I have no idea what to do.
+
+I had two major theories.
+
+The Great Filter 
+
+Or another theory that is even more probable and even worse.
+
+A slave planet.
+
+
+It makes sense. 
+
+WOLVES eat SHEPHARDS.
+
+SHEPHARDs(People) gather Sheep(knowledge)
+
+So the wolves must be the stars?
