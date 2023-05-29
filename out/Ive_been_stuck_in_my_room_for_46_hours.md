@@ -11,3 +11,5 @@ The next day I woke up and tried to open the door again, this time the knob did 
 Today, day 3. I woke up and tried the door again. This time it opened. Despite it being morning, the hallway was pitch black, as I stepped out I saw a tall stretched figure standing in the hallway. Even though it was highly dark and I couldn't see, the dark figure stood out and was clear to see. Something about it was terrifying. Its back and limbs were fixed in a way I cant describe. The only thing repeating in the back of my mind was telling me to run back into my room and lock the door. It is currently 11 pm and I have only been drinking old Fanta that has been in my room for days. I no longer feel safe within my room.
 
 So here I find myself, at my desk, writing about these 3 days. I will likely update if I'm not dead by the time I get out.
+
+̷G̷̷O̷̷O̷̷D̷̷B̷̷Y̷̷E̷.
