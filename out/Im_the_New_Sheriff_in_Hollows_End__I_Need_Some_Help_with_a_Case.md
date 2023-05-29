@@ -82,7 +82,7 @@ She shook her head, clutching herself and looking past me with nervous eyes.
 
 Her neighbors were just getting home, getting out of their car with a load of groceries in their arms.  
 
-"Hey, Cindy," the man called over to her.  "Everything alright?" 
+"Hey, Christine," the man called over to her.  "Everything alright?" 
 
 “Great!” she called back, with a fake smile plastered across her face.  
 
