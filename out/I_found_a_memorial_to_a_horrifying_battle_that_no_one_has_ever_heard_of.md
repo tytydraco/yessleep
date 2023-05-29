@@ -28,7 +28,7 @@ The sky started to go dark, as if there were a solar eclipse. My mom grabs a can
 Out of the darkness, I saw silhouettes, stumbling shapes with twisted legs, broken arms, long necks and strange eyes. They continued forward at a much faster pace than any walking man. Their eyes seemed to glow in the dark, and the closer they got, the more hypnotized I felt. There was a strange, pulsating light that came out of their faces, you see. If you stared at it too long, you would get carried away by that light…
 
 
-My da, though, didn’t hesitate for a moment. He started shooting as soon as they were within range of the 30 odd 6. The nearest one’s head exploded in a shower of dark blood. The rest of them began hissing like snakes and running forwards. My da empties his whole magazine, taking down six of them, then slams and locks the door.
+My da, though, didn’t hesitate for a moment. He started shooting as soon as they were within range of the 30 aught 6. The nearest one’s head exploded in a shower of dark blood. The rest of them began hissing like snakes and running forwards. My da empties his whole magazine, taking down six of them, then slams and locks the door.
 
 
 “Where’s that fucking gun?” he screamed. My ma came running down the hallway with the big black thing in one hand and a box full of slugs in the other. He grabs the gun from her hand and gives it to me.
