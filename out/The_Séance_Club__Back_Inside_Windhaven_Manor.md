@@ -1,4 +1,4 @@
-We are almost at the end. The next post will be the last of this story, which has taken far longer to tell than I planned. Thank you to everyone who is still following along. If you're here for the first time, this all started [here](https://www.reddit.com/r/nosleep/comments/130mkjv/the_s%C3%A9ance_club_an_invitation_to_windhaven_manor/). The previous part (Part 6) is [here](https://www.reddit.com/r/nosleep/comments/13jz60k/the_s%C3%A9ance_club_escape_from_the_dungeon/)  
+We are almost at the end. The next post will be the last of this story, which has taken far longer to tell than I planned. Thank you to everyone who is still following along. If you're here for the first time, this all started [here](https://www.reddit.com/r/nosleep/comments/130mkjv/the_s%C3%A9ance_club_an_invitation_to_windhaven_manor/). The previous part (Part 6) is [here](https://www.reddit.com/r/nosleep/comments/13jz60k/the_s%C3%A9ance_club_escape_from_the_dungeon/). The final part (Part 8) is [here](https://www.reddit.com/r/nosleep/comments/13uwia1/the_s%C3%A9ance_club_the_end_of_windhaven_manor_final/). 
 
 \------
 

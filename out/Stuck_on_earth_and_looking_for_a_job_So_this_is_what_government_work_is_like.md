@@ -302,3 +302,5 @@ A human with their head removed doesn't look entirely human anymore. I could tel
 [15: ocean](https://www.reddit.com/r/nosleep/comments/13s762l/stuck_on_earth_and_looking_for_a_job_the_day_the/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [16: diner](https://www.reddit.com/r/nosleep/comments/13t8gny/stuck_on_earth_and_looking_for_a_job_i_may_have/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[18: something in the caves](https://www.reddit.com/r/nosleep/comments/13ux5n8/stuck_on_earth_and_looking_for_a_job_theres/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
