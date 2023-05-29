@@ -8,15 +8,15 @@ Dr. Serrano called us back. We forced the normal pleasantries through the underl
 
 “No…never,” I replied. Then I looked to Grady who also thought the question was strange.
 
-Dr. Serrano looked at us for several seconds, in that way parents look at their children when they’re wondering whether they should believe them or not. 
+Dr. Serrano looked at us for several seconds, in that way parents look at their children when they’re wondering whether they should believe them or not.
 
 He looked me straight in the eyes when he finally said, “You’re missing your uterus.”
 
-It took Grady and I a moment to comprehend what he said. 
+It took Grady and I a moment to comprehend what he said.
 
 Then, Grady blurted out, “Missing? What the hell you mean by missing?”
 
-I squeezed Grady’s fingers…something I did to keep him settled when he got worked up. 
+I squeezed Grady’s fingers…something I did to keep him settled when he got worked up.
 
 Dr. Serrano explained to us that he believed I had MRKH…a disorder where a female is born without a uterus.
 
@@ -70,17 +70,21 @@ I blocked my thoughts as he asked me why I took such a long bath the night befor
 
 I knew if he kept asking me what was wrong, I’d end up unblocking him…telling him…then worrying him. To get out of the situation, I told him I’d head to the feed store in town to get some medicine for Pepper, the sick piglet. He looked at me with a sadness that we’re both familiar with. It’s the look when one of us would keep an episode to ourselves for the fear of worrying the other.
 
-I got into our truck and headed to the feed store. It was 105 degrees outside and humid as hell, so I cranked the air up. I also popped in my favorite Pat Green CD to ease my mind. Yes, I still use CD’s.
+I got into our truck and headed to the feed store. It was 105 degrees outside and humid as hell, so I cranked the air up and my favorite Pat Green CD to ease my mind. Yes, I still use CD’s.
 
-About five minutes into my trip the truck slowed to a stop right in the middle of the country road. The air and Pat Green turned off and the radio turned on to static. It happened so fast, that my mind had trouble keeping up with the events. I picked up my mobile phone to call Grady. That’s when I heard a strange sound coming from the phone. I didn’t dial a number nor did a call come in, so I knew whoever or whatever it was, it was not someone or something I wanted to speak to.
+About five minutes into my trip the truck slowed to a stop right in the middle of the country road. The air and Pat Green turned off and the radio turned on to static. It happened so fast, that my mind had trouble keeping up with the events. 
 
-I set the phone face down on the passenger seat and calmly tried to open the door…but it was locked. I pulled the handle and pushed the door in a panic but it was no use.  Just as I was about to crawl into the back seat to see if I could get out another way, it took hold of me again. I was pushed back into my seat by a force so strong that it pulled my hair back from it’s roots. As I was forced deeper into the seat, my entire body froze.
+When I picked up my mobile phone to call Grady, I heard a strange sound coming from the receiver. I didn’t dial a number nor did a call come in, so I knew whoever or whatever it was, it was not someone or something I wanted to speak to.
+
+I set the phone face down on the passenger seat and calmly tried to open the door…but it was locked. That's when I started to panic. I pulled the handle and pushed the door as hard as I could but it was no use.  
+
+Just as I was about to crawl into the back seat to see if I could get out another way, it took hold of me again. I was pushed back into my seat by a force so strong that it pulled my hair back from it’s roots. My face was pushed back so far that my upper lip split in two. Blood poured into my  mouth as I was forced deeper into the seat. After several horrifying moments, my entire body froze.
 
 The chill started in my belly and quickly spread to my face and feet at the same time. The only thing I was able to move was my eyes. I wish I had closed them.
 
-What I saw next made the claws in the bathtub the night before look like kitten paws. The heat in the truck rose so quickly and became so intense that it quivered. Frozen stiff into the seat I watched in horror as the quivering heat formed  an outline of a creature. A creature I can’t compare to anything else that I’ve ever seen. It’s horns, or what I think were horns, were long and curved slightly inward. It’s face was short, wide at the top and narrow at the bottom…it’s arms were long with rapture-looking claws at the ends of them…the same claws I saw in the bathtub.
+What I saw next made the claws in the bathtub the night before look like kitten paws. The heat in the truck rose so quickly and became so intense that it quivered. Frozen stiff into the seat I watched in horror as the quivering heat formed  an outline of a creature. A creature I can’t compare to anything else that I’ve ever seen. It’s horns, or what I think were horns, were long and curved slightly inward. It’s face was short, wide at the top and narrow at the bottom…it’s arms were long with rapture-like claws at the ends of them…the same claws I saw in the bathtub.
 
-One of the claws reached over from the passenger seat and touched my face. Then...whatever it was, smelled me. I felt it take a heavy inhale right at my neck as tears streamed down my face.
+One of the claws reached over from the passenger seat and grazed my face. Then...whatever it was, smelled me. I felt it take a heavy inhale right at my neck as tears streamed down my face.
 
 At that moment, all I could think about was Grady and the last moment we spent together. It wasn’t watching the sunset while drinking his homemade cherry limeades. Our last moment together was of me keeping something from him and hurting him. His sad eyes would have been the last thing on my mind if I would have died right then and there. I couldn’t let that happen. I forced myself to speak, in the hopes I could reach the creature and make it stop.
 
@@ -92,7 +96,7 @@ The sound said, “You. Are. Mine.”
 
 Every cell in my body expelled razors of terror. The static slowly changed into a horrific high screech. It was the sound of millions of souls calling out to me from somewhere as dark and cold as the freeze in my body.
 
-Then, the radio turned completely off. The stillness was louder than any sound on Earth. I shared a moment with the loud stillness before the air and Pat Green turned on.
+Then, the radio turned completely off. The stillness was louder than any sound on Earth. I shared a moment with the loud stillness before the air and Pat Green turned back on.
 
 Slowly, I felt the freeze travel out of my nose, ears and eyes and I was able to move again. I couldn’t believe it. I knew whatever it was, was gone. I opened the truck door with trembling hands and ran. I’ve never ran so fast in my life.
 
