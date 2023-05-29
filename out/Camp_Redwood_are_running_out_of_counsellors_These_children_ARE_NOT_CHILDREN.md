@@ -172,7 +172,7 @@ The girl looked confused before shaking her head. “Okay, whatever. Tell the ot
 
 I nodded. “Did anyone find a phone?”
 
-“Not with signal.”
+“Not with signal!”
 
 “Carmel.” I had to fight back the urge to yell at her to keep her voice down. Kids were curious, and I wouldn’t be surprised if we had some littles peeking into our conversation. “You’re okay.” I said softly. 
 
@@ -180,7 +180,7 @@ I nodded. “Did anyone find a phone?”
 
 At this point, I didn’t give a fuck—but part of me didn’t want to scare the little kids.
 
-“No, Josie.” The girl grasped hold of my shoulders with a grin rivalling the joker. “I am so sick of being told to keep smiling, because what is that doing? Three of my cabin-mates are missing! I’m the one left, and Rowan and co expect me to keep up this act? We are fucked!" 
+“No, Josie.” The girl grasped hold of my shoulders with a grin rivalling the joker. “I am so sick of being told to keep smiling, because what is that doing? Three of my cabin-mates are missing! I’m the only one left, and Rowan and co expect me to keep up this act? We are fucked!" 
 
 She cupped her mouth. “F. U. C. K. E. D. We have zero adults, an unexplainable loss of power every few hours which makes no sense in the middle of nowhere—I mean what the fuck is out there which is sucking that much power, huh? There is no explanation! There should be an explanation. I should be able to think, “oh, yeah! That’s why! But no. Things are happening, and I don’t know why they’re happening. Rowan is trying to force us to act like things are okay —but in reality? He is shitting himself, Josie! We are ALL shitting ourselves!”
 
@@ -298,7 +298,7 @@ I wasn't sure how to explain to a dwindling group of exhausted teenagers that th
 
 Thinking back to what exactly I had seen, I had no idea how to describe it. “It’s better if I just… showed you.”
 
-Rowan looked sceptical, but nodded. “Alright. Josie comes with me. We’ll check out Allison’s cabin again to look for an emergency line, and you can show me whatever this ‘thing’ is you’ve found. Then we’ll escort Cassie and the other girl’s to the lunch cabin. Every camper needs an escort from now on.  The rest of you? Act normal. If the kids see you freaking out, they will also freak out—and we need to keep up morale.” The boy pointed to Olive. “Olive, you sit in with the kids and look after them. Callan, check out the emergency generator. Harry, the kids see you as a playground ride, so use that to your advantage. Offer them horse rides if they’re scared. And with the ghost stories, it’s making it worse. Give them piggybacks.”
+Rowan looked sceptical, but nodded. “Alright. Josie comes with me. We’ll check out Allison’s cabin again to look for an emergency line, and you can show me whatever this ‘thing’ is you’ve found. Then we’ll escort Cassie and the other girl’s to the lunch cabin. Every camper needs an escort from now on.  The rest of you? Act normal. If the kids see you freaking out, they will also freak out—and we need to keep up morale.” The boy pointed to Olive. “Olive, you sit in with the kids and look after them. Callan, check out the emergency generator. Harry, the kids see you as a playground ride, so use that to your advantage. Offer them horse rides if they’re scared. And stop with the ghost stories, it’s making it worse. Give them piggybacks.”
 
 Harry rolled his eyes. “Do I have a choice?”
 
@@ -318,7 +318,9 @@ I laughed that time. “That’s… comforting.”
 
 “Yeah?” He turned to shoot me a grin. “Well, rest assured I am just about as scared—if not more scared than you,” as we stopped in front of Cassie’s cabin, his gaze found mine. “Is it me…” he said softly, “Or does the lunch cabin seem quiet.”
 
-He was right. The windows were dark when they should have been illuminated by the TV screen. Instead of answering, I stepped in front of him, grasping hold of the cabin door. “Cassie?” I knocked three times. “Girl’s, are you okay in there? It’s Josie and Rowan.” I tried the door, and it slid open. Shooting a look at the boy behind me, I turned back to the door. “We’re coming in, okay?”
+He was right. The windows were dark when they should have been illuminated by the TV screen. Instead of answering, I stepped in front of him, grasping hold of the cabin door. “Cassie?” I knocked three times. “Girl’s, are you okay in there? It’s Josie and Rowan.” I tried the door, and it slid open. Shooting a look at the boy behind me, I turned back to the door. 
+
+“We’re coming in, okay?”
 
 “Wait!”
 
@@ -354,7 +356,9 @@ Little kids, who had surgically removed every organ inside Teddy’s body.
 
 Little kids, who were hunting the other counsellors down, and would surely be coming for us.
 
-Allison’s cabin was thankfully further into the woods. When we were safe inside and Rowan was locking the door, I dry heaved several times, unable to get the sight of glistening gore splattering the cabin floor from my mind. “Josie.” Rowan was already tearing apart the cabin. “Work with me here, okay? We don’t… we don’t have fucking time to freak out, or to barf—we need to help. Now.” Rowan was almost in tears, and when he hit the ground on his knees, I took over. I searched Allison’s desk first. Nothing of importance, just documents and invoices. Digging through her draw, there was still nothing. We were running out of time. 
+Allison’s cabin was thankfully further into the woods. When we were safe inside and Rowan was locking the door, I dry heaved several times, unable to get the sight of glistening gore splattering the cabin floor from my mind. “Josie.” Rowan was already tearing apart the cabin. “Work with me here, okay? We don’t… we don’t have fucking time to freak out, or to barf—we need to get help. Now.” Rowan was freaking out, and when he hit the ground on his knees, I took over. I searched Allison’s desk first. 
+
+Nothing of importance, just documents and invoices. Digging through her draw, there was still nothing. We were running out of time. 
 
 Abandoning the desk, I went through her suitcase and bags. When I was crawling under her bed to try and find a weapon, Rowan hissed out. “Wait.” When I turned to him, he was still kneeling, but his foot was clamping down on a loose plank. The guy didn’t hesitate, pulling at the loose plank, which, to my confusion, revealed what looked to me like a trap door.
 
