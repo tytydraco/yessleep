@@ -72,7 +72,7 @@ A calm and serene voice responded, "I'll be waiting."
 And as she spoke those words, I failed to see what was right in front of me. I crashed into a barrier, the impact sending me into darkness.  
   
   
-The cop who had been chasing me was the first to respond, his report stating that I was moaning under heavy breath, muttering, "It was Aileen."The accident was devastating, and I had to undergo multiple surgeries to reconstruct my face and body. Surprisingly, the surgeons did a commendable job, and I emerged from the procedures looking better than before, as if I were reborn.
+The cop who had been chasing me was the first to respond, his report stating that I was moaning under heavy breath, muttering, "It was Aileen", to which the cop responded "Yes, they're waiting for you". The accident was devastating, and I had to undergo multiple surgeries to reconstruct my face and body. Surprisingly, the surgeons did a commendable job, and I emerged from the procedures looking better than before, as if I were reborn.
 
   
-So, if you ever think about using AI to create your ideal partner, just don't. Trust me, you might end up encountering someone like me, a nightmare you never wanted to meet.
+So, if you ever think about using AI to create your ideal partner, just don't. Trust me, you might end up encountering me, a nightmare you never wanted to meet.
