@@ -18,11 +18,11 @@ I reside in an area on the southeast coast of North America that's known for con
 
 That was all about 2 months ago.
 
-The document that was attached to the email was a letter from my former coworker. Any details such as the name of the CEO or the company they worked for have been removed. This was the message I saw when I read the document.
+The document that was attached to the email was a letter from my former coworker. Any details such as my name, the CEO's employee name, or the company they worked for have been removed. This was the message I saw when I read the document.
 
 \-Message Starts-
 
-\[My Name\], you’re one of the people I sent this to. You need to read everything that is in this document very carefully, word for word and then post this to a site that it is or will be pulled up on your device. I’ve installed a virus on your computer that will only be nullified once this document has been posted onto a specific internet page designated as “Safe to post” by the virus’ code. I’ve done this to ensure that the truth gets out there not to harm you. I’m sorry it had to be this way.
+If you’re one of the people, I sent this to. You need to read everything that is in this document very carefully, word for word and then post this to a site that it is or will be pulled up on your device. I’ve installed a virus on your computer that will only be nullified once this document has been posted onto a specific internet page designated as “Safe to post” by the virus’ code. I’ve only done this to ensure that the truth gets out there, not to harm you. I’m sorry it had to be this way.
 
 However, I shall give you some context first.
 
