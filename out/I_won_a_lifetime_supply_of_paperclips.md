@@ -68,7 +68,7 @@ A couple of weeks went by, and the police hadn't contacted me with any new infor
 
 As the pile grew taller, I decided to bite the bullet and open them, but not before carefully inspecting each one.
 
-My hands shaking, I held the first up to the light, and it was just full of paperclips. Perhaps the incident really was a one-off, and the fault had been fixed. I help a few more up, and my heart almost skipped a beat when I found one with a solid shadow. No outline of paperclips - This envelope had a letter.
+My hands shaking, I held the first up to the light, and it was just full of paperclips. Perhaps the incident really was a one-off, and the fault had been fixed. I held a few more up, and my heart almost skipped a beat when I found one with a solid shadow. No outline of paperclips - This envelope had a letter.
 
 I carefully opened it up, and read.
 
