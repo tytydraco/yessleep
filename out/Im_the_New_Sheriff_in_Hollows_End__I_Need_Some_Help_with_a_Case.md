@@ -266,6 +266,8 @@ Love it or hate it, I'm a part of this place now.
 
 And it's a part of [me..](https://www.reddit.com/r/JGcreepypastas/comments/13t7ywp/theres_a_new_sheriff_in_hollows_end_cake_day/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
+[Part 2](https://www.reddit.com/r/nosleep/comments/13w3m69/im_the_new_sheriff_in_hollows_end_people_in_town/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
 [YT](https://youtu.be/rumiJJyA2FM)
 
 [TCC](https://www.reddit.com/r/TheCrypticCompendium?utm_medium=android_app&utm_source=share)
