@@ -96,9 +96,9 @@ Still unwilling to grapple with the terror of Stephanie’s death, I found mysel
 
 “– L? What?” Brandon sighed. “The correct letter, after O, is S. This is going to be a long one, James…”
 
-I could only observe from my knelt position on the floor as Brandon spelled out the eighteen letters I’d done correctly, plus the nineteenth that he revealed. Eighteen body parts. You can’t imagine my horror as I watched Brandon inflict the same terror upon Amy that he inflicted upon Stephanie. And when he had ten fingers on his whiteboard, what did he use next?
+I could only observe from my knelt position on the floor as Brandon spelled out the eighteen letters I’d done correctly, plus the nineteenth that he revealed. Nineteen body parts. You can’t imagine my horror as I watched Brandon inflict the same terror upon Amy that he inflicted upon Stephanie. And when he had ten fingers on his whiteboard, what did he use next?
 
-Not toes, as one might have hoped, to give Amy a fighting chance at surviving. No. He clipped her arms. I screeched at the top of my lungs, eyes swimming with terrified tears as Amy’s head swiftly lulled forwards, blood gushing from the open wounds on her torso. And yet Brandon continued to hack up her dismembered body parts, contorting them into each letter of the word and sellotaping them to the whiteboard.
+Not toes, as one might have hoped, to give Amy a fighting chance at surviving. No. He clipped her arms. I screeched at the top of my lungs, eyes swimming with terrified tears as Amy’s head swiftly lolled forwards, blood gushing from the open wounds on her torso. And yet Brandon continued to hack up her dismembered body parts, contorting them into each letter of the word and sellotaping them to the whiteboard.
 
 “P… N… E… U… M… O… N… O… U… L… T… R… A… M… I… C… R… O… S... Well, I would say to continue, James, but… it appears you’ve failed. I don’t think poor Amy is moving, is she? That’s how you lose, James,” Brandon faux-sniffled, walking over to her limp corpse and puppeteering her lips. “You’re oh-so-smart, James. Why couldn’t you spell the word properly?”
 
