@@ -191,3 +191,5 @@ I held her gaze, my mind racing. "I don't know. Maybe the giant's different."
 [16: diner](https://www.reddit.com/r/nosleep/comments/13t8gny/stuck_on_earth_and_looking_for_a_job_i_may_have/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [17: government work](https://www.reddit.com/r/nosleep/comments/13u20f7/stuck_on_earth_and_looking_for_a_job_so_this_is/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[19: I sat in a shopping cart for most of this](https://www.reddit.com/r/nosleep/comments/13w22mm/stuck_on_earth_and_looking_for_a_job_i_sat_in_a/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
