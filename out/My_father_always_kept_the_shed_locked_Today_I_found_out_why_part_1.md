@@ -237,3 +237,7 @@ Without hesitation, I shot her in the shoulder. She fell back a half-step, turni
 
 
 I turned to look at him, and the truth passed between us in a glimpse. To get out, we would have to go farther in, where there were likely even worse things waiting for us.
+
+
+
+Part 2: https://www.reddit.com/r/nosleep/comments/13vycj7/my_father_always_kept_the_shed_locked_today_i/
