@@ -21,3 +21,7 @@ Do you think it could be something beyond the ordinary, supernatural, or am I go
 Update: I hadn't been able to put the picture of the painting here, but I believe that with this external link everything is right. And no, I wasn't the one who took that picture, I refuse to take that thing out of the box, so I tried to look up some information on the internet. I found this in a forgotten art blog in the wayback machine and apparently is the only online reference of this:
 
 [https://ibb.co/MCMrpVh](https://ibb.co/MCMrpVh)
+
+&#x200B;
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/13vtbtc/kants_painting_definitely_ruined_my_sanity/)
