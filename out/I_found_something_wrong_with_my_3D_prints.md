@@ -42,3 +42,5 @@ Unfortunately, when I tried to share my experiences on 3DPrinting, my posts were
 So here I am, reaching out to you, those familiar. I need your help to understand what's happening. Have any of you experienced similar occurrences after printing certain objects? Is there a logical explanation I’m missing? I just want things to go back to normal.
 
 EDIT: [Here's](https://i.imgur.com/WxmxUgt.png) a picture of the Benchy showing the symbol.
+
+[Part 2] (https://www.reddit.com/r/nosleep/comments/13wq90s/i_may_be_in_a_3d_printed_nightmare_layer_by_layer/)
