@@ -40,7 +40,7 @@ He shrugged. "Cool."
 
 "What's your name," I repeated.
 
-He rolls his eyes and looks at me as if I had asked him a stupid question.
+He rolls his eyes and looks at me as if I had asked him a stupid question, "Well I'm not Max."
 
 I don't budge.
 
@@ -244,7 +244,7 @@ I can hear Bobbie crying, "Why are you lying! I don't want to play anymore," he 
 
 I don't know what made me do it. It sure wasn't the nauseating squealing tantrum of the boy which made me reach for him first. Maybe it was because I wanted him to shut up. I don't know but I plunged my arm up to my shoulder in to grab Bobbie's collar.
 
-Instantly I screamed and saw tiny spiders, short thin legs with round white backs crawl over my arms. I shook my arm in the hole, trying to smother them against the walls. That only caused these long brown flat slugs to fall. I saw one land on my hand. It had three distinct tendon-like lines running across its back and was about a half inch long. I pulled my arm out of the hole as I felt it pierce its flat head into the back of my hand. I dropped my phone and heard it crack as the light splintered in the small, suffocating tunnel. But I didn't care as I looked at my hand and saw it burrowing its tiny spearhead below my skin. I grabbed at the wiggling tail still exposed and tried pulling it out.
+Instantly I screamed and saw tiny spiders, short thin legs with round white backs crawl over my arms. I shook my arm in the hole, trying to smother them against the walls. That only caused these long brown flat slugs to fall. I saw one land on my hand. It had three distinct tendon-like lines running across its back and was about a half inch long. I pulled my arm out of the hole as I felt it pierce its flat head into the back of my thumb. I dropped my phone and heard it crack as the light splintered in the small, suffocating tunnel. But I didn't care as I looked at my hand and saw it burrowing its tiny spearhead below my skin. I grabbed at the wiggling tail still exposed and tried pulling it out.
 
 It was like trying to pull our barbed wire. The spines on its body were facing me. So with each pull they dug deeper inside. I could see blood pooling under my skin, it was starting to turn purple as I tugged on its tail even harder. Until it gave. Popped right off and lay twitching in my hand. The head missing.
 

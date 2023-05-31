@@ -107,3 +107,13 @@ So yeah. I don’t know what to do. And I’m freaking out.
 ISO: advice for how to handle this? How to just somehow avoid her and/or not panic about my entire life being ruined?
 
 Thanks in advance.
+
+&#x200B;
+
+EDIT: thanks for all the advice. Things have taken kind of a weird turn... I posted an update here:
+
+[https://www.reddit.com/r/nosleep/comments/13wbc91/comment/jmamm78/?context=3](https://www.reddit.com/r/nosleep/comments/13wbc91/comment/jmamm78/?context=3)
+
+&#x200B;
+
+&#x200B;
