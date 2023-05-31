@@ -227,3 +227,5 @@ I declined and sat back in the cart. Per my request, Fran brought me home after 
 [17: government work](https://www.reddit.com/r/nosleep/comments/13u20f7/stuck_on_earth_and_looking_for_a_job_so_this_is/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [18: something in the caves](https://www.reddit.com/r/nosleep/comments/13ux5n8/stuck_on_earth_and_looking_for_a_job_theres/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[20: olms and Jewels](https://www.reddit.com/r/nosleep/comments/13x0lkh/stuck_on_earth_and_looking_for_a_job_olms_and/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
