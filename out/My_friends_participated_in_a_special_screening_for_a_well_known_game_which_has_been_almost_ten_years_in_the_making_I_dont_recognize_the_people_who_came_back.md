@@ -262,13 +262,13 @@ I fucking knew it.
 
 I knew it was too good to be true.
 
-“Yes and no. Listen to me, the people I work for are hunting them down. Trust me, I don’t want my bosses to find them because a life of experimentation will await them. Torture. Do you hear me? It does not matter if subjects fail. They don’t care. As long as there is at least a light at the end of the tunnel for them, they will see it as a win, and bring the publication date closer. They will not be treated as humans. Your friends signed a contract before trying out the tech, where the small print stated that, under section 3, player engagement, all subjects must agree to offer themselves as participants in later updates." I silently cursed Jay for always skipping the terms and conditions when buying games." The man stopped to breathe. “I have told you multiple times, and I won’t say it again. Get as far away from that house as possible. I will take care of them. I will make sure of it."
+“Yes and no. Listen to me, the people I work for are hunting them down. Trust me, I don’t want my bosses to find them because a life of experimentation will await them. Torture. Do you hear me? It does not matter if subjects fail. They don’t care. As long as there is at least a light at the end of the tunnel for them, they will see it as a win, and bring the publication date closer. They will not be treated as humans. Your friends signed a contract before trying out the tech, where the small print stated that, under section 3, player engagement, all subjects must agree to offer themselves as participants in later updates. I silently cursed Jay for always skipping the terms and conditions when buying games." The man stopped to breathe. 
 
-The sound of squealing engines, and I stopped power walking, coming to an abrupt stop. The silence of the night around me, compared to the sound of the highway he was on, traffic horns and the wind rushing through the window was an eerie contrast, a disturbance to the heavenly bubble we were trapped in. 
+“I have told you multiple times, and I won’t say it again. Get as far away from that house as possible. I will take care of them. I will make sure of it." The sound of squealing engines, and I stopped power walking, coming to an abrupt stop. The silence of the night around me, compared to the sound of the highway he was on, traffic horns and the wind rushing through the window was an eerie contrast, a disturbance to the heavenly bubble we were trapped in. 
 
 “What do you mean ‘take care of them?” I had to swallow a yell. “Hey! What are you talking about?
 
-“I’m sorry.” Was all he replied with. “I’m afraid it is too late. There was once an opportunity to save the mind during the initial house of the demonstration. However, once the PlaystationGo has been fully attached to the base of the subject, we no longer have control of it.  Once integrating itself into the cerebral cortex, the PlayStationGo can only be removed by signing out of the player’s account,” his breath was heavy. “On this unfortunate occasion, however, your friends are unable to navigate the system due to a malfunction which scrambled their brains,” He trailed off. “Which has left them stranded in the game."
+“I’m sorry.” Was all he replied with. “I’m afraid it is too late. There was once an opportunity to save the mind during the initial level of the demonstration. However, once the PlaystationGo has been fully attached to the base of the subject, we no longer have control of it.  Once integrating itself into the cerebral cortex, the PlayStationGo can only be removed by signing out of the player’s account,” his breath was heavy. “On this unfortunate occasion, however, your friends are unable to navigate the system due to a malfunction which scrambled their brains,” He trailed off. “Which has left them stranded in the game."
 
 I let out a breath. “Right.” I said. “That’s.. bad. I mean, it’s a fucked-up piece of technology, but they’re just playing a game, right?”
 
@@ -302,11 +302,9 @@ Jay had left the house in casual jeans and a sweater, bearing the game's logo.
 
 Now, I found myself face to face with a man with my housemate's face and features, his smile and eyes-- but something had been severed in his eyes and twisted in his expression. For one, Jay was wearing a suit I knew he couldn't afford, the sleeves torn, collar pulled open, smears of red staining the front. 
 
-His pants had cufflinks, and the Rolex on his wrist had definitely been pulled off someone's corpse. The silver was stained a revealing scarlet. Drinking in his face, he looked like Jay. His curls hung in front of his eyes, freckles speckling his cheeks, but everything else wasn't. 
+His pants had cufflinks, and the Rolex on his wrist had definitely been pulled off someone's corpse. 
 
-It wasn't until I was glimpsing what was moulded into the flesh of his hand, did I remember how to move. But then I was taking all of him in, everything my mind had intentionally skipped, because I didn't want to believe the stranger on the phone. 
-
-Nanotechnology, the man had said in a hiss. 
+The silver was stained a revealing scarlet. Drinking in his face, he looked like Jay. His curls hung in front of his eyes, freckles speckling his cheeks, but everything else wasn't. It wasn't until I was glimpsing what was moulded into the flesh of his hand, did I remember how to move. But then I was taking all of him in, everything my mind had intentionally skipped, because I didn't want to believe the stranger on the phone. Nanotechnology, the man had said in a hiss. 
 
 Fiction, I had thought. 
 
@@ -332,9 +330,7 @@ Twisting around to meet her eyes, lifeless and empty, only filled with light fro
 
  It was an attempt at coercing and programming something you already don’t understand, to do something impossible. 
 
-I could see that in the way the things had visibly chewed and eaten through her flesh, eating her from the inside and out. 
-
-I could see what was left of the dress she had worn earlier, but something must have gone wrong with her too. Because Misty had thrown on another outfit over the top, a diamond necklace hanging from her neck. 
+I could see that in the way the things had visibly chewed and eaten through her flesh, devouring  her from the inside and out. I could see what was left of the dress she had worn earlier, but something must have gone wrong with her too. Because Misty had thrown on another outfit over the top, a diamond necklace hanging from her neck. 
 
 I caught a thin river of red pooling down her right temple, trying to ignore the twitchy way she moved, just like a character. From the way Misty walked, stumbling, I already knew she was gone. My housemate had newly acquired strength, throwing me in the trunk of the car where three other hostages were, and slamming it shut on my attempts to reason with her. She didn’t tie me up or restrain me. 
 
