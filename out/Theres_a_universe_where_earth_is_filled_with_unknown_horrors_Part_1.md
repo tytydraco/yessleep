@@ -227,3 +227,5 @@ Billy's face turned red as his anger burns inside his body. "OH SHUT UP YOU BOUL
 I've put them in a place of horrific nightmares that we can't survive. It's all my fault. To give them hopes and faith in such a false concept. I was wrong about everything. I never get the chance to say goodbye to my parents or even my best friend. Here, I sat just crying. I think they hate me for this. I know it. How would you feel if you've been carried into a mess you've believed so much in by that one person that tells you it's like heaven? You'd probably hate him too for that.
 
 I'm going to stop here now. I'm tired. I've been writing this note book for who knows what. The elevator keeps going up and up and up. I don't know how long am I going to live in here. If you find this notebook. please. Tell the others of my story. If I still live, I don't know. Let's see how it goes. Something is knocking on the elevator door.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/13u08eb/theres_a_universe_where_earth_is_filled_with/?utm_source=share&utm_medium=web2x&context=3)
