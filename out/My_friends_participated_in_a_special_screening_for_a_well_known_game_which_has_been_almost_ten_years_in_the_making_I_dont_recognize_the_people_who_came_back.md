@@ -70,13 +70,13 @@ Jay didn’t answer. I could tell he was excited by the way he could barely keep
 
 His voice was more of a Misty-like squeak, and I half wondered for a moment if they had switched bodies, or he had at least become one with my other housemate through a chemical explosion. In our kitchen, which was yet to be cleaned after a cooking disaster several nights ago, I wouldn’t be surprised if something was living on the countertop. I nodded, slumping into a chair. “What’s going on? Why is Misty freaking out?” I nodded at his laptop. “She said you’ve won something?”
 
-As if my housemate couldn’t hold it in anymore, he nodded, turning his screen towards me. “You know >!GTA 6!<, right?”
+As if my housemate couldn’t hold it in anymore, he nodded, turning his screen towards me. “You know____, right?”
 
 “Yes.” I sipped my coffee, eyeing a toaster strudel sitting on the countertop. "You mean the game which has been coming out for a decade."
 
 He ignored that. “Well, what if I told you one of the developer’s posted on the official sub this morning?”
 
-“For >!GTA6!<?”
+“For _____?"
 
 He nodded with a grin, and I wondered it this was one of those rare times when Jay was blindly looking through a red flag to see what he wanted. I had heard of these types of scams, and Reddit was a breeding ground for them. 
 
@@ -252,9 +252,7 @@ I was barefoot, in nothing but a robe, staggering down the driveway. The night w
 
 “Do not, I repeat DO NOT remove the PlayStationGo—shit!! He hissed out, static rattling the call. The guy seemingly got ahold of himself, and the wheel, and continued. I started to walk—where I was going, I had no idea. 
 
-The stranger lit a cigarette. I heard the click of a lighter and his exhalation of breath. “It was a BETA version, but we had to rush it. This was not my idea. My boss is a greedy man. He wanted to release the game last year, which would have meant widespread infection.
-
-Luckily, that did not happen. We did manage to delay it, but only by a year.” His words barely made sense to me as I struggled to get a word in, peering in the dark. “It was supposed to be a virtual experience of the game—a whole new angle of gameplay. But testing was difficult. First, on monkey’s, we lost multiple subjects. Tonight was supposed to be a…well, I guess you could call it out first attempt on human subjects,” his laugh was bitter. “I knew the tech wasn’t finished. And I tried. Believe me, I fucking tried. I tried to blow the whistle, but these bastards know where my parents live."
+The stranger lit a cigarette. I heard the click of a lighter and his exhalation of breath. “It was a BETA version, but we had to rush it. This was not my idea. My boss is a greedy man. He wanted to release the game last year, which would have meant widespread infection. Luckily, that did not happen. We did manage to delay it, but only by a year.” His words barely made sense to me as I struggled to get a word in, peering in the dark. “It was supposed to be a virtual experience of the game—a whole new angle of gameplay. But testing was difficult. First, on monkey’s, we lost multiple subjects. Tonight was supposed to be a…well, I guess you could call it out first attempt on human subjects,” his laugh was bitter. “I knew the tech wasn’t finished. And I tried. Believe me, I fucking tried. I tried to blow the whistle, but these bastards know where my parents live."
 
 Something squirmed its way down my spine.
 
@@ -264,9 +262,7 @@ I fucking knew it.
 
 I knew it was too good to be true.
 
-“Yes and no. Listen to me, the people I work for are hunting them down. Trust me, I don’t want my bosses to find them because a life of experimentation will await them. Torture. Do you hear me? It does not matter if subjects fail. They don’t care. As long as there is at least a light at the end of the tunnel for them, they will see it as a win, and bring the publication date closer. They will not be treated as humans. 
-
-Your friends signed a contract before trying out the tech, where the small print stated that, under section 3, player engagement, all subjects must agree to offer themselves as participants in later updates.” I silently cursed Jay for always skipping the terms and conditions when buying games." The man stopped to breathe. “I have told you multiple times, and I won’t say it again. Get as far away from that house as possible. I will take care of them. I will make sure of it."
+“Yes and no. Listen to me, the people I work for are hunting them down. Trust me, I don’t want my bosses to find them because a life of experimentation will await them. Torture. Do you hear me? It does not matter if subjects fail. They don’t care. As long as there is at least a light at the end of the tunnel for them, they will see it as a win, and bring the publication date closer. They will not be treated as humans. Your friends signed a contract before trying out the tech, where the small print stated that, under section 3, player engagement, all subjects must agree to offer themselves as participants in later updates." I silently cursed Jay for always skipping the terms and conditions when buying games." The man stopped to breathe. “I have told you multiple times, and I won’t say it again. Get as far away from that house as possible. I will take care of them. I will make sure of it."
 
 The sound of squealing engines, and I stopped power walking, coming to an abrupt stop. The silence of the night around me, compared to the sound of the highway he was on, traffic horns and the wind rushing through the window was an eerie contrast, a disturbance to the heavenly bubble we were trapped in. 
 
@@ -278,9 +274,7 @@ I let out a breath. “Right.” I said. “That’s.. bad. I mean, it’s a fuc
 
 There was a pause, before the man laughed.
 
-“Young man, I don’t think you understand,” he said. “The PlayStationGo was created to give the player a full virtual experience of our game. The PlayStationGo is not a physical object.
-
-Created with nanotechnology, it attaches itself to the subject’s brain and is supposed to create a personal gaming experience for each player. As I said, however, it is not finished. It is yet to be released to the public, and of course, we are expecting certain ethical arguments due to the controversial—”
+“Young man, I don’t think you understand,” he said. “The PlayStationGo was created to give the player a full virtual experience of our game. The PlayStationGo is not a physical object. Created with nanotechnology, it attaches itself to the subject’s brain and is supposed to create a personal gaming experience for each player. As I said, however, it is not finished. It is yet to be released to the public, and of course, we are expecting certain ethical arguments due to the controversial—”
 
 I pulled the phone away from my ear, shaking my head.  I didn’t need to hear his attempts at trying to save his own skin.
 
@@ -364,7 +358,7 @@ The early morning rush hour flew by as normal, and I wondered how ignorant Ameri
 
 It’s not like I was nowhere near civilization. There was a fucking Subway right next to me.
 
-When I had gathered myself, I remembered I had no phone. I couldn’t go home in fear of running into my rogue housemates playing their own fucked up version of >!GTA!< in their head. My plan was to try and find my phone, get in contact with the stranger who blew the whistle on my friends being dangerous, and find them. They couldn’t be far., right? And even if they weren’t themselves… someone would be able to save them.  
+When I had gathered myself, I remembered I had no phone. I couldn’t go home in fear of running into my rogue housemates playing their own fucked up version of _____ in their head. My plan was to try and find my phone, get in contact with the stranger who blew the whistle on my friends being dangerous, and find them. They couldn’t be far., right? And even if they weren’t themselves… someone would be able to save them.  
 
 If someone could do this to them, surely they could reverse it. 
 

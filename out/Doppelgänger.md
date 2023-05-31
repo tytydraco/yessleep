@@ -1,72 +1,146 @@
-Narrated by: [A Voice in the Abyss](https://youtu.be/SEXtMkdaAb4)
+Lately, some peculiar occurrences have taken place. Take, for instance, last night when my girlfriend Heather left the bathroom and insisted she saw me in the kitchen. Strangely, I have no recollection of getting up during the night, so I attributed it to sleepwalking. Surprisingly, she shared details of a full-fledged conversation we had, followed by me returning to my room after devouring a peanut butter and jelly sandwich. While it does sound like something I might do, I simply cannot recall that particular incident.
 
-  
-They say that the day you meet your doppelgänger is the day you die.
+Little did I know, this was only the beginning of a series of such incidents.
 
-It has to do with a taboo that stems from the uncanny feeling of losing your idiosyncrasy and uniqueness. Supposedly, the day you lose your status as an exclusive individual, is the day you lose yourself. 
+Curious about that night last week, I asked Heather, "Do you remember what we were talking about?"
 
-The sayings are true. These urban legends and spooky bed time stories have been passed down for generations by word of mouth for a reason. But I am here today to enlighten those who have brushed it aside as some kind of mere psychological discomfort. 
+With a smile, Heather nudged me playfully on the shoulder and replied, "Sweetheart, you were all over the place. You mentioned how you wished you had a new job and that you were starving. Why do you ask?"
 
-The truth is, the fun stories of “I met my doppelgänger today” and friendly photos of two people posing who look alike are just a mere coincidence of physical similarity. No, if one is found by their doppelgänger, there won’t be any cheerful stories or photos. Just a vestige of what was once a person.
+As I gazed into the distance, a heavy sensation enveloped my mind, akin to a weighted blanket draped over my thoughts. "Hmm, I just can't remember conversing with you. I never woke up."
 
-You will not come across your doppelgänger when you are in a safe environment. It will not approach you until you are the only one left in a room, an alleyway, a building, or any kind of space. By the time you see a presence that eerily looks indistinguishable to you, it is too late. 
+"It's possible that you were sleepwalking. It happens to many people, dear. You know, you look quite handsome even when you sleepwalk," Heather smirked, gently clasping my hand. "That's one of the many reasons I love you." I planted a soft kiss on her forehead, "I'm going for a run. I'll be back in a little while!" I needed to meditate and frankly running was my best therapy session.
 
-How do I know this? I found it, before it found me. Just out of pure coincidence.
+Although I attributed these incidents to sleepwalking, they still troubled me. However, there was no point in allowing stress to consume me.
 
-But this is a story for another time.
+A couple of weeks later, another unsettling incident unfolded, this time at my workplace—Dunesbarry, a printing company that produces everything from small pictures to large-scale posters. It happened on a Tuesday when I woke up feeling unwell, prompting me to make a decision to call in sick.
 
-Right now, I am writing this for the readers to educate themselves and avoid their doppelgängers like the plague. The plague might be better in some cases. 
+My boss, James, was known for being a rather easy going manager, and I dialed his number to inform him about my condition. "Hey James, I'm not feeling great. I woke up with stomach issues and won't be able to come in today." After a brief pause, James burst into laughter and retorted, "Hold on, Caesar. What are you talking about? I just saw you here a few minutes ago."
 
-From the day a person is born. A doppelgänger is formed. Nobody knows where or how but it seems to be the case that everyone has a pair. 
+My heart sank into my stomach, and perspiration formed on my forehead. "What do you mean? I'm at home, James."
 
-From day 1 life becomes a game. A game of hide and seek. The catch being, that the one who is IT is aware of this game while the prey is ignorant of the cruel reality. Some being lucky until the day they die, some visited and replaced. By replaced, I mean that the existence of one who is caught will still continue in the experience of those acquainted. It would be as if nothing had happened, only that the doppelgänger had won the game, the prize being solitude. Your existence replaced. The whole ordeal is a harrowing experience only available in the first-person perspective.
+"Buddy, I don't know if you're trying to pull a prank on me, but I assure you, you're here. Although it's quite unexpected for you to be early, you waved at me and headed into the bathroom. Are you still in there?"
 
-When one is found by their doppelgänger, they are eaten. The only positive being that the death is painless and quick. For it eats the head first. It is not known why they do this, but some assume that it is an action based on clandestinity. For it is aware that a loud noise may bring attention to the feeding scene. Some assume that it is for efficiency. Consumption of the head will quicken the digestion of the prey’s memories and emotional structure. 
+Feeling a sense of disbelief, I momentarily put my phone down after promising James I would call him back."What in the world..." My pulse raced, throbbing in various parts of my body as the unsettling realization sank in. This had to be something more than I initially thought.
 
-But just because death is rapid do not underestimate the experience of the chase. Hide and seek for the hiders is usually a game that encompasses 3 main emotions throughout the game. The feeling of security and relief of finding and hiding in a space that seems cozy yet concealed. Unaware of the surroundings and the location of the IT. Only to be visited by the emotion of dread as the sound of the IT that is on the search seems to get closer with each breath. 
+The remainder of the day I was immobilized, trapped in a state of mental paralysis. I laid on the couch, anxiously awaiting Heather's return.
 
-There is a moment of complete silence as the hider and IT both become aware of each other’s proximity. A mini game of who can be the quietest takes place; a game where the loser is predestined. 
+My mind reverberated with the same haunting thoughts, from the first time I experienced a memory lapse at home to now, encountering a similar phenomenon at my workplace. What on earth was happening to me?
 
-It hears you breathe.
+Driven by a growing urgency, I hurried over to my laptop and launched into an immediate search for any instances resembling my own. "Not remembering conversations at night" I typed into Google. The initial search results yielded blog websites discussing sleepwalking, which aligned with my initial assumption. Nevertheless, I pressed on. Next, I came across some Reddit posts recounting incidents of sleep-talking without any recollection.
 
-Its mouth widens, ripping the skin of the cheeks.
+As I scrolled through the various links and websites, one particular post caught my attention. Doppel-gänger? I had heard that term before.  
 
-Its eyes dilate and triple in size of a regular human. Staring at the very place that you are hiding. It waits, as if to give you a head start in the inevitable run of panic. In and out does the breath go, ba-dump ba-dump does the heart pound. A melody too good to resist for your counterpart.
 
-If you have visual as the doppelgänger approaches, running is the best option. Therefore, hiding in a place that allows you to have an idea of your surroundings is the best-case scenario.
+Doppelgänger: "an apparition or double of a living person" was the definition I encountered, but comprehending its implications proved challenging. As a skeptical individual, I typically dismissed notions of the paranormal and supernatural. Why, out of all people, would something like this happen to me?
 
-I’m sorry, up to date there is no strategy book for facing your doppelgänger. When it’s time for your personal chase, you’re on your own. So far, no one has made it past chase. Your best luck is… to win the hide and seek.
+I closed my laptop, taking a deep breath to steady my racing thoughts.
 
-Now that you’ve realized that you are a part of a game, make a conscious effort to stay in hiding. Maybe you’re glad I told you. Maybe you’re barely keeping your anger in for you would prefer blissful ignorance. Ask yourself, is it truly better to find yourself oblivious in a nightmare not knowing how it ends…
+Finally, Heather returned home after her shift, and I dashed towards the door to greet her.
 
-Or would you want the agency of safety in your hands?
+"Hi, love! I'm so glad you're home. I have something absolutely mind-boggling to tell you!" I tightly embraced her, holding her for longer than usual."Hello, my sweetheart. What happened?" Heather set down her purse, and we both settled onto the couch.
 
-It is constantly looking for you.
+"You won't believe this, and honestly, I'm struggling to wrap my head around it. Remember how I mentioned calling out of work today? Well, when I called James, he accused me of playing a prank on him. He even mentioned that I was already at work."
 
-It is awake while you are asleep.
+Heather nervously chuckled and turned to process my words. "Wait, what?"
 
-It starves day to day just to have a taste of you with a fresh pallet. 
+"He said I had already arrived at work and was in the bathroom. But I never went. I've been here at home the entire day." As I looked at Heather, I could see a hint of discomfort on her face.
 
-Even in this very moment you are a desirable prize waiting to be taken over.
+"I don't understand. Maybe he was just messing with you since you called out," Heather suggested, rising to grab some water from the kitchen. Bursting into laughter, a wave of relief washed over me. "Wow, I never actually considered that. I'm sorry, I'm still preoccupied with that incident in the kitchen that night. It's been twisting my thoughts."
 
-Do not be complacent. 
+"You're okay, honey. How are you feeling?" Heather asked, her concern shining through. 
 
-As IT is constantly looking for you, you also should constantly be on the lookout.
+"Much better now that you're home, I must say."
 
-Trust your gut, for you will know when it is close by.
+Heather was my rock, always asking the right questions and loving me in ways I had never experienced before. I couldn't fathom my life without her. Feeling slightly more at ease, I decided not to inquire further with James, choosing to let the matter rest.
 
-A sudden silence not expected.
+It was 3:23 am when I was awakened by the sound of slow footsteps creaking past our slightly open bedroom door. We kept it ajar to listen for any unusual nighttime noises.
 
-A moment of realization followed by a helpless trepidation.
+Rubbing my eyes and stretching my legs, I sat up in bed, my gaze fixated on the doorway. The room was enveloped in darkness, and it took a moment for my eyes to adjust. The footsteps abruptly ceased as I continued to stare at the sliver of the doorway crack.
 
-No one to be seen but footsteps to be heard.
+Resolute in my determination not to jump to the worst conclusions, I dismissed the idea of an intruder breaking into our home. Surely, I would have heard some sign of forced entry. Grasping the nearest object within reach, our vintage lamp, I mustered the courage to approach the door, striving to remain as silent as possible. With a trembling hand, fueled by fear of the unknown, I reached out for the doorknob.
 
-Temperature unchanged but shivers running down your spine.
+Taking a moment to steady my pounding heart, prepared to confront anybody, even if it were against God Himself, I cautiously opened the door. There was nothing outside. I checked in both directions, even stepping into the hallway with a stance ready for battle. Utter silence enveloped the space. Releasing a sigh of relief, I turned around, intending to return to the bedroom.
 
-The silence brings out a ringing in your ears 
+Then, a solitary footstep echoed in my ears.
 
-In and out does the breath go, ba-dump ba-dump does the heart pound.
+I halted, gripping the lamp so tightly that its exterior threatened to shatter.
 
-Until the very moment you hear,
+Turning slowly toward the source of the sound, my eyes caught up to the movement, leaving me no choice but to confront whatever lurked within my house.A figure emerged from behind the kitchen island, hands tightly gripping the countertop, barely visible in the dim light. Their eyes locked onto mine, wide open as if they were about to pop out of their sockets.
 
-“I found you”
+I noticed a striking resemblance between us – the same haircut and a mole on the top left of our heads. Yet, I couldn't spare a moment to ponder our shared appearance. There was an intruder in my house.
+
+Carefully edging backward, I needed to make my way back to the bedroom to alert Heather and call the police.
+
+"Heather! There's someone in the house! Call the police right now!" I shouted, keeping my gaze fixed on the intruder, even though I wished I didn't have to. The intruder remained motionless, almost frozen in place. As I shouted for Heather to call the police, I could hear teeth chattering as if it were beside my ear. Slowly, he moved from the kitchen island, his hands preceding his head, his unwavering stare fixed upon me.
+
+With my heart pounding out of my chest, fueled by adrenaline, I took advantage of the rush surging through my veins and sprinted toward the kitchen to investigate. I hadn't seen him move from the island to anywhere else, so the realization that he had vanished sent shivers down my spine.
+
+"What the fuck," I uttered, completely shaken to my core.
+
+Moments later, the police arrived, responding to the report of an intruder. Heather peered out from the bedroom to assess the situation.
+
+"Honey, are you okay?" Heather whispered loudly. I found myself sitting on the floor, stunned and deflated. I couldn't wrap my mind around what had just occurred. It made no sense. As logical as I considered myself to be, this defied all reason.
+
+Heather tenderly held the top of my head, offering comfort as we awaited the arrival of the police.I needed to compose myself before opening the door for them."Hi, um, I don't know how to explain this," I said to the officer, my voice tinged with confusion, still trembling from the encounter. "Hello, I am Officer Santana. There was a call reporting an intruder. Are you okay, sir?"
+
+I let Officer Santana and her partner inside and guided them to a seat. "This is going to sound strange, I understand that, but there was an intruder right over there," I pointed toward the kitchen island. "He was behind it, and then he wasn't. He simply vanished." Santana looked up at me, her eyebrows raised as she tried to comprehend the situation.
+
+"What are you saying? He disappeared? Did you see him run anywhere?" Santana's partner asked, jotting down notes in their Paperkraft notepad. "Well, I saw him duck behind the island, and then he was gone. I know it sounds crazy, and I realize that."
+
+"Okay, we're going to thoroughly check the house and ensure it's safe. In the meantime, please wait outside until we're done," Santana instructed, as both officers unclamped their pistols from their holsters. I felt a semblance of safety in their presence.
+
+It was a chilly autumn day, with the scent of smoke wafting through the air, likely from my neighbors' fireplace. Jill and her husband, Dane, were wonderful neighbors who kept to themselves. Occasionally, they would surprise us with extra food, acting like the pseudo-parents of the neighborhood. Sometimes, I would take it upon myself to fix minor things around their house, like the black fence in the backyard. It always seemed to have a mysterious hole, despite their lack of pets or nearby animals.
+
+Jill and Dane noticed the police presence and joined us outside, arms crossed in concern. "What's going on, guys?" Dane inquired. "There was someone in our house, but they disappeared. Maybe it was some kind of prank or squatter. I don't know," I replied, offering an explanation simply to have one, even though I struggled to believe it myself.
+
+"Did you enjoy the apple pie I made the other day, Caesar? You devoured some of it when you came by to fix the fence," Jill chimed in, her culinary skills well-known. However, I hadn't tasted her cooking in months. "When did I fix the fence?" I asked, my tone dropping with confusion.
+
+Jill's smile widened, as if assuming I understood what she was referring to. "What do you mean? You came by two days ago. You mentioned noticing the hole again and wanted to fix it for us."
+
+"Oh, right! Sorry, my mind has been foggy lately. I loved the pie, it was delicious. You're such an amazing cook!" I responded, though I had no recollection of any fence-fixing visit. I gave her a reassuring answer to alleviate any concerns she might have.
+
+Urgently, I pulled Heather aside, gripping her arm. "Heather, I never went to their house or fixed their fence. I have no idea what's happening, and I promise I'm not going crazy.""I believe you, but I'm starting to feel a little scared. These incidents where you've supposedly been to places and don't remember are unnerving," Heather confessed, her face etched with genuine worry.
+
+The officers emerged from the house, re-holstering their pistols. "Your house is clear. Whatever was here is no longer present. We'll have patrols keep an eye on your property for the next few days. Other than that, you should be able to go back to bed," one of the officers assured us.
+
+"Thank you, officers. We'll call again if anything happens inside," I expressed our gratitude. Heather and I held each other tightly as we made our way back to the house. "Let's try to get some rest," Heather suggested. However, that night, sleep eluded me as the image of that man's eyes lingered in my mind. Why did he resemble me?
+
+It had been quite some time since I last encountered any strange incidents or intruders in my house. I was beginning to feel optimistic about the whole situation. Life had returned to normal, and my relationship with Heather was flourishing.
+
+"You know, Caesar, I eventually want to have a baby. Can you help me with that?" Heather expressed her desire, and I chuckled nervously, embracing her from behind. "Of course, baby. Let's plan it out and see where life takes us." After bidding Heather farewell as she left for work, I settled on the couch.
+
+The thought of becoming a father lingered in my mind, though it seemed like a daunting and incredible prospect.
+
+Little did I know that two hours later, that day would alter the course of my life forever.
+
+"Caesar," a voice pierced through my skull like a bullet, evoking a fear I had never experienced before. Shock washed over me, causing a lump to form in my throat. I recognized the voice, but the sheer terror prevented me from turning around.
+
+"Caesar," the voice repeated, pushing my body into fight or flight mode. Summoning my courage, I slowly turned around.
+
+It was me. The person standing before me was an identical version of myself. "What the fuck!?" I uttered, bewildered.
+
+He began to approach me with slow, deliberate steps. His unblinking eyes and a smirking mouth hinted at some sinister intent. He halted just a foot's length away from me. "What are you!?" I screamed, attempting to push him away.
+
+As he lunged towards my face, I sidestepped and prepared to strike him with a punch from my right hand. However, he swiftly evaded the blow and made another aggressive move towards me. He covered my mouth and nose, struggling to breathe, I swung my fists blindly in his direction before losing consciousness.
+
+When I regained consciousness, I found myself in a shed approximately a mile away. Disoriented and terrified, I sat up, only to discover that the floor was strewn with animal flesh and blood. The overwhelming stench threatened to obliterate my senses.
+
+I had to find a way back to my house, no matter what. I frantically searched the pockets of my jeans, hoping to find something that could aid me. To my dismay, everything was missing, including the cherished watch that once belonged to my late father.
+
+Summoning my determination, I rose to my feet and forcefully slammed open the decaying wooden door. The task proved effortless, as the door had already begun to rot. As I surveyed my surroundings, I realized I was engulfed by a dense forest, devoid of any visible structures. I vaguely recalled that my house was situated along the northern line, which offered a glimmer of hope.
+
+Although I had never been much of an outdoorsy person while growing up, my father had imparted a few tricks during our camping trips. I recollected his guidance on locating the North Star by first identifying the Big Dipper. I patiently waited for the night sky to emerge, conserving my energy for the impending journey. As the sun barely kissed the horizon, I discerned a cluster of houses, including mine, in the distance.
+
+Mixed emotions welled up within me as I approached my home. Peering through the backyard windows, my heart sank to the floor. There I saw myself, holding Heather in a tight embrace, sharing kisses, laughter, and affection.
+
+Desperate to escape this surreal nightmare, I knocked on the window, hoping to break free from that imposter. Heather's piercing scream echoed through the air as he rushed toward the window, bellowing at me to leave and threatening to involve the police once again. As I began to retreat from the backyard, he smirked, a sinister expression that mirrored my own.
+
+This doppelgänger had assumed my identity in every way, rendering it impossible to distinguish between us. If I dared to approach the house or confront Heather, the consequences would be dire. I had made one attempt before, only to be manipulated into believing that I was a deranged relative harassing them. Heather, unaware of my familial connections due to my reticence about them, fell for his ruse.
+
+Years passed, and I found myself confined to observing them from the safety of the woods. Heather's happiness blossomed as she became pregnant. Meanwhile, I remained trapped in this inexplicable nightmare, grappling with the cruel injustice that had stolen my life away.
+
+As the years dragged on, my existence continued to be overshadowed by the twisted imposter who had stolen my life. I watched from the darkness of the woods as Heather's pregnancy progressed, the anticipation building within her. It was a bitter torment to witness her joy, knowing that I was the rightful father of that child.
+
+&#x200B;
+
+If you are reading this, please believe me. I am desperate to reclaim my life and will do whatever it takes to bring her back to me.
