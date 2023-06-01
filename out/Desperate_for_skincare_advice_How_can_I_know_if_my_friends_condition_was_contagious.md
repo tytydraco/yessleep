@@ -50,17 +50,17 @@ She got a boring boyfriend and an impressive degree. I dropped out and got a cat
 
 A week ago, though, she messaged me.
 
-* **\[17:20\] Gemma: Hii<3** 
+* **\[17:20\] Gemma: Hii<3**
 * **\[17:20\] Gemma: Watcha up to?**
 
 I didn't reply. I don't know why. Seeing her messages made me feel nauseous.
 
 I imagined a fruitworm dangling out of her nostril.
 
-* **\[23:01\] Gemma: Dustin broke up with me btw**   
-**\[23:02\] Gemma: Im in your area, want to grab coffee?**   
-**\[23:30\] Gemma: I miss u**   
-**\[01:13\] Gemma: Come to my hotelllll:) We can raid room service lol**
+* **\[23:01\] Gemma: Dustin broke up with me btw**
+* **\[23:02\] Gemma: Im in your area, want to grab coffee?**
+* **\[23:30\] Gemma: I miss u**
+* **\[01:13\] Gemma: Come to my hotelllll:) We can raid room service lol**
 
 It's shitty, but I'll be honest. The promise of free, hot food was huge for me. I'd been sustaining myself off of PB&J and frozen veggies for a week, so, fuck it, right? I was a beauty school dropout, and there are worse reasons to meet up with my estranged best friend than a decent dinner a quick bus ride from my place.
 
