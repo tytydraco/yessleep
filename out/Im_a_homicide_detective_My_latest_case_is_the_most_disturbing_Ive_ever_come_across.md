@@ -54,7 +54,7 @@ A.E.
 
 Alice Edwards. My sister.
 
-She was presumed missing over 3 years ago, after she left her house to go for an evening jog and never came back, leaving behind a grieving husband and a four year old daughter. The search was given up eventually, there was no leads and no witnesses. How do you begin to find someone who's vanished?
+She was presumed missing over 3 years ago, after she left her house to go for a night-time jog and never came back, leaving behind a grieving husband and a four year old daughter. The search was given up eventually, there was no leads and no witnesses. How do you begin to find someone who's vanished?
 
 With my mind clouding up with questions, I made my way back to the body. I forced myself to look past the blood and the toothpicks, and the sight of mutilated flesh. I looked at the eyes, the only part of the body not completely covered in toothpicks, and collapsed into fits of tears. Because in that moment I knew. The eyes were bloodshot and lifeless, but I had seen all I needed to.
 
