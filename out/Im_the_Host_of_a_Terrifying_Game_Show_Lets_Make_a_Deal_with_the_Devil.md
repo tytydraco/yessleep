@@ -80,7 +80,7 @@ More like: Welcome to your funeral.
 
 (Cut to camera four)
 
-The woman speaks first. Her hair is amber, her completion as pale as light beer.
+The woman speaks first. Her hair is amber, her complexion as pale as light beer.
 
 “Well, Bruce. My name is Tammy. I’m a stay-at-home mom. This here’s my partner, Tex. He owns his own gun shop. We live in Austin Texas, with three beautiful children, who are with us here tonight.”
 
@@ -147,7 +147,7 @@ Tammy steps forward.
 He slaps the woman’s backside with his tail, then raises his eyebrows mockingly.
 The cowboy puffs out his chest, fists clenched, daring him to touch his wife again.
 
-“Woah, easy their pardner.”
+“Woah, easy there pardner.”
 
 Damion nudges Tex. 
 
