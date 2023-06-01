@@ -1,3 +1,4 @@
+(UPDATE)
 My name is Darwin Michigan. You could say that I'm a dedicated scientist in finding the paranormal and all. I know that many people consider the connection between spiritual and science is a big joke but I can tell you it holds many mysteries in the other plane of existence.
 
 The reason why I became a scientist for the paranormal was the time when I was 5 years old. I met a friend who is not like others. I still remember how he can shape shifts into an animal. It was so fun when we were racing, playing knights, reading DC and marvel comic books together. He was my best friend, even when I go to school we'll always be with each other no matter what. Then when I turned 13, he was gone. Never to be seen again.
@@ -74,7 +75,7 @@ This isn't what we had expected. Something isn't right here, as if someone or so
 
 We set our timer to  3 hour to return. Ronald had planned to close the portal in case not to let anything in. With the help of Rishika, they made an exit for us in a timer for 3 hour. The portal closed behind us and we all pulled out our equipment to take pictures and observe the world around us. Taking out a camera and a notebook from Geralt's pockets, he started taking pictures of buildings and the corpses. "This is madness." Cody said in disbelief.
 
-We started walking around to see any signs of life or any information as to what this place is. We've only went to parks, sidewalks, and broken down restaurants for about 52 mins. They look just like earth and I knew something about this place isn't the afterlife. More like a different universe.
+We started walking around to see any signs of life or any information as to what this place is. We've only went to parks, sidewalks, and broken down restaurants for about 52 mins. They look just like earth and I knew something about this place isn't the afterlife. More like a different world.
 
 We've discovered books, devices, broken cars, even those damn sigils in the park. The sigils seems similar to satanism or paganism. This could mean that a war happened here. That doesn't mean that explains a lot. We're still finding more evidence and Cody is taking documentaries.
 

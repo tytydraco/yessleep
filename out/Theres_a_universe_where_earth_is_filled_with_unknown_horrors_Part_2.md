@@ -1,5 +1,6 @@
 [Part 1](https://www.reddit.com/r/nosleep/comments/13s6hmh/theres_a_universe_where_earth_is_filled_with/)
 
+(Update)
 I stood up, awaken from my sleep from the knocking sound on the elevator door. My friends stood up with me as we all heard it. The sound of banging became so much louder. Giggling can be heard with it. What's behind the door is unknown and I'd rather not face it than die to this thing. In the edges of the door, thin fingers began to seep through it. Such horrible looking fingers. I watched the door getting turned into a broken mess. Something grabbed my hand and I saw it was Rishika's. I looked at her and saw fear and sadness on her face. 
 
 Questioning death can be answered by judgement, revenge, luck, curse, or just nothing. The concept of fate over people sounds so simple that people think that it's ok that fate exists. Is it ok if I was in this situation? What if one of your loved ones died right in front of you by a murderer? You won't like it and you'd definitely blame god for that. 
@@ -194,4 +195,4 @@ I missed Eddie. I wished he could come with me and didn't have to die. But, I le
 
 This is my message to you. My readers. 
 
-You better to stay where you are now. Don't go to other universes. Because maybe, you'll end up in the most horrifying places you never want to go.
+You better to stay where you are now. Don't go to other worlds. Because maybe, you'll end up in the most horrifying places you never want to go.
