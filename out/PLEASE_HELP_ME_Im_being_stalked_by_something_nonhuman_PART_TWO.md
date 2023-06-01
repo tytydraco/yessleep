@@ -79,3 +79,9 @@ I don't know how long I stayed there, but I must've said sorry a hundred times. 
 But I do know that I can't get anyone else involved in this nightmare. I need to deal with this myself. I can't risk anyone else getting hurt.
 
 But maybe Pendle knows something?
+
+&#x200B;
+
+Part Three:
+
+https://www.reddit.com/r/nosleep/comments/13xvv1j/please\_help\_me\_im\_being\_stalked\_by\_something/?utm\_source=share&utm\_medium=web2x&context=3

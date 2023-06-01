@@ -1,18 +1,22 @@
-\[Part 1 of 2\]
+part 2 of 2
 
-[Part 2](https://www.reddit.com/r/nosleep/comments/1363vtf/i_found_a_letter_whilst_hitchhiking_along_the_i20/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/134424x/i_found_a_letter_whilst_hitchhiking_along_the_i20/)
 
-It was a cold winters night when I arrived,
+\-The following is a transcript from my smart audio recorder-
 
-I had booked out a room at a motel somewhere off of the I-59 as I was getting tired on my trip to Atlanta to visit some family. I had drove about 300 miles before I had my first proper rest and I thought I had gotten lucky booking the motel as it was so cheap for a last minute check in, I soon discovered how wrong I was.
+**\[Start of audio recording\]**
 
-Upon my arrival the receptionist looked at me like I wasn’t human and handed my key and a note after a brief conversation. I headed towards my room looking at the motel and it looked as if it hadn’t been renovated in years: The walls where decaying, windows smashed and gutters full of leaves. The smell was almost unbearable but what can you expect for such a cheap place?
+*The date is Tuesday 1st of May 2023 and the time is currently 9:24pm, I have set this device to automatically upload these recordings to the internet in case I am unable to.*
 
-After a few minutes’ walk I had found my room and I put the key in only to find it unlocked. I cautiously opened up the mossy door and called out *“Anyone in here?”* No response. I took a step in and screamed like a little girl when I saw someone sleeping in my bed, I stepped back outside and looked at the note in my hands and this is just a brief summary of what it read:
+*My room is cold and I can hear the wind howling against the decrepit walls of the motel, the air smells old. As if no one has set foot in this room in years. I am here because of my love for anything unexplainable and I found the note I previously mentioned. Nothing of interest has happened as of yet.*
 
-**-----------------------------------------------------------------------------------------------------------------------------------------------------**
+*I found it hard to settle in, it feels like someone is watching me but I’m the only one around, the receptionist had told me that it was only me staying. No one has passed through for days. I went for a shower earlier but decided against it. The walls are green with moss and the shower head is filthy, I don’t even want to know what has been in that tub before me…*
 
-***Welcome to Ridgeway Motel please take your time to read this before your stay.***
+**\[End of audio recording\]**
+
+**\[Start of audio recording\]**
+
+*I’m starting to believe that the note I found was just a practical joke.* **\*sigh\*** *The time is currently 10:27pm and it’s been nothing but silence as of yet, I’m going to re-read the Pamphlet aloud to see if that triggers anything off.*
 
 *Thank you for choosing the Ridgeway Motel, this pamphlet contains all you need to know about us!*
 
@@ -46,22 +50,74 @@ After a few minutes’ walk I had found my room and I put the key in only to fin
 
 *Ridgeway Motel*
 
-***-----------------------------------------------------------------------------------------------------------------------------------------------------***
+*After reading them out nothing happened. Great…*
 
-After reading the pamphlet I brushed it off as a joke but I did contact them about the person in my room and they told me it was safe to go back in now. *“You haven’t even been here yet?!”* I exclaimed, but they ignored me and told me once again *“Its safe to enter your room now sir.”*
+**\[End of audio recording\]**
 
-I opened my door and to my surprise there was nobody there. I walked in and looked around just to be safe then set my suitcase on the floor and went for a well-deserved, all be it grimy, shower.
+**\[Start of audio recording\]**
 
-Once I had finished with my shower I put on some pyjamas and got myself ready for bed, I checked my phone 21:43. I locked my door and windows and walked over to my bed, the floorboards creaking with every step, and placed the rules on my bedside table along with my phone and slowly drifted off to sleep.
+**\*Heavy breathing\***
 
-I got about a good 30 minutes of sleep before I was woken up by the sound of faint giggling coming from all around me and I grabbed my phone for some light. It turned on… 22:39. I remembered the rules and read them quickly, *Rule 6)* *If you hear children laughing past 22:00 ensure your doors and windows are locked, even if you have just done so, they like to play tricks on the guests.*
+*I think there’s something here… I’m not sure if the silence is driving me crazy but I swear I heard something small run up and down the stairs outside my room, giggling. I had my window open to try and air the room out but I can’t get rid of that dam smell.*
 
-I felt my heart skip a beat, *“What if the rules are true”* I said to myself, voice shaking. I had always been one for the supernatural but I wasn’t a strong believer in it. I thought I’d humour myself and check my door. Unlocked. *“Maybe it’s just a faulty lock?”* I said to myself after re-locking it, not wanting to believe the rules where real and not just some joke. I walked to the windows and checked each lock. They where the same, unlocked. “*I swore I had locked them before”* I thought. I re-locked them and got back into bed, finding myself unable to sleep.
+*Almost forgot, the time is currently 10:54pm. I’m starting to believe that something more is going on here.*
 
-I sat there for maybe an hour and thirty minutes just scrolling social media when the tapping begun. Remembering the rule that stuck out most I got under my sheets, turned my phone off and sat there in silence until the tapping slowly subsided. When I thought it had stopped, I took a peak from under the covers trying to not be caught when I saw a unnaturally large figure walking away from my window, its arms bent in ways that shouldn’t be possible when all of a sudden it stopped and arched backwards and stared at me with an ear to ear grin and then left.
+**\[End of audio recording\]**
 
-I sat there in silence for what felt like years and drifted off to sleep. I somehow managed to sleep through the rest of the night and was woken up by the cold breeze entering my room. My doors and windows where wide open.
+**\[Start of audio recording\]**
 
-I’m writing this not to scare you, but to warn you. Something followed me from that motel and it’s after me. I don’t know how long I have left but stay away from **The Ridgew** \-the writing trails off here, I found this letter laying on the side of a road leading off the I-20, I’m going to see if this is real, I’m typing this from room 23 at The Ridgeway motel. I’ll give you an update tomorrow.
+**\*silence\***
 
-Goodnight.
+*My doors been unlocked... I swore I had locked it?* **\*Clank\*** *Ok it should be locked now. The time is 11:26pm. Other than the footsteps nothing else more has hap-. Huh? Old lights, I guess.*
+
+**\[End of audio recording\]**
+
+**\[Start of audio recording\]**
+
+*What the fuck was that? The time is 11:32pm. Something has just crashed outside, well I think it was a crash, it was loud enough to be one. I’ve looked outside but saw nothing. Anyway. Tonight, has been odd to say the least. I don’t know what this place is but something is seriously wrong. I tried to call reception about the noise but my phone isn’t working, that’s great isn’t it. So, a rundown of what’s happened so far:*
+
+*There has been a constant feeling that there’s someone or something watching me that I can’t seem to shake no matter what I do and it’s starting to bug me,*
+
+*Someone can’t control their children or something because I keep hearing them laughing and running about. If that isn’t irritating, I don’t know what is,*
+
+*The rooms falling apart and the lights barely work,*
+
+*Then finally there was that crash, I tried to see if anything happened but it was like whatever had happened was gone by the time I went to check.*
+
+*That’s all for now*
+
+**\[End of audio recording\]**
+
+**\[Start of audio recording\]**
+
+*The time is 12:14am.*
+
+*Still nothing has happened. I’m tired, fed up and ready to go to sleep. This motel fucking reeks and I just can’t be bothered anymore. I apologise for the language but its necessary to get my point across. This place is so depressing, anything I do is a-* **\*tap… tap… tap…\***
+
+**\[End of audio recording\]**
+
+**\[Start of audio recording\]**
+
+**\*whispering\***
+
+*Ok I think it’s gone, the one rule that stuck in my head:*
+
+***“If you hear tapping on the windows between 00:00 and 00:32 please go under your sheets and stay silent as to not alert it to your presence, when the tapping stops you’re safe.”***
+
+*Whatever it was it’s gone now, I haven’t heard anything for a few minutes. Its 12:32am. That thing just didn’t want to leave.*
+
+*I’m going to bed. Turning everything off and putting this into my pocket, goodnight.*
+
+**\[End of audio recording\]**
+
+**\[Start of audio recording\]**
+
+**\*Rustling and panting\***
+
+**\*Silence for 4min 32sec\***
+
+*Somthings in that room, or was, it saw me leave. I- I don’t know where it is now or where I am. I ran into the tree line to try and get away but I think it followed me* ***\*Leafs crunch\****
+
+***\[End of audio recording\]***
+
+***\[End of recordings\]***

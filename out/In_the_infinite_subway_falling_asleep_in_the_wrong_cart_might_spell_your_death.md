@@ -118,7 +118,7 @@ Once everyone had their fill of rat meat, John pulled me aside for a while.
 
 "Here, kid," he said, giving me another ring, "told you my wife would be ok with it. Hell, when she heard my idea, I had to stop her from making too much noise. Wouldn't want to spoil the surprise now, would we?"
 
-I thanked him profusely for the rings, putting both of them safely in my inner pocket. Once we returned, everyone was setting up for the "night." I was selected as the Conductor watch, and so, I gave Marie one last good night kiss and set up shop for the next several hours. 
+I thanked him profusely for the rings, putting both of them safely in my inner pocket. Once we returned, everyone was setting up for the "night." I was selected as the Conductor watch, and so, I gave Marie one last good night kiss and set up shop for the next several hours.
 
 The first odd thing that I began to notice is how fast everyone fell asleep. Normally, the twins would still be playing around for a little bit, but now, they almost instantly fell asleep. After that, I noticed the plastic chairs were unusually comfortable. I felt like they were molded just for me to sit in. And the wall, the wall felt like the softest pillow I ever laid my head on. With my eyelids feeling heavy, I was struggling to stay awake. Eventually, I closed my eyes for just a second, no more than a blink of the eye. In that blink, I saw a pair of pale white dots looking at me from outside the window...
 
@@ -128,7 +128,7 @@ I raised my head, confused, making direct eye contact with Mister Thompson, befo
 
 "I'm sorry," I said halfheartedly, not being sure of what was going on. "Won't happen again..."
 
-He just pressed his lips and went back to teaching. 
+He just pressed his lips and went back to teaching.
 
 "Hey, are you okay?" asked Marie, who was sitting, next to me. She pinched me a little bit to get my attention, but weirdly, I didn't feel it.
 
@@ -142,32 +142,36 @@ Decades passed. I graduated, I found a high paying job and I even managed to sta
 
 I felt a sudden jerk, followed by strong shiver all throughout my body. I opened my eyes, and all I could see was the same, monotonous, subway cart. I was in total disbelief. Surely, I fell asleep while watching the kids and had a nightmare. I hit myself really hard, hoping to make myself up. Sure enough, it didn't work. I felt a very strong pain where I hit myself, a pain I haven't felt in a long time.
 
-Suddenly, I realized something. Me getting out of here, building my perfect life, it was all fake. Imaginary. I broke down in tears, thinking that I would never actually get out of here. 
+Suddenly, I realized something. Me getting out of here, building my perfect life, it was all fake. Imaginary. I broke down in tears, thinking that I would never actually get out of here.
 
-Once I couldn't shed any more tears, I looked around. Everyone else was fast asleep, although they looked a lot thinner than usual. Marie especially, all her muscle mass looking like it was drained from her. Even I, when I looked at my hands, saw they were skeletal looking. Panic began to set in, but then I finally noticed something else. In the cart with us, there was something else. something that I can only characterize as black, transparent mist, floating to my left. 
+Once I couldn't shed any more tears, I looked around. Everyone else was fast asleep, although they looked a lot thinner than usual. Marie especially, all her muscle mass looking like it was drained from her. Even I, when I looked at my hands, saw they were skeletal looking. Panic began to set in, but then I finally noticed something else. In the cart with us, there was something else. something that I can only characterize as black, transparent mist, floating to my left.
 
 I kept staring at it, not knowing what it was, when the mist moved towards one of the windows. Following with my eyes, I looked outside, thinking I'd see the same the pitch black void that was always there.
 
 And it was there. The scary part it was that it wasn't the only thing outside. For a moment, it looked as if we were traveling through the night's sky, millions upon millions of pale white dots outside. Once I moved however, I realized that those millions of stars followed my movement. They weren't stars. They were eyes.
 
-I screamed as loud as possible, trying to hide away from the gazes from the dark, but everyone else still slept. I went and shook everyone, I yelled, I hit the windows, hoping that they would wake up. Nothing. All slept, all mumbling about something or other, like Helen saying she won a cooking competition or Matt finally signing that billion dollar deal. 
+I screamed as loud as possible, trying to hide away from the gazes from the dark, but everyone else still slept. I went and shook everyone, I yelled, I hit the windows, hoping that they would wake up. Nothing. All slept, all mumbling about something or other, like Helen saying she won a cooking competition or Matt finally signing that billion dollar deal.
 
-The mist began moving again. Slowly, it stopped near Ramirez's Journal. That's when it hit me: Ramirez might've known something. I rushed to the chair I left it, trying as hard as possible to stay awake. Reaching it, I began flipping over the pages, not noticing at the time that the mist was slowly evaporating. 
+The mist began moving again. Slowly, it stopped near Ramirez's Journal. That's when it hit me: Ramirez might've known something. I rushed to the chair I left it, trying as hard as possible to stay awake. Reaching it, I began flipping over the pages, not noticing at the time that the mist was slowly evaporating.
 
 Pages and pages after, creatures upon creatures, I finally found what I was looking for. Both pages were dark, with the exception of hundreds of small dots sprinkled throughout the drawing, and written in bold letters on the top center of the pages: Sleep Watchers.
 
-The next page gave more details: "One of the more insidious creatures I encountered throughout my journey were the sleep watchers. No one knows what they look like, beyond the dots staring at you from outside of the  subway. However, everyone who has heard of them or, God forbid, encountered them, will say the same things. 
+The next page gave more details: "One of the more insidious creatures I encountered throughout my journey were the sleep watchers. No one knows what they look like, beyond the dots staring at you from outside of the  subway. However, everyone who has heard of them or, God forbid, encountered them, will say the same things.
 
-Firstly, everything in the cart stalked by them feels incredibly comfortable to the touch, as if they entered one big bed. Afterwards, once you stayed for more than thirty minutes in the cart, you begin to feel exhausted, as if you ran several marathons. The sudden exhaustion, coupled with the softness surrounding you, will prompt you to fall asleep immediately, and that is when you're caught in their trap. 
+Firstly, everything in the cart stalked by them feels incredibly comfortable to the touch, as if they entered one big bed. Afterwards, once you stayed for more than thirty minutes in the cart, you begin to feel exhausted, as if you ran several marathons. The sudden exhaustion, coupled with the softness surrounding you, will prompt you to fall asleep immediately, and that is when you're caught in their trap.
 
-They begin to feed you with pleasant dreams, dreams related to your biggest hopes and desires, keeping you further asleep. In the meantime, they feed off of your life, slowly draining you. The dreams, told from the people that woke up, could feel like decades, even if the process of draining only takes several days. Once you finally die in your dream, your life was entirely drained by the sleep watchers. Some say that the sleep watchers were previous victims, but I have yet to confirm this theory, which I will elaborate more on the rumors section. 
+They begin to feed you with pleasant dreams, dreams related to your biggest hopes and desires, keeping you further asleep. In the meantime, they feed off of your life, slowly draining you. The dreams, told from the people that woke up, could feel like decades, even if the process of draining only takes several days. Once you finally die in your dream, your life was entirely drained by the sleep watchers. Some say that the sleep watchers were previous victims, but I have yet to confirm this theory, which I will elaborate more on the rumors section.
 
 It is impossible under normal circumstances to wake up once the dream begins. Thankfully however, after years of study, I have managed to create a concoction that should neutralize the effect of the sleep watchers. It isn't the tastiest, but once awake, the sleep watchers stop feeding, with your energy returning to you in a matter of days, with some slight variations regarding the victim, such as age, gender and muscle composition. The recipe for the concoction is noted on the next page. As for how best to avoid them, the easiest strategy is to just pay attention to your surroundings. If you suddenly feel tired and that everything around you is soft, you know you're stalked. They are numerous, but luckily, they are also very impatient. If you're being stalked and they can't get you to fall asleep within an one hour, they will leave. If you or anyone around you falls asleep however, they will remain there until all the sleeping people have been drained, attempting to succumb the rest as well. If you follow my recipe and wake everyone up, they will be annoyed and leave you immediately."
 
-I flipped over the page and saw that the recipe was as follows: 
+I flipped over the page and saw that the recipe was as follows:
 
 "1 bottle of water, 1/3rd of an once of orange mold, grown near the windows, 2/3rds of an ounce of blue rust from the cold pipe and 1/3rd of red rust from the hot pipe. Mix all the ingredients in the bottle and boil it for 1 hour. Two gulps for each person asleep is enough to wake them up."
 
-With that, struggling to remain awake, I took Helen's knife and I looked all around for the ingredients mentioned. Thankfully, they were all within three carts of walking. Both types of rust were behind their respective pipes while there was just enough orange mold to take back. Once back, I took the kettle we found on the way, mixed everything and began waiting, all the while the sleep watchers were looking at me. 
+With that, struggling to remain awake, I took Helen's knife and I looked all around for the ingredients mentioned. Thankfully, they were all within three carts of walking. Both types of rust were behind their respective pipes while there was just enough orange mold to take back. Once back, I took the kettle we found on the way, mixed everything and began waiting, all the while the sleep watchers were looking at me.
 
 Since I began writing, the final thirty minutes have passed and now the concoction is ready. It smells awful, but hopefully it will work. Once we're out of this mess, I will dedicate myself to reading and studying every bit of the journal. Wish me luck.
+
+\-------------------------------------------------------
+
+[Part 8](https://www.reddit.com/r/nosleep/comments/13xvigd/while_stuck_in_the_infinite_subway_the_biggest/)

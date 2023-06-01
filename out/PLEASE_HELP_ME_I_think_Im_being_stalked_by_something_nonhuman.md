@@ -96,4 +96,8 @@ I'm scared. What should I do?
 
 Part Two:
 
-https://www.reddit.com/r/nosleep/comments/13w2hum/please\_help\_me\_im\_being\_stalked\_by\_something/?utm\_source=share&utm\_medium=web2x&context=3
+[https://www.reddit.com/r/nosleep/comments/13w2hum/please\_help\_me\_im\_being\_stalked\_by\_something/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/13w2hum/please_help_me_im_being_stalked_by_something/?utm_source=share&utm_medium=web2x&context=3)
+
+Part Three:
+
+https://www.reddit.com/r/nosleep/comments/13xvv1j/please\_help\_me\_im\_being\_stalked\_by\_something/?utm\_source=share&utm\_medium=web2x&context=3
