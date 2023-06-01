@@ -28,7 +28,7 @@ June 6th 1897
 She had mostly scribbled that last sentence out but I could just about make out what it said.  
 
 
-I won’t post the full transcript of a few pages as they are rather detailed and disturbing, however I will give a brief run down on what was said. She says how she began to receive gifts, that were unexpected, but this was no of a major concern at the start. The issue arose when one of the gifts, a doll began to smell, and upon inspection she revealed in the doll was a heart. A human heart. And that is not all, the eyes were human eyes. The teeth, human teeth. And they all had come from someone in her past who did her wrong. She knew who it was as on one of the front teeth, were her initials, carved into it, something the deceased man did when they were lovers. Wrapped around the heart was a letter in which it said this.  
+I won’t post the full transcript of a few pages as they are rather detailed and disturbing, however I will give a brief run down on what was said. She says how she began to receive gifts, that were unexpected, but this was not of a major concern at the start. The issue arose when one of the gifts, a doll, began to smell, and upon inspection she revealed in the doll was a heart. A human heart. And that is not all, the eyes were human eyes. The teeth, human teeth. And they all had come from someone in her past who did her wrong. She knew who it was as on one of the front teeth, were her initials, carved into it, something the deceased man did when they were lovers. Wrapped around the heart was a letter in which it said this.  
 
 
 *‘He took your smile away from you, so I took his, he broke your heart so I broke his, he couldn’t see how beautiful you were, so he does not deserve to see’*   
