@@ -1,0 +1,15 @@
+It all began innocently enough. We met through mutual friends, I had heard roumers here and there about her being abusive and manipulative to her previous boyfriends but she seemed like a vibrant, charismatic woman so I decided not to believe them. I was drawn to her energy and enthusiasm, and against my better judgment, I decided to give our budding relationship a chance. Little did I know that beneath her charming exterior lay a darkness that would consume my life.
+
+At first, things seemed normal. We went on dates, shared laughs, and cherished the initial stages of romance. But as time went on, I started noticing peculiar behavior. She would become possessive, jealous over the smallest things. Text messages went unanswered, and when I confronted her about it, she would dismiss my concerns with an unsettling smile. The warning signs were there, but I chose to ignore them, hoping it was just a phase.
+
+As our relationship deepened, so did her unpredictable behavior. She would show up unannounced at my workplace, lurking in the shadows as I carried out my daily routine. Phone calls in the dead of night became routine, filled with incoherent ramblings and sinister laughter. I tried to reason with her, to explain that her actions were unhealthy and invasive, but she would simply dismiss my pleas, claiming she couldn't help herself.
+
+Things took a terrifying turn one fateful evening. I arrived home to find my apartment in disarray, personal belongings strewn across the floor. I could hear her laughter echoing through the empty rooms, a haunting sound that sent chills down my spine. Panic set in as I realized I had become a prisoner in my own home. She had become obsessed, fixated on keeping me within her grasp.
+
+No matter where I went, she was there. She knew my every move, my every thought. The boundaries between reality and nightmare blurred as I struggled to escape her clutches. Friends and family became distant, unable to comprehend the torment I was enduring. My pleas for help fell on deaf ears, and the feeling of isolation intensified.
+
+In a desperate attempt to break free, I confronted her one final time. But as I stood face-to-face with her, the madness in her eyes sent a chill down my spine. Her voice changed, deepening into an otherworldly growl. The room filled with an oppressive darkness, suffocating and cold. I summoned every ounce of courage within me and ended the relationship, severing the ties that bound us.
+
+In the aftermath, I sought therapy to heal the wounds that had been inflicted upon me. The scars, both physical and emotional, remain as a constant reminder of the nightmare I endured. I've learned the importance of recognizing toxic relationships and prioritizing my own well-being.
+
+So, if you ever find yourself entangled in a web of darkness, remember to trust your instincts and prioritize your own safety. Love should never be a prison, and breaking free from the clutches of a disturbed mind is a battle you must fight for your own sanity and peace of mind.
