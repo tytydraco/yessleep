@@ -10,7 +10,7 @@ But brave as I try to be, it’s harder to ignore the wardrobe during the night.
 
 Even when I shut my eyes tight as corks in glass bottles and smother my face inside my blanket, I can still hear the violent thumping of the wardrobe as it shakes and shudders. Sometimes, it sounds as though someone is trying to tip over the wardrobe from inside. The old wood creaks and trembles so violently that I think the whole neighborhood must hear it. Other times – like when I’m finally drifting off to sleep – the sound becomes muted. The thump-thump-thumping like a resigned heartbeat.
 
-The first night I stayed here, I did try and open the wardrobe. I woke up in the middle of the night, panting and confused from an already-hazy nightmare, and in my state of dream delirium, I’d tugged helplessly at the door, thinking a stray kitten or other small, vulnerable animal had ended up trapped inside. But the door had been locked, and I had woken mother with my hysterics. When she realized the cause of my wailing, she had not been pleased. My backside had stung for a week.
+The first night I stayed here, I did try and open the wardrobe. I woke up in the middle of the night, panting and confused from an already-hazy nightmare, and in my state of dream delirium, I’d tugged helplessly at the door, thinking a stray kitten or other small, vulnerable animal had ended up trapped inside. But the door had been locked, and I had woken mother with my hysterics. When she realized the cause of my wailing, she had not been pleased. My backside stung for a week.
 
 The next morning, mother sat me down and told me that there was nothing important inside the wardrobe, much less a suffering cat in need of rescue. The wardrobe had been locked for many months now, and if there was anything inside, she reassured me, it was not alive.
 
@@ -34,7 +34,7 @@ I could hear the truth in her voice, and it was enough for me. Still, she grippe
 
 “Yes ma’am.”
 
-“Because you know the first rule to being a good child, yes?”
+“Because you know the first rule of being a good child, yes?”
 
 “Obey,” I recited dutifully, used to this particular question.
 
@@ -44,13 +44,13 @@ I could hear the truth in her voice, and it was enough for me. Still, she grippe
 
 “Good.” Mother withdrew her nails, and kissed me tenderly on the same spot she had just wounded. “Now go brush your teeth.”
 
-I listened immediately, as I did with most of mother’s orders. Partially because mother’s punishments could be swift and capricious, but also because I enjoyed living with her. It was clear that, despite her mood swings, mother wanted me around. She packed my lunchbox with all of my favorites, tucked me into bed each night, and genuinely seemed to love being a mother. Plus, she had stocked my room with enough toys that Santa’s workshop would have been put to shame. Board games, video games, plush stuffed animals. Many of the toys seemed used, but I didn’t mind second-hand items; at the orphanage, I was lucky to inherit things third-hand or fourth.
+I listened immediately, as I did with most of mother’s orders. Partially because mother’s punishments could be swift and capricious, but also because I enjoyed living with her. It was clear that, despite her mood swings, mother wanted me around. She packed my lunchbox with all of my favorites, tucked me into bed each night, and genuinely seemed to love being a mother. Plus, she had stocked my room with enough toys that Santa’s workshop would have seemed dingy in comparison. Board games, video games, plush stuffed animals. Many of the toys seemed used, but I didn’t mind second-hand items; at the orphanage, I was lucky to inherit things third-hand or fourth.
 
 In all honesty, if it weren’t for the wardrobe, I could have been content with mother for many years. But although I had started putting cotton in my ears before bed, the wardrobe grew more insistent over the weeks. One night, I dreamed it grew oak-splintered hands and reached out to me, wrapping its wooden fingers around my ankle and dragging me, screaming, into its belly. When I gasped awake, I turned my sights to the wardrobe. Although it could have been my imagination, I swore it had moved an inch closer during my slumber.
 
 Since then, sleep has been harder to come by. Most days, I stay up until dawn glaring at the wardrobe. Sometimes I think a masked man sneaks inside during the day, and rattles the wardrobe during the night – waiting for the right moment to pounce. Other times, I imagine a shackled and gagged prisoner banging their head against the wardrobe for help – stuck inside by a deranged madman, unbeknownst to mother and me. And still other times I think of aliens, or shadow men, or demonic creatures.
 
-But the most consistent, horrible thought? Above any other theory, I think about the fact that this mother isn’t my first mother, and I wonder: what if I am not this mother’s first child? What if there were others before me? And what if it is their ghosts inside that wardrobe?
+But the most consistent, horrible thought? Above any other theory, I think about how this mother isn’t my first mother, and I wonder: what if I am not this mother’s first child, either? What if there were others before me? And what if it is their restless ghosts reaching out to me from inside that wardrobe?
 
 The toll of not-knowing hurts most of all. And so, I decide I must find out.
 
@@ -68,7 +68,7 @@ I stare into the wardrobe. It is not dead children, or dead madmen, or anything 
 
 *Buzz, buzz.*
 
-The phone has just gotten a message. A message that sends the phone into a tizzy of vibrations, shaking the old wood and reverberating through the hollow wardrobe with an awful groaning noise. The same noise that’s been haunting my dreams, awake or asleep.
+The phone has just gotten a message. A message that sends the phone into a tizzy of vibrations, shaking the old wood and reverberating through the hollow wardrobe with an awful groaning noise. The same noise that’s been haunting my dreams.
 
 *Buzz, buzz.*
 
@@ -100,15 +100,15 @@ She rushes towards me. I try to dive away, but before I can take another step, t
 
 When I wake, I’m lying on a cold wooden floor, and I hear a dull prying sound. It’s dim, but as I struggle to sit up, I can see I’m in the basement. At my stirring, mother looks over at me, her brows pushing together in discomfort.
 
-“I wasn’t expecting you to be awake yet,” she says. She sighs. “Parenting is a perpetual struggle. But ah well. Mothers, we overcome.”
+“I wasn’t expecting you to be awake yet,” she says. She sighs and rises to her feet. “Parenting is a perpetual struggle. But us Mothers? We overcome.”
 
 As mother stalks towards me, I scramble backwards. On the other side of the basement, I see what was making the scraping sound.  A pickaxe. Mother was pulling up the wooden floors. She was digging something out. No, not something. A coffin. And that’s when I realize: mother was right. There was nothing important inside the wardrobe. The bodies were always in the basement.
 
-I try to make a break for the stairs, but mother is bigger and stronger and faster, and she closes in on me and pulls me tightly against her. For a moment, it’s a comfort – the love of being held close by someone who means it – but it’s too tight. This love, it’s smothering me. I can’t lift my face from her chest; it’s hurting my nose and I can’t get enough oxygen into my lungs. I can’t breathe. I can’t breath at all.
+I try to make a break for the stairs, but mother is bigger and stronger and faster. She closes in on me and pulls me tightly against her. For a moment, it’s a comfort – the love of being held close by someone who means it – but it’s too tight. This love, it’s smothering me. I can’t lift my face from her chest; it’s hurting my nose and I can’t get enough oxygen into my lungs. I can’t breathe. I can’t breathe at all.
 
-“You were doing so good,” mother cries. “You were so respectful, so smart. But don’t you know the first rule is the most important? What’s a child without obedience?”
+“You were doing so good,” mother cries. “You were so respectful, so smart. But don’t you know the first rule is the most important? I won't have a disobedient child."
 
-I scratch and claw at mother, but she doesn’t flinch, even when I feel her skin tearing away underneath my bitten nails. If anything, her hold tightens. 
+I scratch and claw at mother, but she doesn’t flinch, even when my nails tear into her flesh. 
 
 As darkness presses in on the edge of my vision, the last thing I hear is:
 
