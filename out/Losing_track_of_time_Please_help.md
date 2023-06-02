@@ -3,7 +3,7 @@ I’m 33 today but it’s not a happy birthday. Each birthday reminds me and tho
   
   
 My wife stares sadly at me, and my few friends gathered do the same.  
-I know what they are thinking, is this “his last birthday? he looks ready to kick it.”  
+I know what they are thinking, “is this his last birthday? he looks ready to kick it.”  
   
   
 To describe my problem in the simplest of terms: I am old.  
@@ -96,6 +96,4 @@ I count every second and every minute until Sammy comes out of the bathroom read
 The time is 10:28 PM.  
   
   
-Sammy lays down beside me, puts her arm around me and grabs my hand. The time is 7:15 AM.  
-  
-  
+Sammy lays down beside me, puts her arm around me and grabs my hand. The time is 7:15 AM.
