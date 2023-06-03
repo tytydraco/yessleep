@@ -14,7 +14,7 @@ I heard Owen tell the paramedics that he heard a scream come from the barn and m
 
 Life changed drastically after that day. I had to hire a full-time, live-in manager for the Sanctuary - Sally. Sally wasn’t an animal whisperer by any means but she was kind to them and knew how to run a tight ship.
 
-I spent most of my days in Grady’s hospital room…listening to doctors and specialists make their assumptions about why made Grady fall into a coma.  They were clueless and so was I.
+I spent most of my days in Grady’s hospital room…listening to doctors and specialists make their assumptions about Grady's coma.  They were utterly clueless and so was I.
 
 Occasionally, I’d force myself to go have dinner by myself at the local restaurant or coffee at our local cafe. I tried to go during off-peak hours, so I wouldn’t have to partake in mindless chit-chat and just be able to journal in peace. I had a lot of strong feelings that I needed to let out, journaling was all I had to help.
 
@@ -34,7 +34,7 @@ I didn’t know what to think but I knew Owen was telling the truth. He looked t
 
 A tear rolled down his cheek. Whatever he read in the journal has haunted him ever since. He continued on, his eyes darting around nervously. “I was just curious about what it was. I wish I hadn’t done it, Ms. Joslyn. The man hasn’t been back for the book. I think he knows I saw what was in it. It's in my head now and he doesn't need the book. I hope you guys can forgive me.”
 
-I told him he was forgiven, even though I didn’t really mean it. I guess because he reminded me of young Grady, I got soft.I wanted to ask him questions, so many questions but I didn't know where to start.
+I told him he was forgiven, even though I didn’t really mean it. I guess because he reminded me of young Grady, I got soft. I wanted to ask him questions, so many questions but I didn't know where to start.
 
 Before I got the chance to ask him anything, he got up and said, “Thank you for not firing me but I won’t be going back.” He quickly sat the journal down in front of me and ran through the door.
 
@@ -66,4 +66,4 @@ The fear of realizing that slowly I was able to interpret the symbols as though 
 
 The paralyzing fear of reading:
 
-*He said he would be back…but it’s too soon. I can’t let it have her.*
+*He said it would be back…but it’s too soon. I can’t let it have her.*

@@ -22,7 +22,7 @@ Dr. Serrano explained to us that he believed I had MRKH…a disorder where a fem
 
 My mind filled with a cloud of confusion as he continued on with low and muffled words…“Tell me about your periods…” “What is intercourse like for you two…” questions that I am glad we were too distraught to answer.  Grady and I felt the answers were none of his business anymore. If I was unable to carry a baby again, then there was no point sharing our intimacies…or our secrets.
 
-After our doctor visit, life carried on as usual…it had to. We cared for over thirty animals on our land. Being gone for a few hours for a doctor’s appointment meant a full day of catch-up work. We hated catch-up work.
+Though in a state of grief, we carried on as usual…we had to. We cared for over thirty animals on our land. Being gone for a few hours for a doctor’s appointment meant a full day of catch-up work. We hated catch-up work.
 
 One night, about two weeks after the doctor’s visit, I was tending to Wanda, a pregnant pig under our care. I touched Wanda’s belly to make sure I felt plenty of movement and that’s when I felt the *warm* in my belly. Usually when I feel the warm, it starts in my face and works it’s way down…stopping at my chest…filling my heart with a feeling of peace that I can’t describe with words. This time though, the warm started in my belly and it just stayed there. Normally, the warm would pass after a minute or so, but this time it stayed for several minutes.
 
@@ -72,11 +72,11 @@ I knew if he kept asking me what was wrong, I’d end up unblocking him…tellin
 
 I got into our truck and headed to the feed store. It was 105 degrees outside and humid as hell, so I cranked the air up and my favorite Pat Green CD to ease my mind. Yes, I still use CD’s.
 
-About five minutes into my trip the truck slowed to a stop right in the middle of the country road. The air and Pat Green turned off and the radio turned on to static. It happened so fast, that my mind had trouble keeping up with the events. 
+About five minutes into my trip the truck slowed to a stop right in the middle of the country road. The air and Pat Green turned off and the radio turned on to static. It happened so fast, that my mind had trouble keeping up with the events.
 
 When I picked up my mobile phone to call Grady, I heard a strange sound coming from the receiver. I didn’t dial a number nor did a call come in, so I knew whoever or whatever it was, it was not someone or something I wanted to speak to.
 
-I set the phone face down on the passenger seat and calmly tried to open the door…but it was locked. That's when I started to panic. I pulled the handle and pushed the door as hard as I could but it was no use.  
+I set the phone face down on the passenger seat and calmly tried to open the door…but it was locked. That's when I started to panic. I pulled the handle and pushed the door as hard as I could but it was no use.
 
 Just as I was about to crawl into the back seat to see if I could get out another way, it took hold of me again. I was pushed back into my seat by a force so strong that it pulled my hair back from it’s roots. My face was pushed back so far that my upper lip split in two. Blood poured into my  mouth as I was forced deeper into the seat. After several horrifying moments, my entire body froze.
 
