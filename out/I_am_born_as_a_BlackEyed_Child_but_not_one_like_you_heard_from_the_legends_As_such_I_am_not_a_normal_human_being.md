@@ -48,4 +48,6 @@ It didn't take long for police and the paramedic to arrive to pick up the lunati
 
 I nodded my head as the police commissioner gave me permission to state at a hotel with no payment or rent required. He was right about one thing. My existence will be known to the world one day. Even into the present day, my existence is still unknown. I'm currently way stronger than I was over 20 years ago. And I still live in the hotel the police commissioner let me stay in.
 
-**So, there's one question I want to ask. And want your opinions: Am I Human or a Monster?**
+**So, there's one question I want to ask. And want your opinions:**
+
+***Am I Human or a Monster?***
