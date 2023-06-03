@@ -205,3 +205,6 @@ But I don’t want this. I was promised freedom. And they can’t keep me from e
 I’m not sure if this’ll work. But if it is: I’m on an island somewhere in the Java Sea. There’s a forest that goes on forever and I’m being held as some sort of explorer by some Company.
 
 Find me. Before I die.
+
+
+[Company Issue Warning](https://www.reddit.com/r/nosleep/comments/13ymah5/i_work_for_a_company_that_studies_cursed_places/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)

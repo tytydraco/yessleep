@@ -187,3 +187,5 @@ That, I assume, was where the real treasures were hiding.
 But that isn’t my business. The initial first contact was made, the fears within stabilized. My job there was done; another day was complete. The unexplained was eliminated, and I was ready to move on another excursion.
 
 The world is filled with places like these. And I’m just one of many who work to keep these hidden away. We keep the public safe. It’s what we do.
+
+[but flip a coin.](https://www.reddit.com/r/nosleep/comments/13w1qwy/i_volunteered_for_an_expedition_to_get_off_death/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)

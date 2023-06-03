@@ -1,6 +1,7 @@
 I’ve been waiting to talk about this. I’ve been looking for others with similar experiences, or… I dunno. Maybe I hoped I was insane. Months have passed, and I still don’t have the slightest idea what to believe. But no matter what is true and what isn’t, the memory of what happened to me is as true as can be.
 
 And every time I put my hand to a door, I tremble.
+
 &#x200B;
 
 I was looking for a house in the surrounding area. I know, being a homeowner at 27 seems like a dream. I know I’ve been fortunate. Even so, I wanted something remote, spacious, and comparably cheap.
@@ -18,6 +19,7 @@ I parked on the street outside and took in the sights. There was an “Open Hous
 I was greeted by a cheerful man. He had thick glasses, a receding hairline, and the kind of “fun uncle” smile that told me he could get away with anything.
 
 “Come on in,” he said. “You’re gonna love it.”
+
 &#x200B;
 
 There was me, the realtor, and three other people. A middle-aged couple, and a younger woman. She had this messy black hair that kept poking her in the eye. Even at a glance I could tell the young woman was distraught. She wasn’t even looking around the house, she seemed more interested in the people wandering about.
@@ -25,6 +27,7 @@ There was me, the realtor, and three other people. A middle-aged couple, and a y
 The house had a simple and open layout. The bottom floor had a bathroom, a separate study room, an adjoining kitchen, and a lounge area. There were stairs leading to a sort of catwalk on the second floor, making the main room wide open. The second floor had another bathroom, a bedroom, and a guest room.
 
 It had this sort of sullen 70’s vibe with grey and white flower-patterned wallpaper. There were little scuffs and tears pretty much everywhere, but the house itself seemed… fine.
+
 &#x200B;
 
 The realtor, Anders, showed me all the details of the kitchen. He assured me that most of the appliances were to be replaced before the next homeowner moved in, and proudly displayed the new garbage disposal. It was a nice enough setup, but I couldn’t tear my eyes away from the young woman standing outside the study. I got the feeling that she was standing guard.
@@ -40,6 +43,7 @@ As the middle-aged couple walked downstairs, they asked her they could have a lo
 Anders walked up to her and leaned in. His demeanor shifted. They argued back and forth, and I could hear her repeat, over and over;
 
 “This is not what we agreed to.”
+
 &#x200B;
 
 The middle-aged couple and I just looked at one another. While the realtor and the young woman argued, we introduced ourselves. I smiled and gave them my name. They were named Helen and Sebastian, or ‘Seb’ for short. Typical midwestern salt-of-the-earth kind of people. They were suffering from an empty nest and seemed to want a place to start over. They made no secret about being interested in the place, although Helen wasn’t sure about having no direct access to the garage. Seb, on the other hand, wasn’t sure about the soil. He wanted a proper garden, and the soil seemed ill-fit to sustain greenery.
@@ -47,6 +51,7 @@ The middle-aged couple and I just looked at one another. While the realtor and t
 “Still,” Helen smiled. “Best place we’ve seen so far.”
 
 “Sure is,” added Seb, giving Helen a little shake.
+
 &#x200B;
 
 Anders kept arguing with the young woman. I could overhear her name as Whitney, and she was not willing to cooperate. Finally, Anders just pushed past her, putting his keys in the lock.
@@ -77,6 +82,8 @@ Anders leaned over to us, lowering his voice.
 
 Anders nodded.
 
+&#x200B;
+
 While Anders told us about the east-facing windows and the top-of-the-line air conditioning system, I couldn’t help but to keep my eyes on Whitney. She was rummaging through the desk, dropping mementos, pictures, and notebooks into one of her many cardboard boxes. I could tell she was sleep deprived. She kept yawning.
 
 Helen seemed eager to just leave Whitney to her grieving, while Seb kept to the practical details. He checked the hardwood floor, the insulation on the windows, the wall linings for pests. At one point, he almost knocked over a coffee table, and Whitney came running. She caught a vase that was about to topple off the table.
@@ -89,6 +96,8 @@ Helen seemed eager to just leave Whitney to her grieving, while Seb kept to the 
 
 She waved her hands around, shaking the vase. There was a little rattle coming from it.
 
+&#x200B;
+
 She shook it again, and I could see the color fade from her cheeks. Carefully, she tipped the vase, and something dark plopped into her hand.
 
 A large bronze key.
@@ -96,6 +105,8 @@ A large bronze key.
 Whitney pulled her hand back, letting the bronze key clatter to the floor. She covered her mouth, forgetting how to exhale. We just looked at her having what seemed, to us, like a mental breakdown.
 
 “Nobody move,” she gasped. “Nobody… do anything.”
+
+&#x200B;
 
 We all just stood there. Helen and Seb barely breathed, and I was suddenly hyper-aware of how still my feet were. Anders wasn’t impressed. If anything, he was fed up with this. He rolled his eyes, and picked up the key.
 
@@ -111,6 +122,8 @@ Anders opened the door, stepped out of the study, and headed straight for the fr
 
 “Wait!” she called out. “Please wait!”
 
+&#x200B;
+
 As soon as Anders put his hand on the front door, Whitney stopped dead in her tracks.
 
 “Anders, please, I’m sorry,” she said. “Just step away. Give me the key. I’ll leave, I promise. I swear.”
@@ -119,7 +132,11 @@ As soon as Anders put his hand on the front door, Whitney stopped dead in her tr
 
 “No!”
 
+&#x200B;
+
 He opened the door and took a step forward. The bronze key passed the threshold.
+
+&#x200B;
 
 We’d all stepped into the main lounge by now, and I heard the door to the study slam shut. There was a sort of pressure shift, making the wind move through the main lounge. Every door in the house slid shut with a click. All except the front door, which was wide open.
 
@@ -130,6 +147,8 @@ Not nothing as in no one standing there. No, nothing as in “a nothing”. Just
 A viscous fluid where sunlight ought to be.
 
 Endless, abyssal, ocean.
+
+&#x200B;
 
 I stared at it, mesmerized. The contrast of the bright sun coming in from the windows, bouncing off the ripples of this deep ocean doorway.
 
@@ -145,6 +164,8 @@ It was all he managed to say, as he was pulled into the dark. Limbs were quietly
 
 Whitney threw herself forward, slamming the door shut, leaving the bronze key on the floor.
 
+&#x200B;
+
 Screams erupted, and I didn’t even notice they were mine. It was this primal force being pulled out of me, this need to scream. Like a baby desperate for her mother. Helen backed into a corner and sunk to the floor, with Seb trying his best to comfort her. Whitney just sat there looking at the bronze key; her face breaking out in cold sweats.
 
 I felt something turn in my stomach and headed for the bathroom. Whitney ran after me, but she couldn’t make it in time. I burst through the bathroom door and collapsed on the floor, hyperventilating. Whitney stayed outside, looking at me in shock.
@@ -152,6 +173,8 @@ I felt something turn in my stomach and headed for the bathroom. Whitney ran aft
 “It’s… you’re… you’re fine,” she said. “You’re okay.”
 
 I wasn’t. But compared to Anders, panicking on the bathroom floor seemed like a mercy.
+
+&#x200B;
 
 Whitney stayed with me as I calmed down. Seb and Helen joined us. After a few minutes of silence, Whitney excused herself. She came back with pile of notebooks. She sat down across the hall from me, making sure not to enter the bathroom.
 
@@ -167,7 +190,11 @@ Whitney stayed with me as I calmed down. Seb and Helen joined us. After a few mi
 
 Whitney turned the notebook to a specific page and read aloud.
 
+&#x200B;
+
 “I’ve been marooned in this house for thirty days. I never know where the Door is. Sometimes I can hear water, sometimes not. I tried the windows, but it nearly burst my eardrums from the pressure as water came rushing in. I can’t leave. I can’t move. They wait behind the Door. They wait for me to open.”
+
+&#x200B;
 
 Whitney scratched her head. Helen looked back and forth, as if waiting for something to make sense. Seb just shook his head.
 
@@ -180,6 +207,8 @@ Whitney scratched her head. Helen looked back and forth, as if waiting for somet
 “It’s… it’s not that easy. It’s when you open it.”
 
 “That doesn’t make any sense.”
+
+&#x200B;
 
 Whitney stood up and handed Helen three notebooks.
 
@@ -195,6 +224,8 @@ Seb took a few tentative steps up to the front door. Helen wanted to protest, bu
 
 “It’s somewhere,” said Whitney. “I don’t… I don’t know the rules. It has to do with the doors.”
 
+&#x200B;
+
 I got up off the bathroom floor and looked at them. Seb took his hand off the front door and stepped back. Whitney turned her attention to me.
 
 “You put yourself at risk,” said Whitney. “That could’ve killed you.”
@@ -205,7 +236,11 @@ I got up off the bathroom floor and looked at them. Seb took his hand off the fr
 
 Whitney walked up to Helen and took one of the notebooks back. She turned to one of the latter pages.
 
+&#x200B;
+
 “The framework of passageway. Concept of thought. Paired in alignment, the darkness standing shy from the mirrored back of Empyrean. Realm unwilled and unbound, misshapen by collective subconscious. We cannot pass, our world-forgotten blocks dissipated. Like a bridge cannot be built of water, and a house cannot be built of wind. But the great craftsman blames not their tools; and eternal gold can be found in humble bronze.”
+
+&#x200B;
 
 “Bronze,” I said. “Like the key.”
 
@@ -214,6 +249,8 @@ Whitney walked up to Helen and took one of the notebooks back. She turned to one
 Whitney pointed to the study. Helen hugged Seb tight, holding back a sob.
 
 “He couldn’t leave. He was convinced that the… the door would eat him.”
+
+&#x200B;
 
 Helen sat down by the kitchen table. Thankfully, there was no door in-between the kitchen and the main lounge. Seb walked straight up to Whitney, grabbed her by the collar of her blouse, and slammed her up against the wall; his calm demeanor cracking at the seams.
 
@@ -229,6 +266,8 @@ Helen sat down by the kitchen table. Thankfully, there was no door in-between th
 
 Whitney looked at the pile of notebooks she’d managed to gather from the study. It was only a handful of everything we’d seen in there, but it might be enough to get some semblance of an answer.
 
+&#x200B;
+
 The house had six doors. The front door, the bathroom door, the study room door. On the top floor, there was another bathroom door, a door to the guest bedroom, and the main bedroom door. The bathroom door on the bottom floor was already open and considered safe. I could step in and out without a problem.
 
 Whitney explained as best as she could.
@@ -236,6 +275,8 @@ Whitney explained as best as she could.
 Her father had grown increasingly paranoid since divorcing Whitney’s mother. He’d locked himself in his house, committing fully to his studies. He’d always been a bit agoraphobic, and having a reason not to leave the house was a bit of a blessing in disguise. But over time, that blessing turned into a curse. An early entry read;
 
 “For years, I’ve longed for the presence of mind to devote myself. And now that I can, I find myself wanting. I can’t be certain. There is a Door, a passage. It binds itself seemingly spontaneously. There is a risk involved, and it is a risk I cannot take.”
+
+&#x200B;
 
 Seb tried to call for help, but water started pouring out of his phone. Whitney found a page about “semi-passages” or “shortcuts”. Things that could be used as portals to another person or place. They weren’t as conceptually clean as a door, and thus wouldn’t invite “Them”, but the connection would go through that dark place. The place that, somehow, her father had stumbled upon.
 
@@ -250,6 +291,8 @@ I looked at the key for a long time. I didn’t dare to touch it. It was unassum
 “So how do we un-trigger it?”
 
 Whitney shrugged and pointed to the notebooks.
+
+&#x200B;
 
 We had endless discussions. We compared notes, drew out theories. Helen thought we could force the bronze key out a window, but Whitney theorized that it’d just leave us locked inside. I suggested we listened at each door, just to eliminate which ones were safe and which weren’t. We tried, but there was seemingly no way to tell. Sometimes I could hear rushing water on the other side. Scratches on the wood. Other times, nothing. Even going back to the same door, it’d sound differently each time.
 
@@ -271,11 +314,15 @@ Seb backed away from his door, taking the hand off the handle.
 
 “It ain’t right,” he said. “None of it. It ain’t right.”
 
+&#x200B;
+
 Everything erupted into an argument. Seb couldn’t bring himself to risk his life for anything less than an exit, and Helen couldn’t stop crying at the thought of that dark abyss. I couldn’t blame her. To this day, I can’t stop imagining it. Whitney, trying to act as a voice of reason, read aloud from one of the notebooks.
 
 “The concept of the passageway, the Door, changes at the flick of a thought. An alien thought, like an invisible, uncontrollable shadow of the psyche. It refuses to be controlled. My exit could be my end; or as likely, a wooden frame. Much like we cannot control the smoke of a campfire, we cannot foresee the turning of the passageway.”
 
 We all looked at one another. Helen collapsed by the front door, crying. Whitney was close to a mental breakdown. I felt this enormous burden settle in my stomach, like I was missing something.
+
+&#x200B;
 
 “Let’s take the door off the hinges”, said Seb. “We’ll turn it into a… an arch. Then it ain’t a door anymore. You think that’ll work?”
 
@@ -287,11 +334,15 @@ Helen bent down next to the sink, put her hand on the kitchen cabinet handle. I 
 
 Was that considered a door? Could it kill her? Would it?
 
+&#x200B;
+
 I imagined that dark, cold abyss. That enormous force pulling me in, turning my very form into this unrecognizable mass. Where no screams can be heard. All I’d have to show for such unimaginable anguish would be a burst of bubbles; then nothing.
 
 “No!” I cried out. “Stop!”
 
 But it was too late.
+
+&#x200B;
 
 Nothing happened. Helen opened it, pulled out the crowbar, and that was that. But for a brief moment, I realized how Whitney’s father must’ve felt. That uncertainty, not knowing for sure if that one flick of the wrist would be damnation; or nothing.
 
@@ -303,11 +354,17 @@ Whitney gathered towels. She had this idea that, maybe, water might start leakin
 
 By the time we got the towels, Seb started working on the door frame. As that first crack rang out, I heard a click.
 
+&#x200B;
+
 The front door slid open.
+
+&#x200B;
 
 Without a moment’s thought, Seb pushed it close. It had barely opened an inch.
 
 We all held our breaths. We were fine. Nothing was happening.
+
+&#x200B;
 
 “It’s… it’s clear!” Helen called out. “There’s nothing there! I saw it, it… it was nothing!”
 
@@ -319,6 +376,8 @@ Seb put his hand on the front door, but Whitney tackled him. The crowbar fell to
 
 “Listen!” Whitney yelled. “Just listen!”
 
+&#x200B;
+
 A rumble, like a great whale passing in the distance. It was right there; on the other side of the front door.
 
 Without a word, they all stood up and backed away. The door shook from the passing force. Something was definitely there.
@@ -326,6 +385,8 @@ Without a word, they all stood up and backed away. The door shook from the passi
 “Then… then the rest should be fine,” said Seb. “We can get to the study.”
 
 Whitney nodded, and the two of them burst into a sprint. Helen wasn’t convinced, but didn’t know what to say. Whitney dropped her crowbar, and as she bent to pick it up, Seb opened the door to the study.
+
+&#x200B;
 
 Darkness.
 
@@ -343,13 +404,19 @@ She opened the door again.
 
 And there was the study, just as we’d left it.
 
+&#x200B;
+
 Helen collapsed on the floor, curling up into a fetal position. She kept making this child-like yowling, scratching the surface of the hardwood floor, as if trying to dig Seb back into reality. But there was nothing left. Not even water droplets on the floor.
 
 Then there were her arms. She’d held on until the door had slammed shut. Her sleeves were torn, and her arms bloody. Not much, but there were these round little suction marks. They were already bruising, with spots of blood poking through the skin.
 
 I sat by Helen as Whitney started rifling through the study. There were more notebooks, more theories, more diaries. Notes about experiments, clever tricks, and attempts. So far, every idea to understand the rules were in vain. We couldn’t make sure. No matter what, we could never be truly sure.
 
+&#x200B;
+
 Two open doors. Four closed.
+
+&#x200B;
 
 I don’t know how many hours passed. I managed to get Helen to the couch, but she was inconsolable. She could barely comprehend words anymore. She didn’t blink, and she could barely breathe. There were no coherent thoughts in her mind, just… darkness. This awful, soul-sinking darkness.
 
@@ -360,6 +427,8 @@ Whitney propped up the open doors with books and towels, to make sure they would
 The sun had started to set outside. For all intents and purposes, this still just looked like a house. The windows were clear, showing the greenery outside. Maybe it was all a lie. Maybe none of it was really happening.
 
 But looking down at Helen, and her unblinking eyes, I knew it was the realest thing I’d ever experienced.
+
+&#x200B;
 
 “We… there’s three of us,” I said. “Four doors. We can’t make it.”
 
@@ -374,6 +443,8 @@ But looking down at Helen, and her unblinking eyes, I knew it was the realest th
 I looked back at the study, where Whitney said her father had died. No words were necessary. She took a deep breath and nodded.
 
 “He couldn’t bring himself to try,” she said. “So we have to ask ourselves what we want. A long but certain death, or a violent risk at life?”
+
+&#x200B;
 
 The fridge, the freezer, and all the cupboards had been cleared out. Whitney found some raisins for us to share while we pondered what to do. Helen couldn’t eat. She stared blankly ahead, waiting for her mind to come wandering back.
 
@@ -399,11 +470,15 @@ Whitney pulled out another book from the pile, turning it over.
 
 I shook my head, looking over at Helen. A handful of raisins slipped between her fingers. She didn’t even bother closing her hand.
 
+&#x200B;
+
 Looking back at Whitney, I sighed.
 
 “You’re right,” I said. “We have to try.”
 
 So we did.
+
+&#x200B;
 
 We lined ourselves up on the top floor. Helen on the far right, near the bathroom. I was on the far left, by the guest room. Whitney was in the middle, by the bedroom. Helen didn’t understand. She just mimicked us.
 
@@ -423,9 +498,13 @@ But in my heart of hearts, I knew it wasn’t.
 
 “Three.”
 
+&#x200B;
+
 We opened our doors.
 
 All I saw was a well-made bed. A bag of toiletries; probably Whitney’s. I left the door open and turned around.
+
+&#x200B;
 
 Helen was smiling as the darkness welcomed her.
 
@@ -439,17 +518,25 @@ A pulse shot through her. I could see the hair on her arm stand up. Her veins tu
 
 “Oh, Sebby…”
 
+&#x200B;
+
 In an instant, her flesh unraveled as it flayed itself from the inside out. Her scream stifled as something pulled her in, leaving splotches of blood behind from the outline of her feet. A pained moan escaped her; only to be turned to harmless bubbles in the pressurized void.
 
 Whitney grabbed me by the neck and pulled me downstairs. We ran to the front door. We looked back a final time, just to make sure it was still manifested upstairs.
 
 It was still there. We’d sacrificed Helen, but we’d make it out.
 
+&#x200B;
+
 Whitney pulled the front door open – and stopped.
 
 Darkness.
 
+&#x200B;
+
 We’d been wrong.
+
+&#x200B;
 
 Whitney turned to run as an impossibly long arm grabbed the flesh of her back; straight through her clothes. It pulled her back.
 
@@ -465,17 +552,23 @@ A lifeless body, dragged across the floor. Unceremoniously pulled into the dark 
 
 And the door, slightly damaged by Seb and his crowbar, slid shut.
 
+&#x200B;
+
 I was all alone.
 
 The door to the guest bedroom and the main bedroom remained open. There was the bathroom and study downstairs. Just two closed doors left; the bathroom and the front door. Both closed. Both… wrong.
 
 There was no right answer.
 
+&#x200B;
+
 I must’ve stayed there for days. I found some trail mix in Whitney’s bag. I had water. I could shower. I had a change of clothes. I scoured the notebooks over and over and over, trying to find the slightest hint on what to do. There had to be some way of knowing for sure. There had to be.
 
 It wasn’t until I came across a final note that I realized it was over. It read;
 
 “By will alone, we cannot make ourselves right. Right is right, independently of our actions and intentions. We cannot control that which never was, and we cannot be part of that which will never be. There could be no more perils for me to face, and yet, I cannot bring myself to leave. There is no certainty in the unknown, and I choose not to live by chance alone.”
+
+&#x200B;
 
 I cried myself to sleep at night. I banged on the walls. I even tried opening a window, only to have my left eardrum blown out from the pressure drop. Got a nasty nosebleed as well.
 
@@ -485,17 +578,23 @@ But it was useless. In those final hours of desperate loneliness, I knew I could
 
 I was going to die.
 
+&#x200B;
+
 I found myself with my hand on the front door. I learned every crease of the wood. The temperature of the metal handle. I listened to it. Studied it. At times, it was quiet. At other times, it wasn’t. Sometimes I imagined it quiet, other times, I imagined voices coming from the other side.
 
 Maybe I wasn’t imagining it.
 
 Finally, I grasped the bronze key. Starving, exhausted, and mentally broken – I opened the front door.
 
+&#x200B;
+
 Sunshine.
 
 And there, on the fresh-cut lawn, was another realtor.
 
 Just as confused as I was.
+
+&#x200B;
 
 So, turns out I was only in there for about 16 hours total. And to this day, no one seems to remember neither Anders, Seb, Helen, or Whitney. According to every document I can find, the owner of the house had no children. The cars parked outside were unregistered. On paper, it seemed like the entire world had forgotten that these people were ever part of this plane of existence.
 
@@ -505,6 +604,8 @@ I’ve tried to find anything about this. They won’t let me go back to read th
 
 I’ve tried to find copies of the books I found in there. Some of them have been seen in passing on strange message boards, and one just keeps making my computer turn off whenever I try to google it. Who the hell is Emmett Rask anyway?
 
+&#x200B;
+
 If anyone knew these people, or have heard about this phenomenon, please… I need to know I’m sane. I need to know this isn’t all a dream. I need to know I won’t wake up with my hand on that front door, having imagined living a life back outside.
 
 This has to be real. I am real. There is nothing on the other side of the door.
@@ -512,5 +613,7 @@ This has to be real. I am real. There is nothing on the other side of the door.
 Go ahead, listen. There’s nothing there.
 
 It can’t be.
+
+&#x200B;
 
 Can it?
