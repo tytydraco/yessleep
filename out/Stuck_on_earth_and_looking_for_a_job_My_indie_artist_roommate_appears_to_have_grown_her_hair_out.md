@@ -165,3 +165,5 @@ So we did. Only that it wasnâ€™t quite how we left it. Elijah noticed it firstâ€
 [19: shopping cart](https://www.reddit.com/r/nosleep/comments/13w22mm/stuck_on_earth_and_looking_for_a_job_i_sat_in_a/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [20: olms and Jewels](https://www.reddit.com/r/nosleep/comments/13x0lkh/stuck_on_earth_and_looking_for_a_job_olms_and/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[22: recruitment](https://www.reddit.com/r/nosleep/comments/13zmo6y/stuck_on_earth_and_looking_for_a_job_im_being/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)

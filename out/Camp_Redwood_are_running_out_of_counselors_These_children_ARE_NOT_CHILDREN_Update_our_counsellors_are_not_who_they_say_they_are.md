@@ -12,7 +12,7 @@ We are also not responsible for any counselors revealing they are not who they s
 
 So. There’s a LOT to tell you and not a lot of time to tell it.
 
-Right now, I suppose you could say we are under lockdown—if that is the word. I want to go over the last several days so get you up to date. That’s all I can do right now. I can hope and pray the thing with Teddy’s voice does not get in here, and once again cry out for help—that I know is not coming. Not from the authorities, at least. But hey, if any of you fancy coming to rescue us, we’re in the middle of the Canadian wilderness. The closest rest-stop is maybe three fucking hours away. So have fun. Has it really almost been a week since I posted? Well, we’re still here! 
+Right now, I suppose you could say we are under lockdown—if that is the word. I want to go over the last several days to get you up to date. That’s all I can do right now. I can hope and pray the thing with Teddy’s voice does not get in here, and once again cry out for help—that I know is not coming. Not from the authorities, at least. But hey, if any of you fancy coming to rescue us, we’re in the middle of the Canadian wilderness. The closest rest-stop is maybe three fucking hours away. So have fun. Has it really almost been a week since I posted? Well, we’re still here! 
 
 And surprise, surprise, help is not coming. So, please excuse the salt. I am seventeen years old and I have been abandoned by the adults who were supposed to be looking after us. 
 
@@ -34,9 +34,9 @@ But something was bothering me. More than the secret military bunker, and magic 
 
 “What are you doing?” Rowan, who was still looking through Allison’s dinosaur laptop, turned to me with half lidded eyes, when I slowly got to my feet, careful not to make too much noise, and crept over to the pile of separate files which seemed to be crumbling apart from age. He kept his voice low, but it sounded almost like a whine. He could have been scared, but from the way he was sitting, cross-legged with a frowny face, I figured something must have been going on with him. The guy looked tired. More tired than normal.
 
-The bags under his eyes were practically shadowing his face, and were an odd contrast to unusually ashy colored cheeks and slightly dilated eyes. Still though, Rowan refused to look vulnerable. I caught glimpse of Harry’s raybans sitting on his head, pinning back thick dark brown curls from falling in front of sleepy eyes.   Maybe he was finally losing his cool and breaking out of the well-constructed façade had head been hiding behind since Teddy disappeared.
+The bags under his eyes were practically shadowing his face, and were an odd contrast to unusually ashy colored cheeks and slightly dilated eyes. Still though, Rowan refused to look vulnerable. I caught glimpse of Harry’s raybans sitting on his head, pinning back thick dark brown curls from falling in front of sleepy eyes.   Maybe he was finally losing his cool and breaking out of the well-constructed façade he had been hiding behind since Teddy disappeared.
 
-We had just narrowly escaped a crowd of psycho littles high on age-regressing sugary snacks who were doing who-the-fuck knows to the other counselors who had been captured, so I didn’t blame him looking like that. I guess he couldn’t look me in the eye, because in Rowan’s mind, he was the reason why this happened. He was the leader, and the camp had fallen to psychopathic little eight year olds who had taken half of the counselors hostage, and the other half—most likely taken apart in the physical sense, after what we had witnessed in Cassie’s cabin. Still though, it wasn’t Rowan’s fault. He could sit there and pull a face all he wanted, it’s not like I was going to blow up him for getting us stuck down here. He actually saved us. 
+We had just narrowly escaped a crowd of psycho littles high on age-regressing sugary snacks who were doing who-the-fuck knows to the other counselors who had been captured, so I didn’t blame him looking like that. I guess he couldn’t look me in the eye, because in Rowan’s mind, he was the reason why this happened. He was the leader, and the camp had fallen to psychopathic little eight year olds who had taken half of the counselors hostage, and the other half—most likely taken apart in the physical sense, after what we had witnessed in Cassie’s cabin. Still though, it wasn’t Rowan’s fault. He could sit there and pull a face all he wanted, it’s not like I was going to blow up at him for getting us stuck down here. He actually saved us. 
 
 And trapped us, judging from the footsteps upstairs, Carmel and Harry still bouncing around looking for us. 
 
@@ -114,7 +114,7 @@ Her breaths were strangled and harboured. I noticed figures looming in the backg
 
 “Agent Lemrac!” Whoever her superiors were—were panicking. “I told you not to turn it off. I knew this was going to happen. Can we stop the demonstration, please? Human emotions present inside an Aceville soldier are too powerful—"
 
-Voices were murmuring in the background, and the Agent Lemrac raised her hands. “I want to stop.” She choked out, her hands trembling. She spoke like she still had control over the situation and wasn’t being apprehended.  “I want to stop. Do you hear me?” The interviewer was crying, I realized. “Stop the recording! I can’t do this. Oh god, I think I’m going to sick—”
+Voices were murmuring in the background, and Agent Lemrac raised her hands. “I want to stop.” She choked out, her hands trembling. She spoke like she still had control over the situation and wasn’t being apprehended.  “I want to stop. Do you hear me?” The interviewer was crying, I realized. “Stop the recording! I can’t do this. Oh god, I think I’m going to be sick—”
 
 When the footage ended in a burst of static, I found myself backing away, something slimy creeping its way up my throat.
 
@@ -286,13 +286,13 @@ I had to bite back a groan. “You’re kidding.” I said, pointing to Rowan, w
 
 “He’s our friend! Wouldn’t Rowan do the same?”
 
-Yes, he would. But. He would also realise we’re lost causes.
+Yes, he would. But. He would also realize we’re lost causes.
 
 “Gag him with something.” I said. “If he makes any more noise, we’re dumping him.”
 
 “He’s a kid!”
 
-“Just the mind one of.”
+“Just the mind of one.”
 
 I don’t know how animal crackers worked, but his age seemed to be progressively younger. This time he just sat with wide eyes watching us.
 
@@ -300,7 +300,7 @@ Harry almost tore apart the place looking for means of communication, before an 
 
 “What was that?” Harry turned to me with his lip curled.
 
-“How am I supposed to know?!” I hissed. “Keep looking!” But when I ducked under the table, my hands crawled under the desk, finding a fire—and attached to that, an ancient looking phone which looked straight out of a 1940’s movie, a bright green rotary phone.
+“How am I supposed to know?!” I hissed. “Keep looking!” But when I ducked under the table, my hands crawled under the desk, finding a wire—and attached to that, an ancient looking phone which looked straight out of a 1940’s movie, a bright green rotary phone.
 
 Hesitantly, I answered it, lifting the phone to my ear. “Hello?”
 
@@ -314,7 +314,7 @@ The woman paused.
 
 “Where is Agent Salta?” She cleared her throat. “This line is reserved for communication with agents only.”
 
-“I don’t know who the fuck you’re talking about!" he hissed out. “My name is Josie, and whatever is happening here, we need help!”
+“I don’t know who the fuck you’re talking about!" I hissed out. “My name is Josie, and whatever is happening here, we need help!”
 
 “Josie. Did you awaken the subjects?”
 
