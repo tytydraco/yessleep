@@ -86,6 +86,12 @@ Fuck. His breath smelled like sadness, and his voice sounded like fingernails on
 
 “How much of your family [are you willing to lose](https://www.facebook.com/P-F-McGrail-181784199029462/)?”
 
+-------------
+
+[This is how much](https://redd.it/13z778h)
+
+-----------
+
 [BD](https://www.reddit.com/r/ByfelsDisciple/)
 
 
