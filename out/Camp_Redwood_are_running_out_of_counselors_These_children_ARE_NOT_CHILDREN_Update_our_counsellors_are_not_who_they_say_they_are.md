@@ -274,7 +274,7 @@ He didn’t respond to that, which bothered me.
 
 “Dunno. Maybe I’m their favorite.” 
 
-When we found Allison’s cabin, which was more of a safehouse (an exposed safehouse) I found Rowan sitting on the wooden porch with his legs swinging over the side. “Rowan!” Harry hissed. I found it hard to believe their roles had been switched. Now he was the one yelling at the camp-leader. “I told you to stay inside!” 
+When we found Allison’s cabin, which was more of a safehouse (an exposed safehouse) I found Rowan sitting on the wooden porch with his legs swinging over the side. “Rowan!” Harry groaned. I found it hard to believe their roles had been switched. Now he was the one yelling at the camp-leader. “I told you to stay inside!” 
 
 He ushered the boy inside, before barricading the door with some hefty looking equipment. I could tell from the grin on his face that our so-called leader was once again no longer himself.
 
@@ -314,7 +314,7 @@ The woman paused.
 
 “Where is Agent Salta?” She cleared her throat. “This line is reserved for communication with agents only.”
 
-“I don’t know who the fuck you’re talking about!" I hissed out. “My name is Josie, and whatever is happening here, we need help!”
+“I don’t know who the fuck you’re talking about!" I squeaked out. “My name is Josie, and whatever is happening here, we need help!”
 
 “Josie. Did you awaken the subjects?”
 
@@ -342,7 +342,7 @@ Instead, Harry pointed at the bottom of the file. “I don’t want to freak you
 
 Harry was right.
 
-I pulled the paperwork off of him, flicking through each file before turning my eyes to him. “Who the fuck are you?” I managed to hiss out.
+I pulled the paperwork off of him, flicking through each file before turning my eyes to him. “Who the fuck are you?” 
 
 A clanging sound from above broke the tension, and whatever Harry was about to reply with was strangled in his throat. He slammed a hand over his mouth.
 
