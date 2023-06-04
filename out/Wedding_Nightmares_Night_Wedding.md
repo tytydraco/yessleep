@@ -4,7 +4,7 @@ Which was all the worst, when 3 weeks before the wedding I had to tell my drop d
 
 It's not an easy thing for a bride to swallow:  juggling food prep, alterations, cancellations, seating arrangements, two sides of the family, busy bodies, food allergies, one aunt that won't stop calling, and another one that keeps asking if her wearing white to our wedding as she's sort of the matriarch of the family was going to be a problem (side note: we told her multiple times that it was not okay). The list goes on, trust me.
 
-So when she asked for an explanation. I had to tell her the truth no matter how terrible it sounded. It wouldn't feel right knowing that the precursor to our marriage was a lie.
+So when my fiancee asked for an explanation. I had to tell her the truth no matter how terrible it sounded. It wouldn't feel right knowing that the precursor to our marriage was a lie.
 
 "Is it kids? Oh God, do you have a little Jimmy running around somewhere? No, Jim. I can't handle this right now."
 
