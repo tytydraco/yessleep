@@ -72,4 +72,6 @@ I kept my eyes on Helen as I rose. Helen remained fixated on the far platform. S
 
 I twisted my neck around to glance at the portal. Incredibly, my situation had gotten worse. A second long, jointed proboscis had emerged from the hole. This one wasn’t aiming for the red man-puddle on the floor. Whatever was in the portal was thrusting this second appendage into the chamber, and towards us.
 
+\[[Part 3](https://www.reddit.com/r/nosleep/comments/13qq6zl/my_patient_spent_eight_million_years_under_a/)\]
+
 [ANKoM](https://www.anewkindofmonster.com/glenmont-and-the-second-death-universe)

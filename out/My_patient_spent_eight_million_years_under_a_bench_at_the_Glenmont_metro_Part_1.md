@@ -292,4 +292,6 @@ I was already off balance trying to duck her attack with the needle when she sla
 
 All sound dropped in pitch and then died away entirely, as if the soundtrack of life was a vinyl record that suddenly stopped spinning. The world froze before I hit the ground. In one instant, I was struggling like mad to get away, and in the next instant I was frozen in mid-fall, like a bug fossilized in amber.
 
+\[[Part 2](https://www.reddit.com/r/nosleep/comments/13pstjl/my_patient_spent_eight_million_years_under_a/)\]
+
 [ANKoM](https://www.anewkindofmonster.com/glenmont-and-the-second-death-universe)
