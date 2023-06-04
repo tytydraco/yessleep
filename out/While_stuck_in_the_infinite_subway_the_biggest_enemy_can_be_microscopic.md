@@ -73,7 +73,7 @@ I paused for a second and I turned my head towards her.
 
 "Now let's see here... Ah! There it is."
 
-The entry was titled "Green-Skin Disease." The drawing was spread across the two pages of the journal, showing what appeared to be an evolution of a sick man. It started with a picture of a shoulder with a deep, bleeding cut across it, noted as "entry point". That was Stage 0. An arrow pointed to the next picture, Stage 1 written over it. The drawing zoomed out of the shoulder, showing the figure of a normal looking man, scratching his shoulder. The location of the wound had two new scribbles: "green" and "flakey". The next arrow pointed towards a drawing of the same man, Stage 2. This time however, the man looked sick, having sunken eyes and visible bones. The scribbles pointed towards the man's skin, reading "greenish skin" and "yellow veins". After that, the arrow showed the man, barely a skeleton. Stage 3. His skin was noted as "entirely green" with the addition of the word paralyzed next to him. The final arrow pointed to the man, deceased. 
+The entry was titled "Green-Skin Disease." The drawing was spread across the two pages of the journal, showing what appeared to be an evolution of a sick man. It started with a picture of a shoulder with a deep, bleeding cut across it, noted as "entry point". That was Stage 0. An arrow pointed to the next picture, Stage 1 written over it. The drawing zoomed out of the shoulder, showing the figure of a normal looking man, scratching his shoulder. The location of the wound had two new scribbles: "green" and "flakey". The next arrow pointed towards a drawing of the same man, Stage 2. This time however, the man looked sick, having sunken eyes and visible bones. The scribbles pointed towards the man's skin, reading "greenish skin" and "yellow veins". After that, the arrow showed the man, barely a skeleton. Stage 3. His skin was noted as "entirely green" with the addition of the word paralyzed next to him. The final arrow pointed to the man, deceased.
 
 I found the imagery disturbing enough, but Ramirez went into detail.
 
@@ -89,7 +89,7 @@ Stage 3: This is the final stage of the disease. The spores begin attacking the 
 
 I have yet to discover a cure for the Green-Skin Disease. The only sure fire way of escaping is to remove the infected area of the body before it reaches the bloodstream. If it reaches the bloodstream, the kindest thing to do for the victim is to kill them painlessly, before they reach the final stage."
 
-My skin began to crawl after finishing the last sentence. I couldn't believe something this insidious could ever exist, but then again, a few months ago I couldn't believe any of this could possibly be real. 
+My skin began to crawl after finishing the last sentence. I couldn't believe something this insidious could ever exist, but then again, a few months ago I couldn't believe any of this could possibly be real.
 
 "Hey kid, found anything interesting?"
 
@@ -109,7 +109,7 @@ Marie was fully asleep, her head still on my shoulder.
 
 Matt began smiling. "John told me of your little plan with the rings."
 
-"Shhhh, quiet." I said, as I turned my head to Marie, making sure she was still asleep. 
+"Shhhh, quiet." I said, as I turned my head to Marie, making sure she was still asleep.
 
 "Don't worry, I've seen that girl. Doubt an earthquake would be able to wake her up."
 
@@ -117,7 +117,7 @@ Matt began smiling. "John told me of your little plan with the rings."
 
 "Is that so? Well, better wake her up so she can sleep in a more comfortable place."
 
-I woke Marie up and began leaving Matt and John to their watches. 
+I woke Marie up and began leaving Matt and John to their watches.
 
 "Hey Matt?" I asked, just before I exited the cart.
 
@@ -137,4 +137,6 @@ I woke Marie up and began leaving Matt and John to their watches.
 
 I left as soon as he said that, not wanting to be part of something I thought it might be quite unsightly. As I made my way to Marie, my mind was lost in thought again, trying to remember everything I read today. Because of that, I tripped on one of those metal poles people used to hold onto when the subway was busy, though now without purpose in this endlessly empty place. What caught my eye however was something I saw when I looked on the floor of the cart.
 
-Small, greenish-looking flakes. 
+Small, greenish-looking flakes.
+
+As I felt a sudden cold rushing throughout my body, it only took a few moments to understand what had happened. I knew I had to move quickly, hoping it wasn't too late.
