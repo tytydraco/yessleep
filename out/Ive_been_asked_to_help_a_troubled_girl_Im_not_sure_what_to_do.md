@@ -238,4 +238,4 @@ Now I sit at home, after having worked up the courage to re-enter my car. I have
 
 I don’t want to abandon a child in need. It goes against everything I stand for as a person. But I’m not sure I have what it takes to give Brynn the help she needs.
 
-Even now, my husband is making dinner in the kitchen behind me. I have to turn my back against him, because every time I see him from the corner of my eye, I notice his eyes are missing from his face
+Even now, my husband is making dinner in the kitchen behind me. I have to turn my back against him, because every time I see him from the corner of my eye, I notice his eyes are missing from his [face.](https://www.reddit.com/user/superiortea45/comments/123zms6/collection_of_my_works/?utm_source=share&utm_medium=web2x&context=3)

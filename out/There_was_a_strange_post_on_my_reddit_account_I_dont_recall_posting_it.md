@@ -1,10 +1,10 @@
-It's said that no matter what happens, the average person will experience multiple paranormal events in their lifetime. They might choose to ignore them or attempt to come up with a reasonable and alternative explanation for most of these events. However, at least once in their life there will be an alarming supernatural event or series of events that they experience. This time, they won't be able to simply ignore or explain them no matter how hard they try. 
+It's said that no matter what happens, the average person will experience multiple paranormal events in their lifetime. They might choose to ignore them or attempt to come up with a reasonable and alternative explanation for most of these events. However, at least once in their life there will be an alarming supernatural event or series of events that they experience. This time, they won't be able to simply ignore or explain them no matter how hard they try.
 
-The most recent of these events to happen to me involve an online account of mine. Specifically, this one. I noticed it this morning when I saw a post that was made on my account that I don’t ever remember posting. It seemed to imply a possible sinister force behind a string of recent abductions in my area. 
+The most recent of these events to happen to me involve an online account of mine. Specifically, this one. I noticed it this morning when I saw a post that was made on my account that I don’t ever remember posting. It seemed to imply a possible sinister force behind a string of recent abductions in my area.
 
-Sure, it could've been a hacker but no would gain anything from simply posting a weird SOS-like post on my account. I can't explain it as some sort of health issue as I don’t have any signs, medical history, or family history of memory-related disorders. When it comes to possible drug use as the cause, I'm clean and sober. 
+Sure, it could've been a hacker but no would gain anything from simply posting a weird SOS-like post on my account. I can't explain it as some sort of health issue as I don’t have any signs, medical history, or family history of memory-related disorders. When it comes to possible drug use as the cause, I'm clean and sober.
 
-Therefore, I should’ve remembered posting what I'm about to repost and yet I don’t. The original post was titled, “A former work partner sent me a strange email last night, now I fear for my safety.” I discovered the unknown yet vaguely familiar post this morning right after I woke up to a loud tune. It was my computer's low battery notification. 
+Therefore, I should’ve remembered posting what I'm about to repost and yet I don’t. The original post was titled, “A former work partner sent me a strange email last night, now I fear for my safety.” I discovered the unknown yet vaguely familiar post this morning right after I woke up to a loud tune. It was my computer's low battery notification.
 
 "Had I left my laptop unplugged? Why would I do that? Why can't I remember anything from last night?" Before I could ponder these questions any further, I had the sudden urge to vomit. I ran to the bathroom and for the first time since a horrible sickness I had in 2019, I puked.
 
@@ -90,8 +90,8 @@ I decided to do the only thing I could think of, post the document on reddit. Ho
 
 \-End of Original Post-
 
-As I’m reposting this on the web, there’ve been several local reports of people in my area going missing with no trace. It's likely that whatever "Cerridwen" is, It's responsible for the disappearances in my area and it's not human.
+As I’m reposting this on the web, there’ve been two additional reports of people going missing in my area with no trace. It's likely that whatever "Cerridwen" is, It's responsible for the disappearances in my area. Not only that but it's not human. It's something supernatural.
 
-“The first 10 of the missing people had received an email from an individual identified as \[\*\*\*\]. However, now people are going missing without having received any previous let-” I turned off the TV after hearing that. The local news had also been saying that some other people had been waking up with words stamped on their arms. Some of these people that had reported words stamped on their forearms have since gone missing as well.
+“The first ten people to have gone missing had received an email from an individual identified as \[\*\*\*\]. However, now people are going missing without having received any previous let-” I turned off the TV after hearing that. The local news had also been saying that some other people had been waking up with words stamped on their arms. Some of these people that had reported words stamped on their forearms have since gone missing as well.
 
 Either way, it's coming for me now and I know this for a fact. I say this because the light coming through my apartment windows has begun to dim considerably despite it still being mid-daytime with no clouds in sight. There are faint whispers coming from all around me and the lights of my apartment have begun to flicker and turn off. I feel like this isn't the first time this has happened.
