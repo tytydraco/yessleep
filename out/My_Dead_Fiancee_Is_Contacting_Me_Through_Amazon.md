@@ -1,4 +1,4 @@
-I know how this sounds. Your dead fiancee is contacting you.... not over a oujia board or a spirit box... but Amazon?! C'mon now!
+I know how this sounds. Your dead fiancé is contacting you.... not over a oujia board or a spirit box... but Amazon?! C'mon now!
 
 Please, just hear me out. I don't know who I could turn to in my real life relationships. 
 
@@ -20,7 +20,7 @@ Again, I understand you are still confused.
 
 Now, with some back story, I can explain.
 
-My fiancee (Mitch) and I were high school sweethearts. After college, we made two big decisions: to move in together and to share an Amazon account.  Both turned out to be some of the best decisions of my life. 
+My fiancé (Mitch) and I were high school sweethearts. After college, we made two big decisions: to move in together and to share an Amazon account.  Both turned out to be some of the best decisions of my life. 
 
 Living together was magical. Mitch started adding things to our cart on our joint Amazon account that he wanted for our home. I'd go into the app, see multiple items he was ready for me to look at and purchase if I, too, approved.
 

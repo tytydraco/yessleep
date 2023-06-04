@@ -26,7 +26,7 @@ Which made it hurt even more.
 
 It was definitely a shock discovering she was still alive after all these years, and seeing how she was treated only added salt to the wound. I was grieving, yes, but the killer mentioned that my sister would only be the beginning, and so solving this case would be my utmost priority. I couldn't let this happen again. True grief could come later.
 
-And so I sat in my office, sliding her my sister's watch over my wrist, and milling over these facts, with the first step to discovering the killer currently in my hands. A day after the killings occurred, a birthday card containing an address was mailed directly to me. Forensic work indicated that the handwriting on it perfectly matched the note left at the crime scene.
+And so I sat in my office, sliding my sister's watch over my wrist, and milling over these facts, with the first step to discovering the killer currently in my hands. A day after the killings occurred, a birthday card containing an address was mailed directly to me. Forensic work indicated that the handwriting on it perfectly matched the note left at the crime scene.
 
 While getting a hand written birthday card was interesting in itself, it still raised a lot more questions. How did the killer know I took up the case? Where they at the crime scene that night? Maybe they knew it was my sister that they had killed, and were now targeting me.
 
@@ -34,7 +34,7 @@ As usual, nothing made sense.
 
 But still, an address was an address. And in my line of work, you take notes like that very seriously. I thumbed over the birthday card again, looking at the cartoon giraffe telling me to have a 'tall'some day. Yeah, birthday card puns are strange. I analyzed the address inside again, looking at the word *12 Baker St*, as if they may have some hidden meaning that I hadn't discerned yet.
 
-Nothing came to me. It looked like the address was just that, an address. And so I coordinated with my supervisor to lead a team that evening down at Baker St, to see if we could anything down there. I was secretly hoping that we wouldn't, and that this was just a wild goose chase. As I was terrified of what I would find down there, if that was not the case.
+Nothing came to me. It looked like the address was just that, an address. And so I coordinated with my supervisor to lead a team that evening down at Baker St, to see if we could find anything down there. I was secretly hoping that we wouldn't, and that this was just a wild goose chase. As I was terrified of what I would find down there, if that was not the case.
 
 Later that evening, I showed up at 12 Baker Street with three of the finest men I knew. Thompson, a mountain of a man, who I knew firsthand could keep a level-head in any situation. Ramirez, not physically impressive as Thompson, but he had the brains to make up for it, his quick wit was known to save many a cop from danger. And Eddison, an analyst both in the field and out, he somehow finds a way to keep one eye on every detail.
 
