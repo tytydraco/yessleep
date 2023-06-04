@@ -68,7 +68,7 @@ Redwood? I thought.
 
 Like… Camp Redwood?
 
-Rowan whistled behind me. I guess I could call that a reaction. The guy was probably still in shock after seeing Café de Teddy splattered all over little Cassie’s cabin floor. I should have fucking know those little bitches weren’t playing Operation for eight hours straight. Turning my attention from Rowan and back to the screen, the woman in the jumpsuit appeared to have changed tactics. Her expression twisted into nonchalance. She leaned back in her chair. “I am not pleading insane because I am not insane.”
+Rowan whistled behind me. I guess I could call that a reaction. The guy was probably still in shock after seeing Café de Teddy splattered all over little Cassie’s cabin floor. I should have known those little bitches weren’t playing Operation for eight hours straight. Turning my attention from Rowan and back to the screen, the woman in the jumpsuit appeared to have changed tactics. Her expression twisted into nonchalance. She leaned back in her chair. “I am not pleading insane because I am not insane.”
 
 “Mrs Summers—”
 
