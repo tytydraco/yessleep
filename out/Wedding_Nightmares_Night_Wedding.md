@@ -294,7 +294,7 @@ Then they motioned for me to feed her.
 
 I dipped my spoon again. And awkwardly raised it towards her. Slipping it under her veil to where her lips would be. Pretending to feed her.
 
-Now I watched them put this thing together. Besides the creepy hair and the swabbing cloth for a veil. It was nothing more than cloth and stuff. I knew this.
+Now I watched them put this thing together. Besides the creepy hair and the swaddling cloth for a veil. It was nothing more than cloth and stuff. I knew this.
 
 At least that was what I thought until I heard it chew.
 
