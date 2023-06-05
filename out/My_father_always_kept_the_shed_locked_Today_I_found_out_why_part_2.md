@@ -215,3 +215,6 @@ Part of me wondered if the stairs were even here, or if we had been lied to, sen
 
 
 But at this point, we had nowhere else to go but forwards.
+
+
+Part 3: https://www.reddit.com/r/nosleep/comments/141o1g3/my_father_always_kept_the_shed_locked_today_i/
