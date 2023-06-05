@@ -342,7 +342,7 @@ My new bride pushed herself off me as we entered the threshold, and sprawled her
 
 We both shot our eyes to the door and then at the table side where the clock blared at us an angry red of 3:13.
 
-Larissa looked up at me with a horrified look. I could see her bottom lip quivering.
+Larissa gave me a horrified look. I could see her bottom lip quivering.
 
 "Hello," I called out. With my back to the door. "Sam? Bobby?" But no one answered. "Room service?"
 
