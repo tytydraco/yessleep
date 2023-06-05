@@ -180,7 +180,7 @@ It was the same impact as the toy car hitting me, snapping me back to that night
 
 My parents stood in front of me with expressions of sympathy. Basked in warm light, my mom and dad looked almost otherworldly. “For the best.” Was what they mouthed when my own phantom screams slammed into me. I asked them why, and they didn’t reply, allowing him to pull me further and further from what I knew, from my life as I knew it. But.. that couldn’t be real. I had memories of getting on the bus to camp Redwood. I could recall the whole journey. So, why… why was my tangled mind saying otherwise?  
 
-When I gathered myself, the first thing I realized was I was sitting down. I was outside, cool night air grazing my bare arms. There was something attached to me, jerking violently, And it took me several disorientating blinks to understand that I was tied back to back with Rowan. My head pounded, and something wet and warm dripped down my temple. Great. I could add head injury to the long list of things to worry about.
+When I gathered myself, the first thing I realized was I was sitting down. I was outside, cool night air grazing my bare arms. There was something attached to me, jerking violently, And it took me several disorienting blinks to understand that I was tied back to back with Rowan. My head pounded, and something wet and warm dripped down my temple. Great. I could add head injury to the long list of things to worry about.
 
 “Let me go you little fucking witch.”
 
