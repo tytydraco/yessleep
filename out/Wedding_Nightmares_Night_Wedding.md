@@ -6,7 +6,7 @@ It's not an easy thing for a bride to swallow:  juggling food prep, alterations,
 
 So when my fiancee asked for an explanation. I had to tell her the truth no matter how terrible it sounded. It wouldn't feel right knowing that the precursor to our marriage was a lie.
 
-"Is it kids? Oh God, do you have a little Jimmy running around somewhere? No, Jim. I can't handle this right now."
+"Is it kids? Oh God, do you have a little Jimmy running around somewhere? No, Jim. The wedding is in 13 more days. I can't handle this right now."
 
 "Lars, what? No. It's not a kid."
 

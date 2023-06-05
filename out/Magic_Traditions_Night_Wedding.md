@@ -1,12 +1,12 @@
 I recently came across a post about an [expat who participated in a night wedding.](https://www.reddit.com/r/nosleep/comments/13zxeq5/wedding_nightmares_night_wedding/) After reading the accounts I began to do research on my own. Not because I believe in any of that stuff. I'm a magician after all. Illusion is my bread and butter. And I can detect trickery better than most. Which in my line of work has its benefits. But old traditions are the best places to pick up new techniques. Old ways that are new to others that delight and even scare people. Because, if I can make them afraid. Make them look away. For even a second. I can pull off some astounding magic.
 
-My gig at the cruise line was coming to an end as we neared the port of Shanghai. And for my last several shows, where I'd normally start to include my greatest tricks in order to leave a lasting impression. I developed a new act that I called "The Sneaky Bride", it involved a mannequin in a wedding dress, a beautiful train, veil, flowers on the ground - the whole nine yards some would say. The trick was that the bride would sneak bites as my assistants who are dressed as servers pass by with their trays.
+My gig at the cruise line was coming to an end as we neared the port of Shanghai. And for my last several shows, where I'd normally start to include my greatest tricks in order to leave a lasting impression. I developed a new act to showcase instead and I called it "The Sneaky Bride", it involved a mannequin in a wedding dress, a beautiful train, veil, flowers on the ground - the whole nine yards some would say. The trick was that the bride would sneak bites as my assistants who are dressed as servers pass by with their trays.
 
 I begin the trick by placing a mannequin center stage for all to see so that they know it's a dummy. I show them there are no holes, and the entire thing is solid. Then we dress it up and set the stage for a wedding. And with a bit of lighting, another assistant switches places with the mannequin and is being fed under the veil. We later changed it to more slight of hand techniques as the assistant complained she wasn't able to chew fast enough as the items of course have to get larger and larger for comedic effect.
 
 At the end we even invited the unmarried men up to the stage and then threw out a fake bouquet, and watched them clamber over each other in good fun to catch it. The act was an instant hit and had the crowd roaring every night. Which was why I decided to take a firsthand look at the original, and see if there were any other staging techniques I could learn from this old tradition.
 
-With some help from Bing and its ChatGPT features I was able to get a relatively good idea of where it was practiced. So I booked the next flight out to begin my quest for a real night wedding.
+After some research online, I was able to get a relatively good idea of where it the tradition was still practiced. So I booked the next flight out to begin my quest for a real night wedding.
 
 Upon arrival at my hotel, I asked the concierge for information about the local practice.
 
@@ -46,7 +46,7 @@ The monk shows me the two sides, one was smooth and flat, the other side rounded
 
 The monk nodded.
 
-"Will I..."
+"Am I a good..."
 
 "Ah ah ah, in silence."
 
