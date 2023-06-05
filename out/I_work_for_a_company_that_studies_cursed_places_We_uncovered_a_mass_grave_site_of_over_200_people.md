@@ -1,6 +1,6 @@
 My name is Canopy Hydrangea. I recover cursed artifacts, explore haunted places, and report back the information needed to the people I work for. The Company then arranged what has to be done to remove these blemishes from the world.
 
-If it isn't possible, we make sure the evil of cursed artifacts and bizarre places doesn’t make it’s way to the general public. 
+If it isn't possible, we make sure the evil of cursed artifacts and bizarre places doesn’t make it’s way to the general public.
 
 But sometimes, it’s important to leak a report or two to the unsuspecting public. Makes for a good warning- and this particular file is one of many that must be known.
 
@@ -8,7 +8,7 @@ But sometimes, it’s important to leak a report or two to the unsuspecting publ
 
 I sighed and took the pen that was attached to the pad. “Of course I have clearance,” I said. “I’m the one supposed to be in charge of this damn operation.”
 
-He looked at me in confusion. So did I. I was told by the Company’s board members this specific location was assigned to me. And yet, my team was clearly not the first ones there. 
+He looked at me in confusion. So did I. I was told by the Company’s board members this specific location was assigned to me. And yet, my team was clearly not the first ones there.
 
 This wasn’t what we were promised. Not by a long stretch. “I was told Varaluz was in charge.” he pointed over to a bulkier man in camouflage gear, director agents of the Company around the dig site.
 
@@ -50,11 +50,11 @@ In the center of the squares was a small ruin, a large jutting cylinder with a d
 
 Varaluz, the internal security inspector, awaited me there. “Canopy,” he greeted, extending a hand. He peered into the staircase, holding out strong, twisted rope. “We’ve got four assets who’ll be out just about-” a man, panicked, rope attached to his waist scrambled out, hyperventilating.
 
-He was in standard prison garb. As usual- we often used death row prisoners to explore new, dangerous territory. 
+He was in standard prison garb. As usual- we often used death row prisoners to explore new, dangerous territory.
 
 He started to ramble about a shape in the darkness, and something about pages and a book. “Sir,” asked a woman, placing the man under handcuffs. “What should we do with him?”
 
-“Remove him,” Varaluz ordered. 
+“Remove him,” Varaluz ordered.
 
 She looked at both of us, puzzled. “Like, kill him?”
 
@@ -66,13 +66,13 @@ Memory extraction was something I hated to see. A needle laced with symbols and 
 
 The prisoner would then develop amnesia for a while, but that was no issue. The prisoners we worked with for these excursions were often terrible, irredeemable people.
 
-Varaluz and his team informed me of what they had discovered, just as three Company agents entered the depths, rope tied along their waists. 
+Varaluz and his team informed me of what they had discovered, just as three Company agents entered the depths, rope tied along their waists.
 
 The staircase was seemingly endless, according to two other excursion teams they had sent into the depths.
 
 The first team had only been equipped by a radio and led by an agent of the Company, but after an hour dropped from radio contact. After another hour, they should have returned- yet they had vanished into the depths.
 
-A rescue operation was made- equipped with rope, Varaluz sent in a team of prisoners led by a more experienced agent into the depths. 
+A rescue operation was made- equipped with rope, Varaluz sent in a team of prisoners led by a more experienced agent into the depths.
 
 Oddly enough, the initial agent leader stumbled back out, informing us the passage had shifted, and they had across a labyrinth underneath the entire dig site- some sort of temple.
 
@@ -82,7 +82,7 @@ This active entity, according to the survivor, seemed to work in tandem with the
 
 The last simply faded, and that was when the agent started to evacuate.
 
-The rescue team came back, fully intact. They hadn’t encountered nay such temple, merely more of the same: staircases, illuminated by the light to be made of bone. 
+The rescue team came back, fully intact. They hadn’t encountered nay such temple, merely more of the same: staircases, illuminated by the light to be made of bone.
 
 Subsequent testing informed us the bones were human.
 
@@ -94,7 +94,7 @@ I retreated to a machine the rope was connected to and selected a button labeled
 
 The machine started to creak, and the bulky thing began to move against itself. “Security!” Varaluz ordered. “Get the hell over here- now!”
 
-That’s when the line loosened and pulled back, and blood came flying from the abyss. Two bodies- no- a torso and a set of legs, rope still attached flew out, nearly splattering us with blood. 
+That’s when the line loosened and pulled back, and blood came flying from the abyss. Two bodies- no- a torso and a set of legs, rope still attached flew out, nearly splattering us with blood.
 
 A man came running out, splattered in the blood of his friends. “There’s something down there-” he said it with such fear I started what lurked in the shadows, “it- it was like those bones!”
 
@@ -114,15 +114,15 @@ My eyes lit up. “Can we get a priest?” The sooner we could remove the undead
 
 She sighed and pointed to the outskirts, where a rather fancy motorcycle had arrived. “It’s Quincy Kieni.”
 
-Quincy Kieni was a rather eccentric figure in the cursed artifact black market. He was both an asset, working for us, telling us the details of when a major deal would go down- and an enemy. 
+Quincy Kieni was a rather eccentric figure in the cursed artifact black market. He was both an asset, working for us, telling us the details of when a major deal would go down- and an enemy.
 
-His faith to Calayu, the Salamander King made him have so called ‘prophecies’ over when to help us and when to suddenly disappear off the grid. 
+His faith to Calayu, the Salamander King made him have so called ‘prophecies’ over when to help us and when to suddenly disappear off the grid.
 
-I made a noise somewhere between a grunt and a sigh of annoyance. “Of course it’s him.” I watched as the man with black tinted glasses and fiery red hair waltz about the gravesite, raising his hands up and dancing. 
+I made a noise somewhere between a grunt and a sigh of annoyance. “Of course it’s him.” I watched as the man with black tinted glasses and fiery red hair waltz about the gravesite, raising his hands up and dancing.
 
-Within the hour my team was ready. 
+Within the hour my team was ready.
 
-I, Canopy Hydrangea would lead them in, coordinate our actions. My expertise in psychically sensing the bizarre would come in handy, if it need be, and the few spells I’d learned. 
+I, Canopy Hydrangea would lead them in, coordinate our actions. My expertise in psychically sensing the bizarre would come in handy, if it need be, and the few spells I’d learned.
 
 Then there was Rainie- my assistant, who had reviewed the tapes and studied all too many places similar to this. Of course, there was Kyran, my main security guy, and today, we would be joined by the rather annoying Quincy.
 
@@ -154,9 +154,9 @@ Quincy ordered another stop, and chanted- and a wall beside us faded away, revea
 
 I noted the images and statues, “And I think I know who built this place.”
 
-Satyrs. The statues were satyrs, half-man half-goat creatures spotted throughout mythology and ancient times. We knew them, life many other of the ancient kinds, to be extinct. 
+Satyrs. The statues were satyrs, half-man half-goat creatures spotted throughout mythology and ancient times. We knew them, life many other of the ancient kinds, to be extinct.
 
-Long dead. But the statues of the Satyrs here seemed different, more human than beast somehow. They lined the hall, facing away from us, bowing to a large statue of a salamander, an eternal flame still burning within its mouth. 
+Long dead. But the statues of the Satyrs here seemed different, more human than beast somehow. They lined the hall, facing away from us, bowing to a large statue of a salamander, an eternal flame still burning within its mouth.
 
 “Look!” Kryan commanded, raising his gun. A machine, moving as if it were alive, appeared in the distance. “It looks just like those bones.”
 
@@ -172,9 +172,9 @@ Quincy put the flames out and handed the warm pages to me. This was powerful alr
 
 “Now,” Quincy murmured, “I don’t want to alarm you, but-” the walls started to creak, and they began to slowly move downwards, threatening to crush us, “we are at risk of immediate death.”
 
-We ran out of the temple and back on the stairs, which were now starting to shake, and crumble. Quincy quick-casted some spell, and we ran, tugging on the rope. 
+We ran out of the temple and back on the stairs, which were now starting to shake, and crumble. Quincy quick-casted some spell, and we ran, tugging on the rope.
 
-Varaluz, despite my opinions towards him, was skilled, effective, and he activated the machine pulling us in, just as the steps collapsed. The rope hung in midair, slowly drifting upwards. 
+Varaluz, despite my opinions towards him, was skilled, effective, and he activated the machine pulling us in, just as the steps collapsed. The rope hung in midair, slowly drifting upwards.
 
 By the end of the hour we were out. I gave Varaluz the details. The mass grave had completely been excavated, and all the skeletons sent to facility deep within the clutches of the Company.
 
@@ -187,5 +187,11 @@ That, I assume, was where the real treasures were hiding.
 But that isn’t my business. The initial first contact was made, the fears within stabilized. My job there was done; another day was complete. The unexplained was eliminated, and I was ready to move on another excursion.
 
 The world is filled with places like these. And I’m just one of many who work to keep these hidden away. We keep the public safe. It’s what we do.
+
+&#x200B;
+
+[House of Tongues](https://www.reddit.com/r/nosleep/comments/141n12x/i_work_for_a_company_that_studies_cursed_places/)
+
+&#x200B;
 
 [but flip a coin.](https://www.reddit.com/r/nosleep/comments/13w1qwy/i_volunteered_for_an_expedition_to_get_off_death/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
