@@ -240,3 +240,5 @@ I know I have a lot going on in my life right now, but Lord, am I grateful that 
 [20: olms and Jewels](https://www.reddit.com/r/nosleep/comments/13x0lkh/stuck_on_earth_and_looking_for_a_job_olms_and/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [21: long hair](https://www.reddit.com/r/nosleep/comments/13y46jo/stuck_on_earth_and_looking_for_a_job_my_indie/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[23: waitresses](https://www.reddit.com/r/nosleep/comments/14130iz/stuck_on_earth_and_looking_for_a_job_theres_more/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
