@@ -349,3 +349,9 @@ Larissa looked up at me with a horrified look. I could see her bottom lip quiver
 \*dak dak\*
 
 \*dak\*
+
+&#x200B;
+
+&#x200B;
+
+edit: I've received word from [a traveling magician about night weddings](https://www.reddit.com/r/nosleep/comments/1410n9l/magic_traditions_night_wedding).
