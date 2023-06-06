@@ -233,3 +233,5 @@ I couldn't help but smile at that. Letting him pull me to my feet, I briefly wen
 [21: long hair](https://www.reddit.com/r/nosleep/comments/13y46jo/stuck_on_earth_and_looking_for_a_job_my_indie/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [22: recruitment](https://www.reddit.com/r/nosleep/comments/13zmo6y/stuck_on_earth_and_looking_for_a_job_im_being/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[24: dollhouse](https://www.reddit.com/r/nosleep/comments/142estj/stuck_on_earth_and_looking_for_a_job_were_burning/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
