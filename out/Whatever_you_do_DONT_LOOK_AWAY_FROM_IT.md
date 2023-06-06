@@ -301,4 +301,4 @@ That’s it, that’s the recording. It’s very disturbing to me. If only you c
 
 The police haven’t been back in contact as I write this, and I’m not expecting them too either. 
 
-The woman mentioned her mother in the recording, I might try and find her. Tell her what I found, just in case the police don’t believe it.
+The woman mentioned her mother in the recording, I might try and find her. Tell her what I've found, just in case the police don’t believe it.

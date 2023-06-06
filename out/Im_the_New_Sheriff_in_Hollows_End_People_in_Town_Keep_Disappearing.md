@@ -236,6 +236,8 @@ A second later it spotted us and began to race toward us with murder in its eyes
 
 "Hop in," Randy yelled shifting over into the passenger seat.  "Come on man, get away from that thing.  Whatever it is, it looks [PISSED!"](https://www.reddit.com/r/JGcreepypastas?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
+[Next](https://www.reddit.com/r/nosleep/comments/142tkdw/im_the_new_sheriff_in_hollows_end_monsters_are/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
 [YT](https://youtu.be/rumiJJyA2FM)
 
 [TCC](https://www.reddit.com/r/TheCrypticCompendium?utm_medium=android_app&utm_source=share)
