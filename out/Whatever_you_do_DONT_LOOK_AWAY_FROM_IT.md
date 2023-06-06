@@ -1,3 +1,31 @@
+I recently moved into a new house in a quiet Suburban area. I’m not going to say where because it’s had it’s fair share of media coverage, and teens showing up at night trying to get a glimpse inside the infamous house.
+
+It had been on the market for three-years, and I secured the house at a much cheaper price due to the fact that two people had been found murdered there.
+
+The mystery and brutality of the murders catapulted the story into the local news. No specific details were released to the public, and I only found out about it because a friend of mine is a local realtor with connections.  
+
+Nobody was ever arrested for the murders. A male in his thirties was found in the living area, and a female in her thirties was found barricaded in the basement. Another mysterious fact was that the woman had barricaded herself in from the inside, in a desperate attempt to stop someone or something from getting in. 
+
+Yesterday whilst doing some cleaning in the basement, I came across a cell phone that had fallen down a gap behind the washing machine and the wall.
+
+And there’s a voice recording on it.
+
+Recorded the same night of the murders by the female victim. And, It’s pretty terrifying. I’ve already handed it into the police, but I made a transcript of the recording.
+
+What you are about to read is the unedited transcript of the cell phone recording found in the basement. 
+
+I have to admit, it’s extremely disturbing. The desperation in her voice will haunt me forever. 
+
+Here goes.
+
+“If you’re hearing this, please, please, please give it the police. My husband is dead, it killed him. I’m so sorry Scott.
+
+I can hear it now, upstairs, looking for a way in, and it’s only a matter of time before it finds one.
+
+I’ve barricaded myself in the basement and I’ve got my eyes on the only door, one way in one way our.
+
+You see, it can’t move if you’re looking at it. 
+
 It began twelve weeks ago.  The night Scott, my childhood sweetheart and husband of five-years confessed that he’d had a drunken one-night stand on his bachelor party in Europe.  The apparent guilt had consumed him for the past five-years, and his sudden urge to be truthful was due to the fact we were due to get married this same year. 
 
 His words hit me like a freight train, and the urge to vomit washed over me like a tsunami.  I stormed out of the house, our house that we’d bought together twelve-years prior.  I felt like the world had swallowed me whole, and in a way, it had. 
@@ -266,4 +294,11 @@ Three.
 
 Two.
 
-One.
+One”
+
+
+That’s it, that’s the recording. It’s very disturbing to me. If only you could hear her voice. She was terrified. 
+
+The police haven’t been back in contact as I write this, and I’m not expecting them too either. 
+
+The woman mentioned her mother in the recording, I might try and find her. Tell her what I found, just in case the police don’t believe it.
