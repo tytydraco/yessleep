@@ -71,3 +71,5 @@ It's definitely him. I even found an old family photograph and compared it to hi
 My wife thinks I'm overreacting. It's just some dog that happens to look exactly like him. But the way he was looking at my son, that everyone always thought was protective, it's the same exact way he used to look at me. 
 
 I think there is something evil in that dog, and I don't want my son raised with an animal like that.
+
+[Part 2] https://www.reddit.com/r/nosleep/comments/141y0x1/my_childhood_dog_showed_back_up_at_my_house_after/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button
