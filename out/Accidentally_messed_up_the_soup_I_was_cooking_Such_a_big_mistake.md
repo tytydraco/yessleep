@@ -1,0 +1,18 @@
+
+
+I was panicking when suddenly I cut my finger. I watched in horror as the blood from my finger dropped on the soup I was cooking. Holy, holy, holy, now, what am I supposed to do? I have very little time. My Teacher came in and asked if the soup is ready, me and my classmates take turns to cook for lunch. Principal found this fun and wanted to see how well we can cook. I said "well, almost." T: how long till then? He said, I replied "never mind, it's ready" P: good, I'll go serve this now. He said, I'm panicking, hoping they wouldn't notice, I mean, it's just a drip right? I went outside nervous, to my relief they praised my cooking. 
+
+
+P: wow Eve, this is delicious T: she's right, this is amazing. I can finally breath, well at least they liked it. I went home and was greeted by my parents. M: welcome home, dear, what would you like for supper? D: hey, kiddo, how was school? Wow, this is surprising. My Parents never would greet me like this. They play favorites and my Parents favorite isn't me, it's my twin sister they love and favor all the time. After supper I went to bed finally, it's Friday and I'm exhausted thank goodness there's no school tomorrow. The sun hit my eyes and I woke up, went to the bathroom brushed my teeth and went down for breakfast. "Hey, mom what's for breakfast?" No reply "uhh mom?" M: yes, sweetie? "What's for breakfast?" M: you "what?" M: you "mom, stop acting weird" M: you.
+
+
+ I was weirded out and I was about to open the front door when suddenly my sister  Ava blocked me. "What are you doing?" A: where are you going? "Outside?" A: why? We're hungry "so? That's not my fault, mom didn't cook anything" A: we were planning to eat raw meat. "That's weird" D: I can't take it anymore! Grab her! Standing there confused, they grabbed me and put me on the kitchen table. Then Ava grabbed some rope and started to tie me. I was screaming then they started to eat my leg. "Help! Help me!" Bawling and begging for them to stop, but they instead pretended like they didn't hear me. Thankfully my neighbor barged in the front door and freed me. 
+
+
+She was escorting me out the house and was about to call an ambulance then...... N: *stomach growls* your leg "please, my leg is almost gone! They ate it! Please call the ambulance" I was sure that I'm safe with her but no. She then tried to eat me too. "What are you doing?" She ignored me. I grabbed a rocked and smashed her head, she passed out. Then I started screaming for help crawling, I can't walk due to my leg bleeding. I passed out and thankfully a firefighter found me and brought me to a hospital. When I woke up he asked how I was feeling. I was scared that he'll try to eat me too but thankfully he didn't.
+
+
+ I said my leg was a bit numb and he broke a horrifying news to me. F: sorry kid, your leg lost so much blood and you were passed out for a long time it was too late. Worms, flies and bugs started to crawl in your leg. They had to amputate it. As I processed this I lifted the blanket and saw that my right leg was gone. I cried, the firefighter tried to comfort me and asked me what happened and I told him everything. He was shocked, who wouldn't be? 
+
+
+He asked how my neighbor went from nice to a psychotic cannibal. Then it hit me, the drop of blood, the vent above the stove, the steam, the vapor must have escaped through the vent and spread around the city. I tried to tell him that and he said that we'll get them arrested first. He called the police and they arrived and started asking me questions. I felt so relieved to finally be safe but then, they handcuffed me and the police shouted. "Dig in"

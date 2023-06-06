@@ -54,9 +54,9 @@ And when no one did, I finally scooped it up and untied it. To my surprise, the 
 
 I couldn't believe how my luck had changed. I flipped through the cash and realized that there was enough to fund my trip for a few extra weeks. AND get me a plane ticket back home. The jewelry even, seemed sizeable.
 
-There I was in one of the lowest, darkest moments. And a pot of gold seemingly dropped out of the sky for me. Thoughts of finding its real owner never even occurred to me.
+There I was in one of the lowest, darkest moments of my life. And a pot of gold seemingly dropped out of the sky for me. Thoughts of finding its real owner never even occurred to me.
 
-I was quickly pocketing the thing and planning to high tail it out of there when a frail old man approached me from the shadows. Now I had learned some of the language before hand, but I couldn't understand what he was saying.
+I was quickly pocketing the thing and planning to high tail it out of there when a frail old man approached me from the shadows. Now I had learned some of the language beforehand, but I couldn't understand what he was saying.
 
 He kept smiling though and patting my shoulder, spouting words so quickly that if they weren't already gibberish to me, they would still make no sense in my drunken state.
 
@@ -148,7 +148,7 @@ Su-ru Yen
 
 3:13
 
-I stopped reading and glanced back up at the clock. The little kids words reaing in my ear. "She comes at her death hour."
+I stopped reading and glanced back up at the clock. The little kids words rung in my ear. "She comes at her death hour."
 
 I waited, not realizing that I was holding my breath until I felt my lungs start to burn.
 
@@ -168,7 +168,7 @@ I was shaking in my bed, too afraid to move or answer the door.
 
 \*dak dak\* \*dak dak\* \*dak\*
 
-It went on like this a full 4 minutes before it stopped. WHen it had finally stopped I tried getting out of bed, but I couldn't. For a second I was afraid to look down, afraid that her hand would be there holding me in place so that we could elope.
+It went on like this a full 4 minutes before it stopped. When it had finally stopped I tried getting out of bed, but I couldn't. For a second I was afraid to look down, afraid that her hand would be there holding me in place so that we could elope.
 
 But it was just my hand clenching the bed sheets so tightly that I couldn't budge. I had to use my other hand to pry my own fingers off in order to creep slowly to the door and look into the eyehole.
 
@@ -186,7 +186,7 @@ I felt the familiar twinge in my chest and my body was numb all over. But this t
 
 \*dak dak\* \*dak dak\* \*dak\*
 
-I tried gettoung out of bed but I couldn't. I was too scared. Several times I glanced from the clock to the door. Afraid to take my eyes off the door for too long, afraid that she would come through it if I did. Afraid that I would miss her and she would haunt me forever. And as the clock started ticking down. I kept whsipering myself. "She's only here for four minutes. She's only here for four minutes." And it was almost 3:17.
+I tried get out of bed but I couldn't. I was too scared. Several times I glanced from the clock to the door. Afraid to take my eyes off the door for too long, afraid that she would come through it if I did. Afraid that I would miss her and she would haunt me forever. And as the clock started ticking down. I kept whispering myself. "She's only here for four minutes. She's only here for four minutes." And it was almost 3:17.
 
 Seconds before the clock changed I jumped out of bed. Determined to end this thing once and for all.
 
@@ -196,7 +196,7 @@ I didn't have time to look through the door. Even if I did I was afraid if I saw
 
 There was no one there.
 
-But then from my corner cornea, something caught my eyes. A trail of something translucent was dragging away. I tried to take a step after it but my first step out of the door stopped me dead. My foot was drenched wet and it felt sticky beneath my sock. The coldness of it traveled up my spine, and to this day I can only describe it as the feeling of something metal scraping across my vertebrate. By the time I looked up, the wisps were gone. ANd the trail it left behind was already drying.
+But then from my corner cornea, something caught my eyes. A trail of something translucent was dragging away. I tried to take a step after it but my first step out of the door stopped me dead. My foot was drenched wet and it felt sticky beneath my sock. The coldness of it traveled up my spine, and to this day I can only describe it as the feeling of something metal scraping across my vertebrate. By the time I looked up, the wisps were gone. And the trail it left behind was already drying.
 
 That night I couldn't sleep a wink. I waited until morning came and took to the streets. Desperate to find the old couple's house. Stopping several times to ask for directions and circling around streets and street signs that I couldn't read until I heard a familiar voice.
 
