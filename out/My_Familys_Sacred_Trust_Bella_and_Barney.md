@@ -1,4 +1,6 @@
-Part 1
+TW/Animal Abuse
+
+&#x200B;
 
 After seven years, I was still disgusted. I waited for my dad to call me to do the dreaded chore. I sighed, as I lay in bed and halfheartedly played with my phone. He was preparing a concoction that had such vile ingredients it was done in the basement. On the floor of my bedroom, Bella and Barney, our Australian Sheep Dogs stretched out, panting softly.   
 A text message interrupted my scrolling.  
@@ -40,4 +42,49 @@ During fourth period English, I was busy writing an essay when the vice principa
 I looked up, glanced over at my teacher whose face looked pale and concerned. She nodded and waived her hand for me to go.  
 “Sure,” I said.  
 We walked into his office, and he gestured for me to take a seat in front of his desk.  
-“Your father’s jobsite called us,” he said gravely. “There’s been an accident…”
+“Your father’s jobsite called us,” he said gravely. “There’s been an accident…”  
+A shock went through me, and I grabbed the chair’s armrests as I felt my body tremble and bile rise in my throat.   
+“Is he okay?” I gasped.  
+“He’s been transported to the hospital,” the vice principal said, his face grave. “I talked to your teachers. Get your things we called an Uber to take you to him.”  
+I nodded, my head feeling light, and nausea rising. I tried to stand up, but lost my balance. The vice principal reached across the desk and steadied me. I looked up at him gratefully and left the room to go to my locker. The bell rang, and kids started to nosily fill the hallways. In a daze, I bumped into someone.  
+“Watch out there, Audrey!” said Martin as my shoulder met his chest.   
+I stumbled backwards, and he gently grabbed my arms so I would not fall. “Hey, you look like you’ve seen a ghost,” he said. “What’s wrong?”  
+“M-my father…” I stammered. “He’s been in an accident at work. I have to go to the hospital.”  
+Martin’s eyes widened, his mouth slightly opening. Then his eyebrows lowered in concern.  
+“Oh god, I am so sorry,” he said. “Is there anything I can do for you?”  
+“Yes,” I said, as I remembered my dogs. “Can you ride your bike over to my house after school? I will give you the house key. Please let Bella and Barney out, they have been in all day.”  
+He nodded, then followed me to my locker. I got my backpack and fished out the key. He took it from me and gave me a quick hug. I felt the contact settle my fluttering heart a bit. Then I made my way to the front steps of the school. A few minutes later I was in the backseat of an Uber, on my way to the hospital. The ride felt surreal, and the beating of my heart filled my ears. I could not feel the passage of time, it felt interminable as my head filled with fearful thoughts.   
+Finally, the Uber stopped, in front of the large grey and white, sprawling complex of Memorial Hospital. I got out and went inside to the front desk.   
+“I’m here to see Leonard Klein,” I told the woman who looked up to me from her computer.   
+“And you are?” she said.   
+“Audrey Klein, his daughter.”  
+She gave me a sign-in sheet and started typing on her computer. “He’s in ICU, 3rd floor.”  
+I gulped, a tremor going through me. Then I nodded and headed to the elevator.  
+On the 3rd floor, a nurse brought me over to a curtained off area. “He’s stable for now,” she said. “But he needs to rest.”  
+The curtain swished open, and I gasped, tears clouding my vision at what I saw. My dad lay in the hospital bed, his right leg and arm in a cast. His head was swaddled in heavy bandages, and his face was puffy and purple.   
+“Dad, I’m here,” I said, the words coming out with a squeak.  
+His eyes cracked open and darted over to where I stood. I walked over to him and rested my hand on the arm without the cast.   
+“Audrey,” he whispered. “I need to tell you something important.”  
+“Can it wait?” I said. “Maybe you should not be talking, the nurse said you need to rest.”  
+“No, it can’t,” he said softly. “Get my keys from my jacket pocket, I think they left my clothes here somewhere.”  
+My eyes darted quickly around the curtained off space, and found his clothes on a chair, his beige jacket folded on top. I grabbed his ring of keys in a side pocket and brought them over to him.   
+“You see the silver key stamped with an S?” he said.  
+I fumbled with the keys in my hands, until I found the one matching his description. I showed it to him.  
+“Yes, that’s the one,” he said. “Take it with you. There is a safe in the back of my bedroom closet, if anything happens to me it is important that you open it. Everything important is in there.”  
+“Okay,” I replied. “But I won’t have to open it – you will be alright!” I could not in a million years bring myself to accept otherwise. But he did not answer, his eyes closed, and his breathing deepened.  
+“Dad!” I cried.   
+The nurse poked her head in. “He’s on a lot of painkillers,” she said. “They knock people out. Time to let him rest.”  
+I nodded, my lower lip trembling, and wiped the tear that fell from my left eye with the back of my hand. I made my way down to the front desk, where I made sure they had my cell number and they said they would call me with updates on his condition. Then I ordered an Uber to take me home.  
+On the ride back, I wrapped my arms tightly around my stomach, squeezing hard. An occasional shiver would go through me, as my mind raced on my father’s words. I could not get the memory of him in that hospital bed out of my mind, and I kept fighting off the dread by whispering to myself that he would be okay over and over again.  
+As we got nearer to my family farm, I called Martin.  
+“Audrey,” Martin said. “How’s your dad?”  
+“He’s in ICU, doped up on painkillers,” I replied. “Broken bones, and a head injury.”  
+“Damn,” Martin said. “You going to be okay alone?”  
+“Yes,” I said, although my feelings of trepidation did not bely my words. “Were you able to let Bella and Barney out?”   
+“Yeah,” he replied. “They were okay, but probably needed to piss really bad. You need me to meet you there with the key?”  
+“I have my dad’s key,” I said. “Thanks.”  
+“Well, just call me if you need anything.”  
+As we got off the phone, I could see the farm in the distance, as the setting sun sent its last rays over the tops of the surrounding woods. The car dropped me off and turned around as I made my way down the dirt driveway that leads up to my house.  
+“Bella, Barney!” I called. “Hey guys, I’m home!”  
+I kept calling as I got closer and scanned the area. They usually did not stray that far, and if they were shepherding our flock of sheep, they would be bringing them in, and I could see them coming down the gentle slope of the fields. My voice caught in my throat as I remembered their mysterious disappearance the previous night. I broke into a run, my calls turning into shrieks.  
+I raced around the house then over towards the barn and sheep pen. A foul smell made me almost choke. Rounding the barn, I cried out, my hands shooting up to my mouth. There was no movement in the sheep pen. It was a sea of bloody bodies, they were all on the ground, their throats slit. I fell to my knees and screamed. I felt like my scream filled the world. But not even that sound brought Bella and Barney back. They were gone….
