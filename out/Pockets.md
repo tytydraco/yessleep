@@ -104,7 +104,7 @@ But not Mum at all.
 
 Her eyes were empty sockets, stained with blood and unidentifiable mush. Her mouth, on the other hand, was non-existent. Skin covered the space that her lips should have occupied. And then the horror made sense.
 
-Always jabbering, so he removed her mouth. Eyes wandering, so he removed those too. Showing off her goods, so he draped in a black, formless robe.
+Always jabbering, so he removed her mouth. Eyes wandering, so he removed those too. Showing off her goods, so he draped her in a black, formless robe.
 
 I blubbered uncontrollably at the disfigured demon before me. I don’t know what those pockets do, but I know that wasn’t my mum. Not anymore.
 
