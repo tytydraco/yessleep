@@ -138,7 +138,7 @@ But instead, something worse happened.
 
 Jay let out a gasp and then disappeared through the gap.  As if he had been picked up by his hair and was dragged inside by a hungry bear.  
 
-My heart was pounding fast as I realized I was going to have to ignore all of Jay's warnings if I was going to save him and the town.  Despite the dangers, we were going to have to go inside after [all.](https://www.reddit.com/r/JGcreepypastas?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+My heart was pounding fast as I realized I was going to have to ignore all of Jay's warnings if I was going to save him and the town.  Despite the dangers, we were going to have to go inside after [all.](https://www.reddit.com/r/JGcreepypastas/comments/13t7ywp/theres_a_new_sheriff_in_hollows_end_cake_day/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [YT](https://youtube.com/@JordanGrupe)
 
