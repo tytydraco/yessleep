@@ -55,7 +55,7 @@ I made dinner. I called a friend. I called another friend. Then, I called my sis
 
 “Remember what?”
 
-“You went messing for 3 months in the woods when you were 8 years old. You just showed up back at home one day, safe and clean. You said you lived in the woods, but mom and dad always tried to get you to tell them if you were anywhere else, don’t you remember? I can’t believe you don’t remember this. I think you should really talk to your therapist about tha-“
+“You went missing for 3 months in the woods when you were 8 years old. You just showed up back at home one day, safe and clean. You said you lived in the woods, but mom and dad always tried to get you to tell them if you were anywhere else, don’t you remember? I can’t believe you don’t remember this. I think you should really talk to your therapist about tha-“
 
 I hung up the phone. I felt like the walls were melting around me. What? I didn’t remember that shit. I cycled through the stages of realization rapidly. I denied it. She’s lying. It’s a prank. But the dreams. 
 

@@ -62,4 +62,4 @@ Nonetheless, I was still creeped out, so I packed my things and finally left the
 
 I didn’t know why the police, of all people, were so afraid. Worst case, someone was in actual danger and we’ve all failed them. Best case, morons who think saying “help me” in the middle of nowhere is a great idea for a prank.
 
-To be honest, when I heard the voice the very first time, I did think it was a joke. When I heard it the second time, along with that other voice, I became a bit more concerned. And same with the third time I heard it in the woods. But when I heard it again a fourth time, a week after I left the camp site, coming from inside my own house, I became very, very [concerned](https://youtu.be/QffBa8ZjMKU).
+To be honest, when I heard the voice the very first time, I did think it was a joke. When I heard it the second time, along with that other voice, I became a bit more concerned. And same with the third time I heard it in the woods. But when I heard it again a fourth time, a week after I left the camp site, coming from inside my own house, I became very, very [concerned](https://youtu.be/QffBa8ZjMKU?t=21).
