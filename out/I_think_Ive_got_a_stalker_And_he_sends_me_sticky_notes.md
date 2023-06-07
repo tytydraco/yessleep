@@ -17,3 +17,7 @@ A look of complete and utter confusion was plastered across my face. Frantically
 Chills raced over my arms and it took all I had not to work myself into a full blown panic attack. My heart was pounding and my breathing was shaky. My hands gripped the side of the sink as I stared up at the sticky note and then quickly scanned the bathroom. I called in sick to work that morning and tore apart my entire apartment looking for some type of explanation. Some part of me thought I might find some sticky note pads or pens stashed away somewhere, but I didn’t find any of that.
 
 I’m not sure what I should do if they continue, but I do know I can’t afford to move out right now. Any advice on what I should do is welcome. If I receive another one, I will keep all of you posted. It has been a week since that incident and I haven't received any more. Up until then they appeared in my apartment like clockwork though, so I'm sure there will be an update.
+
+&#x200B;
+
+Those of you who are looking for an update.... PART 2: https://www.reddit.com/r/nosleep/comments/143h6zb/i\_think\_ive\_got\_a\_stalker\_and\_he\_sends\_me\_sticky/?utm\_source=share&utm\_medium=web2x&context=3
