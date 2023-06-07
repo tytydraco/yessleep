@@ -46,7 +46,7 @@ The next time I saw the rusted man was shortly after I turned 13 in 2029. I was 
 When did that happen?
 
 
-I went into the photo's details tab and found out it was dated February 5, 1950. Odd, considering there's no way the phone I was using was manufactured anytime around that year, but I sent it to my friends. Both of them responded by telling me the image was coming up blank. I went back to my Gallary, intenting to study the image closely, but it was gone.
+I went into the photo's details tab and found out it was dated February 5, 1950. Odd, considering there's no way the phone I was using was manufactured anytime around that year, but I sent it to my friends. Both of them responded by telling me the image was coming up blank. I went back to my Gallary, intenting to study the image closely, but it was gone. It had become lost media.
 
 
 A lot of the time after that were just casual memories of being dropped off at school, playing GTA 6 with friends, watching my favorite shows, listening to my favourite music, and joking about Secret Wars on Reddit and a viral app called BL. Nothing much about the man...
@@ -67,7 +67,7 @@ In 2034, articles were being published about him. He became one of those big int
 Some people made and posted highly vivid AI generated videos of him performing various tasks like midnight break-ins, murders, and to be jokingly relatable, cooking and cleaning. The videos looked like big budget movies, and, as I watched each of them, I got a deeper sense of dread. I avoided watching the videos altogether, as they began to scare the living shit out of me.
 
 
-There was a popular form of technology at the time that let people share thoughts and feelings with others. Aside from, joking around with my friends, I used it to let people feel exactly how I felt during my encounters with him. I told them I hoped we'd get to a point where we'd be able to share memories with others, in order to give them the full observer experience.
+There was a popular form of technology at the time that let people share thoughts and feelings with others. They were little chips attached to helmets that you could wirelessly connect to each other. Aside from, joking around with my friends, I used it to let people feel exactly how I felt during my encounters with him. I told them I hoped we'd get to a point where we'd be able to share memories with others, in order to give them the full observer experience.
 
 
 In the fall of 2036, the FBI announced they were on the case of the rusted man after a string of murders across the US left victims without their eyeballs. I was overwhelmed with chills as I read the announcement. It was official confirmation of the rusted man's existence. I called the police, reporting my encounters with the rusted man. They told me they'd keep a look out for him.
