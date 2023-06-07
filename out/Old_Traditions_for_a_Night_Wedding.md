@@ -252,7 +252,7 @@ Slowly we began to clear the rows and I could see the other side in sight.
 
 It jumped into the air and another shot blew a part of its face away. The detective screamed as it tore at him. Pieces of his sinew was launched into the air as he was torn apart. I rushed forward trying to help but the creature grabbed me by the throat and lifted me into the air. My feet searching for the ground as my lungs folded trying to breathe. The thing turned its head toward me and said, "Will you marry me?" As the darkness closed into the corners of my eyes.
 
-The fight was leaving my body as I saw several of my wives rushing forward. Their ghostly forms ethereal as they began tearing at the mannequin, slowly pulling out pieces of her soul, causing the mannequins arms and legs to go limp as they dragged her out.
+The fight was leaving my body as I saw several of my wives rushing forward. Their ghostly forms ethereal as they began tearing at the mannequin, slowly pulling out pieces of her soul, causing the mannequin's arms and legs to go limp as they dragged her out.
 
 I scrambled the floor blindly with my fingers searching for my sacred parchment but could not find it amongst the rubble and the ghost bride was fleeing, leaving the shell of her mannequin in a heap on the floor. My wives chasing her, screaming their fury for killing the others. For destroying their souls.
 
