@@ -120,7 +120,7 @@ Harry lifted his head after a moment, his eyes flicking to me. “You know he ca
 
 Harry’s gaze skated the horizon, cotton candy colored clouds blurring into twilight. “Becauuuse the sun is going to your head.”
 
-I could practically hear his eyes rolling. Rowan took three strides towards the wall and pressed his face into rough brick. “So, this is it, right?” He muffled into rough cement. “We are really going to die at fucking summer camp.”
+I could practically hear his eyes rolling. Harry took three strides towards the wall and pressed his face into rough brick. “So, this is it, right?” He muffled into rough cement. “We are really going to die at fucking summer camp.”
 
 “I’m going to die,” I corrected him. “They want you two and Carmel because apparently you’re special.”
 
@@ -330,7 +330,7 @@ Carmel.
 
 Laying on my back while my head spun, I was partially aware the boy’s screaming had cut off. 
 
-Instead, they were just sitting there, eyes wide and unseeing, the blankest I had ever seen them. There was so much blood running down their faces, and I imagined something rooted inside of them tearing their minds apart from the inside. Letting out another strangled cough, which was definitely biological warfare courtesy of the kids, my gaze flicked across the bunker, taking everything in. The paperwork we had been going through. The chair Rowan had been spinning around on. The ropes Harry’s arms had been entangled in. I was frowning at the walls, and then the ceiling. 
+Instead, they were just sitting there, eyes wide and unseeing, the blankest I had ever seen them. There was so much blood running down their faces, and I imagined something rooted inside of them tearing their minds apart from the inside. Letting out another strangled cough, which was definitely biological warfare courtesy of the kids (not enough to kill, but definitely a warning not to fuck with them) my gaze flicked across the bunker, taking everything in. The paperwork we had been going through. The chair Rowan had been spinning around on. The ropes Harry’s arms had been entangled in. I was frowning at the walls, and then the ceiling. 
 
 **“Please mind your head when you step down the stairs.”**
 
@@ -403,5 +403,3 @@ His voice echoed in my head, collapsing into white noise, when I noticed how tru
 …
 
 I’m going to go out on a whim and say it’s… not 2018 and I’ve been at Camp Redwood for way longer than I realized?
-
-More tomorrow, I hope. I’ve got nothing else to do. I still need to tell you how I ended up here.
