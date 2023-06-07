@@ -72,4 +72,5 @@ My wife thinks I'm overreacting. It's just some dog that happens to look exactly
 
 I think there is something evil in that dog, and I don't want my son raised with an animal like that.
 
-[Part 2] https://www.reddit.com/r/nosleep/comments/141y0x1/my_childhood_dog_showed_back_up_at_my_house_after/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button
+[Part 2] 
+https://www.reddit.com/r/nosleep/comments/142ze2g/my_childhood_dog_showed_back_up_to_my_house_after/?utm_source=share&utm_medium=web2x&context=3

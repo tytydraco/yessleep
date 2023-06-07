@@ -155,3 +155,5 @@ As I entered the terminal with its blessed filtered air and the windows between 
 *Everyone on this ship is going to die…*
 
 *... and I’m the only one* [*who knows…*](https://www.reddit.com/r/QuincyLee/comments/11nxwz3/welcome_thanks_so_much_for_stopping_by/)
+
+[PART 2 UPDATE!](https://www.reddit.com/r/nosleep/comments/142z4tp/i_went_on_a_cruise_and_found_the_source_of_the/)
