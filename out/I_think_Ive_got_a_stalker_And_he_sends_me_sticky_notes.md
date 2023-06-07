@@ -1,3 +1,5 @@
+**PART 1:**
+
 I'm not really sure where to begin, but I do know that I need some advice....
 
 So, it all started with a sticky note. First it was one... Then two... and now I've got a whole drawer full of them. Maybe I should give you a little background information. I moved into my first apartment about a month ago. It wasn't anything special, but it was mine. I noticed the first sticky note when I was stocking up my refrigerator with the copious amounts of Chinese takeout I'd ordered for the night. I was tired after all the unpacking and decided to just order a little bit of everything. I don't know how long the sticky note had been on my fridge before I noticed it, but midway through putting my egg rolls in there, I noticed a plain yellow note with one simple word scrawled across it in thick black ink.
