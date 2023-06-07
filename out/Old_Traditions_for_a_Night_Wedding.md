@@ -98,7 +98,7 @@ The detective shook his head, "What bride?"
 
 "Right, you're right of course. You'd have to wait until after sunset to be able to figure out which mannequin serves as the ghost bride's earthly form."
 
-The detective stormed off as if I had said something outlandish. Leaving me to my own devices, I interviewed a few of the neighbors who had attend the night wedding, gathered some evidence and sorted with the other officers at the site, and then left for the nearest hotel in the city.
+The detective stormed off as if I had said something outlandish. Leaving me to my own devices, I interviewed a few of the neighbors who attended the night wedding, gathered some evidence and sorted with the other officers at the site, and then left for the nearest hotel in the city.
 
 It had been a long month for me and I couldn't think of anything better than I would enjoy more than a cold beer. So after checking in I went down to the bar, where an ethereal creature sat alone. She was beautiful to say the least and I had to strike up a conversation lest I live a life of regret, "S'il te plaît ma chérie, dis-moi comment on t'appelle pour que quand je sois perdu dans les ténèbres. Puis-je demander la lumière."
 
