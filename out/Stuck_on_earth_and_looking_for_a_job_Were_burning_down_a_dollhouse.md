@@ -215,3 +215,5 @@ Instead of mirroring the expression, I felt my own features suddenly derail. “
 [22: recruitment](https://www.reddit.com/r/nosleep/comments/13zmo6y/stuck_on_earth_and_looking_for_a_job_im_being/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [23: waitresses](https://www.reddit.com/r/nosleep/comments/14130iz/stuck_on_earth_and_looking_for_a_job_theres_more/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[25: burning plastic](https://www.reddit.com/r/nosleep/comments/143l18k/stuck_on_earth_and_looking_for_a_job_burning/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)

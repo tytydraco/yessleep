@@ -20,7 +20,7 @@ Then, two of the spiders, each about the side of one of our hands, crawled forwa
 
 The spider on Chuck's hand bit into it, and stayed there with its fangs pulsating for what must've been ten seconds, until the fangs had turned from white to black. Then, it scurried back into the corner. Tyler asked if it hurt, and after Chuck, now grinning like an idiot, told him that he felt nothing, Tyler extended his hand and the second spider repeated the process.
 
-A third spider had began to make its way towards me, and it was at that moment, I got sick, and as my friends went to ask if I was alright, I bolted out of the cave. I sat outside the cave entrance for a while, until my friends stepped. Carson began trying to convince me to go back in, saying something about how lame it would be to be the only one without powers, when I noticed something strange.
+A third spider had began to make its way towards me, and it was at that moment, I got sick, and as my friends went to ask if I was alright, I bolted out of the cave. I sat outside the cave entrance for a while, until my friends stepped outside. Carson began trying to convince me to go back in, saying something about how lame it would be to be the only one without powers, when I noticed something strange.
 
 The barbs on his palm were now on both side of his hand, but not just there. They had spread all the way up to his elbow, and it almost looked like they were twitching. I was going to point this out to him, but then Tyler and Chuck begin bombarding him with questions.
 

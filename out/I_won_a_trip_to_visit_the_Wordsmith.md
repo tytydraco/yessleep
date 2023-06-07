@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/143kotd/i_won_a_trip_to_visit_the_wordsmith/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
 I won the chance to meet with my favorite Author. By no means was he an equal in comparison to the popularity of Stephen King or Dean Koontz but there was something special about his works. If you happened to stumble across one of his stories they had a habit of sticking around and festering like little rotten delicacies within your mind.
 
 For years as a growing adult I sat down and studied every word of his. I tried to mimic the way he wrote and every time I’d fall short. There was something inside of me that just couldn’t match the integrity of his tales. Every story he wove sounded drastic, real, as if the main characters were screaming out for their stories to be heard in hopes they didn’t fade away into eternity.
