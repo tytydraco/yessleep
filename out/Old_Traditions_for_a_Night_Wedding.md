@@ -46,9 +46,9 @@ I held up my finger and traced the noise as it traveled in an odd form. I began 
 
 I reached into my bag and pulled out some incense. I lit the ends and began chanting. From my waist I pulled out a long yellow parchment. And drew on it a sealing spell. "Spirit," I called as I stepped forward. "I am a guiding light." The noise rattled with conviction as I drew closer. "Let me lead you to peace!" And with one quick motion I punched my hand through the wall, clutching the sealing spell in my palm, at the last place I heard the noise. To my displeasure I felt something wriggling in my grasp as something long and thin wrapped itself around my wrist, its end clawing at my forearm. I screamed when I felt its teeth sink between the soft flesh of my thumb and index finger. But I did not let go. Instead I pulled out this demon from the wall and threw it roughly to the ground.
 
-The man screamed as he jumped onto a chair and screamed, "Rat!"
+The man screamed as he jumped onto a chair, "Rat!"
 
-Yes. A simple field rat. That had a trap stuck on its tail which caused its movements to rattle in the wall. That had been rummaging near the man's nightstand because in one of the drawers he had left a bag of watermelon seeds.
+Yes. A simple field rat. That had a trap stuck on its tail which caused its movements to rattle in the wall. It had been rummaging near the man's nightstand because in one of the drawers he had left a bag of watermelon seeds.
 
 Not all cases are this simple, and plenty are true to life supernatural encounters. Over the years my experience has taught me to be more cautious in my evaluations. Which was why when I finally arrived at the house of the massacre due to a failed night wedding. Every hair on my neck stood on end as I tried to be objective as possible.
 
@@ -62,7 +62,7 @@ But there was no denying that something heinous had occurred here. Bodies were s
 
 He was average built, and in plain clothes, "Detective, why yes. I am here to assist you in anyway that I can."
 
-The detective spitted on the ground, "Assist me? As far as I'm concerned we're wasting valuable time carrying on with this hocus pocus bullshit. The killer's trail will be cold by the time we get through all this religious tape." He wafted the air in front of his face, "And the dead bodies boiling out here. This is all your fault as well, as far as I'm concerned. Assist me," he snorted.
+The detective spit on the ground, "Assist me? As far as I'm concerned we're wasting valuable time carrying on with this hocus pocus bullshit. The killer's trail will be cold by the time we get through all this religious tape." He wafted the air in front of his face, "And the dead bodies boiling out here. This is all your fault as well, as far as I'm concerned. Assist me," he snorted.
 
 "Are there any eyewitnesses, Detective?"
 
@@ -138,9 +138,9 @@ She stood up, "Well, it was nice meeting you. Tell your wives I said hello."
 
 I smiled as she left, glancing at my sides. "If only you knew," I said while sipping my beer.
 
-Now in hindsight, if I were not so fatigued after nearly a month of hard work and constant traveling. I would have perhaps picked up on the fact that she too was familiar with the concubine lifestyle. Which was unusual in itself for an American. Or perhaps I would have picked up on the fact that Larissa was an uncommon name. As I had read Jim's article. But there was no such luck, which is why, when I say that I am deeply regretful of what I read on the news later about the couple, I am truly at a loss for what I could have prevented. But that is not my story to tell.
+Now in hindsight, if I were not so fatigued after nearly a month of work and travel. I would have perhaps picked up on the fact that she too was familiar with the concubine lifestyle. Which was unusual in itself for an American. Or perhaps I would have picked up on the fact that Larissa was an uncommon name. As I had read Jim's article. But there was no such luck, which is why, when I say that I am deeply regretful of what I read on the news later about the couple, I am truly at a loss for what I could have prevented. But that is not my story to tell.
 
-After I finished drinking at the bar I made my way to the elevator and got in. When a man coming towards me waved as a sign to hold the door, I called out, "It's full." He looked at me bewildered as I was the only person he could see in the elevator, before sticking his hand out to stop the elevator from ascending. Huffing and puffing, he glared at me angrily before pressing his floor number for the door to close. Except the elevator pinged. The weight capacity light had turned on above our heads. "Like I said, it's full." The man shook his head in amazement. Pressing his floor number again. The elevator pinged again. Unwilling to budge, the man kept pressing the button. I sighed and got out, "I'll wait for the next one."
+After I finished drinking at the bar I made my way to the elevator and got in. When a man coming towards me waved as a sign to hold the door, I called out, "It's full." He looked at me bewildered as I was the only person he could see in the elevator, before sticking his hand out to stop the elevator from ascending. Huffing and puffing, he glared at me angrily before pressing his floor number for the door to close. Except the elevator pinged. The weight capacity light had turned on above our heads. "Like I said, it's full." The man shook his head in amazement. Pressing his floor number again. The elevator pinged again, unwilling to budge. I sighed and got out, "I'll wait for the next one."
 
 And wait I did, even in my room I waited for night fall instead of resting. The thoughts of a botched night wedding swirling in my head. For the many things that could go wrong. Because even though I had much practice in these matters, I was still always nervous before a fight. So when night fell, I was red eyed and exhausted, but better mentally prepared than before.
 
@@ -218,7 +218,7 @@ I shook my head, running forward to catch her. My 13th wife, Ah-ren. Her arm was
 
 "I don't want to go. I wanted to stay with you. All of us together."
 
-I didn't even have the chance to say goodbye as her soul splintered and disappeared forever.
+I didn't even have the chance to say goodbye before her soul splintered and disappeared forever.
 
 I had never felt such fury. In all my years, a womanizer, a liar, a cheat at cards, a scoundrel, a bastard even. But an undutiful husband? Never.
 
@@ -248,9 +248,9 @@ We moved through the rows, staring at all of the stuck faces, searching for one 
 
 Slowly we began to clear the rows and I could see the other side in sight.
 
-"There!" The detective shot his gun. The surrounding mannequins dropped like dominoes when the entity scattered. Falling down all around us, drowning in a sea of plastic arms and smiling faces, I struggled to breathe. "I think I'm stuck," I told the detective. But he wasn't listening, his eyes were concentrating on the entity as it came rushing toward us. He fired his gun blowing out one of the mannequin's knee caps. I hurriedly reached for my parchment nearby but could not find my pen. Another shot, another hit, but the scorned bride kept on charging unable to feel pain.
+"There!" The detective shot his gun. The surrounding mannequins dropped like dominoes when the entity scattered. Falling down all around us, drowning us in a sea of plastic arms and smiling faces, I struggled to breathe. "I think I'm stuck," I told the detective. But he wasn't listening, his eyes were concentrating on the only mannequin that was still moving. It began rushing toward us. He fired his gun blowing out one of the mannequin's knee caps. I hurriedly reached for my parchment nearby but could not find my pen. Another shot, another hit, but the scorned bride kept on charging unable to feel pain.
 
-It jumped into the air and the detective blew the rest of its face away before he started screaming as the bride began to eat him. Pieces of his sinew was launched into the air as he was torn apart. I freed myself and rushed forward trying to help but the creature grabbed me by the throat and lifted me into the air. My feet scratching the ground as my lungs folded trying to breathe. The thing turned its head toward me and said, "Will you marry me?" As the darkness closed into the corners of my eyes.
+It jumped into the air and the detective blew the rest of its face away before he started screaming as the bride began to devour him. Pieces of his sinew was launched into the air as he was torn apart. I freed myself and rushed forward trying to help but the creature grabbed me by the throat and lifted me into the air. My feet scratching the ground as my lungs folded trying to breathe. The thing turned its head toward me and said, "Will you marry me?" As the darkness closed into the corners of my eyes.
 
 The fight was leaving my body as I saw several of my wives rushing forward. Their ghostly forms bloodlusted as they began tearing at the mannequin, slowly pulling out pieces of her soul, causing the mannequin's arms and legs to go limp as they dragged her out of the corporeal form.
 
