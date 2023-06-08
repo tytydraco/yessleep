@@ -248,13 +248,13 @@ We moved through the rows, staring at all of the stuck faces, searching for one 
 
 Slowly we began to clear the rows and I could see the other side in sight.
 
-"There!" The detective shot his gun. The surrounding mannequins dropped like dominoes when the entity scattered. Falling down all around us, drowning us in a sea of plastic arms and smiling faces, I struggled to breathe. "I think I'm stuck," I told the detective. But he wasn't listening, his eyes were concentrating on the only mannequin that was still moving. It began rushing toward us. He fired his gun blowing out one of the mannequin's knee caps. I hurriedly reached for my parchment nearby but could not find my pen. Another shot, another hit, but the scorned bride kept on charging unable to feel pain.
+"There!" The detective shot his gun. The surrounding mannequins dropped like dominoes when the entity scattered. Falling down all around us, drowning us in a sea of plastic arms and smiling faces, I struggled to breathe as the debris settled. "I think I'm stuck," I told the detective. But he wasn't listening, his eyes were concentrating on the only mannequin that was still moving. It began rushing toward us. He fired his gun blowing out one of the mannequin's knee caps. I hurriedly searched for my parchment. Another shot, another hit, but the scorned bride kept on charging unable to feel pain.
 
 It jumped into the air and the detective blew the rest of its face away before he started screaming as the bride began to devour him. Pieces of his sinew was launched into the air as he was torn apart. I freed myself and rushed forward trying to help but the creature grabbed me by the throat and lifted me into the air. My feet scratching the ground as my lungs folded trying to breathe. The thing turned its head toward me and said, "Will you marry me?" As the darkness closed into the corners of my eyes.
 
 The fight was leaving my body as I saw several of my wives rushing forward. Their ghostly forms bloodlusted as they began tearing at the mannequin, slowly pulling out pieces of her soul, causing the mannequin's arms and legs to go limp as they dragged her out of the corporeal form.
 
-I hit the ground and scrambled the floor blindly with my fingers searching for my sacred parchment but could not find it amongst the rubble. I had no time to look further as the ghost bride was fleeing, leaving the shell of her mannequin in a heap on the floor. My wives chasing after her, screaming their fury for her killing the others. For destroying their souls.
+I hit the ground and scrambled blindly with my fingers searching for my sacred parchment but could not find it amongst the rubble. I had no time to look further as the ghost bride was fleeing, leaving the shell of her mannequin in a heap on the floor. My wives chasing after her, screaming their fury at her for killing the others. For destroying their souls.
 
 I chased after them outside into the open air, where she had been cornered. She was crying as I approached, trying to escape into the Southwest wind. Begging for forgiveness. I knew what I should have done, but could not bring myself to do the right thing. Instead I bit my finger and drew symbols on my forearms with my own blood. Approaching the bride that never was and tore her soul into pieces.
 
@@ -262,7 +262,7 @@ When I was done my wives sat down around me before slowly dispersing as the sun 
 
 A familiar voice came, "We did it huh?"
 
-I continued staring at the sun, "Yeah."
+I continued staring out into the horizon, "Yeah."
 
 "Well then," the detective said before disappearing. "Maybe in the next life I'll be sooner to trust you."
 
