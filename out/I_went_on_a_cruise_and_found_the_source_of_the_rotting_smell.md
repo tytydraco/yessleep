@@ -175,3 +175,5 @@ While the man on the pool deck swallowed glass, I would succumb to the insanity 
 —[immolating myself.](https://www.reddit.com/r/QuincyLee/comments/11nxwz3/welcome_thanks_so_much_for_stopping_by/)
 
 [\[Part 1\]](https://www.reddit.com/r/nosleep/comments/140khwa/i_went_on_a_cruise_and_all_the_passengers_were/)
+
+[\[Part 3 UPDATE\]](https://www.reddit.com/r/nosleep/comments/144ahip/i_went_on_a_cruise_and_one_passenger_didnt_belong/)

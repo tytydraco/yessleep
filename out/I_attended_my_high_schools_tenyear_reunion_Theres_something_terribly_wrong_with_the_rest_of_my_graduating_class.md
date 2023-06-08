@@ -222,7 +222,7 @@ My ankle needs some more time to heal. Once it does, I’m going to try joining 
  
 Two weeks have passed since the reunion. Today, an envelope with no return address arrived with my mail. It contained a single photograph on glossy paper with a short note written underneath.
  
-The photo featured me on the bench in the photo booth. Sitting to my side, with his arm over my shoulders, was Vince. He wore a blue collared shirt and looked…normal. No missing skin, no bloody imprints on the surface around him.
+The image featured me on the bench in the photo booth. Sitting to my side, with his arm over my shoulders, was Vince. He wore a blue collared shirt and looked…normal. No missing skin, no bloody imprints on the surface around him.
 
 Paul crouched behind us, a dopey grin on his face. He, too, looked just as I’d imagined he would in his late twenties. To Paul’s right, Abby, Morgan, and Michelle posed together with their arms around each other.
 
