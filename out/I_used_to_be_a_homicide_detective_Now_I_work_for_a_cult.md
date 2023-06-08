@@ -6,7 +6,7 @@ I mean, I could probably manage to hotwire a car back at the [farmhouse](https:/
 
 The second thing on my mind was my lack of shoes. The rocks were tough and sharp under my feet, scraping them raw with every aching footstep. I had settled on walking on the muddy, yet less painful, grass on the side. But I still wondered why. Of all the thing the man at the table could've taken from me, he took shoes.
 
-It was a pretty clear answer, however. Mental games. He hires someone to drop me off in the middle of nowhere, with no feasible way of getting back. He knew the first thing I'd want to do is leave. So he took my shoes. He gave me two options, and he wanted to make one that displeased him hurt me, even if it was only in a small, petty way,
+It was a pretty clear answer, however. Mental games. He hires someone to drop me off in the middle of nowhere, with no feasible way of getting back. He knew the first thing I'd want to do is leave. So he took my shoes. He gave me two options, and he wanted to make one that displeased him hurt me, even if it was only in a small, petty way.
 
 *Mental games.*
 
@@ -22,7 +22,7 @@ I stuck my thumb out.
 
 In that moment, I probably didn't look like someone you'd want to pick of the road, with missing shoes and only one arm, and all. But there was no harm in trying. I was hoping it was a kind farmer from hereabouts, heading to the main town to do some weekly shopping. The Chevy made its way to me, and I saw the driver eye me up and down, before pulling onto the shoulder of the road.
 
-I opened the and hopped into the passengers side, thanking the driver. He shifted his position to look at me. Well, rather look *past* me. He had short, cropped hair, three-day stubble, and a faraway look in his eyes, as if he couldn't rest his gaze, or if he was always searching into the distance.
+I opened the door and hopped into the passengers side, thanking the driver. He shifted his position to look at me. Well, rather look *past* me. He had short, cropped hair, three-day stubble, and a faraway look in his eyes, as if he couldn't rest his gaze, or if he was always searching into the distance.
 
 It was the paramedic, from earlier.
 
@@ -32,7 +32,7 @@ I opened the door and got out. I wasn't doing this again. I would rather walk ho
 
 I didn't respond.
 
-He moved forward towards me and extended a hand. I didn't accept it. He held it there for an uncomfortably long period of time, before placing it back by his side. "Look. We got of the wrong foot here. The name's Michael. It's a pleasure to meet you again."
+He moved forward towards me and extended a hand. I didn't accept it. He held it there for an uncomfortably long period of time, before placing it back by his side. "Look. We got of on the wrong foot here. The name's Michael. It's a pleasure to meet you again."
 
 "The pleasure's all yours." I said, dripping with distaste.
 
