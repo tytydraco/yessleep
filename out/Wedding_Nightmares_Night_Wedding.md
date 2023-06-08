@@ -10,7 +10,7 @@ And doing it all alone? It was a big ask. Which is why when my fiancée asked fo
 
 "Lars, what? No. It's not a kid."
 
-She was peeling and stamping invitations in our tiny 625 square foot apartment. "Well then what is it? I thought we agreed to no bachelor parties. I thought. We agreed that those were for people who were ready for a wedding but not the marriage. I don't care if it is Tradition." She stamped the envelop extra hard.
+She was peeling and stamping invitations on our dining room table. "Well then what is it? I thought we agreed to no bachelor parties. I thought. We agreed that those were for people who were ready for a wedding but not the marriage. I don't care if it is Tradition." She stamped the envelop extra hard.
 
 "No, it's nothing like that. Trust me." I shuddered just thinking about it. "It's not any kind of thing I would be doing if I didn't have to."
 
