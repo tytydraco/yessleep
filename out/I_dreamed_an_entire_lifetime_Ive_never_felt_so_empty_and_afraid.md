@@ -247,16 +247,16 @@ Every day, I stood in my front yard for two hours, looking at the trees, bushes,
 By mid October, the sound dissipated, but the ambient noise was still going strong. People would walk past my house like there was no sound coming from the sky at all. On October 15, 2076, I stood on my front lawn, listening to the wooshing noise, and watching the trees cease to convince me they were normal. Then, the wooshing sounded localized to my lawn, and then it hit me.
 
 
-None of this is real.
+None of this is real. My life never really happened. My friends never really existed. I'm about to come out of a dream...
 
 
-Suddenly, I immediately alternated from standing to laying down on my lawn without having moved a muscle. I was staring up at the sky, which was getting brighter. I could feel my heart beating. I began to hyperventilate, as this was new to me.
+Suddenly, I immediately alternated from standing to laying down on my lawn without having moved a muscle. I was staring up at the sky, which was getting brighter. I could feel my heart beating. I began to hyperventilate, as this was new to me. I couldn't remember my waking life at all.
 
 
 Where the hell am I going?
 
 
-I looked at the unrealistic trees, then everything went blurry. Pain erupted in my chest, then I was lying on a stretcher. I wanted to move, but I was in shock.
+I looked over at the unrealistic trees, then everything went blurry. Pain erupted in my chest, then I was lying on a stretcher. I wanted to move, but I was in shock.
 
 
 What the... hell...? What's happening right now?
