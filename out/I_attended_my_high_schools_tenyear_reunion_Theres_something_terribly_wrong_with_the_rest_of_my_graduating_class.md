@@ -150,7 +150,7 @@ It was shut, but not locked. I gripped the handle and pulled it open.
  
 Nothing could have prepared me for what I saw inside: it was Arthur’s *torso*. The rest of his body was *gone*, and something was dragging what was left of him further away, further back into a dark abyss where the wall should have been. 
  
-Blood gurgled out of his mouth as he gasped my name one last time. He reached out a blood-covered hand. Hoping to somehow pull him out, I tried to take it, only for whatever unseen force had taken hold of him to pull him away, leaving behind a wide hole in the back of the locker. More blood gushed through it, leaking onto the hallway floor.
+Blood gurgled out of his mouth as he gasped my name one last time. He reached out a red-stained hand. Hoping to somehow pull him out, I tried to take it, only for whatever unseen force had taken hold of him to pull him away, leaving behind a wide hole in the back of the locker. More blood gushed through it, leaking onto the hallway floor.
  
 “*So glad you could make it,*” said a monotone voice behind me. I whirled around to see two fleshy arms emerge from another locker across from me. The skinless figure left wet, red stains on the white surface as she got to her feet and stepped towards me. “Don’t you recognize your old crush? Surely ten years haven’t been that rough on me.”
  
@@ -213,6 +213,7 @@ He shook his head. “I doubt that.” He looked down, then at my perplexed face
 I obliged and began the long journey home.
  
 ~ 
+
 I had no idea what to make of what occurred. I can hardly find anything at all online about Copper Hill High, or any of my classmates who went there, and I’m not exactly eager to reach out to any of them.
  
 I can’t make much sense of what happened, but I am sure of one thing: that I barely made it out of that situation, and that I shouldn’t press my luck much further.
