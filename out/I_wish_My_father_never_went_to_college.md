@@ -6,7 +6,7 @@ I worked minimum wage and it was hard keeping the roof over my head. After only 
 
 I was greeted by my siblings, Abby, now 10 years old, and Conner, now 12. They came running out hugging me, I felt warm at first, to be with my family again, but then It’s like my stomach dropped. I don’t know why. It was my siblings, but it felt like I was hugging complete strangers. I brushed it off, probably jet lag. I went inside and hugged my Step-Mom. I didn’t see my Dad though. “Where’s Dad?” I asked. “He’s out,” The three of them said almost in unison.
 
-By the time dinner was ready My father had returned, “Son! So happy to see you face to face again,” It felt like it was my old Dad again, he felt so warm in out embrace. 
+By the time dinner was ready My father had returned, “Son! So happy to see you face to face again,” It felt like it was my old Dad again, he felt so warm in our embrace. 
 
 After dinner I sat on the couch watching cartoons with my siblings. They eventually fell asleep on me, thats when I changed the channel. It was the local news channel, It was currently going over the weather. 
 
