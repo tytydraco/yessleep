@@ -206,3 +206,5 @@ I turned to look at him over my shoulder. He met my gaze and I could see somethi
 [23: waitresses](https://www.reddit.com/r/nosleep/comments/14130iz/stuck_on_earth_and_looking_for_a_job_theres_more/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [24: dollhouse](https://www.reddit.com/r/nosleep/comments/142estj/stuck_on_earth_and_looking_for_a_job_were_burning/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[26: Fog dimension](https://www.reddit.com/r/nosleep/comments/1454acr/stuck_on_earth_and_looking_for_a_job_fog_dimension/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
