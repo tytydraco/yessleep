@@ -56,7 +56,7 @@ We passed through another set of doors and came into a room dimly lit by an over
 
 And I say person very lightly.
 
-The average person has a neck 13-15 inches long, measuring from shoulder to chin. The person before me had a neck over ten times that length. They were on their hands and feet, their neck sprouting from their shoulders like a vine, and curling downwards. Their neck continued across the floor for about five more feet, before ending with a neck attached to it.
+The average person has a neck 4-6 inches long, measuring from shoulder to chin. The person before me had a neck over ten times that length. They were on their hands and feet, their neck sprouting from their shoulders like a vine, and curling downwards. Their neck continued across the floor for about five more feet, before ending with a neck attached to it.
 
 The person saw us, and began to slowly shuffle towards us, slowly dragging their head and massive neck along with them. They moaned mournfully as they moved, and I could see trails of blood slowly pouring from what seemed to be stitches every couple of inches along their neck.
 
@@ -123,5 +123,7 @@ But it was the words spoken out of that P.A system that bothered me the most. Th
 There were people still out there, besides Thompson.
 
 A lot more people.
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/13y0vsu/im_a_homicide_detective_i_am_in_way_over_my_head/)
 
 [x](https://www.reddit.com/r/ineedabettersub/)

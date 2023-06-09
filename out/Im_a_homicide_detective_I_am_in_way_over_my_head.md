@@ -128,13 +128,13 @@ The man arched an eyebrow at my silence. "You deserve the truth. Everyone does. 
 
 "You're out of your mind if you think I want any part of this." I said, resolutely.
 
-A smile curled at the edge of his lips. "A pity." His eyes traveled down my body, seemingly gazing in everything. "Look at you, always slithering into situations you shouldn't have to be in. I think you'll make a fine snake." 
+A smile curled at the edge of his lips. "A pity." His eyes traveled down my body, seemingly gazing in everything. "Look at you, always slithering into situations you shouldn't have to be in. I think you'll make a fine snake."
 
 I heard a shuffle behind me, and turned around just in time to see a metal bar being swung at my face. It connected with my forehead with a loud crack, sending me flying backwards onto the ground.
 
 *Pain.*
 
-That was the first thing I remember from when I woke up. Hot, searing pain, burning throughout my body and culminating in my forehead. 
+That was the first thing I remember from when I woke up. Hot, searing pain, burning throughout my body and culminating in my forehead.
 
 *Pain.*
 
@@ -170,11 +170,11 @@ When I came to my gag was gone. And my arm. The remaining stump was wrapped up i
 
 *Work for a madman. Or die to a madman.* Self-preservation is stronger than dignity. "I. . .want to work for you." I said, struggling between breaths.
 
-"Very good! Let's get you out of those binds shall we?" He plucked a key from his pocket and swiftly unlocked them, I tried to sit up, and promptly fell back down, my head spinning. 
+"Very good! Let's get you out of those binds shall we?" He plucked a key from his pocket and swiftly unlocked them, I tried to sit up, and promptly fell back down, my head spinning.
 
 The man started to walk away. "Now, I'm going to begin your induction, you may feel free to leave or explore the house whenever you feel like. If you're hungry there's leftovers in the fridge. As I said, we're not trapping you here." He turned and smiled at me. "You're going to enjoy this, Jonathan. Toodles!"
 
-He left the room, and went up a few stairs that I hadn't noticed before.. I took my time getting up, waiting until the earth stopped spinning under my feet. Walking felt strange without an arm, the weight was gone from there and I felt lopsided and unbalanced. I took in my surroundings. It was some sort of basement under the house, with different types of surgical equipment scattered around. 
+He left the room, and went up a few stairs that I hadn't noticed before.. I took my time getting up, waiting until the earth stopped spinning under my feet. Walking felt strange without an arm, the weight was gone from there and I felt lopsided and unbalanced. I took in my surroundings. It was some sort of basement under the house, with different types of surgical equipment scattered around.
 
 Besides that there was recording equipment scattered around and placed at various places. A few were still on, but most were turned off. There was a door to my left, and the staircase directly in front of me. There was a placard on the door with a single word on it.
 
@@ -182,7 +182,7 @@ Besides that there was recording equipment scattered around and placed at variou
 
 I opened the door. It was dimly lit inside. The air smelled of musk and human waste. There was a small machine in the corner, lit up and whirring, with various cables hooked up to a large mound in the middle. The door slammed shut behind me.
 
-The mound moved. 
+The mound moved.
 
 I took a step back out of fear. My focus shifted, and the horrible realization that I was looking at a *person* dawned on me. The person was extremely large, covered in layers of fat that rolled across their body. The person laboriously shuffled around to face me. The tubes from the machine connected into a mask that covered their mouth. The tubes continuously pumped a soft, gray liquid into the person's mouth.
 
@@ -200,7 +200,7 @@ He was battered and beaten, and larger than he used to be. But it was still him.
 
 I glanced behind me, at the saw that cut off my arm. I stood up and grabbed it off the table, with my remaining hand. I brought it over to Thompson and held it over his face. His eyes grew misty, but he nodded, a slow and deliberate movement. He knew what it meant.
 
-It was going to be hard to cut with only one available hand, so I opted for a large swing and used momentum to get the job done. A clean cut that severed his jugular and removed his life from his body. 
+It was going to be hard to cut with only one available hand, so I opted for a large swing and used momentum to get the job done. A clean cut that severed his jugular and removed his life from his body.
 
 I dropped the saw on the ground next to Thompson.
 
@@ -208,10 +208,12 @@ I made my way up the stairs and out of the front door. I had no shoes on, and th
 
 But not forever.
 
-I will be back. 
+I will be back.
 
 For Thompson. For Alice.
 
 I've got nothing left to lose and everything to gain.
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/143uz52/i_used_to_be_a_homicide_detective_now_i_work_for/)
 
 [x](https://www.reddit.com/r/ineedabettersub/)
