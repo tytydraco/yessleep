@@ -223,7 +223,7 @@ We ran out into the shed, clearing the last of the slick, stone steps. The door 
 “Hurry up,” I said through gritted teeth. “It’s coming.”
 
 
-“I can’t…” Gil said, reaching into every pocket. He kept coming up empty-handed. He had lost the key, and now we were going to die. I slammed a new magazine into the pistol, ready to fight to the death. 
+“I can’t…” Gil said, reaching into every pocket. He kept coming up empty-handed. He had lost the key, and now we were going to die.
 
 
 Then he reached into the little pocket built into the main pocket of his right front jeans, and I heard a tiny jingle. He brought up the leather strap with the shed key on it. With shaking hands, he shoved it in the lock and began turning.
