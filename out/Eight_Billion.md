@@ -1,10 +1,10 @@
-On the planet teeming with eight billion others, I was just another face in the crowd, navigating the tumultuous corridors of high school, unknowing of how little I actually mattered to the universe. Today, we were ticking off the second to last day of the school year, and we had the liberty of a half day, making lunchtime the closing bell. 
+Imagine a world staggering beneath the weight of over eight billion souls, most leaving behind a unique scar of cruelty and neglect. It's a burden too heavy for our Earth to bear. And I, a mere blip, found myself on the precipice of non-existence. A Tuesday etched into memory, the second-to-last day of school, and the prelude to my abrupt end. I offer you, reader, not just a recounting of my last week and the only proof of my existence, but also a stark warning.
 
 
 At fifteen, I was awkwardly wading through the stormy seas of adolescence, complete with the scourge of hormonal surges and the unfortunate sprinkling of acne dotting my face. My world was wonderfully wrapped up in a corner of our high school cafeteria, a realm presided over by Emila. The dazzling subject of my dreams, she held me under her spell with her enchanting beauty. Her hair, a river of glistening platinum, formed a comforting canopy around me, filling my senses with a tantalizing mix of coconut-scented shampoo and the memorable reminder of our gym sessions. 
 
 
-“Alex, come back to Earth!” 
+“Alex. ALEX!” 
 
 
 My Emila-infused daydream was interrupted by Elijah, my only friend in a table full of acquaintances. 
@@ -16,10 +16,10 @@ My Emila-infused daydream was interrupted by Elijah, my only friend in a table f
 He asked, a twinkle of devilish delight dancing in his eyes. I fumbled for my phone, eager for a dose of Elijah’s promised comedy, only to find the video was no longer available with unsurprising speed.
 
 
-“Man, it was comedy gold! Imagine Thanos, asscheeks and all, telling the most offensive Holocaust joke. Legendary stuff” 
+“Man, it was comedy gold! Imagine Thanos, asscheeks and all, telling the most offensive shit. Legendary stuff” 
 
 
-Elijah chuckled heartily, his laughter echoing around the room, amplified by his own creative narrative.
+Elijah chuckled heartily, his laughter echoing around the room.
 
 
 “Sure sounds like it” 
@@ -28,7 +28,7 @@ Elijah chuckled heartily, his laughter echoing around the room, amplified by his
 I muttered, my gaze returning to Emila. Her attention was stolen by my older brother, the infamous Mikey, whose joke had her laughing. Mikey, a final year student with a solid record of academic underachievement and a proclivity for marijuana, was a walking, talking, stoner stereotype. What was unsettling was his inexplicable charm with the wide-eyed freshman girls, a twisted hobby that gave him an unusual sense of satisfaction.
 
 
-As the bell shrilled, signaling the end of the school day, Mikey abruptly stood up, the metal chair beneath him screeching. His next words, a slurred mix of slangs and contemporary cuss words, were aimed at summoning his freshman fan club. At the same time, he bumbled out a half-hearted invitation for Emila to join their quest for illicit pleasures. Emila's reaction was a fusion of disgust and amusement, an expression I decided to commit to memory for my poetry. She gracefully declined his offer with a well-rehearsed flip of her hair and a disdainful wave of her hand, then she returned to her conversation, laughter pealing from her like sweet music, completely oblivious to my heart hammering in my chest.
+As the bell shrilled, signaling the end of the school day, Mikey abruptly stood up, the metal chair beneath him screeching. His next words, a slurred mix of slangs and contemporary cuss words, were aimed at summoning his freshman fan club. At the same time, he requested for Emila to join their quest for illicit pleasures. Emila's reaction was a fusion of disgust and amusement, an expression I decided to commit to memory for my poetry. She gracefully declined his offer with a well-rehearsed flip of her hair and a disdainful wave of her hand, then she returned to her conversation, laughter pealing from her like sweet music, completely oblivious to my heart hammering in my chest.
 
 
 Around me, chaos broke loose as the cafeteria, now released from the clutches of academic torture, transitioned into a war zone of wild whoops, boisterous laughter. The last sight that graced my eyes as I exited the cafeteria was the bewildered expression on the face of our school janitor, as he stood paralyzed amidst the storm, mop in hand It was a fittingly ludicrous end to another thrillingly mundane school day. With that, I picked up my bag, donned my headphones, and began my solitary trek home.

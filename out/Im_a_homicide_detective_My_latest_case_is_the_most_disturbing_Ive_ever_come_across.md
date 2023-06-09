@@ -72,4 +72,6 @@ I opened it up.
 
 *My zoo has only just begun.*
 
+[Part 2](https://www.reddit.com/r/nosleep/comments/13v9qcy/im_a_homicide_detective_apparently_things_can_get/)
+
 [x](https://www.reddit.com/r/ineedabettersub/)

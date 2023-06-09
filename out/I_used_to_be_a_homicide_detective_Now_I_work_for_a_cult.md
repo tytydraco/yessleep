@@ -228,7 +228,7 @@ I stumbled out of the room, to see Eddison pouring what looked like to be gasoli
 
 "Hey, man. You can relax. I'm the one who helped you out there. You would have died if it wasn't for me."
 
-I scanned his face, and I believed him. I put my fists down. 
+I scanned his face, and I believed him. I put my fist down. 
 
 He continued. "I hated it here as well, but I could never find an opportunity to strike back. What you did was very brave."
 
