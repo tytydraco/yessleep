@@ -378,3 +378,8 @@ James makes Mike call junior off before it can decapitate the creature, confirmi
 It truly sinks in that this group of elderly psychonaughts, they have power, reach and motives neither Mike nor Myself actually understand. 
 
 I’ve never needed a line so bad in my life.
+
+
+Link to Part 3
+
+https://www.reddit.com/r/nosleep/comments/145thkq/finding_art_part_3_infinite_oldsmobile/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button
