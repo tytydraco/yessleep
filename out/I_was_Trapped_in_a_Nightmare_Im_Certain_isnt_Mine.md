@@ -86,7 +86,7 @@ Distorted circus music crackled around me and I jolted up, my heart ricocheting 
 
 Clowns.
 
-I whipped around, trembling to the rhythm of my frantic pulse. They were surrounding me. Dozens of them. As classic as any clown could be. Colorful clothes, big shoes, silly hair, exaggerated makeup. I wasn't scared of clowns, as long as they were where they belonged. And they didn't belong here, staring at me with empty eyes and toothy grins.
+I whipped around, trembling to the rhythm of my frantic pulse. They were surrounding me. Dozens of them. As classic as any clown could be. Colorful clothes, big shoes, silly hair, exaggerated makeup. I wasn't scared of clowns, as long as they were where they belonged. And they didn't belong here, staring at me with empty eyes and yellow, toothy grins.
 
 I tried to convince myself that they weren't dangerous since they didn't have weapons and didn't seem monstrous, but when they took a step closer in unison, I jumped back, nearly falling into the pond. The ducks remained oblivious, still swimming in their circle. The distorted circus music got louder, and my hair stood on end when I saw the grass ripple in front of each clown. They were sending something my way through the ground.
 
@@ -132,27 +132,39 @@ Up ahead, the road curved, and I gasped as it ended in a cliff. I slammed the br
 
 My heart hung in my throat as I hung on to the steering wheel, my knuckles white, my screams frozen in my lungs, the raindrops like needles. An endless body of water spread below me, and I knew sharks were my next challenge. I screwed my eyes shut as I awaited the inevitable plunge …
 
-… and I gasped as a gentle hand woke me up.
+… and I gasped as the car crashed against the surface.
 
-I sat up, my pyjamas plastered to my damp skin, the silk sheets soaked. The tech gave me a sympathetic smile and asked me if I wanted to review the dream or if I wanted to delete it right away, since she could sense it was a nightmare. 
+I lurched forward, and I cried out as I bashed my forehead against the wheel. Groaning, I leaned back, my ears ringing as I looked around, disoriented. I was still in the convertible, but we were right side up, having crashed into the concrete wall of an indoor garage. Blood trickled down my face and I reached up, only to feel around my head in shock.
 
-I stared at her in furious disbelief as I yelled and cursed, accusing them of misconduct, and she gave me a confused frown. She said I had booked a recording session, not a projection one. After I called her a liar, management got involved, and they showed me my file with proof that I'd booked and paid for a recording session.
+I was wearing the helmet.
 
-I told them they must have mistakenly charged me for a recording session, but I was one hundred percent sure I went through a projection session. I asked for five hours on a Tuesday afternoon. Not eight hours on a Tuesday evening. I had champagne and cranberry brie bites, not chamomile and honey-glazed almonds.
+Why was it in the dream?
 
-Their concern increased as they told me I was wrong. They said it was Wednesday, I'd slept the entire night, and they had my recorded dream to prove it. I demanded to skim through it, and they obliged. There it was, every scene of that nightmare. But it wasn't mine. It couldn't be. Could it? I hated scary movies. I also rarely had nightmares unless it involved me going broke. Why would I dream of an amalgamation of every horror cliche?
+Or had I made it out?
 
-For a second, I was afraid I was still in the dream. This nightmarish scenario would fit right in with the others, taking it to Inception levels. But everything seemed real. I could hear, feel, and speak. No one was growing tentacles or blades. Nothing smelled pungent. Nothing glowed red.
+I looked down. I wasn't naked. My pyjamas were plastered to my sweat-soaked skin. I *was* out. I looked around at the broken glass and mangled metal in confusion. But if I was finally out, why was I in a car and not between silk sheets?
 
-I groaned and buried my face in my hands, confused and uncomfortable. I didn't know what the truth was anymore. One tech reminded me it was impossible for dreams to be projected to anyone but their creator. Another tech gently touched my shoulder and suggested I see a doctor if I continued to get spells of confusion like this. Not knowing how to reply, I paid them to save the nightmare before I got dressed and left.
+I removed the helmet, and a yell from behind made me jump. I turned to see one of the dream techs running towards me. Was she always that skinny? And why were her scrubs red instead of the usual blue?
 
-Back home, I talked to family and friends, nothing seemed suspicious. Nothing seemed ready to kill me. I'm typing here on Reddit, and I'm sure I'll get replies. I'm out of the dream. I'm certain of it. But that leaves two other options.
+She made it to me, panting as she took the helmet out of my hands, and I wrinkled my nose at her unpleasant breath. She said I'd had a nightmare and began sleepwalking, and I left the dream bank and stole a car from their underground parking before she triggered a wake-up signal in the helmet which made me crash.
 
-Either I really did book a recording session and had my own nightmare, in which case I should take the tech's advice and see a doctor because my memory doesn't add up …
+I stared at her, not believing what I was hearing. I told her I'd booked a projection, not a recording, and she gave me a confused frown and claimed the opposite. Anger replaced my confusion, and I called her a liar and accused them of misconduct as I tried to get out of the car. She was quick to tell me not to move in case I made my injuries worse as she pulled out her phone and said she was going to call an ambulance.
 
-… or something sinister is going on at the dream banks, and they're using their clients as guinea pigs. Perhaps they're planning on branching out and creating a mental house of horrors where clients can get a near-realistic experience without fear of death. But why wouldn't they ask for volunteers instead of traumatizing loyal customers?
+While I sat there and waited, fuming, I glimpsed my reflection in the dangling rearview mirror. Unease rippled beneath my skin and I sat up, grabbing the mirror and angling it to show my neck.
 
-So I have to ask, have any of you experienced something similar? I know the odds of finding another multimillionaire who frequents dream banks is slim on Reddit, but even one other account can help my case.
+There was a red mark across it.
+
+As though I was recently strangled.
+
+Trembling, I tilted the mirror up. 
+
+Cobwebs. Stuck in my hair.
+
+Dumbstruck in utter stupefaction, I scanned the rest of my body, but my examination was cut short by tinny circus music. A chill jolted down my spine and I whipped my head to face the dream tech. That was her ring tone. She smiled as she answered the call, and I drew back at her yellow, toothy grin. 
+
+What was going on? I was out of the dream, I knew I was. Had everything been real? What had the dream bank done with me? Done *to* me?
+
+Ambulance sirens wailed as they entered the underground parking, and the flashing red lights reflecting off the walls triggered my recent traumas. With terror-fueled adrenaline flooding my veins, I jerked my legs free of the wreck, jumped out of the car, and booked it, the dream tech's yells merging with the screeching sirens behind me.
 
 -----
 
