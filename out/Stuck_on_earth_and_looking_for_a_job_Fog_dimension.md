@@ -242,3 +242,5 @@ Rhonda's been in touch.
 [24: dollhouse](https://www.reddit.com/r/nosleep/comments/142estj/stuck_on_earth_and_looking_for_a_job_were_burning/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [25: burning plastic](https://www.reddit.com/r/nosleep/comments/143l18k/stuck_on_earth_and_looking_for_a_job_burning/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[27: sea goddess](https://www.reddit.com/r/nosleep/comments/145zphx/stuck_on_earth_and_looking_for_a_job_were/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
