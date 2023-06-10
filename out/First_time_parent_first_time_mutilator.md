@@ -91,6 +91,12 @@ She folded her arms, hung her head, and rested her face in her hand. “I’m so
 
 Kimmy dropped her hands to her sides and gave me the saddest look. “Okay,” she whispered. “Here’s the truth about my family [and our daughter](https://www.facebook.com/P-F-McGrail-181784199029462/).”
 
+---------
+
+[Her fucking family](https://redd.it/145xoik)
+
+----------
+
 [BD](https://www.reddit.com/r/ByfelsDisciple/)
 
 
