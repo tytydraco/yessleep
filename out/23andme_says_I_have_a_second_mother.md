@@ -97,3 +97,5 @@ Inside was a folded piece of pink paper, tied off with black ribbon. No stamp—
 **meet me at d--- park at midnight tonight.**
 
 **-G**
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/146m2ef/23andme_says_i_have_a_second_mother_part_2/)

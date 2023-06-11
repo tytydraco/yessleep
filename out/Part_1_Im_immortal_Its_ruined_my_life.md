@@ -118,7 +118,7 @@ The way its slick body began to chew through my skull.
 
 I remember how I screamed until my voice gave out.
 
-“*You will not get the peace of death, you coward.*” The woman crooned.
+“*You will not get the peace of death, you coward.*” The woman whispered.
 
 And this all began.
 
