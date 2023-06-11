@@ -205,3 +205,5 @@ Time to call Mary Markov again.
 [25: burning plastic](https://www.reddit.com/r/nosleep/comments/143l18k/stuck_on_earth_and_looking_for_a_job_burning/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [26: fog dimension](https://www.reddit.com/r/nosleep/comments/1454acr/stuck_on_earth_and_looking_for_a_job_fog_dimension/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[28: mixed martial arts](https://www.reddit.com/r/nosleep/comments/146u636/stuck_on_earth_and_looking_for_a_job_mixed/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)

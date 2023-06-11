@@ -22,7 +22,7 @@ I was of the opinion that the whole thing was fake, just a myth as its name sugg
 But I was wrong. So wrong. 
 
 
-I grew up in that village so I was well aware of the myth and as a kid I believed that witches were around the area. Whenever we'd hear a sound we would snap our heads at the direction fearing it was them. Getting ready to run but always turning out to be a cat stepping on a leaf or the cool breeze of the summer nights making the tree leaves brush against each other or the flamesin the fireplace. Never them.
+I grew up in that village so I was well aware of the myth and as a kid I believed that witches were around the area. Whenever we'd hear a sound we would snap our heads at the direction fearing it was them. Getting ready to run but always turning out to be a cat stepping on a leaf or the cool breeze of the summer nights making the tree leaves brush against each other or the flames in the fireplace. Never them.
 
 I believed in them until when I was like 13. 
 
@@ -143,7 +143,7 @@ They smiled at me knowingly.
 
 My parents came to visit me and explained everything.  
 
-I was in town now and not in the village. My friends freaked out when they saw me passed out and got my parents there and after that we left for a nearby town with a hospital until they figured out I was in a come and was transferred to our town's hospital. 
+I was in town now and not in the village. My friends freaked out when they saw me passed out and got my parents there and after that we left for a nearby town with a hospital until they figured out I was in a coma and was transferred to our town's hospital. 
 
 My friends were all scared when that happened and the worried looks on their faces made my parents believe everything they said. 
 
