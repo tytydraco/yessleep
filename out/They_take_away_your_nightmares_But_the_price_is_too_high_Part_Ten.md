@@ -227,3 +227,7 @@ I jumped at Gracie’s voice behind and above me, and when I looked back, I saw 
 She squeezed her eyes shut as she lowered her head.  And when she spoke this time, it was a brief, broken whisper.
 
 [“I know.”](https://redd.it/10h9jfw)
+
+**** 
+
+[Part Eleven](https://redd.it/146ytvp)
