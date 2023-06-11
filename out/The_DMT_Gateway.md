@@ -23,3 +23,5 @@ In the days that followed, I couldn't shake the feeling that my DMT experience h
 As I continued to ponder the implications of my journey, I began to notice subtle changes in my everyday life. I felt more attuned to the world around me, and I started to experience strange synchronicities and moments of déjà vu. It was as if the DMT had opened up a channel of communication between me and the supernatural, and I couldn't help but feel both fascinated and unnerved by the possibilities that lay ahead.
 
 I knew that I had only scratched the surface of the mysteries that DMT had to offer, and I couldn't resist the urge to delve deeper into the unknown. Little did I know that my curiosity would lead me down a path from which there was no turning back, and that the line between reality and the supernatural would become forever blurred.
+
+Edit: This Account Of My DMT Experience Was Generated Using OpenAI’s ChatGPT
