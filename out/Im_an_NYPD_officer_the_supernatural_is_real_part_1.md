@@ -64,3 +64,8 @@ I hung my head in defeat and expected him to berate me of the potential years of
 All evidence of last night's events has been confiscated and suppressed. The department will issue a statement of your partners death that will not involve supernatural creatures." I interrupted him as he was beginning another sentence."I've had a really stressful night, and I'm sorry, I don't think I've ever seen you in our department before, not that I'd care what your fucking name is or your hopes and dreams but you just barge in here and start telling me thing's that don't make a lick of fucking sense to me." I drop my head yet again in  indifference.
 
  "All I want to know right now is, am I crazy or not." The man looked sympathetic although in a very robotic way. "You're not crazy Mr. Morales. And as you most eloquently put it, you and I have never met. Consider me a liason between our two departments." "What department?" I asked, genuinely confused. "The one you've just been transferred to."
+
+
+Part 2
+
+https://www.reddit.com/r/nosleep/comments/146kubn/the_reunion/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button

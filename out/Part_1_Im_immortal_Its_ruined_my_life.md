@@ -120,7 +120,7 @@ I remember how I screamed until my voice gave out.
 
 “*You will not get the peace of death, you coward.*” The woman crooned.
 
-And this hell began.
+And this all began.
 
 \*\*\*
 
@@ -130,8 +130,6 @@ She shows up sometimes, you know.
 
 In the corners of my eye, watching. These days her eyes are black pits. Her jaw hangs in a slack parody of a grin.
 
-I have outlived my own Death.
-
-And it terrifies me.
+I live in hell. And it terrifies me.
 
 [X](https://www.reddit.com/user/Beanhedge/comments/13jkvqg/the_story_hole/?utm_source=share&utm_medium=web2x&context=3)
