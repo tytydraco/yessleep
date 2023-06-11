@@ -186,7 +186,7 @@ I stood in the field, waiting with bated breath as I heard further gunshots in t
 
 He was eating a mouth of dirt as I pulled him to his feet. "We have to get out of this field! The ghost bride will pick us off in this thicket!"
 
-Stumbling, and running, the two of us were covered in more than dirt. Several times we heard rustling nearby as if something were running alongside us. But eventually we made it out into the open plain. The detective trying to catch his breath as he reloaded his pistol.
+Stumbling, and running, and slipping as the two of us covered in more than mud. Several times we heard rustling nearby as if something were running alongside us. But eventually we made it out into the open plain. The detective trying to catch his breath as he reloaded his pistol.
 
 "Shooting it doesn't work," he panted. "But maybe I can disable it from moving."
 
@@ -196,7 +196,7 @@ He stopped for a moment and we waited. Then all of the stalks before us shook wi
 
 They were terrified as they ran right through us.
 
-I hadn't experienced the feeling in awhile but the coldness as their ghostly forms went through our bodies like ice was enough to bring us both to our knees, clutching our chests as we struggled to breathe. I had passed through one or two in a row before. But never 10 or 20 at a time.
+I’ve experienced the feeling before but the coldness of their ghostly forms going through our bodies like ice was enough to bring us both to our knees, clutching our chests as we struggled to breathe. I had passed through one or two in a row before. But never 10 or 20 at a time.
 
 "What was that," the detective managed to gasp, his fingers in a death grip around his gun.
 
