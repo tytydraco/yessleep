@@ -231,3 +231,6 @@ The alien artifacts- especially the corpse fetched a high price on the market. W
 But at the end of the day that didn’t matter. Our job was done, and we lived to see another day. Such was life in the world of the artifact underground- it’s really the small things that matter- the knowledge that you, at least, would live to see another day.
 
 And that, by me, was okay.
+
+
+[Vol 1](https://www.reddit.com/r/nosleep/comments/13cci6c/i_sell_cursed_artifacts_for_a_living_theres_a/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
