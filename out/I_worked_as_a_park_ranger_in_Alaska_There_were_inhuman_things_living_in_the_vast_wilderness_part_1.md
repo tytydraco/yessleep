@@ -140,3 +140,6 @@ The creatures that fed and cared for this monster rushed over, dragging the eggs
 
 
 Whatever that monster was, it had already given birth, and now those things were walking around, totally free to kill anything, or anyone, they wanted.
+
+
+Part 2: https://www.reddit.com/r/nosleep/comments/148xy3t/i_worked_as_a_ranger_in_alaska_for_years_there/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button

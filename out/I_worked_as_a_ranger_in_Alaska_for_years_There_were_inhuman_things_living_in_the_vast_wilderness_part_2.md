@@ -1,13 +1,15 @@
 Part 1: https://www.reddit.com/r/nosleep/comments/13xof65/i_worked_as_a_park_ranger_in_alaska_there_were/
 
 
-“Oh God in Heaven,” Ace whispered in the eerie purple light of the cave. Before us, the bright red hand shot forward and grabbed the body of the headless man. It lifted the corpse up with ease. I watched the beast open its jaw wide enough to throw the corpse in without difficulty. Snapping its mouth shut, it sprayed more blood down its face and across the eroded stone floor in front of it. Dark red stains emanated out across the floor for twenty feet in front of the creature, looking like clotted Rorschach inkblots in the fetid cave.  
+This was the nightmare that took place years ago when I was a park ranger. I still remember standing there, feeling dissociated and strange as I looked down on the eerie scene below us.
+
+“Oh God in Heaven,” Ace whispered in the purple light of the cave. Before us, the bright red hand shot forward and grabbed the body of the headless man. It lifted the corpse up with ease. I watched the beast open its jaw wide enough to throw the corpse in without difficulty. Snapping its mouth shut, it sprayed more blood down its face and across the eroded stone floor in front of it. Dark red stains emanated out across the floor for twenty feet in front of the creature, looking like clotted Rorschach inkblots in the fetid cave.  
 
 
 “We need to go deeper in,” Jansen said, looking from me to Ace with a serious frown on her face.
 
 
-“What are you, insane?” Ace said. “Do you want to die? There could be thousands of those things down there.” But the decision was quickly taken out of our hands as we heard screaming- a young, high-pitched voice. We all looked down at once and saw the white humanoid mutants dragging out a young boy, one that I recognized from pictures on the trailer park crime scene wall. He had cuts and scrapes all over him and was shivering, either from hypothermia or fear or both, but he was alive. His eyes were huge as he was dragged forward by his small hands towards the great black insectile beast in the corner.
+“What are you, insane?” Ace said. “Do you want to die? There could be thousands of those things down there.” But the decision was quickly taken out of our hands as we heard screaming- a young, high-pitched voice. We all looked down at once and saw the white humanoid mutants dragging out a young boy, one that I recognized from pictures on the trailer park crime scene wall. He had cuts and scrapes all over him and was shivering, either from hypothermia or fear or both, but he was alive. His eyes were huge as he was dragged forward by his small hands towards the great red insectile beast in the corner.
 
 
 “God dammit,” I whispered, looking at Ace and Jansen. “OK, Jansen and I will take point positions. Ace, you guard the rear. We will form a triangle and start shooting. When one reloads, the other two cover. Ace, you’ll need to swing back and periodically check our backs to make sure there’s no ambush. Now let’s go!” They didn’t question my command. Neither of them had time to. To save the boy, we needed to move immediately. We started down the smooth stone floors, only a couple hundred feet away from unknown numbers of enemies.
