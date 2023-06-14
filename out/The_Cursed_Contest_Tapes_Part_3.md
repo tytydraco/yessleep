@@ -252,7 +252,7 @@ Albert: “It was self-defense! He was an abusive piece of shit and she just let
 
 *A brief yet heavy silence falls over the courtroom.*
 
-**Chase*****:*** “Due to the severity of this crime, your age will not be a mitigating factor in this case. You will be serving life in prison.”
+**Chase**\*\*\*:\*\*\* “Due to the severity of this crime, your age will not be a mitigating factor in this case. You will be serving life in prison.”
 
 &#x200B;
 
@@ -483,3 +483,7 @@ Anyway, I better end this post here. Before I get something to eat, I think I’
 &#x200B;
 
 This is [Zane,](https://www.reddit.com/r/StoriesFromRose/) logging [out.](https://twitter.com/RoseBlack2222)
+
+&#x200B;
+
+[https://www.reddit.com/r/nosleep/comments/1492den/im\_a\_research\_assistant\_with\_some\_stories\_to\_tell/?sort=new](https://www.reddit.com/r/nosleep/comments/1492den/im_a_research_assistant_with_some_stories_to_tell/?sort=new) (I thought I'd take a break from posting about Lududs.)
