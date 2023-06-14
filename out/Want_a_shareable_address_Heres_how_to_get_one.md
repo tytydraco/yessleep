@@ -20,6 +20,4 @@ As I was returning to my study just now, I received an image of my house from th
 
 I'm so done for.
 
-Want a shareable address? Here's how to get one.
-
-[x](https://www.reddit.com/r/someoneisbehindme/comments/148z2ul/third_story/)
+[Want a shareable address? Here's how to get one.](https://www.reddit.com/r/someoneisbehindme/comments/148z2ul/third_story/)
