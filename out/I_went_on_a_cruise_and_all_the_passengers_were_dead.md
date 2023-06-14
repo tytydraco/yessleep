@@ -156,4 +156,4 @@ As I entered the terminal with its blessed filtered air and the windows between 
 
 *... and I’m the only one* [*who knows…*](https://www.reddit.com/r/QuincyLee/comments/11nxwz3/welcome_thanks_so_much_for_stopping_by/)
 
-[\[Part 2\]](https://www.reddit.com/r/nosleep/comments/142z4tp/i_went_on_a_cruise_and_found_the_source_of_the/) [\[Part 3\]](https://www.reddit.com/r/nosleep/comments/144ahip/i_went_on_a_cruise_and_one_passenger_didnt_belong/)
+[\[Part 2\]](https://www.reddit.com/r/nosleep/comments/142z4tp/i_went_on_a_cruise_and_found_the_source_of_the/) [\[Part 3\]](https://www.reddit.com/r/nosleep/comments/144ahip/i_went_on_a_cruise_and_one_passenger_didnt_belong/) [[Part 4]](https://www.reddit.com/r/nosleep/comments/149hbp4/i_went_on_a_cruise_and_something_unspeakable_came/)
