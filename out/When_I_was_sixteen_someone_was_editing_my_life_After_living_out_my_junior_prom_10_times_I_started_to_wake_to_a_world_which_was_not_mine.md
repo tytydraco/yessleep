@@ -112,9 +112,7 @@ Maybe Seven only had that version of her, though it was still eerie hearing her 
 
 I often wondered why they didn’t. If they could alter my life to fit their taste, why did they leave me with the memories? I quickly came to realize throughout my life that it was just me who was being played around with. The people in my life stayed the same, while in my perspective they changed. Things like accidents and deaths were things that couldn’t be changed. My dad died when I was eleven years old, and at the time I thought the phenomenon playing with my life would bring him back like they could bring me back. But things like my dad’s death and my best friend’s cancer diagnosis could not be changed or edited. 
 
-I could die multiple times and be brought back as many times as Seven wanted, but I couldn’t go back and cut out when Nick revealed he had something on his brain, which turned out to be benign, a grade two brain tumor that was thankfully treatable, though still had potential to spread and become malignant. It didn’t. 
-
-Though it could have. This was my first proper slap in the face. I could be edited and fucked with, while the people in my life had their own fate—their own path. Nick’s path was his. 
+I could die multiple times and be brought back as many times as Seven wanted, but I couldn’t go back and cut out when Nick revealed he had something on his brain, which turned out to be benign, a grade two brain tumor that was thankfully treatable, though still had potential to spread and become malignant. It didn’t. Though it could have. This was my first proper slap in the face. I could be edited and fucked with, while the people in my life had their own fate—their own path. Nick’s path was his. 
 
 He discovered he had a potentially killer disease at the age of fourteen years old, fought it, and won. 
 
@@ -330,11 +328,11 @@ It took ten seconds of waiting, fully aware I was bleeding out, that my body was
 
 And yet when I died, my mind was still awake. I was still thinking, still trying to figure out how I was thinking without a physical body. 
 
-The world jolted around me. This time I could see it for what it really was. An abyss of darkness with no way out. Only the school, my house, and a long winding road dipped into nothingness, everything beyond drowned in shadow, lonely oblivion. It was 8 pm once again. 
+The world jolted around me. This time I could see it for what it really was. An abyss of darkness with no way out. Only the school, my house, and a long winding road dipping into nothingness, everything beyond drowned in shadow, lonely oblivion. It was 8 pm once again. 
 
-I was on my bike again, surrounded by fireflies buzzing in my face. 
+I was on my bike, surrounded by fireflies buzzing in my face. 
 
-But this time I knew what I was going on, as the words **GAME OVER** faded from the backs of my eyes. 
+But this time I knew what was going on, as the words **GAME OVER** faded from the backs of my eyes. 
 
 When I was a kid, Sunny, Max, Johnny, and Liam weren’t random kids picked out to be my crushes.
 
