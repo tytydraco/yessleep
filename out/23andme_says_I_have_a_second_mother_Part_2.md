@@ -97,3 +97,5 @@ And because of something else.
 As I watched her walk away that night, I noticed she had a birthmark just above her right elbow.
 
 Just like I [have](http://www.reddit.com/r/blairdaniels).
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/148xxk8/23andme_says_i_have_a_second_mother_part_3_final/)
