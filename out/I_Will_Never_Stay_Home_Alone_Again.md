@@ -1,0 +1,42 @@
+I still remember the night like it was yesterday. Twelve year old me, holed up in my room, home alone during a storm. Random *thwumps* and *thuds* could be heard. The low static on the T.V. as I colored while listening to my music. My mom and step-dad left me home alone while they went on their honeymoon. My first night being home alone was amazing. I could stay up as late as I wanted, I could eat all of the food in the pantry. I could watch whatever shows I wanted. It was great. My mind wasn’t focused on the eerie sounds the old house made. My mind was just focused on enjoying the night as it was.  
+  
+As the thunder grew louder, so did my music until eventually, I could no longer hear the rain at all. By now, I was still hiding in my room, nearly finished with my coloring. Art was my passion—it still is. I’ve always been quite good. From portraits to landscapes. I mostly liked to doodle back then though. Soon, the rain got intense. It began pouring. Slamming against my window. It sounded like thousands of miniscule objects being tossed at it. The winds combined with the rain must’ve done some slight damage to the power.  
+  
+Lights began to flicker. My music no longer covered the sounds of rain and thunder. I could no longer see what I was working on. I was never afraid of the rain or thunderstorms. But that night in particular really got to me. Once the power finally went out, I had nothing but moonlight to guide me to the door. I used my phone to text my friend, hoping it wasn’t just me who’s power went out. Except, I was. When I got downstairs, I saw through the window that the rest of the block had power, just not me.   
+  
+“*Well, that’s weird.*” I initially thought to myself. It wasn’t unusual for our house to malfunction in some way. It was old, and was originally made around the early nineteen hundreds. I decided to try the breaker box down in the basement. It took a bit of force to get it back on usually, but this time it was easy. Even with it being slightly less challenging, there were still no signs of light. With my growing frustration, I decided to give it a rest for the night, and headed back upstairs. I grabbed a flashlight from the closet, and went back up into my room.   
+  
+My phone was on eight percent, and without power, I’d have to wait until morning to get ahold of anybody. My once staticky T.V. was now black and silent.   
+  
+“Hopefully this goes away. I’d really like some music. Some lighting would be helpful as well!” I shouted, as if the storm gods could hear me and fulfill my wishes. However, that wasn’t the case. I was just going to have to deal with the moon and my flashlight.   
+  
+Eventually, as time passed, the rain stopped, and wind took its place. With the power being out, my clock wasn’t working. I could only assume that it was around two-thirty. I was growing restless. No matter how tired I got, I couldn’t push myself to fall asleep. It got to the point where I couldn’t even tell what time it was. Has morning come? Am I stuck in an endless night? It all felt so real, yet I could hardly tell what was real about it.   
+  
+At around what felt like three A.M. I heard a strange knock at my front door. It was quick. Before I could grab my flashlight and head back downstairs, three more knocks appeared, followed by a quick blare of the doorbell. “Hello?!” I hollered over the wind. Whoever it was, was silent. I tiptoed over to the window, expecting someone to be standing outside my door, waiting for me to innocently open it. Right in that instant—everything fell silent. All I could hear was the repetitive sound of my family’s grandfather clock ticking. That seemed to add an eerie feeling to it all. It matched the repetitive sound of my rapid heartbeat. Although nobody was at the door, I noticed a figure outside across the street. They looked around my age. Wearing a striped blue and white pajama set, almost as if they came from the late fifties.   
+  
+The clock still ticked. Ticked and ticked and ticked. I can still hear its pattern in my head.   
+  
+*Tick—tock—tick—tock—tick—tock.* The dashes represent each millisecond before the next sound was made. Still, it resides in my head. *Tick—tock—tick—tock.*  
+  
+While focusing on the ticking, I missed the figure getting increasingly close to my front door. By the time I looked away from the clock, and back through the window, the figure was now in the middle of the street. The moonlight just barely lit them up. I could see certain details. The figure was a young boy my age. He had jet black hair. His clothes just barely flowed with the low wind. His head, slightly tilted to the side. There was a blank expression on his face. I couldn’t see it then, but his eyes were a reddish pink, almost as if he had been crying. The more I stared at him, the more my heart would speed up. I kept following the sound of the clock.  
+  
+*Tick—tock—tick—tock—tick—tock.*   
+  
+I stared at him a little longer. “*Nobody should be out at this hour. Poor kid looks soaked.*” I thought. He seemed to be in a trance. I couldn’t tell if it was a nasty case of sleepwalking, or if something else was going on. The longer I stared, the better his image developed in my head. Almost as if he knew I was there, his head tilted, and pointed directly at me. Now, we were making eye contact. I couldn’t tell if I was scared or trying stupidly to be brave. Whatever I was doing was not the right move.   
+  
+  
+Something told me it’d probably be better if I hid, so that’s what I tried to do. I sat all the way down, hiding in between the clock and the wall, hoping he wouldn’t see me even if he tried looking through my window. The clock seemed to speed up, this time being faster than its regular beat. I could only hear the ticking. Nothing else.  
+  
+*Tick-tock-tick-tock-tick-tock-tick-tock.*   
+  
+Then it got faster, beginning to sound like a lot of things. Rain dripping from a drain, shoeless feet pitter-pattering on the wet concrete, knocking in a rhythmic pattern against my walls. The sounds of the real world, glitching in and out like a scratched tape. The ticking of the clock is so fast I can’t even type it with dashes anymore.  
+  
+*Ticktockticktockticktockticktockticktock.*   
+  
+For a moment there's a ghostly cry growing closer and closer. It’s—humming to me. It’s trying to calm me. To lure me outside with it. When I won’t, it begins to cry. The cries grow louder, the door begins to bang. I try to cover my ears and make it go away, but the knocks are just as repetitive as the clock. The knocking grows louder and more aggressive as the crying continues. With the pounding on the door growing louder and more consistent, the window begins to rattle as it’s being knocked on as well. “STOP!” I yell, wishing for it to be over. With that, everything goes quiet. I can still feel the door rattling as the knocking continues. I can feel the presence of whatever that boy is. I just can’t hear anything. As I crept towards the window to see what was happening. I came face to face with the boy. His face hardly lit, yet I could see every detail.  
+  
+His eyes were red, cheeks stained with tears. His neck outstretched, his body still standing in the middle of the street. He was crying loudly, yet the cries were that of some sort of demonic entity.   
+  
+“What are you..?” I asked, afraid if I didn’t say or ask the right thing, something similar would happen to me. Up close, he resembled my neighbor from across the street. If it was him, it wasn’t the boy I remember. “Don’t—open—the—*door.*” The boy said. His neck sank back into his body, as quick as it seemed to have come out. With a swift snap, his head now faced the other side of  his body as he fell to the floor. I sprinted up to my room, hiding under my sheets until morning, which was only three hours away.   
+  
+I still don’t know what I saw that night, but I know now, at my current age. I still refuse to stay home alone, especially on stormy nights. People will obviously say this is fake, but I know what I saw. And to add to this nightmare, that boy was gone by morning. Gone before I could tell my parent’s anything. Even though they could sense that I changed overnight, they will never find out what happened. Thank’s for letting me banter. I’ve been meaning to find people who’ve had creepy experiences in their life to talk to. Someone let me know what you think. Or if you need more details, feel free to ask.
