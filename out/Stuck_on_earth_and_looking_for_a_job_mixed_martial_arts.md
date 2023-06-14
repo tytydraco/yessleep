@@ -167,3 +167,5 @@ Mostly moronic.
 [26: fog dimension](https://www.reddit.com/r/nosleep/comments/1454acr/stuck_on_earth_and_looking_for_a_job_fog_dimension/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [27: sea goddess](https://www.reddit.com/r/nosleep/comments/145zphx/stuck_on_earth_and_looking_for_a_job_were/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[29: Heads up](https://www.reddit.com/r/nosleep/comments/14942vm/stuck_on_earth_and_looking_for_a_job_heads_up_the/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
