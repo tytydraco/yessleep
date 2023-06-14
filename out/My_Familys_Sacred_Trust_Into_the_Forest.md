@@ -1,6 +1,7 @@
-TW: Animal Abuse
+  
+TW/Animal Abuse 
 
-&#x200B;
+[Part 1](https://www.reddit.com/r/nosleep/comments/142izxy/my_familys_sacred_trust_bella_and_barney/)
 
 I stared at the massacre of our sheep, my pulse racing with the urge to flee. But I remained rooted to the spot on my knees, my mind swirling and jumping. Dad in ICU, all the sheep dead, and my dogs gone. I never felt so alone and afraid. In my mind came the image of my dad, not like I had last seen him, but as he has always been, strong, rational, loving and understanding. He was my rock, even now. I always hoped, always strove to be more like him. I took out my phone and called Martin.  
 “Audrey,” Martin said, “what’s up, you okay?”  
