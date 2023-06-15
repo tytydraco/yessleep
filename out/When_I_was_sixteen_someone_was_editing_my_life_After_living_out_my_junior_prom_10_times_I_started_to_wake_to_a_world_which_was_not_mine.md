@@ -38,11 +38,13 @@ On my thirteenth birthday, I was hunted down by a woman in a grey suit, chased i
 
 This woman never spoke to me. She never said a word when she murdered me. I went through this three times. Three versions of me screaming for my parents who were never home, throwing myself into a run that was never fast enough, and always, always going into the same forest I knew was my final destination. I started to wonder if being murdered was my fate.
 
-If this thing in charge of my life and actions wanted me to suffer. Before the fourth time. Where I shut my bedroom window and decided to sleep downstairs. I waited for her to come downstairs, for her looming silhouette to appear over me like it always did, pulling me from slumber and catapulting me into a chase that had ended in me bleeding out on the forest floor with no air in my lungs to scream for help. 
+If this thing in charge of my life and actions wanted me to suffer. Before the fourth time. Where I shut my bedroom window and decided to sleep downstairs. I waited for her to appear, for her looming silhouette to loom over me like it always did, pulling me from slumber and catapulting me into a chase that had ended in me bleeding out on the forest floor with no air in my lungs to scream for help. This time though, there was no woman in a grey suit. 
 
-This time though, there was no woman in a grey suit. I slept soundly downstairs and was woken by my mother returning from work with a giant birthday cake and presents wrapped in bright pink. I thought the thing would stop hurting me, stop forcing me through the same traumatic events, cutting and pasting and editing them to make them progressively more torturous. But they didn’t stop there. Oh, no. 
+I slept soundly downstairs and was woken by my mother returning from work with a giant birthday cake and presents wrapped in bright pink. I thought the thing would stop hurting me, stop forcing me through the same traumatic events, cutting and pasting and editing them to make them progressively more torturous. But they didn’t stop there. Oh, no. 
 
-Because if someone can kill over and over again without consequences, as well as the ability to cut it out like it never happened, why wouldn’t they? So, in real life if you had the ability to do it to a real person… you would.
+Because if someone can kill over and over again without consequences, as well as the ability to cut it out like it never happened, why wouldn’t they? 
+
+So, in real life if you had the ability to do it to a real person… you would.
 
 I remembered every single time I died. 
 
@@ -54,9 +56,9 @@ I was forced to relive it over and over and over again with certain edits put in
 
 I had been completely paralyzed under something sharp sticking from the ground, blood seeping from my ears and ruining my mother’s dress who sobbed into my hair and screamed for an ambulance.
 
-I remembered feeling fuzzy but also weirdly at peace. Like I could close my eyes and everything would be okay. I died. I remembered the confusing and dizzying blur of darkness and nothing enveloping me before the whole thing was severed from me; a full memory cut to pieces and only existed in fragments still haunting the back of my mind. Even if I wanted to, I couldn't confide in anyone. Whenever I tried to express my thoughts, I found myself struggling to articulate them effectively.
+I remembered feeling fuzzy but also weirdly at peace. Like I could close my eyes and everything would be okay. I died. I remembered the confusing and dizzying blur of darkness and nothing enveloping me before the whole thing was severed from me; a full memory cut to pieces and, only existing in fragments still haunting the back of my mind. Even if I wanted to, I couldn't confide in anyone. Whenever I tried to express my thoughts, I found myself struggling to articulate them effectively.
 
-It was like the words were stuck in my mouth, unable to escape. I attempted to explain it to my mom using the analogy of cutting, copying, and pasting, a concept we learned in school. But when I tried to communicate my suspicions that someone was copying and pasting my actions, and playing with my mind like I was their own personal Barbie doll, the words failed me. It felt like having a mouthful of dust that I would never be able to spit out. Their presence was always there, following me no matter what I did or said. Words disappeared a lot, even if I spoke them mentally thousands of times. To Mom, and then to our town Dr. Luke, who was worried about my educational development when I spent most of my time sleeping in class.
+It was like the words were stuck in my mouth, unable to escape. I attempted to explain it to my mom using the analogy of cutting, copying, and pasting, a concept we learned in school. But when I tried to communicate my suspicions that someone was copying and pasting my actions, and playing with my mind like I was their own personal Barbie doll, the words failed me. It felt like having a mouthful of dust that I would never be able to spit out. Their presence was always there, following me no matter what I did or said. Words disappeared a lot, even if I spoke them mentally thousands of times. To Mom, and then to Dr. Luke, who was worried about my educational development when I spent most of my time sleeping in class.
 
 Because that is what this entity wanted me to do. They wanted me to sleep—so I slept. 
 
@@ -186,7 +188,7 @@ Nick took another sip.
 
 “Outside.”
 
-Something ice-cold crept down my spine when my best friend turned to me with an expression I didn’t recognize, haunted eyes which reminded me of my own when I looked in the mirror at home when I dragged myself through the same events.
+Something ice-cold crept down my spine when my best friend turned to me with an expression I didn’t recognize, haunted eyes which reminded me of my own, staring into the mirror  at home after reliving the exact same events. 
 
 “And you’re 2015 King is…” Mrs Wilma yelled into the microphone with way too much gusto for a woman of her calibre. 
 
@@ -224,7 +226,9 @@ When he scowled at me, I nudged him. “Well?” I smoothed down his shirt and t
 
 Nick shot me in the side-eye. “Please don’t make me do this.” But just like every other time, he slowly made his way through the crowd, before jumping onto the stage. Nick allowed the teacher to crown him with a mocking bow and then took the mic. “I am okay now, by the way,” Nick said, with a shrug. When he caught my eye, I nodded. 
 
-“In case any of you noticed, which is all of you since I have been given this for the third goddamn time…” he muttered into the mic, though his words definitely caused alarm bells in my head. I lifted my head to try and find his gaze, but his eyes instead bore into the crowd. “I really am okay. I’m not dying. So, this?” He gestured to the crown. “It doesn't really belong to me, but…sure, I'll take it. Thanks, guys.”
+“In case any of you haven't noticed, which is all of you since I've been given this for the third goddamn time…” he muttered into the mic, though his words definitely caused alarm bells in my ears. I lifted my head to try and find his gaze, but his eyes instead bore into the crowd. 
+
+“I really am okay. I’m not dying. So, this?” He gestured to the crown. “It doesn't really belong to me, but…sure, I'll take it. Thanks, guys.”
 
 Smiling awkwardly, Mrs. Wilma took the mic, but he pulled it back. “And…” 
 
@@ -262,7 +266,7 @@ I found my fingers grazing my own face and lips and cheeks, and yes, I was real.
 
 Before the doors on the other side of the corridor were flying open, and April Lucas was stumbling forwards. April was one of the quiet kids, usually keeping to herself and barely making eye contact with anyone. I found myself panic-stricken as the girl took long strides toward me before situating herself three inches from my face. “Tell them to stop,” she whispered in a cry. The girl tugged violently at her hair, her wild eyes barely meeting mine, instead lost elsewhere. “Tell them to stop!”
 
-Something strange popped up in front of my eyes, suddenly, a tangle of words barely registered in my mind before I blinked and they were gone.
+Something strange popped up in front of my eyes, suddenly, a tangle of words barely registering in my mind before I blinked and they were gone.
 
 But the words I had seen were suddenly in my mouth.
 
@@ -308,9 +312,9 @@ Just like in my dreams of Seven, I was back in their bedroom, walls of white sur
 
 It was a tablet of some sort. In Seven's hand was a pen, and with several strokes, they began to sketch out my best friend's face in outlines, before adding swirling eyes, and a mouth which didn't make sense, which was too big for his face. And above that, a large speech bubble: “Tonight,” more words were scrawled across black and white pages in the back of my eyes. 
 
-“Your whole life. How many times has she changed it?” He said. “When I was fourteen years old, a woman in a grey suit came into the hospital and stabbed me through my chest. Then I woke up like normal, and nothing had happened. I thought I was losing my mind, until I had to live through it until I was let go." He spoke in a hiss.
+“Your whole life. How many times has she changed it?” He said. “When I was fourteen years old, a woman in a grey suit came into the hospital and stabbed me through my chest. Then I woke up like normal, and nothing had happened. I thought I was losing my mind, until I had to live through it until I was let go." He spoke in a hiss. "Following that, I choked on a piece of chicken, I was murdered by my secret second twin, and my personal favorite, hunted and killed by our whole class on my 15th birthday.” 
 
-"Following that, I choked on a piece of chicken, I was murdered by my secret second twin, and my personal favorite, hunted and killed our whole class on my 15th birthday.” My face was drawn underneath, less artistic, more of a blur of shadow with not many facial features. 
+My face was drawn underneath, less artistic, more of a blur of shadow with not many facial features. 
 
 The drawing of me didn't speak, and neither did I. "It happens to you too," Nick said. But this time he was speaking for himself, while the version of him, Seven's drawing, turned forwards, his eyes drawn in manic and terrifying swirls. He didn’t speak, but his lack of speech was terrifying, just a speech bubble, and three ellipses, his sketched face becoming more animated, and then human. Followed by a black page, and three more ellipses. 
 
