@@ -224,7 +224,7 @@ When he scowled at me, I nudged him. “Well?” I smoothed down his shirt and t
 
 "Your crown awaits.”
 
-Nick shot me in the side-eye. “Please don’t make me do this.” But just like every other time, he slowly made his way through the crowd, before jumping onto the stage. Nick allowed the teacher to crown him with a mocking bow and then took the mic. “I am okay now, by the way,” Nick said, with a shrug. When he caught my eye, I nodded. 
+Nick shot me the side-eye. “Please don’t make me do this.” But just like every other time, he slowly made his way through the crowd, before jumping onto the stage. Nick allowed the teacher to crown him with a mocking bow and then took the mic. “I am okay now, by the way,” Nick said, with a shrug. When he caught my eye, I nodded. 
 
 “In case any of you haven't noticed, which is all of you since I've been given this for the third goddamn time…” he muttered into the mic, though his words definitely caused alarm bells in my ears. I lifted my head to try and find his gaze, but his eyes instead bore into the crowd. 
 
