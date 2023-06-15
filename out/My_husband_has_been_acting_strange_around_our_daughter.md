@@ -18,13 +18,15 @@ This man was my first everything and we even have our first child together that 
 
 I woke up again at around 4 in the morning from the sound of our daughter crying. I get up and mumble that I would check on her, when I got up to walk across the hall, I noticed her light was on. I find this odd and proceed with caution, my heart was pounding, who turned the light on? I opened the door quietly and found my husband standing over the cradle and staring at her. He was gripping the gate really hard and just staring, who knows what was going on in that mind of his. I walked towards him slowly and called his name softly but he didn’t listen to me.
 
-“Look at her.” He spoke in a hushed tone, “Don’t you see it in her eyes?” I crept next to him and gently put my hand on his and looked at our crying daughter, “They’re not normal.” I did look at her eyes, lifting her up in arms, rocking her and hushing her and humming, and her eyes were beautiful, big and brown like mine.  
-  
-“She has my eyes,” I said in a dreamy tone as she finally started to settle down, “They’re beautiful.”  
-  
-“Her eyes are missing, Elizabeth.” I quickly looked up at my husband to find that he was towering over me, staring at Viridian like she was his next meal. I took a good look at him, his sclera’s were red and his eyes looked so strained, he had gotten a bit pale like as if he were sick and he was sweating like a maniac. I took a step back but his eyes were trained on our daughter. “Look.” I look down but her eyes were there, her big beautiful brown eyes, nothing missing. I look back at my husband who was still standing and staring at her.  
-  
+“Look at her.” He spoke in a hushed tone, “Don’t you see it in her eyes?” I crept next to him and gently put my hand on his and looked at our crying daughter, “They’re not normal.” I did look at her eyes, lifting her up in arms, rocking her and hushing her and humming, and her eyes were beautiful, big and brown like mine.
+
+“She has my eyes,” I said in a dreamy tone as she finally started to settle down, “They’re beautiful.”
+
+“Her eyes are missing, Elizabeth.” I quickly looked up at my husband to find that he was towering over me, staring at Viridian like she was his next meal. I took a good look at him, his sclera’s were red and his eyes looked so strained, he had gotten a bit pale like as if he were sick and he was sweating like a maniac. I took a step back but his eyes were trained on our daughter. “Look.” I look down but her eyes were there, her big beautiful brown eyes, nothing missing. I look back at my husband who was still standing and staring at her.
+
 “You need to get some sleep, go.” He didn’t move, “I said go, get out of her room, we’ll talk about this in the morning.” He slowly looked at me and finally walked past us and into our room. I sigh in relief, my heart pounded in my chest, I felt like we were in danger. I can’t leave her alone like that again, I don’t trust my husband enough not to do anything. Quickly, I shut the door and lock it, and sit in rocking chair, falling asleep with our daughter in my arms.
 
-  
-There's more to this story, I'll have to update you guys in a little, But you'll have to give me some time.
+There's more to this story, I'll have to update you guys in a little, But you'll have to give me some time.
+
+Part 2: 
+https://www.reddit.com/r/nosleep/comments/14a9dnw/my_husband_has_been_acting_strange_around_my/
