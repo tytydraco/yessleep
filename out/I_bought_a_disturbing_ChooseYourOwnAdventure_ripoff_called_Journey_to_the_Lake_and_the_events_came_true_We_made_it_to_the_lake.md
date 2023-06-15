@@ -4,7 +4,7 @@ This subreddit went dark in my direst hour. It’s been a terrifying week.
 
 “Route 11,” I said, after we’d been sitting in the van for hours.
 
-I’d been reading your comments, and I agreed with the sentiment that the number 11 kept cropping up on our journey. Did it have sinister or safe significance? That was the question playing on my mind.
+I’d been reading your comments, and I agreed with the sentiment that the number 11 must be important, given that it kept cropping up on our journey. Did it have sinister or safe significance? That was the question playing on my mind.
 
 So, Sam flicked to Page 191, and I veered the van down a rough, rocky path through the forest. The story rambled for pages and pages about repeating scenery — endless fir trees — until the following passage:
 
