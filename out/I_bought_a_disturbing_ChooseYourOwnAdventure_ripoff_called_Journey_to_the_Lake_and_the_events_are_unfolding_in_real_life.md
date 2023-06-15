@@ -1,3 +1,5 @@
+**Part I** - [Part II](https://www.reddit.com/r/nosleep/comments/14a5kgi/i_bought_a_disturbing_chooseyourownadventure/)
+
 Since my wife died last year, I’ve been travelling across the UK in a decked-out van with my son, Sam. We’ve been heading up to Inverness, his mother’s favourite place, in the hope of scattering her ashes. It’s no surprise, then, that I’m a lover of adventures, is it?
 
 ***Journey to the Lake***  
@@ -144,5 +146,7 @@ Our next choice is as follows:
 I have no idea which route to take, but I trust Sam’s judgement more than my own. I hope to update all of you soon.
 
 If you never see a post from me again, then I guess we’ve chosen the wrong path.
+
+[Part II](https://www.reddit.com/r/nosleep/comments/14a5kgi/i_bought_a_disturbing_chooseyourownadventure/)
 
 [X](https://www.reddit.com/r/dominiceagle)
