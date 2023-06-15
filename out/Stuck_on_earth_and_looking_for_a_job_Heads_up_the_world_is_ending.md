@@ -276,3 +276,5 @@ I might not have to worry about finding a new job after all. Then again, I might
 [27: sea goddess](https://www.reddit.com/r/nosleep/comments/145zphx/stuck_on_earth_and_looking_for_a_job_were/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [28: mixed martial arts](https://www.reddit.com/r/nosleep/comments/146u636/stuck_on_earth_and_looking_for_a_job_mixed/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[30: underground](https://www.reddit.com/r/nosleep/comments/14a1m9q/stuck_on_earth_and_looking_for_a_job_underground/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
