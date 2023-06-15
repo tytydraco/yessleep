@@ -34,7 +34,7 @@ And then, as if the nightmare couldn't get any worse, I saw it. Through the haze
  
 
 
-Frozen in terror, I watched as the beast approached my truck. Its every step shook the earth beneath me, sending tremors of pure dread through my body. I trembled uncontrollably, my mind racing with desperate thoughts of survival. Was this the end? Was this monstrous creature going to mercilessly devour me? The world seemed to shrink around me as the wyvern's presence grew larger, overshadowing everything else in my field of vision.
+Frozen in terror, I watched as the beast approached my truck. Its every step shook the earth beneath me, sending tremors of pure dread through my body. I trembled uncontrollably, my mind racing with desperate thoughts of survival. Was this the end? Was this monstrous creature going to mercilessly devour me? The world seemed to shrink around me as the monster's presence grew larger, overshadowing everything else in my field of vision.
 
 
 
