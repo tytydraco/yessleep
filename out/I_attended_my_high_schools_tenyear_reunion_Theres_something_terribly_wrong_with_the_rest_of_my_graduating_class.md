@@ -156,7 +156,7 @@ Blood gurgled out of his mouth as he gasped my name one last time. He reached ou
  
 “A-alice?” I stuttered, stepping backwards. 
  
-Lockers all around me started opening, each accompanied by a new pair of bloody, seemingly boneless arms of figures that slowly crawled outwards.
+Lockers all around me started opening, each accompanied by a new pair of bloody arms of figures that slowly crawled outwards.
  
 My survival instincts kicked in. I sprinted away, my legs frantically carrying me towards the main staircase. All around me, figures emerged, reaching out to me as I passed by. Through an open door, I noticed that another classroom was filled with skeletons, just as Mr. Minelli’s had been.
  

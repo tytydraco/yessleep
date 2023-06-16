@@ -268,7 +268,7 @@ I continued staring out into the horizon, "Yeah."
 
 Later they would find his body in the abandoned mall. Still clutching his gun. The department gave him a 21 gun salute at his funeral and a medal as commemoration. I was just glad that his soul had not been eaten.
 
-I, on the other hand, went back to the hotel. To the bar and ordered a well deserved drink. Where I saw a pretty woman sitting alone, "Did you know that in order for me to pass on my Celestial title, I must bear an heir?"
+I, on the other hand, went back to the hotel. To the bar and ordered a well deserved drink. Where I saw a pretty woman sitting alone, "Did you know that in order for me to pass on my Celestial title, I must have an heir?"
 
 &#x200B;
 
