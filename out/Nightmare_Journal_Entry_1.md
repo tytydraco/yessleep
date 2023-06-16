@@ -1,0 +1,19 @@
+August 14th
+
+Today was a bad day... I've started to lose track of how many times I have woken up in the woods. Dr. Hendricks wants me to start keeping these journals to "help me plot the root of the delusional nightmares." He doesn't understand. No one does. I'm starting to feel like true sleep is the real dream. Every night, it's the same thing. Over and over...
+
+Flashes like lightning cause an all-consuming pain that boils over above and beyond anything I've ever experienced in my waking life. The confusion that follows is almost palpable. It has a substance to it that is just ethereal enough to pass in fleeting moments. Then hunger... voracious, never-ending, ravenous hunger. Tonight was different, I think? There was something else this time. Something purposeful. Like there was an intensity of necessity. 
+
+Over the last few months I've collected what little sense of order and understanding I can to try and fit whatever these images are into some kind of explanation that I can neatly file into a box, and slap a label on it. Names are so much more important than I suppose I ever gave credence to. If I only had a name for all of this. Some kind of identifier, so I don't feel like I'm losing my mind. I've exhausted most of the web searches i can think of, really. Sleep studies dont show any signs of narcolepsy or any seizure disorders. Sleep walking always seems like a solid go-to, but if i had any answers, i wouldn't be babbling onto paper like this. Maybe Doc is right. Maybe it is all in my head...
+
+That doesn't ever explain the blood, though...
+
+I've never told Dr. Hendricks about the blood...
+
+I called him this morning after I finished cleaning up. Why the hell do I always ITCH after these nightmares?! It's like my skin is on fire, and I absolutely hate it! What is happening to me?! Why can't anyone give me any answers?! Is it really so much to ask?! There are times when the scariest part in all of this is feeling like I just might be losing it. Or that I already have...
+
+There is a part of me that knows I will be locked up in some padded room and forgotten. There was so much blood... and I can't find any wounds on me. At least nothing that can explain all of the blood. The fact that it might belong to someone or something else doesn't bother me nearly as much as it probably should. It's hard to get a good grasp on how long it takes me to get home without anything other than the sunrise to judge by. This morning took longer than usual, though. How insane would it have been to be spotted running bare butt in the woods and covered in blood? Explaining away all of that would be next to impossible, but I'm going to need to come up with some kind of mental plan in case this goes down again.
+
+Maybe the Doc is right about one thing, though. This does seem to be helping in one way. I think it's helped me figure out one thing, at least. Names are powerful. Names are magic. I think for now, I will just refer to the nightmares as...
+
+The Beast.
