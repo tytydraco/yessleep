@@ -174,4 +174,4 @@ While the man on the pool deck swallowed glass, I would succumb to the insanity 
 
 —[immolating myself.](https://www.reddit.com/r/QuincyLee/comments/11nxwz3/welcome_thanks_so_much_for_stopping_by/)
 
-[\[Part 1\]](https://www.reddit.com/r/nosleep/comments/140khwa/i_went_on_a_cruise_and_all_the_passengers_were/) [\[Part 3\]](https://www.reddit.com/r/nosleep/comments/144ahip/i_went_on_a_cruise_and_one_passenger_didnt_belong/) [[Part 4]](https://www.reddit.com/r/nosleep/comments/149hbp4/i_went_on_a_cruise_and_something_unspeakable_came/)
+[\[Part 1\]](https://www.reddit.com/r/nosleep/comments/140khwa/i_went_on_a_cruise_and_all_the_passengers_were/) [\[Part 3\]](https://www.reddit.com/r/nosleep/comments/144ahip/i_went_on_a_cruise_and_one_passenger_didnt_belong/) [[Part 4]](https://www.reddit.com/r/nosleep/comments/149hbp4/i_went_on_a_cruise_and_something_unspeakable_came/) [[Part 5]](https://www.reddit.com/r/nosleep/comments/14b0gvo/i_went_on_a_cruise_and_something_terrifying/)
