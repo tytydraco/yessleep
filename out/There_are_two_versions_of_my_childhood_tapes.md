@@ -172,7 +172,7 @@ Luke and I sat next to each other on the sofa and my parents were standing in fr
 
 "Can you please talk less cryptic?" I chimed in. It was the first thing I'd said.
 
-"Those aren't real videos of your childhood. Just remakes. For your audition tapes. They were searching for child stars. Luke didn't make the cut and then we tried with you, Alex. But neither of you was chosen," my mother took over.
+"Those aren't real videos of your childhood. Just remakes. For your audition tapes. They were searching for child stars. Luke didn't make the cut and then we tried with you, Max. But neither of you was chosen," my mother took over.
 
 "They? Who are they? And chosen for what, a movie?" Luke asked.
 
