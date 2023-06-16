@@ -20,7 +20,7 @@ Two days after the party, my brother called me. He didn't tell me what was going
 
 \--
 
-"What the actual fuck, Alex?"
+"What the actual fuck, Max?"
 
 My brother looked even taller than he was, anger seemed to make him grow. I was a good bit shorter than him, paler, and weaker. My dark hair was curly and chaotic, his was always styled right and had the color of honey.
 
@@ -38,7 +38,7 @@ Their living room was a mess, with toys, clothes, and crumbles everywhere. It'd 
 
 He shook his head.
 
-"They went to Jacob's parents. He's pretty angry with you," he sighed. "Alex, be honest. Why did you make those videos? How did you even-?"
+"They went to Jacob's parents. He's pretty angry with you," he sighed. "Max, be honest. Why did you make those videos? How did you even-?"
 
 "Huh?" I moved a stuffed elephant from the sofa and sat down. "I brought our old VHS tapes to a place and they-, I told you when I gave it to you? I thought you'd like to see them."
 
@@ -134,7 +134,7 @@ They never hurt us, if anything they neglected us a little. But I didn't remembe
 
 "No, I'll come too. Maybe they'll be angry that we found them."
 
-"Alex, they kept them in the basement, in an unlocked box. They wanted us to find them, or at least they didn't mind if we did."
+"Max, they kept them in the basement, in an unlocked box. They wanted us to find them, or at least they didn't mind if we did."
 
 I wasn't exactly afraid of my parents but of all the things I couldn't remember.
 
@@ -150,7 +150,7 @@ As it turns out, I didn't have to.
 
 Mum opened the door before we even rang the bell.
 
-"Alex, Lukey, how sweet of you to stop by."
+"Max, Lukey, how sweet of you to stop by."
 
 She came closer to hug us but Luke gently pushed her away.
 
