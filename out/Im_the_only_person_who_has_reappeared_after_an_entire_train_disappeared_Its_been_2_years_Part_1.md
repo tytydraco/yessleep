@@ -64,4 +64,6 @@ I looked back and when I saw what was looking at me at the end of the door, I ju
 
 And it was definitely not human.
 
-What happened next: [https://www.reddit.com/r/nosleep/comments/14ao2c5/i\_left\_the\_disappearing\_train\_and\_ended\_up\_in\_the/](https://www.reddit.com/r/nosleep/comments/14al2ad/i_got_off_the_disappearing_train_and_ended_up_in/)
+What happened next:
+
+https://www.reddit.com/r/nosleep/comments/14ao2c5/i\_left\_the\_disappearing\_train\_and\_ended\_up\_in\_the/
