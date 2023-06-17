@@ -1,11 +1,38 @@
-A couple months ago i was camping out of my mom and stepdads RV on BLM land in Nevada. Where I was parked was about 20 miles from any houses or anything. While I was out there i got snowed in. It was about 3 feet of snow so I sent out a message to my mom telling her what was going on. 
+About halfway between Providence and New London you could find my holmey cottage nestled beneath the shade of old, knotty red pines. A man I know well mentioned to me the surrounding area was previously farm land, and before that it was believed to be a paleolithic hunting camp. He said they found caches of ancient flakes and tools leading all the way up to the bog behind my back fence. 
 
-That day I spent digging snow out from around the RV so that I felt like I was doing something. I spent the whole day out there digging snow out. As the sun was going down I had about a 25 square foot section from around the door (I was using a spade, it was very slow going), and a path that led about 80 feet. I was at the end of the path still digging when the sun went down.
 
- I decided to work a little more and while I was digging I heard what sounded like someone walking through the snow. I looked up and there was a figure of a pretty tall guy ahead of me comming out of the tree line about 200 feet from me. If I had to guess I would say about 6'5 or so. Anyway, he was trudging through the snow towards me. 
+That is where I saw the eyes, just beyond those weathered pickets, tucked within the mess of gnarled briars.
 
-Considering that we were in very cold weather and very far from anyone/anywhere my first thought was "oh crap, this guy needs help" so I called out to him "Hey, you ok out here!" And as soon as I finished that sentence the figure broke into a full blown sprint. I immediately turned around and sprinted down the path back to my RV. When I got to the door I looked back and this man had not only crossed the clearing through 3 feet of snow but he was now sprinting down the path I had dug. I got into the RV, slammed the door and locked it behind me.
 
- I grabbed my gun and moved to the back side of the RV. I could hear the man circling my RV so I shouted "I have a gun, if you don't leave now I will shoot you" after I yelled that there was 2 or 3 insanely loud bang sounds on the side of the RV. I heard the man start walking toward the front end but I couldn't hear past that. I stayed in the bathroom at the rear of the RV and ended up falling asleep. In the morning I woke up and I took the gun and went outside. 
+ I lied awake staring at the swirls in the ceiling illuminated by my beside candle. Following the pattern across the room until the mundane thoughts of the day dissipated, allowing me to slip into a comfortable slumber.
 
-I could see paths leading from the tree like, circling my rv, and back out to the tree line. I also learned what those loud bangs were. The generator cover on the RV was kicked in. I recently told my friend about what happened to me up there because he said he is planning on going up there for the weekend and when I finished the story he told me to post it here.
+
+I could hear the slight wobble of the ceiling fan as it spun overhead, and the cycling of the refrigerator compressor a few rooms away, but it was something outside my window which caused my head to jerk and skin to prickle.
+
+
+There was rustling in the leaves, not from a small creature by any means.  It's strides sounded familiar, almost bipedal, and were advancing quickly. It became louder and more chilling as it approached the divide between the wilderness and my declared plot. 
+
+
+I grabbed the flashlight from the bed table and exhaled a trebling breath which halfheartedly extinguished the candle's flame. I crept up to the window and bent my ear closely, in efforts to sate my curiosity.
+
+
+Again, it stirred the forrest floor and I rested my elbow on the windowsill and aimed my unlit flashlight with diligence, right where I heard the sound, with the button loaded ready to release at movement.
+
+
+It does, so I cast the beam through the prickly vines and pickets and to much surprise it reflects back at me through the gaze of two round spheres with a prominent glossed, milky haze. It's body remained hidden behind the vegetation, so no other features could be discerned.
+
+
+Although my hand trembled I did not waiver the light, neither did the eyes, they didn't blink or drift. This lasted for what felt like an hour, two statues locked in an ethereal stare, fully succumbed to fear and curiosity alike. 
+
+
+The battery in my flashlight gave up and immediately the rustling began again. Frantically I crawled across the carpet of the pitch black room to find batteries in the bed table drawer but by the time I made the swap it was too late.
+
+
+I panned the treeline with the cone of light, desperate for a hint of something, anything that would provide answers for the inexplicable carcophany and hellish gaze.
+
+
+The eyes haven't appeared again in the woods, but they did elsewhere.
+
+They plague my thoughts, almost every moment. The empty, lifeless stare populates my consciousness like a plague of rats, biting and taring away at the pieces which remain loosely teathered.
+ 
+Now I lie awake for a different reason, for everytime I begin to drift away, I see those dead, hungry eyes.
