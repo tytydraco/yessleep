@@ -219,3 +219,5 @@ I smiled faintly. "You must have been majestic."
 [29: heads up](https://www.reddit.com/r/nosleep/comments/14942vm/stuck_on_earth_and_looking_for_a_job_heads_up_the/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [30: underground](https://www.reddit.com/r/nosleep/comments/14a1m9q/stuck_on_earth_and_looking_for_a_job_underground/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[32: Crystal tears](https://www.reddit.com/r/nosleep/comments/14bvpa3/stuck_on_earth_and_looking_for_a_job_crystal_tears/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)

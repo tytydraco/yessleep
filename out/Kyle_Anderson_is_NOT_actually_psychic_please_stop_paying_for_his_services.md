@@ -12,11 +12,11 @@ I was sitting at the table, watching the squirrels eat from our bird feeder that
 
 He ignored my little remark, like he always does.
 
-"So. This guy, Gary that's about to get re-married wants to talk to his dead wife one last time before he does. The new wife, Jill, also wants to speak to her, 'cause she was friends with her and she wants to make sure she's okay with it before they tie the knot. Now it's my job to break through the veil and contact her so they can move on!"
+"So. This guy, Greg, that's about to get re-married wants to talk to his dead wife one last time before he does. The new wife, Jill, also wants to speak to her, 'cause she was friends with her and she wants to make sure she's okay with it before they tie the knot. Now it's my job to break through the veil and contact her so they can move on!"
 
 *He's dating his dead wife's friend? That's a bit...strange, but I don't know them, so whatever.*
 
-While Kyle gets ready, I logged on to our computer and looked up who he's doing the reading for. A quick Google search reveals social media profiles, and from there I learn that Gary's wife's been dead for two years, her name was Mikayla, and she died from an overdose. They were married for five years, they met in college, her favorite color was rose gold, she liked swimming and photography, she was a dental hygenist, and she had been friends with his current girlfriend, Jill ever since she was in eighth grade.
+While Kyle gets ready, I logged on to our computer and looked up who he's doing the reading for. A quick Google search reveals social media profiles, and from there I learn that Greg’s wife has been dead for two years, her name was Mikayla, and she died from an overdose. They were married for five years, they met in college, her favorite color was rose gold, she liked swimming and photography, she was a dental hygenist, and she had been friends with his current girlfriend, Jill ever since she was in eighth grade.
 
 I showed none of this to Kyle, of course, but do you see how easy it is to find out stuff about people online? Even if you don't post a whole bunch on social media, there's still marriage records, death certificates, obituaries, and other stuff like that. This tactic is called hot reading, and it's by far the easiest for a scammer to do- as long as you give them your name a day or so before their appointment.
 
@@ -78,7 +78,7 @@ The couple both looked shocked.
 
 This is a technique called cold reading. Basically, the psychic says a vague question, one that's super easy to find a connection to, and you make the connection for them.
 
-"M" is one of the most common initials. And since Kyle never specified whether the person was living or dead, all they'd need to do is know one person with an M in their name, which 99 percent of people do. Mikayla wasn't even the only "M" connection he could have made. My last name (Matsuo-Walker) starts with an M, Kyle's middle name is Malcolm (not that Gary and Jill would have known it, but I still think it counts), and the google search I'd made that morning let me know that Jill's maiden name was Morris.
+"M" is one of the most common initials. And since Kyle never specified whether the person was living or dead, all they'd need to do is know one person with an M in their name, which 99 percent of people do. Mikayla wasn't even the only "M" connection he could have made. My last name (Matsuo-Walker) starts with an M, Kyle's middle name is Malcolm (not that Greg and Jill would have known it, but I still think it counts), and the google search I'd made that morning let me know that Jill's maiden name was Morris.
 
 "I'm getting this...tight feeling in my chest like I can't breathe...and I'm feeling some sort of regret. Does that mean anything to you?"
 
