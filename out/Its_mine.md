@@ -1,4 +1,4 @@
-As a small child in the 90s, my Batman bike was my prized possession. It was beautiful. Black and blue, with an oval, glow in the dark Bat logo attached to the front of the handlebars. My sister and I spent hours looping around our basement, hurrying past the “scary part,” an unfinished area filled with storage boxes and Nordictrac equipment scarcely used. Our home had been built in the 1920s. It creaked and slanted and felt “lived in,” by us and by others. 
+As a small child in the 90s, my Batman bike was my prized possession. It was beautiful. Black and blue, with an oval, glow-in-the-dark Bat symbol attached to the front of the handlebars. My sister and I spent hours looping around our basement, hurrying past the “scary part,” an unfinished area filled with storage boxes and Nordictrac equipment scarcely used. Our home had been built in the 1920s. It creaked and slanted and felt “lived in,” by us and by others. 
 
 I was in the lead that Saturday morning. I turned the corner and entered the “scary part.” I told myself to be cool. Be brave. Nothing was there. Until there was.
 
