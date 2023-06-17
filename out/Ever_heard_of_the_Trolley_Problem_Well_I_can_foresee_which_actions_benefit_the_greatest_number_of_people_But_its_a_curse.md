@@ -28,7 +28,9 @@ There were 27 of us on a coach. I want you to remember that number whilst I expl
 
 My body started involuntarily twitching as the overhead lights spontaneously shattered, plunging the coach into darkness. A few people screamed, and John tried to calm everybody down, but I barely registered what was happening.
 
-I was visualising the stagecoach as a trolley hurtling towards danger. I had a decision to make, but what was it? It was different from any crossroads I’d ever faced before.I’d never felt such horror.
+I was visualising the stagecoach as a trolley hurtling towards danger. I had a decision to make, but what was it? It was different from any crossroads I’d ever faced before.
+
+I’d never felt such horror.
 
 I rose to my feet and charged down the aisle. I tuned out every sound, focusing my attention on finding the light. What decision was the universe trying to present to me? What could I do to ensure the greatest good?
 
