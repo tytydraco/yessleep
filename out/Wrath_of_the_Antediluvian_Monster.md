@@ -151,7 +151,7 @@ Finally, I found myself out of the serpent's range, the oppressive weight of its
    
   
   
-These encounters with the giant caiman and the giant serpent would serve as pivotal moments in my journey, heightening the sense of danger and unpredictability that surrounded them in the Amazon. The confrontation with these formidable creatures would test his resilience and serve as haunting reminders of the perils inherent in my quest for discovery. Until I heard Diablo's roar.  
+These encounters with the giant caiman and the giant serpent would serve as pivotal moments in my journey, heightening the sense of danger and unpredictability that surrounded them in the Amazon. The confrontation with these formidable creatures would test my resilience and serve as haunting reminders of the perils inherent in my quest for discovery. Until I heard Diablo's roar.  
    
   
   

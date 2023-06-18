@@ -196,7 +196,7 @@ I threw it to the ground and collapsed, exhausted.
 
 I woke up in one of the bedrooms. My chest hurt like hell. I sat up in the bed, and pulled the covers away. There was three large scars across my chest, painful and tender to the touch, but obviously treated by someone. I looked outside a nearby window. It was the dead of night. I couldn't hear any noises inside, so I assumed everyone was outside in a tent, sleeping. Everyone except the man. He was sitting in the chair, and simply watching me sleep.
 
-*Mind games.*
+*Mental games.*
 
 He looked at me as I stood up and raised an eyebrow. I began to walk over to him, despite the pain. He  clasped his hands together. "Well done. You are now a Keeper."
 
