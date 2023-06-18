@@ -410,25 +410,8 @@ I nodded. “Thank you, Brandon.”
   
 As I left the property I couldn’t help but look over my shoulder, like it was a cruel trick. But Dean could only give me daggers as Brandon kept him at gunpoint. I walked for a good few miles trying to process what had happened before giving in and calling a cab.  
   
-I’ve kept this to myself until now, but I finally need to get it off my chest. My name is Lauren Fountaine, and I survived the Laurel Canyon Cannibal.  
-  
-\[dd\](https://www.reddit.com/user/disco-dingus/comments/10f0v6u/all\_my\_stories\_compiled\_into\_one\_sooperdooper\_post/?utm\_source=share&utm\_medium=android\_app&utm\_name=androidcss&utm\_term=1&utm\_content=share\_button)  
-  
-\[DB\](https://www.reddit.com/r/DiscoBloodbath/)  
-  
-  
-  
-  
-  
-  
-  
-  
-  
-  
-  
-  
-  
-  
-  
-  
-  
+I’ve kept this to myself until now, but I finally need to get it off my chest. My name is Lauren Fountaine, and I survived the Laurel Canyon Cannibal.
+
+[dd](https://www.reddit.com/user/disco-dingus/comments/10f0v6u/all_my_stories_compiled_into_one_sooperdooper_post/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[DB](https://www.reddit.com/r/DiscoBloodbath/)

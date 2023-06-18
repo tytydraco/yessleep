@@ -295,3 +295,5 @@ I couldn't say a single word.
 [30: underground](https://www.reddit.com/r/nosleep/comments/14a1m9q/stuck_on_earth_and_looking_for_a_job_underground/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [31: self-discovery](https://www.reddit.com/r/nosleep/comments/14b1clj/stuck_on_earth_and_looking_for_a_job_my_bfs_long/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[33: Jewel from Raek-Vi'ir](https://www.reddit.com/r/nosleep/comments/14cqedv/stuck_on_earth_and_looking_for_a_job_jewel_from/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
