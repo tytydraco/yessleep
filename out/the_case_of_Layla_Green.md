@@ -7,7 +7,7 @@ because you see, once you are talking about what happened to Layla Green you are
 
 
 
-it was march of 2005. our small town was as quiet and peaceful as always. in our town there were around 100 teenagers that all went to our local high school. one of them was a 16 year old girl named Layla Green. Layla was a beautiful girl with red hair and brown eyes and a big heart. everybody loved Layla and always wanted to be around her. many boys wanted her but she didn’t want any of them. Layla was a junior and a smart student and wanted to go to medical school after she graduated. one of the boys that liked Layla was named Theo. Theo was a senior at the time and one of the popular boys. and yes I know that it’s sound stupid calling a him a popular boy but I guess that’s how it was back then? never mind. 
+it was march of 2005. our small town was as quiet and peaceful as always. in our town there were around 100 teenagers that all went to our local high school. one of them was a 16 year old girl named Layla Green. Layla was a beautiful girl with red hair and brown eyes and a big heart. everybody loved Layla and always wanted to be around her. many boys wanted her but she didn’t want any of them. Layla was a junior and a smart student and wanted to go to medical school after she graduated. one of the boys that liked Layla was named Theo. Theo really liked Layla and always hoped she would date him. he also was a senior at the time and one of the popular boys. and yes I know that it’s sound stupid calling a him a popular boy but I guess that’s how it was back then? never mind. 
 so Theo used to ask Layla out a lot but she always refused. because like I said she didn’t care about boys and dating, but also because she already was in a relationship. she didn’t tell her parents because they wouldn’t approve him and if her “friends” knew then the whole town would know in seconds. and also because he asked her not to tell to anyone. 
 
 
@@ -18,7 +18,7 @@ because Layla dated a teacher. yup. she dated her history teacher Mr. McLean. La
 
 
 
-his first thought was to beat the shit out of Mr. McLean but when he realized it’s not really an option he decided to go to tell to the guide consular. now something I didn’t know about my mom is that she used to work at our high school before that I was born as a consular. yes, my mom was the person that Theo went to when he found out about Mr. McLean and Layla. what that nobody knew at the time was that my mom was also in a relationship with Mr. McLean. I can’t imagine what she felt when she found out that her boyfriend is sleeping with his student and cheating on her. but she was an adult and had to do something. so she told Theo to be quiet for the time being. after some thinking she decided to handle it on her own without making a big deal. because she knew that Mr. McLean would be a dead man if the people of Blakefield found out, and more than that she knew if they found out she was involved with him they were going to go after her too. 
+he was so mad and sad that his first thought was to beat the shit out of Mr. McLean but when he realized it’s not really an option he decided to go to tell to the guide consular. now something I didn’t know about my mom is that she used to work at our high school before that I was born as a consular. yes, my mom was the person that Theo went to when he found out about Mr. McLean and Layla. what that nobody knew at the time was that my mom was also in a relationship with Mr. McLean. I can’t imagine what she felt when she found out that her boyfriend is sleeping with his student and cheating on her.my mom is a strong woman but when she told me this part she looked like she is about to cry. but at the time she was an adult and had to do something. so she told Theo to be quiet for the time being. after some thinking she decided to handle it on her own without making a big deal. because she knew that Mr. McLean would be a dead man if the people of Blakefield found out, and more than that she knew if they found out she was involved with him they were going to go after her too. 
 
 
 
@@ -34,7 +34,17 @@ and that night on 9:30pm Theo and Layla walked inside the woods and just talked 
 
 
 
-what that happened later was quick and fast, my mom and Theo buried Layla in a place that nobody can find her, they hide the evidences and swear to never tell to a living soul what happened. and the rest came from it’s own, when Layla didn’t came back that night home her parents reported her missing. and when the police questioned my mom she told them that Layla expressed that she is planning to run away and told her that she is in love with a boy that she didn’t mention his name. when Theo was questioning he told how there was always rivalry between Megan and Layla,and that was enough for the police to blame Megan. and when Megan didn’t have an alibi it was done. Megan was convicted with the murder of Layla. a body was never found. and the police came with the story of a love triangle between Layla and Megan and that boy that they never identified and how that was the motive to the murder. our town was in shock to say the least. but after several months we slowly came back to be the town that nothing ever happened here. 
+
+she did that with no emotion, I know that because she told me that with no emotions. 
+
+
+
+what that happened later was quick and fast, my mom and Theo buried Layla in a place that nobody can find her, they hide the evidences and swear to never tell to a living soul what happened. and the rest came from it’s own, when Layla didn’t came back that night home her parents reported her missing. and when the police questioned my mom she told them that Layla expressed that she is planning to run away and told her that she is in love with a boy that she didn’t mention his name. when Theo was questioning he told how there was always rivalry between Megan and Layla,and that was enough for the police to blame Megan. and when Megan didn’t have an alibi it was done. 
+
+
+
+
+Megan was convicted with the murder of Layla. a body was never found. and the police came with the story of a love triangle between Layla and Megan and that boy that they never identified and how that was the motive to the murder. our town was in shock to say the least. Megan’s family moved away, and let’s just say that the people of Blakefield are not the type to forgive and forget. it was hard but after several months we slowly came back to be the town that nothing ever happened here. 
 
 
 

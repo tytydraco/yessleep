@@ -192,7 +192,7 @@ She carried on driving as I watched helplessly.
   
 “Thanks for reminding me,” she laughed. “But I couldn’t leave you out in this. I’m Kat by the way.”  
   
-“Nice to meet you  Kat. I’m Mr. Binx.”  
+“Nice to meet you, Kat. I’m Mr. Binx.”  
   
 She let out a little laugh. “I feel like I’m back at school. Do you have a first name Mr. Binx?”  
   
@@ -264,16 +264,4 @@ She went to the bedroom to unpack and I went to the kitchen to make us sandwiche
   
 “Unless it’s yours,” she asked from the kitchen doorway. “But It’s not really your style.”  
   
-I dropped the knife as she held up a green argyle sweater vest.  
-  
-  
-  
-  
-  
-  
-  
-  
-  
-  
-  
-  
+I dropped the knife as she held up a green argyle sweater vest.

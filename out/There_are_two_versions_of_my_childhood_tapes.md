@@ -214,4 +214,6 @@ Now he was looking straight at me.
 
 I nodded.
 
-"Well, after 1996 there was a third child in the tapes. And the more I think about it, the more I'm starting to remember things. I know it sounds insane but I'm wondering if we had another sibling that we [forgot](https://www.reddit.com/r/Likeeyedid/)."
+"Well, after 1996 there was a third child in the tapes. And the more I think about it, the more I'm starting to remember things. I know it sounds insane but I'm wondering if we had another sibling that we forgot."
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/14c2n5p/there_are_two_versions_of_my_childhood_tapes_part/)
