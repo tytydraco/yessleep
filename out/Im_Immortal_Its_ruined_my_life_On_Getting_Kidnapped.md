@@ -114,7 +114,11 @@ The man sighed.
 
 And then there was a breeze across my face.
 
-I sat up punching.
+I sat up screaming. 
+
+And punching.
+
+And my first days in Unit 240 began.
 
 \*\*\*
 

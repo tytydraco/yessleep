@@ -91,7 +91,7 @@ Without ceremony, the monk put down his meditation pillow in the middle of a pat
 “This is more important,” I said. “I will stay by your side until the end. You will not be alone.”
 
 
-“I am never alone,” he said. “I walk the path of the Buddha. He is here, by my side, on the trail and above. I’ll follow him out at the end, I hope.” I didn’t understand what he said, but I smiled the same.
+“I am never alone,” he said. “I walk the path of the Buddha. He is here, by my side, on the trail and above, selfless and free as the wind. I’ll follow him out at the end, I hope. We will go together without self." I didn’t understand what he said, but I smiled the same.
 
 
 “Now I must sit and meditate,” he said. “Time is short. Do what you will, my son. You always were a good boy, standing by the side of a man who is dying.”
@@ -124,7 +124,7 @@ The old monk, by this point, looked bloodied and hurt. The hail and the chunks o
 “He is bloodied, but his head is unbowed,” I said to myself, thinking. It seemed to have great relevance, but I couldn’t understand why.
 
 
-As the demons approached, the lightning began to strike closer and closer to the monk. The ground shook with each blast, and I feared the mountain may fall apart from the strength of the crash. The first row of demons had seen the monk. The bloodlust and loathing that showed from their eyes made me scared. I took a step back into the forest, trying to hide myself as best as I could.
+As the demons approached, the lightning began to strike closer and closer to the monk. The ground shook with each blast, and I feared the mountain may fall apart from the strength of the crash. The first row of demons had seen the monk. The bloodlust and loathing that showed from their eyes made me scared. When the wind blew, a smell filled the area, like burning sulfur mixed with the odor of decomposing roadkill. I took a step back into the forest, trying to hide myself as best as I could.
 
 
 But as they approached, the monk opened his eyes. Light seemed to stream from within him, great waves of it that came from his eyes.
