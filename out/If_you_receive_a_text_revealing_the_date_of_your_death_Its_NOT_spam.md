@@ -34,18 +34,18 @@ Anger and confusion surged through me. It was almost 1 o'clock in the morning, a
   
 Slamming my phone down on the nightstand, I rolled over and finally managed to fall asleep. When I woke up in the morning, the blinking notification light on my phone caught my attention. Tapping the screen, I saw a text message, and when I realized who it was from, I nearly lost it.  
   
-**Message received on June 2, 2023 at 3:00 AM.**  
+**Message received on June 1, 2023 at 3:00 AM.**  
 *Hello, the request for your death date is still available. If you're still interested, please respond with "YES."*  
   
-**Message received on June 2, 2023 at 6:35 AM.**  
+**Message received on June 1, 2023 at 6:35 AM.**  
 *NO.*  
   
 This was seriously getting on my nerves. I could have sworn I blocked this lunatic last night.  
   
 **Ping.**  
   
-**Message received on June 2, 2023 at 6:36 AM.**  
-*Thank you for your response. Your suspected date of death is scheduled for JUNE 2, 2023.*  
+**Message received on June 1, 2023 at 6:36 AM.**  
+*Thank you for your response. Your suspected date of death is scheduled for JUNE 1, 2023.*  
   
 My phone slipped from my trembling hands and fell to the floor. What the actual...  
   
@@ -53,39 +53,39 @@ My phone slipped from my trembling hands and fell to the floor. What the actual.
   
 With shaky hands, I reached down to retrieve my phone and braced myself for the worst.  
   
-**Message received on June 2, 2023 at 6:37 AM.**  
+**Message received on June 1, 2023 at 6:37 AM.**  
 *Hey Honey! This is your mother! It's been so long since you've texted me that I thought you might have forgotten who I was, haha! Hope you're doing well! Give me a call later today when you find some time. I've been getting some strange text messages.*  
   
 Sweat beaded on my brow as I read the last sentence of her text over and over again. 'I've been getting some strange text messages?' Not my mom... anyone but her. I quickly typed a response.  
   
-**Message received on June 2, 2023 at 6:40 AM.**  
+**Message received on June 1, 2023 at 6:40 AM.**  
 *Hey Mom! I'm so sorry I haven't been in touch as much as I should. What kind of strange texts have you been receiving?*  
   
 I watched the typing bubbles appear and disappear, my anxiety building with each passing moment. I hoped and prayed that whatever she received was just some bizarre text from Amazon or a fake warning about her Facebook account.  
   
-**Message received on June 2, 2023 at 6:42 AM.**  
+**Message received on June 1, 2023 at 6:42 AM.**  
 *It's okay, sweetie! I'm just glad to hear from you! I think it's just spam. I'm going to delete it!*  
   
-**Message received on June 2, 2023 at 6:42 AM.**  
+**Message received on June 1, 2023 at 6:42 AM.**  
 *No! Don't delete it! Tell me what it says first.*  
   
-**Message received on June 2, 2023 at 6:44 AM.**  
+**Message received on June 1, 2023 at 6:44 AM.**  
 *Oh, don't worry about it! I'm sure it's nothing.*  
   
-**Message received on June 2, 2023 at 6:44 AM.**  
+**Message received on June 1, 2023 at 6:44 AM.**  
 *Mom, please just tell me what it says?*  
   
-**Message received on June 2, 2023 at 6:47 AM.**  
+**Message received on June 1, 2023 at 6:47 AM.**  
 *Are you okay?? It's just a silly spam message about some weight loss pills.*  
   
 Relief washed over me. I had never been so relieved to hear about some maniac trying to sell my mom pills. I know how that sounds… Just don’t read into it.  
   
-**Message received on June 2, 2023 at 6:48 AM.**  
+**Message received on June 1, 2023 at 6:48 AM.**  
 *I'm okay!! I just wanted to make sure it wasn't something else!*  
   
 Slumping down onto the floor, I clicked on the message from my spammer and read it again.  
   
-*Thank you for your response. Your suspected date of death is scheduled for JUNE 2, 2023.*  
+*Thank you for your response. Your suspected date of death is scheduled for JUNE 1, 2023.*  
   
 Surely this was just some sick prank... As I showered and got dressed for the day, I hurriedly got into my car, hoping to make up for lost time.  
   
@@ -97,13 +97,13 @@ Just then, a semi-truck raced through the intersection. There was no time to sto
   
 **Ping.**  
   
-**Message received on June 2, 2023 at 8:02 AM.**  
-*Hello, we are reaching out to notify you that due to unforeseen circumstances, your death date has been rescheduled for JUNE 3, 2023.*  
+**Message received on June 1, 2023 at 8:02 AM.**  
+*Hello, we are reaching out to notify you that due to unforeseen circumstances, your death date has been rescheduled for JUNE 2, 2023.*  
   
 A mixture of relief and overwhelming nausea surged within me. Opening the car door, I stumbled out and retched, emptying the contents of my stomach. When I finally finished, I heard another ping from my phone. My stomach churned violently, and tears welled up in my eyes. I turned to grab my phone, unlocked it, and glanced at the message.  
   
-**Message received on June 2, 2023 at 8:07 AM.**  
-*Hello, it has come to our attention that the unforeseen circumstance preventing your death was none other than yourself. Please note that you cannot outrun the inevitable, and as a consequence for this action, your death date has been rescheduled for June 2, 2023 at 8:0-*  
+**Message received on June 1, 2023 at 8:07 AM.**  
+*Hello, it has come to our attention that the unforeseen circumstance preventing your death was none other than yourself. Please note that you cannot outrun the inevitable, and as a consequence for this action, your death date has been rescheduled for June 1, 2023 at 8:0-*  
   
 Blinding light seared my eyes, and a loud beeping echoed around me as I slowly returned to reality. A blurry figure sat beside my bed, and after focusing for a while, I recognized it as my mother, fast asleep in a chair.  
   
