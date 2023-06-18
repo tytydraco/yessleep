@@ -126,7 +126,7 @@ The other kid's voice rang through as I approached. "Come on, please. We just wa
 
 I looked into the peephole again and saw that the kid looked nervous, scared even. He was ringing his hands. "Fuck," I muttered under my breath. "Okay, hold on. Let me go take a look," I hollered. Then I walked toward the back and glanced around the yard. Sure enough, a bright red ball with a yellow star on it sat in the grass near the fence.
 
-I grabbed the handle before debating with myself. "It's technically a door right? Sliding. Door. Sliding door," I played with the words in my mouth. "It's right in the name. It's a sliding door," I chuckled, "That's like asking if water's wet." But still the sound of the kid worrying rang in my ear and I didn't want him to get into trouble. And I had my door on the handle when I also noticed a football laying on its side nearby.
+I grabbed the handle before debating with myself. "It's technically a door right? Sliding. Door. Sliding door," I played with the words in my mouth. "It's right in the name. It's a sliding door," I chuckled, "That's like asking if water's wet." But still the sound of the kid worrying rang in my ear and I didn't want him to get into trouble. And I had my hand on the door when I also noticed a football laying on its side nearby.
 
 I walked halfway between the sliding door and the front door and shouted, "Which ball is yours?"
 
@@ -154,7 +154,7 @@ I'd be lying if I said I didn't think about it. "No, I'm sorry. I can't help you
 
 One of the kids kicked the door before I heard them running away.
 
-I breathed a sigh of relief and unclenched my fist. I hadn't even know I was tense until just now. "It's just a door I said," as I returned to the couch. "It's just a silly rule." But I turned off the tv and sat there in silence. Too afraid to make a sound. Too afraid to even finish my burrito.
+I breathed a sigh of relief and unclenched my fist. I didn't even know I was tense until just now. "It's just a door I said," as I returned to the couch. "It's just a silly rule." But I turned off the tv and sat there in silence. Too afraid to make a sound. Too afraid to even finish my burrito.
 
 I didn't have to wait long before I got off the couch again.
 
