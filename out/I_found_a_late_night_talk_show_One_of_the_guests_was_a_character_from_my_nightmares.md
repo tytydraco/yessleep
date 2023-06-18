@@ -265,3 +265,7 @@ She went to the bedroom to unpack and I went to the kitchen to make us sandwiche
 “Unless it’s yours,” she asked from the kitchen doorway. “But It’s not really your style.”  
   
 I dropped the knife as she held up a green argyle sweater vest.
+
+[dd](https://www.reddit.com/user/disco-dingus/comments/10f0v6u/all_my_stories_compiled_into_one_sooperdooper_post/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[DB](https://www.reddit.com/r/DiscoBloodbath/)
