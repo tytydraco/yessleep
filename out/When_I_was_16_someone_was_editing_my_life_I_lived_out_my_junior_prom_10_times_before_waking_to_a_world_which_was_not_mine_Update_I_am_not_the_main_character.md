@@ -260,7 +260,7 @@ The same hallway I had died on multiple times. Thousands of times. Enough times 
 
 As I got closer, lockers disappeared from the hallway, and classmates walked into walls and each other, still moving and smiling. But there was also something so… human and yet terrifying as I stepped in front of doors which had been torn off, blood-spattered handprints and bodies sticking from the ground. “AWAKE” was scrawled on every wall, decapitated heads on sharpened hockey sticks. It was a blur of the game world and humanity who had woken up inside an illusion. My junior prom had become a massacre. Kids who had died or killed each other in past instances accompanied old versions of themselves which were decomposing flesh in pooling red. 
 
-Take On Me was playing like every other time, but it was stuck, looping on the chorus. Stepping into the crowd of my friends, some of them were frozen, their expressions frozen in wide grins and wide smiles, while others were ignited to life, into the kind of madness I had never known. I didn't even think Seven knew how to draw that kind of unhinged insanity, feral and let loose.  
+Take On Me was playing like every other time, but it was stuck, looping on the chorus. Stepping into the crowd of my friends, some of them were frozen, their expressions frozen in wide grins, while others were ignited to life, into the kind of madness I had never known. I didn't even think Seven knew how to draw that kind of unhinged insanity, feral and let loose.  
 
 The prom was barely stable. I noticed the food I had been eating was nothing but stock image food photoshopped to look realistic. My dress was blood-stained, remnants glued to my flesh. No matter how many times the game tried to fix it, it couldn't. I was staring, wide-eyed at the stage in front of me, of the massacre of kids piling on the ground, textures on the walls becoming entangled code lit up in green. 
 
@@ -272,9 +272,7 @@ Our 2015 prom King and Queen.
 
 Who had both been crowned one thousand, eight hundred and six times.
 
-Bree, her shredded prom dress clinging to her. Bree's dress had been a white gown, now reduced to tufts of what had been white, dyed deep scarlet, her once strawberry blonde hair shaved off. Her crown still remained, delicately placed over her freshly bald head. 
-
-Our prom Queen was sitting on her throne, laughing. Around her neck was a gory mess of intestines. The girl terrified me. When I focused on her, she popped up right in front of my face and cocked her head slowly, her laugh stretching off her face. "AWAKE." Her words appeared in front of me, twisting and contorting. “A&^AKE A&*^KE AW*(KE! AK&KE AW(*&!”
+Bree, her shredded prom dress clinging to her. Bree's dress had been a white gown, now reduced to tufts of what had been white, dyed deep scarlet, her once strawberry blonde hair shaved off. Her crown still remained, delicately placed over her freshly bald head. Our prom Queen was sitting on her throne, laughing. Around her neck was a gory mess of intestines. The girl terrified me. When I focused on her, she popped up right in front of my face and cocked her head slowly, her laugh stretching off her face. "AWAKE." Her words appeared in front of me, twisting and contorting. “A&^AKE A&*^KE AW*(KE! AK&KE AW(*&!”
 
 Awake.
 
@@ -294,13 +292,15 @@ Maybe initially, it had been innocent. Maybe he wanted to help at first. But ove
 
 When I made it back into the hallway, only just escaping Nick’s war-like shriek before the doors slammed in his face. The hallway itself was less glitchy. 
 
-But when I started towards the door, I glimpsed April Lucas in the corner of my eye. Seven may not have had control over us, but the program was still working. April moved in almost twitching movements toward me. I was already twisting my head, and... there. There she was. The woman in the grey suit was just the program itself, entangled in this psycho narrative which could only move on if I was murdered-- and either sent back to 8pm or move forward if the so-called story. 
+But when I started towards the door, I glimpsed April Lucas in the corner of my eye. Seven may not have had control over us, but the program was still working. April moved in almost twitching movements toward me. I was already twisting my head, and... there. There she was. The woman in the grey suit was just the program itself, entangled in this psycho narrative which could only move on if I was murdered-- and either sent back to 8pm or move forward in the so-called story. 
 
 The woman didn't hesitate, her blank eyes finding me. When she lunged forwards, I turned and ran. But there was nowhere to run. It felt like I was running on clouds, on flooring which didn't make sense, towards a door that wasn't real. When I pulled open the doors of the school open, I found myself staring into endless, stretching darkness. Nothing beyond my feet except oblivion I didn't understand. 
 
 Was it a way out? Was it an escape? 
 
-Something possessed my body, willing me to step directly into the void. I felt it like a yearning, an indescribable pleasure, to throw myself into that darkness, even if it was nothing, even if I had no aware self or body. It was better than this. Better than this hell. Before I could, a warm hand was wrapping around my elbow, yanking me back into the light. I stumbled, throwing out my fists in an attack, only to find myself face to face with... 
+Something possessed my body, willing me to step directly into the void. I felt it like a yearning, an indescribable pleasure, to throw myself into that darkness, even if it was nothing, even if I had no aware self or body. It was better than this. Better than this hell. 
+
+Before I could, a warm hand was wrapping around my elbow, yanking me back into the light. I stumbled, throwing out my fists in an attack, only to find myself face to face with... 
 
 Nick. Who… wasn't crazy? 
 
@@ -308,7 +308,7 @@ No, that wasn't it.
 
 This Nick wasn't the Nick from prom. He was a different version from several hours earlier. 
 
-The stain on his white tee, and his shorts he'd spilled coffee all over. Nick was out of breath, but he looked... sane. Before I could coerce words, he was shoving me against the wall, pressing himself against it. I saw the flash of the woman in the grey suit's ponytail. "Nick," I whispered when she was gone, stalking down the hallway. "How..?" 
+The stain on his white tee, and his shorts he'd spilled coffee all over was from lunchtime. Nick was out of breath, but he looked... sane. Before I could coerce words, he was shoving me against the wall, pressing himself against it. I saw the flash of the woman in the grey suit's ponytail. "Nick," I whispered when she was gone, stalking down the hallway. "How..?" 
 
 "How?!" My best friend surprised me by slapping me across the face-- not enough to hurt, but enough to snap me into fruition. I blinked rapidly. He grabbed my shoulders, shaking me. "Are you fucking crazy?" His voice morphed into a sharp cry. "What were you thinking?"
 
