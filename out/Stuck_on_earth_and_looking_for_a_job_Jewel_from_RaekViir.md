@@ -185,3 +185,5 @@ And here we are. The last we heard, Jewel was still in critical condition. I mys
 [31: self-discovery](https://www.reddit.com/r/nosleep/comments/14b1clj/stuck_on_earth_and_looking_for_a_job_my_bfs_long/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [32: crystal tears](https://www.reddit.com/r/nosleep/comments/14bvpa3/stuck_on_earth_and_looking_for_a_job_crystal_tears/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[33: Phoenix the Doll](https://www.reddit.com/r/nosleep/comments/14dm9ea/stuck_on_earth_and_looking_for_a_job_phoenix_the/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
