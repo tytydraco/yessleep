@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/14dtj38/i_had_one_job_the_door_that_folded_me/)
+
 Roger was a no frills type of guy. He was of good posture, stern, and his clothes were crisp down to the French cuffs on his sleeves. His tone was soft and his words direct but polite. I'd known him all but a few seconds before I decided that I could trust this man with my life. Which was why I took everything he said quite seriously.
 
 I had found the gig online. It was a posting for someone to house sit. I surmised that Roger was likely some kind of property manager and was short staffed, which was why he had to use a third party app to fulfill his needs. Even if he weren't used to seeking help. Because although he seemed relaxed, a part of me felt as if he was reluctant to let go of the reins easily. Which made me think that he was either incredibly passionate about his job or really responsible. Both of which I found to be extremely positive qualities.
