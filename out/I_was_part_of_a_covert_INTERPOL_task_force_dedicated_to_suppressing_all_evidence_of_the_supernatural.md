@@ -62,7 +62,7 @@ But in an instant, it was gone, and its squeals went silent… replaced with the
 
 There was a long pause… and then something else emerged from between the thing’s lips. It was another woman, this one even taller and stick-thin with long black hair, sporting four arms and red body paint covering every inch of her skin not stained by foul effluence. Every part of her was far too *long*, from head and limbs to even mouth and eyes, as if you’d taken a picture of a human being and stretched it out vertically about ten times. She slowly slid free from the goddess in a way that defied gravity, eventually suspending herself horizontally above the pit below, held by the sewer-thing only by her feet.
 
-I stared into those eyes, each almost as tall as myself, and asked my question. *“Ubi est spiritus sanctus?” *And she began to give her answer in an antediluvian form of sign language, transitioning robotically from one sign to the next.
+I stared into those eyes, each almost as tall as myself, and asked my question. *“Ubi est spiritus sanctus?”* And she began to give her answer in an antediluvian form of sign language, transitioning robotically from one sign to the next.
 
 And just like that, the grim transaction was over. I thanked them both humbly for the information, the red woman slid back to from whence she came, and the goddess waved us off with an impatient glare.
 
