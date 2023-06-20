@@ -253,3 +253,5 @@ Something in my chest felt like it was breaking when I slipped outside, Jewel’
 [32: crystal tears](https://www.reddit.com/r/nosleep/comments/14bvpa3/stuck_on_earth_and_looking_for_a_job_crystal_tears/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [33: Jewel from Raek-Vi'ir](https://www.reddit.com/r/nosleep/comments/14cqedv/stuck_on_earth_and_looking_for_a_job_jewel_from/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[35: Heads will be rolling](https://www.reddit.com/r/nosleep/comments/14ejt92/stuck_on_the_earth_and_looking_for_a_job_heads/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
