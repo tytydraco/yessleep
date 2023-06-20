@@ -236,4 +236,6 @@ Luke's eyes opened wide.
 
 I gulped.
 
-"It's going straight to [mailbox](https://www.reddit.com/r/Likeeyedid/)."
+"It's going straight to mailbox."
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/14eez3q/there_are_two_versions_of_my_childhood_tapes_part3/)

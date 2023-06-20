@@ -33,13 +33,3 @@ I waited for it to get closer, to get me, but the house was silent after the las
 It's been five minutes of silence, I think it may have left. I think I'm safe. But I'll wait, I'll wait until I know it's truly safe, when-
 
 It just started tapping on the door.
-
-I can see the blackness of its horrible body under the crack.
-
-Its eyes meet mine as it stares at me from under the door.
-
-"There you are."
-
-It starts to open the door.
-
-"I can't wait to taste you."
