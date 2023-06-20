@@ -1,6 +1,6 @@
 Seven had a…collection of sorts.
 
-Imagine a picture book with your most precious memories and replace it with stolen consciousness.
+Imagine a picture book with your most precious memories and replace it with prisoners.
 
 That is what we were. 
 
