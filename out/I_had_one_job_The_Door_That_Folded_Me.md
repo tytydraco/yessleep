@@ -14,7 +14,7 @@ It was the same house.
 
 "Don't open any doors," I assured him.
 
-Roger smiled and award winning grin. "You got it." He looked at his watch. It was still the most interesting timepiece I had ever seen. "I've got another engagement," he told me. "Could you get the door," he hollered as it closed behind him.
+Roger smiled an award winning grin. "You got it." He looked at his watch. It was still the most interesting timepiece I had ever seen. "I've got another engagement," he told me. "Could you get the door," he hollered as it closed behind him.
 
 I went up and locked it before sitting down on the couch. Experience told me to not turn on the tv. It also reminded me to pay no mind to the door when it was knocked. Which happened before my butt could properly warm the seat.
 
