@@ -1,0 +1,16 @@
+Hello i should preface this before i start my name is todd wheeler i am a 35 year old male and i recently moved to a town called shapetown the town looked nice and despite the odd name it was really good but then 3 days after moving in i got mail which confused me as the person i had spoken to about the home told me the mail comes every saturday and it was thursday i just thought it came early because i was new but then i read the letter “Welcome to shapetown todd i would like to tell you about our comunity we are a small town and you will notice each part of town is sorted by class you live on cylinder avenue and have been classed as a cylinder you are alowed into your area and the square zone” the note was signed mayor sphere and i started to question all of the shape talk.
+
+
+ luckily most stores and stuff are in cylinder avenue and the nearby streets but for the people stuck in the square area i felt awful. these people worked all day and they were payed with bread a loaf of bread for a day of work and all there supply would run the town. 
+
+
+that all leads up to as of recent i had lived here for 3 months when i woke up in a room that wasnt my bedroom and i remember seeing a doctor prick my arm with a needle and put something on my head. when i woke up again i was back in my house in my pajamas and went to the mirror in the bathroom. thats when i noticed my head is a cylinder no eyes no mout no features though i could still see breathe hesr and smell i went outside to see my neighbors all had cylinders and squares for heads i dont know what is happening. 
+
+
+its been a week since then and things have got weirder last night everyone got a letter containing a immage of our neighbor susans dead body the immage came with a note saying “remember your place do not travel far” this is because susan went to the pyramid zone and wrote complaints about the cubes rights and now more then ever we fear. the one new thing is now ive seen the mayor she had a announcement that she held in the cube plaza and she is being treated as a goddess as i suspected she is a sphere but she glows with some way that makes everyone have obedience heres the problem i left the zone i wwnted answers today i decided to go to the pallace of newly retitled queen sphere then i realized this means i will have the fate that susan met. 
+
+i decided to try to leave before nightfall but then i realized something the bus station only leads you to different places in shape town and after resarch the real estate company that sold me this house doesnt exist so this must be the end for me and i will be soon replaced with a new citizen so this is a warning to young people looking for a home dont move to shape town.
+
+
+police report: victim todd wheeler age: 35
+gender: male cause of death: overdose and suffication final report figure was wearing a metal cylinder on there head with no air holes and had after blood testing it seems they have been injected with some liquid called zumonium. end of report.

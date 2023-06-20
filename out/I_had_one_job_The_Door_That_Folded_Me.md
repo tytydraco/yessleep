@@ -106,7 +106,7 @@ The minotaur spread open its arms. Almost as if it were accepting a hug. Unmovin
 
 This was in broad daylight which should have made the entire thing hilarious. Except as I continued staring at it. Trying to find a smile on my face. I began to realize that it wasn't trying to trick me to open the door for once. Instead, it was standing before me. Almost as if it were posing. As if to show me, that this was their true form.
 
-The hilarity of it all disappeared as I stared closer at the goat head. And looked into the black of its eyes. Thinking I saw the fear of its last moments in its eyes. But it was only my reflection.
+The hilarity of it all disappeared as I stared closer at the goat head. And looked into the black of its eyes. Thinking I saw within them the fear of its last moments. But it was only my reflection.
 
 I backed away and sat on the couch. Wondering if the creature was still standing outside the door. I turned on the tv, because anything was better than this impending silence.
 
@@ -126,7 +126,7 @@ Splashes of water came up the middle. They felt like screams. Inaudible wails th
 
 I banged on the window. "Hey. Hey!" I banged on it with both fists. "Somebody help her! Somebody!" But there was no one but me.
 
-My fingers tried finding the latch on the window. But as they moved pas the blinds, my fingertips like blindworms searched for an opening. Before finally realizing that this wasn't a window. Not really. None of them were. They were only single panels of glass staring from the outside in.
+My fingers tried finding the latch on the window. But as they moved past the blinds, my fingertips like blindworms searched for an opening. Before finally realizing that this wasn't a window. Not really. None of them were. They were only single panels of glass staring from the outside in.
 
 I ran to the sliding door in the backyard. But I hesitated. My fingers were on the handle. And I could see her hand reaching out of the water. She was waving it frantically. Begging for help.
 
@@ -280,7 +280,7 @@ I caught up to Roger, "But she was..."
 
 We climbed the driveway and Roger stopped short at the door. I could hear the sirens going off in the distance. Christian was sitting upright ton the couch. Rubbing his eyes.
 
-I tried my best not to shake as I entered alone. He looked up at me, and I could no nothing except weep and say, "I am so sorry."
+I tried my best not to shake as I entered alone. He looked up at me, and I could do nothing but weep and say, "I am so sorry."
 
 &#x200B;
 
