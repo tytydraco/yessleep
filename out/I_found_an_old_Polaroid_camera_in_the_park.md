@@ -18,7 +18,9 @@ I try to stop him but he’s already in the house. Soon, I hear his screams.
 
 “WHERE IS IT!” He screamed, both in anger and agony. 
 
-Dave then threw the camera out the open door, and I caught it. Minutes later, the fire department came, and told e that Dave had died in the fire. I went home, crying. I glared at the camera, blaming it for Dave’s’ death. I tried to fight the urge. I knew that whatever the picture would tell me, trying to prevent it will ultimately make it happen. I couldn’t, I had to know. I pointed the Polaroid at myself and clicked the button. 30 seconds later, the dark square printed. I shook it, still holding the camera. 
+Dave then threw the camera out the open door, and I caught it. Minutes later, the fire department came, and told me that Dave had died in the fire. 
+
+I went home, crying. I glared at the camera, blaming it for Dave’s’ death. I tried to fight the urge. I knew that whatever the picture would tell me, trying to prevent it will ultimately make it happen. I couldn’t, I had to know. I pointed the Polaroid at myself and clicked the button. 30 seconds later, the dark square printed. I shook it, still holding the camera. 
 
 I instantly threw the camera across the room. What I saw horrified me. I don’t want to say what I saw, but I was dead. 
 
