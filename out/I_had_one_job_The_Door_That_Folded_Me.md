@@ -60,7 +60,7 @@ The scratching came again, overcoming the stillness of the house. I reluctantly 
 
 The scratch came again.
 
-I should have sat back down; turned my shoulder away even after I figured that it was none of my business. But then I heard a meow.
+I should have sat back down; turned my shoulder away even, after I figured that it was none of my business. But then I heard a meow.
 
 Now I've house sat before, as I've mentioned. Mostly to feed someone's dog or exotic fish. But everyone once in awhile it would be to accompany a cat, even though I've found them to be largely self sufficient creatures. With the only problems I've ever faced with cats being them trapped in a room. Which, without their litter box, it would only mean one thing.
 
@@ -104,7 +104,7 @@ Through the peephole I saw a life sized, larger than life, minotaur standing out
 
 The minotaur spread open its arms. Almost as if it were accepting a hug. Unmoving.
 
-This was in broad daylight which should have made the entire thing hilarious. Except as I continued staring at it. Trying to find a smile on my face. I began to realize that it wasn't trying to trick me to open the door for once. Instead, it was standing before me. Almost as if it were posing. As if to show me, that this was their true form.
+This was in broad daylight which should have made the entire thing hilarious. Except as I continued staring at it. Trying to find a smile on my face. I began to realize that it wasn't trying to trick me to open the door for once. Instead, it was standing before me. Almost as if it were posing. As if it were mocking me.
 
 The hilarity of it all disappeared as I stared closer at the goat head. And looked into the black of its eyes. Thinking I saw within them the fear of its last moments. But it was only my reflection.
 
@@ -182,7 +182,7 @@ I scrambled to the floor and fiddled with the lock. "Christian, I'm going to get
 
 "What?"
 
-"If he finds out. We'll be get in trouble."
+"If he finds out. We'll be get in trouble," he jumbled.
 
 I looked around. Half expecting roger to appear out of nowhere. Half wondering if there was a murdering deranged home owner that was going to severe my head from my beating heart.
 
@@ -278,7 +278,7 @@ I caught up to Roger, "But she was..."
 
 "Fine. Exactly. But if you had opened the door the other day. Her kids would have been killed by her husband. Likely her too. Even if you had helped. And you too, if you had opened that door. He's a large guy after all."
 
-We climbed the driveway and Roger stopped short at the door. I could hear the sirens going off in the distance. Christian was sitting upright ton the couch. Rubbing his eyes.
+We climbed the driveway and Roger stopped short at the door. I could hear the sirens going off in the distance. Christian was sitting upright on the couch. Rubbing his eyes.
 
 I tried my best not to shake as I entered alone. He looked up at me, and I could do nothing but weep and say, "I am so sorry."
 

@@ -166,7 +166,7 @@ My mother sat down, took a deep breath, and started speaking.
 
 "Shortly after Luke was born, friends of ours told us about an upcoming project. A television show for children on the surface, but so much more below that. An opportunity to change everything in this world. But the project was only at the start, it would take more than a decade to evolve completely which was perfect. We had all this time to prepare and become a part of it. The company behind it sent us instructions regularly, little clips we were supposed to film of Luke. And when Max was born of him too. But-". My mother stopped speaking, disappointment written on her face.
 
-"Neither of you made the cut," my father continued. "You didn't seem to be right enough. But then little Leigh was born, my brother's son. We babysat him at times and took some footage. They loved him.
+"Neither of you made the cut," my father continued. "You didn't seem to be right enough. But then little Leigh was born. We babysat him at times and took some footage. They loved him.
 
 My mother took over again.
 
