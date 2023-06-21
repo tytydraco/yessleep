@@ -16,7 +16,7 @@ As you can probably tell, it's that last case that I'm dealing with currently, t
 
 All without any witnesses.
 
-And then comes the question of the toothpicks themselves. The paramedics at the scene found it impossible to move her, as it would drive the toothpicks further into her skin, increasing the blood loss.
+And then comes the question of the toothpicks themselves. The paramedics at the scene found it impossible to move her, as it would drive the toothpicks further into her skin, increasing the blood loss. How did the killer manage to do it?
 
 Well, I actually did have an answer for that question, but it was something I didn't want to think about. The toothpicks were probably inserted one at a time. Over a period of several months, possibly years. Let the wound heal, and then move onto the next toothpick.
 
