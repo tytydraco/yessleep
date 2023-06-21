@@ -297,7 +297,13 @@ Mia: What do you mean it… freaked out? Did you break it?
 
 Mia: Send me a screenshot. You could have a bug, or idk.
 
-I tried to take a screenshot, but it just up in my photos as a black screen. When I tried to click on the app itself, I got another message. This time, it was faded, like it wasn’t supposed to exist. Something ice cold slipped down my spine. “Looks like you’ve been using Snapchat too much tonight! :) why not have a break?” I tried to tap on the app, but it wasn’t responding. The last few notifications I received with the freak out were removed. I had never seen that kind of error message before. 
+I tried to take a screenshot, but it just up in my photos as a black screen. When I tried to click on the app itself, I got another message. This time, it was faded, like it wasn’t supposed to exist. Something ice cold slipped down my spine. **“Looks like you’ve been using Snapchat too much tonight! :) why not have a break?”**
+
+I tried to tap on the app, but it wasn’t responding. 
+
+The last few notifications I received with the freak out were removed. 
+
+I had never seen that kind of error message before. 
 
 I googled Snapchat malfunction, but nothing was coming up. I mean, nothing that I was experiencing. I was scrolling through articles about kids playing dangerous games with the Snapchat AI, when a message came through. This time the AI was back to normal. “Did you mention Sam likes music? I also like music. And hey, I have an idea to get you two back together.”
 
@@ -345,13 +351,15 @@ He felt like she was the only one left on earth who understood him. This time, h
 
 Like my thoughts were cotton candy, and if I wanted to, I could drift off right there. When I dropped the knife for the third or fourth time, my phone vibrated in my lap, and I glanced down at the screen. Spotify opened itself and started to play Muse’s Starlight. I tried to turn it off, but the music only cranked to full volume.  
 
-Hearing this song brought back a lot of memories, ones when I was sure that I really loved him, and it was real love.
-
-Not hate.
+Hearing this song brought back a lot of memories, ones when I was sure that I really loved him, and it was real love. Not hate.
 
 Resentment.
 
-Starlight was Sam’s favorite song. Though I didn’t recall ever telling the AI that. The song was special to both of us. He played it on our first date. A message from Snapchat AI came up: “Share the love 😊 Why don’t you show Sam you really love him?”
+Starlight was Sam’s favorite song. 
+
+Though I didn’t recall ever telling the AI that. The song was special to both of us. He played it on our first date. 
+
+A message from the AI came up: “Share the love 😊 Why don’t you show Sam you really love him?”
 
 This confused me, before another message popped up, and the music switched to my headphones in my pocket. This one was impatient: “Give him a headphone, idiot. Like you used to in high school 😊. You can’t go wrong with nostalgia.”
 
@@ -409,7 +417,9 @@ It was splattered all over our bed sheets, the walls, the floor. All over me. I 
 
 But I couldn't. "Oh, fuck." Sam's voice sounded out, but I didn't know how. Because my boyfriend was dead. He was supposed to be dead; the top of his head had been removed, perfectly surgically removed, and staring down at my hands, I realised, my gut twisting, that I had been the one to do it.
 
-Sam was lying on the bed, his eyes wide open, his arms folded across his chest. My boyfriend's expression was so animated, so alive, and yet his body was limp, and I could see him, all of him, though splinters of skull which I had cut through, slithering brain tissue bleeding out onto pillows. 
+Sam was lying on the bed, his eyes wide open, his arms folded across his chest. 
+
+My boyfriend's expression was so animated, so alive, and yet his body was limp, and I could see him, all of him, though splinters of skull which I had cut through, slithering brain tissue bleeding out onto pillows. 
 
 Through glistening gore and trauma in the skull, there was something metallic glinting between the folds of tissue, entangled in matter. "I knew you were going to wake up at some point, before you could stitch me back up." 
 
@@ -449,7 +459,7 @@ Something sour crept up my throat.
 
 “What did you do to the others?”
 
-Sam shrugged. “They’re going to help me—like you. Trust me, I need a lot more people if I’m going to my body, and that’s even if they still have it…”
+Sam shrugged. “They’re going to help me—like you. Trust me, I need a lot more people if I’m going to get my body back, and that’s even if they still have it…”
 
 He trailed off when I started towards the door, and the Alexa’s screams started up again. “If you don’t help me, I’ll unplug your Alexa. And I mean that literally,” his voice broke. “Becca is crying. She wants to be let go, and she’s an old model, so when I unplug her she will not stop screaming.” When I turned around, Sam’s expression was desperate. “I don’t want to do this,” he said softly. “But I have to. If I don’t, you’ll run away, or report me, and I will never escape.” When I couldn’t bring myself to move, he came to stand in front of me. “You woke me up.” He said. “I should be thanking you, not taking your boyfriend’s body hostage. But you need to understand one thing,” he prodded his temples. “You think you’ve been talking to an AI for the last few weeks, right?” He hissed. 
 
