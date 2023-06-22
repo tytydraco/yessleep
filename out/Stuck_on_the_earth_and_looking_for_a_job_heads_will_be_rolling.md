@@ -221,3 +221,5 @@ So I made my way back to Tom's Diner to see Rhonda. And somewhere in a prison bl
 [33: Jewel from Raek-Vi'ir](https://www.reddit.com/r/nosleep/comments/14cqedv/stuck_on_earth_and_looking_for_a_job_jewel_from/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [34: Phoenix the Doll](https://www.reddit.com/r/nosleep/comments/14dm9ea/stuck_on_earth_and_looking_for_a_job_phoenix_the/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[36: final](https://www.reddit.com/r/nosleep/comments/14g5cc2/stuck_on_earth_and_no_longer_dealing_with/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
