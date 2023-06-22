@@ -19,8 +19,8 @@ I was unraveling. My head felt like it was on fire. “Oh, and where’s the pee
 
 My mom had entered the kitchen, kneeling down and circling her arms loosely in front of her. Cradling an invisible body. I couldn’t help it. I went over and waved my hand through the empty space. Horrified, my mom acted like she was hefting something up into her arms and rushed from the room. I felt suffocated and the only thing on my mind was getting out of there. I went back to my room and got dressed then got my keys. I could see my mom standing in the back yard pacing and talking on the phone as I backed out of the driveway and sped down the road.   
   
-My trip ended at a hotel in the next town. The constantly ringing phone sawed away at my remaining shred of sanity. My attempt to watch TV as a distraction failed, because the only free channels were news stations, and they were all talking about some man who’d been found pulverized in his pool. I called the police and get a wellness check for my mother, but when I told them my name I was told something that nearly made me pass out.
+My trip ended at a hotel in the next town. The constantly ringing phone sawed away at my remaining shred of sanity. I tried to find something fun on TV for a distraction, but that failed, because the only free channels were news stations, and they were all talking about some man who’d been found pulverized in his pool. I called the police and get a wellness check for my mother, but when I told them my name I was told something that nearly made me pass out.
 
  “Miss Sanders, I’m glad you called. Please just come down to the station and talk. We know it was a terrible accident. We know you didn’t see her. We just want to make sure you’re safe and that you don’t do anything to compound this terrible tragedy.”   
   
-Apparently, when I left the house earlier, I backed out over Josie? 
+Apparently, when I left the house earlier, I backed out over Josie?
