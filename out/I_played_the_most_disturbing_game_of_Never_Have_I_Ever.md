@@ -52,7 +52,7 @@ Tina and I glanced at each other, eyes wide. “Uh, Layla,” I finally cut in. 
 
 “No, I didn’t see her, but I mean… obviously, she didn’t kill anyone.”
 
-Layla focused back on Erin. “You put one down for the Ouija board, and one for smoking pot. What was the third one for?”
+Layla focused back on Erin. “You put one down for the Ouija board, and one for seeing someone die. What was the third one for?”
 
 “Skinny dipping,” she replied, without hesitating.
 
