@@ -4,9 +4,9 @@ I was hungry so I went downstairs, why didn't I just go to sleep? I stood in fro
 
 At first, I thought it was a shadow, but when I walked closer my heart stopped. It was a person. A person lying flat on their back, arms out, staring up at the sky. I inched closer to the window. The person appeared to be a man by the build, but something was off about the body. I couldn't quite place it, but it made my skin crawl.
 
-Slowly, I picked up my phone I had left on the counter and opened the camera. With a shaking hand, I snapped a picture of the person. By doing that simple action, my fate was sealed. The flash shone through the window as the image was captured. The person's head jerked in the direction of me. Our eyes locked. Its face was completely black, except for the red eyes and mouth full of sharp teeth. Now that it was looking at me, I could see that its entire body was black, as if it was a devoid of any light, as if it was made of darkness.
+Slowly, I picked up my phone I had left on the counter and opened the camera. With a shaking hand, I snapped a picture of the person. By doing that simple action, my fate was sealed. The flash shone through the window as the image was captured. The person's head jerked in the direction of me. Our eyes locked. Its face was completely black, except for the red eyes and mouth full of sharp teeth. Now that it was looking at me, I could see that its entire body was black, as if it was devoid of any light, as if it was made of darkness.
 
-I watched in fear as it got onto its feet, revealing its true form. It was over eight feet tall with arms that brushed against the concert, it had sharp nails at the end of each grotesquely long finger, and it was looking directly at me. Its eyes were hungry as we stared at each other. 
+I watched in fear as it got onto its feet, revealing its true form. It was over eight feet tall with arms that brushed against the concrete, it had sharp nails at the end of each grotesquely long finger, and it was looking directly at me. Its eyes were hungry as we stared at each other. 
 
 Then it started running.
 
