@@ -309,3 +309,7 @@ Tim was pointing out the window. I leaned over in time to see a single frayed sh
 It must have been then that I knew not all of us would make it off that mountain alive. 
 
 The story does not end here but I must take a break. Writing of these events has brought back terrible memories.
+
+
+Part 2: 
+https://www.reddit.com/r/nosleep/comments/14a01hu/i_went_to_an_abandoned_ski_resort_with_strict/?utm_source=share&utm_medium=web2x&context=3
