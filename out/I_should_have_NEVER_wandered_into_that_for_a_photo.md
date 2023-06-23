@@ -22,11 +22,11 @@ I started to make my way out of the basement when I saw one door that I hadn't o
 
 I opened the door to a candle lit room, the air filled with the smell of candles burning and incense! The air was thick, the air you could cut with a knife thick. Then I noticed him!! A LARGE, black mass in the corner, watching my every move! Then I noticed the stains all on the floor and the walls. They were covered in dripping red, and it made me shiver! I made a move to the door and it slowly closed, then slammed shut, sealing me in with the figure! I stayed near the door and waited to see what he would do!!
 
-It wasn't long before he broke his gaze on me and started to move! He came closer, not super close but to a point to where I could make out what he looked like! 7ft tall, normal human head with rams horns and dark, motionless eyes! I stood frozen to the spot, then it spoke. 
+It wasn't long before he broke his gaze on me and started to move! He came closer, not super close but to a point to where I could make out what he looked like! 7ft tall, normal human head with rams horns and dark, motionless eyes! I stood frozen to the spot, then it spoke.
 
 "Sanguis purpureus super parietem et sica firgida et prompta est" the figure said, not breaking his gaze
 
-I have to no idea how to speak latin, but he pulled a long knife looking weapon, a good 10 to 12in long, and pointed it toward me. The air was sucked out of my lungs and I couldnt breathe, looking at any opportunity to escape. He then made more strides toward me and I found the closest thing I could to me and threw it at him. It hit him right above the eye and he was dazed enough where I found the door and made a run for it. Running through that hallway was not easy, everything that could go wrong did.
+I have no idea how to speak latin, but he pulled a long knife looking weapon, a good 10 to 12in long, and pointed it toward me. The air was sucked out of my lungs and I couldnt breathe, looking at any opportunity to escape. He then made more strides toward me and I found the closest thing I could to me and threw it at him. It hit him right above the eye and he was dazed enough where I found the door and made a run for it. Running through that hallway was not easy, everything that could go wrong did.
 
 Just then, the most bone rattling, earth shattering roar came from behind me as he was making his way through the hallway after me! I ran as fast as I could, hearing this beast not that far behind me. I found a small crawl space I was able to fit into to hide and wait. It was the middle of the night so I would have to wait until daylight to make my move to get out of here and away from the nightmare in front of me!
 
