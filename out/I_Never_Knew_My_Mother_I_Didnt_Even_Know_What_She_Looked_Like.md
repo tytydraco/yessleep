@@ -80,7 +80,7 @@ And then he finally looked at me; for the first time in nearly a decade, he gaze
 
 At last, I found the grave. There was no headstone, but the great pale tree above it could not be mistaken. I plunged my shovel into the earth and dug until my hands were raw.
 
- Finally, I finished. I heaved an exhausted sigh and tossed the shovel.
+Finally, I finished. I heaved an exhausted sigh and tossed the shovel.
 
 The coffin was handmade, unnaturally wide and covered from top to bottom in the New Testament. I touched the lid and flinched; it was searing hot.
 
@@ -100,4 +100,4 @@ My chest burned but I did not stop, until at last, my knees buckled and I collap
 
 I squinted my eyes in the darkness, just barely able to make out the forest in the pale moonlight.
 
-And then I felt it… behind both of my shoulder blades. It was like two hot needles were coming through my skin.
+And then I felt it… behind both of my shoulder blades. It was like two burning needles were piercing through my skin.
