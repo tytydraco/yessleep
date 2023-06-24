@@ -194,3 +194,6 @@ I can't begin to think about going to sleep right now. For the sake of my life.
 
 
 I'm too exhausted to transcribe more of the journal right now. I'll post more entries as soon as I've transcribed them. I won't be poisoned just yet, so I have time.
+
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/14i3620/the_soviet_union_is_responsible_for_the_death_of/?)

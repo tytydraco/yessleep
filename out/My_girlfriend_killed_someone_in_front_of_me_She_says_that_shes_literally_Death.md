@@ -155,4 +155,4 @@ Hades grinned at me. "I love you too."
 I leaned forward, holding the flowers between us. "You can take me on a date tomorrow, though. We'll see how it goes."
 
   
-On the way home, I realized that the roses were made out of plastic. They would never die.   
+As I walked away, I realized that the roses were made out of plastic. They would never die.
