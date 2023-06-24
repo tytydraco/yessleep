@@ -113,3 +113,7 @@ I looked around, unsure of where to go. I could barely see any signs of life on 
 
 
 “No,” he said. “It’s coming back. We have to go now…” He looked behind me, and his eyes widened. “Oh God, it’s too late.” Without any weapon or even an idea where I was, I turned to look at what horrors this world held- the same ones that presumably had torn off or even eaten this poor man’s leg. As soon as I saw it, I began to scream.
+
+
+
+Part 2: https://www.reddit.com/r/nosleep/comments/14hdjsg/i_was_raised_in_a_secret_religion_our_members/
