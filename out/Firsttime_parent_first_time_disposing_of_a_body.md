@@ -138,6 +138,13 @@ I clenched my fists, praying that Ella would stay asleep as I died.
 
 “Russ,” Kimmy gasped, her words coming in short bursts, “She’s been hunting for Ella since she was born. [Charybdis is my mother](https://www.facebook.com/P-F-McGrail-181784199029462/).”
 
+-------------
+
+[This is how the whole damn thing wrapped up](https://redd.it/14hpsax)
+
+----------------
+
+
 [BD](https://www.reddit.com/r/ByfelsDisciple/)
 
 
