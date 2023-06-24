@@ -40,7 +40,7 @@ I was glad the war was over. As for the wishes of those at the top, I can't stan
 ENTRY 13
 
 
-Over lunch that day, discussion surrounding God and the Bible was mounting. God was dead, and his angels avenged him by killing a bunch of us, and we were supposed to take it. What surprises me is that God was real in the first place. I was raised an atheist, although that's probably due to Stalin's crackdown on Christianity. My parents never spoke of any religion or god, so practicing religion always seemed alien to me. I don't think I need to understand what God's army was trying to convey when they killed my brother, but it for sure wasn't all that good.
+Over lunch that day, discussion surrounding God and the Bible was mounting. God was dead, and his angels avenged him by killing a bunch of us, and we were supposed to take it. What surprises me is that God was real in the first place. I was raised an atheist, although that's probably due to Stalin's crackdown on Christianity. My parents never spoke of any religion or god, so practicing religion always seemed alien to me. I had a babysitter who was obsessed with God, but I never practiced religion with him. I don't think I need to understand what God's army was trying to convey when they killed my brother, but it for sure wasn't all that good.
 
 
 ENTRY 14
