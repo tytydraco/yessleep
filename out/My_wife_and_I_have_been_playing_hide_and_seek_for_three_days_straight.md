@@ -117,3 +117,5 @@ They searched the backyard and patrolled in a three mile radius. They came up em
 Except.
 
 Last night, as I rolled over in bed, *I swear* my fingers touched something [warm.](http://www.reddit.com/r/blairdaniels)
+
+[Update here](https://www.reddit.com/r/nosleep/comments/14hlzwk/my_wife_and_i_have_been_playing_hide_and_seek_for/)
