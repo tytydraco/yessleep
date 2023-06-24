@@ -48,3 +48,5 @@ His smile died on his face. He opened the bag and proceed to examine the doll.
 “The doll, I said, there you go sweetie, you can have here back”.
 She smiled while hugging the doll. And again, I felt just for a second this weird shiver. 
 What is that all about?
+
+Part 2 : [Part 2](https://www.reddit.com/r/nosleep/comments/14ht03o/the_crying_doll_part_2/?utm_source=share&utm_medium=ios_app&utm_name=ioscss&utm_content=2&utm_term=1)
