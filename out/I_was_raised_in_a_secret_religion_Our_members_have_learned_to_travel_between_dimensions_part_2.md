@@ -10,7 +10,7 @@ At first, what appeared like the shadow of a huge hand stretched across the life
 Without thinking, I grabbed his outstretched hand and tried to drag him away from the beast, but I had no real hope of outrunning this black monstrosity. It towered at least twenty feet in the air, and looked to have a dozen sharp, branching legs, each stabbing into the hard dust with every forward step it took.
 
 
-I grabbed the red mirror out of my pocket, screaming into it. Even though I was young at the time, I was not stupid, and my instincts were still sharp.
+I grabbed the black mirror out of my pocket, screaming into it. Even though I was young at the time, I was not stupid, and my instincts were still sharp.
 
 
 “Please, I ask you, God, the Over, the One who Sees, take me out of here!” I said, trying to look into the center of the hypnotizing electrical current that ran across the surface of the smooth, glassy mirror. At first nothing happened, and my heart began to race. The same thought ran across my mind over and over: “I’m going to die out here. I’m going to die here on some strange world. The mirror has undoubtedly failed me. It sees my desperation and mocks me.” But no, that was the red mirror- the one who had led Arkovitch’s son to his mutilation and, perhaps, abandoned him. Was it only a fluke that I had come to this place, to what looked like an alternate Earth? A strange desert plane with massive insectoid monstrosities was not my idea of a vacation.
