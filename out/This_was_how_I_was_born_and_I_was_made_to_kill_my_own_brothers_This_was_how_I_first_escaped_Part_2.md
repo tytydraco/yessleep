@@ -116,4 +116,4 @@ None of the other children seemed to know of or understand this. They had no clu
 
 The God being's voice was a scathing tease echoing through my mind. What "great things" were apparently expected of me? What's "great" about murder? Why was I special?
 
-Why do I have to be the only one that can see?
+Why do I have to be the only one that can [see](https://www.reddit.com/r/nosleep/comments/14ikywu/this_was_how_i_was_born_and_i_was_made_to_kill_my/?utm_source=share&utm_medium=web2x&context=3)?
