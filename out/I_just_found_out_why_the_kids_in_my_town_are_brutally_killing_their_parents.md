@@ -22,11 +22,15 @@ Anyway.
 
 This supposed curse came back to light several days ago, when out of nowhere, Seth Daniel’s killed his parents. And I don’t mean kill, like he burned the house down with them in it, or poisoned them in their sleep. I mean KILL. According to the town newspaper my mom is always feverishly reading, the bodies were mutilated. Like an animal had torn them apart. I knew Seth. I’ve known him since we were little kids. He lived across the road from me. Seth regularly invited me over to watch Power Rangers, and would enthusiastically sing and dance to the intro. Seth loved his mom and dad. 
 
-I mean, he did as a kid. I would see him playing with his father in their front yard—and when he grew up, yes, he distanced himself from his parents (because being cool with your mom and dad is like, so lame) I would still see him accompanying his mother to the town center to buy groceries, or sitting in the yard playing his Switch, pretending to laugh at all of his dad’s dad-jokes. Seth wasn’t a bad person, and he definitely wasn’t a victim of some supposed curse that apparently still had us in its grasp. It didn’t make sense that he would just… kill his parents like that. There was no motive, no real reason for him to do that. Seth adored his mother and loved his father. 
+I mean, he did as a kid. I would see him playing with his father in their front yard—and when he grew up, yes, he distanced himself from his parents (because being cool with your mom and dad is like, so lame) I would still see him accompanying his mother to the town center to buy groceries, or sitting in the yard playing his Switch, pretending to laugh at all of his dad’s dad-jokes. Seth wasn’t a bad person, and he definitely wasn’t a victim of some supposed curse that apparently still had us in its grasp. 
+
+It didn’t make sense that he would just… kill his parents like that. There was no motive, no real reason for him to do that. Seth adored his mother and loved his father. 
 
 The town media were radio silent except for one measly article in the newspaper. I figured nobody wanted to say what everyone was thinking. 
 
-But it didn’t make sense. This curse had allowed us to live for seventeen years, and NOW it wanted to do something? And why would it lash out at parents and not kids? Why force the kid to kill their parents? There was one detail that jumped out at me. It was Seth’s 18th birthday. The exact day. I knew this because he was talking about having a party at school. I mean, I’m not a rocket scientist, but what kid actively talks about having a birthday party the same day they’re planning to brutally murder their parents? I asked a lot of questions because nobody was making noise, and I refused to believe Seth had willingly done something like this.  Mom said the Daniel’s case was too gruesome to tell me, so I did some digging myself. We’re a small town. 
+But it didn’t make sense. This curse had allowed us to live for seventeen years, and NOW it wanted to do something? And why would it lash out at parents and not kids? Why force the kid to kill their parents? There was one detail that jumped out at me. It was Seth’s 18th birthday. The exact day. I knew this because he was talking about having a party at school. 
+
+I mean, I’m not a rocket scientist, but what kid actively talks about having a birthday party the same day they’re planning to brutally murder their parents? I asked a lot of questions because nobody was making noise, and I refused to believe Seth had willingly done something like this.  Mom said the Daniel’s case was too gruesome to tell me, so I did some digging myself. We’re a small town. 
 
 Finn Novak is the son of the sheriff, so it cost me twenty dollars and a promise to introduce him to my brother, to get into his dad’s office. 
 
@@ -60,9 +64,13 @@ Our town had been plagued with an invisible force that had taken away our childr
 
 Watching him being swarmed by town news crews from my window, Seth almost resembled a celebrity. The way he was shoved through flashing lights and microphones. Seth Daniel’s hated attention, usually. If he was picked to speak in class, his cheeks would go bright red, and he’d stumble his way through the passage, trying not to cry. The boy I saw was not my neighbor. This version of him held his head high, his movements swift and robotic as he calmly jumped into the back of an awaiting SUV.
 
-Despite seeing all of that, despite seeing Seth seemingly uncaring in front of the cameras, I knew he would never do something like that. I know murderers turn out to be the most unexpected people, friends, and family, those you grow up with and trust. But there was something about the Daniel’s case that I couldn’t get out of my mind. Mom told me to forget about it when I started asking her questions about this so-called curse, and how exactly I was born. Over dinner, I asked a few too many, before she dropped her fork onto her plate, startling my twin sitting across from me. 
+Despite seeing all of that, despite seeing Seth seemingly uncaring in front of the cameras, I knew he would never do something like that. 
 
-Electronics were not allowed at the table, but Freddie was the more… favoured child, so the rules didn’t apply to him. It stung a little, but I couldn’t really blame mom for being obsessed with her only son.  Apparently, she had been told she had twin daughters, and out came Freddie. So, he was a surprise to her. Freddie was such a surprise, that he got what he wanted for birthdays, while Noa and I were stuck with the hand-me-down’s. His nickname was Golden Boy. Because, apparently he could do no wrong. I was sure if he murdered me in my sleep, mom would give him a candy bar. Freddie and I were fraternal twins and looked nothing alike, but that didn’t stop mom attempting to dye my hair when I was little, so I would have Freddie’s red locks. 
+I know murderers turn out to be the most unexpected people, friends, and family, those you grow up with and trust. But there was something about the Daniel’s case that I couldn’t get out of my mind. Mom told me to forget about it when I started asking her questions about this so-called curse, and how exactly I was born. Over dinner, I asked a few too many, before she dropped her fork onto her plate, startling my twin sitting across from me. 
+
+Electronics were not allowed at the table, but Freddie was the more… favoured child, so the rules didn’t apply to him. It stung a little, but I couldn’t really blame mom for being obsessed with her only son.  Apparently, she had been told she had twin daughters, and out came Freddie. So, he was a surprise to her. 
+
+Freddie was such a surprise that he got what he wanted for birthdays, while Noa and I were stuck with the hand-me-down’s. His nickname was Golden Boy. Because, apparently he could do no wrong. I was sure if he murdered me in my sleep, mom would give him a candy bar. Freddie and I were fraternal twins and looked nothing alike, but that didn’t stop mom attempting to dye my hair when I was little, so I would have Freddie’s red locks. 
 
 I have natural brown hair, while he is a redhead, and Noa is blonde. Normal people would question that, but in our town it was pretty normal for kids to not like their parents due to the lengths people went to have kids. I had heard rumours that the miracle generation was created from witchcraft, but the person who spread that rumour also thought the earth was one giant tomato. It was the first time since learning about the curse as a kid, did I start to actually question it, much to mom’s disdain.  Freddie had already told me to cut it out with the questions, kicking me under the table, but once I was asking them, I couldn’t stop. 
 
@@ -106,7 +114,9 @@ No matter what, we had to hand our phones in at 11PM every night.
 
 That included all electronics including Switch’s. In fact, she went as far as switching off the outlets in our rooms, so that meant no late night games of Mario Kart. I thought we would eventually be able to grow out of the rule, but no. 
 
-We were sixteen and seventeen years old, and still had to hand over our phones like preschoolers. Freddie was of course the golden boy, so he had left his phone and Switch on the kitchen table before leaving for his friend’s house (which mom also said wasn’t allowed, but I guess that rule didn’t apply to him). I was sitting on the kitchen countertop, frowning at my phone screen, reading and re-reading through the Daniel’s autopsy notes, when Noa let out a shriek. The time was 11:01 which meant Noa was already breaking the no-phone rule. I jumped off of the countertop, pausing to throw my phone next to Freddie’s before the thought hit me. 
+We were sixteen and seventeen years old, and still had to hand over our phones like preschoolers. Freddie was of course the golden boy, so he had left his phone and Switch on the kitchen table before leaving for his friend’s house (which mom also said wasn’t allowed, but I guess that rule didn’t apply to him).
+
+I was sitting on the kitchen countertop, frowning at my phone screen, reading and re-reading through the Daniel’s autopsy notes, when Noa let out a shriek. The time was 11:01 which meant Noa was already breaking the no-phone rule. I jumped off of the countertop, pausing to throw my phone next to Freddie’s before the thought hit me. 
 
 Why was my first automatic thought to put my phone down? I tried to pocket it, before a pulsing pain suddenly ignited between my fingers. It felt like an electric shock, only lasting a few seconds, maybe not even that. My phone slipped from my hands, but not before the lights above flickered before going out completely, leaving me in darkness. Fuck. The warm glow of the hallway outside confirmed just the kitchen had short circuited. 
 
@@ -182,7 +192,9 @@ His words weren’t fully registering. This time, I did bring something up, some
 
 “Oh, yeah, it was him alright. The cops already caught him. Apparently, he was trying to make a run for it.” Freddie sighed. “Maybe he was scared.”
 
-It didn’t make sense! How could Finn kill his father? He loved his dad! I barely knew the kid outside helping me with getting into his dad’s office, but even then, I saw photo frames on Sheriff Novak’s desk. I saw photo’s of the two of them for Christmas and father’s day, on vacations and just the two of them hanging out. In kindergarten, a boy had loudly announced that Sheriff Novak was a pig, and Finn wrestled him to the ground, almost knocking the kid out. Finn was tiny, a lean kid. There was no way he was strong enough to brutally rip his father apart.
+It didn’t make sense! How could Finn kill his father? He loved his dad! I barely knew the kid outside helping me with getting into his dad’s office, but even then, I saw photo frames on Sheriff Novak’s desk. I saw photo’s of the two of them for Christmas and father’s day, on vacations and just the two of them hanging out. In kindergarten, a boy had loudly announced that Sheriff Novak was a pig, and Finn wrestled him to the ground, almost knocking the kid out. Finn was tiny, a lean kid. 
+
+There was no way he was strong enough to rip his father apart.
 
 “Fuck.” Freddie groaned. He hung upside down off of the bed, twisting his head to look at me, blowing dark red hair out of his eyes. “Are we cursed?”
 
@@ -196,7 +208,7 @@ In front of the cells was an empty desk with a laptop set up. Stepping closer, I
 
 Finn liked horror movies, so I wouldn’t have been surprised if he was jokingly re-enacting that certain scene.  Though that would have required him having an ounce of emotion. I’m not sure what I expected, but this wasn’t it. 
 
-I thought Finn would be hysterical, screaming that he was innocent, that he would never kill his father. But what I was looking at was the face of a murderer. Or at least, half of one. His lips were curved into a small smile, and yet that smile held no emotion. Just like Seth, Finn’s eyes were shaded with a pair of raybans. These ones looked more expensive, clashing with a simple short sleeved tea and jeans, both of which were stained in his father’s blood.
+I thought Finn would be hysterical, screaming that he was innocent, that he would never kill his father. But what I was looking at was the face of a murderer. Or at least, half of one. His lips were curved into a small smile, and yet that smile held no emotion. Just like Seth, Finn’s eyes were shaded with a pair of raybans. These ones looked more expensive, clashing with a simple short sleeved tee and jeans, both of which were stained in his father’s blood.
 
 When I opened my mouth to speak, his arms dropped to his sides. “Aren’t you going to wish me a happy birthday?”
 
@@ -230,15 +242,17 @@ But before I could shut the door, his chilling words followed me.
 
 I was immediately dragged out of the sheriff’s office, and lectured by mom for a whole two hours. But sitting in my living room with my mother yelling at me, with half of the precinct surrounding her, I couldn’t get Finn’s words out of my head. It was when mom was gesturing to me, her lips moving but no sound coming out, when I snapped out of it, only to be slammed with another lecture on privacy and illegal entrance. 
 
-I ignored all of that, cross legged on the couch next to Noa, who was pretending to be on her phone, and decided to finally open my mouth. “I think it’s the curse.” I said, cutting into mom’s third or fourth threat regarding my phone privileges. That was when the room went silent, and mom looked startled for a moment before shaking her head. “That’s not… that is not what we are talking about, young lady. Do you understand the severity of what you have done?”
+I ignored all of that, cross legged on the couch next to Noa, who was pretending to be on her phone, and decided to finally open my mouth. 
 
-“Yeah, Mara,” Freddie spoke up from across the room. Like Noa, he was doing a bad job of pretending he wasn’t loving every second of me being berated. “I can’t believe you would be so careless and stupid….” He drifted off. “Oh wait, didn’t you break in last month to steal documents on the Daniel’s case?” His smile pricked. “Now, I’m pretty sure it was also, like, illegal, but I mean, what do I know? I’m just a high schooler. I don’t sneak into the sheriff’s office when I’m supposed to be at school.”
+“I think it’s the curse.” I said, cutting into mom’s third or fourth threat regarding my phone privileges. That was when the room went silent, and mom looked startled for a moment before shaking her head. “That’s not… that is not what we are talking about, young lady. Do you understand the severity of what you have done?”
+
+“Yeah, Mara,” Freddie spoke up from across the room. Like Noa, he was doing a bad job of pretending he wasn’t loving every second of me being berated. “I can’t believe you would be so careless and stupid….” He drifted off. “Oh wait, didn’t you break in last month to steal documents on the Daniel’s case?” His smile pricked. “Now, I’m pretty sure that was also, like, illegal, but I mean, what do I know? I’m just a high schooler. I don’t sneak into the sheriff’s office when I’m supposed to be at school.”
 
 I glared at him. “How do you even know that? You go through my phone?”
 
 He shrugged, comfortably adjusting himself on the recliner. “Your passcode is four zero’s, a toddler could bypass it.”
 
-I don’t know if it was the stress of what happened with Finn, or my brother’s dumb fucking grin, but I was already lunging across the room to—I don’t know? He’s taller than me, and more built. He could squash me if he really wanted to. So, what I thought was going to be a fight, turned into me trying to cause some damage, with him, and him just shoving me away with a scoff. I did manage to hit him in the nose, but that was where mom came in, pulling us apart, and going into mom-mode.
+I don’t know if it was the stress of what happened with Finn, or my brother’s dumb fucking grin, but I was already lunging across the room to—I don’t know? He’s taller than me, and more built. He could squash me if he really wanted to. So, what I thought was going to be a fight, turned into me trying to cause some damage, with him and him just shoving me away with a scoff. I did manage to hit him in the nose, but that was where mom came in, pulling us apart, and going into mom-mode.
 
 “Mom-mode” was when she really got mad. Noa decided she no longer wanted to be a spectator and wandered into the kitchen. I was sent to my room, and Freddie was lectured for antagonising me. Several hours later, he appeared at my door with a half-eaten donut, a cup of hot cocoa, and a half-assed apology, which was his attempt at letting me know that he was scared I was going to get myself hurt. I took the donut and the cocoa, and told him to go away. He did, after a while of standing there looking like a kicked puppy. I closed the door on his face when he made a point of trying to make me feel sorry for him.
 
@@ -254,7 +268,7 @@ Every time I thought about actually doing it though, slicing into my flesh until
 
 “Mara!” Noa was grinning ear to ear as usual. She grabbed my hands and squeezed them. “Do you remember what we did as kids?”
 
-From the look on her face, I knew exactly what she was talking about. When mom was in bed or at work on our birthday night, the three of us would scour her room for presents. We had grown out of it eventually, but every year Noa insisted on at least one search. It’s not like I could refuse when my sister already had a tight grip of my arm and was yanking me into mom’s room. 
+From the look on her face, I knew exactly what she was talking about. When mom was in bed or at work on our birthday eve, the three of us would scour her room for presents. We had grown out of it eventually, but every year Noa insisted on at least one search. It’s not like I could refuse when my sister already had a tight grip of my arm and was yanking me into mom’s room. 
 
 When I stumbled inside, I found our brother on his knees under mom’s bed, rifling through boxes and bags. I was surprised Noa had managed to drag Freddie into it, considering every other year he rolled his eyes and bid us adieu, calling Noa a baby. Now though, he was just as enthusiastic as he was when he was a little kid, and used to shush us and turn it into a game. I would take one corner, Noa would take the closet, and Freddie would crawl under the bed (because he was the only one who wasn’t scared of monsters hiding under there). 
 
@@ -280,7 +294,7 @@ The printed words on the box looked like a different language, though I was stil
 
 “CHILD™️. HAVE YOU EVER WANTED YOUR VERY OWN CHILD? WELL, NOW YOU CAN! JUST PULL OUT THE CHORD, AND YOU HAVE YOUR VERY OWN SON/DAUGHTER!”
 
-I was stepping forward when something…. moved. Freddie yanked me back, but I was delving inside my mother’s closet, and finding a much newer box. This one was unopened, and occupied, a fully grown college aged year old guy peeking through plastic packaging. This time I saw the cord, like an umbilical cord connected to the thing inside the box, which was asleep.
+I was stepping forward when something…. moved. Freddie yanked me back, but I was delving inside my mother’s closet, and finding a much newer box. This one was unopened, and occupied, a fully grown college aged guy peeking through plastic packaging. This time I saw the cord, like an umbilical cord connected to the thing inside the box, which was asleep.
 
 Its eyes were shut.
 
