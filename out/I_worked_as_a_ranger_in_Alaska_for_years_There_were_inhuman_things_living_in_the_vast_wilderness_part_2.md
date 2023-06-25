@@ -250,3 +250,6 @@ I had once seen a movie called Requiem for a Dream, where the heroin addict’s 
 
 
 And as Jansen and I went down the tunnel, I heard a single shot of a shotgun blast echoing from behind us.
+
+
+Part 3: https://www.reddit.com/r/nosleep/comments/14ijfoy/i_worked_as_a_park_ranger_in_alaska_there_were/
