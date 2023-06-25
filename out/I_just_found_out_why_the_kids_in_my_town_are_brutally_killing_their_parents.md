@@ -1,6 +1,6 @@
 They called us the miracle generation.
 
-It’s a well-known fact that our town has always struggled to have children. Nobody knows exactly why, but fertility problems have always been an issue. It’s not like our population is dwindling, people were stillborn from IVF, or shipped into town through a government program to create families. Mom had moved to the US with her parents when she was twenty years old, abandoning her Aussie family and starting anew. After finding the program, she was paid enough cash to put her into early retirement, and all she had to do was pick from several guys and make a family. 
+It’s a well-known fact that our town has always struggled to have children. Nobody knows exactly why, but fertility problems have always been an issue. It’s not like our population is dwindling, people were still born from IVF, or shipped into town through a government program to create families. Mom had moved to the US with her parents when she was twenty years old, abandoning her Aussie family and starting anew. After finding the program, she was paid enough cash to put her into early retirement, and all she had to do was pick from several guys and make a family. 
 
 I know this sounds very dystopian, and you would be correct in thinking so. But what else were they supposed to do? 
 
@@ -244,7 +244,7 @@ I don’t know if it was the stress of what happened with Finn, or my brother’
 
 I wanted to talk to him about Finn, but he would just tell mom and get me into trouble.
 
-So, I found myself with information which was driving me crazy. My 18th birthday was approaching, and more and more kids were killing their parents. After Finn, it was Addie, and then Jason, Sara, and Kiara. 
+So, I found myself with information which was driving me crazy. My 18th birthday was approaching, and more and more kids were turning on their mom's and dads. After Finn, it was Addie, and then Jason, Sara, and Kiara. 
 
 All of which had turned eighteen weeks between each other. I thought the town was going to start freaking out and calling those of us who were left monsters, insisting that we never should have been born. 
 
@@ -260,7 +260,7 @@ When I stumbled inside, I found our brother on his knees under mom’s bed, rifl
 
 For a moment, I considered just walking away and saying they were being stupid and acting like children. But I did want to forget about the reality of turning 18 and possibly murdering my family. In a way, I guess I wanted to be a kid again. So, just like when I was five, I wandered over to the furthest corner to search for presents which did not exist. I knew they didn’t exist because mom gave us cash every birthday inside our card.
 
-Still though, it was fun to search, and have that childlike magic come over me again, the thrill of pulling things aside and delving inside boxes for hidden treasures, dolls we wanted, or the newest games console. To make Noa happy, I shoved a few things aside, finding myself smiling. Mom was always bad at hiding our presents. I was about to make that comment, when Noa squeaked in delight. “I’ve found something!” When I twisted around, she was already partially inside the closest, one foot sticking out, her head buried in mom’s clothes. It looked like she was grasping into something. Freddie, who had crawled out from under the bed, straightened up, shooting me a look. “Really?” His eyes said. “Aren’t we a little too old for this?”
+Still though, it was fun to search, and have that childlike magic come over me again, the thrill of pulling things aside and delving inside boxes for hidden treasures, dolls we wanted, or the newest games console. To make Noa happy, I shoved a few things aside, finding myself smiling. Mom was always bad at hiding our presents. I was about to make that comment, when Noa squeaked in delight. “I’ve found something!” When I twisted around, she was already partially inside the closet, one foot sticking out, her head buried in mom’s clothes. It looked like she was grasping into something. Freddie, who had crawled out from under the bed, straightened up, shooting me a look. “Really?” His eyes said. “Aren’t we a little too old for this?”
 
 “We are.” I mouthed back.
 
@@ -270,7 +270,7 @@ I frowned at the box the two of them were struggling to get a proper hold of. It
 
 Noa shrieked when a mountain of bugs crawled out of the flaps. Looking closer, it looked to be a box for a toy or a doll. But when I squinted, the box was open. It had been open a long time, and the more I looked, I was feeling progressively sicker. There was something tainting the cardboard, an old red painting the flaps and inside the thing itself. 
 
-I was suddenly aware of things happening way too quickly for me to understand. A blur of movement to my right, which was Freddie dripping to his knees and barfing everywhere. And then Noa’s figure stumbling out of the room. I could hear her screams. I could see my brother retching, but I couldn’t tear my eyes away from the front of the box. Because on the front of the box was… me.
+I was suddenly aware of things happening way too quickly for me to understand. A blur of movement to my right, which was Freddie dropping to his knees and barfing everywhere. And then Noa’s figure stumbling out of the room. I could hear her screams. I could see my brother retching, but I couldn’t tear my eyes away from the front of the box. Because on the front of the box was… me.
 
 MARA.
 
@@ -332,7 +332,7 @@ He carved them out because he had gotten that exact birthday card,
 
 That exact countdown.
 
-And somehow, he had known, just like me, as I stuffed my sweater sleeve into my right eye, that the bomb was part of us. Digging the blade into my eye and jerking it at an angle to sever it, I screamed into my sleeve, managing to choke out through sobs, begging my brother to do the same. 
+And somehow, he had known, just like me, as I stuffed my sweater sleeve into my mouth, that the bomb was part of us. Digging the blade into my eye and jerking it at an angle to sever it, I screamed into my sleeve, managing to choke out through sobs, begging my brother to do the same. 
 
 The countdown was still in my head, and if I concentrated, I could hear it, the beep, beep, beep of the thing sandwiched inside me. 
 
@@ -340,7 +340,9 @@ It could have been either eye or both but I didn’t have time to guess. I was o
 
 I could see her shadow, and just seeing her I knew she was trembling, too scared to come near either of us. I opened my mouth to try and reassure her, while helping Freddie sever the thing inside him. 
 
-Before… pop! I heard it first, an audible popping in my ear. Noa screamed behind me, but Before something warm hit my face, warm and red, and coating my eyes and cheeks. When I swiped startling red from my eyes and face, I found myself staring at glistening scarlet dripping from the walls and slick on the floor, the countertop, everything. I reached out for my brother, who wasn’t there anymore. The birthday card which I had opened was still on the ground, and I could still see my mother’s message, and eighteen years (?) worth of birthday cards came over me, each one all saying that exact same ironic message. “I’m glad you didn’t explode!”
+Before… pop! I heard it first, an audible popping in my ear. Noa screamed behind me, 
+
+Before something warm hit my face, warm and red, and coating my eyes and cheeks. When I swiped startling red from my eyes and face, I found myself staring at glistening scarlet dripping from the walls and slick on the floor, the countertop, everything. I reached out for my brother, who wasn’t there anymore. The birthday card which I had opened was still on the ground, and I could still see my mother’s message, and eighteen years (?) worth of birthday cards came over me, each one all saying that exact same ironic message. “I’m glad you didn’t explode!”
 
 Whatever my fake-mother did to get me, I don’t care. I don’t care if I’m some artificially grown freak who was born at seventeen years old.
 
