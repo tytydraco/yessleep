@@ -114,7 +114,7 @@ The man sighed.
 
 And then there was a breeze across my face.
 
-I sat up screaming. 
+I sat up screaming.
 
 And punching.
 
@@ -123,3 +123,5 @@ And my first days in Unit 240 began.
 \*\*\*
 
 | [X](https://www.reddit.com/user/Beanhedge/comments/13jkvqg/the_story_hole/?utm_source=share&utm_medium=web2x&context=3) |
+
+[Part Three →](https://www.reddit.com/r/nosleep/comments/14idal9/im_immortal_its_ruined_my_life_new_friends/?utm_source=share&utm_medium=web2x&context=3)  

@@ -134,4 +134,4 @@ I live in hell. And it terrifies me.
 
 [X](https://www.reddit.com/user/Beanhedge/comments/13jkvqg/the_story_hole/?utm_source=share&utm_medium=web2x&context=3)
 
-[2](https://www.reddit.com/r/nosleep/comments/14ca5a9/im_immortal_its_ruined_my_life_on_getting/?utm_source=share&utm_medium=ios_app&utm_name=ioscss&utm_content=1&utm_term=1)
+[Part Two →](https://www.reddit.com/r/nosleep/comments/14ca5a9/im_immortal_its_ruined_my_life_on_getting/?utm_source=share&utm_medium=ios_app&utm_name=ioscss&utm_content=1&utm_term=1)

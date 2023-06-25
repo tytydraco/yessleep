@@ -1,0 +1,21 @@
+Moving is always a disaster. I've moved plenty of times. When I was younger, my dad was in the military. Every year I was enrolled in a new school, a new town, a new state, or even a new country. Now I'm 27 and I used to work in a government - based job. In September of 2021 I had to uproot my whole life in Los Angeles to move across the country to a small rural town in Vermont, and of course the move got off to a rocky start.
+
+The first morning of my trip, I set out to drive across the country (alone as a 27 year old female, may I add) . My camper van and storage trailer I was renting got 2 flat tires. Of course I thought nothing of it, rotten luck I suppose, blew up the tires and drove off. I drove for a few hours, and as the sun began to set I pulled off to my first camp site, somewhere in utah.
+
+ I've always loved camping, since I was a kid, so I picked the best spot, got set up, and made sure to lock my doors and windows, and of course pull the shades. As a woman traveling alone you have to be super cautious, so I barricaded the door as well. The first night I slept like a baby. I woke up around 9 and was preparing to leave, but that’s when things got strange. I stepped outside to unplug and prepare for travel, when I noticed a dinghy brown envelope taped to the side of my van.
+
+I should've left it but curiosity got the best of me. inside were two polaroids, and a scrap of hair, scarily close in color to my hair. The polaroids were worse, pictures of my sleeping, through the sky light of my camper. I shuddered and quickly got back into my van, and drove off. I hoped I left whoever was stalking me at the campsite. Unfortunately, that wasn't the case.
+
+Every time I stopped to camp out for the night, I would wake up to a dinghy envelope outside of my trailer, a different trinket inside, and brand new polaroids. The trinkets could be anything from hair, garbage, or even my ring that I lost the first night of my trip. The polaroids, however, got much much worse. Each polaroid was from a different angle, or taken from a different window, until one which sent ice cold chills down my back. This one was from inside my van.
+
+That's when I freaked out, and called my boyfriend Ben, 27, who was already in Vermont, preparing our apartment for the move in. I was still miles away from my destination, somewhere in the middle of Pennsylvania, so he told me to drive to his family's home, only about an hour away in upstate New york. So of course, I did. 
+
+We made the plan that I would stay with his family, while he drove down from Vermont to help me finish the rest of the trip. Once I got to Ben's parents home, we decided it would be best to call the police and have them search our van and trailer for any evidence, or anything that may explain the odd envelopes.
+
+Sometimes, ignorance is bliss, and I wish I could go back in time, and never find out what the cops found when searching the cargo holder of my trailer. In a rather large moving box that I thought held my kitchen set, they found a man, and about 20 dingy envelopes. He was arrested and detained, but I will never forget the manic smile on his face, and the lack of pupils in his eyes, as he made eye contact with me before he was dragged away in the cop car.
+
+Later that night as things were settling down, an officer came to debrief the case with me. It was lucky I stopped when I did, because after the man, and the small amount of possessions he had on him, were searched, the police found a rather large knife, bottle of strong sleeping pills, and horrifically, even more polaroids of me, sleeping, eating, and even worse, in the shower.
+
+As the months moved on, and I got settled into the new sector of my job, I began to think less and less about the man and envelopes. He wasn't sent to jail, and was proclaimed clinically insane, which made me feel a bit worse about the whole situation. I still have nightmares about his eyes, wide and pupil - less. Like no pupils… but moving on.
+
+ A few weeks ago (may 2023) Ben, now my husband, and I moved again down to Maryland, about 30 minutes away from D.C. I've begun to settle into my new job and work space, but I don't think I'll ever forget this man. especially since my new coworker has that same manic grin, and pupil - less eyes that I distinctly saw as he was dragged away.
