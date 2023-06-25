@@ -1,7 +1,7 @@
 My name is Artem Avilov. I never thought I was going to reveal any of this to anybody who didn't already know. In 1962, a major event occured in the Nenets province of Russia. You wouldn't have heard about it though, as everything about it was covered up. It was an event I decided I'd reveal to the public on my deathbed to escape the consequences of talking about it outside of the group of those in the know.
 
 
-There's no need for me to summarize it for you, as I've kept a journal in which I documented everything that happened during those odd months. I have transcribed the relevant part of the journal for all of you to read. I should mention I have nothing against anyone's religious beliefs. Just don't hurt people just because they don't believe what you believe. If they have to defend themselves… they will.
+There's no need for me to summarize it for you, as I've kept a journal in which I documented everything that happened during those odd months. I have transcribed the relevant part of the journal for all of you to read. I should mention I have nothing against anyone's religious beliefs. Just don't hurt people just because they don't believe what you believe. If they have to defend themselves… they will. The events I'm about to inform you of may sound like I'm just making stuff up to criticize Abrahamic religions, but I can assure you they happened. You need to believe this.
 
 
 With nothing more to say, here it goes.
