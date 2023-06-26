@@ -302,7 +302,7 @@ Its eyes were shut.
 
 Before Freddie could see it, I shoved it back, stumbling, my heart in my throat.  
 
-I was frowning at where all the blood was on the second box, staining the bottom of the box, when my brother grabbed my hand and yanked me back.
+I was frowning at where all the blood was on the second box, staining the bottom, when my brother grabbed my hand and yanked me back.
 
 Before I could fully register what was going on, he was dragging me downstairs. I think he was trying to get me out of there, but then he stopped, sort of freezing in place. When I followed his gaze, I found two birthday cards set up on the mantelpiece.
 
