@@ -1,4 +1,6 @@
-I meant to visit my friend Steven for months, but I hadn't found a chance.  He was dealing with depression and at the time gradually becoming evermore evasive to inquiry or questions.  I showed up sometime in November and was astonished the moment I stepped inside of his new apartment.  The walls were filled with marker-written words and dashes, followed by definitions.  You could hardly see the original coat of paint they had concealed.  
+I meant to visit my friend Steven for months, but I hadn't found a chance.  He was dealing with depression and at the time gradually becoming evermore evasive to inquiry or questions.  I showed up sometime in November and was astonished the moment I stepped inside of his new apartment.
+
+  The walls were filled with marker-written words and dashes, followed by definitions.  You could hardly see the original coat of paint they had concealed.  The overpowering odor of ink filled the room like heavy steam rising up out of a deep fissure in the earth.  It was so pungent my eyes welled up with tears.
 
 "My memory-", he said searchingly, struggling to sound out the vowels.
 
@@ -28,14 +30,14 @@ Nothing was coming through any longer.  The last words I recall being imprinted 
 
 Panic set in.  Like the flip of a switch sime microcosm of capacity within me lit up, and the flashbulbs burst.  Streams of conscious thought blazed out of me in rapid projections and the inimical force of the alphabetic labyrinth surrounding me had all taken form, I began to understand again, and at last, burning down to my last nerve, that I had to get out of there.
 
-I lept from my sitting space and charged the door, the sound of footsteps dashing down the hallway, which in my haste I dismissed.  I threw it open and ran for the parking lot, dove into my car, and caught my breath.  I was sweating and heaving so hard it took minutes to free myself from suffocation.  I felt as weighed down and strained as if I'd woken up in an ocean trench and was clawing my way to the surface.
+I lept from my sitting space and charged the door, the sound of footsteps dashing down the hallway, which in my haste I dismissed.  I threw it open and ran for the parking lot, dove into my car, and caught my breath.  I was sweating and heaving so hard it took minutes to free myself from suffocation.  I felt as weighed down and strained as if I'd woken up in an ocean trench and was clawing my way to the surface.  My eyes watered.  I couldn't stop gagging.
 
 After some time, my brain healed.  I fell asleep and woke up in my car the next morning, freezing and numb.  Eventually, tranquility fell upon me like the fine mist that I'd woken up to, blanketing the town in a haze of static grey.  I couldn't stop thinking about Steven.  I couldn't stop thinking about what he said - "Just wait and see."
 
 I didn't dare go back into the building, but I did sneak around the side and to the back.  I peered carefully into Steven's first floor abode.  I wiped away the mist with a few squeaking strokes of my shirt sleeve.  I had to squint, and every thirty seconds, I was wiping away a new layer of condensation.  What I witnessed began as a lump in my throat.  It ended in nightmares without relief.
 
-I saw, straight through to his living room.  Steven, seated in his recliner, and a supple, pale woman in his lap, hair pulled up into a wraptight bun, leaning over him, their lips locked.  At first, I thought they were kissing.  That was, until I saw his body clearly trembling, oscillating like an electrocution.  
+I saw, straight through to his living room.  Steven, seated in his recliner, and a supple, pale woman in his lap, hair pulled up into a wraptight bun, leaning over him, their lips locked.  At first, I thought they were kissing.  That was, until I saw his body clearly trembling, oscillating like an electrocution.  His eyes are open, bulging.  Sheer terror, personified in silence.
 
-I watched for eight and a half minutes. That was enough to know I never wanted anything to do with him ever again. She never released him, and he never ceased shaking.  
+I watched for a long time.  Frozen stiff for twenty minutes or more.  My hands gone clammy, heart racing. That was enough to know I never wanted anything to do with him ever again. She never released him, and he never ceased shaking.  
 
 I dream about him.  He's always drowning in a sea of words, clawing at letters, fading into black.
