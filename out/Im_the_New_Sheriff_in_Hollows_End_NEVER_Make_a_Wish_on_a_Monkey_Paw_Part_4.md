@@ -174,6 +174,8 @@ Frank, Jay, and I looked at each other nervously.
 
 I took a deep, trembling breath.  Terrified, I stepped into the [glass.](https://www.reddit.com/r/JGcreepypastas/comments/zpi8zt/master_story_list_updated_regularly/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
+[Next](https://www.reddit.com/r/nosleep/comments/14jltzk/im_the_new_sheriff_in_hollows_end_part_5/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
 [Part 1](https://www.reddit.com/r/nosleep/comments/13t7w85/im_the_new_sheriff_in_hollows_end_i_need_some/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 
 [Part 2](https://www.reddit.com/r/nosleep/comments/13w3m69/im_the_new_sheriff_in_hollows_end_people_in_town/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
