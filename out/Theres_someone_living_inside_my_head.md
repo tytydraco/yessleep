@@ -52,7 +52,7 @@ I decided to kill myself.
   
 I swallowed an entire pack of painkillers and lay down to die. The sky went dark. It disappeared. I felt sleepy and light headed, and I closed my eyes. Without my want or say, I slipped into the room inside my mind.  
   
-There was a face inches away from my mind’s eye. They were staring at me in pure, unadulterated hatred, their maddened, bulging eyes locked onto mine, and their rage-contorted features for the first time clear as day. Primal terror shot through my veins like ice water, and the only thought racing through my mind in a terror-stricken loop was *theyhavenoeyelidstheyhavenoeyelidstheyhavenoeyelids-*\-  
+There was a face inches away from my mind’s eye. They were staring at me in pure, unadulterated hatred, their maddened, bulging eyes locked onto mine, and their rage-contorted features for the first time clear as day.
   
 There was an immense pressure within my head and I could *feel* them screaming. But all I could hear was the frantic pounding of my heart.   
   
@@ -64,20 +64,14 @@ I’m scared of the figure living in my head. I do anything and everything to av
   
 These days, I can see more of the room. The table in its entirety. A door to the right of the room, leading to god knows where. The closet in the corner, blacker than pitch whenever it’s cracked open. An impression of a kitchen - I say impression, because it’s just two boxy counters and a strange amalgamation of cookware and food, as though it were AI generated.  
   
-The figure lives there now. They *live*. They pace across the room with awkward, loping steps. They stand in the faux-kitchen and move their hands, like they’re play-pretend cooking. They rock to and fro before a wall, head slamming into the mottled plaster.
+The figure lives there now. They *live*. They pace across the room with awkward, loping steps. They stand in the faux-kitchen and move their hands, like they’re play-pretend cooking. 
 
-In the last few days, I've noticed one striking detail about the figure -- from their back, their shoulder blades, something like crooked black branches dragging across the floor. I don't see these branches all the time -- they skitter into my view every now and then, and I always come away with my stomach churning and a sour taste in my mouth, like I just saw something I *really* shouldn't have. 
-
-Sometimes the figure hides out of frame and snaps their head into my view before snapping it away again. They do this over and over and over like a fucked up peekaboo. I get the feeling it’s something they’ve seen and copied from humans. Maybe they can see into my world just as I can see into theirs.   
+One day, after a visit to my sister and her two year old, the figure started covering their face and dropping their hands, over and over and over again. A strange, lifeless rendition of peekaboo. I realised then, the figure can see into my world just as I can see into theirs.    
   
-Lately, they’ve taken to standing beside the chair, their lips moving slowly, deliberately.  
-  
-I think the figure is trying to communicate with me.  
-  
-I don’t want to know what they’re saying. I don’t know why they are living in my head or what they want from me. Maybe they aren’t real. Maybe the figure is a hallucination. An imaginary friend gone too far. But they - and the room they live in - are firmly rooted in my mind and there’s no way of ridding them. 
+Lately, they’ve taken to standing beside the chair, their lips moving slowly, deliberately. I don’t want to know what they’re saying. I don't think I want to know. Maybe they aren’t real. Maybe the figure is a hallucination. An imaginary friend gone too far. But they - and the room they live in - are firmly rooted in my mind and there’s no way of ridding them. 
 
-And last night, something happened that I can’t explain.   
+And last night, something happened that I can’t quite explain.   
   
-It was late -- around midnight, and I was in bed drifting off into sleep. As usual, I was pulled into the room in my mind and I saw the figure by the open door, frozen still like a statue, peering into the darkness outside. I wasn’t sure what it was staring at. But the figure did that a lot - stare at nothing and everything for no rhyme or reason, so I didn’t think much of it. And really, I was just relieved that they weren’t, for once, looking at me. 
+It was late -- around midnight, and I was in bed drifting off into sleep. As usual, I was pulled into the room in my mind and I saw the figure by the open door, frozen still like a statue, peering into the darkness outside. I wasn’t sure what it was staring at. But the figure did that a lot - watching nothing and everything for no rhyme or reason, so I didn’t think much of it. And really, I was just relieved that they weren’t, for once, looking at me. 
 
-I relaxed and slowly fell deeper into sleep. But just I was about to lose consciousness, I suddenly jolted awake. My eyes flew open. A strangled scream clogged in the seizing muscles of my throat, because there - *dear god* \- there was my door which I'd closed before bed, inexplicably cracked open. And in the darkness, in the crack, there was a face, staring at me. 
+I relaxed and slowly fell deeper into sleep. But just I was about to lose consciousness, I suddenly jolted awake. My eyes flew open. And - I swear to God - for a split second, I saw a face in the crack of my door, just staring at me.
