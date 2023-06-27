@@ -1,7 +1,7 @@
-[Part 1 Here](https://www.reddit.com/r/nosleep/comments/14fc0ko/theres_a_building_on_the_moors_called_the/)  
+[Part 1 Here](https://www.reddit.com/r/nosleep/comments/14fc0ko/theres_a_building_on_the_moors_called_the/)
 
+&#x200B;
 
-  
 It disturbed me that Carly’s car was a Volkswagen Polo from the nineties. Sure I noted many differences from the car featured in my dream. The Polo was a small hatchback, whereas the dream car had the feel of an estate—quite possibly a Volvo. Carly’s ride was a dull maroon, but my car had been tomato red. And this time round Carly drove, while here I sat tense in the passenger seat. But how many Polos had survived from the nineties? It scarcely counted as a sturdy classic. It still felt spooky that we rode in a car out of the same era, while rolling over that familiar bleak landscape of our night terrors.
 
   
@@ -11,15 +11,13 @@ Carly interrupted my thoughts.
 ‘I hope you don’t mind me asking, but how did Malena die?’
 
   
-I very much minded. Still, I understood her reasons—I too might have enquired if I was heading to the land of the dead with someone who meant to confront their dead spouse. I told her: ‘Malena had a rare blood illness. It was painful and protracted. The doctors gave her eight months. She got three-and-a-half years in the end. Before...’
+I very much minded. Still, I understood her reasons—I too may have enquired if I was heading to the land of the dead with someone who meant to confront their dead spouse. I told her: ‘Malena had a rare blood illness. It was painful and protracted. The doctors gave her eight months. She got three-and-a-half years in the end. Before...’
 
   
 No way I could finish that sentence.
 
   
-‘It’s okay. You needn’t say more.’ She paused, before adding, ‘I’m convinced Beth’s dead, zero doubt in my heart, but I have no idea how she died. I’m not sure which is worse: knowing or not.’
-
-  
+‘It’s okay. You needn’t say more.’ She paused, before adding, ‘I’m convinced Beth’s dead, zero doubt in my heart, but I have no idea how she died. I’m not sure which is worse: knowing or not.’  
 I said, ‘neither’s worse. They’re just different,’ In truth, my situation was direr. I’d give anything for an inch of uncertainty over how Malena died. But how could Carly understand? She was hellbent on learning Beth’s fate and it would go badly for her when she did. The thing about not knowing, though, is there always exists the possibility, however tiny, that the person’s not gone. Such hope will drive you mad. And for this reason we root out the truth—to kill hope dead once and for all. Carly was too far along the path to her own destruction for me to make any difference now. And I found myself too far down my own path.
 
   
@@ -74,7 +72,10 @@ The receptionist processing our reservation gave me a double-take and started ac
 Not long after, we lay in our separate single beds, both admittedly wearing more pyjamas than we were used to. I tried my damnedest to block out that familiar flowery pattern now wrapped around me in sheet form, and to avoid thoughts of a certain fateful room located somewhere on the floor above us.
 
   
-‘Do we have a plan,’ I asked Carly before we turned the lamp off. ‘In case we encounter anything?’She sighed. ‘I’d genuinely just regarded this as a doomed voyage of discovery. I suffer these phantoms in the daytime now anyway; I’ve never thought to overcome one. Also Beth was full of schemes and they don’t seem to have helped. She had this crazy idea about slaying the Bull God, even got some kind of sacrificial dagger from somewhere. You should have seen it—impressive thing, gold handle, curvaceous. How do you kill a god though? What?’
+‘Do we have a plan,’ I asked Carly before we turned the lamp off. ‘In case we encounter anything?’
+
+  
+She sighed. ‘I’d genuinely just regarded this as a doomed voyage of discovery. I suffer these phantoms in the daytime now anyway; I’ve never thought to overcome one. Also Beth was full of schemes and they don’t seem to have helped. She had this crazy idea about slaying the Bull God, even got some kind of sacrificial dagger from somewhere. You should have seen it—impressive thing, gold handle, curvaceous. How do you kill a god though? What?’
 
   
 She’d seen my features change as she described the knife.
@@ -131,10 +132,10 @@ I groped frantically along the perimeter of the poky cell until I came to a door
 ‘Oi!’ came a cry from the far side. I froze. The door sprang open and a man confronted me, raising a paraffin lamp in one hand. ‘What’s this? Thought we’d have a little lie in, did we duchess? Give me good reason why I shouldn’t pummel you well.’
 
   
-I considered explaining he had the wrong person. However, I clocked the snake whip he was busy kneading in his other hand, while flexing the muscles of his forearm, and the words failed me. He caught my expression looking down, and laughed. ‘The whip’s for the ponies, ye great jessie. It’s my fists for you. Get down the cellars before I give them exercise.’
+ I considered explaining he had the wrong person. However, I clocked the snake whip he was busy kneading in his other hand, while flexing the muscles of his forearm, and the words failed me. He caught my expression looking down, and laughed. ‘The whip’s for the ponies, ye great jessie. It’s my fists for you. Get down the cellars before I give them exercise.’
 
   
-I tried to slip past him into the corridor and obey without a clue where the cellars might be. He grabbed me by the shoulder. ‘Your lamp hey?’ He motioned to the foot of the bed where a lamp similar to his sat. ‘I should suppose you want me to light it for you as well?’ I nodded mutely and retrieved the thing, not having the faintest idea how to get it going. He tutted, took out a small length of rag and opened the window in his lamp to set it alight. Then he lit the wick in my lamp and twisted a brass knob on the side to set the flame’s brightness. ‘Get going.’ Again I went to comply but this time he grabbed me by the throat. He pushed me up against the door frame and squeezed hard, a mean and triumphant look about him. ‘I’m docking a day. Don’t be late again.’ Then he scoffed and let me free. I stumbled away up the passage, clutching at my neck, hoping to whichever god would listen that I had gone the right way. I turned a corner and it was close to déjà vu. The long, rotted hallway with the tumbledown ceiling stretched out before me. I had been here before; at least this time the lamp hung in my hand rather than on a hook in the distance. I picked my way barefoot along the floorboards until at last I came to the stairs at the end, where I descended.
+I tried to slip past him into the corridor and obey without a clue where the cellars might be. He grabbed me by the shoulder. ‘Your lamp hey?’ He motioned to the foot of the bed where a lamp similar to his sat. ‘I should suppose you want me to light it for you as well?’ I nodded mutely and retrieved the thing, not having the faintest idea how to get it going. He tutted, took out a small length of rag and opened the window in his lamp to set it alight. Then he lit the wick in my lamp and twisted a brass knob on the side to set the flame’s brightness. ‘Get going.’ Again I went to comply but this time he grabbed me by the throat. He pushed me up against the doorframe and squeezed hard, a mean and triumphant look about him. ‘I’m docking a day. Don’t be late again.’ Then he scoffed and let me free. I stumbled away up the passage, clutching at my neck, hoping to whichever god would listen that I had gone the right way. I turned a corner and it was close to déjà vu. The long, rotted hallway with the tumbledown ceiling stretched out before me. I had been here before; at least this time the lamp hung in my hand rather than on a hook in the distance. I picked my way barefoot along the floorboards until at last I came to the stairs at the end, where I descended.
 
   
 No Malena guarded the iron doors this time. They whined as I heaved them open. Inside was a shaft dominated by a rude wooden lift, with a hand-crank mechanism built into its wall for operation. The thing was the living example of rickety. But it would probably lead to the cellars, though I had forgotten why I wanted to go there. What was I doing?
@@ -167,16 +168,13 @@ Across the floor, mini-rails snaked between pillars, and on these rails trains o
 A way out of this hellspace.
 
   
-The thought of being detected by any of the pitmen petrified me, though I could only guess what might happen. Would they grab me and put me to work? Would they haul me off and down the mines? Might they peg me as an intruder and descend on me en masse? The earlier brave notion of facing my doom had evaporated, and now my only certainty was that I didn’t fancy finding out.
+The thought of being detected by any of the pitmen petrified me, though I could only guess what might happen. Would they grab me and put me to work? Would they haul me off and down the mines? Might they peg me as an intruder and descend on me en masse? The earlier brave notion of facing my doom had evaporated, and now my only certainty was that I didn’t fancy finding out. 
+
+I tweaked the knob on my lantern, dimming it as low as it could go without extinguishing the flame. I waited until I discerned no one looking my way, then flitted behind the first mountain of coal beyond the pillar. I figured I could hop from hiding place to hiding place, until I hopped my way right out that exit. I paused again before zipping to the next pillar, then I crept along the dark side of a chain of empty mineral wagons. Soon I crouched within screaming distance of the exit. Out in the bright light I could see billowing clouds of vapour, and through them the misty vision of a steam train, hissing and spitting as it lingered on the platform. This last part would be the trickiest—there was no way to get out without standing and walking a hundred feet through a wide open space. 
+
+In the main thoroughfare to the entrance, several men were dismantling a pony-train. The ponies were uncoupled one at a time and led in one direction, then the empty wagons were heaved along a sidetrack by four of the men tugging ropes. Once the men began to pull away, it occurred to me that no one’s focus currently lay on the exit. I jumped up and walked with as much of a casual gait as I could manage towards the daylight. I’d covered about two-thirds of the way when a pony-train came rolling through the steam outside and in via the entrance. I had failed to anticipate activity from this direction and now I found myself completely blocked. My options were to bolt off into the shadows—that way drawing attention —or to continue confidently on and hope that no one thought anything of a man in his pyjamas going about his business. As the odds stood against me either way, I gambled on the latter.
 
   
-I tweaked the knob on my lantern, dimming it as low as it could go without extinguishing the flame. I waited until I discerned no one looking my way, then flitted behind the first mountain of coal beyond the pillar. I figured I could hop from hiding place to hiding place, until I hopped my way right out that exit. I paused again before zipping to the next pillar, then I crept along the dark side of a chain of empty mineral wagons. Soon I crouched within screaming distance of the exit.
-
-  
-Out in the bright light I could see billowing clouds of vapour, and through them the misty vision of a steam train, hissing and spitting as it lingered on the platform. This last part would be the trickiest—there was no way to get out without standing and walking a hundred feet through a wide open space. In the main thoroughfare to the entrance, several men were dismantling a pony-train. The ponies were uncoupled one at a time and led in one direction, then the empty wagons were heaved along a sidetrack by four of the men tugging ropes.
-
-  
-Once the men began to pull away, it occurred to me that no one’s focus currently lay on the exit. I jumped up and walked with as much of a casual gait as I could manage towards the daylight. I’d covered about two-thirds of the way when a pony-train came rolling through the steam outside and in via the entrance. I had failed to anticipate activity from this direction and now I found myself completely blocked. My options were to bolt off into the shadows—that way drawing attention —or to continue confidently on and hope that no one thought anything of a man in his pyjamas going about his business. As the odds stood against me either way, I gambled on the latter.  
 At least if it worked I’d be out.
 
   
@@ -201,10 +199,10 @@ He rolled his eyes. ‘Aren’t you, Peter?’
 It was then I saw they were all corpses. Dark mummified flesh clinging taut to bone behind the rags. Their eyes had long rotted out. And yet they stared at me.
 
   
-I wheeled away in fright and collided with a pony; it bucked in response. The Right Hand of the Bull God growled, angry. The pony knocked me sideways, my lantern falling to the ground. The Right Hand and the undead Pitmen closed in. I clawed up onto my feet and sprinted away, deeper into the hall, peering over my shoulder to learn if they followed. Panic had spread through the ponies and the Right Hand was caught up trying to calm them. Several of the beasts reared, jolting the flat cars behind them. A barrel of gunpowder slipped its leather strap and toppled directly onto my lantern.
+I wheeled away in fright and collided with a pony; it bucked in response. The Right Hand of the Bull God growled, angry. The pony knocked me sideways, my lantern falling to the ground. The Right Hand and the undead Pitmen closed in. I clawed up onto my feet and sprinted away, deeper into the hall, peering over my shoulder to learn if they followed. Panic had spread through the ponies and the Right Hand was caught up trying to calm them. Several of the beasts reared, jolting the flat cars behind them. A barrel of gunpowder slipped its leather strap and toppled directly onto my lantern.  
+An almighty crack resounded around the cellar.
 
-  
-An almighty crack resounded around the cellar. Massive splinters of wood flew everywhere, carrying bucketloads of dirt, bouncing off pillars and mounds of coal. A fireball bloomed in their wake. The ponies were screaming. I was thrown to the ground and winded. For a whole minute it rained wood and stone and dirt around the hall. As things settled, I gasped for breath and rotated myself with difficultly into a face-up position. Then I gazed through a soup of dust to the explosion’s origin point. The Right Hand of the Bull God stood there. The right half of his body was on fire, a straight line of flame cutting completely down his middle. He brandished his whip to one side, and that too was aflame. Through the cloud, he appeared to be glaring directly at me.
+Massive splinters of wood flew everywhere, carrying bucketloads of dirt, bouncing off pillars and mounds of coal. A fireball bloomed in their wake. The ponies were screaming. I was thrown to the ground and winded. For a whole minute it rained wood and stone and dirt around the hall. As things settled, I gasped for breath and rotated myself with difficultly into a face-up position. Then I gazed through a soup of dust to the explosion’s origin point. The Right Hand of the Bull God stood there. The right half of his body was on fire, a straight line of flame cutting completely down his middle. He brandished his whip to one side, and that too was aflame. Through the cloud, he appeared to be glaring directly at me.
 
   
 And he cracked his fiery whip.
@@ -212,12 +210,10 @@ And he cracked his fiery whip.
   
 For a third time I grabbed myself off the floor. I scarpered wildly, not a thought where I might end up if only far from the hellish vision. At the bottom of the cellar I bolted down the first tunnel I came to, ran along the tracks. Light was scarce, with a single wall-mounted lamp placed every thirty yards or so. Eventually the tunnel split at a junction. My feet were ready to take their own path, when I spied something down one of the passages, a person stood in the distance under the lamp. No doubt; it was Malena. I hurried in her direction but the damnedest thing happened. As I closed in she kind of melted away—that is, she became a trick of the light. What I thought was her became no more than a collection of shadows in the rock wall. I came to another fork and the same thing happened. Malena lingered down one branch… until she didn’t.
 
-On and on I went. Deeper and deeper into the earth. At every crossroads the illusion of Malena dragged me this way or that. Each time I thought I would reach her at last; each time she dissolved like a mirage. I must have marched for well over an hour before the transport tunnels gave way to the wider passages of a mining operation. Much of the rock face became glittering black; shovels, picks and ropes lay scattered, waiting for miners to take them up. Behind, the tunnels boasted sturdy construction; here makeshift scaffolds propped the ceiling up.
+ On and on I went. Deeper and deeper into the earth. At every crossroads the illusion of Malena dragged me this way or that. Each time I thought I would reach her at last; each time she dissolved like a mirage. I must have marched for well over an hour before the transport tunnels gave way to the wider passages of a mining operation. Much of the rock face became glittering black; shovels, picks and ropes lay scattered, waiting for miners to take them up. Behind, the tunnels boasted sturdy construction; here makeshift scaffolds propped the ceiling up.
 
   
-I passed into a cavern hollowed out from pure coal three-sixty. A railroad led directly through it and I thought no more than to follow the track to the exit at the far side. But as I got to the centre a movement caught my eye. Malena hovered by the wall to my nine o’clock; I twisted to confront her. This time—instead of dissipating—she turned and bent, entering a cramped tunnel in the wall. Without considering calling out, I rushed headlong after her into the half-size entrance. There were no lamps in this hole, and almost instantly I found myself in sheer darkness, using my arms to feel out the way ahead. Then the passage gave way to a greater cave, still lightless. I stood my full length, completely lost as to how I might continue through the screaming expanse of void.
-
-  
+I passed into a cavern hollowed out from pure coal three-sixty. A railroad led directly through it and I thought no more than to follow the track to the exit at the far side. But as I got to the centre a movement caught my eye. Malena hovered by the wall to my nine o’clock; I twisted to confront her. This time—instead of dissipating—she turned and bent, entering a cramped tunnel in the wall. Without considering calling out, I rushed headlong after her into the half-size entrance. There were no lamps in this hole, and almost instantly I found myself in sheer darkness, using my arms to feel out the way ahead. Then the passage gave way to a greater cave, still lightless. I stood my full length, completely lost as to how I might continue through the screaming expanse of void.  
 Something large and inhuman exhaled somewhere in the cave.
 
   
@@ -251,7 +247,8 @@ It laughed, and that was a terrible thing. ‘The shivering vole asks the Mighty
 ‘But *Ang-win* brought me here. To your realm.’
 
   
-‘*Ang-oui-nuh*. Yes. The Right Hand is force, the Left Hand is cunning. Understand. Those above forgot us. They stopped sending their dead, long ago by your measure. Unnatural slayings may still arrive, but beyond those few it seemed our fate to stay an unchanging kingdom, on into eternity.‘However, Angwynne is industrious. Since the night our realm fell fallow she had other ideas. She casts her net, using a mortal’s anguish against them, manipulating torment to draw them in, to pull them down to us. Inch by inch, soul by soul. Under Angwynne’s steam we grow.’
+‘*Ang-oui-nuh.* Yes. The Right Hand is force, the Left Hand is cunning.   Understand. Those above forgot us. They stopped sending their dead, long ago by your measure. Unnatural slayings may still arrive, but beyond those few it seemed our fate to stay an unchanging kingdom, on into eternity.  
+‘However, Angwynne is industrious. Since the night our realm fell fallow she had other ideas. She casts her net, using a mortal’s anguish against them, manipulating torment to draw them in, to pull them down to us. Inch by inch, soul by soul. Under Angwynne’s steam we grow.’
 
   
 ‘Then add me to your number. Let me be with Malena, or at least share a moment with her.’
@@ -266,17 +263,21 @@ He clapped his hands together and it sparked a shockwave of greater force than t
 I lost all sense.
 
   
-Something or someone shook me. I tried to open my eyes, but the brightness of the world around proved excruciating. My entire body jarred. I felt like I hung upside down. I was shaken again.‘Peter. Peter are you alive?’
+Something or someone shook me. I tried to open my eyes, but the brightness of the world around proved excruciating. My entire body jarred. I felt like I hung upside down. I was shaken again.  
+‘Peter. Peter are you alive?’
 
   
-The voice was Carly’s. I could only moan in response. In drips and drabs I rose up into the world. I became lucid to the fact that I lay at the bottom of the valley below the Coalhouse, head pressed against the valley floor and feet sticking up the slope. Carly helped turn me the right way up.‘I had a Coalhouse dream last night,’ she told me. ‘When I woke up you were gone.’
+The voice was Carly’s. I could only moan in response. In drips and drabs I rose up into the world. I became lucid to the fact that I lay at the bottom of the valley below the Coalhouse, head pressed against the valley floor and feet sticking up the slope. Carly helped turn me the right way up.  
+‘I had a Coalhouse dream last night,’ she told me. ‘When I woke up you were gone.’
 
   
-‘Me too. But mine was no dream. When I woke was just now—the “dream” transported me.’  
+‘Me too. But mine was no dream. When I woke was just now—the “dream” transported me.’
+
+  
 ‘That’s crazy. Listen, you look like hell. Let’s get you up to the car, I’ve got your overnight bag in the boot.’
 
   
-With Carly for support, I hobbled up the slope and out of the valley. Looking like hell was an understatement—I didn’t recognise myself in the wing mirror. To begin with I was caked head to heel in coal soot. My pyjamas were bedraggled beyond mending. My hair had been styled to match. I sported bruises all over, and those bruises had bruises. My elbow had been bleeding. My face looked drawn, dehydrated and weary, the eyes bloodshot. My bare feet had split open. Using bottled water and tissues, we scraped what grime we could from my skin. I changed into fresh clothes behind the raised boot lid, and finally slipped some trainers onto my sore feet. Then we sat with the car doors open and spoke.
+With Carly for support, I hobbled up the slope and out of the valley. Looking like hell was an understatement—I didn’t recognise myself in the wing mirror. To begin with I was caked head to heel in coal soot. My pyjamas were bedraggled beyond mending. My hair had been styled to match. I sported bruises all over, and those bruises had bruises. My elbow had been bleeding. My face looked drawn, dehydrated and weary, the eyes bloodshot. My bare feet had split open. Using bottled water and tissues, we scraped what grime we could from my skin. I changed into fresh clothes behind the raised boot lid, and finally slipped some trainers onto my sore feet. Then we sat with the car doors open and spoke. 
 
   
 Carly told me of her nightmare. A gaunt man had terrorised her in the hotel, by turns desperate to apologise for bad behaviour, then exploding into murderous fury at a perceived rejection. Angwynne had sprung out at some point and dragged Carly down the stairs by her hair. She’d woken to find her coccyx bruised and me missing. The night manager was adamant no one had left the building, at least not through the foyer. Carly had packed up, checked out and driven straight here.  
@@ -328,8 +329,9 @@ She sighed.
   
 ’Indeed.’
 
-&#x200B;
-
   
+   
 I’m sat overlooking the moors now, writing on an old tablet I stowed in my bag. I promised I would document events if I got the opportunity, and all odds favour this moment being my last chance. Once I’ve seen my writing safely uploaded to the internet, we’re heading back across the valley and into that building, awake and with our physical bodies for the first time.  
 If you don’t hear from me again, I’ll see you in hell.
+
+[x](https://www.facebook.com/DanielEavesOfficial)  
