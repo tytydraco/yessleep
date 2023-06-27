@@ -1,3 +1,5 @@
+[2](https://www.reddit.com/r/nosleep/comments/14k4wlh/theres_a_presence_outside_my_house_its_been/?)
+
 I know, three days of lockdown in a post-COVID world probably seems like nothing. But when it’s because of something you don’t understand that could kill me the second I go out if I’m not protected-
 
 Ok, well, now that I type it out it’s really similar, isn’t it?
