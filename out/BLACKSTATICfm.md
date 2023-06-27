@@ -1,29 +1,42 @@
-My father passed away last week. 
-  
-He was an eccentric man. Quiet. A writer by trade, he had a particular aversion to all things radio. Any time we were in the car, the only music he trusted came from the tape deck or, later, our CD drive. When I’d asked him about it, he’d shrug the question off. “There’s never anything good on the radio,” he’d tell me. “Damn thing’s filled with ads.”  
+My father passed away last week. 
 
-It made sense at the time. It made sense all the way up until the day he died.   
+He was an eccentric man. Quiet. He had a particular aversion to all things radio. Whenever we’d drive, the tuner was off-limits. If we wanted to listen to music, then it’d be music from a tapedeck or CD– no exceptions. I once asked him about it, and he shrugged me off.
 
-I was the one who found him. I think I was the only one who kept in contact with him anymore, at least since my mom died. She’d gone five years previous. She drove her Toyota off a bridge six miles outside city limits. No note. Nothing.   
+“What do you care?" he grunted. "There’s never anything good on the radio anyway. Nothing but ads.”
 
-Just gone.  
+It made sense, I guess. It made sense all the way up until the day he died. 
 
-My dad, though? I found him lying on his kitchen floor after two days of missed calls. His fingernails were cracked and bloodied. Beside him, an old radio was screaming static. The whole scene was gruesome. Awful. But what made it worse was the words he’d scratched into the linoleum floor– I HEAR IT, over and over.  
+I was the one who found him. Truthfully, I think I was probably the only person left in contact with him. His friends had long since written him off as a lunatic. My mom, the only other person who appeared to give a damn about him, died in 2018. How? Drove her Toyota off a bridge. No note. 
 
-After that, I couldn’t bear to keep the house. I sold it. While I was clearing out his belongings, I stumbled across an old journal of his– one buried in a box in his basement. Having so little of a relationship with my father, I couldn’t help my curiosity. I wanted to know him better. What had he gone through? Why was he so distant?  
+Just gone. 
 
-So I opened the journal, and I read.   
+My dad, though? Well, he died as he lived– a mystery. After two days of missed calls, I broke in and found him lying on his kitchen floor. Beside him, an old radio was screaming static, and his fingernails were cracked and bloodied. The whole scene was gruesome. Awful. But the worst was the words he’d scratched into the linoleum floor: I HEAR IT, over and over. 
 
-It appeared to be written in his early twenties. Most entries included his insights on women, music, or his next writing projects. But it barely sounded like him. He sounded so cavalier, so… carefree? The father I knew was severe. Reserved. As I read on, I stumbled across his final entry– one made the night after my mother told him she was pregnant.   
+After witnessing that, I couldn’t keep the house. Nothing could drown that memory. I put it up for sale, and in the process of clearing out his belongings, I stumbled across his old journal. I found it buried in a box in the basement. Call me callous, but my curiosity overcame me. I never had much of a relationship with my father, and I was desperate to understand him better, to understand the man beneath the enigma.
 
-It chilled me. 
+So I opened it, and I read.  
 
-After reading it, I’m beginning to question my father’s death– my mother’s too. I’m beginning to wonder if I might be next, and I need somebody to reassure me that this is all in my head. That I’m overreacting.  
+According to the dates, it appeared to be written in his early twenties. Most entries included insights on any combination of women, music, or his various writing projects. That’s the other thing– my father loved to write. His entries almost read like stories. In fact, they barely sounded like him. He sounded so cavalier in them, whereas the man I knew was paranoid. Severe.
 
-Please?  
+It was nice to know that at some point in his life, he'd been happy. Carefree.
 
-I’ve transcribed the entry below.   
+But then I got to his final entry. It was dated the night after my mom told him she was pregnant, and from the sounds of it, he was having a bit of a panic over the news. Nothing unheard of. Becoming a parent is a big step, a scary one. But as I continued to read, the entry became darker. 
+
+Far darker. 
+
+After finishing it, I'm beginning to question my fathers death. My mother’s, too. 
+
+I'm wondering if I might be next. 
+
+I hate to ask this, but I could use some reassurance right now. Could you read his final entry? Could you let me know that I’m imagining this, that this is all in my head?
+
+Please.
+
+I’ve transcribed it below. 
+
+
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_  
+
 The road stretches a million miles.  
  
 It’s just me, the black top, the dead of night and the Nevada desert as far as the eye can see. I’ve been driving for hours and I haven’t caught so much as a glimpse of headlights. And really, that’s just the way I like it.  
@@ -198,38 +211,67 @@ My arms are limp, my muscles cramped and weak. I stare absently into a red-orang
 
 I stumble backward. “No…”   
 
-And the radio replies.  
-*I’ve been looking for you.*   
+And the radio replies.  *I’ve been looking for you.*   
 
 I put my head in my hands. I pull at my hair with my fists and I shout and holler and do whatever it takes to wake up from this nightmare. But it doesn’t work. Nothing does.  
 
 *There are others who want to find you first.*   
+
 The voice is guttural. It’s deep and distorted and it’s being played from the dying speakers inside the dying truck. It’s a lie. It’s just a broken record spinning inside of my head and–  
+
 Something catches my eye.  
+
 It’s a shadow, swaying just beyond the wreckage. It’s tall. As tall as a streetlamp. In the glow of the funeral pyre I can make out two gleaming, tiny eyes. They’re watching me.   
+
 *Tonight, you give yourself to one of us. Who will it be?*  
+
 I stumble to my feet. My leg is throbbing, but it’s easy to forget the pain when I’m drowning in fear. The shadow moves. It takes a step forward. Just one. I see a wrinkled snout, and two long ears hanging low enough to touch the ground.   
+
 “What the fuck…” I gasp.  
+
 The creature’s snorting. It sounds animalistic. Hungry. It’s throwing back its head, and it’s opening its mouth and inside of that long snout are rows of human teeth. They’re gnashing together. Caught between them are hair and bones.   
+
 The radio tells me, *Run.*  
+
 And I do.  
+
 I take off, my leg rioting in agony. It’s gotta be broken. Snapped. Each step is a new Hell, but I push past it because I know the alternative is worse. Right now, all I’m thinking about is my car. Right now, all I’m thinking about is whether or not I’ll reach it in time.   
+
 It’s forty feet away.  
+
 That’s too far.  
+
 There’s a flurry of footfalls, a rush of dust as that thing pulls its long ears through the dirt. It’s fast. Faster than me. The ground is rumbling with its every step, and my heart is keeping pace. I’m rasping. Sputtering.   
+
 I’m going to die.  
+
 I’m going to die.   
+
 Something connects with my back. It’s coarse, almost like fur. I’m thrown forward, rolling through the dirt like a tumbleweed as stones cut into my face. My vision spins. My head aches. I lift myself up on shaking arms, looking around at the blurry mess of wasteland.   
+
 I don’t see the creature. I don’t hear it.  
 Where did it go?  
+
 It doesn’t matter. What matters is getting in my car and getting the fuck out of here.   
+
 I force myself into a sprint. Each stride carries the sickening crunch of broken bone, but I don’t have the luxury of pain. That monster's still out here somewhere. It might be watching me now.   
+
 Almost there.  
+
 Just a little closer.  
-I toss myself into the driver’s side door, slam it shut behind me. My fingers fumble with the key. It takes two tries, three, but I finally get it to turn in the ignition. The engine rumbles to life.   
+
+I toss myself into the driver’s side door, slam it shut behind me. My fingers fumble with the key. It takes two tries, three, but I finally get it to turn in the ignition. The engine rumbles to life.  
+ 
 My head smashes against the steering wheel. Glass shatters. The car lurches forward, its frame groaning as something massive collides with its backend. An arm reaches through the rear window, long, skeletal fingers grasping at me. A snout follows. It’s snapping open and shut.   
+
 My foot slams the gas.   
+
 The car’s wheels spin. Jagged nails cut across my cheek, and the arm and snout vanish through the back window as the car speeds away. My hands are trembling. My whole body is convulsing and I don’t realize it but I’m muttering something like prayers beneath my breath.   
-I glance in the rearview mirror. Moonlight is spilling from the sky like the blood from my cheek. It's falling onto the wasteland, illuminating a solitary figure standing in a haze of dust. The figure almost looks like a man. He’s dressed in a black suit and tie, except where his head should be is a bovine skull, and his eyes… His eyes are the glowing, technicolor fuzz of television static.   
+
+I glance in the rearview mirror.
+
+Moonlight is spilling from the sky like the blood from my cheek. It's falling onto the wasteland, illuminating a solitary figure standing in a haze of dust. The figure almost looks like a man. He’s dressed in a black suit and tie, except where his head should be is a bovine skull, and his eyes… His eyes are the glowing, technicolor fuzz of television static.   
+
 He waves at me. And the car radio crackles to life.   
+
 *Thank you for listening to BlackStatic.fm,* it says. *I’ve been the voice in your head, and this has been music for your* [soul](https://www.reddit.com/r/TalesFromTheCryptid/comments/jba8ww/story_master_list/)*.*
