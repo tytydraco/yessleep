@@ -302,3 +302,6 @@ I'm sitting on a bed in the basement. Well, two mattresses stacked on top of eac
 
 
 The windows down here don't have curtains, so I'm going to turn out the lights so none of whatever the hell's out there will see me.
+
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/14kr2rw/the_soviet_union_is_responsible_for_the_death_of/?)

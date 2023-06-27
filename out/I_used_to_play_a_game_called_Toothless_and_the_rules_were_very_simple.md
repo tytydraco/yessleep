@@ -74,7 +74,7 @@ A girl called Charity took me aside, once, at a party. Her eyes were like a hors
 
 ‘Yes,’ she said, nodding, ‘and the rules were very simple.’
 
-We slept together for a few months after that. It was awkward, and clumsy, and we would both practice saying I love you as the sun rose, though we never meant it much. Still, it was thrilling to say, to sound the words out one by one, the wrinkled pink ring of your mouth growing smaller each time, shrinking into itself, drawn closer and closer, like a purse string pulled tight to breaking. Try it now, if you like. Say those words, the way the phrase ends with just enough space to feel the cold air on the inhale, the sudden cool breeze against your teeth.
+We slept together for a few months after that. It was awkward, and clumsy, and we would both practice saying *I love you* as the sun rose, though we never meant it much. Still, it was thrilling to say, to sound the words out one by one, the wrinkled pink ring of your mouth growing smaller each time, shrinking into itself, drawn closer and closer, like a purse string pulled tight to breaking. Try it now, if you like. Say those words, the way the phrase ends with just enough space to feel the cold air on the inhale, the sudden cool breeze against your teeth.
 
 She would press her tongue against my teeth when they were stained by wine, and we would stay up late together, taking recreational drugs and looking at affordable dental tools on the internet.
 
@@ -86,7 +86,7 @@ I don’t know about that, really. I don’t think I believe her. I mean, I doub
 
 ***cuspid, upper right side.***
 
-When I am twenty four I am very unwell. I do not wish to talk about it any more than that. I take a hammer to my fingers, and crush the fingers of the other hand in an office elevator. This is, of course, so I do not take a hammer to my mouth. I never lost my milk teeth, I am not sure if I made that clear enough to start. I had a very horrid smile and men did not like and women liked it even less.
+At twenty four I am very unwell. I do not wish to talk about it any more than that. I take a hammer to my fingers, and crush the fingers of the other hand in an office elevator. This is, of course, so I do not take a hammer to my mouth. I never lost my milk teeth, I am not sure if I made that clear enough to start. I had a very horrid smile that men did not like and women liked even less.
 
 Anyway, the woman who found me, Miranda, I think, although I cannot be sure, I only know I did not trust her, started crying a great deal. Her face got all red and hot and kind of sweaty. I told her to keep her voice down, and walked out the office, down the soft carpeted corridor, the hammer neatly propped up against the beige walls, my hands two bloody messes. I had put one in each pocket, for safekeeping.
 

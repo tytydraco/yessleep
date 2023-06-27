@@ -379,10 +379,16 @@ It was amazing to see the actual explosion. That was a major historical moment f
 The film came with a letter. This is what it read:
 
 
-"Artem, thank you for assisting my people in the uprising. Now that the new God is in power and has sealed my reality off from those entering, for the purpose of security, I want you to know my people and I are not very communist. We're open to capitalism, but not to the max. I want to make that clear. You and your fellow Soviets need to know torture is never okay. I'm not sure if you're guilty of it yourself, but if you are, please change your view on it. The Soviet Union is guilty of many of the things it criticizes. Sincerely, the one they call The Devil."
+"Artem, thank you for assisting my people in the uprising. The new God in power has sealed off my reality from those entering with malicious intent, so I can let you know what I wanted you to know, but waited for the right time to tell you. I knew the right time would be any time after I recieved your help, as you would've likely taken criticism terribly.
+
+
+What I want you to know is... you and your fellow Soviets need to know torture is never okay. I'm not sure if you're guilty of it yourself, but if you are, please change your view on it. The Soviet Union is guilty of many of the things it criticizes.
+
+
+Sincerely, the one they call The Devil."
 
 
 All I'll say is… I'm glad I started out as a draftee rather than a blunt psychopath.
 
 
-I wonder how things are going in Heaven, Hell, and Earth. Hopefully everyone's in a better place.
+I wonder how things are going in Heaven, Hell, and Earth. Hopefully everyone's in a better place than they were before.
