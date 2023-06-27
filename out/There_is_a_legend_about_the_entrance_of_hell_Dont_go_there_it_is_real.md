@@ -1,0 +1,52 @@
+It felt like a dream. A sponsorship to go to Argentina to investigate a famous legend from the region. I've loved camping since I was a kid, and my group of friends is bonded by this common passion. We always spent out of our own pockets to visit new places; so, knowing that we would be paid to camp, film, and get to know a region where few people have ever set foot in all of human history (avoided even by the indigenous people nearby) seemed like the perfect adventure; added to the fact that we would earn money, and even fame depending on the result of the footage.  
+The documentary was about “The Legend of the Entrance to Hell", which said that, at dusk, screams echoed in the forest, with no apparent source. Moved by the thirst for adventure, we headed into the forest, hundreds of miles away from civilization. We knew about the history of deaths in that place, but we reasoned that "people die climbing Everest too, any inhospitable place has its dangers, they must have died for not taking care of themselves in the forest". We thought that there would be a plausible explanation for the screams that start every night, such as an indigenous tribe, some unknown animal (birds, for example, scream and talk, there is the case of the crow that screamed "help me" from above the trees every time time it saw a human) or even something related to the flora (some hallucinogen exhaled by plants, or simply the way the wind hit certain leaves). Our theories occupied dozens of hours in the dialogues prior to the trip, we even made a bet to see who would guess the source of the inexplicable screams.  
+A dream in the image formed by our mind, but reality, this word so cruel that most people try to escape, always pulls the rug from our feet. There were several signs that we would enter a surreal and bizarre nightmare, the warnings grew as we approached the destination. But admitting we're wrong? It's never easy, is it? Even with everyone screaming that we should go back.  
+In the first week, light screams surrounded us. We went out and tried to investigate, but found nothing. The ambient sound was constant but unreachable. The origin remained a mystery no matter how hard we looked. We walked intermittently for five nights, at sunrise the screams disappeared and we went to sleep, disappointed. We didn't find any explanation that could rationalize what happened in that forest.  
+From the second week, the screams intensified along with the inexplicable, and the horror. One by one, our expedition members slowly went mad. First, Gabriel started talking gibberish. We laughed, thinking he was making fun of us, until, on a walk to get supplies, he threw himself off a hill, all the while smiling and babbling nonsense. He died instantly from the fall, skull split open from hitting a rock. After this event, we decided to go home, so we limited our departures at night, we only left the tent if necessary.  
+Until Fabio disappeared. We looked for him over the next few days, but not only did we get nothing, more people started disappearing. Antony and Pamela were “swallowed” by the forest. Everyone entered their respective tents at dusk, and when dawn came, the two were no longer there. Our hope that their fate would not be the same as Gabriel's was short-lived. Antony and Pâmela were found three days later on the riverbank, almost unrecognizable, skin chewed by fish.  
+But worst of all was Marcel. That same night  we woke up to screams:  
+\- I CAN SEE! EVERYTHING IS CLEAR NOW! I DON'T NEED THIS ANYMORE!  
+As we left the tent, Marcel was pushing his fingers into his eyes, trying to pull the eyeballs out. The soft sound of the organs detaching from the face echoed in the silence of the early night, which strangely did not manifest the routine screams, as if the voices were momentarily satisfied. He didn't show pain with the bizarre gesture; instead, he was smiling maniacally, as if he achieved enlightenment and embraced absolute happiness. He threw both eyes to the ground and ran into the complete darkness of the forest, robotic and quick steps.  
+We didn't go after him; we knew we'd go insane too if we stayed too long in the forest. At sunrise, a few meters from the camp, we found the body, probably dead of hemorrhage from the self- laceration, after bleeding for hours without medical care. The same haunting smile still populated his face; at least he must not have suffered, insanity had taken away the notion of pain and self-preservation.  
+Of the 7 people who came on the expedition, only Nicole and I were left. We decided to leave, even though one of our friends was still missing. We walked all day, and at night we locked ourselves in the tent, with screams coming from the forest flooding the place. On this night, beyond the sounds, static figures surrounded us, watching silently. I unzipped the tent, there was no one out there. I closed it quickly, that canvas barrier was apparently helping us stay sane.  
+Lying in the tent, tired from the intense walk carrying weight all day, I tried to fall asleep, but the constant noise made this task difficult. The grotesque images of my dead friends replayed endlessly in my mind, along with the memories of the conversations with the void they had just before they killed themselves. It seems that they made sense of the shouts, as if they were friendly words.  
+The cacophony of screams and whispers was louder than usual, until, suddenly, the screams stopped and the figures disappeared. The uncharacteristic silence sent a chill down my spine with the fear that something even worse was going to happen.  
+Before long, we heard footsteps approaching us, and stopping beside the zippered entrance. A calm and friendly voice spoke to us:  
+\- Sara! Nicole! Come here with me, I figured out how to get out of the forest!  
+\- If you found out, tell us, we´ll not lea…  
+I covered Nicole's mouth, and held up my finger, motioning for silence.  
+\- Hey! I know you two are listening to me, are you really going to ignore me? Good friends, huh... It's cold out here, open that tent.  
+The figure continued talking to us for minutes, always friendly, trying to convince us to go outside. Nicole relented:  
+\- Go away, if you want to talk, wait for dawn.  
+I slapped her arm.  
+\- Stop answering! You know Fabio is dead. That's how everyone went crazy, they were talking to the entity, and suddenly they started to hallucinate.  
+\- How can you be sure he's dead? He may have gotten lost and found his way back just now. HEY! HOW DID YOU SURVIVE FOR A WEEK? WHAT HAPPENED?  
+\- I... I lost consciousness for a day, when I recovered I was far from the camp. I fed on fruits and walked here, I finally managed to reach you. I'm starving, don't you have something for me to eat?  
+She paused, thoughtful. Her expression was strange, not blinking as the irises jumped quickly from side to side.  
+\- We have fruits. I´ll hand it to you.  
+Nicole got up to unzip the tent, padlock on the inside. I tried to hold her, but she pushed me away and walked outside. She's always had a crush on Fabio, but I didn't think she would be affected that way after everything we've seen these past few weeks. As soon as I got up, I zipped the tent up, not looking out into the dark jungle. I heard her walk and talk to the void, with no response.  
+\-HEY, STOP MESSING AROUND! WHERE DID YOU GO?  
+After a few minutes, I saw her shadow kneel down. She would pause for a few seconds, as if she was getting answers, but I could only hear her talking to herself.  
+\- Over there?  
+...  
+\- Like this?  
+...  
+\- After that I´ll be free?  
+...  
+\- OK.  
+I watched as Nicole's shadow broke branches off a tree, then slammed one of them into its own belly, howling in pain. Desperate, I unzipped the tent and went to her, but It was too late. She pulled the branch out of her belly, and her insides flooded the ground. Then she impaled herself a second time, with humanly impossible strength, even more so with the wound she had. This time, though, she didn't scream. Silently, she turned her head in my direction, a smile plastered on her face. The bared teeth were stained red, the blood running down the chin indicated the fatality of the wounds. She moved her mouth: though no sound came out, I could read her lips:  
+\- It's easy, come with me.  
+I locked myself in the tent again, terrified. There was nothing I could do, I was alone. I heard footsteps around me, and the voices of my departed friends called me in sweet, inviting tones:  
+\- Saraaaa , Saraaaaaaaaa!  
+My teeth were constantly trembling, I closed my eyes and tried to think of other things, I imagined how good it would be to meet my family again, I went over the plot of some movies in my head; trying to disassociate myself from the situation around me, just "protected" by the wall of the tent.  
+\- Help me, Sara. It hurts. Don't let me die in this place. Please...  
+Nicole's voice was one of sadness and pain. I didn't answer, I tried to get my mind out of there as much as I could.  
+\- Remember when we were kids, and we were playing together on that playground, and I tripped, turning my foot? You practically carried me in your arms, even though you were super skinny. You said you would always take care of me. Help me Sara, I need you.  
+This went on for the whole night. I managed to resist, and walked home at dawn: even though I was exhausted, adrenaline is a hell of an injection. In the following dawns, the same scenario repeated:  
+\-Sara, hey, Saraaa! Come here with us, I know you're tired, uncomfortable, hungry, afraid, anxious. All this suffering can end quickly, you just need to come here. Let's be together again.  
+Night after night I resisted, for two weeks. I can't say exactly how I managed not to be affected by the voices, maybe I was just lucky.  
+Returning to civilization, I tried to tell my story. Everyone laughed, some even called me a "drugged hippie". My friends' bodies were never recovered.  
+I leave this as a warning, I hope you don't think I'm making things up. Never enter the forest at the "entrance of hell". The legend is real, the entity that lives there does not rest until it manages to kill everyone who invades its sacred place. Some places should never be visited.
+
+  
+[\+](https://www.wattpad.com/1353232842-insanity-chronometer-prologue-sara)
