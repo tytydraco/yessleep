@@ -206,4 +206,6 @@ Both my parents smiled again and nodded.
 
 My father answered.
 
-"Our [star](https://www.reddit.com/r/Likeeyedid/)."
+"Our star."
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/14lgh77/there_are_two_versions_of_my_childhood_tapes_part/)
