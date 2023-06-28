@@ -18,7 +18,7 @@ Making sure I had everything I needed in the cab, food water and the such, I tur
 
 My one break in the noise was the sunset spreading out colours of red, purples, and yellows. Even so, that was quickly replaced by stars laid across the night. I leaned back in the leather seat and laid my hands behind my head. Before I knew I was sleeping I woke up. 
 
-To my shock, flat grassland had been replaced by trees that seemed to block out the moon, and between them no light escaped. The vast warped branches spanned far out, almost touching the asphalt of the road. The only thing I could clearly see was the path in front of me. Still half awake, I quickly took notice of my dogs whines, pulling over on the side of the road and letting the animal out to go do it’s business. 
+To my shock, flat grassland had been replaced by trees that seemed to block out the moon, and between them no light escaped. The vast warped branches spanned far out, almost touching the asphalt of the road. The only thing I could clearly see was the path in front of me. Still half awake, I quickly took notice of my dogs whines, pulling over  and letting the animal out to go do it’s business. 
 
 As I viewed from the agape door, the dog made its way from the rocks deep into the cover of the tree line. I turned my head away and began scrolling on my phone. Worry began to settle after fifteen minutes ticked past. 
 
@@ -44,11 +44,11 @@ Ignoring the primal voice screaming to get out of there and quick, I gave a look
 
 For the first time in god knows how long I took my eyes away from the tree line, and onto the clock I kept on my dash. 
 
-Before I could even make out the numbers on the clock, I saw in my peripherals something that sent fear down to the core of my heart. 
+Before I could even make out the numbers, I saw in my peripherals something that sent fear down to the core of my heart. 
 
 I slowly turned my head and as if to confirm the feelings of horror my whole body turned to ice. 
 
-Upright on my two legs, and without breaking the leer it gave me, it again began to vocalize. 
+Upright on two legs, and without breaking the leer it gave me, it again began to vocalize. 
 
 “W…WHERE,” it let out in the same jarring tone, “H…A…V….E”
 
