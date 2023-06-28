@@ -124,13 +124,13 @@ She brushed her hair back with her hands. I wasn't sure what she meant when she 
 She began to scratch out the second commandment.
 
 
-"All that apple contained was knowledge on how to separate good from evil. That's what God wanted to keep hidden… and he expected us to know any better? The devil wants to set up a new kingdom led by a new leader, and there's been talk of me being the next leader."
+"All that apple contained was knowledge on how to separate good from evil. That's what God wanted to keep hidden… and he expected us to know any better? The devil wants to set up a new kingdom led by a new leader, and there's been some talk of me most likely being the next leader. If so, I'm going to undo all the terrible things Yahweh did."
 
 
-She moved on to the third commandment. Scraping it like no tomorrow.
+She moved on to the third commandment, scraping it like no tomorrow.
 
 
-"Job refused the position. He said he just wants his livelihood back, Adam finally realized what he was doing when he blamed me for him not taking responsibility, and the devil told me he doesn't plan on being the next leader… so that leaves me."
+"Job refused the position. He said he just wants his livelihood back. Adam finally realized what he was doing when he blamed me for him not taking responsibility, and the devil told me he doesn't plan on being the next leader… so that leaves me."
 
 
 "Isn't the devil very powerful too?" I asked.
@@ -181,7 +181,7 @@ Despite the agreement, there was something else on my mind. My location. Where t
 "It's twice as powerful, comrade," Vladimir said.
 
 
-"Are the devil and Eve going to hide in a shelter or something?" I asked.
+"Are the devil and Eve going to be hiding in a shelter?" I asked.
 
 
 "The devil told me he, Adam, and Eve will be hiding out on Earth, watching Heaven's central city get vaporized," Vladimir said.
