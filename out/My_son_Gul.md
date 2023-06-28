@@ -1,0 +1,57 @@
+Picture this: I'm a single father, and I got a son, Gul. He's a young sprout, eight years old and brimming with an imagination that could fill oceans. The kind of kid that talks about his imaginary friends like they’re right there in the room with us. It was cute, endearing even, until one day it wasn't.  
+  
+One evening, we’re sitting at dinner, and he looks up at me with those big brown eyes and says, "Daddy, Mr. Pinstripe wants you to play with us." I glance over his shoulder at the empty space he's indicating, indulging him with a little smile. I don't see any Mr. Pinstripe, but I play along, saying I’d love to, but after we finished our vegetables.  
+  
+A couple of days go by and things get... strange. One morning, I wake up to find every single piece of furniture in the living room stacked in a precarious tower that touched the ceiling. I asked Gul about it, and he shrugged, saying Mr. Pinstripe thought it would be a fun game. Now, I know my boy's imaginative, but this...this was downright bizarre. The sinking feeling of fear began to settle in my gut. But I tried shaking it off, thinking it was Gul trying to be funny.  
+  
+Then, I started finding these little drawings scattered around the house, odd stick figures with elongated limbs and a crown on the head. Gul said it was Mr. Pinstripe, but I couldn’t shake off the feeling of unease those drawings gave me. I told Gul that Mr. Pinstripe was making Daddy uncomfortable, and he just gave me a look that I can't quite describe, but it sure as hell didn't sit right with me.  
+  
+One night, after tucking Gul into bed, I found one of those drawings under my pillow, the elongated figure staring back at me with drawn-on beady eyes. I swear, that made my blood run colder than a winter’s night. This wasn't Gul's playful imagination anymore, and something told me that things were about to get a whole lot worse.  
+Now, I’m not a man who frightens easily, but when your own home starts to feel like a stranger’s, let me tell you, it's enough to get under your skin. Over the next week, I noticed an unsettling change in Gul. My bright-eyed boy was becoming quieter, more withdrawn. It was as if an invisible layer of dread was coating him. And that’s not all. I began hearing strange sounds in the house, faint whispers in the night that echoed through the silent hallways. Once, I even heard a soft, chilling laugh, a sound no eight-year-old could make.  
+  
+One afternoon, I came home to find Gul sitting in his room, talking to thin air. “No, you can’t do that,” he was saying. When I asked who he was talking to, he turned to me with wide, fearful eyes and said, "Mr. Pinstripe. He wants to hurt you, Daddy." That single sentence struck me like a bolt of lightning, fear spreading through me like wildfire.  
+  
+Shaken, I reached out to a child psychologist, desperate for help. She suggested that Gul could be under stress and expressing it through his imaginary friend. It sounded reasonable, almost comforting compared to the chilling fear that was wrapping itself around my heart. I took her advice, spending more quality time with Gul, trying to bring back the spark in his eyes, all the while hoping it would end this eerie charade.  
+  
+But you know, sometimes, life just doesn’t play fair. The more I tried, the worse things got. There was a shift in the atmosphere, a sense of menace lingering in every corner of the house. Gul’s behavior was getting stranger, his drawings more disturbing. I’d wake up at night, cold sweat dotting my brow, certain that I’d heard an adult voice whispering Gul’s name. The fear had me in its icy grip, and it wasn’t letting go. And I couldn’t shake off the dreadful feeling that something terrible was about to happen.  
+My worst fears were realized one fateful evening. I’d picked Gul up from school, and we were driving home. The sky had turned an ominous shade of gray, with heavy rain clouds threatening a downpour. Gul was silent in the back seat, his little face pale, eyes focused on the notebook in his hands. I glanced at him through the rear-view mirror, noticing another one of those disturbing sketches of Mr. Pinstripe.  
+  
+Suddenly, Gul looked up, staring at something in the distance, his face blanching further. I followed his gaze, seeing nothing but the road ahead. He suddenly cried out, “Daddy, look out!” Startled, I slammed on the brakes, my heart pounding. But there was nothing. No animal darting across the road, no car veering into our lane, nothing. But Gul kept staring wide-eyed at the empty road, whispering, "He was there. Mr. Pinstripe."  
+  
+That night, I found a note under my pillow. Scrawled in Gul’s handwriting, it said, "Mr. Pinstripe is mad at you." Now, let me tell you, there’s nothing scarier than reading a threat written by your eight-year-old son, especially when it's supposedly coming from his ‘imaginary friend’. My heart pounded like a drum in my chest as I held that crumpled note, the sinking feeling of dread pulling me under.  
+  
+But what came next was even more horrifying. I woke up the next morning to find Gul missing. I searched every nook and corner of the house, but there was no sign of him. A feeling of icy terror gripped me as I stumbled upon his room. Laid out on his bed was another note, "Mr. Pinstripe has Gul. Come find us." As fear turned into gut-wrenching panic, I realized the gravity of the situation. I was in a horrifying game with something I couldn’t see, and my son’s life was at stake.  
+  
+The house felt more like a tomb than a home without Gul’s lively presence. But I couldn’t afford to let fear paralyze me; my son needed me. I decided to follow the trail, for lack of a better word, left by Mr. Pinstripe. The first clue was in the note, “Come find us.” But where? I mulled over it, until it struck me – the drawings.  
+  
+I gathered all the sketches I could find, each one with that eerie figure of Mr. Pinstripe. As I looked closer, I noticed something odd – in each drawing, there was always a peculiar shape in the background, like a building with a tower. It was the old, abandoned church at the edge of town. An icy chill ran down my spine. It was a long shot, but the only shot I had.  
+  
+When I reached the church, the sky had darkened, and the building cast long, sinister shadows. The tower loomed above me like a silent sentinel. As I walked in, the scent of damp, rotting wood filled my nostrils. It was eerily quiet, but I could almost sense a presence, a feeling of being watched. It was like walking into the lair of a beast, my every instinct screaming at me to turn back.  
+  
+As I ventured further in, my flashlight caught something on the floor. A drawing, similar to the ones at home, but this one was different. It was Gul and Mr. Pinstripe, standing side by side, but the figure of Mr. Pinstripe had an arrow pointing towards the basement. Gul was trying to help me. As horrifying as the situation was, I couldn’t help but feel a swell of pride for my brave little boy. I pressed on, fear mingling with determination. The game wasn’t over yet.  
+  
+The basement door creaked open with a bone-chilling sound, revealing a pitch-black abyss. Taking a deep breath, I descended, each step amplifying my heartbeat echoing in my ears. As my flashlight moved around the room, it finally landed on a shocking sight – a life-size portrait of Mr. Pinstripe, the elongated stick figure with its haunting eyes.  
+  
+I froze, taking in the grotesque figure when a sound broke the silence, a whimper. “Daddy?” It was Gul’s voice, weak and frightened. I spun around, my heart leaping with relief and fear. Gul was huddled in a corner, his eyes wide and brimming with tears. I rushed over, holding him tight as he clung to me.  
+  
+“Daddy, Mr. Pinstripe is mad at you,” Gul whispered, his small body trembling. Just then, a chilling laugh echoed around the basement, making my blood turn to ice. I clutched Gul tighter, spinning around, but there was no one. The portrait, however, seemed to have changed. The figure's smile seemed wider, its eyes gleaming maliciously.  
+  
+I felt a primal fear surge within me, not for myself, but for my son. Grabbing Gul’s hand, I rushed towards the stairs. As we raced up, the laughter followed us, growing louder and more menacing. But I didn't dare to look back. I had Gul. We just needed to get out. Just as we reached the top, something yanked Gul’s hand from mine. I turned around to see him being dragged back into the basement by an unseen force, his terrified screams echoing through the church.  
+  
+“No! Let him go!” I screamed, lunging forward. I was driven by one single thought: save Gul. I didn’t know what I was fighting, but I knew I wouldn’t let it take my son. The struggle was terrifying and real, but after what felt like an eternity, I managed to pull Gul free and bolt the basement door shut. The laughter and screaming stopped abruptly, replaced by an oppressive silence.  
+  
+With Gul in my arms, I staggered out of the church, the sky breaking into a new dawn. My body was shaking, my mind trying to comprehend the horrifying events. As the first rays of sunlight hit us, I looked at Gul. His face was pale, but the spark was back in his eyes. “Mr. Pinstripe is gone, isn’t he, Daddy?” he asked, his voice tiny. I nodded, holding him tighter.  
+  
+In the end, I realized, the most horrifying experiences often come from the places we least expect, hidden in the corners of our mundane existence, under the disguise of a child’s innocent game. We were safe now, but the shadows of Mr. Pinstripe would forever lurk in the corners of our minds, a terrifying reminder of the ordeal we had faced, and defeated. The game was finally over, but its chilling memories would last a lifetime.  
+  
+When we got home, the house felt different, lighter. Gul ran off to his room, and for the first time in weeks, I heard his carefree laughter ring through the house. It felt like a weight had been lifted off my chest.  
+  
+But our ordeal had left its marks. The previously innocuous stack of Gul's drawings now felt like a grim reminder of our nightmarish journey. I knew it was time to make some changes. We packed up, moving to a smaller place on the other side of town, far from the old church.  
+  
+In our new home, Gul was back to being his bright and imaginative self. Yet, sometimes, he would wake up from a nightmare, eyes wide with fear, clutching onto me. I’d hold him close until his breathing slowed, whispering comforting words into his ear. We were healing, slowly but surely.  
+  
+One day, as I was making dinner, Gul rushed in, holding up a drawing. My heart skipped a beat as I took it, but there, on the paper, was our new house, with Gul, me, and a dog he wanted to adopt. No Mr. Pinstripe, just us. I couldn't help but pull him into a bear hug, relief washing over me like a warm wave.  
+  
+That’s our story, the horrifying game that upturned our lives. We didn’t fight off ghosts or supernatural beings. No, we faced something much more insidious, an entity borne out of an innocent child’s imagination, a menacing shadow that resided in our own home. But we faced it, braved the fear, and survived. And you know what, even though it was terrifying, I think it made us stronger.  
+  
+And while there's a part of me that's still scared, still looking over my shoulder, I know we'll be okay. We're survivors, my Gul and I. In the end, that's what matters, doesn't it?  
