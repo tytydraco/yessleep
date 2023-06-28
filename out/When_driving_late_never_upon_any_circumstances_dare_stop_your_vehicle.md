@@ -18,7 +18,7 @@ Making sure I had everything I needed in the cab, food water and the such, I tur
 
 My one break in the noise was the sunset spreading out colours of red, purples, and yellows. Even so, that was quickly replaced by stars laid across the night. I leaned back in the leather seat and laid my hands behind my head. Before I knew I was sleeping I woke up. 
 
-To my shock, flat grassland had been replaced by trees that seemed to block out the moon, and between them no light escaped. The vast warped branches spanned out almost touching the asphalt of the road. The only thing I could clearly see was the path in front of me. Still half awake, I quickly took notice of my dogs whines, pulling over on the side of the road and letting the animal out to go do it’s business. 
+To my shock, flat grassland had been replaced by trees that seemed to block out the moon, and between them no light escaped. The vast warped branches spanned far out, almost touching the asphalt of the road. The only thing I could clearly see was the path in front of me. Still half awake, I quickly took notice of my dogs whines, pulling over on the side of the road and letting the animal out to go do it’s business. 
 
 As I viewed from the agape door, the dog made its way from the rocks deep into the cover of the tree line. I turned my head away and began scrolling on my phone. Worry began to settle after fifteen minutes ticked past. 
 
@@ -58,10 +58,10 @@ In that moment no matter how big I was, or the size of the truck, a primal feeli
 
 As though he clocked in on my escape plan, it began making its way towards with its two back legs. 
 
-Not once taking those eyes off me, it leaned back and forth as it stepped, increasingly upping the speed. 
+Not once taking those eyes off me, it leaned side to side as it stepped, increasingly upping the speed. 
 
 I finally took heed of the voice screaming at me to run, and pressed the monstrous car to the highest speed it could go. 
 
-And though I expected it, dread still wormed it’s way through me as I saw the animal in pursuit in my rear view. Albeit slow enough to give me enough time to stop at a motel and collect my thoughts. 
+And though I expected it, dread still wormed it’s way through me as I saw the animal in pursuit with my rear view. Albeit slow enough to give me some time to stop at a motel and collect my thoughts. 
 
 That’s where I’m at now, writing this. I’m watching and waiting in case that thing figures out how to open doors.
