@@ -46,6 +46,4 @@ Evening started to fall and I pulled it together enough to head home, even thoug
 Don’t really even remember the walk just that the sky was clear. Not sure how I found my way back. When I did though, Momma and Dad were waiting along with Lee’s Ma. Woman was like an Aunt to me. Felt like my heart being torn apart telling her what happened, what I saw, and the look on her face. Bless her, she never once blamed me. I did that plenty on my own. Though I just couldn’t bring myself to tell her everything.
 
 
-See, there was something that day came outta the Holler. Sounds. Faint and far away like, but sounds all the same. I heard the screaming howls of a dog suddenly cut short followed by the sounds of bones breaking and meat tearing. Then I heard Lee’s wordless screams get further and further away. 
-
-[A Weird Life](https://www.reddit.com/r/AWeirdLife?utm_medium=android_app&utm_source=share)
+See, there was something that day came outta the Holler. Sounds. Faint and far away like, but sounds all the same. I heard the screaming howls of a dog suddenly cut short followed by the sounds of bones breaking and meat tearing. Then I heard Lee’s wordless screams get further and further away. The last thing? Words. Words spoken in a voice like the dead of winter itself had done gotten in your brain and I knew they were about me. “Not him. Not now.”
