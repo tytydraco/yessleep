@@ -168,7 +168,7 @@ I nodded, "Been here for close to 2 years."
 
 "You're telling me." He dropped his bags, "So does this place have Wi-Fi?"
 
-&#x200B;
+I smiled at him, "No. But it could."
 
 &#x200B;
 
