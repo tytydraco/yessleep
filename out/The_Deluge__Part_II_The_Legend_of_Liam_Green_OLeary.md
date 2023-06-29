@@ -1,4 +1,4 @@
-[READ PART I HERE](https://www.reddit.com/r/nosleep/comments/14jphpo/the_deluge_part_i_the_flood_of_1937/)
+[Part I: The Flood of 1937](https://www.reddit.com/r/nosleep/comments/14jphpo/the_deluge_part_i_the_flood_of_1937/)
 
 The boat pitched forward violently, and I was airborne for ages before slamming down hard on my back. Agony radiated through my body in all directions, and I rolled gasping off the bench seat and into the floor of the boat. I was face-to-face with the old woman, wedged under her own seat and moaning in terror. Someone was crying nearby–Douggie, where was he? There, under the bench. Cold water sloshed around me as I crawled over to him. I prayed that we’d only been dowsed by the wave instead of about to sink.
 
@@ -228,4 +228,7 @@ I was still groggy and shaken by my sudden awakening. “What–Maynard? What’
 
 I whirled around, scanning the cave. The three of us appeared to be the only ones there. Ms. Griffith was gone, as was Frank; and June, Douggie, and Louis were nowhere to be seen.
 
-“Maynard…where are the kids?”
+“Maynard…where are the kids?”  
+
+
+[Part III](https://www.reddit.com/r/nosleep/comments/14md7jy/the_deluge_part_iii_dinner_with_mr_toad/)
