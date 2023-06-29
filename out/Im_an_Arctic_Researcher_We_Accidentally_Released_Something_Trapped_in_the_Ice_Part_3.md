@@ -26,7 +26,7 @@ The Ijiraq was becoming increasingly agitated. Its form started convulsing, as i
 
 Becca was now on her feet, rifle in hand. She moved swiftly and deftly, her eyes burning with cold determination, as though the dying cries of her colleagues had ignited a fury within her.
 
-As the creature turned towards her, she fired at it point-blank, the sound of the shot ringing through the cabin. The bullet tore through the its nebulous form, ripping a solid chunk of flesh from the transient layer of smoke and ice. A gut-wrenching howl filled the room.
+As the creature turned towards her, she fired at it point-blank, the sound of the shot ringing through the cabin. The bullet tore through its nebulous form, ripping a solid chunk of flesh from the transient layer of smoke and ice. A gut-wrenching howl filled the room.
 
 The Ijiraq recoiled, its form flickering wildly between various shapes - human, animal, monster - each more horrifying than the last. Its body was writhing and shifting more wildly than ever.
 
