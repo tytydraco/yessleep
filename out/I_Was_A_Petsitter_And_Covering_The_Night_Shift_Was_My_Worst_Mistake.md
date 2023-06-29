@@ -1,3 +1,5 @@
+TW: animal mutilation,violence (continue at your own risk) 
+
 It was a very hot summer. I decided to work on my vacations since I needed the money to pay my rent. I had been working here for five years now but what happened to me that summer would never be erased from my mind. 
 
 
