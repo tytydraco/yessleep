@@ -1,6 +1,6 @@
-I genuinely don't know how to say this other than I just saw a giant skeleton towering above the trees in the woods of Lassen National Park. I understand this place is usually reserved for fun, creepy stories, but I have never been more terrified or confused. 
+I don't know else how to say this other than I just saw a titanic skeleton in the woods of Lassen National Park. I understand this place is usually reserved for fun, creepy stories, but I have genuinely never been more terrified or confused. 
 
-What I'm seeing is real, and I can't think of what to do other than beg everyone who sees this to try and contact me and send help.
+What I'm seeing is real, and I can't think of what to do other than beg everyone who sees this to contact me and send help.
 
 An hour ago, I was sitting on the front porch of my cabin watching the sunset, and out of nowhere, this enormous rumbling filled the air. The type of rumbling that you can feel the vibration from. My first thought was, "Maybe there's an earthquake." The problem with that theory is that the ground isn't shaking so clearly; it's something else. Simultaneously, I hear tree branches snapping violently out in the distance, and I can see flocks of birds freaking out, desperately attempting to get away from the same area.
 
