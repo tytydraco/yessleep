@@ -14,7 +14,7 @@ If the first basement was beautiful, the second one was absolutely luxurious. Ti
 
 The third floor was the deepest we needed to go, but a quick look down the stairs revealed many, many more floors below. I had never gone past the 3rd floor, but Mark has. He said it used to be necessary but not anymore.
 
-On the third floor, we might as well have been in the sixteenth chapel. Everything was tall and grand, the ceiling had these small encrusted rocks that formed on the underbelly of the building. But I felt as if they weren't so sparkly and shiny, it would look like cists lining the back of a diseased throat.
+On the third floor, we might as well have been in the Sistine chapel. Everything was tall and grand, the ceiling had these small encrusted rocks that formed on the underbelly of the building. But I felt as if they weren't so sparkly and shiny, it would look like cists lining the back of a diseased throat.
 
 There were long hallways and rooms here, but we never went into any of them. Instead we would keep walking, our feet knowing where to go even if they weren't willing. The smell down here was even worse. It ate at me. I know it. The little time we spent down here already made my skin rough to the touch as if I had been sleeping in a bed of sandpaper. I could feel it even when I blinked, the holes it created in my corneas, the feeling in the folds of my eyelids as they slid over my irises, rippling each time they went over the parts that had been eaten away. Each blink no more subtle than running my fingers over ripped panty hose.
 
