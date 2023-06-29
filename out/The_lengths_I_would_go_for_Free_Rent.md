@@ -98,7 +98,7 @@ By March, I had lost another 8 pounds. That was a lot for a person of my size. I
 
 And Mark seemed to take notice, "You're getting too skinny."
 
-I was already in a foul mood. A stock I had invested heavily in had turned sour. What should have been weeks away from my move, now set me back by a few more months. "Too fat," I yelled at him. "Too skinny!" I threw my empty bucket to the floor. "What do you want for me?"
+I was already in a foul mood. A stock I had invested heavily in had turned sour. What should have been weeks away from my move, now set me back by a few more months. "Too fat," I yelled at him. "Too skinny!" I threw my empty bucket to the floor. "What do you want from me?"
 
 Mark picked up my bucket and handed it to me, "I just don't want to fall in either."
 
@@ -134,7 +134,7 @@ In less than a second, Mark had completely disappeared. If it weren't for his bu
 
 Terrified I grabbed my bucket of sludge, nearly sloshing it all over myself as I ran back up the stairs. When I got out on the street I heaved the bucket into the sewer and then I vomited nothing but acid and saliva onto the sidewalk. Several times I thought about calling the police. But eventually I realized that I didn't know what I would say? Or how I would explain anything. In fact, I didn't even know Mark's last name. Or if he had a family. I practically didn't know a damn thing about him.
 
-But when I got to his room. There was nothing in there, except an old dirty mattress and some law books stacked up in the corner. There wasn't even any can in his pantry.
+But when I got to his room. There was nothing in there, except an old dirty mattress and some law books stacked up in the corner. There weren't even any meal cans in his pantry.
 
 I didn't know what to do so I went back to my room. I stripped naked and threw all of my clothes into the trash can and went to go take a shower. The cold water stung my skin but I didn't care. I was racked with guilt and could hardly console myself, but then somewhere between the crying and self-loathing. The water began to turn warm, and it got warmer until it was piping hot.
 
@@ -164,7 +164,7 @@ I nodded, "Been here for close to 2 years."
 
 "Really?" His eyes lit up. "That's great! You know. Rent's so high nowadays."
 
-"It's absolutely ridiculous," I told him.
+"It's absolutely ridiculous," I agreed.
 
 "You're telling me." He dropped his bags, "So does this place have Wi-Fi?"
 
