@@ -1,4 +1,4 @@
-(Pics and video to back this up) My friend and I talk about this almost every day because it changed our life's. We experienced something that was not possible. A few months ago at the Trail of Tears state park outside of Jackson, Mo, my best friend and I were sitting out on this overlook that has an incredible view of the valley and it sits right above the Mississippi River. We were alone as we could possibly get in the entire park. 
+[BLUE ORB THAT CAME OUT OF THE MIDDLE OF THE RIVER](https://share.snapchat.com/m/QpoqlAMy?share_id=7Gj1Fndhgrs&locale=en-US)(Pics and video to back this up) My friend and I talk about this almost every day because it changed our life's. We experienced something that was not possible. A few months ago at the Trail of Tears state park outside of Jackson, Mo, my best friend and I were sitting out on this overlook that has an incredible view of the valley and it sits about 100 feet up a cliff side above the Mississippi River. We were alone as we could possibly get in the entire park. 
 
 We were enjoying the view as the sun set and as it got darker we saw all the lights come on in the distance and it was beautiful. 
 
