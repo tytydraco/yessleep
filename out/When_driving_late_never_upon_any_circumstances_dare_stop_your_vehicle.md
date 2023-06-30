@@ -56,7 +56,7 @@ It spoke with long pauses between the letters, and it stretched out the vowels
 
 In that moment no matter how big I was, or the size of the truck, a primal feeling of being some animal’s prey struck every bone in my body. I slammed my door shut as it sounded out the word “you”.
 
-As though he clocked in on my escape plan, it began making its way towards with its two back legs. 
+As though it had clocked in on my escape plan, the thing began making its way towards me with its two back legs. 
 
 Not once taking those eyes off me, it leaned side to side as it stepped, increasingly upping the speed. 
 
