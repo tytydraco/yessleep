@@ -312,7 +312,7 @@ She pulled me upright and slapped me in the face, her teeth baring as saliva spe
 
 My hands blindly stretched out, the smooth tips of my finger's like blind worms across her face. Searching for her eyes. When I felt them rebound in their socket with my thumb. I pushed down until she howled with pain. Lily let me go but I dug my fingers in deeper.
 
-There was blood all over her face as I forced her to the ground. Her body withering as she tried to fight back. I didn't let go until she stopped moving. I could hear other nearby, perhaps looking for us. So I left my things and Lily, and made a run for it.
+There was blood all over her face as I forced her to the ground. Her body withering as she tried to fight back. I didn't let go until she stopped moving. I could hear others nearby, perhaps looking for us. So I left my things and Lily, and made a run for it.
 
 Sneaking through the long hallways, I could see the courtyard and the platform from the windows. I moved quickly as possible without drawing attention. From here the light flickered from the stage and I could hear Grandpa's voice come through.
 
