@@ -222,7 +222,7 @@ Su-wan got up slowly, her belly swollen. I pulled out a chair for her, "How much
 
 "Are you sure," Lily asked. "It'll help with your stomach."
 
-Su-wan pushed a tiny cup forward and was speaking. But I couldn't hear words she said as Lily began pouring her a drink. She lifted the cup to her lips and finished it. And I swear there was a silent scream in my ear, it was like watching white noise with the sound off.
+Su-wan pushed a tiny cup forward and was speaking. But I couldn't hear the words she said as Lily began pouring her a drink. She lifted the cup to her lips and finished it. And I swear there was a silent scream in my ear, it was like watching white noise with the sound off.
 
 Lily broke my concentration as she suddenly bolted upright and rushed to the door, "Oh let me help you!" I turned around and saw a woman I recognized as my Aunt Nima pushing a bandaged figure in a wheel chair. He was covered in the wrappings from head to toe, even his hair, but I could still tell who he was by his squared shoulders.
 
