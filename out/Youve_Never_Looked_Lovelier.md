@@ -24,11 +24,11 @@ Or so I thought...
 
 At her funeral, everyone from the town gathered around the tiny open casket, and commented how beautiful she was. Just as I had wished.
 
-But that's where this story veers from tragedy to horror. You see, every night since then I awake to find her in the small, yellowed bathroom down the hall. Not a ghost of her, but her actual decaying form.
+But that's where this story veers from tragedy to horror...
 
-It goes like this: I awake with a start, blurry eyes to the radio alarm clock. Squinting until the red numbers come into focus. Three in the morning, as always...
+It goes like this: each night since Lucy was buried I awake with a start, blurry eyes to the radio alarm clock. Squinting until the red numbers come into focus. Three in the morning, as always...
 
-I hear the light tapping along the sink in the bathroom across the hallway. So I clear the rheum from my eyes and sit upright, in the creaky king-sized bed I used to share with my husband. By then I can clearly make out the pitter-patter of little feet on tile. And given the familiarity of the noise, I forget for a moment that Lucy is dead, even if she's not technically gone.
+I hear a light tapping along the sink in the bathroom across the hallway. So I clear the rheum from my eyes and sit upright, in the creaky king-sized bed I used to share with my husband. By then I can clearly make out the pitter-patter of little feet on tile. And given the familiarity of the noise, I forget for a moment that Lucy is dead.
 
 Next comes the sound of running water, then the croaking thump of the pipes as the old faucet is turned off. So I slip out of bed, sliding my ratty nightgown against the low count sheets, feeling the horror of regret, as well as true repulsion and terror. In these moments, I feel as though I am being carried forward by some oblique yet indefinable momentum.
 
@@ -46,7 +46,7 @@ I walk on toward the pale iridescence sneaking out from under the bathroom door'
 
 Inside, it is always the same: Lucy standing on her tippy-toes, using the mirror above the sink to apply lipstick.
 
-She turns to face me, growing more decayed with each passing night. "Mommy!" She digs the lipstick at herself, claws at her tiny little face. "I'm sorry I'm not more pretty," she says. "I'm so sorry, mommy!"
+She turns to face me, growing more decayed with each passing day. "Mommy!" She digs the lipstick at herself, claws at her tiny little face. "I'm sorry I'm not more pretty," she says. "I'm so sorry, mommy!"
 
 Last night was the worst; the smell of a slaughterhouse. My daughter's rotten face, colorless, with bits of dry patches forming where the skin has deteriorate away from the bone. Wearing that pageant red lipstick, dressed in the gaudy pageant gown I had hand-sewn for her just a few weeks back. Red as the lipstick, with black frills as accents.
 
@@ -56,15 +56,15 @@ Last night was the worst; the smell of a slaughterhouse. My daughter's rotten fa
 
 "Not anymore," I say.
 
-"Because I'm not pretty anymore?" she asks. And I feel both love and repulsion as I take her hand.
+"Because I'm not pretty anymore?" she asks. And I feel both love and, yes, repulsion as I take her hand.
 
-"I woke up in the lonely place and realized I must not look pretty," she had said that first night. "When I first awoke, I thought I was ready for another pageant. My hair was curled and I could taste makeup on my lips. But then I was alone. I knew I wasn't pretty. I knew I had to come home and get pretty. Appearances matter, isn't that what you always say?"
+"I woke up in the Lonely Place and realized I must not look pretty," she had said that first night. "When I first awoke, I thought I was ready for another pageant. My hair was curled and I could taste makeup on my lips. But then I was alone. I knew I wasn't pretty. I knew I had to come home and get pretty. Appearances matter, isn't that what you always say?"
 
 I know then the horror of my wish, and all the moments leading up to it. I had tried to make a doll of my child, and now she was but a voodoo doll I could not be released from. I had made a horror of us both.
 
-"It's cold and lonely there," Lucy said last night. "Why do you keep returning me to the lonely place? Am I in timeout? Is it because I didn't win? Is it because I'm not pretty enough?"
+"It's cold and lonely there," Lucy said last night. "Why do you keep returning me to the Lonely Place? Am I in timeout? Is it because I didn't win? Is it because I'm not pretty enough?"
 
-So night after night I walk her back to the cemetery, and I tuck her in. And then I go home and wait to do it all over. This new ritual of the macabre.
+So night after night I walk her back to the cemetery, and I tuck her in. And then I trudge home, arms sore from the shoveling, and wait to do it all over. This new ritual of the macabre.
 
 But now I must go. I've been up later than usual, and I think I hear a scratching at the front door. It will soon be time to help Lucy with her makeup, or at least what's left of her.
 

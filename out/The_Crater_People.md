@@ -24,7 +24,7 @@ They were master astrologists, fine craftsmen, and exceptional hunters. None of 
 
 *Humoured. You really thought that branch was a snake?*
 
-Or.
+*Or.*
 
 *Aghast. How dare you call my wife a mushroom.*
 
@@ -56,7 +56,7 @@ Interesting to note is that home, In the Crater People's tongue, is almost inter
 
 "Bemused. Only if you are strong." She laughed. She gestured to a scar on my arm. I picked it up during the second war. "I see you are."
 
-*If only.* What she didn't know was that I had gotten the scar fleeing. I hid behind better men during the war, but that's a story for another day. This was all superstition. Weak one or not, nothing would happen to me.
+If only. What she didn't know was that I had gotten the scar fleeing. I hid behind better men during the war, but that's a story for another day. This was all superstition. Weak one or not, nothing would happen to me.
 
 Her son was a fairly low-ranked male, you can tell this as their hair is shorter. The matriarchs cut hair and it is considered a great honour for men not to have theirs cut at their yearly trims. The "strong" men all had hair down to their waists. They were not always muscled or physically fit. They were valued on their mental fortitude, their resistance to Bodach.
 
@@ -66,7 +66,7 @@ Her son was a fairly low-ranked male, you can tell this as their hair is shorter
 
 It was then I had my idea. Perhaps this rotten fruit was at the centre of the great delusion? Hallucinogens have long guided man toward religious pursuits.
 
-*There was only one way to find out.*
+There was only one way to find out.
 
 "Can I have some rotten fruit?" I asked him.
 
@@ -78,11 +78,11 @@ It was then I heard him.
 
 "Medusa cascade. Sirius. but you know the names already." It said, deep and booming. It filled the air like a cloud of mushroom spores, reaching, clinging to me. "You hid whilst others fought. Your swollen brain, hubris, prideful. Envious. Never lain with a woman. Never worthy."
 
-"You're not real." I said. There was dread pooling in the pit of my stomach. The voice sounded... Wrong. Haunting. Like it had crept up from the bowels of my heart. 
+"You're not real." I said. There was dread pooling in the pit of my stomach. The voice sounded... Wrong. Haunting. Like it had crept up from the bowels of my heart.
 
 "I'm real if you hear me. I'm inside you. I came from far away. So far. I want to go farther, but they won't let me. The women, the salt of the empty sea. But you will leave here soon, and I will come with you. I bid you not to strike now. Withhold your hatred for a different shore. Give me to others. Pass me on, pour me into glasses and drink me into life once more."
 
-The voice never left. I hear him still, as I sit here now in your pub sipping whiskey. He is always in me, rotten fruit or not. A part of me, an infection of the mind. 
+The voice never left. I hear him still, as I sit here now in your pub sipping whiskey. He is always in me, rotten fruit or not. A part of me, an infection of the mind.
 
 My boat came to pick me up the next day. My guide was a rather astute man, of forty-years, armed with a rifle and expecting some great outpouring of tribal warfare.
 
@@ -96,10 +96,10 @@ My guide looked rather pleased with himself. He whisked me away before the cries
 
 **That was his story.**
 
-The tweed jacket glanced to the bottom of his whisky glass and put his hand out for a refill. I pondered not giving it to him. Refusing, guarding my poisoned chalice, as the matriarch had done for her son.  He smiled at me devillishy as I poured. Fearful gnawing tugging at my intestines.
+The tweed jacket glanced to the bottom of his whisky glass and put his hand out for a refill. I pondered not giving it to him. Refusing, guarding my poisoned chalice, as the matriarch had done for her son. He smiled at me devillishy as I poured. Fearful gnawing tugging at my intestines.
 
 I was weak too and so was poor Bertie, and when the Tweed Jacket and my old drunken faithful left, I poured myself a neat lagavulin, the keys to the pub jingling in my pocket.
 
-He said to me that night as I fought sleep, that formless nothing, that chained evil demon. In his terror inducing voice, laced with spiteful malevolence. 
+He said to me that night as I fought sleep, that formless nothing, that chained evil demon. In his terror inducing voice, laced with spiteful malevolence.
 
 *"Pour me into pint glasses. Drink me into life."*
