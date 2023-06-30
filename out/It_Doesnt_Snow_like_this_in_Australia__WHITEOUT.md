@@ -109,3 +109,5 @@ To make matters worse the heating system failed a few hours ago. The temperature
 Inevitably we will be forced to leave the safety of the hall and access the plantroom on the backside of the building so we can attempt to fix the central heating system. I am gathering some tools together now. 
 
 [When I return I will continue to update you as events unfold.](https://www.reddit.com/r/MP_stories?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[UPDATE - Things got a lot worse!! Part 2](https://www.reddit.com/r/nosleep/comments/14mjzoc/it_doesnt_snow_like_this_in_australia_part_2/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
