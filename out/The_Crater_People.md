@@ -12,7 +12,7 @@ We did. It was an expensive whiskey, one we usually didn't touch. I blew the dus
 
 I listened out of earshot, pretending to wipe down the bar. Bertie scooted closer to him.
 
-I will relay the story to you know, and perhaps you will see why it has stuck with me even five years on. Though I cannot mirror the poetic lyricism of the Tweed Jacket, I hope it will have the same effect as it did on me.
+I will relay the story to you know, in all it's horrifying entirity, and perhaps you will see why it has stuck with me even five years on. Though I cannot mirror the poetic lyricism of the Tweed Jacket, I hope it will have the same effect as it did on me.
 
 **I'm a social anthropologist,** that is to say, a professional time-waster. I suck up grant money, string together loose little theories and try to formulate, in my own way, the odd machinations in which communities form and function. I travel a lot for my job, my main interest is uncontacted peoples. Small, indigenous populations that have emmerged separate from modernity.
 
@@ -78,9 +78,11 @@ It was then I heard him.
 
 "Medusa cascade. Sirius. but you know the names already." It said, deep and booming. It filled the air like a cloud of mushroom spores, reaching, clinging to me. "You hid whilst others fought. Your swollen brain, hubris, prideful. Envious. Never lain with a woman. Never worthy."
 
-"You're not real." I said.
+"You're not real." I said. There was dread pooling in the pit of my stomach. The voice sounded... Wrong. Haunting. Like it had crept up from the bowels of my heart. 
 
 "I'm real if you hear me. I'm inside you. I came from far away. So far. I want to go farther, but they won't let me. The women, the salt of the empty sea. But you will leave here soon, and I will come with you. I bid you not to strike now. Withhold your hatred for a different shore. Give me to others. Pass me on, pour me into glasses and drink me into life once more."
+
+The voice never left. I hear him still, as I sit here now in your pub sipping whiskey. He is always in me, rotten fruit or not. A part of me, an infection of the mind. 
 
 My boat came to pick me up the next day. My guide was a rather astute man, of forty-years, armed with a rifle and expecting some great outpouring of tribal warfare.
 
@@ -94,10 +96,10 @@ My guide looked rather pleased with himself. He whisked me away before the cries
 
 **That was his story.**
 
-The tweed jacket glanced to the bottom of his whisky glass and put his hand out for a refill. I pondered not giving it to him. Refusing, guarding my poisoned chalice, as the matriarch had done for her son.  He smiled at me devillishy as I poured.
+The tweed jacket glanced to the bottom of his whisky glass and put his hand out for a refill. I pondered not giving it to him. Refusing, guarding my poisoned chalice, as the matriarch had done for her son.  He smiled at me devillishy as I poured. Fearful gnawing tugging at my intestines.
 
 I was weak too and so was poor Bertie, and when the Tweed Jacket and my old drunken faithful left, I poured myself a neat lagavulin, the keys to the pub jingling in my pocket.
 
-He said to me that night as I fought sleep, that formless nothing, that chained evil demon.
+He said to me that night as I fought sleep, that formless nothing, that chained evil demon. In his terror inducing voice, laced with spiteful malevolence. 
 
 *"Pour me into pint glasses. Drink me into life."*

@@ -78,7 +78,7 @@ C: *hysterical* I don’t know if I should call you back – I don’t know – 
 
 _____________________________
 
-[FB](https://www.facebook.com/P-F-McGrail-181784199029462/).”
+[FB](https://www.facebook.com/P-F-McGrail-181784199029462/)
 
 [BD](https://www.reddit.com/r/ByfelsDisciple/)
 
