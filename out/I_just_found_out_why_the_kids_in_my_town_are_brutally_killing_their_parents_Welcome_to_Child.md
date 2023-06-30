@@ -266,7 +266,7 @@ It sounded like this person was being dragged.
 
 This time, Finn came to an abrupt stop, his earpiece flashing purple. I had never seen it flash that color before. His hand went to the device, suddenly, and I glimpsed desperation in his expression to claw it off. 
 
-The familiar voice continued in what sounded like a struggle. “I want you to find him. Shut him down. Do you understand how much shit you will be in if this gets out? That I unwillingly donated my body to a cursed town? It’s bad enough that you actually had the guts to kidnap the son of... get the fuck off me! No. I want to speak to my father right now. You can't do this. You can't keep me here. I have rights! I want that thing put down—" When the yell morphed into a muffled cry, the sheriff’s son turned to me, his eyes wide. 
+The familiar voice continued in what sounded like a struggle. “I want you to find him. Shut him down. Do you understand how much shit you will be in if this gets out? That I unwillingly donated my body to a cursed town? It’s bad enough that you actually had the guts to kidnap the son of... get the fuck off me! No. I want to speak to my father right now. You can't do this. You can't keep me here. I have rights! I want that thing put down—" When the yell morphed into a muffled cry, the sheriff’s son turned to me, his lips twisted in a silent cry. 
 
 His earpiece was flashing like crazy, an all too familiar beeping sound filling my ears, and a red light flashed in my face, reflecting that same haunting countdown.
 
