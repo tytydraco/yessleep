@@ -2,7 +2,7 @@ I don't know else how to say this other than I just saw a titanic skeleton in th
 
 What I'm seeing is real, and I can't think of what to do other than beg everyone who sees this to contact me and send help.
 
-An hour ago, I was sitting on the front porch of my cabin watching the sunset, and out of nowhere, this enormous rumbling filled the air. The type of rumbling that you can feel the vibration in your bones from. Concerned, my first thought was, "Maybe there's an earthquake?" However, the problem with my earthquake hypothesis was that the ground wasn't shaking. It felt more like a rhythmic vibration. Almost as if there were intervals. Clearly, it had to be something else. 
+An hour ago, I was sitting on the front porch of my cabin watching the sunset, and out of nowhere, this enormous rumbling filled the air. The type of rumbling that you can feel the vibration in your bones from. Concerned, my first thought was, "Maybe there's an earthquake?" However, the problem with my earthquake hypothesis was that the ground wasn't shaking. It felt more like a rhythmic vibration. Almost as if there were intervals. Clearly, it had to be something else, I thought.
 
 Simultaneously, I hear tree branches snapping violently out in the distance behind my cabin, and I can see flocks of birds freaking out, desperately attempting to get away from that area.
 
