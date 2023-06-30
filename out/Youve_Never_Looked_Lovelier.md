@@ -64,8 +64,8 @@ I know then the horror of my wish, and all the moments leading up to it. I had t
 
 "It's cold and lonely there," Lucy said last night. "Why do you keep returning me to the lonely place? Am I in timeout? Is it because I didn't win? Is it because I'm not pretty enough?"
 
-So night after night I take her for a walk back to the cemetery, and I tuck her in. And then I go home and wait to do it all over. This new ritual of the macabre.
+So night after night I walk her back to the cemetery, and I tuck her in. And then I go home and wait to do it all over. This new ritual of the macabre.
 
-But really I must go. I've been up later than usual, and I think I hear a scratching at the front door. It will soon be time to help Lucy with her makeup, or at least what's left of her.
+But now I must go. I've been up later than usual, and I think I hear a scratching at the front door. It will soon be time to help Lucy with her makeup, or at least what's left of her.
 
 I was one of those pageant moms. And I suppose, in a way, I always will be...
