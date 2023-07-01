@@ -1,5 +1,7 @@
 [Previous Part](https://www.reddit.com/r/nosleep/comments/12wg5km/i_run_a_shop_that_buys_and_sells_bizarre/?utm_source=share&utm_medium=ios_app&utm_name=ioscss&utm_content=2&utm_term=1)
 
+[Next Part](https://www.reddit.com/r/nosleep/comments/14nqegw/i_run_a_shop_that_buys_and_sells_bizarre/?utm_source=share&utm_medium=web2x&context=3)
+
 Well, things have officially gotten batshit. 
 
 When I called Mr. A and told him about the Vagrant’s actions, I could almost hear him go pale. Obviously, he had hoped this would never happen. He told me to say a certain phrase aloud: “Closed for Maintenance.” Just like that, the entire shop shifted. The glass door was covered with an enormous slab of some bizarre material that looked almost like obsidian, and come to think of it, looked an awful lot like a solid form of whatever the Vagrant’s skin was covered with. The same thing happened to the windows, and the lights in the shop turned on automatically. Finally, the warehouse door was sealed by one of the slabs.
