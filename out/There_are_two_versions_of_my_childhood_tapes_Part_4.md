@@ -168,4 +168,6 @@ I looked over at Luke but he seemed frozen, cold sweat was forming on his forehe
 
 Leigh sighed.
 
-"If those tapes were made with some connection to the production company, they weren't normal. Watching them might do stuff to you and your mind, maybe it already did. My guess is that your parents wanted you to see them and we should find out why before it's too late [for you](https://www.reddit.com/r/Likeeyedid/)."
+"If those tapes were made with some connection to the production company, they weren't normal. Watching them might do stuff to you and your mind, maybe it already did. My guess is that your parents wanted you to see them and we should find out why before it's too late for you."
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/14o0gng/there_are_two_versions_of_my_childhood_tapes_part/)
