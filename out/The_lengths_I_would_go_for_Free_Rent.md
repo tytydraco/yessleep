@@ -1,4 +1,4 @@
-Mark and I were never really friends. We were neighbors and in a way co-workers as we helped maintain the building. I saw him on a daily basis but never knew what he did. But everyday after I had gotten ready, I'd step out of my room, close the door behind me and lock it. And Mark would be standing in the hallway holding two matching plastic buckets.
+Mark and I were never really friends. We were neighbors and in a way co-workers as we helped maintain the building. I saw him on a daily basis, though we were never quite friends. But everyday after I had gotten ready, I'd step out of my room, close the door behind me and lock it. And Mark would be standing in the hallway holding two matching plastic buckets.
 
 He'd hand me one of them and the two of us without a word would walk towards the elevator, buckets swinging, and then make an immediate right to take the stairs. The elevator has never worked. Not since I've lived here.
 
@@ -104,7 +104,7 @@ Mark picked up my bucket and handed it to me, "I just don't want to fall in eith
 
 My stomach grumbled between us as if it were agreeing.
 
-I wrung my hands but knew he was right. I had to start eating. Mark was feeling heavier each day but he hadn't gain any more weight. He looked exactly the same even under the perfectly lit rooms in the basement.
+I wrung my hands but knew he was right. I had to start eating. Mark was feeling heavier each day but he hadn't gained any more weight. He looked exactly the same even under the perfectly lit rooms in the basement.
 
 By June I had lost another 3 pounds. My stock was plummeting along with my appetite. Some of my other investments that looked like sure wins suddenly turned on its head and went south. Even my work was suffering. It was as if something was keeping me from progressing. I blamed it on my health. But a part of me felt like it was the building. It didn't want me to leave.
 
@@ -144,9 +144,9 @@ I took 3 showers that day. One before work. One after. And another before bed. I
 
 I could stay here I rationalized in bed that night. Just for awhile longer. Just until I get back on my feet.
 
-And sure, I was a bit worried about my duties the next day. But I had just taken a hot shower, and figured I'd come across that bridge when I crossed it tomorrow. Falling to the best sleep that I had ever since I stepped foot in this building.
+And sure, I was a bit worried about my duties the next day. But I had just taken a hot shower, and figured I'd come across that bridge when I crossed it tomorrow. Falling to the best sleep that I ever had since I stepped foot in this building.
 
-When I woke up, I halfheartedly expected a knock at my door. But that remembered what happened to Mark. My thoughts turned bitter as I prepared to go into the basement, but as I was washing my face and brushing my teeth, the hot water still coming out of the faucet made me smile.
+When I woke up, I halfheartedly expected a knock at my door. Though that only reminded me of what happened to Mark. My thoughts turned bitter as I prepared to go into the basement, but as I was washing my face and brushing my teeth, the hot water still coming out of the faucet made me smile.
 
 I was practically whistling by the time I got to the first floor. And my smile grew even wider when I saw a young man, he looked straight out of college, standing in the lobby. Waiting for me.
 
