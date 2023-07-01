@@ -184,4 +184,9 @@ I began to walk out the door, and he tried to call me back. "Wait, Ms. Jackson, 
 
 I know he is coming soon. I know there is nothing I can do to stop him. Some of my past lives had the mental fortitude to choose death on their own terms, but I personally cannot conceive of doing so. So instead, I rest, sitting at home in comfort, patiently awaiting my murderer. I do hope my roommate is away when I am killed, I'd hate to traumatize them.
 
-Maybe after this time he'll give up.
+Maybe after this time he'll give up.  
+
+
+\---
+
+The above note was recovered from the apartment of Margaret Jackson on June 11th, 2023, after her mangled body was found by her roommate. Witnesses claim that they saw a man with long dark hair and crooked teeth enter the building earlier that day, but none recall seeing him leave.  
