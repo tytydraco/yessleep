@@ -83,3 +83,5 @@ There were tears in her eyes. Then she slammed them shut and I was faced with a 
 I buried grandma Caroline in the backyard, outside the house. I think she would've liked that. The house isn't cursed anymore, thankfully. Anya is understandably baffled at how much things have changed in the last five years, and she developed has an interest in some real old-timey fashion. I think it might take her a while to adjust.
 
 I'm glad I was given an opportunity to save Anya and give my grandmother some peace.. Even still, though, I hope I wasn't left anything else cursed in my inheritance.
+
+[(Final Update)](https://www.reddit.com/r/nosleep/comments/14ngs3e/i_was_warned_never_to_close_all_doors_in_a_room/)
