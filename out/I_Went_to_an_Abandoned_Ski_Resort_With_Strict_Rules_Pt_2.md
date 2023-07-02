@@ -302,7 +302,7 @@ The rules. They mentioned imposters. I had to get off this trail. I began to edg
 
 “Aw. But you just found me. Don’t make me come l*oooo*king for you.”
 
-Billy lagged in the middle of his sentence and the horror of hearing the inhumanity of that sound was, forced my body to take action.
+Billy lagged in the middle of his sentence and the horror of hearing the inhumanity of that sound forced my body to take action.
 
 I crashed through the opposite tree line, trying to ski diagonally through the trees, down the mountain.
 
