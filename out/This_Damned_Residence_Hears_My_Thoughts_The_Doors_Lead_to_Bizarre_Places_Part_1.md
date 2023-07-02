@@ -1,46 +1,31 @@
 Abandonment. Moving out was always followed by that feeling of abandonment. I have not had much success in the last year. Several times I had to move to a worse place. Until there was nothing worse available. In this context, it may sound almost comical. But I love large houses. One living room is not enough. And one bedroom? Suffering to see that.
 
-  
-Minimalist modern living has become my enemy. Those New York apartments are the pinnacle. That is why I am saving up for a proper house my whole life. Costs of living have been kept to an absolute minimum. I eat the cheapest food. But sometimes I daydream and imagine... Massive marble columns in the middle of the two-story entrance hall hold the heavy roof of the Residence, the palace, my future happiness. Walls covered in frescoes with ancient motifs. Exotic wood beneath hides underfloor heating. The window frames have been worked on by the best carpenters. Oh, how beautiful this air is! The smell of a vast house surrounds me.
+My name is Frederick. Minimalist modern living has become my enemy. Those New York apartments are the pinnacle. That is why I am saving up for a proper house my whole life. Costs of living have been kept to an absolute minimum. I eat the cheapest food. But sometimes I daydream and imagine... Massive marble columns in the middle of the two-story entrance hall hold the heavy roof of the Residence, the palace, my future happiness. Walls covered in frescoes with ancient motifs. Exotic wood beneath hides underfloor heating. The window frames have been worked on by the best carpenters. Oh, how beautiful this air is! The scent of a vast house surrounds me.
 
-  
 Hey, I am not the only one with a hobby like this. I know a group of people who share a passion for large houses. It is called NER. The acronym stands for Not Enough Rooms. A phrase that members of the group say to each other when they enter an unsuitable house. Was not long before I started attending their meetings. They met every Sunday and marveled at the monumental new projects the billionaires' crazy building plans were trying to bring to life. That counts as art, right? We marveled about art. The golden grail of our ambitions was The Manor in Los Angeles. Neither of us will save $150 million during this one lifetime. But it was nice to know that there was a 123-room house on this planet.
 
-  
 Richard and I were inseparable. He was an unbeatable optimist. Even when his life was falling apart, he acted like he had everything under control. When his wife eventually left him, we started seeing each other outside the group. He was very sympathetic to my saving spirit. He saved money like that for his entire life. Since he was much older than I was, his Residence was already under construction.
 
-  
 It was a magnificent monument. The combination of painted steel and concrete left a powerful impression. The roof was made of copper and it was the absolute peak of art. As you walked in, the redwood parquet flooring smiled at you from below. And all those wonderful rooms! There must have been forty of them. "Not enough rooms" I joked as I took my first look at the majestic interior.
 
-  
 "Would you like some wine? I have a Chateau d'Yquem to celebrate." Richard offered. He had previously mentioned the wine to me, having bought it in 1995, only to open it after the house of his dreams was completed.
 
-  
 "Sure! And we'll go through all the rooms?" I could not help but ask. The excitement was literally sizzling out of me.
 
-  
 "If we don't pass out halfway through, yes." He smiled and headed off to get the wine. Of course he had a wine cellar. The Residence had just about everything, from a large attic to several smaller rooms in the basement, including a safe, a security shelter, and a movie theater.
 
-  
 He left and was gone for a considerable amount of time. I had no idea how far away the wine cellar was. Maybe it was not under the house, but somewhere in the bowels of that enormous garden outside. I started exploring the house without my guide.
 
-  
 The nearest door hid a storage room. Empty shelves on the walls and storage bins underneath looked empty. It was a barren but very large room, waiting to become useful. But despite the visible emptiness, it felt like it was stuffed. Four different doors on the right side connected the storage room to the rest of the house. Again, I chose the one closest to me, walked up to it, and opened it. A mixture of sheer wonder and confusion followed. This is the home theater? It was supposed to be in the basement.
 
-  
 Before me stretched the most magnificent cinema one can have in their home. As the floor deepened, rows of red seats descended in groups of eight. A giant cream-coloured screen at the far back excelled at adding contrast to the setting. It was not, however, square in shape. Instead, it was one large hanging oval. This made me take a closer look at all the furnishings of the room. The seats were backwards. They had back rests interchanged with the seating area, making them look like recliners. I would have been comforted if this was actually some kind of weird tanning room and the oval mimicked the real sun. Anything is possible in large houses. But it was not. And I was even more alarmed when four identical-looking doors appeared again on the right side of the theater. They made no attempt to match the angled floor. The ones at the back just hung a metre off the ground. Again, I chose the closest one.
 
-  
 Nothing to see. Just a staircase going down. I closed the door and walked to the second door in the sequence. Again, nothing to see. Just a staircase going up to the second floor? I began to have strong doubts about the abilities of the architect who had designed this particular Residence. The layout was neither functional nor logical. But if I walked through the first door, I might find the wine cellar and reunite with Richard. Once again, I opened it, and at that moment, my head spun. Everything I had seen before was missing. Before me stretched a completely bare room with no sign of the previous staircase.
 
-  
 I race to the other door, intent on running upstairs and contacting the lost guide. My sense of direction was beginning to fail in a big way. I have neither the desire nor the courage to continue the expedition alone. Reassured that I am not lost here, I open the second door. This time there is nothing here at all. Not a room, nothing at all. The door leads directly into an empty wall.
 
-  
 Turning around and going back is the smartest idea. Well, for that to happen, the entrance leading from the warehouse to the cinema would have to be there! This house is playing games with me. Nothing to do but try the last two doors at the end. At least there is something behind the third. There is a lot of light coming from behind it. The gloom in the cinema is enhanced by the uneven lighting conditions in the neighbouring room. Indeed, as I open the door, there is a room full of equipment and machines beyond. I have no way of identifying exactly what these are. The glass walls somehow multiply the sunlight and blind me. The machines inside, despite being black in color, glow so malevolently, reflecting all the brightness into my eyes. No, not this door.
 
-  
 Back in the dim cinema, I am slowly losing hope. Why did they build a vault in here? This whole building, this living set of vicious walls, is one great impenetrable optical illusion. Such an irregularly branching and confusing cluster of compartments. The nightmare of every burglar. But I am just a visitor! Residence, why do you scold me for my curiosity? I came to admire you.
 
-  
 As though it heard my unspoken message. The fourth door opens by itself. I need to gather some courage before I head to the fourth room. Please pray for my safety.
