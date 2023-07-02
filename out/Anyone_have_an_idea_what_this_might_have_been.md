@@ -1,0 +1,14 @@
+I’ve been wanting to share this experience for a while now so might as well take this opportunity.
+
+I’ve been babysitting for this family for 2 years now, the kids are two girls, “A” is 10 and “Y” is 7. This happened around September last year, the family live in the countryside with horses and a farm about a 5 minute walk away. There are other houses near by too. On this particular night, it was a little rainy and “Y” was fast asleep while I was struggling getting “A” into her bed. It was around 10 pm and her mum was due back soon so I was aware she’d be annoyed if she was still awake. “A” asked for a bedtime story which I was happy to do, she climbed into bed, and the family dog decided to join her and jumped up into the bed too.
+
+Around 20 minutes later, “A” was getting pretty close to falling asleep when I heard the sound of the front door opening, followed by the inner boot room door opening too, which had a distinctive squeaking sound. I sighed knowing now that she was back and “A” wasn’t asleep so she’d be annoyed with “A”. Although when I checked my phone I noticed she was 25 minutes early.. which is strange of her.
+
+The dog instantly jumped off the bed and ran downstairs barking which in turn caused “A” to sit up and ask “is that mummy?” I assured her it was okay and to lay back down as I knew she was pretty much about to fall to sleep. Which she did. I got up and started walking out her room and across the landing to the stairs (only the top of the stairs are visible from the area I was standing) before I could make it to the top of the stairs I heard the sound of the mums voice calling up “Hello?” from the bottom of the stairs. She said it in a whisper so I replied whispering “Hi!” Although, when I got to the top of the stairs I peered down and there was no one there… just a weird silence/emptiness.
+
+I slowly walked down and looked around all the rooms but with no sign of the mum or anyone of that matter, the door was still locked and their dog was now laying down by it. Trying not to freak out I unlocked the door expecting to see her car or a neighbour, or something! But there was no one there… I even checked in on “Y” but she was still asleep, I couldn’t find a cause of all this, no intruders, no TVs on, and no one was downstairs when it happened.
+
+Their mum arrived back 20 minutes after this and I told her about what happened, she was shocked and a little scared but assured me she hadn’t come back early and left again like I convinced myself what had happened. “A” thankfully didn’t remember any of this the next morning, as I expected she was half asleep when she asked “is that mummy?”
+
+I really just don’t know what to think about this situation, strange things have happened before here... random noises, footsteps, etc, but NOTHING as real and scary as this.
+Anyone have any thoughts? Thanks.
