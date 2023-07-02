@@ -24,4 +24,4 @@ Days turned into weeks, and the house remained haunted by the memories of her pr
 
 In the end, I had no choice but to leave that house behind, for it had become a labyrinth of darkness and despair. I carried the weight of the unknown with me, haunted by the fading shadows of a life that had slipped through my fingers.
 
-To this day, I can still hear the echoes of her voice and catch glimpses of her ethereal form in my dreams. The paranormal enigma that engulfed our home remains unsolved, a chilling reminder of the fragile nature of our existence and the inexplicable mysteries that can shatter our sense of reality. (Sorry this wasn't amazing this is my first time trying to create one of these and it's kind of mooched)
+To this day, I can still hear the echoes of her voice and catch glimpses of her ethereal form in my dreams. The paranormal enigma that engulfed our home remains unsolved, a chilling reminder of the fragile nature of our existence and the inexplicable mysteries that can shatter our sense of reality.
