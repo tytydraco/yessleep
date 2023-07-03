@@ -221,3 +221,6 @@ Some had their noses and cheeks eaten away by insects. Black swarms of flies sur
 
 
 “Shoot them!” Samuel cried, the one man who kept his head in the terror of the moment. “Shoot them, for God’s sake! Would you have us all die?” That broke the stillness, and with a deafening roar, the rifles began to open fire.
+
+
+Part 3: https://www.reddit.com/r/nosleep/comments/14p41yu/i_was_raised_in_a_secret_religion_our_members/
