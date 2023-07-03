@@ -278,4 +278,6 @@ For the first time, I was sure of what needed to happen.
 
 I put my hand on his shoulder and leaned in closer.
 
-"We've been cursed since the first moment Mum and Dad got involved in all this. But we're adults now. Ellie isn't. [Get. Her. Out](https://www.reddit.com/user/likeeyedid)."
+"We've been cursed since the first moment Mum and Dad got involved in all this. But we're adults now. Ellie isn't. Get. Her. Out."
+
+[Final part](https://www.reddit.com/r/nosleep/comments/14pj6zf/there_are_two_versions_of_my_childhood_tapes_final/)
