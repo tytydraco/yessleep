@@ -1,6 +1,6 @@
-Sometimes I feel guilty that I stayed home and ate Doritos while my girlfriend Jemma went off on a secret military mission. I suppose that’s what led me here, to the \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_YMCA, accompanying her to what I consider to be a completely unnecessary birthing class.
+I used to feel guilty that I stayed home and ate Doritos while my girlfriend Jemma went off on a secret military mission. I suppose that’s what led me here, to the \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_YMCA, accompanying her to what I consider to be a completely unnecessary birthing class. 
 
-Allow me to set the scene. The instructor is a middle-aged woman. She’s sporting thick black bangs and the starry eyes of someone taken in by a cult. The room smells like some strange alchemy of sweat and pancake batter. I am both repulsed and desirous of licking the spoon.
+The birthing class instructor is a middle-aged woman. She’s sporting thick black bangs and the starry eyes of someone taken in by a cult. The room smells like some strange alchemy of sweat and pancake batter. I am both repulsed and desirous of licking the spoon.
 
 Jemma looks intent, though I wish it weren’t so. She’s about as pregnant as I am, all things considered. But all the tests and doctors’ appointments in the world haven’t changed her mind. “It’s in there,” she insists. “Biding its time. The baby will be here soon, and we must be prepared.”
 
