@@ -16,13 +16,13 @@ Everyone else claps with tempered enthusiasm, but I don’t bother to move my ha
 
 “Christ,” I whisper to Jemma. “What does she think, she’s speaking to a room of kindergartners?” Jemma waves me away with a quick swipe of her right hand. Then she returns it to nestle along the flat beach of her belly. I watch her moist hands circle along the green fabric of her tank top, and I feel that gnawing pit in my own stomach grow.
 
-All the other mothers have traditional baby bumps, but not Jemma. I start to sweat, even though the room temperature is perfectly adequate. I can’t believe this is how I’m spending my Sunday I could be at the regional comic book convention down in \_\_\_\_\_\_\_\_\_\_\_\_\_Town. Perhaps I got too set in my ways while Jemma was away. Sometimes I think I’d be happier on my own. This I have never admitted before to anyone.
+All the other mothers have traditional baby bumps, but not Jemma. I start to sweat, even though the room temperature is perfectly adequate. I can’t believe this is how I’m spending my Sunday. I could be at the regional comic book convention down in \_\_\_\_\_\_\_\_\_\_\_\_\_Town. Perhaps I got to set in my ways while Jemma was away. Sometimes I think I’d be happier on my own. (This I have never admitted before to anyone.)
 
-Eventually, like the growing red of new infection, the introductions make their way to us.
+Eventually, like the spreading red of infection, the introductions make their way to us.
 
 “Hello, everyone” Jemma says in a loud, confident-sounding voice. “My name is Jemma and this is my significant other, Benjamin.”
 
-“Ben’s fine,” I add. “Um…a good day to everyone.”
+“Ben’s fine,” I say. “Um…a good day to everyone.”
 
 The instructor’s eyes narrow, and I can tell she’s already calculating the lack of mass in Jemma’s midsection.
 
@@ -36,7 +36,9 @@ The instructor’s eyes narrow, and I can tell she’s already calculating the l
 
 I start to ask Jemma, “Do you think maybe we should—”
 
-“We’re staying!” Jemma hisses, one step ahead of my thought process, as usual. When she turns to glare at me, I notice that her brown eyes have turned a metallic purple. It only lasts a moment, but it terrifies me to the core of my being. Not for the first time this week, I think I detect a movement underneath her shoulder blades, something bending and twisting just below the bra line. Perhaps delusions can spread like a virus, or like fear. Perhaps I’m starting to lose my grip too.
+“We’re staying!” Jemma hisses, one step ahead of my thought process, as usual. 
+
+When she turns to glare at me, I notice that her brown eyes have turned a metallic purple. It only lasts a moment, but it terrifies me to the core of my being. Not for the first time this week, I think I detect a movement underneath her shoulder blades, something bending and twisting just below the bra line. Perhaps delusions can spread like a virus, or like fear. 
 
 Next comes a twenty-minute barrage of pro-breastfeeding propaganda. “Breast is best!”
 
@@ -54,11 +56,13 @@ At one point in Wendy's monologue Jemma pinches me on the wrist. “Are you even
 
 I smile a little. It’s the first time she referred to the baby as “ours.”
 
-When Jemma returned from the mission, we found it difficult at first to reconnect. She had been absent for four months for the training, and then another eight months thereafter. She was forbidden from discussing the type of mission, or even where she had spent the year. She once mentioned something about implementing what she referred to as "pulse landmines," but that was the most she would say.
+When Jemma returned from the mission, we found it difficult to reconnect. She had been absent for four months for the training, and then another eight thereafter. She was forbidden from discussing the type of mission, or even where she had spent the year. She once mentioned something about implementing what she referred to as "pulse landmines," but that was the most she would say. I think it involved descending to the depths of the ocean. 
 
-But still, I knew without her having to explain, that she had seen some things out there. Things that could never be forgotten. She had perhaps killed, and almost been killed. How many comrades had she lost? She wouldn’t say. She doesn’t like to talk about it, and yet it’s ripping her apart inside.
+But still, I knew without her having to explain, that she had seen some things out there. Things that could never be forgotten. She had perhaps killed, or narrowly avoided death herself. How many comrades had she lost? She wouldn’t say. She doesn’t like to talk about it, and yet it’s ripping her apart inside.
 
-The first week that Jemma returned she tried to act as though nothing had changed. She scheduled visits with all our friends, she ordered her favorite type of pizza (pineapples with black olives, yuck), and she even hinted that she wanted to be intimate “as soon as the shock wore off.” But on her seventh day home, as we spooned under the shadowy death of our bedroom’s black light, she told me she was pregnant.
+The first week that Jemma returned she tried to act as though nothing had changed. She scheduled visits with all our friends, she ordered her favorite type of pizza (pineapples with black olives, yuck), and she even hinted that she wanted to be intimate “as soon as the shock wore off.” 
+
+But on her seventh day home, as we spooned under the shadowy death of our bedroom’s black light, she told me she was pregnant.
 
 “You…you had a relationship with somebody while on your mission?” I asked. I was hurt by the idea, but understood we had been apart a long time. I just figured it was best to leave such things unsaid, if we were going to try and make it work between us. But it’s far tougher to hide a baby than a memory, at least for a while...
 
@@ -70,11 +74,11 @@ The first week that Jemma returned she tried to act as though nothing had change
 
 “A…baby?”
 
-“A parasite. Or an alien….” She shook her head. “I…I don’t know….”
+“A parasite. Or an alien….” She shook her head. “I…I don’t know. All I do know is that it's mine and I'm going to keep it." 
 
 Since then, she’s been resolute that she’s breathing for two.
 
-“Okay,” says Wendy with a dramatic flair of her nostrils. “I think it’s time to get into teams and focus on conscious breathing exercises. Yay!”
+“Okay,” says Wendy with a dramatic flair of her nostrils. “I think it’s time to split into teams and focus on conscious breathing exercises. Yay!”
 
 Jemma is on her back now, staring up at me with a slightly mocking expression.
 
@@ -86,7 +90,7 @@ She goes limp on the floor, splaying her arms out at her sides like a windmill. 
 
 Jemma places her hands on my hips and gives me a quick squeeze. “I just want you to be as committed to this as I am.”
 
-I make a gesture to the room. “Clearly I am.”
+I make a gesture to the room we inhabit. “Clearly I am.”
 
 “Good, now help me calm down and breathe.”
 
@@ -98,11 +102,11 @@ Wendy hovers over us. At my angle from the floor, I can barely make out her expr
 
 “So…third trimester?” she says.
 
-“Yes,” Jemma answers, defiant. “As I mentioned before, it’s complicated.”
+“Yes,” Jemma answers, defiant. “As I said before, it’s complicated.”
 
 “Well, feel free to run anything by me,” Wendy says through a pasted-on smile. “Anything at all. I’m an old pro. Actually, I’ve been doing this for sixteen years.”
 
-I say, “We’ll let you know if we need anything.”
+I say, “We’ll let you know if we need anything...”
 
 Wendy kneels next to us on the blue, staple-strewn carpet. “May I feel the baby kick?” she asks.
 
