@@ -1,6 +1,6 @@
-Sometimes I feel guilty that I stayed home and ate Doritos while my girlfriend Jemma went off on a secret military mission. I suppose that’s what led me here, to the \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_YMCA, accompanying her to what I considered a completely unnecessary birthing class.
+Sometimes I feel guilty that I stayed home and ate Doritos while my girlfriend Jemma went off on a secret military mission. I suppose that’s what led me here, to the \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_YMCA, accompanying her to what I consider to be a completely unnecessary birthing class.
 
-The instructor is a middle-aged woman. She’s sporting thick black bangs and the starry eyes of someone taken in by a cult. The room smells like some strange alchemy of sweat and pancake batter. I am both repulsed and desirous of licking the spoon.
+Allow me to set the scene. The instructor is a middle-aged woman. She’s sporting thick black bangs and the starry eyes of someone taken in by a cult. The room smells like some strange alchemy of sweat and pancake batter. I am both repulsed and desirous of licking the spoon.
 
 Jemma looks intent, though I wish it weren’t so. She’s about as pregnant as I am, all things considered. But all the tests and doctors’ appointments in the world haven’t changed her mind. “It’s in there,” she insists. “Biding its time. The baby will be here soon, and we must be prepared.”
 
@@ -36,9 +36,9 @@ The instructor’s eyes narrow, and I can tell she’s already calculating the l
 
 I start to ask Jemma, “Do you think maybe we should—”
 
-“We’re staying!” Jemma hisses, one step ahead of my thought process, as usual. 
+“We’re staying!” Jemma hisses, one step ahead of my thought process, as usual.
 
-When she turns to glare at me, I notice that her brown eyes have turned a metallic purple. It only lasts a moment, but it terrifies me to the core of my being. Not for the first time this week, I think I detect a movement underneath her shoulder blades, something bending and twisting just below the bra line. Perhaps delusions can spread like a virus, or like fear. 
+When she turns to glare at me, I notice that her brown eyes have turned a metallic purple. It only lasts a moment, but it terrifies me to the core of my being. Not for the first time this week, I think I detect a movement underneath her shoulder blades, something bending and twisting just below the bra line. Perhaps delusions can spread like a virus, or like fear.
 
 Next comes a twenty-minute barrage of pro-breastfeeding propaganda. “Breast is best!”
 
@@ -56,11 +56,11 @@ At one point in Wendy's monologue Jemma pinches me on the wrist. “Are you even
 
 I smile a little. It’s the first time she referred to the baby as “ours.”
 
-When Jemma returned from the mission, we found it difficult to reconnect. She had been absent for four months for the training, and then another eight thereafter. She was forbidden from discussing the type of mission, or even where she had spent the year. She once mentioned something about implementing what she referred to as "pulse landmines," but that was the most she would say. I think it involved descending to the depths of the ocean. 
+When Jemma returned from the mission, we found it difficult to reconnect. She had been absent for four months for the training, and then another eight thereafter. She was forbidden from discussing the type of mission, or even where she had spent the year. She once mentioned something about implementing what she referred to as "pulse landmines," but that was the most she would say. I think it involved descending to the depths of the ocean.
 
 But still, I knew without her having to explain, that she had seen some things out there. Things that could never be forgotten. She had perhaps killed, or narrowly avoided death herself. How many comrades had she lost? She wouldn’t say. She doesn’t like to talk about it, and yet it’s ripping her apart inside.
 
-The first week that Jemma returned she tried to act as though nothing had changed. She scheduled visits with all our friends, she ordered her favorite type of pizza (pineapples with black olives, yuck), and she even hinted that she wanted to be intimate “as soon as the shock wore off.” 
+The first week that Jemma returned she tried to act as though nothing had changed. She scheduled visits with all our friends, she ordered her favorite type of pizza (pineapples with black olives, yuck), and she even hinted that she wanted to be intimate “as soon as the shock wore off.”
 
 But on her seventh day home, as we spooned under the shadowy death of our bedroom’s black light, she told me she was pregnant.
 
@@ -74,7 +74,7 @@ But on her seventh day home, as we spooned under the shadowy death of our bedroo
 
 “A…baby?”
 
-“A parasite. Or an alien….” She shook her head. “I…I don’t know. All I do know is that it's mine and I'm going to keep it." 
+“A parasite. Or an alien….” She shook her head. “I…I don’t know. All I do know is that it's mine and I'm going to keep it."
 
 Since then, she’s been resolute that she’s breathing for two.
 
