@@ -186,7 +186,7 @@ It’s thin, an inch or so in diameter, but once unspooled its length is about s
 
 “Yes,” Jemma says. “That Wendy Davis should do nicely.”
 
-I look in Jemma’s eyes to see if she is joking, but she is deadly serious. The snakelike little creature makes out a suckling noise with its lips. Little Cassie’s new to this world, and she’s mighty hungry. I know then that for the first time in forever, everything is about to make sense.
+I look into Jemma’s eyes to see if she is joking, but she is deadly serious. The snakelike little creature makes out a suckling noise with its lips. Little Cassie’s new to this world, and she’s mighty hungry. I know then that for the first time in forever, everything is about to make sense.
 
 “It’s okay,” I tell our child. “Daddy's going to get you dinner.”
 
