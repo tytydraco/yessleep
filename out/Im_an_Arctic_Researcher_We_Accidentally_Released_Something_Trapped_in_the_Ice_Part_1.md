@@ -163,3 +163,11 @@ Our medic, Lucas, was already at her side, trying to comfort her while frantical
 "We need to get her back to base, now," he said, his gaze flicking towards the sickly glow in the sky.
 
 "She's inhaled a lot of whatever that is. She's not the only one. We all have!"
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/14i171t/im_an_arctic_researcher_we_accidentally_released/)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/14kbzs2/im_an_arctic_researcher_we_accidentally_released/)
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/14pvoe8/im_an_arctic_researcher_we_accidentally_released/)
+
+[X](https://www.reddit.com/r/PageTurner627Horror/)

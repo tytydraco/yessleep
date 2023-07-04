@@ -148,4 +148,6 @@ Suddenly, another raven descended from the circling flock and landed on our shel
 
 "Your time will come," it croaked in a gravelly voice before taking off, disappearing into the storm. The words hung in the cold air, an ominous prophecy that made our surroundings feel even colder.
 
+[Part 4](https://www.reddit.com/r/nosleep/comments/14pvoe8/im_an_arctic_researcher_we_accidentally_released/)
+
 [X](https://www.reddit.com/r/PageTurner627Horror/)
