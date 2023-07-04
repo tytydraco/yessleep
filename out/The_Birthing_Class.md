@@ -122,13 +122,15 @@ At that, everyone in the room grows super-quiet. Which means, of course, that ev
 
 “Well,” Wendy says while taking her feet. “If you can’t act decent in polite society, then maybe you should remove yourself from it.”
 
-“And maybe you should go to hell,” I respond. “What kind of an operation is this, anyway?” I help Jemma up and notice her eyes are now a steady and unflinching purple. I worry she’s going to pop a blood vessel or something. I detect a slight, almost imperceptible quiver from the side of her neck. A lightning strike of terror assaulting my mind, speeding up my heart rate and generally making me want to faint.
+“And maybe you should go to hell,” I respond. “What kind of an operation is this, anyway?”
 
-“You’re going to have to leave,” Wendy says. “You’re upsetting the *real* mothers.”
+I help Jemma up and notice her eyes are now a steady and unflinching purple. I worry she’s going to pop a blood vessel or something. I also detect a slight, almost imperceptible quiver from the side of her neck. A lightning strike of terror assaults me, speeding up my heart rate and generally making me want to faint.
 
-“We are leaving,” I say, choking back thick spit and a strong urge to gag. “Come on, Jemma.”
+“You’re going to have to leave,” Wendy growls. “You’re upsetting the *real* mothers.”
 
-“I am pregnant,” Jemma whispers, tears pooling at the rims of her now fully purple eyes.
+“We ARE leaving,” I say, choking back thick spit and a strong urge to gag. “Come on, Jemma.”
+
+“I am pregnant,” Jemma says in a near-whisper, tears pooling at the rims of her now fully purple eyes.
 
 “She’s a veteran and this is how you treat her?” I say.
 
@@ -136,11 +138,11 @@ At that, everyone in the room grows super-quiet. Which means, of course, that ev
 
 “I believe you,” I say, taking her hand in mine.
 
-We walk out into the light of the afternoon sky, and I don’t bother once to look back at the judging eyes of Wendy Davis.
+We walk out into the bright light of the afternoon sky, and I don’t bother once to look back at the judging eyes of Wendy Davis.
 
 Jemma’s hand feels clammy as I help her into the passenger side. I turn on the air conditioning but keep the car parked. I want to try and get a handle on this situation.
 
-“That...dick!” Jemma screams.
+“That...dick!” Jemma screams, punching at the dash. 
 
 “I know,” I say. “Try to forget it. People like that aren’t worth it.”
 
@@ -164,7 +166,7 @@ She breathes in and out, sweat beading under her brows.
 
 “It’s okay. I’m sorry I didn’t take the time to understand.”
 
-She breathes in and out, again and again, and on the tenth or twelfth time she pushes, and a long, thin, snake-like creature exits her skin below the clavicle bone on her shoulder.
+She breathes in and out, again and again, and on the tenth or twelfth exhale she pushes, and a long, thin, snake-like creature exits her skin just below the clavicle bone on her shoulder.
 
 “Jesus,” I scream, recoiling. I am ashamed to say my first instinct is to run away screaming. That or bash it with something. The 'child' is something alien and unnatural. Slippery, wet, with demon-like claws and the incisors of a wolf on steroids.
 
@@ -174,7 +176,7 @@ It’s thin, an inch or so in diameter, but once unspooled its length is about s
 
 “I told you!” Jemma says with a wild-eyed smile. “I told you I was going to be a mother!”
 
-“I know you did,” I say. (I’m not sure what else to say.)
+“You sure did.” (I’m not sure what else to say.)
 
 “And now you’re a father,” she says. “If you’re willing...”
 
@@ -186,10 +188,12 @@ It’s thin, an inch or so in diameter, but once unspooled its length is about s
 
 “Yes,” Jemma says. “That Wendy Davis should do nicely.”
 
-I look into Jemma’s eyes to see if she is joking, but she is deadly serious. The snakelike little creature makes out a suckling noise with its lips. Little Cassie’s new to this world, and she’s mighty hungry. I know then that for the first time in forever, everything is about to make sense.
+I look into Jemma’s eyes to see if she is joking, but she is deadly serious. The snakelike little creature makes out a suckling noise with its lips. 
+
+Little Cassie’s new to this world, and she’s mighty hungry. I know then that for the first time in forever, everything is about to make sense.
 
 “It’s okay,” I tell our child. “Daddy's going to get you dinner.”
 
-And I also realize that it’s about time I did something in the real world, instead of partaking in simulated experiences through various media. I make my way out of the Prius, feeling how the first cave person must have felt leaving their cave.
+And I finally realize that it’s about time I did something in the real world, instead of partaking in simulated experiences through various media. I make my way out of the Prius, feeling how the first cave person must have felt leaving their cave.
 
 It’s time to hunt. It’s time to hunt for my family.
