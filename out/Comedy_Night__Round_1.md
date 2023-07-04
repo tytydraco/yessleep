@@ -776,3 +776,5 @@ We watched.
 &#x200B;
 
 And as we watched… we began to realize that whatever this was… it wasn’t just a comedy show.
+
+[Round 2](https://www.reddit.com/r/nosleep/comments/14qi8w7/comedy_night_round_2)
