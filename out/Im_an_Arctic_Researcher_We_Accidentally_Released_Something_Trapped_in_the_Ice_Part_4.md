@@ -164,7 +164,7 @@ On the second day, a light drizzle soaked us to the bone, the biting cold gnawin
 
 "I'm fine, " she insisted, but her chattering teeth betrayed her.
 
-It was clear I need to get her out of the cold and fast. Searching the shoreline, I spotted a dark recess in the cliffside. "We're going ashore," I declared, veering my kayak towards the land. Becca didn’t argue, her strength sapped by the relentless cold.
+It was clear I need to get her out of the cold and fast. Searching the shoreline, I spotted a dark recess in the cliffside. "We're going ashore," I declared, veering our kayak towards the land. Becca didn’t argue, her strength sapped by the relentless cold.
 
 We managed to pull our kayaks onto the rocky shore, the land a welcome reprieve from the icy waters. The cave we found provided some shelter from the wind, its mouth wide enough to prevent the buildup of snow.
 
