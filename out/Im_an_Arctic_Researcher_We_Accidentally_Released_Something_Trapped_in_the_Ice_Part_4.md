@@ -8,7 +8,7 @@
 
 The realization that we were ticking time bombs weighed heavily over us. As the howling winds subsided, I felt compelled to break the eerie silence. I turned on the radio, and the static-filled airwaves filled our shelter. After a few adjustments, I managed to reach Outpost Aurora.
 
-"Outpost Aurora, this is Noah Kalluk. Do you copy?" I called into the radio. After a moment of heart-pounding silence, Sonja's voice crackled to life.
+"Outpost Aurora, this is Noah Kalluk. Do you copy?" I called into the radio. After a moment of heart-pounding silence, Dr. Andersson's voice crackled to life.
 
 "Noah! We've been trying to reach you. Are you and Becca alright?" She sounded relieved to hear us.
 
