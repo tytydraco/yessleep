@@ -16,9 +16,7 @@ I worried about my parents. I didn’t want to be compared to my sister. Not aga
 
 A thin layer of ice hid beneath the fresh snow. Our feet slid, which made us laugh.
 
-“This is what my mother walks like when she’s had a few too many,” Ian said. “Then my stepfather raises hell and says he’s going to send her away again.” 
-
-Ian grimaced and bit his lip, looking suddenly like the man he might be at forty rather than fourteen.
+“This is what my mother walks like when she’s had a few too many,” Ian said. “Then my stepfather raises hell and says he’s going to send her away again.” Ian grimaced and bit his lip, looking suddenly like the man he might be at forty rather than fourteen.
 
 “My mum always says winter’s the season of death.”
 
@@ -30,23 +28,17 @@ Force a smile, I thought. If you fake happiness long enough, just maybe… Maybe
 
 Ian slipped in the slush and I caught him. This seemed to embarrass him, and for another block or so we didn’t speak. Flurries landed in our hair, taking time to melt. 
 
-The wind was persistent, but not strong. The houses that lined the streets were large, brick-fronted, friendly in that vague, American way.
-
-To me, they all looked the same, as so many of her classmates did. Ian had stood out from day one, but I couldn’t say why, exactly. 
+The wind was persistent, but not strong. The houses that lined the streets were large, brick-fronted, friendly in that vague, American way. To me, they all looked the same, as so many of my classmates did. Ian had stood out from day one, but I couldn’t say why, exactly. 
 
 This was the age of newly operative hormones. The age my parents had warned her about. Fourteen: the age Elsie had transformed from an innocent into a runaway. “And just look where that got her….”
 
 “Want another hint?” Ian asked.
 
-“No! I told you, surprise me.” I spoke through giggles, wondering if this is what flirting felt like. To fly, or to at least float out of the miasma and to catch a bit of fresh air into the lungs.
+“No! I told you, surprise me.” I spoke through giggles, wondering if this is what flirting felt like. To fly, or to at least float out of the miasma and to suck a bit of fresh air into the lungs.
 
-To me, this day had seemed the culmination of the entire fall semester at my new school. I would finally be alone with Ian, the handsome boy from my orchestra class. 
+To me, this day had seemed the culmination of the entire fall semester at my new school. I would finally be alone with Ian, the handsome boy from my orchestra class. Only now that I was nearing the moment, I didn’t know what to do, or even how to feel. I studied his face as we walked. As always, his features did not seem quite real. His eyes coal black yet plasticine, his lips a gently looping circle, his expression focused.
 
-Only now that I was nearing the moment, I didn’t know what to do, or even how to feel. I studied his face as we walked. As always, his features did not seem quite real. His eyes coal black yet plasticine, his lips a gently looping circle, his expression focused.
-
-“Today is the perfect day to show you,” he had said. “My parents won’t be home.” I wasn't sure how to take that, but before I could object he said:
-
-“That house over there is haunted." He pointed at a rancher with peeling white paint and duct taped pink shudders. The house stood apart from the others on the street. With its worn authenticity, surely it predated the development itself.
+“Today is the perfect day to show you,” he had said. “My parents won’t be home.” I wasn't sure how to take that, but before I could object he added: “That house over there is haunted." He pointed at a rancher with peeling white paint and duct taped pink shudders. The house stood apart from the others on the street. With its worn authenticity, surely it predated the development itself.
 
 “Haunted? Why?” I said in my most argumentative tone. “Because it’s not as nice as the other homes? Poor people aren’t ghosts, you know.”
 
@@ -108,9 +100,7 @@ But it was too late now to change my mind. Since Elsie’s death it seemed they 
 
 “The secret. This…thing I discovered. It’s…”
 
-I followed him down the dimly lit steps and into a partially finished basement. Down there it smelled of mold behind walls, of dampness and decay. 
-
-I felt a twinge of fear, but I wasn’t sure why. We walked past a red felt pool table, past plastic tubs of papers, past old office filing cabinets.
+I followed him down the dimly lit steps and into a partially finished basement. Down there it smelled of mold behind walls, of dampness and decay. I felt a twinge of fear, but I wasn’t sure why. We walked past a red felt pool table, past plastic tubs of papers, past old office filing cabinets.
 
 “I don’t do drugs if that's what this is about,” I stammered.
 
@@ -162,7 +152,8 @@ It was like looking into an inky mirror. The concrete gave way to phantoms, the 
 
 “Worm hole? In your cellar? And you didn’t think to ask him about it?”
 
-“No—I don’t think he wants anyone to know. He seemed fairly shady about the whole thing.”  
+“No—I don’t think he wants anyone to know. He seemed fairly shady about the whole thing.” 
+ 
 “I can see why. Maybe we shouldn’t be here. Wouldn’t he be upset?”
 
 Gripping my hand tighter, Ian’s expression turned momentarily concerned, then sour. “Who cares," he said. "Fuck old Aldous, the creep." It wasn’t quite a lie, but it also wasn’t quite an answer. It hung there between us, changing the flow of air even in that prismatic tunnel.
@@ -269,9 +260,7 @@ I was still taking it all in: “We’re…really not supposed to be here, are w
 
 “Would you, if you had access to these passageways?”
 
-“No,” I said as I grabbed ahold of a corner ledge. “I suppose not.” But what I was really thinking was that he could be here right now, or that we might run into him in the tunnel. And for some reason, I didn’t want that to happen.
-
-Feared it more than anything since arriving in America.
+“No,” I said as I grabbed ahold of a corner ledge. “I suppose not.” But what I was really thinking was that he could be here right now, or that we might run into him in the tunnel. And for some reason, I didn’t want that to happen.Feared it more than anything since arriving in America.
 
 “Shit,” Ian said. “I think I perma-fucked my phone.” He smiled at me and held up a dripping iPhone. “Second time this week. Good thing it wasn’t plugged in, or we’d literally be toast.”
 
@@ -295,9 +284,7 @@ Apparently they were five minutes away from calling hospitals and the police had
 
 I missed my sister.
 
-The next day, Ian was absent from school. His fourth celloist chair sat empty that morning. 
-
-And the next, and the day after that. 
+The next day, Ian was absent from school. His fourth celloist chair sat empty that morning. And the next, and the day after that. 
 
 The weekend came, and I felt no relief. I had wanted to discuss the tunnel with someone, and Ian was the only person who wouldn’t think me crazy.
 
@@ -309,7 +296,7 @@ I recalled Elsie’s soft voice discussing high school, reprimanding our parents
 
 Why did you run away, Elsie? Was it really all that bad?
 
-But by then it seemed that everyone I grew close to was destined to disappear for good. By that Monday, Ian’s disappearance was the talk of the community.
+But by then it seemed that everyone I grew close to was destined to vanish for good. By that Monday, Ian’s disappearance was the talk of the community.
 
 “Missing,” everyone gasped. “Four days now…” “He vanished just like that…” snapped fingers and clenched jaws.
 
