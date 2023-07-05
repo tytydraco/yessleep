@@ -99,3 +99,7 @@ I just peeked out the window and right now he’s out in the barn. I don’t kno
 If something is wrong- that means it wasn’t a dream.
 
 Maybe that’s not my husband at [all.](https://www.reddit.com/r/SunshineScarystories/comments/x88quz/story_index/)
+
+&#x200B;
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/14rekxa/i_thought_moving_to_the_country_would_be_a_good/)
