@@ -22,6 +22,3 @@ Your probably wondering why Im writing this. A girl went crazy and killed hersel
 "Izzy, sector 4Q has been breached. All of NASA's capative lifeforms, aliens, are on the loose." 
 
 "RUN."
-
-
-[A short story by Jay, a reddit user who thought of it during a bath]

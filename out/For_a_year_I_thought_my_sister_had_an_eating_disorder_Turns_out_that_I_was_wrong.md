@@ -92,17 +92,17 @@ It was as I stepped out across the landing that I saw the door to Leda's room wa
 
 Most likely she'd either gotten up to make herself secretly sick, or else snuck out to see one of her weird new friends; both had happened before, and I regretted not having tried to intervene. Running a hand through my tousled hair, I turned back to my room, intending to get dressed and head out in search of her.
 
-Then I heard it: a low, throaty groan, a sound either sensual in nature, or of pain, or both at once; even then, I'd heard of such things, even stumbled upon them in my boyish ventures on the internet. It was coming from the direction of my father's bedroom, and as a muttered, indistinct word followed I understood that he was not alone.
+Then I heard it: a groan of pain, more like a bovine lowing than any human sound. It was coming from the direction of my father's bedroom, and as a muttered, indistinct word followed I understood that he was not alone.
 
 I stopped in the hallway, my gut a pit of sour consternation.
 
-Dad hadn't found another partner after my mother, was too chronically shy to attempt the dating world all over again. If there was another person in his room with him then it could only be my sister, and I knew that I could not in good faith leave her alone if one of them was unwell.
+Dad hadn't found another partner after my mother, was too chronically shy to attempt the dating world all over again. If there was another person in his room with him then it could only be my sister, and I knew that I could not in good faith leave her alone if one of them was hurt, or unwell, another blight on the family.
 
-The other possibility of what she might be doing there nudged at me as I stepped towards the door, breathing its sickly warmth against the back of my neck. I did not let it in, my mind a careful blank as I wrapped my fist around the knob and peered into the room.
+Such possibilities—my sister was dying, like my mother, she was lost to us, a spirit in the trees—nudged at me as I stepped towards the door, breathing their sickly warmth against the back of my neck. I did not let it in, my mind a careful blank as I wrapped my fist around the knob and peered into the room.
 
-Two figures lay together in the semi-dark, colored only by the nauseous tungsten light of my father's bedside lamp. My Dad lay across the mattress, white as a pig's belly, and perspiring so heavily that the air was thick with his unwashed reek. Apart from a pair of sad, greying sleep shorts, his legs were bare, my sister crouched on all fours between them, her face pressed to his upper thigh.
+Two figures were together in the semi-dark, colored only by the nauseous tungsten light of my father's bedside lamp. My Dad lay across the mattress, white as a pig's belly, and perspiring so heavily that the air was thick with his unwashed reek. My sister crouched before him, her face pressed to his gleaming skin.
 
-Hair fell about her slender back in damp, filthy clumps, and as I watched her spine jerked and spasmed like a clay figure in a poorly done stop motion picture. 
+Hair fell about her slender back in damp, filthy clumps, and as she half-turned at the sound of my entry the fractious motion was like a clay figure in a poorly done stop motion picture. 
 
 I fell sideways against the door, my balance capsized by bilious horror.
 
@@ -110,8 +110,8 @@ I fell sideways against the door, my balance capsized by bilious horror.
 
 "It's not what you think, Jonathan!" my Dad protested, weakly, though not even attempting to rise from the bed towards me. "After what happened it's the only way! I've been doing this for months; I tried to hide it. She asked me to. At first I said no, but I had to give in; I'm losing my mind, you've got to believe me—"
 
-He pushed at Leda ineffectually, unable to dislodge her from his leg even with all his strength. It was only when I said my sister's name that she looked up, her eyes drenched in the black of that afternoon, and I saw that her face wore a grin of blood, that her little feral hands were slick with it.
+He pushed at Leda ineffectually, unable to dislodge her from him with all his strength. It was only when I said my sister's name that she looked up, her eyes drenched in the black of that afternoon, and I saw that her face wore a grin of blood, that her little feral hands were slick with it.
 
-A vein in my Dad's thigh was open, seeping its contents in a lazy stream upon the sheets.
+One of my Dad's veins was open, seeping its contents in a lazy cloud through the sheets.
 
 "She's been eating," said my father, wearily. "In her own way, she's been eating all along."
