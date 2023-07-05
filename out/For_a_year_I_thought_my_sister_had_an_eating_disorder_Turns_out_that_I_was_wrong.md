@@ -108,7 +108,7 @@ I fell sideways against the door, my balance capsized by bilious horror.
 
 "What the fuck is this?"
 
-"It's not what you think, Jonathan!" my Dad protested, weakly, though not even attempting to rise from the bed towards me. "After what happened it's the only way! I've been doing this for months; I tried to hide it. She asked me to. At first I said no, but I had to give in; I'm losing my mind, you've got to believe me—"
+"It's not what you think, Johnathan!" my Dad protested, weakly, though not even attempting to rise from the bed towards me. "After what happened it's the only way! I've been doing this for months; I tried to hide it. She asked me to. At first I said no, but I had to give in; I'm losing my mind, you've got to believe me—"
 
 He pushed at Leda ineffectually, unable to dislodge her from him with all his strength. It was only when I said my sister's name that she looked up, her eyes drenched in the black of that afternoon, and I saw that her face wore a grin of blood, that her little feral hands were slick with it.
 
