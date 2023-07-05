@@ -3,7 +3,7 @@
 
 Those were my philosophy professor’s words before he killed himself right in front of us.
 
-Several weeks ago, I would have said yes without hesitation. I think anyone would have. The possibility of never seeing death has always been at the back of my mind since becoming aware of it as a kid. I have always been terrified of death, in the exact way everyone else is. On a road trip with my best friend, the question came up late at night with the sun bobbing across the horizon. 
+A year ago, I would have said yes without hesitation. I think anyone would have. The possibility of never seeing death has always been at the back of my mind since becoming aware of it as a kid. I have always been terrified of death, in the exact way everyone else is. On a road trip with my best friend, the question came up late at night with the sun bobbing across the horizon. 
 
 I was sticking my head out of the window, enjoying the cool air whipping my hair from my eyes, when she asked me out of nowhere. I said yes, of course, I did. Who wouldn’t want to cheat death and see a new millennium and several after that? Who didn’t want to stop aging at 21 and never see wrinkles lining their face? I grew up watching commercials for skin creams and anti-aging formulas and ignored them because, in my kid mind, I was going to live forever. I saw my youth as never-ending because as kids we don’t really think about death. I explained this to my friend, and she nodded and smiled through the whole thing, before turning to the road and gripping the steering wheel tighter. “Nah.” She told me with a smile.
 
