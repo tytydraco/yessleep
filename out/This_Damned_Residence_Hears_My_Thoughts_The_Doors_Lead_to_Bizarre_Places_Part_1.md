@@ -28,4 +28,4 @@ Turning around and going back is the smartest idea. Well, for that to happen, th
 
 Back in the dim cinema, I am slowly losing hope. Why did they build a vault in here? This whole building, this living set of vicious walls, is one great impenetrable optical illusion. Such an irregularly branching and confusing cluster of compartments. The nightmare of every burglar. But I am just a visitor! Residence, why do you scold me for my curiosity? I came to admire you.
 
-As though it heard my unspoken message. The fourth door opens by itself. I need to gather some courage before I head to the fourth room. Please pray for my safety.
+As though it heard my unspoken message. The fourth door opens by itself. I need to gather some courage before I head to [the fourth room](https://www.reddit.com/r/nosleep/comments/14rcz23/this_damned_residence_hears_my_thoughts_its_heart/).
