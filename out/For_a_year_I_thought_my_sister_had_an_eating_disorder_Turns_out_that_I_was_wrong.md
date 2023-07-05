@@ -46,7 +46,7 @@ One afternoon, my sister had taken a shortcut home from school through the same 
 
 There had been a man there, acting strangely, as men hanging out in the woods are wont to do. Leda had kept up a brisk walk past him, and was almost out of the area when the stranger had put a hand on her shoulder, pulling her back into the trees, into the dark.
 
-The details were as frank as undecorated as that, their baldness as vicious as a slap. Apparently there had been some description given of the man, however, for he had recently been seen again in the area, and the police wanted to know if Leda could help with the investigation.
+The details were as frank and as undecorated as that, their baldness as vicious as a slap. Apparently there had been some description given of the man, however, for he had recently been seen again in the area, and the police wanted to know if Leda could help with the investigation.
 
 The worst thing about that living room talk was the absolute chaotic awkwardness of it all— my father, stuttering and blinking like he'd shot up sometime in the past half hour, our sheepdog Britney leaping around everyone's legs, yapping in joyous obliviousness to the severity of the situation, Leda picking at the skin around her fingernails, staring through the floor, an unyielding mute.
 
@@ -92,7 +92,7 @@ It was as I stepped out across the landing that I saw the door to Leda's room wa
 
 Most likely she'd either gotten up to make herself secretly sick, or else snuck out to see one of her weird new friends; both had happened before, and I regretted not having tried to intervene. Running a hand through my tousled hair, I turned back to my room, intending to get dressed and head out in search of her.
 
-Then I heard it: a low, throaty groan, a sound either sensual in nature, or of pain, or both at once; even then, I'd heard of such things, even stumbled upon them in my boyish ventures on the internet. It was coming from the direction of my father's  bedroom, and as a muttered, indistinct word followed I understood that he was not alone.
+Then I heard it: a low, throaty groan, a sound either sensual in nature, or of pain, or both at once; even then, I'd heard of such things, even stumbled upon them in my boyish ventures on the internet. It was coming from the direction of my father's bedroom, and as a muttered, indistinct word followed I understood that he was not alone.
 
 I stopped in the hallway, my gut a pit of sour consternation.
 

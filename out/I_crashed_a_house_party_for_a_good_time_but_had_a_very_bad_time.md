@@ -65,6 +65,7 @@ I was just about to grab him and high-tail it out, when Congelia returned. She b
 “I have to find my friend. He’s drank a bit too much bifula if you know what I mean.” I said to her, forcing a smile.
 
 “It will only take a moment.” She promised. I pondered for a moment. I had two options, both very compelling. One was to grab Hunter and run away from the crazy woman who claimed to be a breeding prospect and the second, arguably more natural choice, was to have my way with her then grab Hunter and run away. I’m a weak, weak man, and crazy is some of the best sex I’d had in my life.  
+
 “I can be quick.” I said to her, she smiled, an upside-down smile, then grabbed my nose and started pulling me up the stairs. I caught a glance at Hunter on the way, twirling and swirling around, as two suited men glared. I had to be real quick.
 
 She only let me go when we were in an extremely neat and tidy bedroom. She shut the door behind us. Congelia paused in front of a mirror and began to rip off her earrings, tearing the skin as went. She never flinched. *Crazy bitch.*
@@ -99,8 +100,14 @@ In the chaos of the moment, I somehow managed to grab him and get him out. So fu
 
 My back was covered in burns from whatever acid they had spat at me as I fled. It was most superficial, but it had burnt a hole through my best shirt. Hunter managed to fall asleep, and I was quite convinced that in the morning, he’d have no recollection of the night. 
 
-I was prepared to file it away in horrifying things I pretended never happened, something that’d keep me up at night, and that I’d drown in alcohol or drugs. It wasn’t to be the case. I’m writing this here, not to share a story, but to warn you, I don’t think I’m going to be around for much longer to raise the alarm bells that very clearly need to be rung. 
+I was prepared to file it away in horrifying things I pretend never happened, something that’d keep me up at night, and that I’d drown in alcohol or drugs. 
 
-It started with Congelia, now back in her human form, though missing an arm. She stood at the front of my flat with a blank expression. Then were was another and another. There’s about fifty as I write this here today. 
+It wasn’t to be the case. 
 
-The police have been called again. They’re on their way, I’m pretty sure they think I’m the victim of some elaborate prank, and I so very hope they’re right, because I can hear them heading up my stairs.   
+I’m writing this here, not to share a story, but to warn you, I don’t think I’m going to be around for much longer to raise the alarm bells that very clearly need to be rung. 
+
+It started with Congelia, now back in her human form, though missing an arm. She stood at the front of my flat with a blank expression, just staring.Then were was another and another. There’s about fifty as I write this here today. 
+
+The police have been called again. 
+
+They’re on their way, I’m pretty sure they think I’m the victim of some elaborate prank, and I so very hope they’re right, because I can hear them heading up my stairs.
