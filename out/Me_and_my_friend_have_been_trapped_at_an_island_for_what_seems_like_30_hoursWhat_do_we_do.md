@@ -1,4 +1,4 @@
-Part 2 :  https://www.reddit.com/r/nosleep/comments/14q9m7f/me\_and\_my\_friend\_have\_been\_trapped\_at\_an\_island/
+Part 2 :  [https://www.reddit.com/r/nosleep/comments/14r5qpm/me\_and\_my\_friend\_have\_been\_trapped\_at\_an\_island/](https://www.reddit.com/r/nosleep/comments/14q9m7f/me_and_my_friend_have_been_trapped_at_an_island/)
 
 it all started about 1 day ago.Me And my friend Boarded a boat which led to a So called: "Very expensive Island".We got the ticket by scrolling trough giveaway Websites.The Website was so called:"Mary's Boat Anniversary."
 
