@@ -24,7 +24,7 @@ I stood up, pulling my pj's together to not flash the flash mob that now command
 
 "A 'yellow' house?" My wife said. "What's going on here?" She squinted and took on the disciplinarian role she had honed so well as a middle school teacher. "Bobby \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_?" she said. "Is that you? What are you mixed up in?"
 
-That's when the ringleader explained about the *traffic signal game*. He said that a bunch of the teens who were particularly ego-conscious had been brainstorming environmentally friendly ideas in the high school eco club when somebody joked killing off all the old people who "fucked the environment in the first place" might be one way to reduce the carbon footprint. It started as a joke, the ringleader continued, but in time the idea "took on a life of its own." Culminating in further recruitment and then voting to assign a 'carbon score' to each of their neighbors. Green homes could be murdered freely, red should be left alone, and yellow meant caution, which came with its own set of rules.
+That's when the ringleader explained about the *traffic signal game*. He said that a bunch of the teens who were particularly eco-conscious had been brainstorming environmentally friendly ideas in the high school eco club when somebody joked killing off all the old people who "fucked the environment in the first place" might be one way to reduce the carbon footprint. It started as a joke, the ringleader continued, but in time the idea "took on a life of its own." Culminating in further recruitment and then voting to assign a 'carbon score' to each of their neighbors. Green homes could be murdered freely, red should be left alone, and yellow meant caution, which came with its own set of rules.
 
 "And what rules would those be," I said, cutting off the raving lunatic and his cronies.
 
@@ -64,6 +64,6 @@ Our town was so small, we had state police. I'm not sure if anyone even knows wh
 
 'Yellow' is how they rated me. Caution.
 
-But I caution you, mature readers, as you go about your business the next few days, to keep your eyes open about the youth. They think that our climate is more important than human life. The teens in our town have lost their ever-loving minds! And I tell you with all sincerity and fear, that your town could be next.
+But I caution you, mature readers, as you go about your business the next few days, to keep your eyes open about the youth. They think that our climate is more important than human life. The teens in our town have lost their ever-loving minds! And I warn you with all sincerity and fear, that your town could very well be next.
 
 Mind your teens. Fear the night. Beware the traffic signal game!
