@@ -234,3 +234,5 @@ I kept staring down the long corridor of the first floor. It seemed to be infini
 On the left side of the door, a lightbulb came to life. Its dim pale bluish hue illuminated an ordinary door. But that wasn’t all.  On the floor, right in front of the door, was a small box with a harlequin head drawn on it. A small handle on one side began slowly rotating, and a creepy tune began playing.
 
 [A Jack-in-the-Box.](https://www.reddit.com/r/PostMortem33/comments/gpnh5h/story_masterpost/)
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/14sg47q/how_to_escape_a_haunted_house_using_a_list_of/)
