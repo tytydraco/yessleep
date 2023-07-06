@@ -21,4 +21,4 @@ Or this problem will forever last*
 
 This was scary on its own, but the next night, when I was at the party, someone dressed as Sam, the character from the calendar, stared at me the whole time. This hadn’t happened in any other loops.
 
-Do any of you guys have a similar problem? I figured if anyone knew how to fix this, it would be reddits community of no-sleepers! With all the crazy experiences I’ve read on this sub, surely you guys could help me before it’s too late?
+Do any of you guys have a similar problem? I figured if anyone knew how to fix this, it would be reddits community of no-sleepers! With all the crazy experiences I’ve read on this sub, surely you guys could help me before it’s [too late?](https://www.reddit.com/r/nosleep/comments/14sfzs0/ive_been_stuck_in_halloween_2022_for_almost_250/?utm_source=share&utm_medium=ios_app&utm_name=ioscss&utm_content=2&utm_term=1)?
