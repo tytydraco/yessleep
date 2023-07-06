@@ -15,7 +15,7 @@ A month passed, Haley continued her work in sector 4Q. An eerie quiet fell upon 
 
 "YOU SHOULD BE SCARED! RUN! THEY'LL KILL YOU, YOUR ALL DEAD, YOUR A DEAD WOMEN WALKING IZZY!" She lunged, grabbibg my neck and we topple onto the floor smashing my head on the ground. The pharmacy waiting area fills with screams of terror, and Haley begins sobbing as I gasp for air. What the fucks going on? Haley, my calm and intelligent friend of 21 years is mid breakdown crawling away from me and clawing at her eyes and face.
 
-All i could do was watch as she was dragged away by security. She killed herself that same day, blunt force trauma to the head.
+All i could do was watch as she was dragged away by security. She killed herself that same day.
 
 Your probably wondering why Im writing this. A girl went crazy and killed herself due to the pressure of her job, and left a mystery note. Well, I'll tell you. Because I fear I will be following in her footsteps soon. I found the note in her pill jar when cleaning out her office with my uncle. She had no other relatives to do it. It read two lines, 2 lines that made me heave in absolute horror.
 
