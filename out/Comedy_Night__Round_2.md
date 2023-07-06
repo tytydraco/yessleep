@@ -527,3 +527,5 @@ In the kitchen, we watched as they prepared Janine’s body. She wasn’t even d
 &#x200B;
 
 Harry turned and went backstage without a word, but Johnny and I stood and watched the whole time, silently mourning her… and knowing that at least one of us would soon be joining her.
+
+[Round 3](https://www.reddit.com/r/nosleep/comments/14rux2p/comedy_night_round_3)
