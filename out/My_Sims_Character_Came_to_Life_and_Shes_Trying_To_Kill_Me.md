@@ -1,0 +1,43 @@
+Okay, let me explain. I know it sounds crazy, and I definitely know I'm not crazy. Hell, even my best friend thinks I'm crazy. Why would I be crazy? 
+
+I was at the bar with Jimmy, my best friend. We shared laughs over drinks since we were just young guys in college. Now, dropped out of college, although in our dream jobs, our meetings over drinks became more common since we weren't so busy working and having school responsibilities simultaneously. Anyways. 
+
+"So, you streaming tonight?" Jimmy asked, beginning his fourth Bud Light so far. Jimmy usually became drunk on his fourth beer, so I laughed at his slightly slurred speech. "You know that I'd rather chill with you and the guys; I told everyone in a Discord announcement I'd have to take a break. They don't know my hangovers are hell," I replied, chuckling as I drank.
+
+Jimmy nodded, shifting in his seat. "You just haven't streamed in a long time. It's stressful to moderate for you when everyone is asking when you'll be live again. It wouldn't be a big deal if you had like 100 fans, but you have 100,000..." Jimmy mumbled. 
+
+I sighed. I don't know what came over me, probably the alcohol, but I decided to tell Jimmy the truth after not being honest with him for days. "Jim, I really don't know how to say this. I know it sounds fucking insane, but I need you to believe me."
+
+Jimmy looked up from the bar counter and raised a concerned eyebrow. I could see the sliver of worry in his brown eyes. "I was going to stream The Sims again, so I launched the game and opened the character creator. I messed around with it before streaming. I made this really sexy girl, blonde hair, blue eyes, skinny, all that. I saved it, put her in a house, then left it open while I went to make some food before starting the stream. I kept the game paused, obviously, but when I came back, the game was unpaused, and the girl's face was just in the entire frame of the camera, just wide eyes and smiling and shit. The game time was the exact time I came back to the computer, so it freaked me the fuck out, and I closed it. I ended up not streaming and told everyone in the Discord that I threw up after some bad Applebees or some shit." I sighed after saying it all, glancing over at Jimmy. 
+
+Jimmy didn't say anything for a bit, then he just started dying laughing. "Hey!" I yelled, "I'm being serious, maaaan!" my silly apprehensive voice didn't help my case, because Jimmy only laughed harder. "Dude, you crack me up. I thought you'd just been hella high or drunk and didn't want to stream in case you got banned. I didn't know that was why," Jimmy chortled.
+
+"Yeah, the thing is that I've just been too scared to go near my computer. Can't stream without it," I replied, taking a sip of my drink. 
+
+"You were probably just hella out of it. Try again tomorrow after you get over the hangover," Jimmy said as he shrugged. I sighed. He was probably right. Just imagining it. 
+
+I called my girlfriend, Maisie, to drive me home from the bar. I waved goodbye to Jimmy and shot him a thumbs up, reassuring him that I'd try again. In the car, Maisie sighed when she smelled my breath. She refused to kiss me too. "Are you going to stream soon?" She asked with a frown. Maisie works at Starbucks, but our main source of income is me. I felt sheepish answering the question. 
+
+"Yeah, I just haven't been inspired lately. But Jimmy really motivated me to try again. Don't worry," I said with a small smile. Maisie smiled too, a genuine reaction.
+
+"I feel bad for him sometimes. His only way of making money is from moderating your streams and Discord server. I feel like he's too smart for that," Maisie muttered, taking a right turn into our neighborhood. 
+
+I sighed. We had this talk before. Maisie would probably be more disappointed if she found out I basically pressured Jimmy to drop out of college so we'd have more time to stream and make money from it. Jimmy was trying to be a physicist, while I was just in college to make my parents happy and to fuck around. But I'm charismatic, something Jimmy is not. 
+
+Maisie's black hair fell over her eyes while her smile from earlier turned into a frown. The conversation ended there -  before I could reply to her thoughts. We parked in the driveway, and Maisie went to bed immediately. I did feel bad waking her up to pick me up from the bar, but we're so used to it that I don't bother apologizing anymore. She told me she'd often rather just pick me up than me, Jimmy, or one of our dumb friends driving drunk. While Maisie slept in our bed, I sat at my desk in my streaming room, nervous to press the computer's power button. *Come on, Sebastian, it's just a game*, I told myself.
+
+I pressed the power button and waited for my computer to boot. I didn't intend to stream at that moment, but out of curiosity, I launched The Sims. I loaded up the "Hot Babe" household and watched my half-naked character sit on the couch, eat food, and use the bathroom, nothing out of the ordinary. I sighed in relief and kept playing. Slowly, I felt no fear and just had fun playing the game. 
+
+I was tired, but I kept playing. It was kind of entrancing. Eventually, though, I fell asleep at my desk. I think I slept for a few hours before being woken up. I woke up to my face being caressed by small, warm hands. I assumed it was Maisie waking me up before she went to work, so I opened my eyes. Instead of being met by my 5'4", brown-eyed, black-haired girlfriend, I saw a stranger. A 5'8", tan, blonde, blue-eyed stranger. She wore a red strapless dress, a black garter, and tall red heels. Her blonde hair was curled to perfection, and she wore red lipstick.
+
+"Hello, gorgeous," she said, smiling. I assumed I was dreaming, so I smiled back. I knew instantly she was the Sim from my game. She looked precisely, to a T, perfect to what I made her. You can imagine what happened next between us. We immediately went at it and I was over the moon the entire time. The dream felt so real and I never wanted to wake up. Her body, her voice, her face, it was all that I created. We went at it for what felt like an hour in my streaming room before a groggy Maisie opened the door. "What the-" she began, her face in shock. Immediately, my Sim at what seemed to be the speed of light, like a glitch, leaped at Maisie and killed her instantly. It was like a black flash of light almost, it all happened so fast. After seeing that, I was so scared. I pinched myself, the pain feeling all too real. I felt the breath knocked out of me suddenly, realizing this may not be a dream after all. 
+
+My Sim, still naked, smiled sweetly at me, covered head to toe in Maisie's blood. I kept walking backward until I hit the wall. "Now there's no one between us. Sebastian, the moment you created me I wanted us to be together. I knew I had to have you."
+
+"Please, I'll give you money, whatever you want," I begged, my hands over my face. She grabbed my throat, still smiling. "I want you to stream this, who you really are," she said, her hand pointing at Maisie's body. I slowly nodded, shakily walking toward my desk. I set up my webcam and everything else while she laid her head on my shoulder. I titled the stream, "Who I really am" and positioned the camera to face Maisie's dead body. Thousands of people joined in a few minutes, Jimmy being one of them. The second he joined, I received dozens of calls and texts from him.
+
+"What the fuck man???" "WHAT DID YOU DO" "HOW COULD YOU DO THIS" "I'M GETTING THE COPS OVER TO YOU NOW, YOU NEED HELP. STAY THERE AND DON'T HURT YOURSELF, OKAY?"
+
+I couldn't stop crying and didn't manage any texts back to Jimmy. The Sim held me up in the air by my throat. She played with me like this for what seemed like ages. She would choke me, but before I died, she'd drop me back to the ground. And repeat. It was torture. 
+
+Eventually, she was distracted by the stream, so I made a run for it out of the house. I made it to a neighbor's house but they were ultimately confused when I told them a woman killed my girlfriend and hurt me repeatedly. They didn't see any injuries on me, but they let me in regardless. I'm typing this out right now at my neighbor's house. The police just showed up, and they told me that multiple people have reported me after seeing my Twitch stream and they came to arrest me. The cops told me that multiple people told them that I killed my girlfriend on my livestream. I kept trying to tell them about the woman inside my streaming room, but they told me to save my excuses. When I checked the stream on my phone, The Sim isn't there. Just Maisie's body.
