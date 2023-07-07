@@ -512,4 +512,4 @@ But I needed to be there. I needed to watch as my friend was taken apart. We’d
 
 &#x200B;
 
-And when there was nothing left that I could recognize as Johnny Sawyer, I quietly went backstage, and prepared for Round 4.
+And when there was nothing left that I could recognize as Johnny Sawyer, I quietly went backstage, and prepared for [Round 4.](https://www.reddit.com/r/nosleep/comments/14sub4h/comedy_night_final_round/)
