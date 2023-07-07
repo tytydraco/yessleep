@@ -111,3 +111,5 @@ My ankles weren’t fairing any better, they looked like they had gotten burnt, 
 Maybe you guys can help me out until Jackson comes. I’m too scared to go back inside, that thing didn’t look like it wanted to chat.
 
 [X](https://www.reddit.com/r/abduladhlazeez/)
+
+[Part 02](https://www.reddit.com/r/nosleep/comments/14t5fn1/the_bermuda_triangle_update_i_shouldnt_have_dated/)
