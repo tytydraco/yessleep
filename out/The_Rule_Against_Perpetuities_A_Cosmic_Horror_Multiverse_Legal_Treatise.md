@@ -238,6 +238,6 @@ We later worked out a deal that I would have the opportunity to take a few days 
 
 I’ve begged Jessa to let me come along into Magderna, but she just shook her head and replied that “then it would no longer be a utopia.” I guess she means it would be too difficult to live in a world where a perfect specimen like me also existed. It would make everyone else feel insane with jealousy. (Or maybe it’s just the romantic tension would be too much for her to handle.) I get it, as anyone can see with regular or technologically enhanced eyes, I'm sort of a catch.
 
-So, I’ve decided to give her some time to think things over. Because if there is one thing this young property professor knows well, it’s that people are hard to understand, regardless of the galaxy (or galaxies) they are from. But every time I blink, I still see the outline of some distant universe, and I think of her and the good old times we will surely have someday in new Eden.
+So, I’ve decided to give her some time to think things over. Because if there is one thing this young property professor knows well, it’s that intelligent lifeforms are hard to understand, regardless of the galaxy (or galaxies) they are from. But every time I blink, I still see the outline of some distant universe, and I think of her and the good old times we will surely have someday in new Eden.
 
 Can’t wait…
