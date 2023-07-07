@@ -103,3 +103,7 @@ Maybe that’s not my husband at [all.](https://www.reddit.com/r/SunshineScaryst
 &#x200B;
 
 [Part 2](https://www.reddit.com/r/nosleep/comments/14rekxa/i_thought_moving_to_the_country_would_be_a_good/)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/14te2gd/i_thought_moving_to_the_country_would_be_a_good/)
+
+&#x200B;

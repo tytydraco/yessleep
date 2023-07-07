@@ -248,7 +248,7 @@ I racked my brain to make sense of what I was witnessing. The old tales of Sedna
 
 Becca cocked her head towards me, the tendrils in her eyes pulsating with a strange, unnatural rhythm. A haunting smirk played on her lips, a perverse mockery of the confident smile I had grown accustomed to seeing. She raised her mutilated hand to me, her thumb and forefinger forming a sinister beckoning gesture.
 
-Her voice, when she spoke, was a haunting echo of the woman I had known. “Qaniqsiutitagmit…” "Join us…"
+Her voice, when she spoke, was a haunting echo of the woman I had known. "Join us…"
 
 [Part 5](https://www.reddit.com/r/nosleep/comments/14t63ql/im_an_arctic_researcher_we_accidentally_released/)
 

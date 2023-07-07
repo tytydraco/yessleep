@@ -177,3 +177,5 @@ We all said yes in unison. A light turned on on the left side of the side, illum
 “I think we gotta go through there, right?” Eddie said, pointing at the door.
 
 “[Here we fucking go again with this shit](https://www.reddit.com/r/PostMortem33/comments/gpnh5h/story_masterpost/),” Vince replied.
+
+[FINAL](https://www.reddit.com/r/nosleep/comments/14teix9/how_to_escape_a_haunted_house_using_a_list_of/)
