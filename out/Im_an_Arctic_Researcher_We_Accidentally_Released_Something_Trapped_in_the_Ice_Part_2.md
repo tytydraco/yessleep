@@ -212,4 +212,6 @@ The creature looked at us, its eyes vacant and unblinking. Then, it tilted its h
 
 [Part 4](https://www.reddit.com/r/nosleep/comments/14pvoe8/im_an_arctic_researcher_we_accidentally_released/)
 
-[X](https://www.reddit.com/r/PageTurner627Horror/)
+[Part 5](https://www.reddit.com/r/nosleep/comments/14t63ql/im_an_arctic_researcher_we_accidentally_released/)
+
+[X](https://www.reddit.com/r/PageTurner627Horror/comments/14kagjn/i_found_a_time_capsule_with_a_letter_inside_that/)
