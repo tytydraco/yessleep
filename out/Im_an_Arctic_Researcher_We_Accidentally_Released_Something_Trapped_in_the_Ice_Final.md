@@ -104,7 +104,7 @@ In my haze of fear and exhaustion, the helicopter was another menacing figure, a
 
 With a shaky hand, I fired the flare. The sudden light, brilliant against the gray sky, arched upwards, a fiery serpent against the dull expanse. The sharp smell of gunpowder filled my nostrils, momentarily overpowering the stench of decay that still clung to my clothes. It was a desperate attempt to ward off my tormentor, a signal flare that carried more of a plea for mercy than a call for help.
 
-The helicopter veered towards flair, like a moth drawn to a flame.
+The helicopter veered towards the flair, like a moth drawn to a flame.
 
 The last thing I remember was the sudden brightness, an intense spotlight blinding me. A rush of noise, the helicopter descending, shouting voices, the crunch of boots on snow. And Then, with a nauseating lurch, the world turned black.
 
