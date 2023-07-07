@@ -1,6 +1,6 @@
 I am in deep trouble. My name is David, and I am 17 years old. And, I am in deep, deep trouble.
 
-It all started on my Discord server, where I would hang out with some friends after school. You know, the usual stuff. In the past weeks, we had mainly been discussing creepy things on the internet and fooling around. We were constantly trying to one-up each other with the scariest creepypasta, ARG, or whatever we stumbled upon. As you probably know, there is horrific content out there, with layers upon layers of disturbing stuff for people to explore. I knew two of the guys from the Discord server in real life, and another guy joined us when we were looking for teammates to play some more competitive games. That's how it all started. I think you get the picture.
+It all started on my Discord server, where I would hang out with some friends after school. You know, the usual stuff. In the past weeks, we had mainly been discussing creepy things on the internet and fooling around. We were constantly trying to one-up each other with the scariest creepypasta, ARG, or whatever we stumbled upon. As you probably know, there is horrific content out there, with layers upon layers of disturbing stuff for people to explore. I knew two of the guys from the Discord server in real life, and another guy joined us when we were looking for teammates to play some more competitive games. That's how it all started. I think you get the picture.
 
 This evening, after sharing some disgusting links to pages supposedly from the dark web (yes, I know they were fake), the others logged off earlier for various reasons. So, I was left alone, browsing through some sickening pictures of weird creatures in a forest and their alleged victims when a new unkown user entered.
 
@@ -40,7 +40,7 @@ But she clearly needed help.
 
 I answered the call.
 
-Her webcam had poor quality, and I couldn't make out much. The room behind her was dimly lit and dark. I saw one or two posters on the wall and a wardrobe, as well as the edge of a door, but not much else. Her face was illuminated by the light from her screen. She appeared to be a bit older than me, maybe around 20 or 21, though I was never good at guessing ages when it came to girls. Despite the stunning beauty she might be under normal circumstances, her appearance emitted a sense of dread. 
+Her webcam had poor quality, and I couldn't make out much. The room behind her was dimly lit and dark. I saw one or two posters on the wall and a wardrobe, as well as the edge of a door, but not much else. Her face was illuminated by the light from her screen. She appeared to be a bit older than me, maybe around 20 or 21, though I was never good at guessing ages when it came to girls. Despite the stunning beauty she might be under normal circumstances, her appearance emitted a sense of dread.
 
 She had a smooth face framed by long blonde hair and brightly colored red lips. It seemed like she had once cared a lot about her appearance, but now she looked as if she had been through hell. Her hair was unkempt, with strands resembling hay. Her eyes were green and radiant, but her eyeshadow had been washed away by tears, leaving dark stains all over her cheeks. However, the most horrifying thing was the dried blood that covered the left side of her face. Her features were contorted in pain, resembling a mask.
 
@@ -62,7 +62,7 @@ The words poured out of me. I wanted to help her, but I didn't know how. She sta
 
 She buried her face in her hands and started shaking.
 
-"Okay, Aubrey. Calm down. I will help you. I promise. We will get you out of this situation. Just try to calm down. Take deep breaths..." I said, unsure if it would work, but I had to say something. 
+"Okay, Aubrey. Calm down. I will help you. I promise. We will get you out of this situation. Just try to calm down. Take deep breaths..." I said, unsure if it would work, but I had to say something.
 
 I had stopped considering disconnecting the call. I just wanted her to be safe.
 
@@ -86,7 +86,7 @@ Suddenly, I received a message on WhatsApp. It was a link. I could see it on the
 
 ***If you want to give HER a chance, click the link, LIKE the video and SUBSCRIBE. Otherwise, she will SUFFER. More than you can IMAGINE.***
 
-What the fuck was going on? What the fuck was this message? 
+What the fuck was going on? What the fuck was this message?
 
 The number it was sent from was hidden, but I tried to answer. However, I couldn't input any text. The messenger wasn't working properly, and after a few attempts, I realized that all I could do was click the link—the link to the channel.
 
@@ -96,7 +96,7 @@ But she didn't seem to hear me. She froze and suddenly leaned forward, her face 
 
 "David, please, you have to click the link. It's from my Friend, it has to be! You have to click it, please! I'm begging you!"
 
-I still hesitated. I could just click it, or I could shut off the computer. She would be gone, disappeared into whatever hell she was experiencing right now. I could just leave her there. Maybe this was all just an act or a prank. But I would never know what happened to her, never know what became of her. Was someone holding her hostage? Was there some sicko who had locked her up and was playing mind games with her? Who or what had hurt her? 
+I still hesitated. I could just click it, or I could shut off the computer. She would be gone, disappeared into whatever hell she was experiencing right now. I could just leave her there. Maybe this was all just an act or a prank. But I would never know what happened to her, never know what became of her. Was someone holding her hostage? Was there some sicko who had locked her up and was playing mind games with her? Who or what had hurt her?
 
 Still, I could just shut it all down…
 
@@ -104,7 +104,7 @@ But deep inside, I felt the urge to protect her. The urge to make things right a
 
 I clicked the link.
 
-It led to a webpage, a YouTube channel with only 23 subscribers. It was called "SocietyofEB" and used a strange black dotted triangle as its symbol. There was no text, no content, just a small, insignificant channel. 
+It led to a webpage, a YouTube channel with only 23 subscribers. It was called "SocietyofEB" and used a strange black dotted triangle as its symbol. There was no text, no content, just a small, insignificant channel.
 
 Just a hoax?
 
@@ -146,7 +146,7 @@ I sat there, confused. Had I just infected my computer with a virus? Did she cra
 
 But things had... changed. There were no clothes scattered on my bed. I had thrown some there when I returned from the swimming club at school. The blanket and pillows were gone too. The same went for the rest of the room. The furniture remained, but everything else was gone. No books on the shelves, no clothes on the floor. No pencils, pens, or papers on my desk. How had I not noticed this change? I stood up and went to the door.
 
-It wouldn't open anymore. 
+It wouldn't open anymore.
 
 Not only that, but I couldn't even press down the handle. It wouldn't budge. Panic started to well up within me. I began to sweat. The air felt stale and old. It had never smelled like that in my room before, I swear!
 
@@ -154,7 +154,7 @@ The keyhole!
 
 My keys were gone too, but at least I could peek through it. I knelt down and brought my face close to the keyhole. Darkness greeted me—just darkness. It was daytime, but I couldn't see a thing. What the hell?
 
-Daytime… 
+Daytime…
 
 The window!
 
@@ -162,7 +162,8 @@ I spun around, feeling strangely trapped, but surely I could escape through the 
 
 It didn't budge.
 
-Not only that, but to my pure horror, I realized that I wasn't looking at the outside of my house. All I saw was a glowing painting of what used to be outside my room, protected by unbreakable glass.  
+Not only that, but to my pure horror, I realized that I wasn't looking at the outside of my house. All I saw was a glowing painting of what used to be outside my room, protected by unbreakable glass.
+
 What the actual…!
 
 That's when panic truly set in. I had a bat in my wardrobe, but when I tried to retrieve it, I realized that the wardrobe wouldn't open either. My carpet was immovable, as was my bed. It felt as if I was frozen in time, the only thing capable of action in the world.
@@ -179,16 +180,16 @@ I crouched down, attempting to shut the computer off. But I couldn't move a thin
 
 Strangely, I could still sit down on it and turn it, but each time I tried to pick it up, it froze.
 
-***Write this down. YOUR experience. Let others know. SPREAD the word. Get 5 upvotes.***
+***Write this down. YOUR experience. Let others know. SPREAD the word.*** 
 
 I blinked at the new message. What the actual...?
 
 This website opened—r/nosleep. It seemed like the only options available were to visit this subreddit or the weird channel I had subscribed to. Anything else simply didn't work.
 
-I don't even know if you are real. I don't know if I'm connected to the outside world through this website, through this post. I've written down everything that happened. I hope that's what I'm supposed to do. Please, I beg you, please upvote this. Share it. I need 5 upvotes or... I don't know what will happen.
+I don't even know if you are real. I don't know if I'm connected to the outside world through this website, through this post. I've written down everything that happened. I hope that's what I'm supposed to do. Please, I beg you, please help. Spread it. I need support or... I don't know what will happen.
 
 I think back to the blood on Aubrey's face. Was she real? Did something harm her? What was she talking about? Where am I? Oh god, I'm in so much trouble. Should I have just disconnected? Did I save Aubrey? Was she even real? Are you real?
 
-Oh shit, I hope this post is really going on the internet. It might be my only way of reaching out, of contacting someone else. Just... Please make sure to upvote this. Only 5 upvotes are needed. It's not too much to ask, is it? 
+Oh shit, I hope this post is really going on the internet. It might be my only way of reaching out, of contacting someone else. Just...  It's not too much to ask, is it?
 
-Please, hurry. Please. I want to escape from here! I want to return to my real room! And... I also want to save Aubrey. What is happening? Help me. I'm in deep trouble...  
+Please, hurry. Please. I want to escape from here! I want to return to my real room! And... I also want to save Aubrey. What is happening? Help me. I'm in deep trouble...
