@@ -29,8 +29,8 @@ In that disorienting moment, I noticed my phone had been flung from my grasp, la
 
 My hands trembled as I dropped the blood-stained rock, my mind struggling to comprehend the magnitude of what I had just done. But I had to. It was him or me, life or death, and I chose life.
 
-To my surprise, the stalker's phone had miraculously landed on a rock and remained out of the water. It was still live on TikTok. I picked up the phone and pointed it at the motionless figure floating in the brook, exposing what I had done to the viewers. The livestream's views exploded to 15,000 people watching, and the comments section flooded with Ws, devil emojis, and demands for more.
+To my surprise, the stalker's phone had miraculously landed on a rock and remained out of the water. It was still live on TikTok. I picked up the phone and pointed it at the motionless figure floating in the brook, exposing what I had done to the viewers. The comments section exploded with W's, devil emojis, and demands for more.
 
-An unsettling realization dawned on me—I had become the new livestream sensation. The viewers craved violence, thrived on fear, and I had inadvertently become their new twisted entertainer by giving that to them. They loved me, and I loved the attention.
+An unsettling realization dawned on me—I had become the new livestream host. The viewers craved violence, thrived on fear, and I had inadvertently become their new twisted entertainer by giving that to them. They loved me, and I loved the attention.
 
-I know it's been a while since I last updated you all, but I've been adjusting to my newfound fame. If you're ever scrolling through TikTok late at night and come across a livestream of a man walking through the woods, I hope you'll join me. We'll be selecting a new target very soon. Who knows, it could even be you.
+I know it's been a while since I last updated you all, but I've been adjusting to my newfound position. If you're ever scrolling through TikTok late at night and come across a livestream of a man walking through the woods, I hope you'll join me. We'll be selecting a new target very soon. Who knows, it could even be you.
