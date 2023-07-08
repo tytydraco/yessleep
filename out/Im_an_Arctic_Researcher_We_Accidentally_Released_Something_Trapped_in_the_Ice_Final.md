@@ -84,7 +84,7 @@ Each stone was a silent tribute to the woman who had been my companion, my confi
 
 Next, I laid Becca's body beneath the inuksuk, folding her arms over her chest. With a heavy heart, I said my final goodbyes, whispering them into the icy wind, praying that they would reach her wherever she was.
 
-“Naglakpik inuup qaumanaq, pulliunarmiun timmuutaq.” “Your spirit lives on in my memories, never forgotten, never incomplete”
+“Naglakpik inuup qaumanaq, pulliunarmiun timmuutaq.” “Your spirit lives on in my memories, never forgotten, never incomplete.”
 
 Lastly, I placed Katak's otherworldly knife in her hands. I didn’t know why, but I thought she would have more use for it than I would.
 
