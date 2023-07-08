@@ -28,7 +28,7 @@ She gasped, her grip around my neck loosening. I rolled her off me, scrambling t
 
 “Becca, please don’t do this,” I pleaded with her.
 
-She brandished the ax, a primal scream erupting from her lips as she charged at me. My hand instinctively went to my side, gripping the handle of Katak's meteorite knife. As she ran towards me, I braced myself, aiming the blade at her. With a terrifying shriek, she impaled herself on the knife, her momentum carrying her forward until she slumped against me.
+She brandished the ax, a primal scream erupting from her lips as she charged at me. My hand  went to my side, gripping the handle of Katak's meteorite knife. As she ran towards me, I instinctively braced myself, aiming the blade at her. With a terrifying shriek, she impaled herself on the knife, her momentum carrying her forward until she slumped against me.
 
 With an agonized whimper, she staggered backwards, the fierceness in her eyes dimming. Her tentacled fingers stilled, the squirming tendrils retracting into the emptiness of her eye sockets. She looked up at me with a terrifying mixture of fear and confusion.
 
@@ -106,7 +106,7 @@ With a shaky hand, I fired the flare. The sudden light, brilliant against the gr
 
 The helicopter veered towards the flair, like a moth drawn to a flame.
 
-The last thing I remember was the sudden brightness, an intense spotlight blinding me. A rush of noise, the helicopter descending, shouting voices, the crunch of boots on snow. And Then, with a nauseating lurch, the world turned black.
+The last thing I remember was the sudden brightness, an intense spotlight blinding me. A rush of noise, the helicopter descending, shouting voices, the crunch of boots on snow. And then, with a nauseating lurch, the world turned black.
 
 **August 1, 2021**
 
