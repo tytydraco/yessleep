@@ -40,7 +40,7 @@ In the corner of the room, a small figure huddled on the windowsill, wide eyes f
 
 "No," I cried, rushing to the figure on the floor. Dropping to my knees, I cradled my grandma in my arms, my tears freezing to my face. She looked just like the night she died.
 
-In an instant, my surroundings shifted. No longer was I in the warmth of my home, but back in the arctic wilderness. It was no longer my grandmother I held in my arms, but Becca. Her skin, once flush with life, was now as pale and cold as the ice that hemmed us in.ds
+In an instant, my surroundings shifted. No longer was I in the warmth of my home, but back in the arctic wilderness. It was no longer my grandmother I held in my arms, but Becca. Her skin, once flush with life, was now as pale and cold as the ice that hemmed us in.
 
 The once monstrous tendrils retracted from her eye sockets, revealing the blue irises I knew so well. A strangled gasp escaped her lips as the harsh wind whipped around us. I could feel her body shuddering with each ragged breath she took, a frail echo of her former vitality.
 
