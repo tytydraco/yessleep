@@ -23,4 +23,4 @@ The realization struck me like a lightning bolt.
 The livestream had a delay—it had to have a stream delay. I watched him approach my backdoor on my phone. My mind raced as I frantically looked to the left and noticed my back door was ever so slightly cracked open.
 
 
- [Part 2 ](https://www.reddit.com/r/nosleep/comments/14sb7hs/i_found_out_i_have_a_stalker_through_tiktok_live/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=2)
+ [Part 2](https://www.reddit.com/r/nosleep/comments/14tpwjh/i_found_out_i_have_a_stalker_through_tiktok_live/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=2)
