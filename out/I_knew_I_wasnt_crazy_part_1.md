@@ -1,4 +1,4 @@
-I’m writing this account on the decrepit wooden desk that sits facing the window in my room. It’s currently half past eleven at night, and the northern woods outside are glowing with the milky, sibylline light of the moon.
+I’m writing this account on the decrepit wooden desk that sits facing the window in my room. It’s currently half past eleven at night, and the northern woods outside are glowing with the milky, sibylline light of the moon. Through the aid of my nephew, who was the sole person to not completely revoke any relations with me, I have procured a telephone. The sole purpose of this telephone is to expose to the world the monster that has cost me a tranquil life. 
 
 Most of the security officers have left the asylum, left to their families and their warm homes. However, as always, young Pete is on night duty, and he’s probably sitting at his little desk at the end of the corridor, reading some horror novel by Stephen King. Although it’s unusually quiet tonight- there’s no loud screeching nor banging coming from any of the cells- I’m still unable to enter the dream world; the physical reality has its shackles deep inside of me tonight. So, I thought I would write an account on how I was wrongfully deemed mad and imprisoned in this god-awful mental asylum. 
 
@@ -17,3 +17,24 @@ It was night, and the air outside had a nasty bite in it; a piercing cold that p
 The cat lay there, in a crimson puddle of its own blood, its soulless eyes gazing into the star studded night sky. It’s hitherto white fur was now ruined with an ugly red; wet dirt and dry sticks seemed to be stuffed in it’s ears. It was then that I puked. And on its neck, peering at me from the surgical cut, was the miraculously untainted silver collar that read: Collie, the next door old couple’s cat. To my right, I saw that the lights were on in Roger’s bedroom and a ruffle of the curtains. But before the curtains shut completely, in the crack, I saw that rotten smile reflecting the fluorescents lights. That rotten smile still haunts me when I shut my eyes; the grin of pure evil.
 
 I wish I had moved out then.
+
+After a night plagued with sleeplessness, I wrapped the dead body of the cat in a white blanket, and went over to Sam and Elsie's place, the old couple next door. I stood at their front door for what seemed like an hour, gathering the courage to break the horrid news and hand them the body of their beloved pet. 
+
+My greasy hands shakily knocked at the pristine white door, and I awaited. But what greeted me at the door made all the strength leave my body and I dropped the body of the lifeless cat at the feet of its owners. Roger was there, smiling. The three of them gazed at me, Sam and Elsie’s  expressions full of baleful reproach; kindness and happiness seemed to be completely foreign emotions to them. What made me gain back all my cognizance, was when Sam hit me across my jaw. Stumbling backwards, I collapsed down the front porch steps. Through the aid of my nephew, who was the sole person to not completely revoke any relations with me, I have procured a telephone. The sole purpose of this telephone is to expose to the world the monster that has cost me a tranquil life. 
+
+
+“You fucking bastard!” Sam yelled at me as he descended the steps, his face red and his spit frothing at the side of his lips. But his face wasn’t the one all my focus went to, it was Roger’s. Roger with his beastly grin. Roger with those rotten teeth. Roger with his inhumane, vulpine eyes.
+
+“You killed him, you fucking cunt!” Sam screamed.
+
+The second punch, however, flew past my head, missing it by an inch. 
+
+“What the fuck are you doing, Sam?” I screamed at him, the pain from the punch, as well as the confusion fueling my anger.
+
+“You goddamn cat-killer!”
+
+Before I could hurl a reply, the neighbours from across the street stopped the fight from escalating and took me away to my house. 
+
+Why would he accuse me of the murder of his cat? But then I remembered the ruffle of the curtains, the rotten smile and the light slipping from Roger’s bedroom. I was still not sure, but I had a strong notion that Roger murdered the cat and blamed it on me.
+
+But for what reason?
