@@ -34,7 +34,7 @@ I told him off for saying such a disgusting thing and he apologized.
 
 At school, I’d seen the bright faces of these boys who had dreamed of becoming football stars. I had nightmares of their brains turning into mush - watching them all grown up and melting into a pool of blood on cartilage on the turf playing field. Mark and I couldn’t have children, but if we had a boy, I was never going to allow him to play football. The fantasy of telling Mark firmly this fact did some work to reassure me, and the nightmares mostly stopped.
 
-It was during my fourth lesson that Ms. Albrecht tried to hit me. I am ashamed to admit at point I knew that Jackson was dead. I practiced even less than before, and I played so poorly that Ms. Albrecht had groaned and curled her fingers into a fist before thrusting her forearm at me. The movement was odd, less of a punch and more as if she had been gripping an imaginary belt to lash my fingers with. Since she did not make contact, she did not apologize, but her frustration was apparent.
+It was during my fourth lesson that Ms. Albrecht tried to hit me. I am ashamed to admit at this point I knew with near certainty that Jackson was dead. I practiced even less than before, and I played so poorly that Ms. Albrecht had groaned and curled her fingers into a fist before thrusting her forearm at me. The movement was odd, less of a punch and more as if she had been gripping an imaginary belt to lash my fingers with. Since she did not make contact, she did not apologize, but her frustration was apparent.
 
 I committed myself to practicing more, really making a go of it, and no longer wondering so much about the fate of my nephew. And during my next lesson, I hardly made any mistakes.
 
@@ -190,7 +190,7 @@ I opened the letter.
 
 A short message:
 
-I was the only one who deserved to be punished. Not them. Not you.
+**I was the only one who deserved to be punished. Not them. Not you.**
 
 I didn’t understand.
 
