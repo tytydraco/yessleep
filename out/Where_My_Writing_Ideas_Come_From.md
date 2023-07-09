@@ -322,6 +322,6 @@ But as I neared the bottom of the page, the oasis of my creativity was breached 
 
 But I didn't, at least not yet. And in time W.D. and I learned to work together. I'm still not in love with having two voices in my head at all times, but I’m proud of my new career as a mid-list author, even if W.D. finds it shameful and “beneath him.” These days, I get to lecture to would-be writers about the creative process. I never let them in on my little secret, and they never seem to suspect.
 
-But of course, I always shudder when they ask about my influences. And I've never, ever, explained where my ideas come from.
+But of course, I always shudder when they ask about my influences. And I've never, ever, explain where my ideas come from.
 
 Until now...
