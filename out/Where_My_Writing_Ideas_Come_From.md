@@ -290,7 +290,7 @@ This continued for another week or so, until I decided to take action.
 
 So it came to be, one sticky evening under a chunky moon, that I visited the burial ground of W.D. Exhausted by nearly a month of internal (or was it meta-internal?) struggle, my pale visage feeling barely attached to my own sagging neck, our unique shared journey culminated with my back curved and a moldering old shovel in my hand, digging up earth. Lightening sizzled through the sky, and I felt a haunting sense of dread. I knew that W.D. was stubborn, if nothing else, and that my life was very much at risk. But I also recognized that if this continued, my life wasn't worth a hell of a lot anyway.
 
-As the cliche goes, never meet your heroes. And if you do, don't allow them to possess you.
+As the cliche goes, never meet your heroes. (And if you ever do, I humbly suggest you don't allow them to possess you.)
 
 “Here lies famous author W.D.,” my daemon read, “I'm glad they honored the inscription I wrote for my tombstone.”
 
@@ -314,7 +314,7 @@ I felt so good, I immediately decided to work on my own draft. I opened up the c
 
 But as I neared the bottom of the page, the oasis of my creativity was breached by the familiar voice of my daemon.
 
-“Wow,” it said, “All this time you really thought I was in the button? What a mouth breather you are."
+“Wow,” it said, “All this time you really thought I was in the button? What a mouth breather you are!"
 
 "Please forgive me," I said. "I just couldn't take it anymore."
 
