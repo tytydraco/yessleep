@@ -52,9 +52,9 @@
 
 *Phylicia corrects him,* “Half right. Maybe a quarter. Hades was the God of the Underworld. The place itself was even named after him.”
 
-“Oh so the term’s a fun little joke. Deep ocean. UNDERworld. I can see the connection.” *Frankie chuckles.
+“Oh so the term’s a fun little joke. Deep ocean. UNDERworld. I can see the connection.” *Frankie chuckles.*
 
-Phylicia does not.*
+*Phylicia does not.*
 
 “Exactly. The region is notoriously underexplored because of the intense pressure, among a ton of other reasons. But supposedly that was going to change. 
 
