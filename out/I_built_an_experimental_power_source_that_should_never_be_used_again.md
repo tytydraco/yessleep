@@ -4,7 +4,7 @@ Now a few decades ago, some bright spark who had somehow got himself to be unive
 
 This meant that the cafeteria a minute’s walk from the physics building also serves those other departments, and it can often be hard to discern somebody’s subject by looking. At least, that’s my excuse for when I met Doctor Caruso. I got chatting to him in the line for lunch, and mentioned that I was an electrical engineer looking for a masters supervisor.
 
-Caruso’s eyes lit up. He was a tall man, thin and wiry; he claimed to be a Bostonian-Italian, but he had no accent and I doubt he could have pointed to Italy on a map. He told me he had a project he was working on, a new type of battery, and he really needed an electrical engineer to help me. He even had a budget that would stretch to my entire tuition.
+Caruso’s eyes lit up. He was a tall man, thin and wiry; he claimed to be a Bostonian-Italian, but he had no accent and I doubt he could have pointed to Italy on a map. He told me he had a project he was working on, a new type of battery, and he really needed an electrical engineer to help him. He even had a budget that would stretch to my entire tuition.
 
 I said yes almost immediately. He brought the paperwork to my lab the next day, and we signed. He wanted me to start right away, but I hadn’t even finished my finals, and besides I wanted a break from studying! Reluctantly, he agreed that if he could send me over some specifications for me to think through, he could wait until August.
 

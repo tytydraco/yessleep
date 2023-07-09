@@ -128,6 +128,7 @@ Soon enough, the train went dark, all the other passengers settling down to slee
 
   
 As I thought that, I felt my fingers beginning to burn, a pale imitation of the way they’d felt on the day that the Shade got into me. I rubbed my palms together and did my best to ignore it. But the burning kept getting worse and worse, creeping past my wrists, towards my elbows. After a quick look around to make sure that the other passengers were asleep, I finally gave in and peeled off my gloves.   
+
 The shadows under my skin were swirling, more active than they had been in weeks. Then they actually pulled up off of me, becoming smoky three-dimensional tendrils instead of just laying flat. I tried to push them back in by flattening them against my thigh, but they just spread out in a halo around my hand, then popped right back up again when I moved it. They twisted around each other, forming a vaguely circular shape right above my hand. I felt that vertigo that had haunted me during my recovery, and then, with a pop, the mouse appeared in the center of my palm. Shrieking, I threw it across the room, and I swear it sent me a look of utter betrayal an instant before it phased out of existence again. 
 
   
@@ -147,6 +148,7 @@ I’ve always been told that my curiosity is going to get me killed one day. I p
 
   
 The damned thing was still unfairly cute. “I guess you need a name if you’re gonna keep showing up.”   
+
 The mouse didn’t offer an opinion. After an extremely awkward glance, I discovered that she was female.  
 “How about Nibbles? You certainly like to bite.” 
 
@@ -213,6 +215,7 @@ The shadows weren’t going back into my skin like normal. Instead, they got big
 
   
 He banked, hard, sending me rattling against the wall, and sent us toward the ground at full speed.   
+
 My seatbelt dissolved, and something important must have been destroyed, because the plane started shaking. The door next to me, protecting me from the open air, was disappearing as I watched.  
 
 
@@ -225,7 +228,7 @@ On a particularly hard jolt, the door finally fell away, and I went with it. I c
 Freefall. Twelve seconds. So much time to think but my mind was empty. I closed my eyes before I could hit the ground. The Shade opened around me and crawled into my pores.  
 
 
-I waited to die. I expected to die, or at the very least to experience the same burning pain. But a moment passed, then another, and when I finally peeled open my eyes, I was still alive, hurtling through the Shade with no tether. I fell for a meaningless amount of time. I got thirsty, then hungry, but never to the point of pain or death. I got lost in the falling.  
+I waited to die. I *expected* to die, or at the very least to experience the same burning pain. But a moment passed, then another, and when I finally peeled open my eyes, I was still alive, hurtling through the Shade with no tether. I fell for a meaningless amount of time. I got thirsty, then hungry, but never to the point of pain or death. I got lost in the falling.  
 
 
 When the first image came, I thought it was a mirage. But then it happened again. They were just flashes, snapshots of other worlds. Crystal trees, burning air, dinosaurs that talked like humans, a civilization on the brink of collapse, another just beginning to grow, fields of animals grown like wheat, a wall bisecting the Earth, colonization of the universe by a race of lizards, wastelands and paradises, all connected by the Shade. I was crying, sobbing with my eyes wide open.   
@@ -234,4 +237,4 @@ When the first image came, I thought it was a mirage. But then it happened again
 Just when I thought I couldn’t take any more, it ended. I landed at the foot of the tower, unharmed. I don’t think this is where it ends, though, or at least it doesn’t have to end here. Nibbles just appeared, and this time the portal she came through isn’t closing, and it’s bigger than ever. Big enough that I could fit through, if I crouched.   
 
 
-I’ve always been filled with wanderlust, always been a bit of an adrenaline junkie. It’s what drove me to jump off the tower in the first person. My mom called it suicidal curiosity and lack regard for my own fool self. She may have been right. But the Shade chose me, for some reason, and after I finish writing this, I’m going to walk through that portal. And then…I guess I’ll see how far I can fall.   
+I’ve always been filled with wanderlust, always been a bit of an adrenaline junkie. It’s what drove me to jump off the tower in the first person. My mom called it suicidal curiosity and lack regard for my own fool self. She may have been right. But the Shade chose me, for some reason, and after I finish writing this, I’m going to walk through that portal. And then…I guess I’ll see how far I can fall.
