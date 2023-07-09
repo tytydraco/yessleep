@@ -22,7 +22,7 @@ What? I had no idea what she was talking about. I quickly searched for the chann
 
 I was shaking. My brain screamed at me to disconnect immediately.
 
-"DAvid, you have to subscribe to that channel! You have to! I want to get out, I need your help! If I fail, it will get worse. It hurts. Please, you have to subscribe!"
+"David, you have to subscribe to that channel! You have to! I want to get out, I need your help! If I fail, it will get worse. It hurts. Please, you have to subscribe!"
 
 What the hell was she talking about? I leaned back in my chair, feeling sick to my stomach.
 
@@ -180,7 +180,7 @@ I crouched down, attempting to shut the computer off. But I couldn't move a thin
 
 Strangely, I could still sit down on it and turn it, but each time I tried to pick it up, it froze.
 
-***Write this down. YOUR experience. Let others know. SPREAD the word.*** 
+***Write this down. YOUR experience. Let others know. SPREAD the word.***
 
 I blinked at the new message. What the actual...?
 
@@ -193,3 +193,5 @@ I think back to the blood on Aubrey's face. Was she real? Did something harm her
 Oh shit, I hope this post is really going on the internet. It might be my only way of reaching out, of contacting someone else. Just...  It's not too much to ask, is it?
 
 Please, hurry. Please. I want to escape from here! I want to return to my real room! And... I also want to save Aubrey. What is happening? Help me. I'm in deep trouble...
+
+[\[Part 2\]](https://www.reddit.com/r/nosleep/comments/14v3v2i/dont_like_dont_subscribe_part_2/)

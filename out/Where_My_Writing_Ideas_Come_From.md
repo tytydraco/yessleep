@@ -94,7 +94,7 @@ I was about to turn away from my hero when I felt a sudden compulsion. No, that 
 
 “Coming—”
 
-I reached into Erwin’s moth-licked old suit, and I rummaged through his trouser pockets until I found a spare button affixed to a strand of cloth. I tugged until it disconnected in my hand, and then I placed the tiny black button in my dress shirt pocket over my left breast.
+I reached into his moth-licked old suit, and I rummaged through his trouser pockets until I found a spare button affixed to a strand of cloth. I tugged until it disconnected in my hand, and then I placed the tiny black button in my dress shirt pocket over my left breast.
 
 “Sorry,” Jim said as he stumbled into the room, “sure hope I’m not interrupting anything. I thought the whole necrophilia thing was just an insensitive joke, but now I'm starting to wonder...”
 
@@ -262,7 +262,7 @@ That evening the Daemon was also in a particularly sour mood.
 
 “Well, it might be more productive than whatever this is,” I said.
 
-“If only my Daemon were here with me,” Erwin said.
+“If only my Daemon were here with me,” he said.
 
 “Interesting,” I said. “I didn’t know you really had a Daemon.”
 
@@ -274,7 +274,7 @@ That evening the Daemon was also in a particularly sour mood.
 
 “It was a pretty simple question, W.D.. I mean in any duo there’s a Simon and a Garfunkel, right? I wonder which one you were…”
 
-“See! You’re sabotaging my efforts,” Erwin said. “How can I get into a creative groove when you’re here heckling and debating me? After all, confidence is half the battle in this game.”
+“See! You’re sabotaging my efforts,” W.D. said. “How can I get into a creative groove when you’re here heckling and debating me? After all, confidence is half the battle in this game.”
 
 *The night was chunky with moonlight.*
 
@@ -288,7 +288,7 @@ I suppose like most writers, I was somewhat terrified of my daemon. "Fine," I sa
 
 This continued for another week or so, until I decided to take action.
 
-So it came to be, one sticky evening under a chunky moon, that I visited the burial ground of Erwin Partridge. Exhausted by nearly a month of internal (or was it meta-internal?) struggle, my pale visage feeling barely attached to my own sagging neck, our unique shared journey culminated with my back curved and a moldering old shovel in my hand, digging up earth. Lightening sizzled through the sky, and I felt a haunting sense of dread. I knew that W.D. was stubborn, if nothing else, and that my life was very much at risk. But I also recognized that if this continued, my life wasn't worth a hell of a lot anyway.
+So it came to be, one sticky evening under a chunky moon, that I visited the burial ground of W.D. Exhausted by nearly a month of internal (or was it meta-internal?) struggle, my pale visage feeling barely attached to my own sagging neck, our unique shared journey culminated with my back curved and a moldering old shovel in my hand, digging up earth. Lightening sizzled through the sky, and I felt a haunting sense of dread. I knew that W.D. was stubborn, if nothing else, and that my life was very much at risk. But I also recognized that if this continued, my life wasn't worth a hell of a lot anyway.
 
 As the cliche goes, never meet your heroes. And if you do, don't allow them to possess you.
 
@@ -296,7 +296,7 @@ As the cliche goes, never meet your heroes. And if you do, don't allow them to p
 
 "If only the world knew you have no talent," I said. "It was all your daemon."
 
-“You’re a true enemy,” Erwin said. “That antagonist of this very tale. What do you think you’re doing anyway, digging up my grave?”
+“You’re a true enemy,” he said. “That antagonist of this very tale. What do you think you’re doing anyway, digging up my grave?”
 
 “I’m taking back control,” I shouted, lightning cracking overhead and a susurrus of thunder slamming upon the clay earth of that dead zone.
 
