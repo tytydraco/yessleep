@@ -316,6 +316,10 @@ Kellan, "Maybe it just looks that way. We’ve all been in the dark for awhile a
 
 Summer turned to us and said, "Sure. But that doesn't explain how she went from an oil based one to a liquid."
 
+“Maybe someone loaned her one.”
+
+“Maybe,” Summer said.
+
 I looked down at Kellan's watch. He tapped it lightly, "Only 2 and a half more hours left to go."
 
 Chelsea snuck back to her seat, and the three of us grilled her.
@@ -326,7 +330,7 @@ Chelsea snuck back to her seat, and the three of us grilled her.
 
 "Spit it out," Summer nudged her sister.
 
-But before Chelsea could speak. We heard the metallic rings sing as the curtain slid open and Roger stood in the walkway. The Captain's voice blared over his head. "Everyone, please remain stead."
+But before Chelsea could speak. We heard the metallic rings sing as the curtain slid open and Roger stood in the walkway. The Captain's voice blared over his head. "Everyone, please remain seated.”
 
 Roger walked over to the old woman and whispered something into her ear. The woman looked reluctant but eventually grabbed her bag and stood up. Following Roger behind the curtain.
 
@@ -358,7 +362,7 @@ Kellan entered our cabin again and crashed into his seat begrudgingly.
 
 "No," he said defeatingly. "I didn't see a thing."
 
-"What about you, I rounded on Chelsea. "What about the woman? How'd she get those bruises on her arm?"
+"What about you,” I rounded on Chelsea. "What about the woman? How'd she get those bruises on her arm?"
 
 "She doesn't know," Chelsea told us. "She said it all happened so fast. And it was dark. But she said that whatever grabbed her. It didn't feel like a man's touch at all. Like it was skin. But not entirely warm. It felt like her husband's hands, when she held them after he had passed away in the hospital. Leaving away is how she described it. Life. Leaving away."
 
@@ -372,13 +376,13 @@ The plane jerked wildly and I could feel the vinyl biting into my waist. The loo
 
 "What are you doing," I heard Summer scream as Chelsea unbuckled herself.
 
-I glanced behind me and saw the two sisters start to scream as luggage fell from the overhead compartments. Chelsea was tugging on Summer's belt as they were being buried alive. There was chaos everywhere as a piece of carry on struck a guy out cold, wheels first. Another had wedged a woman hunched in her seat. I could see her gasping as she tried to breathe. I saw half an empty milk bottle roll across the floor as the plane banked to the left. 
+I glanced behind me and saw the two sisters start to scream as luggage fell from the overhead compartments. Chelsea was tugging on Summer's belt as they were being buried alive. There was chaos everywhere as a piece of carryon struck a guy out cold, wheels first. Another had wedged a woman hunched in her seat. I could see her gasping as she tried to breathe. I saw half an empty milk bottle roll across the floor as the plane banked to the left. 
 
 Kellan and I tried reaching out to help the girls. But they were too far away for me to reach. Kellan unbuckled himself and started digging through the pieces, tossing them into the aisle. The lights flickered on and then off again. Enough time for me to see both of the sisters. Their backs flat against the thin carpet. Eyes wide opened. Their mouths twisted in half screams as their necks were bent 45 degrees in opposite directions of one another like a tree.
 
-I didn't have time to scream as another burst sent people flying. I could only see Kellan hit his head on the ceiling, I couldn't hear it as everything came in various states of levitation. Some who hadn't properly strapped themselves in were sent flying. It was like watching a car crash in slow motion. Bodies acted as rag dolls in the air. But it would be passenger 29 who stood up amidst all of this chaos. Perfectly balanced. In the middle of the aisle. Staring straight ahead. That scared me the most.
+I didn't have time to scream before another burst sent people flying everywhere. I saw Kellan hit his head on the ceiling but I couldn't hear it as everything came in various states of levitation. Some who hadn't properly strapped themselves in were sent crashing into others. It was like watching a car accident in slow motion. Bodies acted as rag dolls in the air. But it would be passenger 29 who stood up amidst all of this chaos. Perfectly balanced. In the middle of the aisle. Staring straight ahead. That scared me the most.
 
-His eyes were glowing. They were white, gray and empty at first. Like a dead screen. Before they turned a bright deep blue. Filling his pupils with tiny rows of white lines that started scrolling back into his head.
+His eyes were glowing. They were white, gray and empty at first. Like a dead computer screen. Before they turned a bright deep blue. Filling his pupils with tiny rows of white lines that started scrolling back into his head.
 
 I screamed as the air grew thin, causing me to black out.
 
