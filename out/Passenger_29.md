@@ -32,11 +32,11 @@ He didn't answer me, which only made me wish that I could sink into my shoes.
 
 Roger grabbed the ticket and held it up to the light, "Mmm. No. I don't know."
 
-I could feel the butterflies start crowning as Roger turned the paper in his hands, studying it. "Might have to call a Supervisor," he said.
+I could feel the butterflies starting to crown as Roger turned the paper in his hands, studying it. "Might have to call a Supervisor," he said.
 
 If I could have found my tongue hiding in the back of my throat, perhaps I would have said never mind, and that this was all a big misunderstanding; turned on my heels and walked right out of that terminal. If only I did. Roger broke out into a smile, "Just messing with you." He punched some numbers into the keyboard and an inaudible click caused the scanner to flicker, "You can go on through.
 
-And that was how I got onto the flight that would change my life. In a mostly empty plane heading for blue skies with less than 50 onboard passengers who I didn't even know. Where I'd sit next to complete strangers as many people do on airlines everyday all over the world. With folks that were less than faces, whom I would never think about again once I landed at my destination. And all of this would have been true, if it weren't for passenger 29.
+Into a mostly empty plane heading for blue skies with less than 50 onboard passengers who I didn't even know. Where I'd sit next to complete strangers as many people do on airlines everyday all over the world. With folks that were less than faces, whom I would never think about again once I landed at my destination. And all of this would have been true, if it weren't for passenger 29.
 
 It started almost immediately. The shaking. My hands were gripping the steel armrests as the fuselage shook awake. The raspy voice of the intercom overhead didn't help any as I couldn't decipher a word that Captain was saying. My mind was still reeling by the fact of how little air actually came from the yellow oxygen masks if they were to drop, 5 minutes is what the pamphlet read. Five. Does that mean the airline expected us to be dead after more than 5 minutes or was it really all we needed? Who came up with that number? What were their credentials? I bet people in First Class got more than five minutes.
 

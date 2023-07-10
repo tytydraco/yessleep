@@ -123,3 +123,5 @@ It had that static-y walkie talkie sound, but it was still very clearly her.
 *Wake the fuck up.*
 
 As my eyes shot open, my heart pounded in my chest. I don’t know how long I waited. I know that I have never been so terrified. I know that the next morning, I took a hammer to that walkie talkie. And I know that hearing that ear-piercing static scream as I smashed the walkie talkie to smithereens was what convinced me that I had no other choice but to drive back to my goddamn hometown to that goddamn [oak tree.](https://www.reddit.com/r/viciousmock/comments/i5robb/list_of_stories/)
+
+[Part 2 - The Hanged Man](https://www.reddit.com/r/nosleep/comments/14v5hth/the_hanged_man_part_2/)
