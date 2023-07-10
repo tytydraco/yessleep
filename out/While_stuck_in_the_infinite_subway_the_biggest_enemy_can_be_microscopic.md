@@ -140,3 +140,7 @@ I left as soon as he said that, not wanting to be part of something I thought it
 Small, greenish-looking flakes.
 
 As I felt a sudden cold rushing throughout my body, it only took a few moments to understand what had happened. I knew I had to move quickly, hoping it wasn't too late.
+
+\------------------------------------
+
+[Part 9](https://www.reddit.com/r/nosleep/comments/14w0lct/in_the_infinite_subway_sometimes_youre_too_late/)
