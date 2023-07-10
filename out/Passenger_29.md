@@ -16,7 +16,7 @@ The other girl rolled her eyes, "I don't get why pat downs are still a thing. Th
 
 The pair looked at each other and in unison gushed, "Vegasss."
 
-I tried not to be nosey but listening to them talk kept the mind off the butterflies waiting to hatch in my stomach. Still, I felt as if I was going to throw up by the time the gate attendant started calling out the boarding order.
+I tried not to be nosey but listening to them talk kept my mind off the butterflies waiting to hatch in my stomach. Still, I felt as if I was going to throw up by the time the gate attendant started calling out the boarding order.
 
 When it was finally my turn, I got in line and fumbled through my bag looking for the semi-crumpled airline ticket. The guy wearing the cornstarch stiffed polo took it out of my hands and held the laser green scanner up to it. He pulled the trigger once or twice before shaking his head.
 
@@ -368,7 +368,7 @@ The cabin shook and the lights went out again. Except this time the aisle strips
 
 The plane jerked wildly and I could feel the vinyl biting into my waist. The loose straps at the end whipped around and slapped my leg. I gripped the armrest with both palms as we shook uncontrollably. A sound of thunder echoed and then I started hearing rain pelting us from above. Each drop came down as marching soldiers do, wearing their tear dropped shaped helmets as they jumped from the sky and splat flatly against the roof of the plane.
 
-"What are you doing," I heard SUmmer scream as Chelsea unbuckled herself.
+"What are you doing," I heard Summer scream as Chelsea unbuckled herself.
 
 I glanced behind me and saw the two sisters start to scream as luggage fell from the overhead compartments. Chelsea was tugging on Summer's belt as they were being buried alive. There was chaos everywhere as a piece of carry on struck a guy out cold, wheels first. Another had wedged a woman hunched in her seat. I could see her gasping as she tried to breathe. I saw half an empty milk bottle roll across the floor as the plane banked to the left. 
 
@@ -416,15 +416,15 @@ I heard a radio cracking, "Drop us into another dive." He turned to the attendan
 
 I felt my stomach lurching into my pelvis again, before the plane dipped forward and the world grew heavy and dark.
 
-When I woke up again, the plane was already on the ground. I felt myself choking on the plastic mask over my face. I tore it off and saw others around me beginning to stir as well.
+When I woke up again, the plane was already on the ground. I felt myself choking on the plastic mask over my face. I tore it off and saw others around me beginning to wake up as well.
 
-Roger stood at the front, he was practically beaming. "Hello everyone! You all did a splendid job and listened to our instructions perfectly when we experienced some heavy turbulence. And because of that. I would like to report that all passengers aboard have made it safe and sound to our destination! Though I would like to inform everyone that oxygen at those altitudes could cause some people to experience temporary forms of amnesia or in some cases hallucinations. So we have a medical team on standby at the terminal for anyone that would like to be seen. Free of charge! But if everything's alright, then please quietly exit the plane. And we hope to serve you again next time. Thank you for flying with us!"
+Roger stood at the front, he was practically beaming. "Hello everyone! You all did a splendid job and listened to our instructions perfectly when we experienced some heavy turbulence. And because of that. I would like to report that all passengers aboard have made it safe and sound to our destination! Though I would like to inform everyone that concentrated forms of oxygen at those altitudes could cause some people to experience temporary forms of amnesia or in some cases hallucinations. So we have a medical team on standby at the terminal for anyone that would like to be seen. Free of charge! But if everything's alright, then please quietly exit the plane. And we hope to serve you again next time. Thank you for flying with us!"
 
 I looked around groggily. My head was throbbing as I tried gaining my bearings. Most people had already left. The sister's waved to me as they nonchalantly grabbed their overhead bags and walked up the aisle. I could even hear them singing, "Vegas!!," as they exited the plane.
 
-Even Kellan was practically leaving by the time I was able to stand. He shot me smile before leaving without another word. I glanced back and saw passenger 29 in the back, seemingly unfazed, without a trace of blue  light in his eyes. The woman next to him too, looked calm as they waited for others in front of them to get off the plane.
+Even Kellan was practically leaving by the time I was able to stand. He shot me a smile before leaving without another word. I glanced back and saw passenger 29 in the back, seemingly unfazed, without a trace of blue light in his eyes. The woman next to him too, looked calm as they waited for others in front of them to get off the plane.
 
-Among the crowd I could see a few confused faces, some had bumps and bruises. But most of them seem unbothered and were actually quite happy that they had actually arrived at their destination. Thankful even.
+Among the crowd I could see a few confused faces, some had bumps and bruises. But most of them seem unbothered and were actually quite happy that they had finally arrived at their destination. Thankful even.
 
 So numbly I followed. Traveling to the front of the plane. To the adjunct accordion chute that led us into the terminal. Feeling the desert heat soaking into my clothes briefly before arriving at the terminal.
 
