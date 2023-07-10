@@ -68,7 +68,7 @@ Roger moved the woman a few rows up on the left. Where she balled herself up in 
 
 "Yeah, but she looked really scared."
 
-I could hear the stewardess scoffing, "Looked to me like she didn't want to sit next to the fat guy, if you ask me."
+I could hear the stewardess scoffing, "Looked to me like she didn't want to sit next to the fat guy.”
 
 "She looked scared Amy," Roger sounded firm.
 
@@ -78,27 +78,27 @@ I could hear the stewardess scoffing, "Looked to me like she didn't want to sit 
 
 "She said the guy next to her was fake. That he wasn't real."
 
-They kept talking as I poked my head out of the aisle and turned it towards the back. My eyes traveling to where the woman had been sitting previously. Second to last row on the right. Aisle 29, seat B, sat a man that was on the heavier end. But it looked as if he had lost a tremendous amount of weight recently. And fast. The other passengers were whispering. I heard diabetic drug being thrown around. Weight loss. And Ozempic face several times. Which made sense enough. Except now that I had heard what the woman said, my mind was working against me. Looking for something that might not have been there. Things that I couldn't unsee. Such as the way it looked as if passenger 29 wasn't just crash dieting and needed a simple face lift.
+They kept talking as I poked my head out of the aisle and turned it towards the back. My eyes traveling to where the woman had been sitting previously. Second to last row on the right. Aisle 29, seat B, sat a man that was on the heavier end. But it looked as if he had lost a tremendous amount of weight recently. And fast. The other passengers were whispering. I heard the words ‘diabetic drug’ being thrown around. Weight loss. And Ozempic face several times. Which made sense enough. Except now that I had heard what the woman said, my mind was working against me. Looking for something that might not have been there. Things that I couldn't unsee. Such as the way it looked as if passenger 29 wasn't just crash dieting and needed a simple face lift.
 
 But how it looked like he was wearing skin.
 
 I turned slowly back towards the front. My arms shaking harder than ever before as the plane started moving forward, rolling slowly as the engine began to roar. Soon I was being pushed into my seat as we began accelerating. Fast. It seems weird to say I felt the wheel leave the ground, but I did. I felt a certain weightlessness as the ground got further and further away from the earth; until things looked like nothing more than toy cars, and people - figurines. Even the skyscrapers looked like small houses up here next to the clouds.
 
-"This is  your Captain speaking. We are currently cruising at 30,000 feet of altitude. Heading southwest towards Nevada where we are expecting to land at the Las Vegas International airport on schedule. At this time I'd like to indicate that the seatbelt light has been turned off, and that it is safe to unbuckle your seatbelt. I repeat, it's safe to stretch your legs if you need to or use the restroom amenities at this time. Drinks and snack will be available for purchase shortly. Thank you, and please enjoy your flight."
+"This is your Captain speaking. We are currently cruising at 30,000 feet of altitude. Heading southwest towards Nevada where we are expecting to land at the Las Vegas International airport on schedule. At this time I'd like to indicate that the seatbelt light has been turned off, and that it is safe to unbuckle your seatbelt. I repeat, it's safe to stretch your legs if you need to or use the restroom amenities at this time. Drinks and snacks will be available for purchase shortly. Thank you, and please enjoy your flight."
 
 Several minutes later the curtain opened up again and Amy the stewardess plastered on a fake smile that caused her foundation to crack as she pushed a steel cart down the aisle.
 
-I'm a starving college student whose mainly lived off of top ramen, plain rice, and eggs for the past 6 months. Not to mention the fact that I hadn't eaten anything this morning because I was afraid of throwing it up. The flight was only 5hrs and 52 minutes long. And I was hungry. But I had already planned on using every last cent I could afford so that I could take out all of the pent up aggression in the pit of my stomach on buffets when I arrived in Vegas. Plus, the small packet of nuts were $8.99, which was crazy.
+I'm a starving college student whose mainly lived off of top ramen, plain rice, and eggs for the past 6 months. Not to mention the fact that I hadn't eaten anything this morning because I was afraid of throwing it up. So I was hungry. But the flight was only 5hrs and 52 minutes long, and I had already planned on using every last cent I could afford so that I could take out all of the pent up aggression in the pit of my stomach on buffets when I arrived in Vegas. Plus, the small packet of nuts were $8.99, which was crazy.
 
 "Hey," the guy across the row leaned into the aisle, "First time flyer?"
 
 "How can you tell," I somehow managed through gritted teeth.
 
-"I gripped the armrests the exact same way my first time. Hey hey, you're already doing better than me. On my first time, I threw up the moment we started climbing. Got it all over the people next to me, and even some on this lady and her baby in front of us. It was a whole thing. People shouting. Babies crying. And the smell. It's still in my nose sometimes whenever I fly. So relax," he told me. "You're doing great." He took out his hand, "My name's Kellan." He dangled it. "I know we're not suppose to make contact with strangers much anymore. But trust me, it helps. It's like touching grass barefoot after being chronically shut in online."
+"I gripped the armrests the exact same way my first time. Hey, you're already doing better than me. On my first time, I threw up the moment we started climbing. Got it all over the people next to me, and even some on this lady and her baby in front of us. It was a whole thing. People shouting. Baby crying. And the smell. It's still in my nose whenever I fly. So relax," he told me. "You're doing great." He took out his hand, "My name's Kellan." He dangled it. "I know we're not suppose to make contact with strangers much anymore. But trust me, it helps. It's like touching grass barefoot after being chronically shut in online."
 
 "What does?"
 
-"Touching skin. We're social creatures after all." He paused. Come on it helps me too. I never quite got over the fear of flying. I only tolerate it better now. Also. I've got a girlfriend." He showed me a picture of a pretty brunette on his phone.
+"Touching skin. We're social creatures after all." He paused. “Come on it helps me too. I never quite got over the fear of flying. I only tolerate it better now. Also. I've got a girlfriend." He showed me a picture of a pretty brunette on his phone.
 
 "Are you sure that's your girlfriend?"
 
@@ -108,7 +108,7 @@ I took a deep breath and unfurled my fingers from their death grips. They peeled
 
 He smiled, "That's better right?"
 
-I took my hand back, "No." And tried to smile but it felt more like a grimace, "Not really. But it is something." The plane shook and I tried not to scream. "Kellan." He tilted his head. "Talk to me."
+I took my hand back, "No." And I tried to smile but it felt more like a grimace, "Not really. But it is something." The plane shook and I tried not to scream. "Kellan." He tilted his head. "Talk to me."
 
 "Did you know that the flaps on the wings are called ailerons? In order to bank to the left, the left aileron goes up and the right aileron goes down."
 
@@ -116,7 +116,7 @@ I took my hand back, "No." And tried to smile but it felt more like a grimace, "
 
 "What?"
 
-"Something I read on a list once. About uncommon words that we see or use everyday but don't know the name of things. Oh god I'm blabbering. I'm sorry."
+"Something I read on a list once. About uncommon objects that we see or use everyday but don't know the names of. Oh god I'm blabbering. I'm sorry."
 
 "No, no. It's good for you. It'll help take your mind off the flight."
 
@@ -150,7 +150,7 @@ He shrugged, "Some flights are better, some are worse. Really depends, you know?
 
 "You're not helping," I sang.
 
-He smile sheepishly, "Sorry. Intrusive thoughts, you know?" He paused again. "You know."
+He smiled sheepishly, "Sorry. Jitters still, you know?" He paused again. "You know."
 
 We both turned our heads as the balled up girl suddenly got to her feet and walked towards the front of the plane. Amy the stewardess stopped her short of the curtain. "Up ahead is for First Class passengers only."
 
@@ -160,7 +160,7 @@ Amy motioned behind us, "There are bathrooms for your cabins in the back."
 
 The woman shook her head, "I'm not going back there." She whispered so low that I could barely make out the words, "It's back there."
 
-"Then Ma'am I'm going to have to asked you to take your seat."
+"Then Ma'am I'm going to have to ask you to take your seat."
 
 "I told you I have to pee," I could hear the urgency in her voice.
 
@@ -190,7 +190,7 @@ Kellan rolled his eyes, "What's the cost difference?"
 
 "For First Class. What's the cost difference? I'll pay it for her."
 
-"Sir, it's not about the cost. It's the rules."
+"Sir, it's not about the cost. These are the rules."
 
 Roger came out from behind the curtain. "Hey. What's going on? Everything alright?"
 
@@ -198,7 +198,7 @@ Roger came out from behind the curtain. "Hey. What's going on? Everything alrigh
 
 Amy looked at Roger as if he had caused this.
 
-"I apologize," Roger began. "But the First class amenities are reserved for the First Class passengers." He motioned to the back. "Please," he asked of her.
+"I apologize," Roger began. "But the First Class amenities are reserved for the First Class passengers." He motioned to the back. "Please," he asked of her.
 
 The woman turned towards the back for the first time since she had been moved, and her lip trembled. She scared me because I didn't expect her to start yelling. "Stop! Stop staring at me!"
 
@@ -222,9 +222,9 @@ But he didn't reply. He didn't even move.
 
 Amy shot Roger another angry look. "This is on you," she said as she disappeared behind the curtain.
 
-Roger cracked an uneasy smile and led the way towards the nose of the plane. The woman and him disappeared behind it. Several people clapped so I never heard a second curtain opening to the other side.
+Roger cracked an uneasy smile and led the woman towards the nose of the plane. They disappeared behind the curtain, and as they did some people started clapping so I never got to hear a second curtain opening to the other side.
 
-Several minutes passed by and I was still working on my own problems when Kellan once again leaned midway through the aisle. "She's been gone for awhile, hasn't she?"
+Several minutes passed by and I was still working on my own problems when Kellan once again leaned midway across the aisle. "She's been gone for awhile, hasn't she?"
 
 I shrugged, "Every minute feels like an hour right now."
 
@@ -246,7 +246,7 @@ Kellan looked at the two girls, "Well. Did he?"
 
 On that the four of us turned our heads and as if on cue, passenger 29 blinked. Collectively we let out a sigh of relief.
 
-"What's it about flying," Kellan asked. "That makes people a little nuts?"
+"What is it about flying," Kellan asked. "That makes people a little nuts?"
 
 "I don't know," I said. "The boredom perhaps?"
 
@@ -262,21 +262,21 @@ The plane bumped along and the Captain's voice came overhead, "We're coming up o
 
 I pulled on the faded blue strap on my seatbelt tighter until the thing cinched my waist. I imagined if we were to really crash, I'd be split neatly in two before my head went crashing into the hard plastic walls, causing me to feel pain moments before I died.
 
-The cabin rumbled as my brain sloshed in my skull, my eyeballs felt like they were in an earthquake as I took a last look ahead before I closed my eyes, making a mental note that the woman had not returned from First Class.
+The cabin shook, causing my brain to slosh in my skull. My eyeballs felt like they were in an earthquake as I took a last look ahead before I closed my eyes, making a mental note that the woman had not returned from First Class.
 
 "It looks like there's a storm up ahead," the Captain's voice came through. "Everyone please remain calm. And please remain seated. I may be forced to turn off suspendable auxiliaries momentarily."
 
 He had no sooner finished his sentence when I felt a crack of thunder go off next to the plane. It was close. And it was loud. Another flash of lightning pierced from below the window cover, and then all of the lights turned off on the plane.
 
-Someone screamed when it happened. I could hear a baby crying as it woke up. Even the breathing in the cabin changed. I could hear deeper stressed breaths from all around as we sat in the near dark. I heard someone slid open their window cover which caused a faint yellow sign to turn on.
+Someone screamed when it happened. I could hear a baby crying as it woke up. Even the breathing in the cabin changed. I could hear deeper stressed breaths from all around as we sat in the near dark. I heard someone slide open their window cover which caused a faint yellow sign to turn on.
 
 Within seconds Amy came rushing out from behind the curtain. I could hardly make out her silhouette as she stumbled down the aisle and shut the window closed. "Please keep your windows down," she told everyone.
 
 "Why," the passenger asked. "I want to see the lightning."
 
-"It could disrupt the pilot's instrumentation," she told him. "Or find a path of least resistance and find its way into the cabin. And we wouldn't want that now? Would we." She turned to everyone else, "That goes for any electronic devices as well. If anyone's left theirs on. It's a good time to make sure they're turned off now. Or it could attract electric discharges. Which could cause bodily harm and damage electronic equipment."
+"It could disrupt the pilot's instrumentation," she told him. "Or find a path of least resistance and find its way into the cabin. And we wouldn't want that now? Would we." She turned to everyone else, "That goes for any electronic devices as well. If anyone has left theirs on. It's a good time to make sure they're turned off now. Or it could attract electric discharges. Which could cause bodily harm and damage electronic equipment."
 
-I could see several screen faintly glow as people pulled out their devices as Amy made her way back to the front. By the time she disappeared behind the curtain. The cabin was dark once again.
+I could see several screens faintly glow as people pulled out their devices while Amy made her way back to the front. By the time she disappeared behind the curtain. The cabin was dark once again.
 
 But we wouldn't be alone with our silence for long.
 
@@ -284,21 +284,21 @@ But we wouldn't be alone with our silence for long.
 
 "Hey," Kellan shouted at the curtains. "We need some help back here."
 
-Several more people started shouting. I felt someone brush past me. And when the lights finally came back on, I noticed that it was the older woman from earlier, now clutching her purse that had rushed to the front. She looked absolutely horrified as Roger side stepped her and made his way towards the men in the back. Three or four of them were still up in arms. One of them was bleeding from the lip and another kept rubbing his eyes. They were obviously extremely angry but amongst them wasn't a single sign of passenger 29, instead when the lights came back on, he was in his seat as if he had never even moved.
+Several more people started shouting. I felt someone brush pass me. And when the lights finally came back on, I noticed that it was the older woman from earlier, now clutching her purse that had rushed to the front. She looked absolutely horrified as Roger side stepped her and made his way towards the men in the back. Three or four of them were still up in arms. One of them was bleeding from the lip and another kept rubbing his eyes. They were obviously extremely angry but amongst them wasn't a single sign of passenger 29, instead when the lights came back on, he was in his seat as if he had never even moved.
 
 "I'm telling you it was him that started it," I told Kellan. "His seat was empty during the blackout."
 
-"I'm not saying I don't believe you. But it was dark. Maybe it was difficult to tell from all the way up here. Or maybe he was scared too, and switched to the window seat when the fight started."
+"I'm not saying I don't believe you. But it was dark. Maybe it was difficult to tell from all the way up here. Or maybe he was scared too, and switched to the window seat when the fighting started."
 
 "I'm telling you, he wasn't in his seat Kellan."
 
-Roger moved past us, the first aid kit packed back in his hands. He had finished attending to the wounded. And Amy was trying to get their story straight. None of the four men could describe exactly what happened. But it was as if someone had spazzed out during the blackout. The first guy who started yelling said someone jumped out at him. Lashing him across the face. He tried grabbing to whoever did it, but instantly felt all sorts of hands start raining down on him. Two of the other men admitted to being brushed up on as well when it first happened. And they grabbed the closest thing close to them as well. Which happened to be guy one. And they all started fighting.
+Roger moved past us, the first aid kit packed back in his hands. He had finished attending to the wounded. And Amy was trying to get their story straight. None of the four men could describe exactly what happened. But it was as if someone had spazzed out during the blackout. The first guy who started yelling said someone jumped out at him. Lashing him across the face. He tried grabbing to whoever did it, but instantly felt all sorts of hands start raining down on him. Two of the other men admitted to being brushed up on as well when it first happened. And they grabbed the closest thing to them as well. Which happened to be guy one. And that’s when the fighting started.
 
-Amy eventually chalked it up to confusion, said that it was common and that no one else should panic. The men all agreed to not pressing any charges and returned to their seats. One by one they sat back down and I couldn't help but notice how they formed a half circle, all around 29 B.
+Amy eventually chalked it up to confusion, said that it was common in certain restrictive situations, and that no one else should panic. The men all agreed to not pressing any charges and returned to their seats. One by one they sat back down and I couldn't help but notice how they formed a half circle, all around 29 B.
 
 The old woman who had come running to the front when the fighting started, sat down in one of the empty seats closest to the curtains. She was clutching her purse tightly when I suggested to Kellan that I should probably check up on her. But he reminded me that the seatbelt light was still on so I stayed put.
 
-Nearly another hour goes by before the light turned off. The girl who needed to go pee had even returned to our cabin. She didn't say a word about her prolonged disappearance. Which was fine since she didn't talk to anyone in fact. And it was her business. Except instead of walking back to the seat she had been moved to, she walked towards the back of the plane and sat down in row 29.
+Nearly another hour goes by before the seatbelt light turned off again. The girl who needed to go pee had even returned to our cabin. She didn't say a word about her prolonged disappearance. Which was fine since she didn't talk to anyone in fact. And it was her business. Except instead of walking back to the seat she had been moved to, she walked towards the back of the plane and sat down in row 29.
 
 Several people seemed to have noticed this as well, and I could feel the tension rising as more people stopped minding their own business and more voices started talking about the strange things that have been unfolding ever since we boarded.
 
@@ -310,7 +310,7 @@ I shook my head.
 
 "Her lipstick color changed."
 
-Kellan, "Maybe it just looks that way. After having been in the dark for awhile."
+Kellan, "Maybe it just looks that way. We’ve all been in the dark for awhile and our eyes could still be adjusting."
 
 "She could have reapplied," I added.
 
@@ -352,7 +352,7 @@ Kellan entered our cabin again and crashed into his seat begrudgingly.
 
 "Did you see anything," Summer asked.
 
-"What do you mean/"
+"What do you mean?”
 
 "Anyone up there?"
 
