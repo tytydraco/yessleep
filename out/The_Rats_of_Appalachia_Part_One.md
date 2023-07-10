@@ -118,7 +118,7 @@ But Mr. Harding had always treated my father with some modicum of respect, even 
 
 Back on the road, Mr. Harding downed his second beer. His mood was now rangy, volatile.
 
-“Here’s a tip for drinking beer while on our public roadways,” he said to me. “Always wear blue jeans and always drink a blue beer that camouflages it, like.” Then he added, “When you do take a drawl of the beer, chug as much as you can. Get in and get out quick, like a military mission. When you’re not drinking, keep the beer low, blending in with your jeans and in your hand closest to the door.”
+“Here’s a tip for drinking beer while on our public roadways,” he said to me. “A public service announcement, if you will. Always wear blue jeans and always drink a blue beer that camouflages it, like.” Then he added, “When you do take a drawl of the beer, chug as much as you can. Get in and get out quick, like a military mission. When you’re not drinking, keep the beer low, blending in with your jeans and in your hand closest to the door.”
 
 “Cool,” I said, and twelve-year old me truly thought so.
 
