@@ -34,11 +34,13 @@ Roger grabbed the ticket and held it up to the light, "Mmm. No. I don't know."
 
 I could feel the butterflies starting to crown as Roger turned the paper in his hands, studying it. "Might have to call a Supervisor," he said.
 
-If I could have found my tongue hiding in the back of my throat, perhaps I would have said never mind, and that this was all a big misunderstanding; turned on my heels and walked right out of that terminal. If only I did. Roger broke out into a smile, "Just messing with you." He punched some numbers into the keyboard and an inaudible click caused the scanner to flicker, "You can go on through.
+If I could have found my tongue hiding in the back of my throat, perhaps I would have said never mind, and that this was all a big misunderstanding; turned on my heels and walked right out of that terminal. If only I did. Roger broke out into a smile, "Just messing with you." He punched some numbers into the keyboard and an inaudible click caused the scanner to flicker, "You can go on through.”
 
 Into a mostly empty plane heading for blue skies with less than 50 onboard passengers who I didn't even know. Where I'd sit next to complete strangers as many people do on airlines everyday all over the world. With folks that were less than faces, whom I would never think about again once I landed at my destination. And all of this would have been true, if it weren't for passenger 29.
 
-It started almost immediately. The shaking. My hands were gripping the steel armrests as the fuselage shook awake. The raspy voice of the intercom overhead didn't help any as I couldn't decipher a word that Captain was saying. My mind was still reeling by the fact of how little air actually came from the yellow oxygen masks if they were to drop, 5 minutes is what the pamphlet read. Five. Does that mean the airline expected us to be dead after more than 5 minutes or was it really all we needed? Who came up with that number? What were their credentials? I bet people in First Class got more than five minutes.
+It started almost immediately. The shaking. My hands were gripping the steel armrests as the fuselage shook awake. The raspy voice of the intercom overhead didn't help any as I couldn't decipher a word that the Captain was saying. 
+
+My mind was still reeling by the fact of how little air actually came from the yellow oxygen masks if they were to drop, 5 minutes is what the pamphlet read. Five. Does that mean the airline expected us to be dead after more than 5 minutes or was it really all we needed? Who came up with that number? What were their credentials? I bet people in First Class got more than five minutes.
 
 "Ma'am could you please take your seat."
 
@@ -86,7 +88,7 @@ I turned slowly back towards the front. My arms shaking harder than ever before 
 
 Several minutes later the curtain opened up again and Amy the stewardess plastered on a fake smile that caused her foundation to crack as she pushed a steel cart down the aisle.
 
-I'm a a starving college student who mainly lived off of top ramen, plain rice, and eggs for the past 6 months. Not to mention the fact that I hadn't eaten anything this morning because I was afraid of throwing it up. The flight was only 5hrs and 52 minutes long. And I was hungry. But I had already planned on using every last cent I could afford so that I could take out all of the pent up aggression in the pit of my stomach on buffets when I arrived in Vegas. Plus, the small packet of nuts were $8.99, which was crazy.
+I'm a starving college student whose mainly lived off of top ramen, plain rice, and eggs for the past 6 months. Not to mention the fact that I hadn't eaten anything this morning because I was afraid of throwing it up. The flight was only 5hrs and 52 minutes long. And I was hungry. But I had already planned on using every last cent I could afford so that I could take out all of the pent up aggression in the pit of my stomach on buffets when I arrived in Vegas. Plus, the small packet of nuts were $8.99, which was crazy.
 
 "Hey," the guy across the row leaned into the aisle, "First time flyer?"
 
