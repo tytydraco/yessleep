@@ -151,3 +151,7 @@ That night we drove out to get pizza; there was only a couple of food options in
 Around two in the morning I woke with a start. An eerie sensation flowing through my body, as though I was being watched from a million different directions all at once. A strange tapping at the windows surrounding the property. I got up and looked out the windows, but it was too dark to make anything out. There was no outdoor lighting, and everything outside seemed but shadow. A scuttling, rodent-like sound seemed to emanate from all along the perimeter of the little cabin.
 
 A creeping, haunting sensation gripped me, and then let go. I suppose now I would call it a premonition, but back then I just thought it a bad case of the willies. I sat for hours, listening to every strange sound. The air itself seemed to taste some awful miasma of putrid death. In his sleep, Dan tossed and turned with uncontrolled violence.
+
+[Part Two/Final](https://www.reddit.com/r/nosleep/comments/14wuqf2/the_rats_of_appalachia_final/) 
+
+&#x200B;
