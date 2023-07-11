@@ -1,4 +1,6 @@
-[Okay, so I should’ve told you about Tara.](https://www.reddit.com/r/nosleep/comments/14u4txz/the_ghost_girl_part_1/) Honestly, I was positive she wouldn’t turn up. And my post was already long as it is. And I’m not exactly proud of how I behaved back then.
+[Part 1 - The Ghost Girl](https://www.reddit.com/r/nosleep/comments/14u4txz/the_ghost_girl_part_1/)
+
+Okay, so I should have told you about Tara. Honestly, I was positive she wouldn’t turn up. And my post was already long as it is. And I’m not exactly proud of how I behaved back then.
 
 Tara, as you may have gathered, was the third person referenced in the rhyme. She only joined our friendship group a month or two before Joanne disappeared. I’d never quite gotten the story about her social fall from grace, as Joanne and I were quite literally the last people in the school anyone would think to share any gossip with and Tara refused to talk about it.
 
@@ -92,13 +94,13 @@ I hadn’t ever seen anyone get this high up a tree before. Not that I’d seen 
 
 Higher and higher she rose.
 
-“Tara get down. Seriously.  I’m not coming after you.” 
+“Tara get down. Seriously.  I’m not coming after you.”
 
 She was so high up now I had to shout.
 
 “Fine,” she shouted back.
 
- Given how high up she'd made it, I could only just make out her lip pouted in a sulk, like a child having a tantrum. And just as I opened my mouth to chastise her again, she stopped, let go, and fell backwards, hurtling towards the ground.
+Given how high up she'd made it, I could only just make out her lip pouted in a sulk, like a child having a tantrum. And just as I opened my mouth to chastise her again, she stopped, let go, and fell backwards, hurtling towards the ground.
 
 As soon as the thought entered my head to try and catch her, I was already too late.
 
@@ -157,3 +159,5 @@ Once it was disposed of, I sort of expected to feel better, but I didn’t reall
 Or maybe it was that I knew, deep down inside, that when I got back home, that walkie talkie would be waiting on my bed as good as new.
 
 *“Do you* [copy?”](https://www.reddit.com/r/viciousmock/comments/i5robb/list_of_stories/)
+
+[Part 3 - The Road Trip](https://www.reddit.com/r/nosleep/comments/14wq23y/the_ghost_girl_part_3_the_road_trip/)
