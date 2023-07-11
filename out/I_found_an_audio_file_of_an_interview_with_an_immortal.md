@@ -70,7 +70,7 @@ X: Back then, there were maybe a hundred of us. The only people in the world. Th
   
 \[six seconds of silence, then X continues\]  
   
-We searched, and we searched, and we were never able to found it. After a few hundred years, we forgot what we’d even been searching for, and the group had settled down for good. Children, community, recreation, all the luxuries of a people gone soft.  
+We searched, and we searched, and we were never able to find it. After a few hundred years, we forgot what we’d even been searching for, and the group had settled down for good. Children, community, recreation, all the luxuries of a people gone soft.  
   
 And then they came. Suddenly, the sky was filled with a million glowing pinpricks of light, and out from the forest emerged these creatures, a gross, jigsaw patchwork of animal corpses, coughing pus and blood as they attempted to communicate with us.  
   
