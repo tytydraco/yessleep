@@ -196,12 +196,8 @@ How many nights have I sat in my own truck, looking out through its steamed wind
 
 My son is twelve now, and I get to see him on alternate weekends, as denoted in my divorce settlement agreement. As I said, sometimes I’m too hard on the boy. I suppose I have more of Mr. Harding in me than I care to admit. Or more likely the same poison that felled my maternal grandfather.
 
-I see it in my boy's eyes, more often than I’d care to: hatred. The same way Dan hated his own father. Wished him dead, until his wishes were heard by corrupted nature itself.
+I see it in my boy's eyes, more often than I’d care to: hatred. The same way Dan hated his own father. Wished him dead, until his prayers were answered by corrupted nature itself.
 
-I’ve got it all planned out, a special weekend. I’m going to take my own son out to that special part of Appalachia. It’s time to see if I need to learn my lesson the hard way, as Mr. Harding did. It’s time to visit my little friends, the groundlings.
+I’ve got it all planned out, a nostalgic weekend. I’m going to take my own son out to that special part of Appalachia. It’s time to see if I need to learn my lesson the hard way, as Mr. Harding did. It’s time to visit my hungry little friends, the groundlings.
 
 Past, present, or future: it’s always the same old forks in the road.
-
-Was Mr. Harding a "good" man? No. 
-
-And neither am I. 

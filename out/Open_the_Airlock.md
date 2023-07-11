@@ -216,7 +216,7 @@ My decision was made - the airlock would remain closed, and I would condemn my f
 
 The minutes fell away like the tears on my cheeks as I mourned the loss of my dear friend and commander while the sounds of fists beat against the side of the lander.  This carried on for an hour or so, maybe longer, and still none of them gasped for breath even once.
 
-I went on about cycling through the reboot protocols again, something I hadn’t done since I’d repaired the antenna.  I hadn’t expected any results - it was simply something to do to keep my mind occupied away from the incessant sound of the banging at the door - so I was surprised when I picked up a series of grainy images of the video feed from the rover.
+I was able to get a signal out, at least enough to share my story along with a repeating SOS signal, but the reception still doesn't seem to work, so there's no way of knowing if this transmission even made it back to earth.  I went on about cycling through the reboot protocols again, something I hadn’t done since I’d repaired the antenna. I hadn’t expected any other results though - it was simply something to do to keep my mind occupied away from the incessant sound of the banging at the door - so I was surprised when I picked up a series of grainy images of the video feed from the rover.
 
 The images weren’t great given the poor signal, but I was able to make out all the detail I needed - the bodies of Diana Figueroa, Andrew Ratcliffe, and Noah Thornton.  Diana was draped over the front seat of the rover, Andrew was leaning against a rock about ten yards away, the glass of his helmet smashed, and Noah was lying face-down in the dust, half of his body hanging over the edge of a crater.
 
