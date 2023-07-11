@@ -1,0 +1,25 @@
+During either my junior or senior year of high school, my dad moved into a new house after a divorce from my ex stepmom. I had two younger siblings between the two of them, a younger brother and a younger sister. Since I lived with my mom a majority of the time during high school and stayed on-campus during my first college semester, I shared a room in this house with my Anna, my younger sister, who is about nine years younger than me. Alex, my younger brother by six years, had his own room down along the hall. 
+
+This incident takes place in the upstairs hallway. For context, the hallway comes off from the kitchen. Going down it, you’ll pass us kids’ bathroom on the left, with Alex’s bedroom door across from it on the right. Continuing down, the hallway ends in a small square, with the entrances to Anna and I’s room and dads room sitting caddy corner to each other. (I hope that’s not too confusing!)
+
+One night, the summer before I started college, I was coming home late from a date with my at-the-time boyfriend. It was about 2AM, so everyone in the house was asleep. Coming in the house, I knew my dad was dead asleep because I could hear his snoring. I went upstairs and walked to my room. Alex and Dad’s doors were shut, meaning they were both asleep. Anna was asleep in our room, and I threw my phone onto my bed and went to the bathroom to get ready for bed. 
+
+I shut the bathroom door, and started getting dressed for bed and brushing my teeth. As I was finishing up and brushing my hair, I heard a noise from outside the bathroom door, in the hallway. This didn’t really surprise me, since Alex usually got up in the middle of the night to use the restroom. I went to open the door to tell him I would only be just a second, but before I turned the handle I stopped. The first noise I heard had been the creaking of the wood flooring in the hallway, but now I heard a different noise. It was breathing. 
+
+Now, that doesn’t seem scary in itself, but it wasn’t normal breathing. It was heavy, not labored or anything, just, heavy. I don’t know how to explain it, but there’s a difference between the sound of kids breathing and adults breathing when you hear it in dead silence. But the breathing sounded like an adult. 
+
+I could still hear my dad snoring, so I knew it wasn’t him. It couldn’t be Alex, that’s why I stopped in the first place. That, and, as the footsteps moved to the kitchen they sounded heavy. Like a grown man walking around. 
+
+This was when I started panicking. My first thought was an intruder. There was a sliding back door in the kitchen that led to the backyard, and our fence was by no means unclimbable. I was worried that one of the kids’ must have left it unlocked when they went to the park behind the house and no one noticed. I knew for sure I locked the front door when I had come in, but since I didn’t use it I hadn’t checked the back door. 
+
+Since it all made sense in my mind, I started panicking even more. I locked the door and held my breath, and I could hear the breathing start to come down the hallway. The creaking of the floorboards signaled how close it was to the bathroom door. I held my breath, frozen in absolute fear. The breathing was heavy, and crystal clear. Like a man was standing directly on the other side of the door. I was shaking with fear, my dad always locked his door at night, so he couldn’t help my siblings. I didn’t have my phone on me, it was in my room on my bed. I didn’t have any sort of weapon in the bathroom.
+
+I hadn’t heard any more movement from outside the door, and the breathing was still there. I slowly and quietly knelt down so I could look under the door. I was looking for feet. I was so scared I could hear my heart beating in my ears. 
+
+There was nothing. No feet, and suddenly, no breathing. The creaking was gone too. I got up, still trying to be quiet, and grabbed my hairbrush. I figured that was the best thing I’d have for a weapon, and I was just going to make a mad dash to my phone on my bed.
+
+I held the hairbrush and quietly unlocked the door, then held my breath and listened. Nothing. I whipped the door open and looked up and down the hallway. Nothing. I ran to my room and grabbed my phone, and called the boyfriend I had been on a date with hours prior. I even asked him if he had come inside after he dropped me off, I was so sure there had been someone in the house. With him on the phone, I went through and checked the whole house. There was nothing. I checked the back door in the kitchen, and it had been locked. Alex and Anna were sleeping peacefully, and I could tell by Dads snoring he hadn’t woken up either. 
+
+I went to bed that night with my door locked. The next morning, I told my dad everything that had happened. He could tell that I had genuinely been scared, so he checked everywhere too. Apparently we had an alarm system too, and it hadn’t gone off that night. 
+
+It wasn’t an intruder, or at least, not a person. But it was so real, and so terrifying, that I didn’t go visit my dad for a while after that, and it was a few months before I spent the night at that house again.
