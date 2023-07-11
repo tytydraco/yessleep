@@ -38,7 +38,7 @@ In short, they provide necessary backstory for me to now discuss the current dir
 
 Ever since then, the weather events have been nonstop. I’ve frankly been hidden in my bathroom for five days now, and with the remaining canned goods I could bring in with me dwindling, the situation isn’t looking great.
 
-Constant rain intertwined with lightning has been occurring nearly every thirty minutes, and we’re not confident that we’d be able to drive far enough out of the radius of the town in the brief windows of time, sometimes just mere minutes, that the events stop. It’s gotten rather cold this today, and with the rain still thundering outside we’re unable to leave town. I’m not sure of what will happen once night falls, but once the totems enter town I can only assume the outcome.
+Constant rain intertwined with lightning has been occurring nearly every thirty minutes, and we’re not confident that we’d be able to drive far enough out of the radius of the town in the brief windows of time, sometimes just mere minutes, that the events stop. It’s gotten rather cold today, and with the rain still thundering outside we’re unable to leave town. I’m not sure of what will happen once night falls, but once the totems enter town I can only assume the outcome.
 
 I write this to leave behind at least some trace of this nameless town, as the sun goes down in an hour and I’m not sure if there will be another opportunity for me to type this, and I’d be lying if I said I wasn’t a bit scared.
 
