@@ -2,7 +2,7 @@ It was on my first flight to Vegas; city of sin, 24 hour roulette tables, Baccha
 
 I had never flown before, not unless tying a blanket around my neck and jumping from the second floor landing counts. I broke my arm that time, never broke anything else. And never tried climbing so much as a ladder since. Which is why I would have *never* agreed to fly if someone else wasn't footing the bill. That someone, or something, being the student lottery on campus. To be honest I had never even heard of a campus lottery system until someone from the administration's office notified me that I had won an all inclusive trip from Boston to the LAS.
 
-A straight shot, no steps, 30 thousand fucking feet in the air where I'd be dangling my toes inside of what's essentially an empty Twinkie with wings.
+A straight shot, no stops, 30 thousand fucking feet in the air where I'd be dangling my toes inside of what's essentially an empty Twinkie with wings.
 
 I was expecting to be packed in like ants but was mildly relieved when I arrived at the gate and the rows of pleather black seats were nearly vacant. There were two girls sitting near me, one was chewing gum as the other scrolled through her phone while rubbing her arm.
 
