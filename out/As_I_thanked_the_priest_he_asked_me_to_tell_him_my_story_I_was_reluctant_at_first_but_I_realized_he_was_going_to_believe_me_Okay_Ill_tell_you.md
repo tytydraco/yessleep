@@ -30,5 +30,4 @@ Realizing that I needed professional assistance, I contacted you, and told you t
   
 You arrived promptly, armed with ancient rituals and prayers. Together, we faced the darkness that had taken hold of my life. With each word spoken, the air became heavy with a sense of otherworldly energy. The demon fought back, resisting its banishment, but through sheer determination and unwavering faith, we prevailed.  
   
-As the final words of exorcism echoed through the room, a tangible sense of relief washed over me. The once-oppressive atmosphere lifted, and I felt a weight lifted from my shoulders. The demon was gone, banished back to the realms from which it came.  
-
+As the final words of exorcism echoed through the room, a tangible sense of relief washed over me. The once-oppressive atmosphere lifted, and I felt a weight lifted from my shoulders. The demon was gone, banished back to the realms from which it came."
