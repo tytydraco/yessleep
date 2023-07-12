@@ -1,0 +1,33 @@
+From beneath a heap of blankets, I listened to the storm pass through. The forest groaned in the wind, hail rattled against the wood-plank roof, and my mother huddled against me, telling me a fairy tale that I already knew by heart:  
+"Once upon a time, there lived a brave queen and her son, the handsome young prince. They lived in a cabin deep in the woods, because the brave queen had a terrible secret: the young prince's father was secretly a terrible demon! He could fool the rest of the world, but not the brave queen. She knew that while he looked and spoke like a man, he was really a demon in disguise. That's why she escaped from the palace with her young prince and hid him away someplace where the demon would never, ever find him…"   
+“What did the demon look like?” I always asked, even though I was as terrified as I was fascinated by the answer that was coming.  
+“Well…” my mother began, her pause filled by a peal of thunder “...his skin is as gray and rotten as an old dead tree. He has six fingers on each hand, and his nails are as sharp as hawthorn needles. His smile is as wide as a grinning deer skull’s, and when he opens his mouth, its big enough to swallow a little boy whole. But nobody else can see it. To them, the demon is another person, just like you or me. He’s very clever, and it wasn’t easy for the brave queen and her handsome prince to get away. The demon hired wicked men to follow them, and the brave queen and her handsome young prince had to give up all the luxuries that they used to have in the palace. Several times, they were nearly caught. When that happened, they had to run away and leave everything behind. It wasn’t easy, but the brave queen would have done anything in the world to be with her handsome young prince.”   
+The battering wind and rain were so loud that I could barely hear my mother’s voice, but it didn’t matter: I could feel her warmth. I snuggled against her and fell asleep.   
+I saw the demon for the first time the next morning–or at least, I thought I did. My mother and I were collecting mushrooms by the creek when the hair on the back of my neck suddenly stood on end. I was being watched: I could feel it. I looked frantically around for my mother, but she’d turned her back to me for a moment as she foraged. Normally, she never let me out of her sight: how long had the demon been stalking us, just waiting for an opportunity like this?  
+A twig snapped; I spun around to see a black, vaguely-humanoid shape moving toward me through the woods. I ran to my mother, too terrified of the thing behind me to even scream. Grasping immediately that something was wrong, my mother abandoned her mushrooms, scooped me into her arms, and ran for the safety of our cabin. No demon came crashing through our door, but when we returned to the creek a few hours later, the mushrooms and basket were gone.   
+My mother had always carried a pistol in her belt, but after that, she kept it drawn in her hand. As dusk settled on the forest, she burst into the clearing that surrounded our cabin, searching for any sign of the demon. A gunshot reverberated among the endless trees:  
+“Come out, you bastard!” my mother screamed. “You might want him, but you’ll never have him!”   
+It was then that I heard a second set of footsteps fast approaching the cabin. There was no time to close it or to warn my mother: I pressed myself against the wall and shut my eyes instead. Seconds later, a small square something flew through the cabin window.   
+It was a picture.   
+It showed my mother and I smiling with a man who looked like me; on the back, strange symbols had been scribbled with black ink. I peeked out the empty window into the gloomy woods: whoever had thrown in through the window was long gone. I found myself staring at the picture for a long time, wondering if it was some kind of evil magic that kept me from tearing my eyes away.   
+I was so lost in those three smiling faces that I didn’t even notice that my mother was back. She snatched the photo out of my grasp with trembling hands, muttering two blood-chilling words:  
+“It’s him.”   
+Pistol in hand, she started packing right away and jumped at every sound. Once everything we could take had been packed into her ancient, rumbling Chevy truck, she splashed gasoline through every room of the cabin and struck a match. Before we drove away, she threw the photo into the blaze.   
+Fog had rolled in with the cool night air, turning the woods into a sea of white. We hardly ever left the cabin, and the overgrown dirt track that led away from it was difficult to navigate at the best of times. My mother drove white-knuckled, gritting her teeth at each pothole and scraping bush. To me, their thorns sounded like the claws of the demon.   
+With a sudden BOOM, the steering wheel went slack. My mother braked frantically, and when I saw the whites of her terrified eyes I knew that we were thinking the same thing: both tires bursting had been no accident.   
+Something flew out of the fog and crashed into the driver’s-side window, creating a spiderweb-pattern crack. My mother shrieked, covering her face against the glass as something else shattered it.   
+Hands reached through the shattered glass. They pinned my mother’s arms to her side as she fired her pistol wildly. In the cramped space, the sound was deafening: I shut my eyes and covered my ears, waiting for the nightmare to be over.  
+Instead, my mother was dragged out the window into the darkness. No matter how tightly I pressed my hands over my ears, I could still hear her screams. They turned to moans and finally, to silence. That silence, that waiting, was worse than everything I’d experienced so far. In the end, those unfamiliar hands closed around me, just as I always knew they would.   
+“It’s alright, son,” a husky, unfamiliar voice sobbed into my neck. “It’s over. It’s finally over.”  
+The case was quite sensational for its time. There were many who questioned the motives and legality of a father who used private detectives and secondhand police chain spikes to recover his son when the law wouldn’t do it–even if the mother was a member of a cult.   
+At the time, of course, I was concerned with other things–like all of the big words the men in white coats around me were using.   
+Words like “malnutrition,” “illiterate,” and “brainwashing.”   
+Later, there would be other, better words: words like “school,” “bicycle,” “games,” and “friends.”   
+My favorite words of all, however, I learned thanks to my father: “family” and “home.”   
+
+
+  
+[X](https://www.reddit.com/r/beardify)  
+
+
+&#x200B;
