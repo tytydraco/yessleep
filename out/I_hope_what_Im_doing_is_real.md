@@ -75,9 +75,9 @@ After the unnecessary powder run. I found myself back in bed trying to figure th
 
 "Keep going." He said. His voice clear, even more clear. He really sounded like my father. "Keep fighting it" And as quick as he appeared, he left. And the sky returned blue again. 
 
-_Something_ was happening. I don't know what that thing is. But my mother is behind it. And I have to find out.
+_Something_ was happening. I don't know what that thing is. But I'm sure my _mother_ is behind it. And I have to find out.
 
-Fast forward, I have yet to find any proper clues. Because every time I get too close, my mother, or even someone else, "Kills" me and I "repeat" the cycle again. I tried just ignoring it, but now I realized, my mother does want me "dead". After a year she kills me regardless, with no explanation. Its just that getting close to the truth speeds up the process. I've asked for help, only for myself to be found out immediately after. I haven't seen my "Father" since that last encounter now. Maybe he's given up on me, or maybe I am getting close, close enough that he doesn't think I need any guidance anymore.  
+Fast forward, I have yet to find any proper clues. Because every time when it seems that I get too close, my mother, or even someone else, "Kills" me and I "repeat" the cycle again. I tried just ignoring it, but now I realized, my mother does want me "dead". After a year she kills me regardless, with no explanation. Its just that getting close to the truth speeds up the process. I've asked for help, only for myself to be found out immediately after. I haven't seen my "Father" since that last encounter now. Maybe he's given up on me, or maybe I am getting close, close enough that he doesn't think I need any guidance anymore.  
 
  And this is where my post ends. I post this here in hoping someone could answer my dilemma, if not for myself but for others who are maybe trapped in their own cage too. Or even just share my plight with you. Maybe this world isn't real either and I've been wasting my time sharing this. But I don't care. I've lost track on how many "Deaths" I've experienced now. I don't remember what my friends looked like, what my other relative looks like, or even what my mother's name is. I only remember who was my father.
 
