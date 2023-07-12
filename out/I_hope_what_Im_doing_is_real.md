@@ -45,9 +45,9 @@ Fast forward, I was able to get the keys from my mother (Without her knowing) an
 
 I opened it. Surprisingly it didn't have a password. On the desktop was full of word documents. I read the latest one. It seemed like a observation diary.
 
-"Day 263. Still no signs of change. Bad but not good either. Gary (This was my father's name. Somehow I could still remember it after all that's happened to me right now, but I couldn't remember my own's mothers name) had tested this numerous times and achieved almost 90% good results, yet I haven't even received a fraction of that, not even bad results!"
+_"Day 263. Still no signs of change. Bad but not good either. Gary (This was my father's name. Somehow I could still remember it after all that's happened to me right now, but I couldn't remember my own's mothers name) had tested this numerous times and achieved almost 90% good results, yet I haven't even received a fraction of that, not even bad results!"_
 
-"How am I supposed to learn from my wrongs when nothing wrong even happens!"
+_"How am I supposed to learn from my mistakes when nothing wrong even happens!"_
 
 I'm not sure if the writer is my mother or someone my father knew. But before I could even read more, something crashed on my head, enough force to lose my own balance and started to lose consciousness. But right before I closed my eyes, I saw, my mother was right there behind me. 
 
