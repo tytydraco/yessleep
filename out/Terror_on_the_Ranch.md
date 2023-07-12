@@ -341,3 +341,7 @@ I’m sorry, but I just don’t know.
 What I do know is that on nights when it’s raining, there are sometimes large, round spaces where the rain doesn’t fall. But by sunrise, the cattle are fine. Maybe these aliens think the cattle are explosive now. Or maybe they have other plans. Whatever the case, one thing is certain…
 
 They haven’t left us yet.
+
+__________________
+
+[X](https://www.reddit.com/r/FishermanTales/?utm_source=share&utm_medium=ios_app&utm_name=ioscss&utm_content=1&utm_term=1)
