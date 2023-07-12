@@ -1,0 +1,14 @@
+The afterlife is… controversial at the least. People around the world have debates about whether our actions on Earth affect our afterlife, people worship deities hours a day to plead their way into heaven.  
+However, I’ve always believed that once we died, a big black void of nothingness awaits us. You won’t even know if you’re dead because you won’t have a consciousness.  
+Unfortunately, this is not the case. My death was pitiable at the least. It was my sixth time going cliff-diving, and I forgot to depth check the water beneath. When I dived, I broke both of my legs and drowned.   
+At first, everything was black. It was peaceful for the most part. I still had all my senses: I could feel the water splashing on my sides, and I could hear the shouts of my diving buddy.   
+It was only now that I realised I was somehow breathing underwater. I carefully pried my legs off the rocks beneath me and looked up. He only kept on wailing and was talking to the police about where we were.  
+I gestured to him, slowly climbing out of the water, trying to get a foothold on the cliff so that I could get out. His reaction was the same, and when I looked back I realised why.  
+My body laid still on the water, lifeless, unmoving. The water was tinted a nauseating red around where I was. I presume you can guess what the afterlife is now.  
+I climbed up the side of the cliff in about 5 minutes, and within that time, he didn’t acknowledge me whatsoever. I didn’t feel pain from the fall, I didn’t look injured, and when I reached him, I tapped him on the shoulder. When it entered his shoulder, I turned away and walked into the woods.  
+This is what the majority of my years were like. I saw my own funeral, visited my own grave. I mapped the Grand Canyon, saw every species in the Amazon, until nothing was left for me to see.  
+One day I decided to go back to where I was reborn. I ambled through those same woods as I did many years ago, and stared deeply into the forest, desperately trying to feel a sense of completion.  
+I saw something glisten in the distance. Somewhere in the woods, there was something. An animal, an object? It came closer, and its figure resembled something I’ve seen a million times.  
+It was a human. Not only was it walking, but running. Running at me. An impending sense of doom seized my heart. I swiftly turned, peering over the cliff, contemplating if I should do it again.   
+The crunch of leaves only got closer by the second as I worked myself up. I leaped as far forwards as any ghost could do, and within seconds, I fell the 60 or so feet into the ocean.  
+I was completely unharmed. I looked up, waiting to see the figure in further detail, but nothing was there. Perhaps they’d stopped once I jumped. They might’ve just been a regular person and seen something else, not me. But I knew that from now on, my afterlife was just about to get a whole lot interesting.
