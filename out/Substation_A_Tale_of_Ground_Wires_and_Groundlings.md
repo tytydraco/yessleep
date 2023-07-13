@@ -38,11 +38,13 @@ Yeah, neither of us believed that. It was always the same when the lines went ha
 
 “With all this overtime,” I turned toward Jericho, “next paycheck…I’m going to spring for a generator.”
 
-“Or \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_could, you know, work on updating the system so we don't cut out every other fucking day.”
+“Or \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_Electric could, you know, work on updating the system so we don't cut out every other fucking day.”
 
 "But then we wouldn't get overtime!"
 
-My stomach was unsettled. I'm not the most superstitious man, but I had a bad feeling even before the shift had started. There had been whispers in our community the last few nights. Tell of "groundling" sightings, devoured animal-life and pets, even an unexplained death or two. While working a line in \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_Creek, a few weeks back, I came across a gutter filled with eviscerated rats, but of the normal variety.  But everyone around here knew groundlings were just local legend, our very own version of the chupacabra, only they present as a horde of rat-like creatures that devour everything in sight and (possibly) feed on negative emotions, whereas old chupie is apparently a canine-like creature. But yeah, I thought all the talk of the groundlings was just local hocus pocus, until last night...
+My stomach was unsettled. I'm not the most superstitious man, but I also had a bad feeling last night, had it  even before the shift had started. Just didn't want to admit it, not even to myself. There had been whispers in our community the past few nights. Tell of "groundling" sightings, devoured animal-life and pets, even an unexplained death or two. 
+
+While working a line in \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_Creek, a few weeks back, I came across a gutter filled with eviscerated rats, but of the normal variety.  But everyone around here knew groundlings were just local legend, our very own version of the chupacabra, only they present as a horde of rat-like creatures that devour everything in sight and (possibly) feed on negative emotions, whereas old chupie is apparently a canine-like creature. But yeah, I thought all the talk of the groundlings was just local hocus pocus, until last night...
 
 Here’s a partial list of the things I was worried about last evening: whether my new blood pressure medication was too strong, if my stomach was developing a paunch, my son Ian’s math grades, my daughter Tessa’s braces, making our rent payment, cars that needed maintenance, a dog whose allergies were becoming cost prohibitive.
 
