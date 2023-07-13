@@ -169,3 +169,5 @@ What she said was true because she had hand marks around her neck as if someone 
 “Strigoi,” she said. All blood had drained from her face, and she became as white as a sheet. “I feel sick, Vlad. Very sick. I think he’s trying to kill me, and God only knows I can’t let you on your own in this dying and twisted world. You need to go and get Janosz here at the crack of dawn. He was born on a Saturday. He can see the strigoi.”
 
 [Janosz needed to kill it before it killed us.](https://www.reddit.com/r/PostMortem33/comments/gpnh5h/story_masterpost/)
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/14yjdzt/i_live_in_an_isolated_village_in_transylvania/)
