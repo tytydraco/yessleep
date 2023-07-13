@@ -44,6 +44,8 @@ We dragged him into the woods to a small clearing and tied him to the base of a 
 
 When I splashed water on his face he sputtered to life, his eyes swollen red. I showed him a picture on my iphone of Julia’s lifeless body. He screamed, and his face turned pale. We felt this was enough to condemn him and were barely paying attention to his cries of, “oh my god! My dearest friend Julia!”. “Please, you don't think I actually did it? Please believe me” every syllable was enunciated with desperation. Julia’s dad was silently shaking, his gun was peering down into the blue eyes of Connor. “Kill him,” I said. A shot rang out in the forest, a only bloodstained tree sat there as the witness.
 
+&#x200B;
+
 I remember my sadness and the look of desperation on his face that I fear facing in the afterlife. It wasn't until the next morning that the official autopsy confirmed what chilled me to my spine. The skin under Julia's nails was that of a black man, not of my white roomate Connor.
 
 &#x200B;

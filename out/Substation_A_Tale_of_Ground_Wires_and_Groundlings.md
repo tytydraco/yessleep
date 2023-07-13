@@ -246,7 +246,7 @@ I was just glad he was seeing the groundlings too.
 
 **12:01 AM**
 
-The local substation in Jackson was hidden behind a municipal filling station off A\_\_\_\_\_\_\_\_\_\_\_\_ Road. As we pulled past the gravel entrance, I witnessed a multi-headed creature dart away in the light of our high beams. Heimlich cut through to yell at us, so Jericho cut power to the feed. “Oops,” Jericho said. We both laughed, in the anxious way people do when they are riddled with fear.
+The local substation was hidden behind a municipal filling station off A\_\_\_\_\_\_\_\_\_\_\_\_ Road. As we pulled past the gravel entrance, I witnessed a multi-headed creature dart away in the light of our high beams. Heimlich cut through to yell at us, so Jericho cut power to the feed. “Oops,” Jericho said. We both laughed, in the anxious way people do when they are riddled with fear.
 
 We didn’t need the bucket to check the substation, so we kept the truck idling as we made our way through the gate. The wind swirled around us; the precipitation so thick it almost took my breath away. We were armed with those big, lantern-style flashlights. Yellow plastic, supposedly LED lights, though they didn’t do much against that type of darkness. Perhaps if it had been a full-moon, or even a half moon that evening. Perhaps if it weren’t for the storm, or if we were in an area with more light pollution. Perhaps, perhaps…
 
