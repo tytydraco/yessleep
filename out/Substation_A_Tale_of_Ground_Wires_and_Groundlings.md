@@ -14,7 +14,7 @@ I called my wife Jenya from the bucket truck, heading East on \_\_\_\_\_\_\_\_\_
 
 "You always have a bad feeling." The phone service cut out before she could respond.
 
-Traffic was spartan, mostly other line workers and a surprisingly strong police presence. More ambulances than normal. Jericho fiddled with the radio. Habit. His aged face world-weary and blistered in the dim light of the cabin. He flipped from one sports radio station to the next, chasing sports radio announcers who could validate his bitter thoughts.
+Traffic was spartan, mostly other line workers and a surprisingly strong police presence. More ambulances than normal. Jericho fiddled with the radio. Habit. His aged face world-weary and blistered in the dim light of the cabin. He flipped from one sports radio station to the next, chasing sports radio announcers who would validate his bitter thoughts.
 
 **9:00PM**
 
@@ -42,7 +42,7 @@ Yeah, neither of us believed that. It was always the same when the lines went ha
 
 "But then we wouldn't get overtime!"
 
-My stomach was unsettled. I'm not the most superstitious man, but I also had a bad feeling last night, had it  even before the shift had started. Just didn't want to admit it, not even to myself. There had been whispers in our community the past few nights. Tell of "groundling" sightings, devoured animal-life and pets, even an unexplained death or two. 
+My stomach was unsettled. I'm not the most superstitious man, but I also had a bad feeling last night, had it  even before the shift had started. Just didn't want to admit it, not even to myself. There had been whispers in our community the past few nights. Tell of "groundling" sightings, devoured animal-life and pets, even an unexplained death or two.
 
 While working a line in \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_Creek, a few weeks back, I came across a gutter filled with eviscerated rats, but of the normal variety.  But everyone around here knew groundlings were just local legend, our very own version of the chupacabra, only they present as a horde of rat-like creatures that devour everything in sight and (possibly) feed on negative emotions, whereas old chupie is apparently a canine-like creature. But yeah, I thought all the talk of the groundlings was just local hocus pocus, until last night...
 
