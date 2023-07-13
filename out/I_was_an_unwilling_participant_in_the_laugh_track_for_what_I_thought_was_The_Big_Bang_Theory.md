@@ -25,7 +25,9 @@ I nodded. “The shady one?”
 
 “That’s exactly why they’re shady.” I pointed out. “Shouldn’t this ‘agency’ be openly looking for content creators instead of hiding in the shadows?”
 
-She nodded. “Yes. But these guys are…” she trailed off, her lips quirking into a smile, that same far-away look taking over her expression. Ever since she became infatuated with the idea of joining this agency, Millie spaced out for more normal. In fact, if she was just looking at her phone and watching these so-called content creators, it was like she was in a trance.  “Special.”
+She nodded. “Yes. But these guys are…” she trailed off, her lips quirking into a smile, that same far-away look taking over her expression. Ever since she became infatuated with the idea of joining this agency, Millie spaced out far more than normal.
+
+In fact, if she was just looking at her phone and watching these so-called content creators, it was like she was in a trance. “Special.”
 
 I inclined my head. “In what way?”
 
