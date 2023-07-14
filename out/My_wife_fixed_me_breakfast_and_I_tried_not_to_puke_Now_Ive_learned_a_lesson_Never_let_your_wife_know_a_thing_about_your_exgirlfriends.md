@@ -111,7 +111,7 @@ Wait, what? A rewind of timeline? Before I could fully comprehend it, the semina
 
 *<Breaking News: A tragedy for the Holdings Company – a director’s wife found murdered in her house last night with her ring finger cut off…>*
 
-I sat straight up. Holdings was the company where Sarah’s husband worked as a director. The news continued: <…the rupture of the carotid artery being the immediate cause of death.>
+I sat straight up. Holdings was the company where Sarah’s husband worked as a director. The news continued: *<…the rupture of the carotid artery being the immediate cause of death.>*
 
 My heart sank. All I could do was blink. From that moment on, I don’t remember how much time had passed; it was the ringing of my phone that brought me back to reality. My best friend at uni had sent me a text.
 
@@ -133,7 +133,7 @@ I searched her name online to see what he meant.
 
 *<July 7, Laura Elizabeth Chu hacked to death and found by the neighbors with her ring finger nowhere to be found..>*
 
-Suddenly, a critical piece of information popped into my mind. July 7 was the date I had my fourth nightmare. I forced myself to adjust to the fact. My recent nightmares. My ex-girlfriends found killed their ring fingers detached. The clock ticking backward. The pills. The hospital. Amanda, Edward, and the nurse. A theory started forming in my mind that soon turned to conviction.
+Suddenly, a critical piece of information popped into my mind. July 7 was the date I had my fourth nightmare. I forced myself to adjust to the fact. My recent nightmares. My ex-girlfriends found killed with their ring fingers detached. The clock ticking backward. The pills. The hospital. Amanda, Edward, and the nurse. A theory started forming in my mind which soon turned to conviction.
 
 Then, another text message buzzed my phone. This time, it wasn’t from Brian.
 
@@ -216,7 +216,7 @@ I nodded, unable to swallow the rest of what was remaining inside my mouth. Pret
 
 “Th.. thanks. This really is–“ I hiccupped, “- unlike anything I’ve ever tasted before…”
 
-Amanda reached out towards me, holding a napkin. With it, she started wiping my mouth when something glittered. It was a ring. No, rings. She was wearing five of them, all on her left ring finger. My eyes fixed on the ferocious reflection of light from her finger, I wobbled up. I was seconds away from throwing up, and I had to keep it from her.
+Amanda reached out towards me, holding a napkin. With it, she started wiping my mouth when something glittered. It was a ring. No, *rings.* She was wearing five of them, all on her left ring finger. My eyes fixed on the ferocious reflection of light dancing from her finger, I wobbled up. I was seconds away from throwing up, and I had to keep it from her.
 
 “Hey, where are you going? Don’t tell me you’re done eating.”
 

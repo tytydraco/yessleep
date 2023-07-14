@@ -186,7 +186,7 @@ I was breathing heavily as she took my hands. “You are far from home, Dani. We
 
 I shook my head. “Tradition? Superstition?”
 
-“Si, like this!”
+“Sí, like this!”
 
 “Oh my goodness,” I said. “Are they dangerous?”
 
@@ -232,7 +232,7 @@ Joseph was looking at me with puppy eyes.
 
 Lorena put a hand on my shoulder. “Will you join us?”
 
-I contemplated it. “You know, it’s actually been pretty full on up until now. I think I might take the opportunity chill on the deck, watch the world go by.”
+I contemplated it. “You know, it’s actually been pretty full on up until now. I think I might take the opportunity to chill on the deck, watch the world go by.”
 
 “Maybe read a book that you do not understand?” she laughed.
 
