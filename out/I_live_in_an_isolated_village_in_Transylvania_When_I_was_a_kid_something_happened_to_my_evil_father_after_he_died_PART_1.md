@@ -170,4 +170,4 @@ What she said was true because she had hand marks around her neck as if someone 
 
 [Janosz needed to kill it before it killed us.](https://www.reddit.com/r/PostMortem33/comments/gpnh5h/story_masterpost/)
 
-[Part 2](https://www.reddit.com/r/nosleep/comments/14yjdzt/i_live_in_an_isolated_village_in_transylvania/)
+[Part 2](https://www.reddit.com/r/nosleep/comments/14zd7k6/i_live_in_an_isolated_village_in_transylvania/)
