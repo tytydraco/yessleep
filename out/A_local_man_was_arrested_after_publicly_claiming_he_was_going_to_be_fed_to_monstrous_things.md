@@ -73,7 +73,7 @@ I gasped. My heart sunk to the bottom of my chest. I didn't care about finding o
 The man held the envelope up to my face. Instinctively, I took it and sprinted ahead of him. Halfway down the road, a distant gunshot rang out. I picked up my pace, wishing I had never bothered trying to figure out what happened to the man with the megaphone. This was getting too creepy for me. I never thought standing on a street corner would inspire this much trouble.
 
 
-Once I arrived home, I shut all my blinds. In a room I'm not going to disclose, I opened the envelope. I was hoping it had evidence to use against the creeps. There was a folded sheet of paper. I pulled it out and unfolded it. There was a statement at the top.
+Once I arrived home, I locked all my doors like usual, then I shut all my blinds. In a room I'm not going to disclose, I opened the envelope. I was hoping it had evidence to use against the creeps. There was a folded sheet of paper. I pulled it out and unfolded it. There was a statement at the top.
 
 
 "Anything you witness… film it, take photos, whatever, and send it to any one of these email addresses. Do not post it on the internet unless there's no way you expect to live to send it yourself and you can capture it on a livestream with the hope somebody will take it seriously enough."
@@ -82,4 +82,4 @@ Once I arrived home, I shut all my blinds. In a room I'm not going to disclose, 
 Below the statement was a spreadsheet list of street and email addresses. Some of the addresses were in Siena, Italy, Aurora, Ontario, Canada, and Olinda, Brazil for example. Just multiple places around the world. As I looked over the list, there were three loud knocks on the front door. My heart sank. I shut the lamp off and found a place to duck.
 
 
-I heard the creaking of my front door. Now I hear footsteps. Hopefully I'll get to see the morning.
+I heard the crash of my front door. Now I hear footsteps. Hopefully I'll get to see the morning.
