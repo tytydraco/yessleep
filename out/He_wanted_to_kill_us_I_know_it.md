@@ -34,4 +34,4 @@ He went on to release Maya from her chair and we all went to the living room. I 
   
 He was going to drug us, and I had to act before it was too late.
 
-I pulled the knife from my sleeve and jumped on top of him, stabbing him in the neck. And before he could make a noise, he was dead on the floor. I’m not sure what happened after that, everything went blank and now I’m waiting for my court case. My friends hate me, and they will probably never know that I saved their lives, but that’s okay, because they’re safe.  
+I pulled the knife from my sleeve and jumped on top of him, stabbing him in the neck. And before he could make a noise, he was dead on the floor. I’m not sure what happened after that, everything went blank. Police is at my house, trying to get in and my friends hate me. I will turn myself in now and they will probably never know that I saved their lives, but that’s okay, because they’re safe.
