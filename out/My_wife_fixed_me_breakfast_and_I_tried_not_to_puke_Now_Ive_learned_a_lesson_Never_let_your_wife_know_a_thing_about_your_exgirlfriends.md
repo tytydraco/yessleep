@@ -52,7 +52,7 @@ Then, a middle-aged woman wearing a dental mask appeared in front of me, as if s
 
 “Sarah,” She gasped. "I’m… Sarah Holden..”
 
-A few seconds later, her entire body went limp, and a heavy gush of dark blood started leaking from her throat. My heart thumping heavily, I slowly removed the broken mask away from her face and froze. That’s when it struck me: Sarah Holden was the name of my ex-girlfriend I had been dating a few years ago before meeting my wife, and there she lay, right in front of me with her eyes bulging, gagging for breath. I sat there, stupefied, trying to convince myself that this was all just a dream, that I knew it was a dream, and that I’d soon wake up from this disastrous nightmare when I heard an unexpected voice right behind me.
+A few seconds later, her entire body went limp, and a heavy gush of dark blood started leaking from her throat. My heart thumping heavily, I slowly removed the tattered mask away from her face and froze. That’s when it struck me: Sarah Holden was the name of my ex-girlfriend I had been dating a few years ago before meeting my wife, and there she lay, right in front of me with her eyes bulging, gagging for breath. I sat there, stupefied, trying to convince myself that this was all just a dream, that I *knew* it was a dream, and that I’d soon wake up from this disastrous nightmare when I heard an unexpected voice right behind me.
 
 **“Make sure you finish it quickly. Tonight’s your best chance.”**
 
@@ -68,7 +68,9 @@ My head was throbbing miserably. The pain was unreal. I tried to yell out for he
 
 It was my wife, Amanda. Why was she here and what was she talking about? And why on earth was *I* here, waking up in a hospital miles away from home when I had fallen asleep in my room? As if hinting for an answer, my wristwatch appeared in the corner of my vision. The watch, a gift from my secret mistress Amy, was ticking backward. So, this too was a dream. Just another dream…
 
+
 \- - -
+
 
 “en…! Ken!!! Are you okay???”
 
@@ -82,15 +84,17 @@ Amanda was shaking me awake. I flew out of bed. It took quite a while to take in
 
 I waddled into the bathtub for a morning bath which was one of my older routines I used to take while I was on active duty. It was my ritual of starting a day fresh. Waiting for the tub to be filled, I turned on the waterproof TV inside the bathroom for some news.
 
+
 *<The new version of C++ available online – download this app on your phone for free…>*
 
 Wow, what a boring advertisement. I slouched inside the tub and switched to the next channel.
+
 
 *<Edward Howling, a world-famous psychiatrist, performs a new type of hypnotherapy in his seminar, this time with his newly invented pill…>*
 
 Hmm. So maybe he was indeed a prominent doctor after all. I found the issue mildly captivating and was also curious as to how the freak would present himself outside of his hospital, so I decided to check out what he had to say.
 
-“This pill gives the doctor complete control over the patient’s body, making it extremely handy during sophisticated surgeries or when dealing with violent patients.” The old man growled eagerly. “I’m trying my best to remain humble here, but in the industry, this is considered as the new level of innovation.”
+“This pill gives the doctor *complete* control over the patient’s body, making it extremely handy during sophisticated surgeries or when dealing with violent patients.” The old man growled eagerly. “I’m trying my best to remain humble here, but in the industry, this is considered as the new level of innovation.”
 
 I recognized the damn pill right away, for it was the very pill the hospital had been suggesting persistently as a solution to my mental disease. Then, he was asked a critical question.
 
@@ -104,7 +108,8 @@ The crowds at the seminar started murmuring. “But don’t worry,” the doctor
 
 Wait, what? A rewind of timeline? Before I could fully comprehend it, the seminar was over and the next news filled the TV screen.
 
-*<Breaking News: A tragedy for the Holdings Company – a director’s wife was found murdered in her house last night with her ring finger cut off…>*
+
+*<Breaking News: A tragedy for the Holdings Company – a director’s wife found murdered in her house last night with her ring finger cut off…>*
 
 I sat straight up. Holdings was the company where Sarah’s husband worked as a director. The news continued: <…the rupture of the carotid artery being the immediate cause of death.>
 
@@ -114,9 +119,11 @@ My heart sank. All I could do was blink. From that moment on, I don’t remember
 
 \[Hey, why didn’t you attend Laura’s funeral?\]
 
+
 I doubted my eyes. Laura was my ex-ex-girlfriend during college, someone I had dated in my senior year. What the hell was going on? Was this all a bad joke? A large scale prank, maybe? For a while, I couldn’t breathe. How come she was dead too…? I replied with trembling hands.
 
 \[What??? She passed?? I didn’t have a clue. When was the funeral held?\]
+
 
 \[Brian 8:22 AM\]
 
@@ -129,6 +136,7 @@ I searched her name online to see what he meant.
 Suddenly, a critical piece of information popped into my mind. July 7 was the date I had my fourth nightmare. I forced myself to adjust to the fact. My recent nightmares. My ex-girlfriends found killed their ring fingers detached. The clock ticking backward. The pills. The hospital. Amanda, Edward, and the nurse. A theory started forming in my mind that soon turned to conviction.
 
 Then, another text message buzzed my phone. This time, it wasn’t from Brian.
+
 
 \[Amy 8:25 AM\]
 
@@ -152,6 +160,7 @@ Silence replied. Amanda wasn’t saying anything. Nor was she walking away from 
 
 The moment I heard her leave, I sighed and texted Amy to go back, to never come near my house until I told her it was okay. I was anxiously waiting for her reply and was relieved to receive it within a few minutes.
 
+
 \[Amy 8:30\]
 
 \[Thanks, honey. I’ll be with you forever. \^\_\^\]
@@ -164,9 +173,14 @@ I stood up, slapped my face hard, and told myself, “Make sure, Ken, to never g
 
 &#x200B;
 
+&#x200B;
+
 \- - -
 
 &#x200B;
+
+&#x200B;
+
 
 “Well, it took you some time to get out of that tub. The stew’s gotten a bit cold now.” Amanda was waiting for me in the dining room.
 
