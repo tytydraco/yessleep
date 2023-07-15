@@ -4,9 +4,13 @@ But lately, things have gotten strange and I'm not sure if I'll be employed here
 
 The troubles started after I'd been with the firm about nine months. That's when I received one of those "mailbox size limit" messages telling me I had used up more than seventy percent of my mailbox space. A lot of the specs I work on are rather lengthy PDF's, so the space gets used up fast.
 
-Within minutes of receiving that first message, one of the guys from the IT department called me. "You need to delete some stuff from your email," he said. "It's really important." I told him I'd get around to it, but since I still had 30% of my email space left I didn't bother. Fucking IT trying to justify their existence, I thought. The company should just outsource the whole department. I'd been down there before, to the basement, and seen what those IT guys were like. Arrogant, humorless, convinced of their own brilliance. Like engineers, only worse.
+Within minutes of receiving that first message, one of the guys from the IT department called me. "You need to delete some stuff from your email," he said. "It's really important." I told him I'd get around to it, but since I still had 30% of my email space left I didn't bother.
 
-I didn't give it much thought, and the next few weeks I was inundated with work on a new county bridge. I had to coordinate with geotechnical experts and the county engineer was a tough taskmaster, so I didn't have much time to even see my fiancee Brynn, let alone take the time to delete old emails. But when my email box got to 80%, I received another warning. This time, along with the message, there was a picture of a jester-like character, red eyes and blood dripping from its teeth. "Mailbox Size Limit Nearly Exceeded," the message said. "Don't say you weren't warned." In the jester's hand was a cartoonish butcher knife with blood dripping from it.
+Fucking IT trying to justify their existence, I thought. The company should just outsource the whole department. I'd been down there before, to the basement, and seen what those IT guys were like. Arrogant, humorless, convinced of their own brilliance. Like engineers, only worse.
+
+I didn't give it much thought, and the next few weeks I was inundated with work on a new county bridge. I had to coordinate with geotechnical experts and the county engineer was a tough taskmaster, so I didn't have much time to even see my fiancee Brynn, let alone take the time to delete old emails.
+
+But when my email box got to 80%, I received another warning. This time, along with the message, there was a picture of a jester-like character, red eyes and blood dripping from its teeth. "Mailbox Size Limit Nearly Exceeded," the message said. "Don't say you weren't warned." In the jester's hand was a cartoonish butcher knife with blood dripping from it.
 
 This time I approached the IT bros first.
 
@@ -26,9 +30,13 @@ A few days later, I was out with some of the other engineers at happy hour, and 
 
 "I don't think that's advised," Sarah, one of the more senior engineers said. "The firm really takes that kind of stuff seriously. In fact," she continued, "I can't think of anything we take more seriously."
 
-It seemed like a joke; had to be. Yet I couldn't tell if Sarah was being jokey-cryptic or *cryptic*, cryptic. It was actually a bit unnerving, but My fiancee Brynn called at that moment, breaking my concentration. I cancelled the call and went back to the bar to order another Jameson on the rocks. Brynn had been a bit clingy lately, having failed to find an engineering job after college. She was working part-time waiting tables at a local restaurant and was constantly calling and texting me during my work hours. After that, the rest of the evening was normal as ever and I didn't mention the email situation again and nobody else brought it up.
+It seemed like a joke; had to be. Yet I couldn't tell if Sarah was being jokey-cryptic or *cryptic*, cryptic. It was actually a bit unnerving, but My fiancee Brynn called at that moment, breaking my concentration.
 
-A few days after that I had to work late again. This time for real, not for happy hour. While I was rummaging through the office's basement, attempting to locate blueprints from an old courthouse project, I stumbled upon a door blocked by an old filing cabinet. Some morbid curiosity caused me to  push aside the cabinet and see what was behind it. It led to a closet-sized room with more storage. There were redwells and other files piled up on wire racks, and also a bunch of moldering boxes. Poking out from one of the boxes, located on the top shelf, were the belled edges of a jester's hat. I was attempting to reach for the box when Warren appeared behind me.
+I cancelled the call and went back to the bar to order another Jameson on the rocks. Brynn had been a bit clingy lately, having failed to find an engineering job after college. She was working part-time waiting tables at a local restaurant and was constantly calling and texting me during my work hours. After that, the rest of the evening was normal as ever and I didn't mention the email situation again and nobody else brought it up.
+
+A few days after that I had to work late again. This time for real, not for happy hour. While I was rummaging through the office's basement, attempting to locate blueprints from an old courthouse project, I stumbled upon a door blocked by an old filing cabinet. Some morbid curiosity caused me to  push aside the cabinet and see what was behind it. It led to a closet-sized room with more storage.
+
+There were redwells and other files piled up on wire racks, and also a bunch of moldering boxes. Poking out from one of the boxes, located on the top shelf, were the belled edges of a jester's hat. I was attempting to reach for the box when Warren appeared behind me.
 
 "Looking for something?" he asked.
 
@@ -58,7 +66,9 @@ After that I went straight to HR. I didn't want to bother Mr. Tingley with such 
 
 &#x200B;
 
-The next day my mail box reached 90%. I received a message stating I only had 10 GB's left along with an image of a bloodied jester mask. There was a link this time, which simply read: "Final Warning." When I clicked on it, I was redirected to what I could only call a snuff film. In greenish, grainy footage I saw a young woman being stabbed by multiple costumed-wearing hooligans.  One of the costumed people was a jester, but there was also a devil costume, a generic demon costume, a clown, and something that slightly resembled Grimace from McDonalds, though it was not him.
+The next day my mail box reached 90%. I received a message stating I only had 10 GB's left along with an image of a bloodied jester mask. There was a link this time, which simply read: "Final Warning."
+
+When I clicked on it, I was redirected to what I could only describe as a snuff film. In greenish, grainy footage I saw a young woman being stabbed by multiple costumed-wearing hooligans.  One of the costumed people was a jester, but there was also a devil costume, a generic demon costume, a clown, and something that slightly resembled Grimace from McDonalds, though it was not him.
 
 "Please," the young woman screamed in the video. "Help me!"
 
@@ -70,7 +80,7 @@ The next day my mail box reached 90%. I received a message stating I only had 10
 
 "Just checking in to see how the Main Street bridge demolition project is coming along." He ran his right hand through his graying beard. "Wouldn't want to see that project get off track," he said.
 
-"No, no," I replied. "Of course. But actually, something else has been going on and I'm not sure who to turn to here. Would you mind chatting back in your office?"
+"No, no," I replied. "Of course. But actually, something else has been going on and I'm not sure who to turn to. Would you mind chatting back in your office?"
 
 He checked his watch. "I suppose I have the time if you do," he replied. As I got up to follow him out of the room, the familiar ringing sound of new emails assaulted my ears. I looked at my computer and it was warning after warning after warning.
 
@@ -78,9 +88,11 @@ My mailbox was just about full.
 
 &#x200B;
 
-The first thing I noticed when I took a seat in Mr. Tingley's office was the box: the one from the basement with the jester hat sliding off the side. He followed my eyes to it and said: "You caught me, I moonlight as a jester. How embarrassing." He laughed and cracked his knuckles on his left hand. "Just kidding, those are just props for a non-profit event we'll be hosting next week. I always say, anything for a kids' charity. But any-who, you said you wanted to talk to me about something?"
+The first thing I noticed when I took a seat in Mr. Tingley's office was the box: the one from the basement with the jester hat sliding off the side. He followed my eyes to it and said: "You caught me, I moonlight as a jester. How embarrassing." He laughed and cracked his knuckles on his left hand. "Just kidding, those are just props for a non-profit event we'll be hosting next week. I always say, anything for the kids. But any-who, you said you wanted to talk to me about something?"
 
-I didn't respond. I couldn't respond. I wanted to take out my phone and call the police, or at least text Brynn in case something happened, but I felt sort of paranoid for feeling such sudden terror. I mean, I worked at a respected local engineering firm. We built schools and civic centers and fucking churches. My co-workers weren't actually murderers. No, it was just Warren's sick sense of humor paired with coincidence and my own growing paranoia. Right? All this was going through my head when Mr. Tingley said: "Is it something personal you wish to discuss? I'm here to talk, you know. Even if it's not work related."
+I didn't respond. I couldn't respond. I wanted to take out my phone and call the police, or at least text Brynn in case something happened, but I felt sort of paranoid for feeling such sudden terror. I mean, I worked at a respected local engineering firm. We built schools and civic centers and fucking churches. My co-workers weren't actually murderers. No, it was just Warren's sick sense of humor paired with coincidence and my own growing paranoia.
+
+Right? All this was going through my head when Mr. Tingley said: "Is it something personal you wish to discuss? I'm here to talk, you know. Even if it's not work related."
 
 "I'd...like to request a larger email box," I said, studying his face for any tells. None.
 
@@ -112,9 +124,9 @@ When I got home, I called the police, but after they briefly investigated they s
 
 Pranks aren't against the law if nobody gets hurt, the officer explained. For a moment I thought he was going to chide me for not cleaning out my mailbox.
 
-"Maybe you're just overworked," Brynn said after the police officer left and I locked the apartment door behind him. "I mean, I've barely even seen you the past few months." She rubbed my shoulder, which made me feel a bit better. I had locked all the windows, too, and even I was starting to worry that maybe I was being overly paranoid. I do have that tendency at times. But then I received a text message from an unmarked number which simply read: *We wish to hold a black mass in your honor. If not now, then soon. If not soon, then sooner or later. If not sooner or later, then eventually, eventually.*
+"Maybe you're just overworked," Brynn said after the police officer left and I locked the apartment door behind him. "I mean, I've barely even seen you the past few months." She rubbed my shoulder, which made me feel a bit better. I had locked all the windows, too, and even I was starting to worry that maybe I was being overly paranoid. I do have that tendency at times. But then I received a text message from an unmarked number which simply read: *We wish to hold a black mass in your honor. If not now, then soon. If not soon, then sooner or later. If not sooner or later, then eventually, eventually...*
 
-When I showed the text to Brynn she just laughed. I told her I didn't think it was funny, that none of this was funny. I didn't see why she would think it was. But just now, after she went to bed, I think I discovered why she might have thought so.
+When I showed the text to Brynn she just laughed. I told her I didn't think it was funny, that there was nothing comical about any of this and I didn't see why she would think there was. But after she went to bed, I think I discovered why she might have thought so...
 
 Amongst our pile of bills and junk mail was a new employment contract. Yep, looks like Brynn just accepted a new position with my firm. Civil Engineer I, the same job I currently hold.
 
