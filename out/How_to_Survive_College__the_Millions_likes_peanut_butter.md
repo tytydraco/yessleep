@@ -234,6 +234,8 @@ And oh yeah, if you’re curious, Plan C was to hold a lighter up to the smoke d
 
 I am… really glad we didn’t have to use Plan C.[\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
 
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/1501ftn/how_to_survive_college_at_least_ive_got_the/)
+
 [Read the current draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 
 [Visit the college's website.](https://alderrayne.com/)
