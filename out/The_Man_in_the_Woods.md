@@ -579,7 +579,7 @@ In the woods is a spot where the cabin once stood. In its place a cross memorial
 
 Around the cross are several mementos placed there by loved ones—a toy car, a girl’s hair ribbon, a teddy bear. But, on the day I visited, I found something that sent a chill down my spine.
 
-A copy of the The Adventures of Tom Sawyer. 
+A copy of The Adventures of Tom Sawyer. 
 
 Inside was a handwritten message, which read:
 
