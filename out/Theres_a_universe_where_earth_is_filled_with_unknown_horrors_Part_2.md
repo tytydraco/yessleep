@@ -175,21 +175,25 @@ The only words I can say now were."He's gone."
 
 &#x200B;
 
-It's been 2 years since we left that world. The world we now stand upon was nearly the same as ours. What I mean by nearly was that there are strange phenomenons happening nearly every month. A girl who can turn into a form of a robot and killed a cancerous beast in Queensland. A military war criminal who considers killing the supernatural as a job. Even the real life wendigo sightings are on the news papers. Still though, the place is still good in the morning. Except in the night, there are sometimes threats we don't know in the dark. 
+It's been 2 years since we left that world. The world we now stand upon was nearly the same as ours. What I mean by nearly was that there are strange phenomenons happening nearly every month. A military war criminal who considers killing the supernatural as a job. An event of the nearby town of Las Vegas turning black and white. Real life wendigo sightings are on the newspapers. And angels taking children away. 
+
+Still, the place is still good in the morning. Except in the night, there are sometimes threats we don't know in the dark. 
 
 We built a team together, even gather some new friends along the way. Rishika grew to be more expressive and a lot more kinder to us. The time we killed a literal Bigfoot, she gave me a fist bump. Gave me a chuckle and a smile on my face. 
 
 Billy was getting better everyday. He responds to us with kind words than insults like before. After Cody had buried Ronald's body in a proper, he said his words of goodbye to him and gave him the picture he secretly held with him. It was a picture of us hanging out in a movie place. It's heart warming and depressing to witness what he did there. 
 
-Cody went off to work as a psychologist. He's still with us. It's just that he wanted to help people's mental health issues. He did really well on that one and he even gave us some advice for a change. I wouldn't consider mostly on his advice but some I can really try. That's also where he met the girl who can turn into a robot. We've met after the news broke out about an incident of a wild destruction at Queensland. Forgot to mention, we're at Australia. Just to let you all know where we are. 
+Cody went off to work as a psychologist. He's still with us. It's just that he wanted to help people's mental health issues. He did really well on that one and he even gave us some advice for a change. I wouldn't consider mostly on his advice but some I can consider helpful. Forgot to mention, we're at Australia. Just to let you all know where we are. 
 
 Finally, Geralt took pictures everywhere we go and writes down in his diary. The reason he does this is that we're in another world and thought he could take pictures of them and reflect on them. Sometimes we even got to have a photograph of us in the middle of the good times. He said it was to keep memories of our times together. A frame with a picture of literally us huddled together in a bright sunny day in Canberra. 
 
 Me? I was building a portal device, for me to teleport to different worlds. It's going to take a long time for me yes. Been building other things lately with Rishika too. Weaponry, gadgets, devices, and fixing stuff. I stuck around with my friends and we've made a great team. Made new friends along the way and learnt many things too. 
 
-2 years ago, after my moment of grief, I woke up from my exhausted moment to see my friends standing before me with a relief on their faces. I nearly cried by the picture of that moment. After that, we both watched tv together in my new bedroom inside of a hotel room. After Rishika finds a new home for us, we moved out to Melbourne Victoria as a new place of our home. We moved in to a farm house where there is a larger basement for us to do our stuff. We knew we had to get a job at this point, so we did what we can to find one. It's a good thing there's a city nearby. 
+2 years ago, after my moment of grief, I woke up from my exhausted moment to see my friends standing before me with a relief on their faces. I nearly cried by the picture of that moment. After that, we both watched tv together in my new bedroom inside of a hotel room. After Rishika finds a new home for us, we moved out to Melbourne Victoria as a new place of our home. We moved in to a farm house where there is a larger basement for us to do our stuff. We knew we had to get a job at this point, so we did what we can to find one. But there really isn’t any.
 
-Rishika, Geralt, Billy, and I took the job as being a part of an investigation of the paranormal. That's how we managed to meet up with a bunch of new friends. 
+Rishika, Geralt, Billy, and I managed to build our own work. A part of the elimination program. A community where we travel through other universes or something to understand and maybe kill creatures that are a big threat. That's how we managed to meet up with a bunch of new friends.
+
+It wasn’t easy to build a job, but with the new device I built to travel to other different worlds, we’re able to find someone who can support our work.  
 
 I missed Eddie. I wished he could come with me and didn't have to die. But, I learnt that I can't drag him with me. He wanted to stay there. I can understand that. I know he's gone already. It's hard to let go. But sometimes we have to. To live out our lives well. I have to look forward. To better myself through experience. 
 
