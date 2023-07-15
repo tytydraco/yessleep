@@ -17,7 +17,7 @@ I could feel something changing, see the wrongness in the wind currents. There w
 Freefall. 
 
   
-Let’s back up a little. Actually, let’s back up a lot, all the way to the beginning. The theory of the big bang is, at its core, the idea that everything was created in the debris of an explosion, an explosion that we’re still riding the waves of, trillions of years later. But the thing about explosions, especially cosmic ones, is that they can never quite be predicted. The nothingness that came before was ripped apart to create the building blocks of the world. With that came just a bit too much…pressure. 
+Let’s back up a little. Actually, let’s back up a lot, all the way to the beginning. The theory of the big bang is, at its core, the idea that everything was created in the debris of an explosion, an explosion that we’re still riding the waves of, billions of years later. But the thing about explosions, especially cosmic ones, is that they can never quite be predicted. The nothingness that came before was ripped apart to create the building blocks of the world. With that came just a bit too much…pressure. 
 
   
 Rips formed, tiny in comparison to the vastness of space, like stretch marks across a hip. Our existence has always been fragile, balanced as it is between the lethal cold above and the burning magma below, held in by something as ephemeral as gravity, all of it contained between the blip of time that is a universe. Those tears just make it possible for humans to topple the precarious stability and end up somewhere else. Somewhere that has never known the light of a star.
