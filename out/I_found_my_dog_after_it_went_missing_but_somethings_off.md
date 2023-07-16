@@ -35,4 +35,6 @@ The way it stares at me, like I'm some sort of prey. When it cuddles up next to 
 I've ended up staying at my friend house for a few days, I just don't feel safe at home. I've been looking back on the cameras over and over and I swear I can see some kind of shadow. My friend said my brain is making it up because I want to see something, for some kind of explanation. Maybe she's right, but I don't know. I swear to you in the back of the garden, the same hour Bailey went missing, there's a face in the bushes, and it's not a human one. The figure is so hard to see but it looks lanky and on all 4s, and it's staring right at the camera, that figure is the same silhouette I can see on the kitchen floor on the camera after Bailey miraculously disappears. It's completely unnerving, I want to stop looking but I can't seem to pull my face away from the screen.
 
   
-I don't what's going on, I just know that, that dog at home, if it even is one, is not Bailey, and I have a sinking feeling it'll do anything to make sure no one else finds out that it’s not.  
+I don't what's going on, I just know that, that dog at home, if it even is one, is not Bailey, and I have a sinking feeling it'll do anything to make sure no one else finds out that it’s not.
+
+ [UPDATE](https://www.reddit.com/r/nosleep/comments/150rq9o/update_i_found_my_dog_after_it_went_missing_but/?utm_source=share&utm_medium=ios_app&utm_name=ioscss&utm_content=2&utm_term=1)

@@ -1,4 +1,4 @@
-Here is your update. 
+[First Part](https://www.reddit.com/r/nosleep/comments/14yop36/i_found_my_dog_after_it_went_missing_but/?utm_source=share&utm_medium=ios_app&utm_name=ioscss&utm_content=2&utm_term=1)
 
 Honestly I haven’t been feeling great, I’ve been bed bound due to my ever increasing crippling anxiety. Strange things keep happening and I don’t know how to explain any of it. 
 I have to go home tomorrow, my parents are getting quite annoyed over these ‘delusions’ as they call them, and want me to help out with a few things around the house, as they are doing it up a bit. 
