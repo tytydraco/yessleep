@@ -6,7 +6,7 @@ The offensive coach was waiting for him at the scrimmage, arms crossed over his 
 
 “Tell me Javon,” the coach said, “What’d you think of that throw.”
 
-“It was as good a throw…as they get, coach.”
+“It was as good a throw…as good as they get, coach.”
 
 “Nobody bothering you on the field. Just you and a perfect pass.”
 
