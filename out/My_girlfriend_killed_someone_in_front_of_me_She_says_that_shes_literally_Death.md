@@ -70,7 +70,7 @@ Hades knocked his knife away, broke his arm, and put him on the ground in a move
 The ground shook, and the wind picked up into a howl. Shadows gathered around Hades, or maybe they came from her, I don't know. There was a moment of total stillness, and then he was screaming and thrashing. Screaming like he was being tortured, like it would be a mercy to die. It lasted for an eternity, it lasted for seconds. But by the end of it, he was lying dead on the bricks. I’d never been scared of Hades before, but I was then. 
 
   
-The rest of the night is... a blur. Hades called the police. She told them that he just collapsed, and when the paramedics arrived, they told us that all signs seemed to point to him having a heart attack. Hades tried to touch my shoulder, to apologize, but I shrugged her off and she seemed to understand. I checked myself into a hotel and she seemed to understand.
+The rest of the night is... a blur. Hades called the police. She told them that he just collapsed, and when the paramedics arrived, they told us that all signs seemed to point to him having a heart attack. Hades tried to touch my shoulder, to apologize, but I shrugged her off. I checked myself into a hotel and she seemed to understand.
 
   
 I spent the next week drunk in the hotel bed, trying to convince myself that I hadn't seen what I thought I had. Every time I slept, I remembered the way he had looked as he died. There was an article in the local newspaper the next day, about the unprecedented number of dead jellyfish that had turned up on the shore of the beach we had left.
@@ -139,10 +139,12 @@ It turned out that I was ready about an hour after I left the Starbucks. I knew 
 
   
 When I knocked on the door of the apartment, she greeted me with a bouquet of black roses.  
+
 "Good morning, beautiful." She held out the flowers to me, hesitantly.
 
   
 I took them. "I can't live in the same place as you right now, and I don't know if I trust you anymore."  
+
 She nodded.
 
   
