@@ -139,3 +139,5 @@ I'm going to venture out now, in search of the cube and the other person. Perhap
 6:02:12 remaining.
 
 I truly hope I'll be back to update you. Thank you for your support…
+
+[\[Part 3\]](https://www.reddit.com/r/nosleep/comments/1519c59/dont_like_dont_subscribe_part_3/)
