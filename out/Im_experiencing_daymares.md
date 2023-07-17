@@ -2,7 +2,7 @@
 
 *the events I'm about to tell you are a mix of my real life & fantasy iv created to help me cope(i think?), please enjoy I'm not the best at writing and this is a first for me, I'm not going to point out everything that's real or not(I'm not entirely sure what is and isn't anymore) but If you have a question ask! But for some things... let's say they're better off... a mystery*
 
-'Encroaching into minds like long spindly needle like tendrils, poking and writing within the contained fleshy walls of your skin' 
+'Encroaching into minds with long spindly needle like tendrils, poking and writhing within the contained fleshy walls of your skin' 
 
 I snapped out of whatever thoughts I was having, slightly dazed as reality came hitting me like a tidal wave.
 
@@ -27,9 +27,9 @@ The hostel wasn't bad actually, it had a nice atmosphere , people were polite an
 So I didn't mind spending my days here for the most part. But every now and then I'd get this.. overwhelming sense of impending doom
 Like the sky would completely darken yet it would be noon on the dot, people would fade away as if they were never there to begin with, time itself as the artificial construct it was would lose meaning, was it still? Going slow, fast or was time flowing in reverse? It didn't matter, in those moments I was experiencing whatever existed before time itself, and honestly, it freaked the shit out of me.
 
-Was I even still in reality or was this some sort of weird alternate my mind created when I was over stimulated and this is what my mind created to cope with shutting down.
+Was I even still in reality or was this some sort of weird alternate my mind created when I was over stimulated and this is what my mind filled the gaps with to cope with shutting down.
 
-Regardless of what it was I couldn't tell if these moments were expanding or becoming less in the time I spent in them, because after all in these very frames of what I was experiencing tike ment nothing.
+Regardless of what it was I couldn't tell if these moments were expanding or becoming less in the time I spent in them, because after all in these very frames of what I was experiencing time ment nothing.
 
 I was laying in my temporary bed, top bunk of course, when I realized I had entered into what we will now refer to as a 'daymare'
 
@@ -37,12 +37,12 @@ I didn't even notice at first this time which was strange, I was calm, usually t
 
 The whole room darkened like after an unsolicited joke from my favorite uncle at Christmas time who enjoyed nothing more than levity, shock humor and the silence of a room right after his godforsaken unholy punchlines
 
-Almost darker than usual tho, I reached out and could 'feel' the darkness pulsating trying to envelope my hand as if to feed on my very being and it was 'hungry' I retracted my hand so fast I thought I gave myself whiplash, I was used to seeing things, even audible hallucinations weren't of the table, but to and I seriously can't stress this enough 'feel' it was a whole new level of sensory betrayel I couldn't handle at the moment.
+Almost darker than usual tho, I reached out and could 'feel' the darkness pulsating trying to envelope my hand as if to feed on my very being and it was 'hungry' I retracted my hand so fast I thought I gave myself whiplash, I was used to seeing things, even audible hallucinations weren't off the table, but to and I seriously can't stress this enough 'feel' it was a whole new level of sensory betrayel I couldn't handle at the moment.
 
 I hugged my pillow a tear coming from my eye.
 I felt like I had no one, and no one had me, even the simplest of tasks were arduous and now 'this??' 
 
-I broke down for a moment and would have been fine but it was about to get a whole lot worse, and my pillow and blankets shot out of my hand, I looked and thats when it came into view out of the darkness painfully stretching towards me was three hand like forms with nowhere near human looking appendages that were reaching out from the darkness 
+I broke down for a moment and would have been fine but it was about to get a whole lot worse, as my pillow and blankets shot out of my hand, I looked and thats when it came into view out of the darkness painfully stretching towards me was three hand like forms with nowhere near human looking appendages that were reaching out from the darkness 
 
 Oh the darkness
 Seriously it can fuck off now I'm scared I cannot process or deal with this I have enough anxiety to stop an elephants heart 
@@ -63,7 +63,7 @@ Anyways I grabbed my stuff and headed to the  showers.
 
 I was washing my hair and closed my eyes, and maybe kept them closed a little too long or I would have potentially noticed it.
 
-When suddenly I heard what I can only loosely describe as a voice, it was more of just like am instant understanding as if I'd always known this or knew exactly what was being said in my mind
+When suddenly I heard what I can only loosely describe as a voice, it was more of just like an instant understanding as if I'd always known this or knew exactly what was being said in my mind
 
 "Voyager, drifter 'brother' why do you ignore us? Why do you pretend like we do not exist, why will you not help us come to 'you' " I opened my eyes a sunk in horror as directly above me as a void of light type of skin had replaced the ceiling above me, and thousands of eyes ranging from small to big looked down upon me in utter disgust.
 
@@ -82,13 +82,15 @@ Shaken and paranoid I dried myself off properly got some food water and sat on t
 
 That's when I first noticed 'him' a man wearing an all black suit with tinted shades that you couldn't see thru. He was facing towards the building, opposite to me but somehow I got the feeling he was watching me... but how?
 
+Even *stranger*  tho was how damn hot it was, and yet, he looked like a block of ice, not a drip of sweat even in that heavy all black suite
+
 I sat with no name(God I'm terrible he's a person and deserves to be called by his name) for a littlewhile before I slumped shamefully and said " hey I'm sorry, I never got your name"
 
-He smiled cheerfully and simply said "matt" which such an understanding benevolence I dropped my guard for a second.
+He smiled cheerfully and simply said "matt" whith such an understanding benevolence I dropped my guard for a second.
 
 But then I remembered and felt horrid disgust in myself that matt has actually told me about 4 times now and I just couldn't remember.
 
-And yet he took no offense, 0 resentment in his words as if he was used to it, which also mad me feel bad.
+And yet he took no offense, 0 resentment in his words as if he was used to it, which also made me feel bad.
 
 "I'm so sorry matt, I should have remembered"
 
@@ -101,7 +103,7 @@ We sat and had a good chat when I noticed the sun going down
 "Almost tome for bed!"
  He nodded in agreement, I gathered my cup and plate and went to head inside when I noticed the man from earlier still sitting there staring and what seemed like nothing.
 
-As I got up to move something from the corner of my eye 'my reflection in the door'
+As I got up to move something captured my attention, from the corner of my eye I could see my reflection in the door'
 
 I shuddered. Was this guy watching me thru the reflection the whole time?
 
@@ -113,6 +115,6 @@ Yea I need sleep. Too much in one day
 
 Im writing this the morning after, what happened last night I'm still processing thru frankly it was one of the worst experiences of my life, and my mother would regularly watch the movie "rent" all the time.
 
-I never cared for that stuff until I had a daughter of my own. Now I hate to admit it but it's all, grown on me.
+I never cared for that stuff until I had a daughter of my own. Now I hate to admit it but it's all grown on me.
 
 Anyways I need to dissociate for awhile let what happened sink in. If anyone's interested I'll recount what happened.
