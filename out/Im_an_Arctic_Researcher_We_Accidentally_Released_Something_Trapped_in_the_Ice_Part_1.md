@@ -8,7 +8,7 @@ Being the only Inuit-speaking researcher in this remote expanse of northern Alas
 
 On this particular evening, I'm engrossed in transcribing my interview with Katak, an elderly self-proclaimed shaman, boasting about harpooning a seal the size of a walrus, when a soft, slightly raspy voice broke my concentration. “Dr. Kalluk?”
 
-Looking up from my work, I met the gaze of a young woman at the far end of my table. Her face was brightened by a warm smile. Her luminous blue eyes shimmered with an indescribable intensity, and a tangle of chestnut hair escaped from under her woolen beanie.
+Looking up from my work, I met the gaze of a young woman at the far end of my table. Her face was brightened by a warm smile. Her luminous blue eyes shimmered with an indescribable intensity, and a tangle of auburn hair escaped from under her woolen beanie.
 
 “I'm sorry?” I replied, removing my headphones.
 
