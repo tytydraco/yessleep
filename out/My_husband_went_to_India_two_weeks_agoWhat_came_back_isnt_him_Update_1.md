@@ -1,3 +1,5 @@
+Part One: https://www.reddit.com/r/nosleep/comments/14tvxdm/my\_husband\_went\_to\_india\_two\_weeks\_agowhat\_came/?utm\_source=share&utm\_medium=web2x&context=3
+
 I feel like I'm lost.
 
 A lot has happened since my last post and I don't even know where to begin. I've tried multiple times to type this out but my head has been killing me. My vision gets so blurry and I feel the need to lay down every single time, but I feel slightly better now.
@@ -110,6 +112,6 @@ Then I go to the bedroom and look under the bed and my heart stops in my chest. 
 
 I couldn't find him and even though I wanted to look more, I was scared. I ran out of the house and sat in my car. I am completely lost and I have no idea what's going on anymore. I called 911 and waited in my car for the cops to show up.
 
-Why is this happening to me? I feel like I'm stuck in a terrible nightmare and I wake up. I just want things to end. I feel like a coward right now and I really hope no one has to suffer because of my lack of any strength. I don't know if anything is listening to my prayer right now, but I just want my life back. 
+Why is this happening to me? I feel like I'm stuck in a terrible nightmare and I wake up. I just want things to end. I feel like a coward right now and I really hope no one has to suffer because of my lack of any strength. I don't know if anything is listening to my prayer right now, but I just want my life back.
 
 My headache's back again and I'll end this post here, but I'll update again as soon as I can. If you're reading this, please cherish what you have. Be grateful for your loved ones and tell them how much you appreciate them. I'll see you soon.
