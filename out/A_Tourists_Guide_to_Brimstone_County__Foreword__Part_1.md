@@ -42,7 +42,7 @@ I stared through the doorway for a while, until the father came up to me and ask
 
 “No, sir, I… I’m sorry, I’m not usually so rude. I just… nobody has lived in this house for a long time, is all. I figured it was abandoned. It’s just a bit shocking to see someone move in all of a sudden.” I told him. 
 
-He seemed confused still, but he apparently seemed my explanation reasonable enough. I apologized again and went home. The house has apparently finished waiting.
+He seemed confused still, but he apparently deemed my explanation reasonable enough. I apologized again and went home. The house had apparently finished waiting.
 
 I didn’t talk to the family again for a while. I struggled to understand what could have happened to the house overnight. I never heard anyone working on it, and even so they couldn’t have built the entire interior in a single night.
 

@@ -1,0 +1,15 @@
+I live with my parents in rural Colorado. My mom is a teacher at the local middle school, and my dad, well, I don't really know what my dad does. 
+
+Anyways, one night I was walking back into my house after coming home from work, but I was met at the door with my dad. "You can't come in right now. Wait 15 minutes out here, then come back in," he said. "Uh.. okay." I replied. I start heading over to the Ambla Inn down the street to go get some food while I wait, but I see my dad following me in my mom's car. Why does he have the keys to my mom's car? Anyways, I make it to the Ambla, but I head straight for the bathroom, and look out the window as my dad frantically looks for me outside.
+
+He leaves after about 10 minutes, so I head out to go order at the bar. After a few drinks, I decide to leave. "It's been an hour and a half, so my dad better let me in." I walk to the door, and my dad meets me there. "Let me clean up your bedroom first. Wait 15 minutes, then come in." he says, with a pale, nervous look on his face. "What the hell did you do?" I yell back, confused, but angry that my father won't let me in the house that I live in. "Uh... n-nothing, son." he replies, looking like he's about to puke. "Then why won't you let me in the house that I live in?" I yell, and I decide to pass him through the door. He starts running after me, trying to pull me back out of the house, but I don't let him stop me. I walk into my room, lock the door, and start looking through everything. The closet, the nightstands, everything. Everything seemed normal. But I couldn't leave my room. Right when I finished looking through everything, I heard a loud screech outside my door. "Dad?" I yelled, hoping for a answer. No answer came, however. An hour later, I hear police sirens outside my door. "What the hell is this now.." I thought. My room had a small window on the side well, so I try to wedge my way out of the window, thinking the door wasn't safe. As I was just about to make my way out, and tell the cops about that weird night, I got a response from my dad. "Don't fight it, son. It goes quicker if you stay still." 
+
+The last thing I heard before finally getting out of the house through the window is a loud screech as the door to my room got broken down. "WHERE ARE YOUUUUUUUUUUUUU?" screamed so loud the entire town could hear it. I ran as far as I could, terrified of what that screech came from. The only place I could probably be safe is Sean's house. He opens the door, confused. "Dude, why are you so sweaty?" "I ran here from home, with some black, humanoid thing chasing me." I said, while heavily breathing. "Uh.. just come in. I'll let you stay here for a couple nights till you're okay."
+
+That night, all I heard were loud screams from all over the town. I don't know what that thing is, and what my dad did to cause this, but I know one thing, they're connected.
+
+At approximately 3 AM that night, I got a voice message from my dad.
+
+["The town is feeling what was meant to happen to you. Just another day trying to help Rovas take over the world."](https://reddit.com/r/itscontho)
+
+&#x200B;
