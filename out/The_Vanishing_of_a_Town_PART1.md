@@ -1,4 +1,4 @@
-They had all gone, blown away like leaves in the wind. I was sitting at the edge of a tall cliff; thinking of how it had all gone down as the sun rose in the eastern sky, shimmering on the still ocean. Maybe I should tell their story from the beginning.
+They were all gone, blown away like leaves in the wind. I was sitting at the edge of a tall cliff; thinking of how it had all gone down as the sun rose in the eastern sky, shimmering on the still ocean. Maybe I should tell their story from the beginning.
 
 I woke to the sound of soft rain tapping on my window, letting through the gray shade of a day overcast. Stretching lazily, I reached for my phone, as one does, first thing in the morning. 11:17 am. That sure was odd. My parents were early risers and usually had no qualms about waking me up to have “a family breakfast” at some ungodly hour of the morning. I rolled out of bed, and wiped some of the sleep out of my eyes to get a look about myself and my childhood bedroom.
 
