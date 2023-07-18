@@ -1,0 +1,48 @@
+All it takes is one wrong turn. One horrible, foolish decision.
+The horrors that beseech my eyes, horrors of the uncertain, of the unknown. 
+It feels as if I've walked these lonely red hills for all my life. For all of eternity. 
+Wandering aimlessly, often hoping that death lurks over these hills. Hoping that it moves quickly. Silently. 
+
+In my nights I feel the chilling dread that chips away at any hope of rescue, of refuge from a cold that seems to ice my very bones, of any hope of sanity regardless.
+In my days I scorch like Middle Earth in my nude; and it is in these moments I may find beauty in my resilience or panic in my hopelessness. I am haunted by many great horrors, perhaps the greatest being an inescapable mind; that wanders and quells on the darkest corners of man's predicament amongst the cosmos. 
+Our voyage has its reminiscence tainted with regret, blame unto myself for all the horrors I've known here thus. But who can predict that savagery can rear its ugly head in the beat of an anxious heart, ready for merciless death at the feet of the unholy?
+
+We headed by wagon to Colorado, in tow of two stallions, with plenty of resources for our daunting quest. The rough ground of rigid dirt and clay showed no mercy upon our vessel. My daughter, my husband and I traveled on our lonesome, which felt to me foolish from the beginning. Still in my husband I had to have faith, he was a skilled hunter and a former soldier in the Confederacy, and he had protected us many a frightful time before.
+
+We hoped upon the promise of a new life, of a better life than the hot desolate climate of our previous encampment, just north of Rock Springs. Supplies ran low as our agricultural endeavours were threatened by heat, exhausted land, savages, and scavengers. From the merchant town of Rock Springs we gathered all the goods we could afford, namely water, fire start, and non-perishable food, to the greet of a smile from the merchant. 
+
+This was not our first meet, and to me he'd always seemed a wise man, with a gleam in his eye and a generous demeanor.  This, however, seemed to alter drastically when we detailed our journey, to his curiosity, of our westward trek to the greener pastures of Moffat County, Colorado. 
+
+With a cold, worried posture and glazed eyes, he confided his hearing of savages in those Red Desert hills that defied all manner of scientific reason. With skin that seems artificial in its hanging from the bones of impossibly large illusions of questionably human form. They could rend a man's flesh from his bones in a swift instant with razor sharp arms that stab the Earth and propel them forward with the likes of a stallion making haste. Their featureless faces were foretold to come unhinged much like a trap door to swallow man whole like a serpent taking prey. Their maddening screams inspired waking nightmares of impossible darkness, of eternal purgatory, helplessly watching one's own likeness meticulously and slowly torture those they love most.
+ 
+He had known well of a man, a friend and business partner, who had gone mad in his venture, and returned just days later, hardly comprehensible in his jumbled screaming of "dreams of a swirling vortex of hellfire" that "would drag him into a void of endless suffering amidst a sea of evil laughter and haunting cries". The old merchant recanted with terror that he had returned with his family nowhere to be seen, and death had met him by his own hand shortly thereafter. 
+This to me seemed alarming, and sent shivers down my spine. My blood seemed to run frigid at the thought of this tale. I pleaded with my husband to seek a new destination, to which he responded in laughter. He had been told a drunken horror story by the fire of his closest friend in which they had recalled a similar incantation, whom they had titled the "voidwalker", and to him had only rang of a comical, absurd legend likened to the monster of Frankenstein or the tale of Sleepy Hollow. 
+
+He demanded I not dwell on such a ridiculous tale, and that we would press onward to our dream of a more prosperous life beyond the desert. I hesitantly agreed, without conflict, and in the days of now it is my deepest grief. 
+We happened upon the brutal scene at early dusk, while seeking prey for our eats. My husband had followed the small tracks of a badger up the ridge with a Winchester rifle and a knife on his hip, hoping to feed the family well upon the evening. I watched as he moved upward the hillside, as dusk fell the sunset illuminated a cascade of blood red amongst the clouds. The surrounding skyline, delicately painted with indigo, met the acquaintance of storm clouds far in the distance in a dance of wonderment and despair. 
+
+From many miles beyond echoed the song of the Killpecker Dunes, carried many miles by fierce winds. The sound was beautifully ominous, a perfectly off key choir of hell, a booming chant of lost souls. This enamoring scene served as a muse as I pondered on the very constructs of life, and smiled imagining the new life that awaited us beyond our journey. 
+
+And that's when he stopped. 
+
+Seemingly frozen in suspended animation amongst the desolate stillness and booming cries of Earth, I felt as if staring through a picture frame. One that outlined a great sense of unease. That ominous feeling shall not be understated. I quickly knew something horribly wrong sat beyond the crest, and for a time my lips trembled in hesitation and quivered as I finally called to him in question. He spake not a word. 
+
+Slowly, in curious fright, I approached him, joined his gaze upon the valley down below. A wagon train of six lay half-overturned in immediately obvious defeat. Supplies lay destroyed in the debris, curiously as if this were the work of marauders certainly it would be for the victim's wares. As my eyes continued to adjust I began to see... corpses. Man, woman, and... even the helpless children, mutilated.
+
+Fully exposed ribs sat arched and perfectly cracked, reaching for sunlight like the blossom of some hideous floral bulb, as if some horrid display of art, some prideful display of death in its most careful form. Arms and legs spread like some purgatorial crossroads that no man dare travel, as if situated as such with intention. An almost hyperbolic, jaw-hanged look of horror was apparent amongst their faces there from afar. I saw their steeds lay perfectly skinned and gutted along the barren sands. Flayed and mangled were their awful fates, beast and man alike, yet I noticed peculiarly that a speck of maroon red blood there was not.
+
+A sight so cruel I had seen naught, even when great famines struck in our homes of yesteryear, even as we happened upon the gory, obvious work of many a marauder and turned a merciful blind eye, even as we traversed fields of the macabre in the hazy aftermath of our nation's civil war in escape of enemy imprisonment. 
+We stood in lull and in repose, nary an exhibit of animation we gave, nor of which we could muster. The only proof that the world kept its livelihood around us rose and set with the still-booming Killpecker sands many miles past. 
+
+After a period which felt of many aeons, I finally mustered the courage to speak, to question our relationship to these phantoms of the valley, praying we shall press on in willful ignorance of the sight. Yet as my lips began agape, to this mass grave my spouse ascended, nigh tumbling to the base of the valley with righteous intent. Still not a word he spake, yet I knew of his instinct to preserve his fellow man, inspired of his old confederate adage of "no man left behind".
+
+Still, this scene was unsettling. Beyond the likes that I or perhaps any man before had seen. It felt as if staring into hell. I followed, defying my fear with determination, to catch his arm and beg him to our vessel in leave. As I began my descent, the atmosphere began to change drastically. The bellowing of distant lands were joined by bellows of a higher pitch, of screams of dread, scoring a symphony of death that grew ever more deafening as I hurried toward him. 
+
+The sky turned black, as clouds symbolic of the fiercest storms rolled in with a near panicked urgency, and the setting sun began to blaze a bizarre blood red like the moon amidst eclipse. I felt dreadful winds that blew not a cool relief but a scorching dryness, and the thickening air seemed to choke me, as my mouth increasingly parched, as my tongue was dried as foretold of Hades' lair. 
+
+The sands turned black, and ran red with blood, not simply of the forsaken before us, but in cracks along the ground, fissured and veinous, magmic and volcanous. On the hills stood shadowed figures too monumentous to be human, too humanoid to be brute. Their blazing red eyes were obvious still in my panic and in my strife, and felt as if peering into my very soul, that eternally-suffering soul more primordial than mankind could ever comprehend. 
+
+The brutal scene before me still stood, with gore and ichor finally in full exposure, and still I ran to a husband I no longer could see, and when I finally came to the terrifying monstrosity, as if surprised awake from a nightmare, the torrid stillness of the familiar sands returned in an instant. 
+Silence pierced my ears in quick realization that I was deafened, or either that the breathing and waning of the whole world had stopped in response to the vicious nightmare of just moments past. I saw intimately this cacophony of death I beheld from afar, and my heart raced still, and when quaking fear finally let its tightened grip free, I turned quickly so that the tears may flow.
+
+And there my husband lay.

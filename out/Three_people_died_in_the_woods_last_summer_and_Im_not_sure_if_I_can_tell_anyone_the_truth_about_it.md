@@ -1,131 +1,123 @@
-[Part I](https://www.reddit.com/r/nosleep/comments/w40m36/three_people_died_in_the_woods_last_summer_and_im/?utm_source=share&utm_medium=web2x&context=3)
-
-[Part II](https://www.reddit.com/r/nosleep/comments/w4uvxx/three_people_died_in_the_woods_last_summer_and_im/)
-
-I started scrambling to get up silently, but attempting to wake everybody up. I didn’t need to make much noise, everyone had already heard the howling and was startling awake.
-
-“They saw us…through the roof!” I stammered… “it was just looking at us…I”
-
-“I know,” the woman said, “they can get up there, but they’ve never been able to see me before…shit. I knew this could happen. I’ve been waiting for this.” The woman ran to the kitchen area of the cabin, grabbing two large bottles of alcohol with rags hanging out of them. She wrapped an arm around each one, pulling them close into her chest. She grabbed a lighter and put it in her pocket.
-
-“What’s going on” Sloane asked, “where is that noise coming from?”
-
-“There’s no time to explain, you all need to get in the bedroom” the woman demanded. She started pushing the refrigerator that was blocking the bedroom door out of the way. The three of us started helping her move the fridge. The door to the bedroom opened and we rushed in.
-
-“There’s one window in there but it’s covered by that dresser” she said pointing to the side wall, – “its not safe to sleep in there, but just hide until day light, they aren’t around in the day. Move the dresser in front of the door after you shut it, and stay away from the window!”
-
-“What…" I started but it was too late to ask questions. We heard the first thump on the roof, followed instantly by a second, third, fourth, and fifth. Then footsteps, slow and stealthy again just like before.
-
-“Listen to me,” the woman was now holding on to my shirt collar, “you need to get out of here as soon as you can. Don’t wait in this cabin, I thought I could but it’s not safe. They’ll return again and will find you.”
-
-Before I could fully take in what she was saying she slammed the door in my face. I could hear her moving the refrigerator back in front of the door. Hiding us. Saving us.
-
-“Quick” I yelled to Trinity and Sloane, “we need to move the dresser in front of the door.” The three of started pushing the dresser towards the door, revealing a small window, about 2x2 feet.
-
-We heard glass shattering from the skylight, followed by screeching.
-
-“Not today you stupid ugly bastards!” the woman bellowed “no one messes with Lindsey you fucks! Come and get me!”
-
-The sound of the front door swinging open was followed by a loud thump from the living room. Two more thumps. We could hear screaming, and running.
-
-“Look!” Sloane yelled. She was staring out the window. I crawled over, just barely lifting my head above the sill to see outside. Lindsey was running. Fast. Two creatures were right behind her.
-
-This was the first time I had seen them – it was still dark outside, but dawn was approaching and in the low light I could see the animals relatively clearly. Their bodies were large, like a big dog, with long forearms that they used to run just like a chimp, or gorilla. Their bodies were wiry, with patchy grey hair, and thick folds of skin along their arms, that almost looked like poorly designed wings when they stretched their arms forward. Slone had it exactly right: monkey wolves.
-
-Suddenly the animals stopped. One squatted on its massive back legs and launched into the air. Lindsey turned around just in time to see this and stopped running. She crouched to the ground hugging her arms around her body. We could see her reaching into her pocket, pulling something out.
-
-“What is she doing??” said Trinity, “why isn’t she running?”
-
-Within seconds a creature had landed on her from out of nowhere. It launched Lindsey back into the sky almost the instant after it had touched down. Something was wrong though. The creature was in the air, trying to hold its grip on Lindsey while also spreading its semi winged arms to land but it was struggling. We could see them tussling above, like a pair of skydiver in the air fighting in a wrestling match. The creature tried to flap its arms and stabilize its body but it couldn’t. They both came crashing down to the ground, their impact followed by a massive explosion. They landed near the two other creatures that had been running right behind them, and the impact of the explosion flung their bodies. Flames burst and encompassed them, with only one creatures able to run out, looking injured but still alive.
-
-We ducked from the window. We could still here noises from inside the cabin. We started to hear running as the remaining two creatures that were inside ran out to after the explosion. They approached the injured one, almost looking concerned. Its fur was burnt and it had a limp.
-
-We watched again through the window, and realized it wasn't concern, but a look of curiosity. Within seconds they began devouring the injured animal, together as a team. They were ravenous in how they attacked it, even fighting each other at times as they tore the injured creature apart. Slonae and Trinity looked away. I tried to as well, but the creatures stopped fighting over the dead body, and looked up towards the sky. Dawn was breaking and the bright morning sun had come through. They ran for the cover of the thick, dense forest, paying little attention to the remaining bodies that they left lying in the remnants of the explosion.
-
-We were stunned. We sat in silence.
-
-“Somebody say something,” Sloane pleaded. Trinity’s eyes were welling with tears.
-
-“What do we do?” Trinity asked.
-
-“I don’t know” I responded, “but we can’t stay here.”
-
-“What if they get us out there?” Sloane asked.
-
-“They might,” I responded, “but there are only two left. I don’t think they can be out in the day time. I don’t know why, but that is what Lindsey said before she…” my voice trailed. I couldn’t finish the sentence, “all I know is that Lindsey said they didn’t come out in the day, and we all saw it too, they took off when the sun came up. I think they are afraid of it or something.”
-
-“Yeah,” said Sloane, “at least that’s one thing we know about them, oh yeah, and that they are ruthless cannibals that will eat each other the second one has their guard down.”
-
-Trinity stood up, alert.
-
-“I have a plan!” she announced. Sloane and I listened to her plan intently.
-
-It was time to go.
-
-We pushed on the door as hard as we could. Slowly the fridge moved out of the way, and we squeezed out into the main room of the cabin. No one spoke, as we made a line for the kitchen. Without words we packed. Sloane grabbed one of the blankets and tied it into the shape of a sack, draped around her shoulder. We started to fill the sack with the only remaining food – two granola bars, a measly bag of vegan soy jerky, a ziplock bag of crushed pringles and one unopened can of pure pineapple juice.
-
-“Can we just eat it now?” Trinity asked. Slone and I looked at each other and shrugged.
-
-“I’m starving actually” Sloane said. We divided the food, and shoved it into our mouths almost as fast as those creatures had eaten their fallen friend. We were so hungry. Trinity’s eyes looked across the room where she had noticed the fishing pole. She looked at me, moth full of granola bar. Without a word I nodded in understanding. I had work to do, but first, we needed gas.
-
-“So, we are making a sniper?” Trinity asked as we walked outside.
-
-“A syphon” I corrected, her “we just need…hmm..uh..what do we need again?”
-
-“A garden hose,” Sloane answered, “and the empty gallon sized container of apple juice in the kitchen.”
-
-“And where did you learn how to do this again?” I asked, half amused, half confused.
-
-“YouTube is free Max,” she responded, “I like to learn new skills.”
-
-Sloane and Trinity went to work. They would syphon the gas from the car parked in the driveway with no keys, and use it to fill up the Bronco, parked at the end of the long driveway. I walked back to the house.
-
-We had been awake for several hours by now, and I didn’t know how long my task would take. I grabbed the fishing pole and walked to the water. I grabbed the small boat, and rowed myself out a few hundred feet. I sat. I was pretty good at fishing, but I had no idea if there was even anything out in this lake. I had no idea if Trinity’s plan would even work, or if we would even need to use it. Time passed. What time was it anyways, I thought to myself. I had no idea, maybe high noon by now? We need to move faster. My fishing line sat motionless in the water. More time went by. I was staring off into the distance. Something caught my eye. Movement in the trees. My heart started to pound. Before I could make out anything I saw what looked like a person? A man? It looked like he was spying on the girls. He was gone back into the woods, disappearing as fast as he had appeared.
-
-I grabbed the oars and started rowing back to shore. I walked towards the car; Trinity and Sloane were arguing. The area smelled like gasoline.
-
-“Did you catch any fish?” Trinity asked.
-
-“Nothing,” I responded, “any luck with the gas?”
-
-“I think I did this wrong…” Sloane said, a pile of gas spilled around her, the gallon container was about ¾ of the way full.
-
-“That’s enough, we need to leave.” I said.
-
-“This won’t get us anywhere!” Sloane protested, “Shelby’s bronco gets like two miles to the gallon.”
-
-“It will get us to the truck,” I said, “and then we can take that from there. The keys are still in it.”
-
-“But we can’t leave without the fish!” said Trinity, “the plan won’t work without it.”
-
-I looked around. I didn’t know what I had seen in the woods but something didn’t feel right. Was it a man? another creature? it had disappeared so fast, who would be out here?
-
-I walked over to the carcass of the creature that had been torn to shreds. The animals hadn’t even finished eating when they took off. Unlike the other attacks, there was evidence of what had been killed here.
-
-“Give me your pack,” I told Sloane. She handed me her makeshift blanket sling. I grabbed a huge piece what must have been part of the dead creature’s arm (leg maybe?) and wrapped in the sling. It was heavy, and covered in blood.
-
-“Ew” Trinity and Sloane said in unison.
-
-“Will this work for the plan?” I asked.
-
-Trinity smiled at me. “Definetly.”
-
-We walked to the bronco. Carefully. We made a 360 around the car, peering into the vehicle.
-
-“It stinks” Trinity said.
-
-“I know” I responded, “it smells like something died in here." We opened the front door and the stench overcame us. The inside was covered in blood. The pack must have killed the creature that we locked in here, its hands still slammed in the back door.
-
-“Okay,” said Sloane, “give me the gas!” We filled the car with every drop. We piled into the smelly capsule, and I started the engine.
-
-“It’s working!” I shouted. Trinity and Sloane screamed with delight. So far so good. We were halfway through our plan. I turned the car around and started heading back on the road. We were driving as fast as we could, but also trying to save gas.
-
-“The truck should be just around the corner” I thought to myself. “Where is that thing?”
-
-“How long until we get to the truck?” Trinity asked, it always seemed like they could read my mind when things were going bad. I felt the pit in my stomach again. I didn’t recognize any of the road, but we had to be driving in the right direction. There was just one road. I started to get a little frantic. Our silence was broken by a ‘ding’ of the low gas light coming on again. I groaned. Then up ahead, around a corner, I saw it. The truck.
-
-“It’s there!” I screamed. The girls cheered. I slammed on the breaks. Just behind the truck, standing in the middle of the road blocking me from being able to pass was a tall, blonde man, with clear blue eyes. He wore dirty overalls, with the strap hanging off on one side, large black rain boots, and a wide brimmed woven hat that was tearing from ware at the edges. We froze in silence.
-
-He looked directly at us. He had a large black cane in his hand, like a walking stick but with some kind of electronic looking prong and antennae at the top.
-
-“Now, y’all aren’t leaving so soon are you?” he asked. We just stared at him.
+[Part I](https://www.reddit.com/r/nosleep/comments/w40m36/three_people_died_in_the_woods_last_summer_and_im/?utm_source=share&utm_medium=web2x&context=3)  
+[Part II](https://www.reddit.com/r/nosleep/comments/w4uvxx/three_people_died_in_the_woods_last_summer_and_im/)  
+[Part III](https://www.reddit.com/r/nosleep/comments/w6nrdm/three_people_died_in_the_woods_last_summer_and_im/)
+
+All three of us were staring directly forward. Something in me whispered “floor it” as I thought momentarily of slamming down on the gas and running over the man in front of us.   
+  
+“Floor it!” Sloane screamed (again with the mind reading). I couldn’t bring myself to do it. What if this person could help us? Who was this? What if he was out here in trouble just like the rest of us? Something in me knew that wasn’t true. The instant I saw his face, standing there in the middle of the road blocking our way I knew he meant to harm us. But still, I hesitated.   
+  
+The man smiled. “Y’all look scared half to death” he said as he started walking towards us. Our windows had already been rolled down to air out the stench in the car.   
+  
+“Move out of our way” Trinity yelled out the front seat window. The man didn’t react and continued walking toward us.   
+  
+“Max,” Sloane whispered, “just do it!” She was right. Without hesitating I slammed on the gas. The car burst forward and then with a loud POP completely went defunct as a huge puff of smoke burst from under the engine hood. It was officially out of gas and all the pedal flooring I could muster had no effect at all. The engine gave another loud noise and an even larger puff of grey smoke filled the air – I could hear the man coughing, choking on the fumes.   
+  
+“Run!” it was all I could muster. Trinity and Sloane were out the door in less than a second and I  immediately followed. I stopped myself, turned around and reached back into the car to grab the bloody sack containing the creature’s arm (leg?). We sprinted for the woods. We could hear the man coughing, wheezing, stumbling behind us.   
+  
+“Get back here you little punks, you killed my dogs!” he shouted at us.   
+  
+“Quick! Here!” Sloane motioned for us to climb up a steep embankment to get off the road and into the woods.   
+  
+“Get back here,” \*cough\* “right now!” the man continued to scream but we were now out of his sight. We continued to run into the thick cover of the trees and could hear him running and coughing down the road, perhaps thinking were just ahead around a winding corner.   
+  
+I ran as fast as I could. I could feel my heart beating in my throat, but I didn’t stop. Tree branches scrapped the side of my face, hitting me repeatedly but I didn’t flinch.   
+  
+“Max” I heard screaming behind me. It was trinity, maybe 500 feet back. I had run so far and fast they could not keep up. I shook my head out of my running trance and realized what had happened. I started running back to the girls. They were panting, curled over on their knees trying to catch their breath.   
+  
+“I’m sorry, I was just running, I didn’t realize I left you,” I started, and Sloane started shaking her head.   
+  
+“Look” she was able to muster between pants. She pointed to the ground. It was a single shoe, covered in blood. I recognized it instantly. A bright orange Birkenstock with painted flowers and peace signs. It belonged to Shelbey.  
+  
+“She’s alive!” Trinity exclaimed. I didn’t want to tell her that finding her bloody shoe out in the middle of the woods probably meant the exact opposite. Before I could speak, I heard a noise. We looked at each other trying to discern where it was coming from. High pitched, urgent sounding. The three of us had our heads on a swivel, but it was impossible to tell where the sound was coming from. It was a whistle…we heard it again immediately followed by a hissing “PSSSTTT.” 
+
+The noise was directly above us. We looked up – a dark silhouette starting down from a large, thick tree branch.   
+  
+“Up here!” the silhouette called. We glanced at each other, feeling equal terror and relief. It was a person.  
+  
+“Get up here, fast!” the person yelled again, “please it’s not safe on the ground!” without thinking we started climbing. I could hear the man’s yelling growing more distant in the background and my body was moving faster than my brain could process.  
+  
+The tree we were climbing was immense with large branches – the person calling from above must have been about 30-40 feet up, and I was never a big fan of heights. Trinity climbed the quickest, leveraging her short body up fast and swift. Sloane and I struggled slightly more, as we were taller and less agile.   
+  
+Trinity made it up first, and I watched as a pair of arms reached out and grabbed here onto a thick branch about as wide as a surfboard. I was about ten feet below, still climbing when I heard Trinity scream. I closed my eyes, feeling regret for coming up here, and following the orders of a stranger in the woods when Trinity followed her scream with an immediate exclaim of “Aunt Shelbey!!”  
+  
+I climbed faster. I was right beneath the large branch when a pair of arms reached out to me to pull me up the final last feet. I reached preparing to embrace Shelbey when instead I saw an old, surprisingly strong woman with long flowing curly hair, covered in blood and dirt. She picked me up clean onto the branch, and then swiftly did the same for Sloane, pulling her to a branch right next to us. I looked around, confused, until my eyes landed on Trinity, who was sitting on the branch like it was a horse, and holding Shelbey’s head in her lap. Aunt Shelbey was in bad shape, covered in blood with large gashes across her chest and shoulder.   
+  
+“She’s alive, don’t worry” the old woman said to me. She has been in an out of consciousness since I found her yesterday, but she is alive. I think she is fighting an infection, and we need to get her to a hospital immediately. This is your aunt, right?”  
+  
+“Yes” I replied, “she was attacked, we were driving up to the cabin…and she was in a different car…and, its actually that truck down there…and…”  
+  
+“It’s okay” old woman said. “I lost a friend too. We were also staying at the cabin. I’ve seen the creatures and I know what’s going on. I’m trying to get help for my friend Lindsey. Did you get to the cabin? Did you see anyone there?”  
+  
+My eyes looked down.   
+  
+“Oh” the women said. “I figured as much but didn’t want to think about it. Stubborn idiot, I told her not to stay…” the woman stopped, holding back a flood of tears. She bit the top of her hand, closing her eyes. I could feel her grief.   
+  
+“She saved us” I said.   
+  
+“What?” the women replied.   
+  
+“Lindsey,” I continued. “Your friend. When we made it to the cabin she saved us. She protected us and exploded a bunch of the creatures. Without her we would all be dead right now. You’re Stefaney, right? She told us you were right and that the cabin wasn’t safe, and we needed to leave and she died so we could get out.”   
+  
+At this Stefaney burst into tears and laughter. “Well now, that’s the first time in 50 years of knowing Lindsey that she admitted someone else was right, ha! And we are going to get out of here just to prove that point!” I looked at Shelbey.   
+  
+“How did you find her and get her up here?”  
+  
+“Well,” stefaney started, “after I left, I followed the road out of here, but stayed in the woods alongside it for cover – it took longer to walk, but it felt safer. I would sleep high in the trees at night, and maybe get to trek a couple miles during the day. I don’t know how long I had been walking, maybe two or three days when I heard a terrible attack happen while I was getting ready to sleep in this very tree. I heard screaming and fighting from those…things, and one of them landed right down at the bottom of this tree – right where your aunt’s shoe is down yonder.” She pointed down to the forest floor.   
+  
+“The creature had your aunt, and was about to rip her apart when another one came out of nowhere and they began fighting. Your aunt was still alive, I could see she was in shock, almost blacked out and wounded. I climbed down the tree and pulled her up, I may look old but I am stronger then you think, it’s amazing how weightlifting keeps me young…anyway she kept repeating she needed to find ‘the kids’ over and over, I had to promise I would look for you once the sun came back up again.”  
+  
+Sloane, Trinity and myself were all listening intently.   
+  
+“This all happened just last night” Stefaney continued, “but that’s not even the strangest part. The worst thing was that I did actually go back to look for you this morning. I know that your aunt was attacked on the road, so I ventured out there after waking up, I was waiting for the daylight. Your aunt was still conscious and said you were in a separate car. I walked out and only found a white truck. The keys were still inside when I heard a noise coming from further up the road. I quickly made it back to the safely of the trees and watched as I saw…him…a man, tall, blond, wearing overalls…he was walking up to the truck and inspecting it. I thought about screaming to him for help but a gut feeling told me not to…he reached into the car and took the keys. Then I saw him use some walking stick he had, he pointed it to the sky and it let out an extremely high pitched ringing sound…next thing I could hear was howling in the distance..”  
+  
+“Wait, like, he controls the monkey dogs with a …stick?” Trinity asked.  
+  
+“I don’t know” Stefaney said, “but I know he is somehow behind this, and without those keys we are hopeless.” Stefaney broke down, “we are as good as dead now, and there is no way out of this.”   
+  
+“What?” Sloane started. “Hopeless? What do you mean, you can’t be serious.”  
+  
+I didn’t know what to say. Shelbey was lying there, unconscious on the verge of death. Stefaney had her head in her hands and Trinity was silent.   
+  
+“We are not hopeless!” Sloane shouted, almost laughing. I looked at her angrily, but sympathetically. I thought maybe she had finally had enough and was about to crack. I wanted to say something to help but I felt hopeless too. I had nothing left, I couldn’t be strong anymore. I stayed silent then said “Sloane. I’m sorry. I’m out of ideas. I don’t know what to do.”  
+  
+Sloane looked confused.   
+  
+“Um, that’s fine, and good for you, but I’m not out of ideas and we are not hopeless.”  
+  
+I looked at her, expecting some kind of motivational speech to come out. For her to inspire courage in all of us. To make us believe we would be okay despite the gravity of out situation.   
+  
+“Okay, Sloane. What do you got? What one thing can you say to make us feel like we have hope or can get out of here?” I said, “that we are not totally, completely, fucked?”  
+  
+She looked at me equally annoyed and puzzled. “Umm, how about 1997 Ford F-250?”  
+  
+“Uuh, what?” Trinity asked.   
+  
+“I don’t know,” Sloane said, “Shelbey drives a 1997 Ford F-250, maybe just the easiest truck to hotwire?”  
+  
+“You really spend all your time on the internet, don’t you.”   
+  
+“Yes,” Sloane replied, “but I actually learned this from Shelbey last summer when she lost her keys at the river…”  
+  
+“You know how to hot wire a car?” Stefany asked surprised.   
+  
+“Yeah,” said Sloane, "it might take me a minute to remember, but I’ve seen it done before. I can do it again”  
+  
+We all looked at each other. In the distance we could hear noises. It was hard to tell what they were. Maybe a person, maybe something else.  
+  
+“Okay,” Stefaney said, “we can do this. We can actually try to get out of here. We will climb down, the car is just a few minutes walk through the woods towards the road. It will take some time to carry your aunt down the tree. Its probably an hour or so from nightfall now. We will head out first thing in the morn-“  
+  
+“No.”   
+  
+We looked toward Trinity.   
+  
+“NO!” she shouted again. “We leave right now. We can’t wait.”  
+  
+“But it’s impossible,” Stefaney started, “if we are down there at night we are done for.”  
+  
+“I don’t care,” continued trinity. “We saw the man too, the one who you saw take the keys. He was waiting by the car, blocking us from leaving. He will be back and he will take the truck and then we will really have no chance. We leave now!”  
+  
+Sloane looked at me. I looked at Stefaney’ spanicked eyes. Trinity was right.   
+  
+“But what if they come afte-” Stefany started, but was again interrupted by Trinity.  
+  
+“Then we will fight. We leave now!”  
