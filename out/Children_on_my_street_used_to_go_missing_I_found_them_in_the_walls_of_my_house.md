@@ -289,3 +289,5 @@ Finally his head lifted, just a little. He blinked. Slowly wiped the tears from 
 He burst into sobs. But after they’d passed and he composed himself, after he’d asked how I was doing and whether I was going to finish school and how my college applications were going, after I finally told him none of that was why I was here… finally… *finally!*
 
 He told me [why.](https://www.reddit.com/r/QuincyLee/comments/11nxwz3/welcome_thanks_so_much_for_stopping_by/)
+
+[[UPDATE: PART 2]](https://www.reddit.com/r/nosleep/comments/1538rua/children_on_my_street_used_to_go_missing_i/)
