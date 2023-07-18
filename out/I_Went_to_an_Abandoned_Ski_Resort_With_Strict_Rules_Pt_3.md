@@ -72,7 +72,7 @@ But I couldn’t let Tim go. All I could see were those trees eating up the path
 
 In a last ditch effort, I threw my ski poles at Tim's feet. One bounced off, but the other tangled between his legs and threw him off balance and onto the ground. I jumped on him and denied his attempts to get back up.
 
-“He’s right there! LET ME GO!” 
+“He’s right there! LET ME GO!”
 
 Tim punched me, hard, in the jaw. My vision spilled to the side but I wrapped my arms around his torso and used my weight to pull him to the ground again. I was able to pin his arm and start to drag him back towards the lift, while he screamed the entire time.
 
@@ -353,3 +353,11 @@ The phone was ringing. For a second, I couldn’t hear it over the sound of my p
 I cut my hand on shattered glass snatching at the phone but I barely felt it. I pressed a green button and after a few long seconds I heard through the static:
 
 *“Boy, what the hell are you doing in those mountains?”*
+
+&#x200B;
+
+Part 4:
+
+[https://www.reddit.com/r/nosleep/comments/152xo0n/i\_went\_to\_an\_abandoned\_ski\_resort\_with\_strict/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/152xo0n/i_went_to_an_abandoned_ski_resort_with_strict/?utm_source=share&utm_medium=web2x&context=3)
+
+&#x200B;
