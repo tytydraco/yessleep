@@ -124,7 +124,7 @@ And so we staged a kidnapping. There was no evidence because there was no strugg
 
 She told me to find others. In places of power. And if they wouldn't join willingly, then find a way to force them. Soon enough, they would come to realize we're working for the benefit of humanity. She told me to create animal-human hybrids to begin with. An evolution of our species. And the last thing she told me, before I laid her to rest in a park, was to find you. To hire you. To change your vision. And here you are."
 
-I stood in silence. I, in fact, didn't know what to say. Everything that I though I knew about my sister was shattered in an instant. It was possible the man was lying. There was no way she really was a some sort of insane fanatical, hell-bent on torturing people.
+I stood in silence. I didn't know what to say. Everything that I thought I knew about my sister was shattered in an instant. I mean, it was possible the man was lying. There was no way she really was a some sort of insane fanatical, hell-bent on torturing people.
 
 It just wasn't the person I knew.
 

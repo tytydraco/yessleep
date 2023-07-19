@@ -6,13 +6,13 @@ I mean the chess piece, not a religious leader who had fallen down. But it still
 
 I picked it up.
 
-It was sort of an impulsive decision, governed by a string of coincidences, the surrealness of the situation calling to me in a strange way. You see, I had just started learning how to play chess. Properly, I mean. Not just the pieces and how they are played, but the theory that underlines every move and situation.
+It was sort of an impulsive decision, governed by a string of coincidences, making the surrealness of the situation call to me in a strange way. You see, I had just started learning how to play chess. Properly, I mean. Not just the pieces and how they are played, but the theory that underlines every move and situation.
 
 To be frank, chess is so much more complex than I originally surmised. I try to study a new opening, and just get overwhelmed by the staggering amount of variations and counter-plays that exist. It just seems unfathomable that something so deceptively simple can be so complicated.
 
 And so I grabbed the bishop and thumbed it over in my palm. As I slowly smoothed my finger over the piece, I noticed a slight irregularity. It was almost imperceptible, but there was a small ridge that ran around the center of the piece, seemingly separating the bishop into two halves.
 
-I stared at the bishop for a few seconds, before turning both halves into separate directions, which made the middle part give way. The bishop’s hat came off from its stand, revealing that the inside of the piece was hollow. Well, hollow except for one thing,
+I stared at the bishop for a few seconds, before turning both halves into separate directions, which made the middle part give way. The bishop’s hat came off from its stand, revealing that the inside of the piece was hollow. Well, hollow except for one thing.
 
 There was a small note furled into a roll and tucked inside the bishop. Furrowing my brow, I opened the note to see some words printed neatly on the inside.
 
@@ -144,7 +144,7 @@ The color drained from my face. *Oh God. Everything just keeps getting worse.*
 
 He stood up and gestured to the door. “Well, you better get going. Time's already ticking. Oh, and don’t try anything. No police. No hospitals. We’ll be watching. I can assure you that.” He jerked his head over to one of the men sitting nearby, who nodded in reply. "It would definitely be best for you to go bring your payment *immediately."*
 
-I stood up, wincing from the pain, and walking up towards the door. I heard unpleasant sounds emanating from further down the hallway. No one else seemed bothered by it. I opened the door slowly. No one got up to stop me. I walked through the door.
+I stood up, wincing from the pain, and walking up towards the door. I heard unpleasant sounds emanating from further down the hallway. No one else seemed bothered by it. I opened the door slowly, and walked through it. No one got up to stop me. 
 
 “12 hours!” The man called out.
 
