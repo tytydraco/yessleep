@@ -1,0 +1,63 @@
+When I was a kid, I lived in a haunted house.
+
+I know how that sounds, and I don’t wanna sound pedantic, but I lived in an actual haunted house. It was never anything sinister throughout most of my childhood. You would see things out of the corner of your eye, you’d come downstairs to find things moved a little, my mom even had her hair pulled in the bathtub once, but it was an isolated incident that never happened again. You'd hear voices, people moving around, and some other noises, but it was nothing major. It was annoying sometimes, but I never really felt threatened by it. It was just something that happened.
+
+Until my parents decided to sell the house.
+
+I was about eighteen or nineteen years old, and I had just dropped out of college. Medical studies hadn’t been for me, and I was just really feeling burnt out and kind of lost. I had been writing since I was like eight, but I hadn’t discovered horror yet and was still trying to hash out something in the fantasy trade. I had a job, and I had my parent's house to fall back on, at least until they informed me that they were moving two states away. They didn’t have a sell-by date for the house yet, but my parents were doing well enough that they could afford to go ahead and pick up another house to flip while they were waiting for this one to sell. They offered me a pretty sweet deal. Stay at the house and watch the dogs while they went and got the house ready to move. They’d be back in about two to three months after they had everything ready and then they would start moving everything up there officially. If they hadn’t sold the house by then, I was more than welcome to keep living in it for a while.
+
+This turned out to be moot since I didn’t stay in the house longer than about a month.
+
+It started out with little things. Things are always gone missing in the house, car keys, coffee cups, and books, but now they were nowhere to be found. I lost my car keys three different times in that month and each time I had to go to the dealership to get a new one made to the tune of about fifty bucks. My school textbooks that I was going to sell to a classmate also went missing, as did my game boy, and a bill that I have been planning on paying to keep myself out of debt. That’s just the stuff I can remember, but it was a constant struggle waking up wondering what was going to be missing.
+
+The dogs also got very nervous in the house. My parents kept border collies, two of them, and they have always been welcome in the house, along with the other menagerie of animals that my mother kept. They had never been uncomfortable coming in and out before, but now they seem to want to live on the back porch rather than in the house. The Florida heat is no joke, and when a long-haired dog would rather sleep on an unairconditioned back porch than inside you know something is going on.
+
+I just chalked it up that they had missed my parents, but I had no idea that it was about to start rattling up.
+
+That was about the time that I noticed the shadows.
+
+I slept upstairs more than downstairs, feeling safer upstairs in case someone decided to break in. We had neighbors who were less than reputable, and our house had been broken into while we were out on vacation before. I figured that if someone broke in, being upstairs would give me more time to get my gun ready and call the police, but the real problem was already inside the house.
+
+Sometimes I would wake up in the middle of the night, awoken by a sound, or by a feeling, and see things moving in the room. Not really moving in the room I guess. I'd see the shadows on the wall as they walked behind me or around the bed. I'd turn my head to confront them, but there would never be anybody there. The room was always empty, and a search of the house will prove that no one was in there. What’s more, even though they were on the back porch, I knew the dogs would pitch a fit if they smelled someone in the house. They might not have liked being in there, but they didn’t like anybody else being in there either that they didn’t know.
+
+I tried sleeping on the couch, but it was the same problem. I’d hear whispery voices and see long shadows up the wall, but when I turn over to confront them, they'd be gone. Sometimes I'd hear things moving around if I slept downstairs, so I always made a habit of sleeping upstairs. Most nights, I tried to have friends over, people to watch movies with, people to keep me company while I was in the house, but most every night I wound up staying there by myself. I’d stay at friends' houses sometimes, but never for very long. I had responsibilities at the house, and none of their parents were ready for a long-term houseguest.
+
+I should’ve left after the shower incident, but I managed to talk myself out of it.
+
+I really wanted to believe I had just scratched myself on something. No one wants to believe their childhood house is haunted by hateful spirits.
+
+I was in the shower about three weeks after they left. I was getting ready for work, soap in my hair, soap in my eyes, when suddenly something scratched my shoulder. I open my eyes and immediately regretted it, but I started looking around to see if maybe one of the cats scratched me or if I had run up on a hook or something. Mom had little hooks on the wall for the loofahs and things, but they had already taken those down. I didn’t see any cats or anything in the bathroom, and I went back to cleaning the soap off myself before inspecting the scratch. It was from my shoulder blade to mid back, and it looked like three long scratches that looked red and a little infected. I put ointment on them and put a big Band-Aid over them (mom was a nurse so she had lots of stuff like that in the craft room) and tried to ignore it. It was just an accident, after all. These things happened, and I fed the dogs and went to work as I always do.
+
+When I got in that night, that’s when the weirdness really hit a fever pitch.
+
+The second I came through the door, it was around midnight, I could swear I heard people upstairs. It sounded like four or five of them moving around on the second story. I grab my dad’s gun that I kept by the TV stand and headed upstairs to have a look. I hadn’t seen any signs of a break-in, no broken windows or open doors, and I wondered how they had gotten in without being seen? My parents had a big house, but most of the easier entryways are in the living room. Unless these guys broke into a back room, I didn’t figure they could’ve gotten in without me noticing. I came up the stairs, barrel leading the way, but as I spun into the large front room where my parents slept there was no one there. I search the house, upstairs and downstairs, but I found nothing. It was as if I had imagined the whole thing. The dogs sleeping peacefully on the back porch led me to believe I was just getting jumpy, and as I got ready for bed, I couldn’t help but listen out to make sure that it was just my nerves.
+
+When something kicked the front door in, I jumped about a foot.
+
+I have been washing my face in the sink, and I winced as the soap one in my eyes again. I came downstairs several at a time, the gun back out front to find the door open, and no one there. I had expected to hear footsteps as I came down the stairs, maybe even people running, but there was no one. It was an empty house with nothing in it. I made another pass of the house but still found nothing. I was getting jumpy, really not liking what was going on here and it was getting hard to get ready for bed. I brought the dogs back inside, little as they wanted to come in, and tried to coax them upstairs with me so so I could feel like I had a little company. I had known these dogs our whole life, I helped my mom raise them from puppies, and it was the first time I had heard them growl at me as they stoically refused to go upstairs. They didn’t snap, but I got the feeling that if I press the matters much, they might. I finally left them downstairs, deciding to close my bedroom door and get some rest.
+
+I put a chair under the front door as well.
+
+No sense waking up to it slamming open again if I could help it.
+
+I managed to get to sleep after some unsuccessful tossing, but when I did, it was short-lived. In my dreams, people were standing around me whispering. I didn’t know who they were, they were people I had never met, and when I rolled over to look at them, they had no faces. They were made of shadows, and I got the feeling they were talking about me. I can’t explain why, there’s no reason I have to feel that way, but I suddenly knew that I was the subject of their conversation. I rolled over in my dream, not wanting to look at them, and that’s when I saw the shadows riding up the wall. They danced and capered across the flat eggshell paint, and I realized I wasn't sleeping anymore. I could feel eyes on my back as I shivered under the covers, and the more awake I came, the more I realized I could still hear the whispered voices. These are the things I’ve been seeing when I tried to go to sleep every night, and as I came awake, I found that the shadows were still there.
+
+They were rising up the wall, seven or eight feet tall, and their legs stretched out behind them grotesquely. I don't know what they were saying, but I didn't like it. It was something like muttering, a constant flow of a low talk, and when I turned to look at them, they didn't disappear this time. I couldn’t see them, no more than I believe they could see me, but I knew that they were looking at me. I was filled with the most profound terror I had ever experienced. I don’t know what to do. Did I stay? Did I go? This was my home, I had always felt welcome there and this was the first time I had ever felt it would ease in the house.
+
+In the end, I chose not to confront them. I rolled out of bed as quick as I could and ran for the door. The dogs looked at me like I was crazy as I went downstairs, but I didn’t really care. I was not staying in that house for another minute. I went to my car, opening the door, but remembering that I left my keys inside, I looked back at the house, but the thought of going back in there made my knees weak. There were no astral lights in the windows, no weird figures looking down at me, but looking at that dark house by night made me never wanna go back in there again.
+
+I slept in my car till morning, and after the sun came up, I went to go get my keys and a few things. I called a friend of mine and asked if I could spend the night at his place indefinitely, and after telling him what I experienced he agreed. I don’t think he believed me, but I think he believed I had seen something. His mom was the kind of person that believed in almost anything, and when he told her, she insisted that I come to stay.
+
+I stayed at his house until my parents sold the place, and then I went to live with my grandma until I got a place of my own.
+
+I thought I might be done with the weirdness in the house, but it had one last surprise for me.
+
+I went back a few weeks later to help them start moving their things onto the truck, and when we lifted the sectional, I found something. Underneath the couch was everything I had been missing, stacked into neat piles and just waiting to be discovered. My dad laughed about it, saying I must be kind of scatterbrained, but I knew I had checked under the couch many times. I helped them move their stuff on the truck but insisted on being gone before dark. They thought I was being silly, but I never came back there after dusk again.
+
+When they sold the house a few months later, I got my stuff out and never went back.
+
+My mom got into ghost tours and things later in life, and did some research on the place after I told her what I experienced. She was almost giddy when she told me about the checkered past of the house we have lived in. Several people had died in that house, and not all of them were of natural causes. There were rumors that two brothers had a duel in the backyard, and one of them was still buried on the property. A boy drowned in the pond that sits at the corner of our land. Several people died of natural causes in the house, and whether or not they are the ones haunting the place, I don’t know.
+
+I find sometimes in my life that strangeness follows me. It seems to seek me out, and I think that might’ve been part of the reason I started writing horror. The closer I get to understanding it the more I know I’ll understand my own reasons behind it, and that’s not the only strange thing that’s ever happened to me in my life.
+
+Perhaps I’ll tell you about a few others some time.
