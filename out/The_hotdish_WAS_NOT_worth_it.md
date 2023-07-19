@@ -116,4 +116,4 @@ I’m typing this up eighty miles from that den of horror, in a different and fr
 
 Sweet Satan’s knickers… McDonalds feels like heaven.
 
-*I wrote about another, um, interesting experience I had here*: [Free Pepsi](https://www.reddit.com/r/nosleep/comments/153dhg3/free_pepsi/)
+*I wrote about another, um, interesting experience I had here*: [Free Pepsi](https://www.reddit.com/r/nosleep/comments/153ibvm/free_pepsi/)
