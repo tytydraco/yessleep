@@ -63,3 +63,29 @@ In my desperation, I suggested psychiatric help, thinking maybe this is some ext
 I'm at my wits' end. I'm losing my wife to this unknown horror. I'm stuck in a nightmarish limbo, unable to understand, unable to help, and unable to escape. Please, if anyone has experienced anything remotely similar or has any insight into what might be happening, I beg you, reach out. I fear for Emily's safety, the wellbeing of our unborn child, and, in my darker moments, my own.
 
  I need help. I need answers. Please.
+
+UPDATE
+
+Well, I suppose I should begin by stating that I'm grateful for all of your input. It really warms my heart to know that there are kind- hearted people out there, beyond the confines of my present nightmare, who cares and wants to help.
+
+I dont know what to believe anymore. I pride myself on being a rational person but at this point I'm starting to question whether I'm really being rational or just obstinate in my refusal to entertain some of the more... *fanciful* theories you have proposed.
+
+I contacted the psychiatrist again and basically harassed him until he agreed to come check on her. A few hours later a blue Volvo pulled up in the driveway and a shortish rotund man with thick spectacles emerged. He was visibly disturbed by the state of the house, though Emily refused to let him enter the cellar. Other than that she seemed a lot more calm and collected while he was here and he ended up attributing her behaviour to "pre- partum depression". He wrote a prescription for sertraline and said a nurse would call about a check- up in a week or so. 
+
+As he left Emily stared at me as if I had tried to kill her but did not comment on the visit. She wrote a list of groceries for me to purchase and while I feel awful about leaving her alone I must confess it feels liberating to get away from her, away from the dark and stinking house, and away from the labyrinth of the macabre my life seems to have become. 
+
+The supermarket felt... normal. Fluorescent lights, bored shoppers and a cardboard cutout of a smiling chicken promising affordable prices for free- range eggs; for a while it was as if my present situation was just a bad  dream, and that I would soon get home and find my wonderful, if a bit quirky, wife back to her normal self. 
+However the shopping list she had written served as a grim reminder of the futility of such daydreams. Meat, fish and poultry was apparently on the menu, in large quantities and with little else besides.
+
+As I pulled up on our driveway the sun had set and I felt my blood go ice cold as I noticed two green spots where my cars headlights were reflected in a pair of eyes. My wife was standing on the small staircase leading up to the door, putting up what first appeared to be a windchime. 
+
+A closer inspection made it obvious it was made out of hollow bones. She smiled as she saw me, and though I embraced her as she moved in for a hug I could not let go of my trepidations. She whispered something to me, and I replied.
+
+Human eyes do not reflect light, not in the way hers just had. I least I dont think they do. I suppose it may have been a trick if the light, or a figment of my overworked brain. Maybe there is nothing strange going on. But I dont believe that anymore. She looks different but I dont know of that is just the lack of light, the pregnancy, her strange diet or some combination. 
+
+As she tore into a raw chicken I had bought with almost animalistic zeal, I tried to call her parents albeit without a reply. I've tried calling them a few times without getting a response during the last few days. I hope they are alright, though I wonder if their refusal to answer has something to do with the skeleton of the 8 year old girl.
+
+She is in the cellar now, doing Who- Knows- What.
+I think I have made a decision. I am going to go talk to Emily, and I'm not going to knock before I enter. I dont know what I will see, but I have to do it. 
+
+I need to convince myself my wife is not a monster.
