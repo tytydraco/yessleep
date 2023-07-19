@@ -332,4 +332,4 @@ Rotten eggs pummel the stage.
 
 [Season Two](https://www.reddit.com/r/nosleep/comments/13oowiy/im_the_host_of_a_creepy_talk_show_lets_make_a/?utm_source=share&utm_medium=web2x&context=3)
 
-[Season Two FINAL](https://www.reddit.com/r/nosleep/comments/13oowiy/im_the_host_of_a_creepy_talk_show_lets_make_a/?utm_source=share&utm_medium=web2x&context=3)
+[Season Two FINAL](https://www.reddit.com/r/nosleep/comments/13xgzh3/im_the_host_of_a_terrifying_game_show_lets_make_a/?utm_source=share&utm_medium=web2x&context=3)
