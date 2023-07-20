@@ -70,12 +70,12 @@ Then I saw it.
 
 Those mushrooms were now surrounding the meteorite, growing out of the soil like gangbusters. A few of them had gotten alarmingly big, the bulbous tops easily the size of my balled fist. Freaking out, I ran back inside and grabbed the attention of my wife. When she saw the rapid spread and growth of this unknown mycelium, she was convinced it wasn't Earthly in origin.
 
-"No, there isn't a plant on Earth which propagates that fast," she remarked hysterically.
+"No, there isn't a species on Earth which propagates that fast," she remarked hysterically.
 
-We took a multitude of pictures on our phones and spent a good hour outside staring at the mushrooms. The things had what I can only describe as *growth spurts,* meaning the remained perfectly still until suddenly and rapidly increasing in length and size. During these *spurts,* new mushrooms would pop out of the soil with enough force to send a small sprinkle of dirt cascading into the air.
+We took a multitude of pictures on our phones and spent a good hour outside staring at the mushrooms. The things had what I can only describe as *growth spurts,* meaning they remained perfectly still until suddenly and rapidly increasing in length and size. During these *spurts,* new mushrooms would pop out of the soil with enough force to send a small sprinkle of dirt cascading into the air.
 
 Fascinated and horrified all at once, we resolved to contact the non-emergency support number, who connected us to a few different agencies before finally sending someone out to take a look.
 
 Before nightfall, dozens of government vehicles had arrived at our doorstep and promptly ordered us to evacuate the property. The last thing I saw before driving away from our quiet countryside home was a group of people kitted out in heavy duty hazmat suits setting up a plastic barrier around the property line.
 
-Now, I'm sitting here in the hotel, unable to sleep because I can't help but wonder *what exactly has taken over our backyard.*
+Now, months later, I'm sitting here in our government paid hotel, unable to sleep because I can't help but wonder *what exactly has taken over our backyard.*
