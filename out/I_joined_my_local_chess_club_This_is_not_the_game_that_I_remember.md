@@ -144,7 +144,7 @@ The color drained from my face. *Oh God. Everything just keeps getting worse.*
 
 He stood up and gestured to the door. “Well, you better get going. Time's already ticking. Oh, and don’t try anything. No police. No hospitals. We’ll be watching. I can assure you that.” He jerked his head over to one of the men sitting nearby, who nodded in reply. "It would definitely be best for you to go bring your payment *immediately."*
 
-I stood up, wincing from the pain, and walking up towards the door. I heard unpleasant sounds emanating from further down the hallway. No one else seemed bothered by it. I opened the door slowly, and walked through it. No one got up to stop me. 
+I stood up, wincing from the pain, and walked up towards the door. I heard unpleasant sounds emanating from further down the hallway. No one else seemed bothered by it. I opened the door slowly, and walked through it. No one got up to stop me.
 
 “12 hours!” The man called out.
 
