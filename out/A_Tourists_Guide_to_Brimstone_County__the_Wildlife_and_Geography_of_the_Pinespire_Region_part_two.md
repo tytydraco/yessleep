@@ -26,7 +26,7 @@ I turned off my lamp. I sat in darkness, as silent and still as possible, for wh
 
 I heard a horrible snapping sound, like a limb, and the sound of flesh ripping. Then the sound of nylon tent fabric being shredded apart. I turned the lamp back on. It was idiotic, but at that point I had assumed I was going to die anyway and wanted to know what was about to kill me.
 
-It looked like a moose. It’s head and leg we’re sticking through the hole. The leg had been snapped backwards, and it must have used the exposed bone shards to rip open the tent. I screamed, in fear and disgust, and smashed the lamp into the head of the creature whatever it was, because I was sure it was not a moose.
+It looked like a moose. It’s head and leg were sticking through the hole. The leg had been snapped backwards, and it must have used the exposed bone shards to rip open the tent. I screamed, in fear and disgust, and smashed the lamp into the head of the creature whatever it was, because I was sure it was not a moose.
 
 The plexiglass casing around the lamp shattered, leaving only a metal shell, and the shards of it were sprayed across me and the not-moose. I was cast back into darkness, now screaming only from pain, but I was still aware enough to kick the creature as hard as I could in the face. It jolted back, the half of its leg that had a hoof on it being jerked off, falling to the floor of my tent.
 
@@ -38,13 +38,13 @@ I heard it morph back into some animal, bones cracking into place, and it ran in
 
 I got out of my tent, taking nothing with me, sprinting until I got back to my car. My sides hurt, along with all the cuts from the plexiglass in the lamp, but I kept running. When I arrived at my car, I fished for my keys, found them, then got in and drove to the hospital. Tired, bleeding, and sore, I walked in, and without any exchange of words I was brought to a small room filled with medical equipment.
 
-The hospital was mostly empty, so I was met almost immediately with a doctor who asked me some questions before she began cleaning off the wounds to remove the shards.
+The hospital was mostly empty, so I was met immediately with a doctor who asked me some questions before she began cleaning off the wounds to remove the shards.
 
-“What happened to you?” He asked. “Other than the glass.”
+“What happened to you?” She asked. “Other than the glass.”
 
 “I was camping.” I said. I didn’t want to think about what had happened.
 
-He laughed. “Tell me you’re new to Brimstone County without telling me you’re new to Brimstone County.”
+She laughed. “Tell me you’re new to Brimstone County without telling me you’re new to Brimstone County.”
 
 I was in the room for an hour and a half, and I left without any major injuries. I’m fortunate I kept my sense of sight, and that none of the lamp pieces got in my mouth as I screamed, but I did not give up camping. I would have other encounters later, which I won’t get into here, which finally deterred me from the forest.
 

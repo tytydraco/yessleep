@@ -49,3 +49,5 @@ I didn’t talk to the family again for a while. I struggled to understand what 
 Eventually I accepted that I would never quite understand it. I would later live in many other parts of Brimstone County, and I would see many other impossible occurrences. I was never able to reasonably explain any of them. 
 
 Instead they will go here, alongside a comprehensive guide to the county I call home, and the county you will no doubt become very familiar with, whether you read the rest of this guide or not.
+
+[part 2](https://www.reddit.com/r/nosleep/comments/154rxw6/a_tourists_guide_to_brimstone_county_the_wildlife/?utm_source=share&utm_medium=ios_app&utm_name=ioscss&utm_content=1&utm_term=1)
