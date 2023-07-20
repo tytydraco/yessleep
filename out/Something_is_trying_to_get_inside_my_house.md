@@ -24,26 +24,33 @@ I was relieved, again. Until i realised. It walked off... in the direction of th
 
 I was relieved once more, almost collapsing on the floor right then and there. I decided to check the rest of the doors and windows through the house. I returned to the back door once I was satisfied, to double check everything. And I did double check it, everything was in order, so I went to leave for bed, again. Yet I was stopped, **again,** this time by a voice.
 
-*"Hey"*
-It spoke.
+*"Hey"* It spoke.
+
 I froze. The voice was... *weird.* I can't describe it well. It was a familiar voice, like a friend or something but... innately wrong. The pitch was inconsistent. It sounded warped and unnatural.
+
 *"You... open the... DOOR"*
+
 I jumped at the raised voice it used for the last word. It sounded pieced together. Like words from a song that might make sense next to eachother but when taken from different parts of the song, it sounds weird. I was completely frozen in place by the voice, unsure of my next move.
 
-What I really wasn't expecting, though, was for my cats meow to come from the cat flap, all distorted and wrong again. It made me want to cry hearing that, I knew my cat was upstairs, he was sleeping deeply on my bed when I left him. I knelt down, and without looking at the plastic window, tried to lock it.
+What I really wasn't expecting, though, was for my cats meow to come from the cat flap, all distorted and wrong again. It made me want to cry hearing that, I knew my cat was upstairs, he was sleeping soundly on my bed when I left him. I knelt down, and without looking at the plastic window, tried to lock it.
 
 I was completely caught off guard when a hand shot through the cat flap and tried to grab me. Thank god it missed me. I jumped back and stared at the dark shape of a disgustingly long arm feeling around for me. It moved in a truly unnatural way, like a giant serpent frantically looking for food. It made me feel sick watching it. Another distorted meow came from the door and failed to lure me to it.
 
 When it didn't find me, it felt it's way up the door towards the handle and the key that was still in the lock. Without hesitation I leapt towards it, snatched the key out of the door and fell back out of it's reach again. I seemed to anger it by doing that.
+
 *"YOU..."* It shouted at me.
+
 *"This is... going... to hurt..."*
 
 It's words unnerved me. It was being patient earlier. I wondered if it could've killed me outside. The arm finally slithered back outside, it's face replacing it. I wasn't sure which was worse.
-*"I'm... gonna... come iin..."* The last phrase sounded like someone calling from across the room after someone knocks on the door.
+
+*"I'm... gonna... come iin..."*
+
+The last phrase sounded like someone calling from across the room after someone knocks on the door.
 
 It was then that I realised why the voice was so familiar. It was my voice. A wave of nausea washed over me. I wanted to be sick. I ran to the bathroom but stopped in the doorway. The urge to throw up melted away as I looked at the canister of hairspray.
 
-I took it with me back to that thing. It's head was pushing the cat flap open when I got there, it was still too dark to see in detail, but I saw my target. I pulled out my lighter and lit it on front of the canister. The slight glow from the flame lit up the room just enough for me to see, I wouldn't have looked at it's face given the choice, but I was already looking at it when I sparked the lighter. 
+I took it with me back to that thing. It's head was pushing the cat flap open when I got there, it was still too dark to see in detail, but I saw my target. I pulled out my lighter and lit it in front of the canister. The slight glow from the flame lit up the room just enough for me to see, I wouldn't have looked at it's face given the choice, but I was already looking at it when I sparked the lighter. 
 
 I was looking at my own face. It looked back at me. My heart dropped yet again. Then it smiled at me. A smile too wide for a human. It's face was wrong in so many ways. Yet it was still my own face. I didn't understand what made it so unnatural, but it scared me. After finally snapping out of it, I jammed down on the hairspray. A giant, roaring fireball lit up the room in orange and landed straight in it's face. It screeched in pain in my voice but didn't back away. I felt the hatred in it's glare.
  
