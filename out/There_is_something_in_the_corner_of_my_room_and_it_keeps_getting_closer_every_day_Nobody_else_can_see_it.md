@@ -22,4 +22,4 @@ This same thing went on for about 3 days before I finally noticed it was getting
 
 It was about the 12th day when I finally opened my eyes and realized that it was getting closer. I kept telling my mom that I didn’t want to sleep in there, but she didn’t want to listen to me. She kept threatening to take my things away if I didn’t sleep in there, and every night, I tried so hard to stay up, but I just couldn’t, I ended up falling asleep. 
 
-It’s been about a month now, and it is right by my bed, staring down at me as I right this. I don’t know what this thing is, or where it came from, but I don’t know what it will do to me If I stay here. Whatever it will do, it won’t be good.
+It’s been about a month now, and it is right by my bed, staring down at me as I write this. I don’t know what this thing is, or where it came from, but I don’t know what it will do to me If I stay here. Whatever it will do, it won’t be good.

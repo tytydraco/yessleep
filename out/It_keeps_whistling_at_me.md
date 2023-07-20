@@ -23,3 +23,5 @@ I've grabbed my gun and loaded the the clip with the max amount of bullets, y'kn
 Tell you h'what, though: Ever since I read that story about the whistling man, *it stuck with me.* Something about it really got under my skin. And now, somehow, I'm living it. Maybe there's something to be said about that. Fate, or... manifestation or something. I don't know. But I can tell you from experience, if you ever hear someone whistling at you, take it seriously. Maybe it's nothing. But the world is a crazy place, and it's always best to be safe over sorry.
 
 Pray for me.
+
+[Update](https://www.reddit.com/user/Icy_Tangerine_6271/comments/154s82i/it_keeps_whistling_at_me_update/?utm_source=share&utm_medium=web2x&context=3)
