@@ -28,28 +28,31 @@ I wasn't sure what to say. There was no way my Dad was somehow digitized and bei
 "Come over."
 
 
-A crackly weak voice told me to walk up to the sphere. My heart sank. What the hell was even going on? The sphere wanted my Dad, and now it wanted me? But for what?
+A crackly weak voice told me to walk up to it. My heart sank. What the hell was even going on? The sphere wanted my Dad, and now it wanted me? But for what?
 
 
 The sphere moved one inch towards me. This was really happening, huh… I sprinted back inside, warned my Mom about the sphere and went straight to my room. I sat underneath the window, out of view of the living sphere.
 
 
-A few minutes of hiding later, I peeked out the window to see what's going on with the sphere. The thing sat 10 feet away from the house, displaying an image of a brown zombie with bleeding eyes and without a jaw. It, of course, had my Dad's eyes. And it was clawing at the screen too. A baseball bat that was lying to the right of the sphere levitated off the ground and entered the sphere, then smacked the zombie in the head over and over until the monstrosity could barely stand. The bat then pointed right at my face.
+A few minutes of hiding later, I peeked out the window to see what's going on with the sphere. The thing sat 10 feet away from the house, displaying an image of a brown zombie with bleeding eyes and without a jaw. It, of course, had my Dad's eyes. And it was clawing at the screen too. A baseball bat that was lying to the right of the sphere levitated off the ground and entered the sphere, then smacked the zombie in the head over and over until the monstrosity could barely stand. The bat then pointed right at my face. The sphere wanted to torture me. Was it possessed by a demon or something?
 
 
 The pit in my stomach grew. What the hell did Dad use to make his sphere?
 
 
-The sphere switched the image to the image of a man who bore an insane resemblance to me right down to my hair at that moment. The copy of me stood in a dark forest. Three mecha dogs or bears stood behind him while breathing white flames and black smoke. Then their mouths opened wide, letting out even more. My copy ran for his life and chills ran down my own spine. The robots chased him out of the forest and into the parking lot of what looked like a restaurant, crushing to rubble every patio table in their way.
+The sphere switched its display to a video of a man who bore an insane resemblance to me right down to my hair at that specific moment. My doppelganger stood in a dark forest. Three 10 foot tall dogs or bears stood behind him, breathing white flames and black smoke. Their mouths opened up wide, letting out even more fiery breath. Chills ran down my spine and my copy ran for his life. The beasts chased him out of the forest and into the parking lot of what looked like a restaurant, crushing to rubble every patio table in their way.
 
 
-My copy hid behind a car, only for the car to be crushed entirely by the three. The windows shattered and the doors were folded. Outside of the sphere the trees at the end of the backyard began to sway. An artificial roar that sounded a bit too complex echoed out. My heart sunk. I called the cops, then I took a video of what the sphere was displaying and the movement of the trees. I managed to capture a couple flames behind the trees too, which only meant the mechanical beasts were really fucking there… and they wanted to kill me for, I assume, their own survival.
+My copy hid behind a car. The car was then crushed entirely by the three beasts. The windows shattered and the doors were folded. Outside the sphere, the trees on the other end of the backyard began to sway back and forth. A roar echoed out. My heart sunk. This shit was real and it was about to happen to me. I sprinted back inside and hid in my bedroom yet again.
+
+
+Breathing heavily, I called the police. I was able to speak clearly, but my heart rate kept jumping every time I heard the trees move. It didn't help that I peeked out the window and saw some flames light up the area behind the trees for two seconds. The beasts were really fucking there… and they wanted to kill me for, I assume, their own survival. I peeked out the window once more to see the silhouette of the beasts roaming around in the backyard. Once police sirens began to blare in the distance, the beasts left. I sighed in relief.
 
 
 Once the police arrived, they noted they were only taking me seriously because both of the neighbors reported wild animals trying to start fires in the forest behind my house. They investigated the area, and, of course, as they told me, they found nothing.
 
 
-The following night, my Mom and I were watching TV in the living room when we heard a loud banging at the door. I jumped out of my seat thinking it was those beasts. The door came crashing down, hitting the floor with a thud. A bunch of people in suits, some suits blue, others black, poured in.
+The following night, my Mom and I were watching TV in the living room. I had a gun sitting right beside me in case any more shit went down. I wasn't going out back without the gun either. We heard a loud banging at the front door. I jumped out of my seat thinking it was those beasts. The door came crashing down, hitting the floor with a thud. A bunch of people in suits, some suits blue, others black, poured in.
 
 
 "We've detected a hazardous material on your property. Please comply with our orders as we walk you through this."
@@ -67,13 +70,16 @@ He then looked towards my Mom and I.
 "Please come with us. We're heading to your backyard."
 
 
-We followed the agents out into the backyard, where the sphere was showing a view below the sea with what looked like torn pieces of metal floating up towards the surface. I explained to the agents why the sphere was there and the reason my Dad wanted to build it. The agents looked at the sphere without saying a word. Then, a man in a black suit walked by and spoke to a nearby man in blue.
+I picked up my gun, then we followed the agents out into the backyard. The sphere was showing a view below the sea with what looked like torn pieces of flesh floating up towards the surface. I shuddered. Knowing that's what my Dad's sphere wanted to happen to me, and that somehow, it was real, I, in a very shaky tone, explained to the agents why the sphere was there and the reason my Dad wanted to build it. The agents watched the sphere. Some flesh was thrown up against the screen, inspiring a pit in my stomach. I pointed my gun at the sphere, vowing to shoot it if it moved. It likes to threaten me, but I can and will defend myself.
+
+
+As I watched the sphere, a man in a black suit walked by and spoke to a nearby man in blue.
 
 
 "This is an interesting one."
 
 
-"Yeah, let's give this family a copy of the address sheet."
+"Yeah. This one's been taken over and is attempting to consume and torture people. Let's give this family a copy of the address sheet."
 
 
 "I gave my last copy to a woman who was running from LAT guys last week. I need to get some more."
@@ -94,10 +100,10 @@ We followed the agents out into the backyard, where the sphere was showing a vie
 If the man in black was being serious, I wasn't going to see my Dad for a long time. I wanted to ask these agents why this situation was happening, but I stressed the answer would be too dark for me to handle. I remained silent.
 
 
-The sphere then displayed my Dad's eye. The pupil was small and the eye itself was teary. The pupil moved up and around, with the eye itself barely ever blinking. I couldn't think at all with how depressing and creepy this was. I was frozen. I decided not to do anything inside the garage anymore in case this shit ever ended up happening to me.
+The sphere then displayed my Dad's eye. The pupil was small and the eye itself was teary. The pupil moved up and around, with the eye itself barely ever blinking. I couldn't think at all with how depressing and creepy this was. I was frozen. I wasn't doing anything inside the garage anymore in case this shit would ever end up happening to me.
 
 
-A moment later, six soldiers arrived and attached ropes to the sphere's base. Tugging the ropes, they hauled it out of the tent. The pupil remained pointed in my direction as the sphere itself was tugged across the grassy yard. I didn't want to see my Dad in this condition at all. Especially if it was the last condition I'd see him in for a while. I pulled out my phone and put on his favorite song, "Shadows" by Slow Pulp, and played it on near-full volume as he was tugged away. I followed him, watching his tears stream down.
+A moment later, six soldiers arrived and attached ropes to the sphere's base. Tugging the ropes, they hauled it out of the tent. The pupil remained pointed in my direction as the sphere itself was tugged across the grassy yard. I didn't want to see my Dad in this condition at all. Especially if it was the last condition I'd see him in for a while. I pulled out my phone and put on his favorite song, "Shadows" by Slow Pulp, and played it on near-full volume as he was tugged away. I followed him, watching his tears build.
 
 
 A few feet away from a flatbed truck, one of the soldiers ordered me to step back. I watched from afar as the soldiers placed the sphere onto the truck, then placed two layers of tarp over it. Then they drove off... disappearing into the night with my Dad.
