@@ -152,9 +152,4 @@ Regrettably, the nurse's inability to access external news sources within the ho
 In that perplexing moment, a flood of questions surged through my mind. Was it possible that I had traversed the veil of death, encountering a genuine divine entity? The answer eluded me, shrouded in the enigmatic haze of uncertainty. 
 
   
-One thing, however, remained undeniably certain—I was the lone survivor of the ill-fated MH-17 flight, the flight that had been ruthlessly brought down by a Russian missile over the skies of Ukraine in 2014.  
-
-
->The story is also available narrated on my YouTube channel.
-
-&#x200B;
+One thing, however, remained undeniably certain—I was the lone survivor of the ill-fated MH-17 flight, the flight that had been ruthlessly brought down by a Russian missile over the skies of Ukraine in 2014.
