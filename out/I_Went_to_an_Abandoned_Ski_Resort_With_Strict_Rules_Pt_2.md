@@ -4,13 +4,13 @@ Part 1: [https://www.reddit.com/r/nosleep/comments/12pf41c/i\_went\_to\_an\_aban
 
 The universal difficulty scale for ski slopes is as follows:
 
-Green circles are beginner terrain. Smooth sailing, and friendly to all levels of skiing including children and the elderly. Blue squares are intermediate terrain. If you want thrills and are ready for a challenge, this is your safe zone. A black diamond means expert terrain. Your first trip down a black diamond will inevitably find themselves wiping out at least a couple times on the way down. Proceed with caution.
+Green circles are beginner terrain. Smooth sailing, and friendly to all levels of skiing including children and the elderly. Blue squares are intermediate terrain. If you want thrills and are ready for a challenge, this is your safe zone. A black diamond means expert terrain. Your first trip down a black diamond will inevitably end with  you having wiped out at least a couple times on the way down. Proceed with caution.
 
-Finally, double black diamonds are extreme terrain. Signs can usually be found at the bottom of the lifts that feed into double black slopes, stating that serious injuries and death can occur to those not experienced or physically able to traverse them. Obstacles and drop-offs are not marked and it can be very difficult for any sort of help to reach you if you get stuck or injured on them.
+Finally, double black diamonds are extreme terrain. Signs can usually be found at the bottom of the lifts that feed into double black slopes, stating that serious injuries and death can occur to those not experienced enough or physically able to traverse them. Obstacles and drop-offs are not marked and it can be very difficult for any sort of help to reach you if you get stuck or injured on them.
 
 According to the map we found, Mountain #1 has only one very long black diamond starting near the cabin and ending at the base of the mountain near the lift.
 
-A cloud of nausea and butterflies expanded in my belly. I had only been on a couple black diamond slopes, and only in Wisconsin. I hear that the black diamonds in Wisconsin are equivalent to blue squares in Colorado.
+Nausea and butterflies expanded in my belly. I had only been on a couple black diamond slopes, and only in Wisconsin. But that didn't mean much as comparatively, the black diamonds in Wisconsin are equivalent to the blue squares in Colorado.
 
 Tim must’ve noticed my dread. We were huddled by the door, throwing on our gear, and periodically checking the windows for those lifeless skiers. Russ had finished with his gear and had plodded over to the fourth man in the room.
 
@@ -22,7 +22,7 @@ A string of drool stretched from the man’s quivering bottom lip.
 
 “Er, we’ll get help.”
 
-Russ spun and hurried back over to us.
+Russ hurried back over to us.
 
 “Alright, you guy’s ready?”
 
@@ -32,19 +32,19 @@ I made sure my voice didn’t crack when I said, “We head right for the lift t
 
 I hesitated before adding, “… but try to make it to the lift, the rules said that when you go down this slope-“
 
-“Shut up already, those weren’t real,” Russ snapped nervously. “There are some psychos fucking with us up here, that’s it. Soon as we’re in range we call the police.”
+“Shut up already, those weren’t real,” Russ snapped. “There are some psychos fucking with us up here, that’s it. Soon as we’re in range we call the police.”
 
 Russ was peeking out the window, and I leaned in towards my brother.
 
-“Stay close,” I whispered. Tim looked at me and nodded. As long as Tim and I stuck together we would be fine, I thought.
+“Stay close,” I whispered. Tim nodded. As long as Tim and I stuck together we would be fine, I thought.
 
-One last survey of the outside from the window. The wind seemed to have picked up slightly, swaying the trees lazily and picking snow up off their branches and sweeping it through the air. There were roughly 30 yards of mountain top between us and the old lift which was still on. Its chairs dragged slowly by the overhead cable. Just beyond the lift was the slopes drop off, and the way the ground just disappears, it looked steep.
+One last survey of the outside from the window. The wind had picked up slightly, swaying the trees lazily and picking snow up off their branches and flinging it through the air. There were roughly 30 meters of mountain top between us and the old lift which was still on. A cable dragged the chairs over the slopes drop off nearby. By the way the ground just disappears, it looked steep.
 
 I swallowed but had no saliva available.
 
 “Now.”
 
-Opening the door of the cabin was like opening a portal to another world. The temperature dip was immense, and I felt bare; vulnerable. Russ bolted out into the open, hauling ass to the lift quickly followed by Tim, gaining momentum by pushing their skis to each side as a rollerblader does. I was the only one who had brought ski poles and I credit my survival to them, pushing myself forward with them.
+Opening the door of the cabin was like opening a portal to another world. The temperature dip was immense, and I felt bare; vulnerable. Russ bolted out into the open, hauling ass to the lift quickly followed by Tim, gaining momentum by pushing their skis to each side as a rollerblader does. I was the only one who had brought ski poles and I credit my survival to them, pushing myself off the ground and forward.
 
 I didn’t get far before I stopped.
 
@@ -52,7 +52,7 @@ I didn’t get far before I stopped.
 
 Rising into view over the edge of the slope were four skiers packed into an oncoming chair on the lift.
 
-Russ was trying to ski so fast he must have been facing down and not noticed. Tim shouted in a desperate attempt to save his friend.
+Russ was trying to ski so fast he must have been facing down and not noticed. Tim shouted in an attempt to save his friend.
 
 “RUSS STOP!”
 
@@ -60,13 +60,13 @@ As the skiers unloaded, Russ was about 10 meters from the lift. I saw his head r
 
 I caught up to Tim and grabbed his shoulder. We were another 10 meters behind Russ.
 
+The memory of the rules was getting lost in my adrenaline, but I took a chance.
+
 “Look at the ground and don’t move,” I said, hopefully loud enough for Russ to hear.
 
-The memory of the rules was getting lost in my adrenaline and fear flooded brain, but I took a chance.
+The skiers were upon him then. He had been able to recover to a crouching position, hugging his knees and looking at the ground. He must’ve heard me because the only movement from him was the slight shake wracking his entire body.
 
-The skiers were upon Russ then. He had been able to recover to a crouching position, hugging his knees and looking at the ground. He must’ve heard me because the only movement from him was the slight shake wracking his whole body.
-
-The skiers encircled Russ and bowed their heads almost like they were trying to get a better look at him. They twitched and wobbled as they towered over Russ.
+Encircled around Russ, the skiers bowed their heads almost like they were trying to get a better look at him. They twitched and wobbled as they towered over Russ.
 
 Behind them, another seat filled with skiers rose into view.
 
@@ -76,13 +76,13 @@ One of the skiers twisted awkwardly and reached out a hand for Russ’ face.
 
 “AUgh!”
 
-The cry came from somewhere behind me. All four skiers immediately looked in Tim and I’s direction, one bending backwards at the waist rather than turn and face us. I was paralyzed while their twitches became spasms, and they bolted straight at us. I held tight onto Tim and closed my eyes, waiting for my fate.
+The cry came from somewhere behind me. All four skiers immediately looked in Tim and I’s direction, one bending backwards at the waist rather than turn and face us. I was paralyzed while their twitches became spasms, and they bolted in our direction. I held tight onto Tim and closed my eyes, waiting for the end.
 
-Instead, I felt the air whoosh as the skiers flew past us. The one that passed closest to me was only a few inches away from brushing my coat, and I heard from under its balaclava a high-pitched whining: eeeeeeeeeeeeeee.
+Instead, I felt the air whoosh as the skiers flew past us. The one that passed closest to me was only a few inches away from brushing my coat, and I heard from under its balaclava a high-pitched whining: *sss*eeeeeeeeeeee.
 
 I turned to see what, like rabid dogs they were after, and my stomach flipped. The burly man from inside had ran out of the cabin in no skis and tried to book it across the mountain top; I have no idea where to. Unfortunately, the ground was extremely powdery due to recent snowfall and he was thigh deep in it only a few paces away from the cabin. He gasped and moaned, making a considerable amount of noise while grabbing his right leg. It looked to be twisted underneath the white layer of snow.
 
-Another group of skiers barreled by us, heat seeking missiles aimed directly at the unlucky man. But now was the time to move.
+Another group of skiers barreled by us, heat seeking missiles aimed directly at the unlucky man. Now was the time to move.
 
 Another chair delivering skiers was cresting the slope.
 
@@ -98,33 +98,33 @@ Russ was up and skiing away from us along the mountain top in the opposite direc
 
 “Follow… second mountain… way” The wind had picked up even further blowing the words out of Russ’ mouth.
 
-We didn’t need him to spell it out to get the message though. We started off after him, Tim pulling slightly ahead but I followed close behind thanks to my poles.
+We didn’t need him to spell it out to get the message though. We started off after him, Tim pulling slightly ahead and me close behind thanks to my poles.
 
 The screams turned to shrieks. I turned my head back to see the fate of the poor man and wish I never did.
 
-Impaled on a ski pole, he floated six feet off the ground with his legs dangling uselessly. A skier held the pole with his arm fully extended in the air, holding the struggling man like he was made of cotton. The pole ran through his sternum and punched out of a hole in his back. Blood washed down the pole and created a scarlet circle beneath in the white landscape.
+Impaled on a ski pole, he floated six feet off the ground with his legs dangling uselessly. A skier held the pole, which ran through his sternum and punched a hole out his back, with his arm fully extended in the air, holding the struggling man like he was made of cotton. Blood washed down the skier's arm and created a scarlet circle beneath in the white landscape.
 
-That whining sound I heard from the skier was beginning to fill my ears until it was deafening. The congregation of skiers beneath the still very alive man made the scene look like some depraved sacrificial rite. The throng lurched and rocked as the ringing sound reached an unholy pitch.
+That whining sound I heard from the skier was beginning to fill my ears until it was deafening. A congregation of skiers beneath the still very alive man made the scene look like some depraved sacrificial rite. The throng lurched and rocked as the ringing sound reached an unholy pitch.
 
-The man gripped the pole the pierced his chest and tugged uselessly at it. He opened his mouth and blood poured out onto the goggles of his killer. Then almost choreographed, the skiers went into a frenzy.
+Reaching his limits, the man gripped the pole that pierced his chest and tugged uselessly at it. He opened his mouth and blood poured out onto the goggles of his killer. Then almost choreographed, the skiers went into a frenzy.
 
 At inhuman speed, they thrust their hands into the man’s belly, puncturing his coat and skin like paper and pulled handfuls of innards out. Like a pinata from hell, the skiers gutted and emptied the man in a matter of seconds. It was a savage act, of animals – no, demons.
 
 “Oooohh”
 
-Tim had spun his head around and moaned when he saw the skiers eviscerate the man.
+Tim's head was spun around and he moaned when he saw the skiers eviscerate the man.
 
 “Turn around. GO!”
 
-Increasing his speed, Tim shot forward, increasing the distance between us. I tried, desperate, to catch up. I looked one last time behind me.
+Increasing his speed, Tim shot forward, increasing the distance between us. I tried to catch up but looked one last time behind me.
 
-The skiers reveled in the carnage. Strewn about their feet were bones and chunks, tubes, and bits of flesh slowly melting into the giant area of red snow. There were no identifying pieces left except for the head, jammed onto the top of a ski pole that stuck out of the ground. All the skiers faced our direction, their figures quivering from their euphoria.
+The skiers reveled in the carnage. Strewn about their feet were bones and chunks, tubes, and bits of flesh slowly melting into the giant area of red snow. There were no identifying pieces left except for the head, jammed onto the top of a ski pole that stuck out of the ground. All the skiers faced our direction, their figures quivering from the euphoria.
 
-I tried to focus on catching up to Tim and Russ. But I began to worry if perhaps what lay ahead was worse than what was. Mountain #2. If I had remembered correctly this peak has a time limit on it. I remember mentally bookmarking it as a “deceptive” mountain - don’t trust what you see. Thinking of the rules flittering away in the wind made me want to curl into a ball.
+I tried to focus on catching up to Tim and Russ. But for some reason, I began to worry if perhaps what lay ahead was worse than what was. Mountain #2. If I had remembered correctly this peak has a time limit on it. I  mentally bookmarked it as a “deceptive” mountain - don’t trust what you see. Thinking of the rules flittering away in the wind made me want to curl into a ball.
 
-I turned a bend and I could see the peak of Mountain #2. There didn’t seem to be any trails leading down from the small clearing at the top. Tim was quite a ways ahead of me and Russ even further. I could hear Tim shouting something and I wasn’t able to make out exactly what he was saying but he seemed to be trying to get Russ’ attention. Russ gave no signs of hearing anything. He sped down the rest of the way to the top of the mountain and disappeared.
+I turned a bend and I could see the peak of Mountain #2. There didn’t seem to be any trails leading down from the small clearing at the top. Tim was quite a ways ahead of me and Russ even further. I could hear Tim shouting something and wasn’t able to make out exactly what he was saying but it sounded like he was trying to get Russ’ attention. Russ didn't stop. He sped down the rest of the way to the top of the mountain and disappeared.
 
-It was strange. Nothing obstructed him from my line of sight, but upon entering the clearing, he disappeared. Tim seemed ready to follow and was about to speed right into the clearing after him.
+It was strange. Nothing obstructed him from my line of sight, but upon entering the clearing, he disappeared. Tim was ready to follow and was about to speed right into the clearing after him.
 
 “Tim! Wait, please stop!”
 
@@ -136,7 +136,7 @@ Never go down any trail on this mountain alone.
 
 I’m not sure if he heard me or lost control, but Tim wiped out just before the trail opened into the clearing. His left ski flew out from under him, and he pitched to the side, somersaulting a few times before coming to a rest facedown.
 
-In similar fashion I came to a crashing stop next to him, gathered myself and grabbed his coat from the back lifting him up.
+In similar fashion I came to a crashing halt next to him, gathered myself and grabbed his coat from the back lifting him up.
 
 “You alright?”
 
@@ -176,7 +176,7 @@ His face darkened and I wished I could wipe that memory from both our brains.
 
 “I-I’ve been trying to remember them but it’s hard with all this shit going on. I know for sure that there’s a time limit. I wanna say thirty minutes but we’ll call it twenty-five to play it safe. I think don’t trust any noises and don’t stay on any trail for too long… and don’t go down any trails alone.”
 
-Tim tried to process that information, then adopted a worried look.
+Tim processed the information.
 
 “Russ is alone.”
 
@@ -190,7 +190,7 @@ Tim’s head was now floating in the air.
 
 “What are you doing? Come here.”
 
-I inched forward with my poles and stuck an arm out into the clearing. If you’ve ever seen the Predator movies, it was similar to that. My arm melted into the background. It was the strangest feeling in the world; to be able to feel your phantom limb but not see it.
+I inched forward with my poles and stuck an arm out into the clearing. If you’ve ever seen the Predator movies, it was similar to that. My arm melted into the background. It was the strangest feeling in the world; to feel a phantom limb but not see it.
 
 I stepped through expecting to spontaneously combust or something but nothing happened. The only noticeable difference was every sound was slightly dulled, like a thick blanket over speakers.
 
@@ -202,9 +202,9 @@ There’s no way to explain it but Mountain #2 must have had some sort of veil s
 
 We checked the map again. There was no way to exit the resort from this mountain unfortunately. There were two ski lifts at the bottom of this peak, one leading back up to Mountain #1 and the other towards Mountain #3. Of the numerous marked trails, a singular path led to the first lift and another singular path led to the second lift. According to the map, the rest of the approximately 25 trails led to various places around the resort, some ending on the back side of the mountain, or a cliff face, or trailing off the map altogether.
 
-It was difficult tracing the paths on the map because of how crowded together they were, so we couldn’t be 100% sure, but eventually we narrowed down two paths that seemed to lead us to the lift that would take us back to Mountain #1. There was a sick sense of dread thinking about what Mountain #3 had in store for us.
+It was difficult tracing the paths on the map because of the branching and how crowded together they were, so we couldn’t be 100% sure, but eventually we narrowed down two paths that seemed to lead us to the lift that would take us back to Mountain #1. There we could regroup and find a safe way out of the resort.
 
-It had been about 5 minutes since Russ had disappeared into the clearing and I guessed he had picked a trail at random and sent it. Rule #8 says you shouldn’t stay on a single trail for longer than 5 minutes. I looked at Tim and silently assumed the worst about his friend.
+It had been about 3 minutes since Russ had disappeared into the clearing and I guessed he had picked a trail at random and sent it. Rule #8 says you shouldn’t stay on a single trail for longer than 5 minutes. I looked at Tim and silently assumed the worst about his friend.
 
 I started a timer on my watch and we quickly decided on one of the two paths we had chosen to go down.
 
@@ -212,13 +212,13 @@ The trail started inconspicuously enough, but that soon changed.
 
 Within a few seconds cracking and grinding could be heard coming from the belly of the forest. Tim and I had agreed to keep our heads down and push through whatever we may hear. Tim crouched forward to pick up more speed and I did the same. My left knee began to groan.
 
-A year back I had dislocated my patella playing soccer. The doctor told me that according to statistics, there’s a 25 percent chance that my kneecap pops out again at some point. For support during physical activity my mom bought me a sleeve and so far I’ve been without incident.
+A year back I had dislocated my patella playing soccer. The doctor explained to me that statistics said there’s a 25 percent chance that my kneecap pops out again at some point during my life. For support during physical activity my mom bought me a sleeve and so far I’ve been without incident.
 
 As my knee began to ache, I cursed myself for forgetting my sleeve at the hotel. Warning signs of instability were beginning to show.
 
 The noises from the forest were getting very loud and very close but I needed to slow down. I got ready to call out to Tim when the trail in front of us detonated. Snow and ice whipped through the air.
 
-A large tree had sprouted from beneath the snow at a speed so fast it seemed to have materialized in the air. The evergreen cleaved the path in two creating a fork and Tim barely avoided smashing into its sturdy trunk, instead veering down the right path at the last second.
+A large tree had sprouted from beneath the snow at a speed so fast it practically materialized in the air. The evergreen cleaved the path in two creating a fork and Tim barely avoided smashing into its sturdy trunk, instead veering down the right path at the last second.
 
 I followed after him and he slowed to allow me to catch up.
 
@@ -240,7 +240,7 @@ The trail’s incline began to steepen, and the terrain dipped and rose erratica
 
 *4:24*
 
-Our speed increased rapidly, and large mounds and craters in the snow layered the trail ahead. Shit.
+Our speed increased , and large mounds and craters in the snow layered the trail ahead.
 
 Tim hits them first, bending his knees to let his skis rise over the hills and pushing them down into the mounds, ensuring his skis touched the snow at all times. I did the opposite.
 
@@ -252,19 +252,19 @@ The watch now read:
 
 *7:48*
 
-My head ached. I had fallen halfway down the black diamond slope and I saw a sign at the bottom signaling the start of a new trail. I had to get down there and find Tim. He must’ve not been able to stop on the slope for me, and now is waiting for me at the bottom.
+My head ached. I had fallen halfway down the black diamond slope and I saw a sign at the bottom signaling the start of a new trail. I had to get down there and find Tim. He must not have been able to stop on the slope for me, and was probably waiting at the bottom.
 
-I made sure nothing was broken and started down the trail again. I had to go slow and worked my way down in horizontal slices. After a few minutes of this I looked up to realize that I had made no progress. In fact, I seemed to have somehow gotten further away from the sign marking the bottom of the trail.
+I made sure nothing was broken and started down the trail again. I had to go slow and worked my way down in horizontal slices. After a few minutes of this I looked up to realize that I had made no progress. In fact, I somehow seemed to have gotten further away from the sign marking the bottom of the trail.
 
 I remembered the rules. Don’t stay on any one trail for longer than 5 minutes. I looked at my watch:
 
 *9:30*
 
-That’s when Billy started calling for me.
+That’s when Billy started calling my name.
 
 “Philip? Phil where are you?”
 
-How could I forget his voice. When you have a bond forged in childhood you don’t forget the way you best pal says your name.
+How could I forget his voice. When you have a bond forged in childhood you don’t ever forget the way your best pal talks.
 
 I couldn’t help myself.
 
@@ -272,11 +272,11 @@ I couldn’t help myself.
 
 It barely escaped my lips and wasn’t me returning his call so much as it was remembering the way I shaped my mouth when I said his name. Like finally trying again the sport or instrument you hadn’t played since childhood.
 
-Kindergarten it must’ve been when Billy asked me with defiant determination if I could be his friend, like he wouldn’t have taken no for an answer. Our families became extremely close and whether it was the local basketball league or the talent show, Billy and I stuck like Velcro, refusing to participate in anything unless it was on the same team.
+Kindergarten it must’ve been when Billy asked me with defiant determination if I wanted be his friend, like he wouldn’t have taken no for an answer. Our families became extremely close and whether it was the local basketball league or the talent show, Billy and I stuck like Velcro, refusing to participate in anything unless it was on the same team.
 
 For example, in the third grade when our families made plans to hike together through a local area of the Appalachian Mountains. We stuck together while we skipped ahead of the group. Billy pulled on his ears and made a funny face at me. Then Billy informed me that whoever was the last one to the tree he pointed at was a rotten egg.
 
-I ran and ran as fast as I could, but Billy had pushed me right at the start and I couldn’t make up the difference. He turned the bend and must’ve only been 10 paces behind him as I gathered the air in my lungs to pronounce that he had cheated. Instead, I asked:
+I ran and ran as fast as I could, but Billy had pushed me right at the start and I couldn’t make up the difference. He turned the bend and must’ve only been 10 paces in front of me as I gathered air in my lungs to pronounce that he had cheated. Instead, I asked:
 
 “Where’d you go?”
 
@@ -304,7 +304,7 @@ The rules. They mentioned imposters. I had to get off this trail. I began to edg
 
 Billy lagged in the middle of his sentence and the horror of hearing the inhumanity of that sound forced my body to take action.
 
-I crashed through the opposite tree line, trying to ski diagonally through the trees, down the mountain.
+I crashed through the opposite tree line, skiing diagonally through the trees.
 
 I had to find Tim. We needed to get off this mountain. But how were we supposed to find a lift if the damned trails move at random.
 
