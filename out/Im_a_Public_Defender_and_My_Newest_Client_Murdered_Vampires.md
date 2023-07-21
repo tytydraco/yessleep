@@ -111,3 +111,5 @@ But by then I already saw a police cruiser rushing toward us. I looked to the bl
 And now, though I wish to continue my story, my head is throbbing and I can't possibly get any more words typed out. I am so sorry to leave you in media res, but I need to take a nap before I can go on.
 
 I will check back soon to continue with what happened next. I promise, and assuming I'm still all here. I'm just so weak from all that transpired, and my body must rest for now...
+
+[Part Two](https://www.reddit.com/r/nosleep/comments/1558dkv/im_a_public_defender_and_my_newest_client/)
