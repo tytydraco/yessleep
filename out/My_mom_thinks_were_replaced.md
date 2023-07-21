@@ -82,4 +82,4 @@ Now, I'm working, and my sister is in college. I still sometimes miss Mom, and h
 
 "Where are our daughters?"
 
-I wonder the same thing sometimes.
+I wonder where they are too sometimes.
