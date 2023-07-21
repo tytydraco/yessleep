@@ -72,7 +72,7 @@ He stood up from his chair, and I followed him, my head kind of foggy. I was sti
 
 Had he even looked at me? 
 
-I was five foot nothing with a face that still got me ID’d despite being almost 20 years old. 
+I was five foot nothing with a face that still got me ID’d despite being almost 24 years old. 
 
 I kept waiting for him to burst out laughing and then go over my actual duties, but he just fumbled around in a drawer underneath his desk and pulled out a navy-blue uniform and a matching baseball cap. “Your job is a runner, so yes, our customers tend to be a slight problem. You are expected to pursue them and deposit them into the van where your colleague on shift will be waiting for you. They should come willingly. If they don't, you may use force."
 
