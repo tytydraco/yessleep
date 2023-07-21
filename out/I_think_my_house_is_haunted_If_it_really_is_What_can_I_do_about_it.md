@@ -1,14 +1,14 @@
-Okay, so first... let me list all of the reasons why I think so. I'd like to hear if you agree or if someone can debunk this whole thing. 
+Okay, so first... let me list all of the reasons why I think so. I'd like to hear if you agree or if someone can debunk this whole thing.
 
 &#x200B;
 
 **bad events happening ever since we moved in**
 
-Ever since we moved into our new home (which was around 8 years ago) we've had bad luck. My little sister got diagnosed with Acute Lymphoblastic Leukemia, only 2 years later we found out that my mother has breast cancer and only a few years left. My parents, to this day, fight and scream all the time, they've said that they will get divorced several times but they didn't. Everyone at home is constantly irritaded, depressed and confused. Our neighbours have started hating us. 
+Ever since we moved into our new home (which was around 8 years ago) we've had bad luck. My little sister got diagnosed with Acute Lymphoblastic Leukemia, only 2 years later we found out that my mother has breast cancer and only a few years left. My parents, to this day, fight and scream all the time, they've said that they will get divorced several times but they didn't. Everyone at home is constantly irritated, depressed and confused. Our neighbours have started hating us.
 
 **it feels as if something is there and watching us**
 
-I feel watched very often, especially in the dining room and upstairs in the bathroom and my bedroom. Sometimes I feel a tingling and I've even experienced something touching, even grabbing my shoulder, hands or feet. Again: most of it happens in the evening or at night. 
+I feel watched very often, especially in the dining room and upstairs in the bathroom and my bedroom. Sometimes I feel a tingling and I've even experienced something touching, even grabbing my shoulder, hands or feet. Again: most of it happens in the evening or at night.
 
 **strange, unexplainable occurances**
 
@@ -18,13 +18,13 @@ I feel watched very often, especially in the dining room and upstairs in the bat
 
 **incident 2:**
 
-I was in the bathroom brushing my teeth when I suddenly saw something moving from the corner of my eyes. Something invisible was lifting up the toilet paper sheet and when I turned to look I could literally see it going back to its original state (and that unbelievably fast). The windows and door were all closed, there was no wind whatsoever. I've tried everything. I moved around in every possible way but nothing caused for the toilet paper sheet to rise. 
+I was in the bathroom brushing my teeth when I suddenly saw something moving from the corner of my eyes. Something invisible was lifting up the toilet paper sheet and when I turned to look I could literally see it going back to its original state (and that unbelievably fast). The windows and door were all closed, there was no wind whatsoever. I've tried everything. I moved around in every possible way but nothing caused for the toilet paper sheet to rise.
 
-**incident 3:** 
+**incident 3:**
 
-We have a huge mirror in the entrance hall. I once looked at myself in it and felt weird. It's like my body could sense that something is off. I could feel the negative energy coming from where I was standing. So I started waving my hands. Nothing. I started dancing. Nothing. And then I decided to just stand there and smile at my reflection. *My reflection wasn't smiling back.* My heart skipped a beat. I stepped back and it was still not moving. After a few seconds it was back to normal. 
+We have a huge mirror in the entrance hall. I once looked at myself in it and felt weird. It's like my body could sense that something is off. I could feel the negative energy coming from where I was standing. So I started waving my hands. Nothing. I started dancing. Nothing. And then I decided to just stand there and smile at my reflection. *My reflection wasn't smiling back.* My heart skipped a beat. I stepped back and it was still not moving. After a few seconds it was back to normal.
 
-**incident 4:** 
+**incident 4:**
 
 I was peacefully sleeping at night. That night I had decided to leave my bedroom door open. Suddenly, I abruptly awoke. I could feel a presence that my body was trying to alarm me about. When I looked towards the open door, I could see a humanoid figure sticking out its head from the upper doorframe. It had black soulless pearl eyes and a wide grin that revealed sharp teeth. It was thin to the bone and dark grey. I immediately screamed and called my father. It disappeared and my father came. He looked around everywhere but he couldn't find anything.
 
@@ -42,13 +42,13 @@ I keep seeing shadow figures from the corner of my eye, rarely right in front of
 
 **flickering lights/someone playing with the light switch at night**
 
-It only ever happens in our dining room or living room but the lights are constantly flickering (again: mostly in the evening). We've had several electricians come over to search for the problem only to find nothing. We also constantly change the light bulbs... only for the lights to start flickering again. 
+It only ever happens in our dining room or living room but the lights are constantly flickering (again: mostly in the evening). We've had several electricians come over to search for the problem only to find nothing. We also constantly change the light bulbs... only for the lights to start flickering again.
 
-At night I could sometimes hear someone or something playing with the light switch. You could hear it repeatedly clicking and the lights going on and out. Every time I went downstairs to check it immediately stopped. The rest of family consists of deep sleepers so they could never hear it. The weirdest part about it: It would always happen around 00:00. This type of activity stopped around a year ago because I had started ignoring it. 
+At night I could sometimes hear someone or something playing with the light switch. You could hear it repeatedly clicking and the lights going on and out. Every time I went downstairs to check it immediately stopped. The rest of family consists of deep sleepers so they could never hear it. The weirdest part about it: It would always happen around 00:00. This type of activity stopped around a year ago because I had started ignoring it.
 
 **things disappearing only for them to reappear in the weirdest places**
 
-This doesn't require any further explanation. All I'm gonna say is that I usually find them days later, completely hidden (for example under the couch or behind the cushions). This happens to every single one of us. 
+This doesn't require any further explanation. All I'm gonna say is that I usually find them days later, completely hidden (for example under the couch or behind the cushions). This happens to every single one of us.
 
 &#x200B;
 

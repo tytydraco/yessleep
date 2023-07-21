@@ -28,7 +28,7 @@ A headcount returned the same number of tourists and crew that had originally bo
 
 The husband replied by telling him to check the bathroom below deck. Confused, Daniel would refuse until the husband was grabbing at his feet and begging him.
 
-Inside the cramped wash closet a full set of clothes, crudely stuffed into the waste backet as well as clumps of hair that clogged the toilet and sink. On the floor, one of the crew mates noticed shavings layering the ground, similar to dandruff.
+Inside the cramped wash closet was a full set of clothes crudely stuffed into the waste basket as well as clumps of hair that clogged the toilet and sink. On the floor, one of the crew mates noticed shavings layering the ground, similar to dandruff.
 
 I could see Daniel’s authority on his ship waver as the rumors and theories spread among its passengers like a virus. What I never would have expected is that, by sunrise, there would be a full-blown mutiny.
 
