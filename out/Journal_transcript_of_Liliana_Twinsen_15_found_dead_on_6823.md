@@ -17,7 +17,3 @@ Officers Mark Benton and Willa Floris visited <redacted> on 6/8/23. Neighbors re
 The bodies of Tina Woods and Chris Twinsen were found with gashes around their eyes, making their eyes appear to be shifted 90 degrees. Upon further inspection, Liliana’s cause of death was ruled as a murder, but the deaths of Tina and Chris are still being inspected. Their eyes were carved before their deaths, but they each died in some sort of struggle.The home was inspected, and the blood of Liliana, Tina, and Chris was found on a knife.
 
 Upon inspection of Liliana’s room, a journal was discovered. She seemed to account for her parents sudden shift after reading a pamphlet, along with their shift in behavior after absorbing the cult-like material. It is believed that Liliana was killed by her parents, perhaps as a sacrifice to the entity they worshipped. The journal itself, along with the pamphlet it spoke of, have been seized by our officers.
-
-Upon the time of writing this, during inspections of Tina and Chris, tears were found in their lungs. These rips could not have occurred naturally, as they seem to spell out a message.
-
-”Let Me In”
