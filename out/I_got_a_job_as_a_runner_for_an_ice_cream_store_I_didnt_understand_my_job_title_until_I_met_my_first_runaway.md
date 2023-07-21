@@ -218,7 +218,7 @@ This guy was the job equivalent of the teacher who told the class about the kid 
 
 Dylan was joking around, and yet his eyes when I really looked at them, were hollow, his smile fake. I had half a mind to quit right there, but I needed the cash. Besides, it was just escorting people into a van. If they were violent, I knew just enough self-defence to avoid getting hurt, and I could run. All I could do was nod and tie my hair up, tucking it under my cap. I left Dylan who started talking to himself again, like I wasn’t even there—and pushed my way through the gate. The van stayed parked right outside, so all I had to do was lure the Buggie out. Dylan told me the minute the Buggie was outside the gates, he would take care of him. 
 
-I wasn’t sure what that meant, and the guy didn’t exactly look like the type of guy who would “take care” of anyone. Grand Fort House reminded me of a dorm room. 
+I wasn’t sure what that meant, and the guy didn’t exactly look like the type of guy who would “take care” of anyone. Grand Court House reminded me of a dorm room. 
 
 I think that is what it was. 
 

@@ -94,7 +94,7 @@ I slid under the kitchen table, which was set up for a tea party. I could see th
 
 They started searching. I suspected they were looking for me, and it was confirmed when a huge body leaned down and grinned at me with a face caked in makeup. "Found you."
 
-He reached for me, and I bolted for the open door.
+He reached for me, and I bolted through his legs, making a beeline for the open door.
 
 Outside, the landscape was dotted with giant toys. I ran, but could tell my pursuers were quickly catching up to me. Their massive legs granted them the ability to cover far more distance than I could.
 
@@ -102,13 +102,15 @@ Then I spotted my salvation. It was a hole, just big enough for me to fit throug
 
 The room was dark, but I could hear noise all around. Buzzing and clicking surrounded me. With my good arm, I switched on my flashlight and shrieked. I was surrounded by insects.
 
-Beetles, butterflies and moths covered the walls and floor in an array of colors. Their wings shimmered in the light. After the initial shock, I calmed, realizing they did not appear interested in me.
+Beetles, butterflies and moths covered the walls and floor in an array of colors. Their wings shimmered mesmerizingly in the light. After the initial shock, I calmed, realizing they did not appear interested in me.
 
 I stood, and gingerly stepped around bugs, taking care not to disturb any by touching them. To my right, I could see the light of an open doorway. I headed for it, and exited into a cool breeze.
 
-I was in a garden. Flowers surrounded me. I could hear the woman who had attacked earlier sobbing. "My baby! My baby!"
+I was in a garden. Flowers surrounded me. Songbirds chirped and bess buzzed happily among the flowers. It was an idyllic scene, but by this point, I was expecting something awful.
 
-Ahead of me was a wrought-iron gate. I walked through and into the gravel parking lot behind the funhouse.
+I spotted an empty baby carriage. Like much of the stuff I had witnessed so far, it was vintage thing, white with lace frills. As I approached, I could hear the woman who had attacked earlier sobbing, "My baby! My baby!" Fortunately, I could not see her.
+
+Ahead of me was a wrought-iron gate. I walked through and into the gravel parking lot behind the funhouse. I laughed at the familiar sight of my old Rolls-Royce, and stumbled to the car.
 
 
 
@@ -117,6 +119,10 @@ I found out I had been missing for a week. I told the cops I didn't know what ha
 
 I looked into the history of the funhouse and its owners after my experience.
 
-The story goes that a local girl, Martha Wiltshire, fell in love with foreign businessman Joseph Wilderstein. Wilderstein was in the entertainment business, and opened some permanent attractions in his wife's hometown. The couple had a pair of twins, Urich and Eva. But tragedy struck when their third child, Arthur, was abducted from the maternity ward.
+The story goes that a local girl, Martha Wiltshire, fell in love with foreign businessman Joseph Wilderstein. She was from the upper echelons of society, and he had wealth of his own. The marriage was the talk of the town.
 
-According to the records I found, Martha Wilderstein went nuts, killed her husband, and fled with the twins. The police never found any trace of her. I think I know where she went. And I don't think she or her kids are coming back. At least, I hope not.
+Wilderstein was in the entertainment business, and opened some permanent attractions in his wife's hometown. Martha publicly stated that her favorite was the mirrored funhouse he constructed.
+
+The couple had a pair of twins, Urich and Eva. But tragedy struck when their third child, Arthur, was abducted from the maternity ward. The police searched dutifully, but this was the early 1900s, and certain scientific advances that would have helped had not yet been made 
+
+According to the records I found, Martha Wilderstein, suffering grief (and possibly post-partum depression), went nuts, killed her husband, and fled with the twins. The police never found any trace of her. I think I know where she went. And I don't think she or her kids are coming back. At least, I hope not.
