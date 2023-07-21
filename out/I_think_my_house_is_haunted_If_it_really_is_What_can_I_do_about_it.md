@@ -44,7 +44,7 @@ I keep seeing shadow figures from the corner of my eye, rarely right in front of
 
 It only ever happens in our dining room or living room but the lights are constantly flickering (again: mostly in the evening). We've had several electricians come over to search for the problem only to find nothing. We also constantly change the light bulbs... only for the lights to start flickering again.
 
-At night I could sometimes hear someone or something playing with the light switch. You could hear it repeatedly clicking and the lights going on and out. Every time I went downstairs to check it immediately stopped. The rest of family consists of deep sleepers so they could never hear it. The weirdest part about it: It would always happen around 00:00. This type of activity stopped around a year ago because I had started ignoring it.
+At night I could sometimes hear someone or something playing with the light switch. You could hear it repeatedly clicking and see the lights going on and out. Every time I went downstairs to check it immediately stopped. The rest of family consists of deep sleepers so they could never hear it. The weirdest part about it: It would always happen around 00:00. This type of activity stopped around a year ago because I had started ignoring it.
 
 **things disappearing only for them to reappear in the weirdest places**
 
