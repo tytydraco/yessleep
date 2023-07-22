@@ -51,3 +51,7 @@ Laying at the foot of Levi’s bed waiting for her call, my eyes became heavy. I
 “Don’t call mommy.”
 
 A loud crash came from downstairs. [Levi was gone.](https://www.reddit.com/r/DreadfulIncorporated/)
+
+EDIT:
+
+Part 2 https://www.reddit.com/r/nosleep/comments/155av66/i\_wish\_my\_son\_was\_found\_dead\_he\_was\_kidnapped\_in/
