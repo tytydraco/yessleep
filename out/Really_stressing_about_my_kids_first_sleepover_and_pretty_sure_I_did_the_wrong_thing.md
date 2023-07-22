@@ -96,6 +96,12 @@ My son is *eleven.*
 
 So I stepped aside to type this up and post it. That seemed like the prudent [thing to do](https://www.facebook.com/P-F-McGrail-181784199029462/).
 
+---------
+
+[Oops](https://redd.it/156djjs)
+
+---------
+
 [BD](https://www.reddit.com/r/ByfelsDisciple/)
 
 
