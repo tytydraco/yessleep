@@ -54,14 +54,14 @@ This note's contents are ones of which all persons interacting with Ronald River
 Ronald seems to have made no considerable progress since his enrollment into the institution's care. In his diaries were found mentions of "blind" states, we assume those to be periods of time in which his thought cleared, and he did his noteable academic work. Currently Ronald exhibits multiple states, all not very responsive. 
 
 
-Due to the mentioned episodes of clarity, he is actively being processed in the justice system. Ronald has assembled a human-sized-and-shaped statue, made of, there's no gentle way to put it, corresponding human tissue. This tissue belongs to at least seventeen different persons, by current estimate. Most filed as missing, other didn't match to anybody in the database. Some animal. A lot of it too severly chemically treated for proper analisys.
+Due to the mentioned episodes of clarity, he is actively being processed in the justice system. Ronald has assembled a human-sized-and-shaped statue, made of, there's no gentle way to put it, corresponding human tissue. This tissue belongs to at least seventeen different persons, by current estimate. Most filed as missing, other didn't match to anybody in the database. Some animal. A lot of it too severely chemically treated for proper analisys.
 
 He is being charged due to the fact that an unknown, but seemingly not insignificant amount of the time working on his statue he was entirely not mad, and capable of reason.
 
-Other parts of the victims haven't been found yet. Analisys of Ronald's kitchen appliances seems to imply that he has been eating them.
+Other parts of the victims haven't been found yet. Analisys of Ronald's kitchen appliances seems to imply that he has been eating them, at least partially.
 
 
- The tissue is still being analysed, and new details of the case are uncovered very rapidly. Some persons have been discovered to be Ronald's friends. The brain in this piece was almost entirely constructed of his childhood friend, presumed to be MIA a month ago. Another large part of the brain was constructed of a peculiar object, resembling a black sea hedgehog. Embeded in the brain, as if growing from it. The tennis-ball-sized thing has some noteable qualities, ones which we were gently advised not to disclose to the public.
+ The tissue is still being analysed, and new details of the case are uncovered very rapidly. Some persons used in the piece have been discovered to be Ronald's friends. The brain in this piece was almost entirely constructed of his childhood friend, presumed to be MIA a month ago. Another large part of the brain was constructed of a peculiar object, resembling a black sea hedgehog. Embeded in the brain, as if growing from it. The tennis-ball-sized thing has some noteable qualities, ones which we were gently advised not to disclose to the public.
 
 
 Ronald was found by his long-concerned neighbour, coming to confront him about strange smells and sounds. The man was found, consciousness lost, underneath the sculpture, immitating it's pose entirely.
