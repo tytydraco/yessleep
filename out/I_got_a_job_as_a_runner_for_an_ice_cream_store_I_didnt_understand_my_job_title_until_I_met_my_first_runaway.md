@@ -306,9 +306,13 @@ Almost feral.
 
 My jacket blew open, with no breeze, my hair caught in an invisible gust. He gritted his teeth like an animal and stumbled back with a whine, looking at me for help, but my colleague was quickly stepping in front of him before he could get away. “I said,” his tone was ice-cold, and I saw my colleague’s lips curve into a smile, which was almost greedy. I didn’t realise he was bouncing on his toes like he was excited. “We’ve got you.”
 
-I don't know what impression Dylan had over the guy, but I saw it in the way the Buggie seemed to give up, his arms dropping to his sides. My hair stopped whipping around my face, coming a standstill. Nathanial’s eyes seemed to relax, his expression going slack. “You’ve got me.” His voice dropped into a deadpan tone," oddly repeating my colleague's words. "I will chill out."
+I don't know what impression Dylan had over the guy, but I saw it in the way the Buggie seemed to give up, his arms dropping to his sides. My hair stopped whipping around my face, coming to a standstill. 
 
-I sat in the back with Nathanial on the way back to the store. The boy didn’t speak for most of the ride, his head tipped back, eyes closed. I was slowly drifting off, when the boy’s voice startled me, slicing through my thoughts. His sharp intake of breath had taken me off guard. This guy was seriously scared of Moo Moo Brain Desserts. “They’re going to kill me,” he whispered.
+Nathanial’s eyes seemed to relax, his expression going slack. “You’ve got me.” 
+
+His voice dropped into a deadpan tone," oddly repeating my colleague's words. "I will chill out."
+
+I sat with Nathanial on the way back to the store, riding in the metal prison in the back of the van. The boy didn’t speak for most of the ride, his head tipped back, eyes closed. I was slowly drifting off, when the boy’s voice startled me, slicing through my thoughts. His sharp intake of breath had taken me off guard. This guy was seriously scared of Moo Moo Brain Desserts. “They’re going to kill me,” he whispered.
 
 Forcing my eyes open, something cold creeping down my spine. The two of us were sitting opposite. Every time the van went over a speed bump, I had to stop myself from tipping over.  I leaned forward, my gut jumping into my throat. “What?”
 
