@@ -74,7 +74,7 @@ Had he even looked at me?
 
 I was five foot nothing with a face that still got me ID’d despite being almost 24 years old. 
 
-I kept waiting for him to burst out laughing and then go over my actual duties, but he just fumbled around in a drawer underneath his desk and pulled out a navy-blue uniform and a matching baseball cap. “Your job is a runner, so yes, our customers tend to be a slight problem. You are expected to pursue them and deposit them into the van where your colleague on shift will be waiting for you. They should come willingly. If they don't, you may use force."
+I kept waiting for him to burst out laughing and then go over my actual duties, but he just fumbled around in a drawer underneath his desk and pulled out a baseball cap, handing it over. “Your job is a runner, so yes, our customers tend to be a slight problem. You are expected to pursue them and deposit them into the van where your colleague on shift will be waiting for you. They should come willingly. If they don't, you may use force."
 
 So, kidnapping lite.
 
@@ -98,7 +98,7 @@ Well, that was ominous.
 
 I pointed out the clause, only for my boss to shrug it off. “Sometimes our customers can get violent and defensive, but the worst we have had is a broken ankle.” Still, though, the guy was reluctant to explain what “phenomena” it was talking about. He was practically breathing in my ear when I signed the contract, making sure to take several photos of it when he was fumbling around for a work uniform. To protect myself, I made sure not to use my legal second name and made up one on the spot. Addie Smith. 
 
-I could only manage a nod when he shoved the uniform in my arms. “Congratulations Addie!” The manager, who introduced himself as Clayton, gave me a halfhearted salute. “You are now a member of Moo Moo Brain Ice Cream.”
+I could only manage a nod when he shoved a navy blue uniform in my arms. “Congratulations Addie!” The manager, who introduced himself as Clayton, gave me a halfhearted salute. “You are now a member of Moo Moo Brain Ice Cream.”
 
 He collapsed into his chair with a sigh. “Your shift starts in…” He lifted his head and peered at the clock above the door. “Six minutes! Feel free to change into your uniform, and your colleague will be waiting for you outside.” 
 
@@ -134,19 +134,17 @@ Violet lazily cocked her head to the side. “I wonder how long you’ll last, A
 
 “You think I’m not going to last?”
 
-She shrugged, grabbing her bag from the stall, and digging around inside. I wasn’t expecting her to pull out what looked like a chocolate milkshake. Violet sipped from the straw, and I noticed her facial expression relax. The lights above stopped flicking erratically, and she finally fixed me with a smile. “I was a runner on my first day,” she mumbled through the straw, “I quit after two customers. 
-
-But I already knew this place’s deal so it didn’t really matter to me. Clayton and I were aligned back in my freshman year, and let's say I wasn't…" Her eyes glinted, tapping her manicure on the table. "Turned off." 
+She shrugged, grabbing her bag from the stall, and digging around inside. I wasn’t expecting her to pull out what looked like a chocolate milkshake. Violet sipped from the straw, and I noticed her facial expression relax. The lights above stopped flicking erratically, and she finally fixed me with a smile. “I was a runner on my first day,” she mumbled through the straw, “I quit after two customers. But I already knew this place’s deal so it didn’t really matter to me. Clayton and I were aligned back in my freshman year, and let's say I wasn't…" Her eyes glinted, tapping her manicure on the white marble faucet. "Turned off." 
 
 Violet shrugged. "I just really didn’t like chasing after them, y’know? I thought it was cool at first! Like, I could straight up tell strangers that they were coming with me and they had no choice. But then… well… they started running, and I know it was my job to chase them, but it’s like, so annoying when I’m clearly slower than them and they have, like, such a bigger advantage which is stupid."
 
 I could have sworn the girl’s speech was slowing down into an almost slur like she was drunk. When her mouth split into a dazed grin, I wondered if it was the shake. “Now with you? I’m confused.” She jumped in front of me with a spring in her step, her ponytail bobbing up and down. 
 
-With the straw still poking from her mouth, she surveyed me. “You don’t look like a runner,” Violet slurped more of her shake with a head tilt, and with every sip, her body seemed more alive, animated, like she was sipping on liquid drugs. Even her pupils were dilated. “No offence, but you don't look like a runner. You have to actually chase these guys, and believe me when I tell you they are faassssst. Like super fast."
+With the straw still poking from her mouth, she surveyed me. “You don’t look like a runner,” Violet slurped more of her shake with a head tilt, and with every sip, her body seemed more alive, animated, like she was sipping on liquid drugs. Even her pupils were dilated. “No offence, but you don't look like you chase misbehaving college brats. You have to actually run after these guys, and believe me when I tell you they are faassssst. Like super fast."
 
 She giggled, draining her shake. “But I’m not gonna judge!” Her lips curled into a smirk. “If you can capture your first Buggie without Dylan’s help, I’ll happily welcome you to the family.” 
 
-She turned her head like she had heard her name, though it was just the two of us. It was bizarre, the way the girl's expression twitched, her lips mouthing silent words like she was talking to herself. She headed to the door before hooting me one last look. 
+She turned her head like she had heard her name, though it was just the two of us. It was bizarre, the way the girl's expression twitched, her lips mouthing silent words like she was talking to herself. She headed to the door before shooting me one last look. 
 
 “Good luck, newbie!" I noticed her swipe at her apron for way too long, swiping and swiping and swiping, like she was clawing at it, desperate to get her filthy hands clean before disappearing through the door. I noticed she’d left the empty shake, and I was suddenly intrigued what exactly was in this thing. Clearly, she was hyped up on something, so what was it? The girl was freaking out beforehand, barfing into the toilet. So, what was in the shake that had put her in that state? I was reaching out to pick it up when Violet poked her head through the door.
 
@@ -224,7 +222,7 @@ I think that is what it was.
 
 Apparently, the kids who couldn’t afford actual student dorms were all shoved into this place. 
 
-When I started up the path, however, I found myself looking up barred windows. The building itself was ancient, crumbling brick with ivy crawling up the door. I knocked, before a small voice shouted, “Come in!” And I found myself in a more modern-looking reception area. The inside was drastically different from the outside. Inside, a warm glowing light greeted me, air conditioning blasting me in the face. There was an oldish woman sitting behind a laptop. When her eyes found me, her smile seemed to falter. 
+When I started up the path, however, I found myself looking up at barred windows. The building itself was ancient, crumbling brick with ivy crawling up the door. I knocked, before a small voice shouted, “Come in!” And I found myself in a more modern-looking reception area. The inside was drastically different from the outside. Inside, a warm glowing light greeted me, air conditioning blasting me in the face. There was an oldish woman sitting behind a laptop. When her eyes found me, her smile seemed to falter. 
 
 “You must be the new Runner.” She spoke in disgust. 
 
@@ -244,7 +242,7 @@ So, with no other option, I headed through the doors, following the woman’s in
 
 The dorm rooms were strangely quiet for 10pm. The further I delved into this place, it reminded me less of a college dorm and more of an orphanage. I walked past a student lounge with multiple mounted televisions playing YouTube videos, groups of kids hanging around playing video games or sitting individually with their heads buried in books. 
 
-The place was… cozy. There were ancient chandeliers hanging from every room, a mix of old and modern décor. Next to the lounge was the dining area where a group of girls were talking. The door was open, my presence drawing their attention. They had the same reaction as the receptionist, eyeing me like I had a contagious disease before whispering to each other. I met my Buggie halfway up the stairs towards the second floor. 
+The place was… cozy. There were ancient chandeliers hanging from every room, a mix of old and modern décor. Next to the lounge was the dining area where a group of girls were talking. The door was open, my presence drawing their attention. They had the same reaction as the receptionist, eyeing me like I had a contagious disease before whispering to each other. I met my Buggie halfway up the stairs towards the fourth floor. 
 
 "Testing, testing…" Dylan's voice came out in a stream of static. "Have you got him?" 
 
@@ -288,11 +286,9 @@ He was FAST.
 
 "Oh, yeah. They tend to do that. I'd go after him if I were you," his tone hardened. "If you lose this Buggie, we're screwed—and that’s both of us.”
 
-I don't know if it was my colleague's voice that snapped me out of it, my body throwing me into a sprint down the stairs. I hadn't run properly in a while, and that feeling came back in a rush as I pumped my arms to go faster. 
+I don't know if it was my colleague's voice that snapped me out of it, my body throwing me into a sprint down the stairs. I hadn't run properly in a while, and that feeling came back in a rush, sucking in dry air, pumping my arms to push myself faster. Throwing myself back through the doors and into the reception, the doors were open. I could just about glimpse a figure heading not towards the gate, which was where Dylan was waiting, but across the parking lot. There must have been another exit, and if the guy reached it, I was fired. God, running felt good. Even if I was chasing down college kids in debt. The shadow darting into the dark edged closer as I forced my legs further, my shoes scratching the asphalt. Nathanial was slowing down and I used that to my advantage. I was reaching out and grasping for the hood of his jacket to gently pull him back-- like I had been taught-- when he… disappeared. 
 
-Throwing myself back through the doors and into the reception, the doors were open. I could just about glimpse a figure heading not towards the gate, which was where Dylan was waiting, but across the parking lot. There must have been another exit, and if the guy reached it, I was fired. God, running felt good. Even if I was chasing down college kids in debt. The shadow darting into the dark became closer as I forced my legs to go faster, my shoes scratching the asphalt. Nathanial was slowing down and I used that to my advantage. I was reaching out and grasping for the hood of his jacket to gently pull him back-- like I had been taught-- when he… disappeared. 
-
-I blinked. No, he reappeared several feet away, stumbling, tripping onto his hands and knees, and then using them to push himself faster. 
+I blinked. No, he reappeared several feet away, stumbling, tripping onto his hands and knees, and then using them to push himself into a sprint. 
 
 I swore if I squinted, the night was filled with tiny specks of blue light, as if the dark in front of me was being swallowed by the ocean. 
 
@@ -300,7 +296,7 @@ I must have been losing my mind.
 
 Then though, he changed direction, abrutly, like his body was in control of his brain. 
 
-Nathaniel twisted around and took off towards me, sprinting past me, and toward the gate. Which was exactly what I wanted. It only took me chasing him toward the exit before Dylan appeared seemingly out of nowhere, greeting the guy with a scowl and folded arms. He was wearing raybans. He slipped them off,, dark eyes drinking in the Buggie. 
+Nathaniel twisted around and took off towards me, sprinting past me, and toward the gate. Which was exactly what I wanted. It only took me chasing him toward the exit before Dylan appeared seemingly out of nowhere, greeting the guy with a scowl and folded arms. This time he was wearing raybans. He slipped them off, dark eyes drinking in the Buggie. 
 
 “We gotcha, kid. So chill out, aight?"
 
