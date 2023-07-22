@@ -1,10 +1,10 @@
 [Part One](https://www.reddit.com/r/nosleep/comments/154ac0v/im_a_public_defender_and_my_newest_client/)
 
-So there I was, stuck in G\_\_\_\_\_\_\_\_\_\_\_\_\_\_ with no ride, no friends, and the sinking suspicion that my client Turner Done was right: this town really was being taken over by blood-thirsty vampires. How else to explain the priest’s severed arm producing no blood, the uneasiness of the jaundiced police officer who insisted we meet again at night, the bloody clothes that hung like a battered pinatas from Stephanie Daniel’s clothesline. 
+So there I was, stuck in G\_\_\_\_\_\_\_\_\_\_\_\_\_\_ with no ride, no friends, and the sinking suspicion that my client Turner Done was right: this town really was being taken over by blood-thirsty vampires. How else to explain the priest’s severed arm producing no blood, the uneasiness of the jaundiced police officer who insisted we meet again at night, the bloody clothes that hung like a battered pinatas from Stephanie Daniel’s clothesline.
 
 It seemed that G\_\_\_\_\_\_\_\_\_\_\_\_\_had all at once become a dry town, and I don’t mean they were no longer serving alcohol.
 
-But as I tripped and slid through the high reeds of an open sewer creek, taking in the reek of raw sewage through my busted nose, I couldn’t help but consider things how a judge or jury might. After all, I had now fled the scene of an accident.  
+But as I tripped and slid through the high reeds of an open sewer creek, taking in the reek of raw sewage through my busted nose, I couldn’t help but consider things how a judge or jury might. After all, I had now fled the scene of an accident.
 
 Worse yet—had sprinted way from the police cruiser as though I had done something wrong. I’ve seen people get booked for much less, especially in our not so *just,* justice system.
 
@@ -34,7 +34,7 @@ The thing about this new generation is they’re apparently misinformed when it 
 
 “Whatever,” Reggie said, leaning against the sewer walls, becoming one with that true bacterial fantasia. “All I know is they bit my parents, and then my parents wanted to bite me.” He looked up at me as though I were the dumbest human on the planet, and maybe he wasn’t far off. “Zombies,” he said, definitively.
 
-From what I gathered, Reggie and his family resided in a local trailer park, his mother worked at the diner waiting tables and his father was an angry, bitter man even before he made his little pact with the Dark Lord. 
+From what I gathered, Reggie and his family resided in a local trailer park, his mother worked at the diner waiting tables and his father was an angry, bitter man even before he made his little pact with the Dark Lord.
 
 Reggie had a half-sister who had recently been taken away by child protective services, and one can assume it was all for the better. A world where vampires were real and child protective services were competent, I really had gone through the Looking Glass.
 
@@ -44,15 +44,15 @@ Being tiny, and resilient, if not intelligent about suddenly life-defining monst
 
 “Simple,” he replied. “You haven’t tried to eat me yet. And that’s how you know I ain’t one either.”
 
-I asked Reggie if he knew Turner Done and he said he did, but everyone in school called him 'Turdler' Done, because he was always cleaning toilets. He said the kids hated him because he was always in a foul mood pushing his mop around, tripping children with gleeful hate in his eyes, and so on. 
+I asked Reggie if he knew Turner Done and he said he did, but everyone in school called him 'Turdler' Done, because he was always cleaning toilets. He said the kids hated him because he was always in a foul mood pushing his mop around, tripping children with gleeful hate in his eyes, and so on.
 
 I asked Reggie if there were any other humans left and he said maybe there was and maybe there wasn’t, but he wasn’t much inclined to find out. He asked me if I had a plan and I said we should hide in the sewer system and wait things out. This didn’t impress Reggie much…that my plans were apparently no better than his own despite our decided age difference.
 
-Reggie said we would have to hoof it to a nearby stream if we were going to have anything to drink and it was better to do it by light of day. Having no better options, I started to follow the fleet-footed little shit, struggling to keep up. 
+Reggie said we would have to hoof it to a nearby stream if we were going to have anything to drink and it was better to do it by light of day. Having no better options, I started to follow the fleet-footed little shit, struggling to keep up.
 
 I never much liked children, not even when I was a child myself. But I was out of ideas and, like the vampires, increasingly thirsty. As we walked, I noticed that the child left no reflection in the water. I seemed to recall something about reflections and vampires, but then settled on that being in photographs. By then I was feeling a bit groggy from the head trauma, and the boy was too fast to get a good look so I kept following.
 
-We eventually came upon a stream, though it wasn’t apparent that its source was any different from the sewer. I didn’t want to explain the contours o my germophobia to the child, who was already on his hands and knees scooping the water to his mouth, so I just hung back. 
+We eventually came upon a stream, though it wasn’t apparent that its source was any different from the sewer. I didn’t want to explain the contours o my germophobia to the child, who was already on his hands and knees scooping the water to his mouth, so I just hung back.
 
 “Come on,” he said. “It taste’s good.” I told him that so did chocolate to dogs, but that didn’t mean it wasn’t poisonous but he kept gulping away. The banana I had given him was still in his pocket. I would have assumed he’d have scarfed it down straight away. I felt a twinge of fear shivering up my spine, and then I felt like a giant dork for fearing a ninety-pound child. If I had a significant other, I thought, they would really be embarrassed at how callow I was feeling.
 
@@ -68,7 +68,7 @@ I walked toward the boy, to see if I could make out a reflection, when he wheele
 
 By then I was, inexplicably back in Stephanie Daniel’s backyard, unless there happened to be another Victorian with bloodstained clotheslines, and in this town I couldn’t exactly rule that out. I climbed in through a basement window and slinked my way into a crawl space.
 
-There, I tried my phone again but it still had no reception, and was also running distressingly low on battery. I used the flashlight app and saw that the basement looked like a kid’s playroom had just exploded. 
+There, I tried my phone again but it still had no reception, and was also running distressingly low on battery. I used the flashlight app and saw that the basement looked like a kid’s playroom had just exploded.
 
 Stuffies and dollhouses and even a tiny, porcelain white crib. There was also a coffin-shaped pine box that I dared not open, one too large for a child of normal proportions. Everything else seemed right out of a nursery.
 
@@ -109,3 +109,5 @@ I so want to continue with what happened. But as before, the telling makes me we
 But I fear this is where my fingers must stop their typing…
 
 For now….
+
+[Part III](https://www.reddit.com/r/nosleep/comments/1565aqw/im_a_public_defender_and_my_newest_client/)

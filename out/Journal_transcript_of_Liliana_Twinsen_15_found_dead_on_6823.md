@@ -8,12 +8,18 @@
 
 6/6/2023: So much has happened, reading this back I’ve missed so much, but I can’t fill it all in. For, what I’ve figured out, “It” is some sort of god, and It’s followers are a sort of cult. It seems to be some sort of eye, or at least it looks like one from what’s drawn all over that pamphlet. My parents, or whatever is left of them, seems to want to “open my eyes.” Ive been in my room for the past four days now. I have enough food to last a while, water too. They leave occasionally, so I could go into the kitchen And grab more. I’m getting really scared. My parents are gone, and I think whatever “It” is, it’s using their bodies. I don’t know for what, but I don’t want to know. Holy fuck they’re banging my door. It been three minutes now, and they haven’t stopped. It’s always the same time apart, around two knocks a second?? Fuck fuck fuck I don’t want them to come in. I don’t know what it is. WHAT THE FUCK. there aren’t any feet under the door. But something is fucking knocking. I hear my dads voice, but that deep static is surrounding it. “Let It in.” im gonna die in here.
 
-6/7/2023: I have made a plan. this very well Maui be my last entry. I’m hoping someone will find this. I am going to go out into the kitchen, I can hear them out there now. I will tell them I want to accept It into my life. There is no way of knowing what they’ll do, but I think it may kill me. I’m so fucking scared, I don’t want to die. I am hiding this in my bookshelf, among the other books and shit. My name is Liliana Twinsen, and I am saying goodbye.
+6/7/2023: I have made a plan. this very well may be my last entry. I’m hoping someone will find this. I am going to go out into the kitchen, I can hear them out there now. I will tell them I want to accept It into my life. There is no way of knowing what they’ll do, but I think it may kill me. I’m so fucking scared, I don’t want to die. I am hiding this in my bookshelf, among the other books and shit. My name is Liliana Twinsen, and I am saying goodbye.
 
 \-————
 
 Officers Mark Benton and Willa Floris visited <redacted> on 6/8/23. Neighbors reported hearing screams, then silence, then laughter. Upon entering the house, the officers were greeted with the body of Liliana Twinsen. An eye was carved into the skin of her forehead, and her hands had been cut off. Liliana’s own eyes were open wide, and her body was assembled in a pose resembling what you would see of someone in worship.
 
-The bodies of Tina Woods and Chris Twinsen were found with gashes around their eyes, making their eyes appear to be shifted 90 degrees. Upon further inspection, Liliana’s cause of death was ruled as a murder, but the deaths of Tina and Chris are still being inspected. Their eyes were carved before their deaths, but they each died in some sort of struggle.The home was inspected, and the blood of Liliana, Tina, and Chris was found on a knife.
+The bodies of Tina Woods and Chris Twinsen were found with gashes around their eyes, making their eyes appear to be shifted 90 degrees. Upon further inspection, Liliana’s cause of death was ruled as a murder, but the deaths of Tina and Chris are still being inspected. Their eyes were carved before their deaths, but they each died in some sort of struggle. The home was inspected, and the blood of Liliana, Tina, and Chris was found on a knife, strangely far away from the bodies.
 
 Upon inspection of Liliana’s room, a journal was discovered. She seemed to account for her parents sudden shift after reading a pamphlet, along with their shift in behavior after absorbing the cult-like material. It is believed that Liliana was killed by her parents, perhaps as a sacrifice to the entity they worshipped. The journal itself, along with the pamphlet it spoke of, have been seized by our officers.
+
+During a later inspection of the home, the blood of Tina, Chris, and Liliana was used to write words and symbols on different areas of the home, such as the ceiling and doorframes. The symbols drawn resembled the carvings in the eyes of Tina and Chris.
+
+The same sentence has been written 20 times around the house in a combination of the family’s blood: 
+
+“Let Me In”
