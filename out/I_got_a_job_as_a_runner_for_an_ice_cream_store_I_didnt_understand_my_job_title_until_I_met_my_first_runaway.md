@@ -314,7 +314,7 @@ His voice dropped into a deadpan tone," oddly repeating my colleague's words. "I
 
 I sat with Nathanial on the way back to the store, riding in the metal prison in the back of the van. The boy didn’t speak for most of the ride, his head tipped back, eyes closed. I was slowly drifting off, when the boy’s voice startled me, slicing through my thoughts. His sharp intake of breath had taken me off guard. This guy was seriously scared of Moo Moo Brain Desserts. “They’re going to kill me,” he whispered.
 
-Forcing my eyes open, something cold creeping down my spine. The two of us were sitting opposite. Every time the van went over a speed bump, I had to stop myself from tipping over.  I leaned forward, my gut jumping into my throat. “What?”
+Forcing my eyes open, something cold crept down my spine. The two of us were sitting opposite. Every time the van went over a speed bump, I had to stop myself from tipping over.  I leaned forward, my gut jumping into my throat. “What?”
 
 The guy’s eyes were sparkling with tears. “You have to help me.” He broke out into a sob, and it was too real for me to ignore. He was trembling, his hands clenched in his lap. “Please. You don’t understand. That place?” He hissed out. “They grow us.”
 
