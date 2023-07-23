@@ -101,3 +101,5 @@ Partying and rejoicing had stopped as all the souls contemplated the then comple
 "Hey look!" One of the souls shouted, prompting all the others to look at him then at me.
 
 I did not understand what transpired before I took a look at my face using the bottle in my hand. I stood in front of hundreds of souls, ready to offer me to an occultist for sacrifice and my eyes were no longer shining.
+
+[Part 9](https://www.reddit.com/r/nosleep/comments/1571cmj/every_year_in_my_village_there_is_a_time_during/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
