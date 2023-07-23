@@ -1,171 +1,103 @@
-"Check this out" Emma shouted out to me.  
-I sluggishly approached understanding that we still had a lot of unpacking to do.  
-Entering the bedroom I saw my girlfriend looking at our closet with a gaze of wonderment, I smiled knowing that she had wanted more space for her clothes when we decided to move. The closer I got to Emma I realized she wasn't looking directly into the closet, rather, her head was tilted up.
+"Check this out" Emma shouted out to me.I sluggishly approached understanding that we still had a lot of unpacking to do.Entering the bedroom I saw my girlfriend looking at our closet with a gaze of wonderment, I smiled knowing that she had wanted more space for her clothes when we decided to move. The closer I got to Emma I realized she wasn't looking directly into the closet, rather, her head was tilted up.
 
-  
 "What are you looking at?" I asked with a slight chuckle in my voice.
 
-  
 I crept up from behind and embraced her in my arms as I pushed aside a bit of her hair to apply a delicate kiss unto her neck. She remained quiet for several seconds as her stare did not give. She then raised her arm and pointed up towards the ceiling in the closet. My eyes carefully followed her direction as I locked in at what she had been staring at; it was pure darkness, some void of emptiness that hovered above in the closet. I let go of Emma's waist and stepped inside turning on the small light that was mounted to the side of the wall, to my astonishment it was still pitch dark. I was bewildered of how tall the ceiling must of been, which was weird since everywhere else in the townhome had normal size ceilings.
 
-  
 "That is weird isn't it" I told my girlfriend.
 
-  
 She nodded her head in agreement still remaining silent, I reached for my phone to turn on the flashlight app; I pointed it upwards hoping to see how far this mysterious ceiling extended. As the faint light shined above the darkness seemed to swallow it up, devouring every photon leaving me and Emma completely confounded. At this point my curiosity had been triggered and I pondered on how I could test the height of the ceiling, I could hear Emma walk away seemingly already bored with the mystery that laid before us.
 
-  
 We moved to this new home, leaving behind a brutal past that both me and Emma had no interest in reliving, well, I guess mainly Emma. She had a let's just say a not so friendly ex; his name was Jake, and he was borderline stalking her. I constantly reassured Emma that I was there to protect her that I wouldn't let anything happen to her, I even bought a gun, something that made me feel uncomfortable but she was worth the un-comfort. She pleaded for us to move to a new city, to get away from 'him' which I didn't mind I loved her after all and my kind of job allowed me the luxury to work from home; so I agreed. We both deleted our social media accounts and decided to start new, an adventure shared between the both of us and now we found ourselves in this new home with a bizarre closet.
 
-  
-For the next few days we did all of our unpacking and Emma seemed to not care so much about the mystifying closet, though the mystery stayed at the forefront of my mind, me constantly bringing it up only for her to roll her eyes. I think I was annoying her but every day when I had a bit of time I would try a new method to see how endless the endless closet really was. I grabbed a broom and ladder; I then jabbed it into the air to see if I would hit anything. I used a tape measure extending it out in hopes to finally hit something; but still nothing. I scratched my head over and over wanting to know what the heck this thing was, I grabbed a baseball and readied myself, I'm not the best at sports but I did play a little softball when I was a kid. I stood in my stance and cautiously aimed upwards, with all of my strength I flung the small ball up into the air.  
-"Watch out every one it's Tom Brady" my girlfriend said from behind me.  
-I turned to her quickly a bit startled then raised my pointer finger up to my lips; suggesting for her to be quiet.
+For the next few days we did all of our unpacking and Emma seemed to not care so much about the mystifying closet, though the mystery stayed at the forefront of my mind, me constantly bringing it up only for her to roll her eyes. I think I was annoying her but every day when I had a bit of time I would try a new method to see how endless the endless closet really was. I grabbed a broom and ladder; I then jabbed it into the air to see if I would hit anything. I used a tape measure extending it out in hopes to finally hit something; but still nothing. I scratched my head over and over wanting to know what the heck this thing was, I grabbed a baseball and readied myself, I'm not the best at sports but I did play a little softball when I was a kid. I stood in my stance and cautiously aimed upwards, with all of my strength I flung the small ball up into the air."Watch out every one it's Tom Brady" my girlfriend said from behind me.I turned to her quickly a bit startled then raised my pointer finger up to my lips; suggesting for her to be quiet.
 
-  
 "shu-u-u-" I shushed her.
 
-  
 "And Tom Brady doesn't play baseball he's a…" I promptly stopped my thought, no, it couldn't have been; that's when I realized the ball never came back down.
 
-  
-Emma just looked on with befuddlement at my perplexed facial expression.  
-"The ball, it didn't come back down" I told her.
+Emma just looked on with befuddlement at my perplexed facial expression."The ball, it didn't come back down" I told her.
 
-  
 "Huh, well don't get a some extension ladder and try to climb up there you might just get stuck too" she told me with a whimsical tone in her voice, though her eyes portrayed as much concern as I had.
 
-  
 Later that day I scoured the internet looking for the best deal on a drone, one with a solid range. As I clicked through different pages Emma suggested something that never dawned on me, she told me to ask our landlord about the closet; why didn't I think of that. I figured before spending money we really didn't have I should at least ask about the home I found myself in.
 
-  
 That night I had the strangest dream, one where I found myself in a home built out of gingerbread. I was lost in what seem to be an endless loop of corridors, the wall's gruesomely crumbled apart as I walked past. Turning corner after corner I endlessly searched for a way out as the scent of fresh ginger penetrated my nostrils. I could feel my panic morph into trepidation as I began to run faster and faster wanting to escape because by this point I didn't feel so alone, now, I felt like someone was in here with me. I could make out the subtle hints of foot steps, unusual ones, like the person had a limp; they would take one step forward with one foot and drag the other. I was absolutely frantic by this point and that's when I began to chew on the walls, I was trying to eat my way out of that horrid place. I chomped and grinded with all the muscle I had in my jaw, the sounds of the gingerbread crunching underneath the pressure of my bite inundated the air as my heart beat accelerated, I even closed my eyes not wanting to see whatever was causing those devilish footsteps.
 
-  
 "Agh!"
 
-  
 That's when the most dreadful scream awoke me, I rapidly came to my senses and realized it was Emma, she was still asleep. I shook her awake and she popped out of her slumber as she horrifically gasped out for air. I held her close as her trembling body slowly calmed and then she began to sob, I asked her if she had a nightmare; perhaps the same one I had about the gingerbread house, she looked at me confounded.
 
-  
-"No, it was about 'him", 'him' being her ex; Jake the real monster.  
-My once fear gradually shifted to anger understanding how much this jerk had tortured my beautiful Emma, I could feel my blood boil as I glanced over at my night stand where I kept my gun; fantasying about how I could put this guy in his place for good.
+"No, it was about 'him", 'him' being her ex; Jake the real monster.My once fear gradually shifted to anger understanding how much this jerk had tortured my beautiful Emma, I could feel my blood boil as I glanced over at my night stand where I kept my gun; fantasying about how I could put this guy in his place for good.
 
-  
 "Can you bring me a glass of water or something" Emma asked of me.
 
-  
 I kissed her forehead and got out of bed then walked over to the kitchen, the memory of my horrid nightmare was now a mere whisper, but that's when I encountered the most frightening scene. The pantry door in our kitchen was wide open and it appeared as if someone had rifled through our food, on the floor I could see a box of cookies ripped open; it practically torn to shreds, cookie crumbs laid scattered across the once polished floor. My mouth gaped open with utter disbelief, who the hell had broken into our home, I ran back to the bedroom and grabbed my handgun. Emma looked on with curiosity and followed me as I returned to the kitchen. I could hear Emma asking questions but I just ignored her as my eyes scanned the open living room and dining area for any possible intruder, after a minute I finally answered Emma.
 
-  
-"Look" I told her as I guided her over to the mess near the pantry.  
-She screamed out in terror and jumped unto one of the kitchen cabinets.  
-"We have rats!" she exclaimed.  
-Rats, of course, that's what it is, it has to be rats, I told myself in my head as I looked on at all the mess.  
-"Why do you have your gun?" she asked.  
-I stumbled over my own words not sure how to answer without alarming her, what could I say that I think an intruder had broken in, obviously rats made more sense.  
-"Uhmm…well"  
-"Were you going to shoot the rat!" Emma interjected with disapproval.  
-I didn't say anything back, I figured I'll let her think I'm some weirdo willing to shoot a rat than scare her with my original thought of someone breaking in.  
-
+"Look" I told her as I guided her over to the mess near the pantry.She screamed out in terror and jumped unto one of the kitchen cabinets."We have rats!" she exclaimed.Rats, of course, that's what it is, it has to be rats, I told myself in my head as I looked on at all the mess."Why do you have your gun?" she asked.I stumbled over my own words not sure how to answer without alarming her, what could I say that I think an intruder had broken in, obviously rats made more sense."Uhmm…well""Were you going to shoot the rat!" Emma interjected with disapproval.I didn't say anything back, I figured I'll let her think I'm some weirdo willing to shoot a rat than scare her with my original thought of someone breaking in.
 
 The next day I reached out to the landlord, told her about the puzzling closet, her response was well measured much like Emma's; she told me that with these new townhomes the developer pushed for completion way too fast leaving at times unfinished work. She said that they probably had overlooked certain areas of the home, that they just missed building the ceiling to the closet and the "endless void" I was seeing was merely a vacant crevasse in the home reaching up to the attic; this made sense since our master bedroom was on the first floor and the house was two story. I hung up with the resolve that I was just over reaching in my own mind, creating a conspiracy when in reality there was none, I didn't even bother explaining to Emma what I was told, nor did she seem like she cared, she continued having nightmares of her ex and all I could do was hold her each night when I would wake her from her screams. Luckily the landlord scheduled for people to come out and fix the ceiling in a few weeks, something I looked forward to; I was tired of seeing such darkness whenever I went in to the closet to get something.
 
-  
 As the days past I did my best not to think so much about the closet and instead dived in to my work; since I fell a bit behind spending so much time obsessing over the endless ceiling. Emma seemed to be adjusting well, she was constantly in a good mood, I could tell how much more at ease she was seeing how much more often she would smile, though at night she would still suffer from her dreaded dreams; ill fated memories of that monster. I too continued having nightmares, almost the same one, sometimes different variations of the same dream but the premise was always the same; me lost in some horrid world made of gingerbread with those disgusting footsteps following close; the sounds of one step colliding unto pavement and the other hideously sliding close behind; I was always drenched in sweat in the mornings. But things seemed to be getting better, both me and Emma weren't going to let dreams conquer our reality; we both knew it wasn't real and perhaps we were just acclimating ourselves to our new environment. The only real issue we continued having wasn't one of the dream world, no it was the rats; they continued scurrying through our food in the pantry always eating cookies or crackers.
 
-  
 I set out traps to catch the rascals in spite of Emma's protest, which was a bit annoying seeing that she wanted them gone but didn't want to hurt them; I felt that was bit of an oxymoron but whatever. Lucky for her my traps never caught any of the demonic critters it's like they knew to avoid them, it made me giggle thinking of these rats tip toeing around the trap like some animated mouse cartoon from the 1950's. We were constantly restocking our cookie boxes and you're probably thinking why not keep them in a jar or stop buying cookies. Well, we love cookies and both me and Emma don't like the way they taste when they sit too long in one of those jars.
 
-  
-After almost a month the ceiling was still not repaired and every time I reached out to the landlord she came up with a new excuse of why they hadn't come out, I even offered to hire someone myself to fix it and that apparently was against our lease agreement. By this time the once mystery that consumed me no longer even tingled my thoughts, I just accepted the darkness from above as an everyday occurrence it eventually became normal, along with those lingering rats. We learned to buy enough cookies; we sort of adopted the rodents as pets, so in our minds we were a home of many, all cookie enthusiasts; Emma even joked and said maybe it wasn't rats eating our delicious treats but rather 'cookie monster' himself. It was nice to see her in such high spirits, her smiles always brought a level warmth to my heart that couldn't be described by words and her laughter was the most divine music my ears could ever hear. Her night terrors even stopped which was a relief since I always felt sleep deprived waking up each night to comfort her, though, my dreams persisted. I never could escape the dreadful labyrinth of gingerbread and anytime the grotesque footsteps would catch up to me I would awake.
+After almost a month the ceiling was still not repaired and every time I reached out to the landlord she came up with a new excuse of why they hadn't come out, I even offered to hire someone myself to fix it and that apparently was against our lease agreement. By this time the once mystery that consumed me no longer even tingled my thoughts, I just accepted the darkness from above as an everyday occurrence it eventually became normal, along with those lingering rats. We learned to buy enough cookies; we sort of adopted the rodents as pets, so in our minds we were a home of many, all cookie enthusiasts; Emma even joked and said maybe it wasn't rats eating our delicious treats but rather 'cookie monster' himself. It was nice to see her in such high spirits, her smile always brought a level warmth to my heart that couldn't be described by words and her laughter was the most divine music my ears could ever hear. Her night terrors even stopped which was a relief since I always felt sleep deprived waking up each night to comfort her, though, my dreams persisted. I never could escape the dreadful labyrinth of gingerbread and anytime the grotesque footsteps would catch up to me I would awake.
 
-  
 This was just life and it was perfectly fine, me and the love of my life only grew closer as the months passed, we even contemplated the idea of starting a family. I even put my gun away in our family safe, no longer feeling as if it needed to be in arms reach, the neighborhood we lived in was perfectly safe, our neighbors waved at us whenever we revealed ourselves to the world, it was different than before; we came from a big city where you could be surrounded by millions to only feel like you're the only one alive; but here everyone was a friend.
 
-  
 We invited over one of our neighbors for a dinner party; Juan and Sarah, they were a funny couple it was clear that Sarah wore the pants in the family as she would constantly talk over her husband, but no judgement here a lot of times Emma would do the same. I asked our new friends about the neighborhood and crime they both looked at each other and laughed telling us that stuff like that didn't happen here, they practically implied that this was paradise. Something about their demeanor put me off ease almost like they were not real, reading off of some script as if they had rehearsed the things they were going to say before coming here. Emma seemed to really enjoy their company so I tried my best not to let it bother me, we continued drinking our wine and talking about a variety of subjects. That's when my girlfriend brought up the idea of us starting a family and she asked about the local schools, this is when the once confident couples faces froze with what seemed to be apprehension.
 
-  
-"You want to have kids?" Sarah asked.  
-Emma nodded yes in response as she grabbed out for my hand, I studied the couples eyes trying to figure out what was so odd about wanting to start a family that's when I realized I never saw any kids around here, or even more bewildering I never saw any pets; like dogs or cats.  
-"Actually, now that I think about it I don't see any pets or kids around here" I said.  
-The couple seemed to be getting more flustered as I brought up the simple observation.  
-"It's against the HOA" Juan told me.  
-I didn't understand, what H.O.A, I don't remember the landlord telling me anything about that and why would they be against pets or even kids.  
-"Wait, HOA? they don't allow kids…" before I could finish my question Sarah had interjected.  
-"I have such a sweet tooth, do you have any dessert?"  
-"Sure, I think we have some cookies, unless the 'cookie monster' ate them already" Emma said playfully as she got up to look for something sweet for our neighbors.  
-"Cookie monster?" Juan asked with befuddlement.
+"You want to have kids?" Sarah asked.Emma nodded yes in response as she grabbed out for my hand, I studied the couples eyes trying to figure out what was so odd about wanting to start a family that's when I realized I never saw any kids around here, or even more bewildering I never saw any pets; like dogs or cats."Actually, now that I think about it I don't see any pets or kids around here" I said.The couple seemed to be getting more flustered as I brought up the simple observation."It's against the HOA" Juan told me.I didn't understand, what H.O.A, I don't remember the landlord telling me anything about that and why would they be against pets or even kids."Wait, HOA? they don't allow kids…" before I could finish my question Sarah had interjected."I have such a sweet tooth, do you have any dessert?""Sure, I think we have some cookies, unless the 'cookie monster' ate them already" Emma said playfully as she got up to look for something sweet for our neighbors."Cookie monster?" Juan asked with befuddlement.
 
-  
-I explained to them about the rats we had and how they were always rifling through our pantry mainly eating our cookies, the couple didn't seem so surprised to my story; almost as if they had the same problem. Everything just seemed so off, the conversation; the HOA; the closet; the rats, something wasn't right and I could feel the conspiracy side of me emerge like some bear awakening from hibernation. I think my neighbors could tell how inquisitive I had become, maybe it was written all over my face or maybe it was the questions I've been asking thus far but as Emma searched for something to serve them they excused themselves and said they had to leave. As I escorted them to the door to bid our farewells for the night I had to ask one final question and it was about the closet.  
-"Our closet is like that too, around here they all are" Juan said with a dreaded look on his face as he walked away.
+I explained to them about the rats we had and how they were always rifling through our pantry mainly eating our cookies, the couple didn't seem so surprised to my story; almost as if they had the same problem. Everything just seemed so off, the conversation; the HOA; the closet; the rats, something wasn't right and I could feel the conspiracy side of me emerge like some bear awakening from hibernation. I think my neighbors could tell how inquisitive I had become, maybe it was written all over my face or maybe it was the questions I've been asking thus far but as Emma searched for something to serve them they excused themselves and said they had to leave. As I escorted them to the door to bid our farewells for the night I had to ask one final question and it was about the closet."Our closet is like that too, around here they all are" Juan said with a dreaded look on his face as he walked away.
 
-  
-The next few days I decided to do a little research, I went online looking for any clues to how this community was built, quickly I did find the developers name; some hot shot real estate mogul who lived in another country. I didn't see anything out of the ordinary, though, there were plenty of conspiracy theories about the developer; apparently his family was heavily invested into the occult; something about Lunar worship and how they congregated into cities to pledge their loyalty to their god, I don't know it sounded very silly. Eventually the family went into buying up real estate and developing land, now their considered philanthropist. 
+The next few days I decided to do a little research, I went online looking for any clues to how this community was built, quickly I did find the developers name; some hot shot real estate mogul who lived in another country. I didn't see anything out of the ordinary, though, there were plenty of conspiracy theories about the developer; apparently his family was heavily invested into the occult; something about Lunar worship and how they congregated into cities to pledge their loyalty to their god, I don't know it sounded very silly. Eventually the family went into buying up real estate and developing land, now their considered philanthropist.
 
-I then turned my attentions to our communities webpage; searching for any information on our H.O.A. Like my neighbor Juan said we did have one and their were guidelines but nothing specific about having kids or pets it was mainly things about following city ordinance and keeping a clean neighborhood, though there was something about pest control and how crucial it was, I let out a slight chuckle underneath my breath thinking about the rats that have infested my home. After a few hours of searching I got a bit bored, I don't know why but I how a nostalgic feeling for my old life, of my old friends, honestly I haven't spoken to my parents since I left my old city so I decided to log into one of my old social media accounts. I know, I didn't delete all of them, I told Emma I did but how can you erase half your life; either way I looked through old photos I even reached out to some friends, they all told me virtually the same thing; they thought I was dead. I think I was driving myself crazy, connecting dots that weren't really there and the consistent dreams didn't help, I guess just needed to feel normal again. After catching up with several people I decided to permanently delete my account, after all Emma was the only person I needed.
+I then turned my attentions to our communities webpage; searching for any information on our H.O.A. Like my neighbor Juan said we did have one and their were guidelines but nothing specific about having kids or pets it was mainly things about following city ordinance and keeping a clean neighborhood, though there was something about pest control and how crucial it was, I let out a slight chuckle underneath my breath thinking about the rats that have infested my home. After a few hours of searching I got a bit bored, I don't know why but I how a nostalgic feeling for my old life, of my old friends, honestly I haven't spoken to my parents since I left my old city so I decided to log into one of my old social media accounts. I know, I didn't delete all of them, I told Emma I did but how can you erase half your life; either way I looked through old photos I even reached out to some friends, they all told me virtually the same thing; they thought I was dead. I think I was driving myself crazy, connecting dots that weren't really there and the consistent dreams didn't help, I guess I just needed to feel normal again. After catching up with several people I decided to permanently delete my account, after all Emma was the only person I needed.
 
-  
 That night I fell into the deepest slumber, as soon as my head hit the pillow I was out and like always there I was lost in a maze of gingerbread. By this point I had control over my anxiety but even more remarkable I was fully aware that it was just a dream; I guess I was having a lucid dream. It felt amazing all the panic and fear I had been experiencing for the last few months trapped in this world; now bowed to me, I was the one in control. I punched through walls as if they were made of paper, fragments of gingerbread crumbled to the floor, I needed to know how to escape this place, I needed to know why I was even here. That's when I heard the sound, the all to familiar sound of foot steps,
 
-  
 'thud…screech…thud…screech…thud…screech'.
 
-  
 I have to admit even though I was fully in control of this dream the sound of those ponderous foot steps stopped me in my tracks. As usual the sounds were getting closer, but I swallowed my trepidation and clenched my fist; building up my courage to face this monster. I started walking towards the sounds, I built up my speed as my pace quickened and to my astonishment the devils grotesque foot steps stopped, perhaps bewildered that I was approaching it. But, that's when another sound started one I've never noticed before, it was like insects crawling over each other, the sounds of slush and slime bombarding into one another. It was awful and unsettling but I continued walking towards it and soon there it was, the demon that had been chasing me. I couldn't really see it, but what I could make out was how massive the beast was, it was hunched over doing something and that's when I realized those sounds weren't insects, rather, it was this devil eating something,
 
-  
 'crunch, crunch, crunch'
 
-  
 and that's when I woke up.
 
-  
-I promptly sat up out of bed gasping for air, I felt the rooming spinning as I gathered myself, I turned to Emma; she was still peacefully asleep, I sighed out in relief and was ready to lay back down until I heard noises coming from the kitchen, it was the rats; I was finally awake to see this darn critters. I got out of bed and made my way to the kitchen with stealth, not wanting to make any noise to scare them away; as I got closer I realized I wasn't too sure what I was going to do when I caught them; was I going to kill them? I actually have grown a bit close to the idea of them, the nearer I got I saw that the kitchen light was on.
+I promptly sat up out of bed gasping for air, I felt the rooming spinning as I gathered myself, I turned to Emma; she was still peacefully asleep, I sighed out in relief and was ready to lay back down until I heard noises coming from the kitchen, it was the rats; I was finally awake to see these darn critters. I got out of bed and made my way to the kitchen with stealth, not wanting to make any noise to scare them away; as I got closer I realized I wasn't too sure what I was going to do when I caught them; was I going to kill them? I actually have grown a bit close to the idea of them, the nearer I got I saw that the kitchen light was on.
 
-  
 "Rat's turned on the light?" I softly asked myself.
 
-  
-The noises only intensified as the warm kitchen light soon bathed me in it's glow and that's when I froze with utter terror, it wasn't rats eating cookies, no. My blood ran cold as my skin curled, my mind must of been racing a million miles an hour; I didn't know what to do.  
-"Jake? What the hell are you doing here?" I said.  
-It was Emma's ex standing in my kitchen eating a cookie, grotesquely chewing while garnishing a sinister grin.
+The noises only intensified as the warm kitchen light soon bathed me in it's glow and that's when I froze with utter terror, it wasn't rats eating cookies, no. My blood ran cold as my skin curled, my mind must of been racing a million miles an hour; I didn't know what to do.
 
-  
+"Jake? What the hell are you doing here?" I said. It was Emma's ex standing in my kitchen eating a cookie, grotesquely chewing while garnishing a sinister grin.
+
 "It's been you all this time?" I asked, he continued eating but the look he gave me was of pure dubiety.
 
-  
 I also realized he held a gun, it lay next to his side while he used his other free hand to continue devouring the cookie. In the moment I felt my fear overcome me and my limbs became dormant, the power that I had mere minutes ago in my dream had dissolved into a mush of obscurity as I used the few seconds I had to come up with some grand plan.
 
-  
 "Where is she?" Jake asked.
 
-  
 He then raised the gun and pointed it at me, malice protruding from his horrid face. This is what the dreams were about, this moment, building up courage, not running away like we did before; no this time I was going to stop him from hurting Emma. I clenched my fist tightly, my knuckles practically bursting through my own skin, my anger escalated, I didn't have a plan; I wasn't going to yell for help; no I was going to kill him.
 
-  
 I flung at the intruder, thrusting all of my weight unto him as I did my best to wrestle the gun away, his grunts simmered in the air as I groaned from exhaustion and soon we were shouting. We both struggled for control over the firearm as I was gaining ground, soon the gun was pointed up to the ceiling, I almost had it, I felt myself overpowering him; I was going to win this battle and then,
 
-  
 'bang'.
 
-  
 I awoke to the sounds of struggling, I could hear the faint moans of Emma's sweet voice terrified, as I came to my senses I found myself tied to a chair my mouth gagged, I could feel blood trickling down the side of my head as a sturdy ringing permeated in my ear. As the haze of cloudiness evaporated from my view I could see Jake on top of Emma, he had her pinned down on the bed; the sick bastard brought me in to the bedroom to witness whatever this was. I tried to scream for him to stop, I squirmed around doing my best to break free from my restraints, but it was useless; this was going to happen, all I could do was cry from defeat.
 
-  
-That's when from the corner of my eye I saw something moving, it was coming from the closet; the endless closet. Some liquid black substance poured out in a slush like state, I could hear the slimy blob begin to slide across the bedroom floor; but Jake was too occupied to hear it. The blob of goo approached closer behind Jake and then it began to expand, like a sculptors clay forming into a statue on it's own. I could see the thing grow, it raising to the ceiling, I could make out a horrifying face within the goo, two massive arms then protruded from the dark substance. Emma looking up could see the creature form and she stopped moving from pure bewilderment; this finally caught Jakes intention. He slowly turned his head and looked up at the being, I could see how terrified he was, he reached for his gun but it was too late, the beast swallowed up Jake in mere seconds, he being absorbed into the blob. He did scream for help but it only lasted seconds, then the creature fell back into its original form and retracted back into the closet.
+That's when from the corner of my eye I saw something moving, it was coming from the closet; the endless closet. Some liquid black substance poured out in a slush like state, I could hear the slimy blob begin to slide across the bedroom floor; 
 
-  
+'thud screech, thud screech, thud screech'
+
+but Jake was too occupied to hear it. The blob of goo approached closer behind Jake and then it began to expand, like a sculptors clay forming into a statue on it's own. I could see the thing grow, it raising to the ceiling, I could make out a horrifying face within the goo, two massive arms then protruded from the dark substance. Emma looking up could see the creature form and she stopped moving from pure bewilderment; this finally caught Jakes intention. He slowly turned his head and looked up at the being, I could see how terrified he was, he reached for his gun but it was too late, the beast swallowed up Jake in mere seconds, he being absorbed into the blob. He did scream for help but it only lasted seconds, then the creature fell back into its original form and retracted back into the closet.
+
 Both me and Emma were left utterly befuddled, it took several minutes for Emma to even acknowledge me then rushed to my aide. No words were spoken we just stared at each other, horrified; we knew what we had to do and that was we had to get the hell out of there. Both of us still in our night clothes rushed for the door not bothering to get anything, I just grabbed my keys. To our astonishment outside was all of our neighbors, standing together in my front yard, all quiet just looking at us. I could see Juan in the middle of the group standing next to Sarah.
 
-  
 "I see you met our HOA" Juan told us.
 
-  
 I didn't have time for whatever the hell this was, me and Emma stormed past everyone shoving people out of our way as we walked over to the car. I swiftly turned on the vehicle and burned out of there ready to leave this hellscape of a place. Emma sat quiet still in shock from the whole event and I reached out to grab her leg, she was ice cold. As I turned corner after corner I realized I was going in circles, how was this possible; I could feel my anxiety return as I put more pressure on the accelerator. No matter where I turned I was just going in circles, I looked up at the welcoming sign to our community I chased after it hoping that it would lead me to the exit, but no matter how much I drove it remained the same distance.
 
-  
-We have being driving for hours, it seems like we're stuck here, no where to go; perhaps the H.O.A has to give us permission to leave. I finally park to the side of the road exhausted, dry blood encapsulating my face, I feel a bit faint. Emma is passed out next to me, she still feels cold and all I can do is sob as I stare up at the welcoming sign, it reading  
-"Welcome to Ginger Hills".
+We have being driving for hours, it seems like we're stuck here, no where to go; perhaps the H.O.A has to give us permission to leave. I finally park to the side of the road exhausted, dry blood encapsulating my face, I feel a bit faint. Emma is passed out next to me, she still feels cold and all I can do is sob as I stare up at the welcoming sign, it reading "Welcome to Ginger Hills".
