@@ -1,4 +1,4 @@
-Hello, I'm Kyle Brent. You may or may not know me, but i'm a psychologist and I make a comfortable living. I'm 22 and things are looking up for me...or so I thought.
+Hello, I'm Kyle Brent. You may or may not know me, but i'm a psychologist and I make a comfortable living. I'm 32 and things are looking up for me...or so I thought.
 
 This whole thing started about a month ago...
 
