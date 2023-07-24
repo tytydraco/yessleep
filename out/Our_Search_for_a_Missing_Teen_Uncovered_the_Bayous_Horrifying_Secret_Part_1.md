@@ -56,7 +56,7 @@ A few minutes later, an email notification pinged on my phone. I quickly opened 
 
 I took a deep breath, pressing further. "You mentioned that you don't believe Gabrielle ran away. Can you tell us why you believe that?"
 
-"Because..." She hesitated, sniffled, then continued in a stronger tone, "Two days after she went missin’, I received a voicemail from Gabby. She... she sounded scared. I could hear her crying. I... I'll forward it to you.”
+"Because..." She hesitated, sniffled, then continued in a stronger tone, "A week after she went missin’, I received a voicemail from Gabby. She... she sounded scared. I could hear her crying. I... I'll forward it to you.”
 
 A moment later, another email pinged on my phone. It was an audio file, just 18 seconds long. Asher moved closer, his chair screeching on the hardwood floor, as I hit play.
 
@@ -230,7 +230,7 @@ From the corner of my eye, I could see Ash’s barely concealed frustration as h
 
 The comment caught me off-guard. "Share?" I asked, incredulous. "Isn't that Gabby's personal laptop?"
 
-Therese shook her head, her eyes downcast. "No, it's the family laptop. We can't really afford more than one. Gabby’s the one who really uses it though. I mostly just use it to check email."
+Therese shook her head, her eyes downcast. "No, it's the family laptop. We can't really afford more than one. Gabby’s the one who really uses it though. I mostly just use it to my check email."
 
 I glanced at Therese, surprised. “And she’s okay with that? Most teenagers I know keep their laptops like Fort Knox."
 
