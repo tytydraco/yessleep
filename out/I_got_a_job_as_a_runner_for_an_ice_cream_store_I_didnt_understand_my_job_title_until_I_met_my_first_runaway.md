@@ -340,7 +340,7 @@ I found myself dancing around the kitchen, sidestepping to the radio.
 
 Until I glimpsed someone’s notes on the counter in front of the register. At first glance, it seemed like basic information. Looking closer, however, strawberry slime inched its way back up my throat, filling my mouth. I felt my body tense up, and before what I was reading could fully register, my legs gave way. 
 
-I found myself staring at names. Above me the lights flashed on and then off, the spatula I was using to scoop ice cream, flying off of the counter and slamming into the wall. 
+I found myself staring at names. Above me the lights flashed on and then off, the scooper I was using to scoop ice cream, flying off of the counter and slamming into the wall. 
 
 Not just names.
 
