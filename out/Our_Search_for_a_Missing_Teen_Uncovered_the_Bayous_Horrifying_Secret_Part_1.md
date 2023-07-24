@@ -22,7 +22,7 @@ Our elderly neighbor, Mrs. Dorsey’s tabby cat had gone missing, and she had as
 
 "But yes, I suppose that was our one good deed of the week," I giggled.
 
-Our light-hearted moment was interrupted when Abby, our young secretary, poked her head into the office. The urgency in her wide, hazel eyes was a contrast to her usual composed demeanor. 
+Our light-hearted moment was interrupted when Abby, our young secretary, poked her head into the office. The urgency in her wide, hazel eyes was a contrast to her usual composed demeanor.
 
 "Reine, there's a woman on the line. A Therese LeBlanc from Cameron Parish. She... she sounds distraught. I think you should handle this one."
 
@@ -250,7 +250,7 @@ I surveyed the room more thoroughly, looking for anything else that might provid
 
 My gaze fell to the floor, noticing the edges of an oddly placed rug. Kneeling down, I found a subtle indention that marked the outline of a small, square compartment. I pushed the rug aside and gingerly worked my fingers into the indentation. With a soft click, a concealed latch sprang open, lifting a section of the wooden floor to reveal a hidden space.
 
-Inside, there was a shoe box, which I carefully lifted out. It was surprisingly heavy for its size. Opening the box, I discovered an envelope of money — nearly a thousand dollars in cash. I was taken aback. What could a teenager need with such an amount?
+Inside, there was a shoe box, which I carefully lifted out. It was surprisingly heavy for its size. Opening the box, I discovered an envelope full of money — nearly a thousand dollars in cash. I was taken aback. What could a teenager need with such an amount?
 
 Digging further, I pulled out a name tag. "La Bête du Bayou," it read, the words elegantly scripted on the small piece of plastic. The Beast of the Bayou? An employee tag? From where? A bar, a restaurant, a shop? My mind was reeling with possibilities.
 
@@ -264,7 +264,7 @@ One image in particular made my blood run cold. It was a self-portrait of Gabby,
 
 "This isn't just a girl running away," he murmured, standing next to me, running his fingers lightly over the rough lines of the sketch. "Something... Something else is going on."
 
-Therese, who had been quietly watching from the doorframe, took a step into the room. "What's that?" she asked, her gaze falling on the sketchbook. I held it open for her to see, and her face paled.
+Therese, who had been quietly watching from the doorframe, took a step into the room. "What's dat?" she asked, her gaze falling on the sketchbook. I held it open for her to see, and her face paled.
 
 "Mon Dieu... She nevah showed me these," Therese muttered, her hand reaching out to touch the paper gently. "Oh, Gabrielle..."
 
