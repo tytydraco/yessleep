@@ -16,7 +16,7 @@ His short, black hair was starting to show the first signs of silver around the 
 
 He chuckled, a low, warm rumble that echoed in our small, hole-in-the-wall office. "Hey, did you forget about last week? We rescued Mrs. Dorsey's cat. What was his name... Sir Fluffington? We’re heroes!"
 
-“Ah, right, the Case of the Feline Fugitive,” I laughed, shaking my head at the ridiculousness of the incident. 
+“Ah, right, the Case of the Feline Fugitive,” I laughed, shaking my head at the ridiculousness of the incident.
 
 It wasn’t really a case. Our elderly neighbor, Mrs. Dorsey’s tabby cat had gone missing, and she had asked us to help find him. As it turned out, Sir Fluffington had trapped himself inside her pantry, amidst cans of tuna and bags of dried kibble.
 
@@ -56,7 +56,7 @@ A few minutes later, an email notification pinged on my phone. I quickly opened 
 
 I took a deep breath, pressing further. "You mentioned that you don't believe Gabrielle ran away. Can you tell us why you believe that?"
 
-"Because..." She hesitated, sniffled, then continued in a stronger tone, "A week after she went missin’, I received a voicemail from Gabby. She... she sounded scared. I could hear her crying. I... I'll forward it to you.”
+"Because..." She hesitated, sniffled, then continued in a stronger tone, "A week after she went missin’, I received a voicemail from Gabby. She sounded scared. I could hear her crying. I... I'll forward it to you.”
 
 A moment later, another email pinged on my phone. It was an audio file, just 18 seconds long. Asher moved closer, his chair screeching on the hardwood floor, as I hit play.
 
