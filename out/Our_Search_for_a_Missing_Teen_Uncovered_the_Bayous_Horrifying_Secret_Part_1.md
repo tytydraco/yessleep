@@ -22,7 +22,9 @@ Our elderly neighbor, Mrs. Dorsey’s tabby cat had gone missing, and she had as
 
 "But yes, I suppose that was our one good deed of the week," I giggled.
 
-Our light-hearted moment was interrupted when Abby, our young secretary, poked her head into the office. The urgency in her wide, hazel eyes was a contrast to her usual composed demeanor. "Reine, there's a woman on the line. A Therese LeBlanc from Cameron Parish. She... she sounds distraught. I think you should handle this one."
+Our light-hearted moment was interrupted when Abby, our young secretary, poked her head into the office. The urgency in her wide, hazel eyes was a contrast to her usual composed demeanor. 
+
+"Reine, there's a woman on the line. A Therese LeBlanc from Cameron Parish. She... she sounds distraught. I think you should handle this one."
 
 I shot a glance at Asher, eyebrows furrowed. Cases from outside the city were rare, especially as far away as Cameron.
 
@@ -106,7 +108,9 @@ As we ended the call, I felt a chill settle over the room. Outside, the sun was 
 
 I turned to Asher, determination steeling my voice. "Let's get to work."
 
-—Asher and I spent the evening poring over the details that Therese had sent us. We sipped on cups of lukewarm coffee, our dining table transformed into a makeshift war-room, littered with photos, printouts of text conversations between Gabby and her mother, and screenshots of her social media activity. It was like trying to piece together a jigsaw puzzle without having any idea of what the final image should look like.
+—
+
+Asher and I spent the evening poring over the details that Therese had sent us. We sipped on cups of lukewarm coffee, our dining table transformed into a makeshift war-room, littered with photos, printouts of text conversations between Gabby and her mother, and screenshots of her social media activity. It was like trying to piece together a jigsaw puzzle without having any idea of what the final image should look like.
 
 Gabby seemed like an ordinary teenager - family photos, selfies with friends, chats about school, and weekend plans. We scrutinized each detail, looking for any clue, any hint that could lead us to her. The texts revealed nothing unusual. There were no heated arguments, no mention of a new boyfriend, or signs of a secret life. On social media, her posts were mundane and innocent. Just a regular teenager.
 
@@ -138,7 +142,9 @@ Ash must have sensed my unease, despite my best efforts to keep it hidden beneat
 
 “We’ll find her, Reine,” he promised, his voice carrying a note of firm determination.
 
-I nodded, unable to find my voice. His confidence was infectious, a beacon of hope in the face of the unknown. I let his words wash over me, a soothing balm to my rising apprehension.—
+I nodded, unable to find my voice. His confidence was infectious, a beacon of hope in the face of the unknown. I let his words wash over me, a soothing balm to my rising apprehension.
+
+—
 
 The four-hour drive through Cajun Country was an unbroken ribbon of looming cypress trees, endless marshland, and backwater towns, each with its own secrets lurking in the swamps. Thick clouds hovered overhead like an oppressive blanket, turning the normally vibrant landscape into a monotone painting. The car sliced through the humid air, creating a temporary path in the fog that always seemed to linger on the roads.
 
@@ -200,7 +206,7 @@ The question hung heavily in the air, charged with the unspoken fear of parents 
 
 "No, no... Gabby wouldn't run away. She just graduated high school, you know." She sighed, the sound heavy with weariness. "She was so excited about goin' to LSU. Got a full ride scholarship and everything. She loved this town, but she was ready to see the world, to make her mark."
 
-Therese's conviction echoed in the quiet room, painting a picture of a young girl full of dreams and ambitions, of a life yet to be lived. But a detective, I had learned to be cautious about accepting everything at face value.
+Therese's conviction echoed in the quiet room, painting a picture of a young girl full of dreams and ambitions, of a life yet to be lived. But as a detective, I had learned to be cautious about accepting everything at face value.
 
 My gaze met Ash's, his eyes echoing my own thoughts. We needed to delve deeper, to find any thread that might lead us to Gabrielle.
 
@@ -214,7 +220,9 @@ Gabrielle's room was a reflection of her personality, at once both typical of a 
 
 What struck me the most, however, was the missing violin. The empty stand stood like a gravestone, casting a long shadow in the afternoon light.
 
-"Her violin..." Therese began, her voice choked with emotion. "She'd never leave it behind."As I began sifting through the  room for any physical leads, Ash settled at her desk, firing up her laptop.
+"Her violin..." Therese began, her voice choked with emotion. "She'd never leave it behind."
+
+As I began sifting through the  room for any physical leads, Ash settled at her desk, firing up her laptop.
 
 From the corner of my eye, I could see Ash’s barely concealed frustration as he was unable to log in.Therese approached him, a small piece of paper clutched tightly in her hand. She handed it over, her eyes filled with a mix of concern and curiosity.
 
