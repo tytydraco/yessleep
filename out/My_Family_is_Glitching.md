@@ -19,3 +19,5 @@ There they were, standing in the yard, watching us leave. Their glitchy forms sm
 Who were they? Why did they look like me and my family? These questions tormented my thoughts, but the answers remained elusive. It was as if the glitch in reality had swallowed them whole, leaving behind only distorted replicas.
 
 To this day, I wonder if they still exist, if they continue to haunt the lives of unsuspecting souls. And if they do, I pray that no one else will have to experience the terror of the Family Void, a glitch in reality that consumes everything in its path. Did anyone have stories like mine? Gone through the same thing? That saw… Them?
+
+https://www.reddit.com/r/nosleep/comments/157w6sj/my_family_is_glitching_part_2/?utm_source=share&utm_medium=ios_app&utm_name=ioscss&utm_content=1&utm_term=1
