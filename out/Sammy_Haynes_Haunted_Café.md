@@ -4,7 +4,7 @@ In case you’re unfamiliar, Sammy Hayne’s is a restaurant chain heavily theme
 
 Sammy Hayne’s was started by its namesake, Samuel Hal Haynes, in the 1980s. Haynes had a strong affinity for Halloween and haunted attractions, and he worked to bring several to life during his storied career. His resume includes such events as Halloween Horror Nights at Universal Studios, Knott’s Scary Farm, countless small-scale local affairs, and even less frightening but still massive Halloween celebrations like Mickey’s Not-So-Scary Halloween Party at Magic Kingdom. Sammy had never been in the food industry, but according to his life philosophy, every home, business, or public facility could benefit from some spooky décor. He conceived and spearheaded what he simply called “The Haunted Café.” No one thought it would work, at least outside of the Halloween season, but it ended up being a hit. Sure, business is slower outside of the fall, but year-round, Sammy Hayne’s hosts thousands of guests, dazzling them with their macabre decorations and tempting them with their unique entrees.
 
-Ed was struggling in life when he proposed we take a cross-country trip to every Sammy Hayne’s in the country over the summer. He’d been let go of a high-paying job—his first job out of college, at that. After that, he spent time on rideshare apps and the like and even found some success as a YouTuber. However, the income from that channel began to slow before too long, and his subscriber count plateaued at around 10K. He’d been spending weeks frantically brainstorming surefire hits for videos, and he came upon vlogging during a summer-long road trip as an idea. The Haunted Café was something of a staple of his childhood (we used to have one here years ago that has since become some sort of temple for an obscure religion), and he decided on the final plan to visit them all, putting practically the rest of his money into the stunt, just certain it would pay off.
+Ed was struggling in life when he proposed we take a cross-country trip to every Sammy Hayne’s in the country over the summer. He’d been let go from a high-paying job—his first job out of college, at that. After that, he spent time on rideshare apps and the like and even found some success as a YouTuber. However, the income from that channel began to slow before too long, and his subscriber count plateaued at around 10K. He’d been spending weeks frantically brainstorming surefire hits for videos, and he came upon vlogging during a summer-long road trip as an idea. The Haunted Café was something of a staple of his childhood (we used to have one here years ago that has since become some sort of temple for an obscure religion), and he decided on the final plan to visit them all, putting practically the rest of his money into the stunt, just certain it would pay off.
 
 “I can’t do it alone, Teddy,” Ed told me. “No one’s going to want to watch some guy traveling across the country by himself. I’m gonna need someone to work off of, to keep things as interesting as possible, ya know?”
 
@@ -12,13 +12,13 @@ I was reluctant to join. I myself was going through struggles that couldn’t co
 
 We set out in Ed’s 2002 Ford Tacoma, the same one he drove in high school. Its reliability was questionable to say the least, but it added to the absurdity of the trip, and the absurdity, Ed maintained, was what would earn views.
 
-It took us seven hours of travel to get to our first Sammy Hayne’s. We left from our hometown of Chicago at 5:30 AM and arrived in Nashville, Tennessee at roughly half past noon, just in time for a haunted lunch. There were thirteen locations total in the U.S., with six of those located in Florida. The plan was we’d hit a few locations on the way down, the first one being in Nashville. Then, we’d proceed to knock out the Florida cluster before making our way back up the country. Our penultimate destination was to be Atlanta, Georgia. And then there were a handful of locations in neighboring states we didn’t get to.
+It took us seven hours of travel to get to our first Sammy Hayne’s. We left from our hometown of Chicago at 5:30 AM and arrived in Nashville, Tennessee at roughly half past noon, just in time for a haunted lunch. There were thirteen locations total in the U.S., with six of those located in Florida. The plan was we’d hit a few locations on the way down, the first one being in Nashville. Then, we’d proceed to knock out the Florida cluster before making our way back up the country. One of our final destinations was to be Atlanta, Georgia. And then there were a handful of locations in neighboring states we didn’t get to.
 
 Now, I’d never been to a Sammy Hayne’s before in my life, and the Nashville location would be my first impression. I have to say, it wasn’t that impressive, at least not at first. Upon walking in, you were greeted by the host, dressed in a plague doctor’s outfit. He didn’t speak. He just stood, towering over us, his beak seeming like it might peck our heads.
 
-“Two please!” said Ed brightly. He had both a bodycam strapped to him and a selfie stick and was busy catching shots of our macabre surroundings and his overtop reactions to them. The plague doctor nodded, and with a gloved hand, produced two menus from behind the tombstone-shaped host’s stand. He then led us to our table.
+“Two please!” said Ed brightly. He had both a bodycam strapped to him and a selfie stick and was busy catching shots of our macabre surroundings and his over-the-top reactions to them. The plague doctor nodded, and with a gloved hand, produced two menus from behind the tombstone-shaped host’s stand. He then led us to our table.
 
-Our table was in the shape of torture rack, and the booth we were in was upholstered to resemble the interior of a coffin. While Ed was busy vlogging away, I took in my surroundings. The ceiling was vaulted, like we were inside a Gothic cathedral, and covered in web, both cobwebs and spiderwebs by the looks of it. I could clearly make out very real, quite large spiders crawling around on some of them, which caused me to wince.
+Our table was in the shape of torture rack, and the booth we were in was upholstered to resemble the interior of a coffin. While Ed was busy vlogging away, I took in my surroundings. The ceiling was vaulted, like we were inside a Gothic cathedral, and covered in webs, both cobwebs and spiderwebs by the looks of it. I could clearly make out very real, quite large spiders crawling around on some of them, which caused me to wince.
 
 It was hard to make out much anything else. The only lighting in the place was from torches that lined the grimy stone walls. The health violations this place had to be committing! It was a wonder it was still open.
 
@@ -28,7 +28,7 @@ He seemed annoyed to be interrupted from his filming of the restaurant and his e
 
 “Yeah, all the time!” he told me.
 
-“That’s kinda weird,” I mumbled. There didn’t seem to be any families here. The cliental, sitting in booths similar to ours and stools bad of faux skeleton parts, all seemed like the kind of crowd you’d see at a dive bar. “Doesn’t look like a kid would…well…have a good time here, I guess you could say.”
+“That’s kinda weird,” I mumbled. There didn’t seem to be any families here. The cliental, sitting in booths similar to ours and stools made of faux skeleton parts, all seemed like the kind of crowd you’d see at a dive bar. “Doesn’t look like a kid would…well…have a good time here, I guess you could say.”
 
 At this, Ed’s face stretched into a mischievous grin. “Oh, just wait,” he laughed. “You haven’t seen the best part yet.”
 
@@ -38,15 +38,15 @@ A crash of thunder. I looked up to find the ceiling illuminated with strobe ligh
 
 Ed didn’t tell me, still stuck in a fit of giggles. After a moment, he said, “That was Sammy’s spooky storm. Happens every twenty minutes.”
 
-I stared at him dumbly. “Is that just…is that just something that happens at this location?”
+I stared at him dumbly. “Is that just…is that just something that happens at *this* location?”
 
-With a shit-eating grin, Ed shook his head slowly. He then aimed his phone at me to get my reaction to this news. Every twenty minutes? Twenty locations? Eight weeks?
+With a shit-eating grin, Ed shook his head slowly. He then aimed his phone at me to get my reaction to this news. Every twenty minutes? *Thirteen* locations? *Eight weeks?*
 
 “Boooooooooooo! Mwah ha ha ha ha!”
 
-It was our server. He was draped in a bed sheet with holes cut out for his eyes. How classic. Glancing here and there, I noted that all of the waitstaff were dressed in corny Halloween costumes: Lugosian Dracula’s, Hamiltonian witches, Karloffian Frankenstein’s monsters, and the stay ghost or werewolf or zombie.
+It was our server. He was draped in a bed sheet with holes cut out for his eyes. How classic. Glancing here and there, I noted that all of the waitstaff were dressed in corny Halloween costumes: Lugosian Dracula’s, Hamiltonian witches, Karloffian Frankenstein’s monsters, and the stray ghost or werewolf or zombie.
 
-“My name is Larry, and I’ll be…taking care of you today!” He erupted into a fit of maniacal cackling and produced a dagger from under his sheet. I leaned back while Ed leaned forward with his cameras. Larry promptly produced a pad of paper and tapped it with the butt of the dagger. He began scribbling. Goddammit. It was a fucking pen. “Now what can I get for you two ghoulish goblins?”
+“My name is Larry, and I’ll be…*taking care of you* today!” He erupted into a fit of maniacal cackling and produced a dagger from under his sheet. I leaned back while Ed leaned forward with his cameras. Larry promptly produced a pad of paper and tapped it with the butt of the dagger. He began scribbling. It was a fucking pen. “Now what can I get for you two ghoulish goblins?”
 
 I realized I hadn’t touched the menu, which had a velvety cover and was shaped like a coffin. But I didn’t want to cause any delay in leaving this place, so I told Ed, “Why don’t you order for me?”
 
@@ -74,9 +74,9 @@ I fidgeted. I glanced over at the place next to me where the clown had popped up
 
 Ed frowned at me. He dislodged his phone from the selfie stick and turned off his body cam. “I hope you’re not going to be like this the whole trip,” he said, more concerned than annoyed.
 
-I relaxed a little. I certainly hoped I wouldn’t be like this the whole trip either. I forced a small smile. “I think it’s kinda weird but maybe it’ll grow on me.”
+I relaxed a little. I certainly hoped I wouldn’t be like this the whole trip either. I forced a small smile. “I think this place is kinda weird but maybe it’ll grow on me.”
 
-Ed seemed pleased to hear me say this. I didn’t mean it at all, but I didn’t want to be miserable on this trip. This was, after all, only our first stop, with twenty-one more stops and thousands of miles of traveling to go. I needed to find a way to enjoy myself. But I couldn’t think of one. All I knew at that moment was I wanted to avoid another one of those stupid “spooky storms,” or whatever.
+Ed seemed pleased to hear me say this. I didn’t mean it at all, but I didn’t want to be miserable on this trip. This was, after all, only our first stop, with twelve more stops and thousands of miles of traveling to go. I needed to find a way to enjoy myself. But I couldn’t think of one. All I knew at that moment was I wanted to avoid another one of those stupid “spooky storms,” or whatever.
 
 “I think I’ll go wash my hands,” I said.
 
@@ -88,7 +88,7 @@ Weird, I thought. But I had to press on, determined to get a break from the next
 
 Eventually, I came upon two identical doors, standing adjacent to one another. They were featureless and painted a deep crimson color. I took them to be a pair of bathrooms, but there was no sign announcing so, nor even any signs designating which was the men’s and which was the women’s. At the end of my rope, I simply chose the door on the left and pushed through it.
 
-I found myself blinking rapidly from my eyes being hit with a bright light. I wasn’t in the bathroom. That much was obvious. From the looks of it, I was in the kitchen. Almost immediately, all eyes were on me. But the odd thing was everyone acted as if it were perfectly normal that I was there. The cooks simply went on with what they were doing. Many of them were dressed in white coats, but not the kind associated with cooks and chefs. Rather, it seemed like they were wearing doctor’s coats—coats that were splattered with brown and red stains. They were wearing masks, but not facemasks like you’d expect for a doctor or even a cook in the post-Covid world. Rather, they had on the sorts of masks that you might find at a masquerade. Though most of the kitchen was spotless, the cooks’ stations were absolutely filthy. There were rusty, overflowing pots of thick, boiling green liquid on the stoves, and everyone was working with mounds of strange meat that they were dumping out of coffee cans and squeezing with their bare hands—hands that, on almost all of the cooks, were unusually hairy, almost like they belonged to chimps.
+I found myself blinking rapidly from my eyes being hit with a bright light. I wasn’t in the bathroom. That much was obvious. From the looks of it, I was in the kitchen. Almost immediately, all eyes were on me. But the odd thing was everyone acted as if it were perfectly normal that I was there. The cooks simply went on with what they were doing. Many of them were dressed in white coats, but not the kind associated with cooks and chefs. Rather, it seemed like they were wearing doctor’s coats—coats that were splattered with brown and red stains. They were wearing masks, but not facemasks like you’d expect from a doctor or even a cook in the post-Covid world. Rather, they had on the sorts of masks that you might find at a masquerade. Though most of the kitchen was spotless, the cooks’ stations were absolutely filthy. There were rusty, overflowing pots of thick, boiling green liquid on the stoves, and everyone was working with mounds of strange meat that they were dumping out of coffee cans and squeezing with their bare hands—hands that, on almost all of the cooks, were unusually hairy, almost like they belonged to chimps.
 
 I stood there, dumbstruck. We weren’t continuing this trip. How this dump had slipped by the health department I didn’t know, but I wasn’t about to get sick eating their gross food made with ingredients that were well past their expiration date, if the kitchen’s pungent smell was anything to go by. I made to leave, but as I was on the way out, I was stopped in my tracks by the shock of all noise, all activity in the kitchen stopping.
 
