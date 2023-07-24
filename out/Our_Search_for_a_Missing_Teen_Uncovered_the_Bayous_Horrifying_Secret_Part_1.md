@@ -212,7 +212,7 @@ My gaze met Ash's, his eyes echoing my own thoughts. We needed to delve deeper, 
 
 "Can we take a look at Gabby's room?" I asked, hoping it might provide some clues.
 
-Therese nodded, setting her mug aside and standing up. "Sure thing, Detective… Reine." She corrected herself with a little smile.
+Therese nodded, setting her mug aside and standing up. "Sure thing, Detective… I mean, Reine." She corrected herself with a little smile.
 
 Therese guided us up a narrow staircase, her hand gliding gently along the banister. The second floor was smaller, more intimate. Two doors stood opposite each other, one leading to what I assumed was Therese's bedroom, the other, marked by a laminated placard that read 'Gabby’s Sanctuary,’ led us to the girl’s personal space.
 
@@ -240,7 +240,7 @@ Simultaneously, I was going through Gabrielle's closet, thumbing through the ass
 
 "Therese," I called, holding up the sweater. "Do you have any pets?"
 
-Therese shook her head, her face pale. "Non, chère. I'm allergic to dander. We’ve never had pets."I bagged the sweater for further examination, the mystery of the strange fur adding another layer to our investigation.
+Therese shook her head, her face pale. "Non, chère. I'm allergic to dander. We’ve never had pets. "I bagged the sweater for further examination, the mystery of the strange fur adding another layer to our investigation.
 
 From the other side of the room, Ash looked up from the MacBook he had been examining. "Her search history's been wiped clean," he said, his brow furrowed in thought. "She didn't want us to see something."
 
