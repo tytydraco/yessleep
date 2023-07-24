@@ -16,9 +16,9 @@ His short, black hair was starting to show the first signs of silver around the 
 
 He chuckled, a low, warm rumble that echoed in our small, hole-in-the-wall office. "Hey, did you forget about last week? We rescued Mrs. Dorsey's cat. What was his name... Sir Fluffington? We’re heroes!"
 
-“Ah, right, the Case of the Feline Fugitive,” I laughed, shaking my head at the ridiculousness of the incident. It wasn’t really a case.
+“Ah, right, the Case of the Feline Fugitive,” I laughed, shaking my head at the ridiculousness of the incident. 
 
-Our elderly neighbor, Mrs. Dorsey’s tabby cat had gone missing, and she had asked us to help find him. As it turned out, Sir Fluffington had trapped himself inside her pantry, amidst cans of tuna and bags of dried kibble.
+It wasn’t really a case. Our elderly neighbor, Mrs. Dorsey’s tabby cat had gone missing, and she had asked us to help find him. As it turned out, Sir Fluffington had trapped himself inside her pantry, amidst cans of tuna and bags of dried kibble.
 
 "But yes, I suppose that was our one good deed of the week," I giggled.
 
@@ -112,7 +112,7 @@ I turned to Asher, determination steeling my voice. "Let's get to work."
 
 Asher and I spent the evening poring over the details that Therese had sent us. We sipped on cups of lukewarm coffee, our dining table transformed into a makeshift war-room, littered with photos, printouts of text conversations between Gabby and her mother, and screenshots of her social media activity. It was like trying to piece together a jigsaw puzzle without having any idea of what the final image should look like.
 
-Gabby seemed like an ordinary teenager - family photos, selfies with friends, chats about school, and weekend plans. We scrutinized each detail, looking for any clue, any hint that could lead us to her. The texts revealed nothing unusual. There were no heated arguments, no mention of a new boyfriend, or signs of a secret life. On social media, her posts were mundane and innocent. Just a regular teenager.
+The texts revealed nothing unusual. There were no heated arguments, no mention of a new boyfriend, or signs of a secret life. On social media, her posts were mundane and innocent - family photos, selfies with friends, chats about school, and weekend plans. We scrutinized each detail, looking for any clue, any hint that could lead us to her.
 
 There was nothing that hinted at a motive for Gabby to run away, no signs of struggle at home, no obvious signs of depression or anxiety. She was a regular teenager, on the cusp of adulthood, full of potential, her life ahead of her.
 
