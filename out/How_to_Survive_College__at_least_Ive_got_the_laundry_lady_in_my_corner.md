@@ -252,6 +252,10 @@ I think I know what allows the flickering man to kill someone.  He’s tried twi
 
 I’d been out in the rain long enough to be soaked through.
 
-He exists in the rain, after all.  And when you’re covered in the rainwater… only then does he have authority over you.[\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)  
-[Read the current draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)  
+He exists in the rain, after all.  And when you’re covered in the rainwater… only then does he have authority over you.[\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
+
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/157zyvq/how_to_survive_college_maria_isnt_allowed_to_make/)
+
+[Read the current draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
+
 [Visit the college's website.](https://alderrayne.com/)
