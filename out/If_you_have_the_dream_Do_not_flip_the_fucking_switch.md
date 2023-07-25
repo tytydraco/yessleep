@@ -35,4 +35,4 @@ When I came back from my dads that weekend. All of a sudden I felt no presence o
 
 Apparently my… we will call her “spiritually inclined” aunt had called my mom to make sure everything was alright. She had felt a disturbance of sorts. Here’s the thing with my auntie. You know how I believed my mother’s word was law? Well my aunt’s word was mothers bible. She had paid a visit after her and my mother witnessed something strange on our house cameras. At last I was free of this hell. 
 
-Then last week, 6 years later. I found her watching me shower.
+Then last week, 6 years later. I found the woman watching me shower.
