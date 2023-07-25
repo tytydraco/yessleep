@@ -140,7 +140,7 @@ With practiced ease, I checked the chamber, ensured the magazine was full, and t
 
 Ash must have sensed my unease, despite my best efforts to keep it hidden beneath my usually cool exterior. He looked at me, the worry lines etched across his forehead. Closing the trunk with a sharp click, he stepped towards me, his dark eyes searching mine for a moment before he reached out, taking my hand in his own. His touch was warm, grounding, a gentle reassurance amidst the uncertainty.
 
-“We’ll find her, Reine,” he promised, his voice carrying a note of firm determination.
+“You can do this, Reine,” he encouraged me, his voice carrying a note of firm determination.
 
 I nodded, unable to find my voice. His confidence was infectious, a beacon of hope in the face of the unknown. I let his words wash over me, a soothing balm to my rising apprehension.
 
