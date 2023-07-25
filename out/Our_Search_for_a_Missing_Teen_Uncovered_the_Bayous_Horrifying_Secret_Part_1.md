@@ -224,7 +224,7 @@ What struck me the most, however, was the missing violin. The empty stand stood 
 
 As I began sifting through the  room for any physical leads, Ash settled at her desk, firing up her laptop.
 
-From the corner of my eye, I could see Ash’s barely concealed frustration as he was unable to log in.Therese approached him, a small piece of paper clutched tightly in her hand. She handed it over, her eyes filled with a mix of concern and curiosity.
+From the corner of my eye, I could see Ash’s barely concealed frustration as he was unable to log in. Therese approached him, a small piece of paper clutched tightly in her hand. She handed it over, her eyes filled with a mix of concern and curiosity.
 
 "Try this," she suggested, "It's the password. We share the laptop."
 
