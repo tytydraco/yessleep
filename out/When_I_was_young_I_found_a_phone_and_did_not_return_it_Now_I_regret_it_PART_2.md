@@ -48,4 +48,4 @@ The next day, Mike came to school. He was distant, but so was Nathan. Could they
 
 &#x200B;
 
-Stay tuned for PART 3
+[PART 3](https://www.reddit.com/r/nosleep/comments/159mro0/when_i_was_young_i_found_a_phone_and_did_not/)
