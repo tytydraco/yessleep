@@ -322,7 +322,7 @@ There were some small jars and bottles lined up by the fireplace: *Garlic oil, o
 
 His right hand was charred, and missing chunks of flesh. Two of his fingers were stripped to the bone. Tears dampened his cheeks but he smiled, his lips and teeth smeared with deep red.
 
-"In hindsight I regret my actions. But I was the *best* thing I ever tasted."
+"In hindsight I regret my actions. But I was the *best* thing I ever [tasted."](https://www.reddit.com/message/compose/?to=UpdateMeBot&subject=Subscribe&message=SubscribeMe!%20%2Fr%2Fnosleep%20%2Fu%2Fdisco-dingus)
 
 [dd](https://www.reddit.com/user/disco-dingus/comments/10f0v6u/all_my_stories_compiled_into_one_sooperdooper_post/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 

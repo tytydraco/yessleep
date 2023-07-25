@@ -1,0 +1,53 @@
+   *The following is a transcript of the journal entries by Sergeant Major Wilson Boswell, a member of the expedition team to an uncharted island in the Atlantic Ocean. The journal was found aboard a makeshift raft made from planks and plastic jugs along with a collection of 15 dog tags in a small ziplock bag.*   
+  
+  
+**September 11, 1987**  
+   My name is Wilson Boswell, I am a Sergeant Major in the U.S Army. Today we received word that me and my squad are going on an expedition to the Atlantic Ocean. Something about an island. I’ve decided to start a journal to log all that we see, for some kind of record, you know? We’re leaving tomorrow.  
+  
+**September 15, 1987**  
+   We’ve been here for 3 days and 2 nights. The flora and fauna here are incredible! There’s bright pink flowers which have seeds that explode into bright, firework-like bursts of color. There’s mouse-like creatures with antlers that bark like dogs. Even the grass seems to turn towards us as if watching with curiosity. Our biologists, Carter and Annie, are baffled by all these discoveries. We’re all rearing to continue on and find more incredible things.  
+  
+**September 19, 1987**  
+   We’ve been walking through some pretty dense forest for the past day or so, but something strange happened last night. We set up camp and lit our campfire and lanterns, but then we heard something in the surrounding woods. It’s big, REALLY big, I can tell by the shuffling sounds it makes while moving. A bit unnerving, sure, but I’m not too worried. The biologists told me it's probably just some kind of nocturnal herbivore interested in our fire and lanterns. Makes a lot of sense when you think about it.  
+  
+**September 20, 1987**  
+   It’s morning now, and we’ve made an unnerving discovery. We reached a clearing of trees, about 30 feet across, but instead of there just being no trees, there were stumps, as if something big had walked through and sheared them all down. There seems to be a trail where the thing walked. My superiors are discussing whether or not to follow the trail and see what we find.  
+  
+**September 20, 1987 (Entry 2)**  
+   We’ve decided to follow the trail.  
+  
+**September 22, 1987**  
+   Holy shit! Yesterday, we found that thing, no, IT found US. We were walking along the path, when we realized that it had become a clearing with no paths out, a complete circle. Here we were, right smack in the middle of it, like the bullseye of a target. The silence was palpable, and you could almost feel the tension in the air.  
+   Then, it dashed out of the treeline, faster than any car I’ve ever seen. It was massive, easily 25-30 feet wide and at least 20 feet tall. It resembled a massive lizard, with green scales and massive jaws that could easily swallow a cow. But it also had a long, black mane like a horse, matted and tangled with branches, leaves and… bones, fucking BONES! Most of the skin on its face was gone, seemingly peeled away by a lifetime of fighting for survival. The yellowed teeth smiled at us, a complete contradiction to the shining white skull that glinted in the daylight.  
+   It was clearly hellbent on killing us, so we opened fire on the damn thing. Our bullets did nothing, though. I swear, I could SEE them bouncing off the hide of the creature and falling into the dirt. As it closed the distance between us, our commander, Hitch, called for a retreat into the tree-line. We began to sprint towards the towering plants, the rumbling of the beast behind us growing ever-closer.   
+   Just as we were about to make it, I heard a chomp, the crack of bones, and a scream that was cut too short. I turned to see it lifting Tommy, one of our soldiers, away. His legs hung limply from the beast’s jaws, his rifle lay on the ground, splattered with his blood. One of his boots fell off a lifeless foot. Knowing that he kept one of his dog tags in his boot, I ran over and retrieved it. I’ll be damned if I let the world forget him.  
+   While it was distracted, the rest of us managed to make it into the treeline. After it got done with Tommy, the thing looked around, searching for the rest of us. When it didn’t find anything, it stood for a moment, then lumbered away.   
+   We need to get the hell off this island, if something like that was able to evolve here, I can only imagine the other horrors that await us.  
+  
+**September 29, 1987**  
+   I don’t understand, why haven’t we retreated back to the mainland? Do we know too much? Does command just not give a damn about us? Either way, we need to find a way off this God-forsaken island soon. My collection of my comrades’ dog tags has risen to 6, despite all the gear in my pack, they’re the heaviest things I carry.  
+   We lost 3 people to another abomination of the island. This one resided in the dense woods that cover the whole island. 2 days after our run-in with the “Ugly Ass Dinosaur,” as my friend Barrett called it, we were still trekking through the dense trees. Our nerves were still on edge, and we were all just about ready to shoot anything that moved.  
+   Suddenly, a scream echoed through the silence, along with the desperate fire of a rifle. We all turned to see Mary, one of the newest members of the team, being dragged through the underbrush, her clothes catching and tearing on the bushes. Having lost grip of her rifle, she had drawn her pistol and was firing at her feet. No, at whatever had a hold of her feet. It was a furry brown creature about the size of a labrador. But the damn thing was so fast I couldn’t make anything else about it.  
+   My heart was racing, I raised my gun to help Mary, but stopped. If I tried to shoot at the thing dragging her, I’d just end up killing my own comrade. As I was thinking over my conflictions, I heard 2 more screams, and more bullets fired. Two more of us, Autumn and Gerard, were being dragged away just like Mary. They screamed in pain and fear, which just riled the things up even more.   
+   Before I knew it, my comrades were gone, with the only clue of their existence being their packs and shreds of clothing on the underbrush. We all started to look around to see what we could find. While everyone else began to ration the ammo and food, I was searching among the brush for more tags. Luckily, the glint of 3 chains met my eyes.  
+   I don’t know what we’re gonna do from here. We don’t know what the fuck else is on this island, or what they can do.  
+  
+**October 13, 1987**  
+   There’s only 4 of us left. Everyone else is dead. Why? Why has God allowed these things to exist? Is this some kind of penance for our sins? Is this a reckoning?   
+   We lost 4 people in the swamps yesterday, pulled under the water by some kind of tendrils, all their gear floating to the surface. We could have sworn they were just reeds. They were so still. What kind of creature can keep that still?  
+   We lost 2 more to some kind of birds. They swarmed our biologists. Annie was devoured within 30 seconds. Carter was carried up at least half a mile up, and dropped. He screamed as he fell through the air. The sound he made when he hit the ground was sickening. After he died, the birds picked him apart, paying me and the others no mind.  
+   Our other 3 comrades, one of which was Hitch, were killed by an infection. They had all been injured at some point and must not have cleaned the wounds properly. Their skin turned yellowish green with cysts appearing all over their bodies. They suffered until their last moments, where even then, they had no peace. Have you ever seen a picture of the cordecepts cordiceps cordyceps fungus? The shit that grew out of my comrades, my FRIENDS, looked exactly like it.  
+   We’re all huddled in a small cave right now, me, Barrett, and another soldier named Kimberly, we’re thinking of a plan to escape this damned island.  
+  
+**October 13, 1987 (Entry 2)**  
+   A raft. That’s our plan. A raft. We’re gonna fill plastic jugs with air and tie them to some wood. Good thing we keep rope in our packs, right? If this raft plan doesn’t work, we have another way to escape.  
+  
+**October 15?, 1987**  
+   I’m all that’s left. Barrett and Kimberly are gone, all I have to remember them are their dog tags. The raft worked, at least. We spent about an hour making the thing. We carried it down to the beach, and we were about to launch off, but then all hell broke loose. We were walking down the beach in silence, passing these strange, cone-shaped pits in the sand. You could feel the excitement of getting off this island in the air. But then, the sand at Barrett’s feet flew up, and he was just… gone, his pack and hat laying on the ground.   
+   Me and Kimberly looked at where Barrett was standing, the only evidence of what happened being a small disturbance in the sand. I grabbed his pack and we started running with the raft. We got down to the shoreline and threw the raft in. I climbed on and reached out for Kimberly’s hand. Just as she attempted a jump to the raft, something grabbed her foot.  
+   It looked like some kind of massive insect, with vice grip jaws. It crushed her foot like an eggshell. She screamed in pain and tried to grab my hand as the waves pulled me out to sea. But the thing pulled her towards it, yanking her back. Instead of grabbing her hand, I managed to grab the chain around her neck, and prayed to every god I could imagine that I would hold.   
+   But the thin metal chain had no chance against the strength of the creature. The chain snapped, and Kimberly fell back onto the shore. Then, more sand flew up, but this time, I saw her get pulled under the sand. Before she went under, our eyes met, and the look in her eyes was one of pure terror. Then, she was gone, just like Barrett.  
+   I spent a while sobbing on the raft, before falling asleep for God knows how long. But I woke up with a sunburn, so it must have been a while.  
+  
+**October 16?, 1987**  
+   There’s something in the water. I don’t know what it is, but it’s MASSIVE. I think it has some kind of tentacles though, I can see them trailing behind it. I’m worried, what if the damn thing is following me? I suspect that this may be my last entry. To whoever finds this journal, don’t let ANYBODY go on that damn island. There are some parts of the world that are left untouched, parts of the world forsaken by God. It’s best we don’t see why.

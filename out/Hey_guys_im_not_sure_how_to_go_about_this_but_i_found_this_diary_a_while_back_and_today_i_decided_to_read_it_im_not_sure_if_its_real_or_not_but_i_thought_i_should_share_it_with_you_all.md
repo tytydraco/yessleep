@@ -1,0 +1,20 @@
+September 24th, 2019-8:36pm
+Today marks the first day of our camping trip. My friends and I have been planning this for months, and we were finally able to find a suitable spot deep in the woods. We arrived at our campsite just as the sun was beginning to set. We set up our tents and gathered around the campfire. The night was filled with laughter and good times.
+
+September 25th, 2019- 3:27pm
+The second day of our camping trip was when things started to get strange. It began with strange noises outside of our tents, and every time we looked, there was nothing there. We all tried to brush it off as just our imagination, but deep down, we all knew something was off.
+
+10:47pm
+Later that night, as we sat around the campfire, we heard a blood-curdling scream coming from the woods. We immediately grabbed our flashlights and went to investigate. As we made our way deeper into the woods, the screams grew louder, and the feeling of unease grew stronger. Suddenly, we heard a rustling in the bushes, and we all froze. That's when we saw it. Standing in front of us was a creature unlike anything we had ever seen before. It was tall and thin with matted fur covering its body. Its eyes glowed a menacing yellow, and its teeth were razor-sharp. We all stood in shock and fear, unsure of what to do. That's when it started to change.
+
+The creature started to contort and shift, its fur falling off its body as it transformed into a human-like figure. It was a skinwalker. We had heard stories of these creatures before, but we never believed they were real. Now we knew the truth, and it was terrifying. The skinwalker didn't speak, but it didn't need to. Its presence alone was enough to send chills down our spines. We tried to run, but it was too fast, and soon it caught up to us. We tried to fight, but our weapons were useless against it. The skinwalker was too powerful.
+
+3:34am
+As the night wore on, the skinwalker began to toy with us. It would appear out of nowhere, causing us to jump in fear. It would mimic our voices, making it impossible to tell who was who. We were all on edge, and it was getting harder and harder to keep our sanity.
+
+October 1st,2019- 11:17pm
+Days turned into nights, and the skinwalker never left us alone. It would always be there, lurking in the shadows, waiting for its next victim. We tried to leave the woods, but it was like we were trapped. The skinwalker seemed to have a hold on us, and there was no escaping its grasp. We had been out in the woods for a week when the skinwalker finally made its move. It attacked us in our sleep, dragging us out of our tents and into the woods. My friends screamed as they were taken, one by one. I tried to fight, but it was no use. The skinwalker was too strong. I was the last one left, and I knew it was only a matter of time before the skinwalker would come for me. I sat there, huddled in the darkness, waiting for the end to come. I knew I was going to die.
+
+Suddenly, I heard a voice calling out to me. It was one of my friends, the one who had been taken just hours before. He was covered in scratches and bruises, but he was alive. He had managed to escape from the skinwalker's grasp, and he had come back to save me. We ran through the woods, dodging trees and jumping over rocks. I could hear the skinwalker's footsteps behind us, and I knew it was gaining on us. But my friend never looked back, and I trusted him.
+
+Finally, we burst out of the woods and into an open field. We collapsed onto the ground, gasping for air. That's when I saw it. My friend's eyes were glowing the same menacing yellow as the skinwalker's. He smiled at me, revealing the razor-sharp bloody teeth that had been terrorizing me for what felt like an eternity. his breath was foul, as if i was sniffing into a diaper-filled dumpster. I ran as far away as i could, and he didn’t even move. He just watched me run, as if it was some sick game to him. I am writing this as fast as i can but, im starting to pick up that, eerily, disgusting smell again. To anyone who is reading this, IF anyone is even reading this, Don’t come for me.

@@ -1,37 +1,27 @@
+It was a stormy evening, the rain falling in heavy sheets, the wind howling like a chorus of lost souls. I sat alone in my dimly lit living room, cradling a glass of whiskey, its amber liquid casting a warm glow in contrast to the tempest outside. The sound of raindrops drumming against the windows provided a haunting soundtrack to my solitary evening.
 
+Suddenly, a knock at the door shattered the rhythmic pattern of the rain, the sound jarring and unnerving. Cautiously, I approached the door, curiosity mingling with a growing sense of unease. Who could possibly be out in weather like this? I peered through the peephole, and my heart caught in my throat.
 
+Standing on my porch were two children, a boy and a girl, their bodies unnaturally still, as if they were mannequins brought to life. Their faces were devoid of emotion, pale and lifeless under the flickering porch light. Their clothing appeared outdated, as if they were lost travelers from a bygone era.
 
-I’m currently writing this in my parents home, before my inevitable death, and I wanted to tell you what the hell is going on in hopes someone on here will believe me.
+"We need to use your phone," the boy said, his voice unnervingly calm and steady. "Please let us in."
 
-For background, I live in a suburban neighborhood where nothing typically happens. Up until about 3 days ago when this all started. My wife woke me up at around 2:30 in the morning saying “honey, our kids are outside.”
-Now, I knew that would be strange, but I decided to humor her and look out the window. Sure enough, right in the middle of the street we’re my 2 kids. I immediately ran into my kids room, just to find them fast asleep.
+My gaze was drawn to their eyes – pitch black orbs that seemed to swallow the light around them, void of emotion and humanity.
 
-So what the hell are those things outside?
+My instincts screamed at me to shut the door, to lock it and retreat from the unspeakable darkness that stood before me. But something in their gaze held me captive, as if invisible tendrils were wrapping around my limbs, rendering me motionless. Their voices echoed in my head, whispers that quickly turned into an overwhelming cacophony.
 
-I grabbed some binoculars and looked out the window again. They were still in the same place, just staring at the house, unmoving. As I got a better look at whatever these things are that are trying to look like my kids, I noticed that their mouths were larger than normal, almost like they were stretched out. And their eyes, they looked as if they had a white glaze over them.
+"Let us in. We won't harm you. We promise."
 
-Then they looked right at the window, and opened their mouths into a wide, unhumanly grin. 
+Unable to resist the invisible force that held me, I slowly unlocked the door, my hands trembling with fear. As the door creaked open, the storm outside seemed to intensify, as if nature itself was protesting my decision. The children stepped inside, their eyes never leaving mine, and a wave of dread washed over me, settling like ice in my veins.
 
-“Shit” I yelled. As they started to move closer to the house. I asked my wife “what should we do?” But as I turned around to see her, she opened her mouth into a large grin, and I noticed her eyes. Glazed white.
+Over the next few days, my life spiraled into a waking nightmare. The children never left my side, their black eyes and emotionless expressions haunting my every waking moment. Nightmares plagued my sleep, vivid visions of unspeakable horrors that left me drenched in sweat and gasping for breath.
 
-“SHIT!” I Screamed. As the creature ran toward my kids room. All I heard were screams and blood splatters before I ran out the back door of my home, rammed the keys into my car, and drove down to my friends house, way out of town.
+My friends and family abandoned me, unable to comprehend the torment I was experiencing. They claimed I was delusional, that there were no children in my home. But I knew the truth. I could see them, always watching, always waiting.
 
-I arrived at my friends house and told him what had happened. He looked at me like I was fucking crazy. “I know it’s outlandish, but I wouldn’t lie to you, can I stay here for a couple of days?” My friend agreed to let me stay, and the 2 days after that were going good, things felt somewhat normal finally.
+The whispers in my head grew louder, more insistent, their words echoing like the tolling of a funeral bell. The children seemed to be feeding off my fear, their presence growing stronger with each passing day. My sanity slipped away like sand through my fingers, the line between reality and nightmare blurring beyond recognition.
 
-Until about a few hours before I wound up in this shed.
+In the end, I knew there was only one way to escape their relentless grasp. I stood on the edge of the bridge, the frigid waters below offering the dark embrace of oblivion. The children were there, their black eyes watching me intently, their voices still reverberating in my mind.
 
-Me and my friend were sitting on his front porch, looking at the lake in front of his house, when all of a sudden he became still. Almost like he was in a trance. Then I saw them by the lake.
+As I closed my eyes and stepped off the edge, I felt a fleeting moment of relief. The whispers faded, and the crushing weight of their presence lifted. But in my final moments, I couldn't help but wonder if my surrender was exactly what they had wanted all along.
 
-My Wife and my kids, with glazed white eyes and inhuman smiles, standing perfectly still, looking ready to kill
-
-With no hesitation, I ran into my friends backyard and into his shed. I dead-bolted it and thought “how the fuck did they find me?” I didn’t have time for much thinking, because just then I heard a knock on the shed door.
-
-“Let us in Daddy. We won’t hurt you. We love you”
-
-I knew damn well I wasn’t opening that fucking door without a fight. I picked up the chainsaw in my friends shed and fired it up. I tore the door open and to my surprise, there was no body there.
-
-“What the hell?” “They were here, I heard them!”
-  
-Then I saw them emerge out of the woods, still smiling, still looking to kill. I rushed toward them and killed them with the chainsaw. I had no other choice. Those weren’t my wife and kids.
-
-A couple of months past after the incident, and I was living back with my parents, since my friend had gone missing, and presumed dead. Then I got a knock on the door while I was home alone. I opened the door to see my friend. Except his eyes were closed. I tapped him on the shoulder and his eyes opened to reveal glazed white eyes. As a inhuman grin spread across his face, I knew I couldn’t get out of this one.
+As I fell into the icy depths below, the last thing I saw were their eyes, two pools of darkness that followed me into the void. Their inescapable gaze would be the last thing I ever saw, a haunting image that would haunt me until the end of time.

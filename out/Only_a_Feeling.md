@@ -1,0 +1,31 @@
+I’ve always been clumsy. As a child my legs were decorated by a technicolour masterpiece of bruises and it’s never been unusual for me to spot a cut on the back of my hand or a graze on my elbow and not have the slightest clue where it came from. I think that’s why it took me so long to realise that something wasn’t right. I don’t how long I’d been tripping up over nothing or taking strange routes around my house without thinking anything strange was happening. It wasn’t even like I was the first to notice it.
+
+I was a nanny, back then. The family I worked for had two nanny cams in their house (one in the living room and one in the child’s bedroom) which I was fully aware of and understood completely. Until last December they said they’d never had any reason to check them but when Alex hit her head whilst playing they just wanted to watch exactly what happened for their own piece of mind. I knew I’d done nothing wrong and that the incident had been sadly unavoidable so I was surprised and alarmed when I was asked to come in “for a quick chat” about the tape.
+
+Alex’s mum was a kind but highly strung woman called Rose. She made me tea when I got to the house which made me think that I couldn’t be in that much trouble but she looked incredibly nervous.
+
+“Can I show you?” she asked, gesturing to her laptop.
+
+I nodded and she pressed play at a video that she’d already set up at the correct timestamp. A time which I almost instantly realised was *after* Alex had hit her head.
+
+“Do you know what you did there?” Rose asked.
+
+I did, but I had no particular explanation for it. I started to walk out of the room but jolted as though I’d jammed my toe against something that the camera couldn’t see and then gave this patch of empty carpet a wide berth as I left.  
+
+“There’s nothing there for you to trip up on.” Rose said, “I just didn’t know if this was a sort of balance problem or something. Maybe it’s none of my business. But when I started having problems with my hearing it took months for me to realise and then I looked back at all these strange little things I’d done because of it or to compensate. You should get it checked out.”
+
+I agreed to and left, a little put out. I knew that Rose was unlikely to let me watch the child until I’d gotten these potentially non-existent balance problems seen to. She wouldn’t want to risk me tumbling over for no reason whilst responsible for her child after all. I booked a doctor’s appointment and waited.
+
+I noticed a second episode of whatever was wrong with me before I’d even seen the doctor though. My shoulder brushed against something and although my instinct was merely to lean to the left to avoid it, I caught myself partway through. I raised my right hand to confirm that there was nothing there in the empty air in front of me but it didn’t give me the result I wanted. Instead of confirming the reality that my eyes were feeding me, I felt rough bark pressed against my fingertips. I pushed hard and my fingers sailed on through it but once I brought them to the same space again, the process repeated itself.
+
+Never google your symptoms. This common knowledge is probably almost as widespread as google itself at this point as well as being the mantra of exasperated health professionals everywhere but guess what? I googled what it means when you can feel sensations that aren’t really there. Schizophrenia. Psychosis. Cancer, because it’s always cancer. Some skin conditions showed up but they were much further down the list than these life-altering options and given that the part of my skin that had felt these sensations had no kind of rash or discolouration they didn’t apply to me anyway.
+
+The doctor did some tests but the results weren’t instant and whilst I waited and waited, incidents kept adding up. It seemed like the more I noticed these sensations, the more I came across new ones. My ankles were scratched by something that felt sharp and clingy like a vine of thorns but when I looked down to see if I was bleeding I realised that there wasn’t a mark at all. The feelings from these things I can’t see seemed to be getting more and more intense whereas I was becoming slowly more numbed to sensations from the visible world. When I was younger I saw a documentary about children who were unable to feel pain and occasionally got injured to such extremes that they lost digits without realising and though I couldn’t understand it then, now it feels far too easy.
+
+The tests came back negative but given the severity of my symptoms the doctor arranged for me to see a psychiatrist as soon as they next have an opening. He tried his best not to show any worry but his poker face was terrible and even if it hadn’t been, we both know that what’s happening to me isn’t normal. A diagnosis of psychosis or schizophrenia is no doubt on my horizon even though that’d do little to explain why I’ve suddenly started feeling less real sensations as well as more unreal ones.
+
+The thing is though, being diagnosed with a serious illness doesn’t even worry me at this point. Not when I’ve got bigger things to be scared of.
+
+You see, whilst the most obvious effect of what has been happening to me is that I’ve been able to notice more things in some other world I think that maybe it has made the other world more able to notice me as well. I feel breathing on my neck sometimes, even though I live alone. Whatever it is often waits until I’m in bed ready to sleep before approaching me and then I feel rhythmic, humid warmth inch from my shoulder across my skin until it reaches my face. Unless something changes it can’t injure me but pain without injury scares me at least as much as the other way around. I have felt the stabbing pain of standing on something sharp or the dull impact of walking into and invisible pillar and even though these things haven’t left a mark they have hurt keenly and I have even felt the itch as a wound that doesn’t even exist begins to heal.
+
+Whatever is hunting me, it probably won’t be able to kill me. But it might be able to make me wish that it [could](https://www.reddit.com/r/Leavesandink/).

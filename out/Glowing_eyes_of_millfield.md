@@ -1,0 +1,24 @@
+
+As I walked down the deserted streets of Millfield, a wave of unease washed over me. The abandoned town was eerie and ominous, with little sound but the muffled footsteps of my own shoes. The hairs on the back of my neck stood up, and a sudden chill ran down my spine as I heard the sound of footsteps behind me. I quickened my pace, but soon, I was surrounded by hooded figures with glowing eyes, haunting orbs that seemed to pierce through the darkness.
+
+I let out a scream and ran as fast as I could, adrenaline coursing through my veins. But the figures were quick, keeping pace with me, and I stumbled, tripping on a rock on the pavement, and twisting my ankle in the process. As I lay gasping for breath on the cold ground, a hooded figure hovered over me, its eyes like burning embers in the night.
+
+"Who...what...are you?" I stuttered, trying to maintain composure in the face of this terrifying apparition.
+
+"I am Zara," the figure replied in an unearthly whisper. "I am a messenger from beyond, sent to warn you. The darkness is coming. You must prepare."
+
+With those ominous words, Zara disappeared into the shadows, and I was left with a pounding heart and a sinking feeling that something horrific was brewing. Disoriented and disquieted, I made my way back to my home, but even inside the modest walls, I couldn't shake off the feeling that I was being watched, by something inhuman and malignant.
+
+The next day, I went about my routine, hoping to regain some normalcy. As I walked to the local store, I stopped to chat with my best friend, Will. Suddenly, we heard a loud noise from the alleyway beside us. It was then that we found ourselves face-to-face with Zara and a pack of hooded figures with glowing eyes, staring at us with a malicious intensity that chilled our bones.
+
+Fear coursing through our veins, Will and I ran as fast as we could, driven only by the desperate urge to survive. We swung at the figures with fists and feet, but it was futile - they easily overwhelmed us and dragged us to an abandoned warehouse on the outskirts of town. The filth of the place was matched only by the sickly stench of blood and decay.
+
+The warehouse was full of beings that seemed human but were no longer so - twisted creatures that could no longer be deemed human after undergoing the monstrous experiments that created them. Their eyes glowed like the flickering fire of a furnace, and their skin appeared as white and sickly as the moon on a dark night. Will and I were thrown into cages with other prisoners who bore the same haunted, broken expressions.
+
+The guards were vicious and vigilant, always watching our every move. Days passed before we resolved to take action. Though we were weak and outnumbered, we hatched an escape plan, soaked in sweat and frayed nerves.
+
+Despite the odds, we managed to escape from our confinement. With our panting breaths and frayed nerves, we ran through the dark streets, through the eerie alleyways until we entered the woods, a labyrinth that seemed both menacing and welcoming in its isolation. With uncertainty and hopelessness mounting within us, we stumbled upon a cabin in the woods, a ramshackle structure that appeared just abandoned enough for us to take refuge. We fumbled with the door, our fingers numb from fear, and found the cabin to be barely habitable, with spider webs strung along the corners of the musty room, and the smell of dust and neglect. But it was shelter, and we took it, collapsed onto the floor in a twisted heap. We rested only for a few moments, though, knowing that there was no hiding from the hooded figures for long.
+
+We finally came up with a plan to confront our captors, to take back our lives from their vile claws. We made our way back to the warehouse, battle-ready and unflinching. We fought tooth and nail, with every ounce of strength and courage we had, but despite our efforts, the hooded figures soon overpowered us. They captured and dragged us back to the warehouse, where we were subjected to more brutal experiments, torments beyond imagination.
+
+But I never gave up, even when there seemed to be no hope left. When the guards got a bit careless, I seized my chance to break free. I ran for my dear life, far and wide, until I stumbled back through the streets of Millfield once more, a town that would never be the same again. Every full moon, the hooded figures could still be seen roaming the streets, and the citizens of Millfield closed their curtains and prayed that they would never see those glowing eyes again. The horrors we witnessed were forever etched in our minds, a gut-wrenching reminder of the nightmare that once was.

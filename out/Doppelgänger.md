@@ -1,441 +1,146 @@
-My name is Max Donovan. For years, probably somewhere near a decade now, I’ve been a paranormal investigator. Usually when I tell people this, they laugh at me. They tell me to get a ‘real job’ or how disappointed my parents must be in their only son. The truth is that I can’t get a real job, and I never knew my parents.
+Lately, some peculiar occurrences have taken place. Take, for instance, last night when my girlfriend Heather left the bathroom and insisted she saw me in the kitchen. Strangely, I have no recollection of getting up during the night, so I attributed it to sleepwalking. Surprisingly, she shared details of a full-fledged conversation we had, followed by me returning to my room after devouring a peanut butter and jelly sandwich. While it does sound like something I might do, I simply cannot recall that particular incident.
 
-I’m twenty-five presently, a male, a bachelor, and to most people, a waste of time and space. Still, for those who care enough to listen to my stories, I believe they may be worthwhile to learn from. This particular story will make you realize some things you never wanted to know about our world, and in that way, being exposed to them could make you a wiser individual.
+Little did I know, this was only the beginning of a series of such incidents.
 
-My advice to you: if you don’t believe in the supernatural, then leave now. Spare yourself the eye rolls. But, if you dare stay, then please tell me I’m not crazy, because sometimes, I regret my choices and can’t comprehend the things I’ve experienced.
+Curious about that night last week, I asked Heather, "Do you remember what we were talking about?"
 
-Perhaps the strangest case I’d ever been assigned to was around a month ago, back in August. I’m still an investigator today, and I still work on the force that I can’t disclose the name of here, but nothing in my life ever was as chilling and confusing to me as the events that occurred that night.
+With a smile, Heather nudged me playfully on the shoulder and replied, "Sweetheart, you were all over the place. You mentioned how you wished you had a new job and that you were starving. Why do you ask?"
 
-I remember my sleep schedule was complete shit. I would wake up around noon and stay awake till late in the morning, and that was my “day”.
+As I gazed into the distance, a heavy sensation enveloped my mind, akin to a weighted blanket draped over my thoughts. "Hmm, I just can't remember conversing with you. I never woke up."
 
-For the past weeks, I’d just been sorting through paperwork in my dinky little office at headquarters. I always hated the office; the broken florescent lights that buzzed obnoxiously overhead, or the steady drip of a leak in the ceiling. Still, I enjoyed the work for the most part. Who wouldn’t love investigating ghost stories and demon sightings? At least, that was my over-optimistic view of the job.
+"It's possible that you were sleepwalking. It happens to many people, dear. You know, you look quite handsome even when you sleepwalk," Heather smirked, gently clasping my hand. "That's one of the many reasons I love you." I planted a soft kiss on her forehead, "I'm going for a run. I'll be back in a little while!" I needed to meditate and frankly running was my best therapy session.
 
-My boss—Mark Verninski—came to me sometime during my lunch break in the annex. I usually expected him to bury me in more case work that demanded organizing, but he sat down with nothing in his hands across from me.
+Although I attributed these incidents to sleepwalking, they still troubled me. However, there was no point in allowing stress to consume me.
 
-For a moment, he just sat, watching me eat my microwaved noodles before he spoke. “Donovan, you went to West Arrow High, right?”
+A couple of weeks later, another unsettling incident unfolded, this time at my workplace—Dunesbarry, a printing company that produces everything from small pictures to large-scale posters. It happened on a Tuesday when I woke up feeling unwell, prompting me to make a decision to call in sick.
 
-I looked up from slurping. “That old school in down south? That was ten years ago, but yes, I did. Why?”
+My boss, James, was known for being a rather easy going manager, and I dialed his number to inform him about my condition. "Hey James, I'm not feeling great. I woke up with stomach issues and won't be able to come in today." After a brief pause, James burst into laughter and retorted, "Hold on, Caesar. What are you talking about? I just saw you here a few minutes ago."
 
-“Did you know someone by the name of Charlotte Valentina?” He ignored my question with one of his own.
+My heart sank into my stomach, and perspiration formed on my forehead. "What do you mean? I'm at home, James."
 
-At the mention, I dropped the spoon on the table, but quickly composed myself. “Yes, I did.”
+"Buddy, I don't know if you're trying to pull a prank on me, but I assure you, you're here. Although it's quite unexpected for you to be early, you waved at me and headed into the bathroom. Are you still in there?"
 
-“What do you remember about her?” He reclined back in his chair.
+Feeling a sense of disbelief, I momentarily put my phone down after promising James I would call him back."What in the world..." My pulse raced, throbbing in various parts of my body as the unsettling realization sank in. This had to be something more than I initially thought.
 
-“Aren’t I the *investigator*?” I attempted to lighten the conversation, and luckily for me, Mark dove in.
+The remainder of the day I was immobilized, trapped in a state of mental paralysis. I laid on the couch, anxiously awaiting Heather's return.
 
-He laughed and shook his head. “I’ve got a new case for you. Well, not *a* case exactly.” He cleared his throat. “Just got a call from her residence up back east. She wouldn’t spill anything unless she could speak with you.”
+My mind reverberated with the same haunting thoughts, from the first time I experienced a memory lapse at home to now, encountering a similar phenomenon at my workplace. What on earth was happening to me?
 
-“Really?” I widened my eyes. “Curious, but probably nothing much. Just a school reunion at best.” I chuckled. “Not that I’d actually go.”
+Driven by a growing urgency, I hurried over to my laptop and launched into an immediate search for any instances resembling my own. "Not remembering conversations at night" I typed into Google. The initial search results yielded blog websites discussing sleepwalking, which aligned with my initial assumption. Nevertheless, I pressed on. Next, I came across some Reddit posts recounting incidents of sleep-talking without any recollection.
 
-“And she’d call your workplace for that…why?” Mark leaned his elbows on the edge of the table and glared at me, turning his demeanor serious. “She sounded worried, like it was an urgent matter.”
+As I scrolled through the various links and websites, one particular post caught my attention. Doppel-gänger? I had heard that term before.  
 
-“How’d she even figure out where I work? I don’t even know how she still remembers me! I sure as hell didn’t since—”
 
-“Max!” Mark crossed his arms in obvious frustration. “She wants you to call her back as soon as possible. If she’s got something, y’know we’re always looking for more cases to handle, even if it turns out to be nothin’ but bogus. Our department is on the edge of failing. We need to make a comeback or else.”
+Doppelgänger: "an apparition or double of a living person" was the definition I encountered, but comprehending its implications proved challenging. As a skeptical individual, I typically dismissed notions of the paranormal and supernatural. Why, out of all people, would something like this happen to me?
 
-“Or else what?”
+I closed my laptop, taking a deep breath to steady my racing thoughts.
 
-“Or else our division will be forced into downsizing. Look Max, I love you to the moon and back. Y’know I value you as one of the best on our investigation team, but I just can’t guarantee either of our survivals.”
+Finally, Heather returned home after her shift, and I dashed towards the door to greet her.
 
-I silently nodded.
+"Hi, love! I'm so glad you're home. I have something absolutely mind-boggling to tell you!" I tightly embraced her, holding her for longer than usual."Hello, my sweetheart. What happened?" Heather set down her purse, and we both settled onto the couch.
 
-“So please, take her call.” And with that, he left me with nothing but a yellow sticky note with a scribbled on phone number.
+"You won't believe this, and honestly, I'm struggling to wrap my head around it. Remember how I mentioned calling out of work today? Well, when I called James, he accused me of playing a prank on him. He even mentioned that I was already at work."
 
-\*\*\*
+Heather nervously chuckled and turned to process my words. "Wait, what?"
 
-“Hello?” My voice was rough and tired. The rest of my lunch had passed sooner than I expected it to. My sweaty hands found the phone slippery, but I clung on tight.
+"He said I had already arrived at work and was in the bathroom. But I never went. I've been here at home the entire day." As I looked at Heather, I could see a hint of discomfort on her face.
 
-In a tired, whimpering voice, barely even audible on the other end, I heard her. Even though it was just my name spoken back to me, I nearly let the phone drop. I never expected to hear her voice again after we ended everything and practically hated each other’s guts.
+"I don't understand. Maybe he was just messing with you since you called out," Heather suggested, rising to grab some water from the kitchen. Bursting into laughter, a wave of relief washed over me. "Wow, I never actually considered that. I'm sorry, I'm still preoccupied with that incident in the kitchen that night. It's been twisting my thoughts."
 
-“Max?” She repeated, and I suddenly realized I had not yet responded.
+"You're okay, honey. How are you feeling?" Heather asked, her concern shining through. 
 
-“Speaking. May I ask who I am speaking with?” I already knew, but it was standard procedure. I wanted to give the appearance of disinterest.
+"Much better now that you're home, I must say."
 
-“Max,” she ignored my question, “is it really you?”
+Heather was my rock, always asking the right questions and loving me in ways I had never experienced before. I couldn't fathom my life without her. Feeling slightly more at ease, I decided not to inquire further with James, choosing to let the matter rest.
 
-“Donovan, yes.” I said in nervous anticipation. I tried—I really did—but I just couldn’t keep the professional composure I ought to have. “Charlie?”
+It was 3:23 am when I was awakened by the sound of slow footsteps creaking past our slightly open bedroom door. We kept it ajar to listen for any unusual nighttime noises.
 
-“Valentina,” she laughed, “yes.”
+Rubbing my eyes and stretching my legs, I sat up in bed, my gaze fixated on the doorway. The room was enveloped in darkness, and it took a moment for my eyes to adjust. The footsteps abruptly ceased as I continued to stare at the sliver of the doorway crack.
 
-“Why did you call looking for me? How did you even figure out—”
+Resolute in my determination not to jump to the worst conclusions, I dismissed the idea of an intruder breaking into our home. Surely, I would have heard some sign of forced entry. Grasping the nearest object within reach, our vintage lamp, I mustered the courage to approach the door, striving to remain as silent as possible. With a trembling hand, fueled by fear of the unknown, I reached out for the doorknob.
 
-“Because I need you.” Her giggle disappeared quickly. “Look, I know you’re probably still mad at me for what happened. I get it if you think I’m still a shitty person, but I’ve changed.”
+Taking a moment to steady my pounding heart, prepared to confront anybody, even if it were against God Himself, I cautiously opened the door. There was nothing outside. I checked in both directions, even stepping into the hallway with a stance ready for battle. Utter silence enveloped the space. Releasing a sigh of relief, I turned around, intending to return to the bedroom.
 
-“You’re right, I do.” I crossed my arms, though she could not see. “What’s in the past is in the past, but the fact is, what you did has still stuck with me to the present, and will into the future.”
+Then, a solitary footstep echoed in my ears.
 
-“Okay, but please,” she cried, “I need your help more than I could ever convince you. I ask you to please leave your personal vendettas out of this. Please, you’re the only one.”
+I halted, gripping the lamp so tightly that its exterior threatened to shatter.
 
-I felt my finger slide over the button to terminate the call. “Speaking strictly work then, what’s the issue?”
+Turning slowly toward the source of the sound, my eyes caught up to the movement, leaving me no choice but to confront whatever lurked within my house.A figure emerged from behind the kitchen island, hands tightly gripping the countertop, barely visible in the dim light. Their eyes locked onto mine, wide open as if they were about to pop out of their sockets.
 
-“I-I dunno what’s happening to me. Either I’m losing my mind or…” her voice trailed off.
+I noticed a striking resemblance between us – the same haircut and a mole on the top left of our heads. Yet, I couldn't spare a moment to ponder our shared appearance. There was an intruder in my house.
 
-“Or?” I pressed.
+Carefully edging backward, I needed to make my way back to the bedroom to alert Heather and call the police.
 
-“It’s still here, Max. It just won’t leave.” She cried in between breaths as she continued. There’s this feeling in my house, like a dark aura that hangs around every corner and every hall. It never leaves. Every second of the clock…it’s watching me, waiting till I lose it. I fear that my breaking point will be soon if…if…”
+"Heather! There's someone in the house! Call the police right now!" I shouted, keeping my gaze fixed on the intruder, even though I wished I didn't have to. The intruder remained motionless, almost frozen in place. As I shouted for Heather to call the police, I could hear teeth chattering as if it were beside my ear. Slowly, he moved from the kitchen island, his hands preceding his head, his unwavering stare fixed upon me.
 
-“You still live in your old house?” I asked.
+With my heart pounding out of my chest, fueled by adrenaline, I took advantage of the rush surging through my veins and sprinted toward the kitchen to investigate. I hadn't seen him move from the island to anywhere else, so the realization that he had vanished sent shivers down my spine.
 
-She took a moment before responding, and I checked to make sure she hadn’t hung up. “I was six when my house burned down, Max. My aunt took over the property since my brother and parents…y’know…didn’t make it out. When I turned twenty, she gave it to me, and for the past few years, it’s been under construction. I poured every penny I earned into having it rebuilt. I just couldn’t forget about them. It felt wrong to move on.”
+"What the fuck," I uttered, completely shaken to my core.
 
-I reclined back, letting the chair swivel me around. I clicked my pen, intrigued. “And you live there now, in the same house?”
+Moments later, the police arrived, responding to the report of an intruder. Heather peered out from the bedroom to assess the situation.
 
-“Pretty much. Of course, things like the pictures and furniture aren’t here, but it’s otherwise the exact same.”
+"Honey, are you okay?" Heather whispered loudly. I found myself sitting on the floor, stunned and deflated. I couldn't wrap my mind around what had just occurred. It made no sense. As logical as I considered myself to be, this defied all reason.
 
-“And you think your family still lingers there with you?”
+Heather tenderly held the top of my head, offering comfort as we awaited the arrival of the police.I needed to compose myself before opening the door for them."Hi, um, I don't know how to explain this," I said to the officer, my voice tinged with confusion, still trembling from the encounter. "Hello, I am Officer Santana. There was a call reporting an intruder. Are you okay, sir?"
 
-She considered my question, but ultimately answered, “No. I think they moved on; they found their happy place. But there is something else here now…something darker, something more *sinister*.”
+I let Officer Santana and her partner inside and guided them to a seat. "This is going to sound strange, I understand that, but there was an intruder right over there," I pointed toward the kitchen island. "He was behind it, and then he wasn't. He simply vanished." Santana looked up at me, her eyebrows raised as she tried to comprehend the situation.
 
-“Go on.”
+"What are you saying? He disappeared? Did you see him run anywhere?" Santana's partner asked, jotting down notes in their Paperkraft notepad. "Well, I saw him duck behind the island, and then he was gone. I know it sounds crazy, and I realize that."
 
-“I think it might even be connected to what happened years ago when I was six. This land…it never felt warm and comforting like a house should. I-I’m just afraid that what happened to my brother and my parents might happen to me…”
+"Okay, we're going to thoroughly check the house and ensure it's safe. In the meantime, please wait outside until we're done," Santana instructed, as both officers unclamped their pistols from their holsters. I felt a semblance of safety in their presence.
 
-I sat for a moment, thinking through her words. They were compelling, intriguing, but was it real? After what she pulled on me in my senior year at West Arrow, I could very well see her inviting me over to her house only for things to turn sour.
+It was a chilly autumn day, with the scent of smoke wafting through the air, likely from my neighbors' fireplace. Jill and her husband, Dane, were wonderful neighbors who kept to themselves. Occasionally, they would surprise us with extra food, acting like the pseudo-parents of the neighborhood. Sometimes, I would take it upon myself to fix minor things around their house, like the black fence in the backyard. It always seemed to have a mysterious hole, despite their lack of pets or nearby animals.
 
-*What if she wasn’t satisfied with what happened and she wanted more revenge? What if it really was a reunion that she planned in secret only to have the purpose of humiliating me?*
+Jill and Dane noticed the police presence and joined us outside, arms crossed in concern. "What's going on, guys?" Dane inquired. "There was someone in our house, but they disappeared. Maybe it was some kind of prank or squatter. I don't know," I replied, offering an explanation simply to have one, even though I struggled to believe it myself.
 
-I guess being an investigator forces you to think this way, the darker way. It gets harder and harder to see the bright things in the world and instead, you tend to focus more on the negatives. Crime, demonic possessions, murders, exorcisms, thefts, rape; they’ve all crossed my desk, but this was somehow different.
+"Did you enjoy the apple pie I made the other day, Caesar? You devoured some of it when you came by to fix the fence," Jill chimed in, her culinary skills well-known. However, I hadn't tasted her cooking in months. "When did I fix the fence?" I asked, my tone dropping with confusion.
 
-Charlie Valentina was never the well-liked popular girl who played varsity cheerleading, but wasn’t exactly an outcast either. 
+Jill's smile widened, as if assuming I understood what she was referring to. "What do you mean? You came by two days ago. You mentioned noticing the hole again and wanted to fix it for us."
 
-While it tortures me to recall it, we used to be like Ying and Yang back then. We lucked out, having had all the same classes, clubs, interests, friend groups; you name it, we shared it. After the first three years came our senior year, and I’ll be honest here, it was my full intent to ask her to the prom. *That was my mistake.*
+"Oh, right! Sorry, my mind has been foggy lately. I loved the pie, it was delicious. You're such an amazing cook!" I responded, though I had no recollection of any fence-fixing visit. I gave her a reassuring answer to alleviate any concerns she might have.
 
-At last, I spoke, regretting the words as they left my mouth, but I knew what I had to do. “If it’s the same house, I assume the address is still the same?”
+Urgently, I pulled Heather aside, gripping her arm. "Heather, I never went to their house or fixed their fence. I have no idea what's happening, and I promise I'm not going crazy.""I believe you, but I'm starting to feel a little scared. These incidents where you've supposedly been to places and don't remember are unnerving," Heather confessed, her face etched with genuine worry.
 
-\*\*\*
+The officers emerged from the house, re-holstering their pistols. "Your house is clear. Whatever was here is no longer present. We'll have patrols keep an eye on your property for the next few days. Other than that, you should be able to go back to bed," one of the officers assured us.
 
-*Welcome to Aurora, Colorado.*
+"Thank you, officers. We'll call again if anything happens inside," I expressed our gratitude. Heather and I held each other tightly as we made our way back to the house. "Let's try to get some rest," Heather suggested. However, that night, sleep eluded me as the image of that man's eyes lingered in my mind. Why did he resemble me?
 
-My eyes grazed the sign as I passed it. The world didn’t look any different from one side of the sign to the other, and I wondered why I’d expected it to. Still, it was a picture esc sight to be sure; the last rays of sun radiating out from behind the snowy mountain peaks, the city lights just dots in the darkened distance. It truly was a stark difference compared to my town of Hurricane, Utah.
+It had been quite some time since I last encountered any strange incidents or intruders in my house. I was beginning to feel optimistic about the whole situation. Life had returned to normal, and my relationship with Heather was flourishing.
 
-I hadn’t packed much of anything at all. After the phone call with Charlie, I checked in with Mark and left directly from work. I wanted to get there as soon as possible, and opted not to pack to at least have sunlight for most of my drive.
+"You know, Caesar, I eventually want to have a baby. Can you help me with that?" Heather expressed her desire, and I chuckled nervously, embracing her from behind. "Of course, baby. Let's plan it out and see where life takes us." After bidding Heather farewell as she left for work, I settled on the couch.
 
-I would have loved to drive through the city, but I remembered Charlie’s house being on the outskirts of town. We’d always had found it beyond annoying as teenagers when we all wanted to reconvene and hang out for the weekend at her residence.
+The thought of becoming a father lingered in my mind, though it seemed like a daunting and incredible prospect.
 
-And then, all at once, the memories came flooding back, popping up like kernels in my brain. Every twist of the road evoked memories of long car rides over to Charlie’s, or that time we went “adventuring” and got lost down by the creek.
+Little did I know that two hours later, that day would alter the course of my life forever.
 
-My old Subaru bumped along the gravel road, and after a good ten or so minutes, I pulled to a stop in the driveway. The house looked exactly as I’d remembered it. It was definitely a more suburban country house to be sure; surrounded by woods on all sides and at least a couple of miles away from the neighboring abodes. I didn’t mind that fact, as I’m sure that to the people around these parts, I’d be classified as some sickly vagabond, ready to take up residence wherever I found fit for the night.
+"Caesar," a voice pierced through my skull like a bullet, evoking a fear I had never experienced before. Shock washed over me, causing a lump to form in my throat. I recognized the voice, but the sheer terror prevented me from turning around.
 
-Standing like a monument perfectly preserved in time, stood the three-story house. The outside walls were covered with bluish-grey paneling, and a raw iron fence enveloped the surrounding land. The front gate lay ajar, and lanterns that hung on posts lined the path up to the porch.
+"Caesar," the voice repeated, pushing my body into fight or flight mode. Summoning my courage, I slowly turned around.
 
-The sky flashed with lightning, breaking my transfixed stare. Heavy raindrops hit the windshield, and it was only when I stepped out of the car that I felt foolish for packing so light; not even bothering with a raincoat.
+It was me. The person standing before me was an identical version of myself. "What the fuck!?" I uttered, bewildered.
 
-Most people wouldn’t have found it odd, but I took brief notice of the lack of any car other than my own. But, through the rain, I quickly landed on where the missing vehicle probably resided: in the disconnected garage across the property. I guess that’s just how an investigator’s mind works.
+He began to approach me with slow, deliberate steps. His unblinking eyes and a smirking mouth hinted at some sinister intent. He halted just a foot's length away from me. "What are you!?" I screamed, attempting to push him away.
 
-I turned back to the house, seeing that the bottom floor had suddenly been illuminated and a figure now stood at one of the windows.
+As he lunged towards my face, I sidestepped and prepared to strike him with a punch from my right hand. However, he swiftly evaded the blow and made another aggressive move towards me. He covered my mouth and nose, struggling to breathe, I swung my fists blindly in his direction before losing consciousness.
 
-I remember, though I knew it was Charlie, I still felt unnerved. I shook my head. *Max, you’re a detective for God’s sake. Don’t prove to her that there’s anything more she can hold against you. I can do this. I* will *do this.*
+When I regained consciousness, I found myself in a shed approximately a mile away. Disoriented and terrified, I sat up, only to discover that the floor was strewn with animal flesh and blood. The overwhelming stench threatened to obliterate my senses.
 
-I pursed my lips into an expressionless facade, and I began a stiff walk up to the door. This visit—as far as I knew then—was supposed to be a quick, work-related excursion. I’d be lucky if I left by morning.
+I had to find a way back to my house, no matter what. I frantically searched the pockets of my jeans, hoping to find something that could aid me. To my dismay, everything was missing, including the cherished watch that once belonged to my late father.
 
-Before my fist could collide with the door, it pulled open. Standing just beyond it was Charlotte Valentina. Now around twenty-four, she no longer resembled the teen girl I knew so well a decade before.
+Summoning my determination, I rose to my feet and forcefully slammed open the decaying wooden door. The task proved effortless, as the door had already begun to rot. As I surveyed my surroundings, I realized I was engulfed by a dense forest, devoid of any visible structures. I vaguely recalled that my house was situated along the northern line, which offered a glimmer of hope.
 
-Her posture was that of a confident woman, but her face looked tired and cowering. She wore a night gown with a matching robe tied around it, and though it looked like she just awoke, her hair was combed, and her light makeup applied neatly.
+Although I had never been much of an outdoorsy person while growing up, my father had imparted a few tricks during our camping trips. I recollected his guidance on locating the North Star by first identifying the Big Dipper. I patiently waited for the night sky to emerge, conserving my energy for the impending journey. As the sun barely kissed the horizon, I discerned a cluster of houses, including mine, in the distance.
 
-I straightened my back and stuck out my hand. “Pleasure to meet—” But I was cut off, having been pulled into a tight hug.
+Mixed emotions welled up within me as I approached my home. Peering through the backyard windows, my heart sank to the floor. There I saw myself, holding Heather in a tight embrace, sharing kisses, laughter, and affection.
 
-“Oh Max. Max, it really is you! Thank you for coming.”
+Desperate to escape this surreal nightmare, I knocked on the window, hoping to break free from that imposter. Heather's piercing scream echoed through the air as he rushed toward the window, bellowing at me to leave and threatening to involve the police once again. As I began to retreat from the backyard, he smirked, a sinister expression that mirrored my own.
 
-“No problem.” I mumbled the reply, instead intent on prying her arms off me. She had never been one for hugs, and if I correctly recall, we both shared minor claustrophobia. 
+This doppelgänger had assumed my identity in every way, rendering it impossible to distinguish between us. If I dared to approach the house or confront Heather, the consequences would be dire. I had made one attempt before, only to be manipulated into believing that I was a deranged relative harassing them. Heather, unaware of my familial connections due to my reticence about them, fell for his ruse.
 
-“Sorry you had to drive all this way.” She finally released her grip, and then stared questionably at her sopping gown.
+Years passed, and I found myself confined to observing them from the safety of the woods. Heather's happiness blossomed as she became pregnant. Meanwhile, I remained trapped in this inexplicable nightmare, grappling with the cruel injustice that had stolen my life away.
 
-“Sorry I’m all wet. Late night thunderstorms.”
+As the years dragged on, my existence continued to be overshadowed by the twisted imposter who had stolen my life. I watched from the darkness of the woods as Heather's pregnancy progressed, the anticipation building within her. It was a bitter torment to witness her joy, knowing that I was the rightful father of that child.
 
-“Pretty common this time of year.” She laughed. “Don’t worry, this robe isn’t real silk.”
+&#x200B;
 
-I nodded, but didn’t return so much as a chuckle. The silence quickly turned awkward, and she quickly broke it, waving me inside. She took a look behind me as if to ensure I wasn’t being followed or had come with anyone else, then slid the deadbolt into place.
-
-“Why the security?”
-
-Her face turned grim, “I was actually hoping to talk to you about that. But first, can I get you anything? Water? Tea? Coffee?”
-
-“Coffee.” I gave a slight smile, knowing that I had to at least give the appearance of a personality.
-
-“Cream or sugar?”
-
-“Nothing, thank you. I like it black.”
-
-She nodded, “Well make yourself at home.” And with that, she hurried off towards what I assumed to be the kitchen.
-
-The family room itself wasn’t large. Oddly enough, while the house was rather big, I remembered that it was almost entirely comprised of longer hallways and smaller rooms. Still, it really did look surprisingly similar to how it did before the fire. Just how I remembered it to be, in fact.
-
-I took a spot on the loveseat closest to the fireplace, loving the warmth it provided. Apart from a few bookshelves and other velvet armchairs, the room was rather empty. A flat screen TV was mounted to the mantle, but the screen was cracked, and I doubted it worked. It was kind of odd to see such a modern piece of technology in what otherwise seemed like an antique house.
-
-Speaking of which, the stench of the wood floors mixed with the humid air created a sickly miasma. The room itself was lit up only by a few hanging lights; a bit too blue in color for a house. In truth, they looked more fit for a hospital or laboratory.
-
-“One steamin’ cup with no cream or sugar.” She set the mug on the coffee table before me.
-
-She smiled, then took a seat on the floor in front of the fireplace. She cupped her hands around her mug, not caring to focus her attention anywhere but the ragging blaze.
-
-At last, she could tell I was growing antsy, and began. “It’s been years, a decade at least since I’ve been inside this house. I lived here when I was just a kid with my family. My mom, my siblings, my uh…my dad. I received a call about two weeks ago telling me that they were finally finished with the repairs. Took them long enough.”
-
-I took a sip of the bitter insomnia, twitching my face in response to the molten temperature.
-
-“It’s funny. Even after what happened and all that time away, it looks just like I remembered it too. I’m sure you feel the same way, though I wouldn’t blame you if you didn’t. You never spent that much time here like I did.”
-
-“Agreed. I guess this was a longer drive for my parents. I know I’d be annoyed if I had to drive my kid all the way across town every weekend.”
-
-For the first time in our conversation, she turned to face me, tear tracks already glistening down her cheeks. The memories had overwhelmed her. “You? Kids? I don’t see it.” Her smile was fake, but I couldn’t resist her try at humor.
-
-I’m not sure why, but I suddenly felt obligated to make her feel some resemblance of comfort. *How long had she been alone all these years? God, I know that’d take a toll on me. Wouldn’t it on anyone?*
-
-I felt the corners of my mouth curing up. “Why?”
-
-“Oh, I don’t know. Maybe it’s the fact that you spend your time hunting ghosts?”
-
-I laughed aloud now, not holding back. “Charlie, I’m not a ghost hunter. Those people literally have no life!”
-
-“And you do?” She returned with a bright smile.
-
-“Not really, but we both know that those people just go on TV and edit some sound effects in. I, on the other hand, investigate phenomena that people can’t explain. I always look at things from a very logical perspective.”
-
-I was suddenly hyper aware of myself. Somehow, she’d lowered my guard without me knowing. I knew I couldn’t relax. I had to remain stoic. “So then, what’s been bothering you?”
-
-“Woah, jumping right into it are we?”
-
-“Charlie, I’m not here to catch up. I told you on the phone. Business only.”
-
-She nodded, understanding my perspective. That’s always been something I envied about her. “Well, I’ve been seeing some strange things. I don’t really know how to describe them. To be honest, I feel like I’ve gone completely insane!”
-
-“What have you seen?”
-
-She twisted uncomfortably. “Shadows. Dark figures that glide down halls. Peeking heads from the far end of a room. Hands reaching out from under the bed. It’s all seen just through the corners of my eyes though. Half of me knows it’s just the agony of my living by myself, but the other half wonders. My mom always used to lose things, simple things. She was by far the most organized person I ever knew, even to my six-year-old self. Yet, things like kitchen knives or car keys would just disappear. She always assumed either me or Jack took them, and my dad would be there to punish us.”
-
-“Jack?”
-
-“My brother. He was born autistic, and I don’t think my parents cared for his condition. It wasn’t right for him to live the years he did under their care. I nearly ran away with him several times.”
-
-I nodded intently. “These visions. Do they ever interact with you?”
-
-“Yes.” Her answer came quickly, though she still stared into the fire. “Maybe once a week, I’ll wake up around midnight. I’m still not fully awake, but not sleeping either, and I’ve never experienced sleep paralysis before. Maybe that’s what it is, or maybe it isn’t. Either way, I feel hands on my back. They creep up my spine until they dig into my neck. I always wake up, gaging for air. No bruises or marks though.”
-
-I took an exaggerated sip of my coffee. “Charlie, to be honest, it seems like you’re just lonely. Your mind has been so isolated for so many years, and that coupled with your past…it still sticks with you. The inner machinations of your mind may be creating these memories mixed with reality.”
-
-“How would they be?”
-
-“I’m not sure.” I cringed as the words died on my lips, knowing they would undo any comfort I’d tried to employ.
-
-She seemed to soak in my words, carefully considering what she’d respond with. “Hey Max?”
-
-“Huh?”
-
-“Do you believe in ghosts? I mean like, I know you try to stay logical, but…” she trailed off.
-
-“Charlie,” I crossed my arms, stiffening my posture, “ghosts don’t have to just be people y’know. To me, a ghost is merely a shadow of the past; something that lingers around longer than it should. It could be a memory, or an imaginary best friend.”
-
-She sat quietly, watching me intently. If she had been on a seat, she would’ve been on the edge of it.
-
-“My dad always wanted to be a famous author. He wanted everyone to know the Donovan name by his style in which he wrote. He spent years perfecting his craft, and eventually got his hit, *The Perfectionist*. I never read it. Hell, it’s probably still above my IQ, but just like he wanted, everyone loved it. Merch, spin-offs, there was even a rumor of him getting a deal with Warner Brothers. It was his shining achievement. But, once his smoking habit caught up with him, it all went away. As soon as it had hit the spotlight, it all was forgotten. No one cared to devote so much as a minute to it or my father anymore. In truth, neither did I.” I met her stare as I spoke, watching the fire’s glow dance around the contours of her face. “Nothing lasts forever, and I guess that’s why I don’t believe in any white figures or oily shadows. Everyone has to die. Everything has to end at some point, even if that point comes sooner than you’d wish.”
-
-“And then?”
-
-“Life goes on. Not for you, but for those around you.”
-
-“Damn.” She stood up. “Sounds like *you* should write a book. Bet you’d be good at it.”
-
-“Yeah right.” I set down my empty mug. “But seriously Charlie, get some help. See a phycologist, or adopt a pet. Find ways to keep your mind around other living things. Isolation of the mind can be a scary thing. Your mind starts to wander and before you know it, you’re seein’ shit you shouldn’t be seein’.”
-
-“Will do.” She smiled, leading me back to the front door. She handed me my coat and hat, and I took them respectively.
-
-The conversation went fast. Too fast. It should have lasted longer. It felt good to reconnect with a bit of my past, especially without all the drama that went down. Charlie had mostly forgotten it. I was really the only one who kept it alive, and seeing her tonight made me realize that I had to learn to bury it just like she did.
-
-“Are you sure you don’t wanna stay the night? Storm’s still going strong.” She removed her eyes from the window to watch me. In the dark foyer, I could only see the whites of her eyes reflecting the lightning from beyond the curtain.
-
-“I didn’t bring a change of clothes.” I shrugged, and as I did, a part of me died inside. *Maybe it would be good for Charlie to have another person’s company. Just for the night.*
-
-“Suit yourself.” She flattened her smile. “Drive safe.”
-
-“Wait.” I stood out on porch, and she kept the door open a crack. “Maybe I should stay the night.”
-
-Her smile picked back up and she raised an eyebrow.
-
-“Seems to me like you should have company for a few more hours. Plus, I don’t think I can navigate these dirt roads at night.”
-
-“True.” She opened the door fully, and I entered back into the abode. “Make yourself at home. Guest bedroom and bathroom are just down the hall and to the left.” She yawned. “Imma head to bed, but you can stay up if you want. Just turn off all the lights when you’re done. Oh, and just ignore the screaming from the basement.” She winked, but I quickly mimicked her raised eyebrow. “I’m just joking! There’s nothing down there but Brown Recluses.”
-
-I switched which eyebrow I had raised.
-
-“Oh my God, Max, take a joke!” She gave a punch to my shoulder, hugged me again, then slinked down the adjacent hallway, waving as she went.
-
-For a moment, I watched her silhouette disappear down the dark corridor before she reached the end, and smiled to myself. The whispered words came before I could register stopping them. “I miss you, Charlie.”
-
-\*\*\*
-
-I stayed up a little while later out by the fireplace, just sitting quietly and thinking over the crackles of the charcoal. My mind raced between regretting ever showing up this evening to wishing I’d come sooner.
-
-On one hand, I never wanted to associate myself with Charlie ever again. There wasn’t a day that had gone by in the ten years that I hadn’t remembered what she did to me.
-
-And then, there was the thought, the awful, terribly thought that if I left her alone, then the visions might get to her. She might actually hit insanity, and well, I’d never forgive myself if she couldn’t take it anymore and…
-
-I can remember combing through her words, again and again, and as if by doing it I’d uncover some hidden message she’d secretly embedded. In the end, it wasn’t that that found me the clue. I eventually stood up, probably around one in the morning, and finally intended on getting some shut eye.
-
-I suppose it’s a bit of a weird idiosyncrasy to possess, but whenever I get up from a couch or chair, I always turn to make sure nothing fell out of my pockets while sitting. Just a brief precaution that, if I’m being honest, has saved me my car keys, chapstick, and even a few loose crumpled dollar bills, that had all previously slipped out of my pockets unknowingly.
-
-That’s when I saw it. I felt my pockets. Everything was in there that should’ve been, but on the cushion lay a box of matches, most missing but the few remaining spilled out. I never smoked like my dad, so I’d have no reason to carry them. Furthermore, a few seemed to be already struck as if they’d been attempted at being used.
-
-With a brief, tired sigh, I scooped them up and went to place them on the mantle, assuming that they obviously belonged to Charlie. Again, something caught my eye.
-
-In the far back of the fireplace was the corner of a paper. Most of it had been burned, but the very top had somehow avoided being turned to ash. Most people probably would’ve assumed it was just trash, used as an aid in igniting the fire to the wood, but I’m not ‘most people’. Sure, it’s gotten me in trouble more times than I can count, but again, my detective mind has also saved my life.
-
-With the fire pretty much dead, I speared the paper with the fire poker and pulled it out, laying it out on the floor.
-
-Nothing more remained than a newspaper clipping, and in particular, just the heading: *Haunted Woods!* *People Report seeing their Ghostly Twin near the Countryside.*
-
-It was odd. Clearly it had been read over by Charlie, but she either burned it intending to make me think she wasn’t crazy, or that she was trying to finally let go. Whatever the reason, it was probably best that it was burned.
-
-“What-cha got there?”
-
-Her words hit me like javelins in the back. I froze, not sure what to do. “Ch-Charlie, why didn’t you show me this? I would’ve believed you.”
-
-“No you wouldn’t have. It’s all that’s been over the local paper this month. Fake news, like you said. I just threw it in there because it only serves to keep my mind more alert for seeing thing that aren’t there, just like you said.”
-
-“Charlie, tell me, if you’re so delusional, then why is everyone else who lives around her reporting your same visions?”
-
-“I-I don’t know.” She crossed her arms under her chest. “Max, you should get some sleep.”
-
-“How can I? Charlie, my mind is racing.”
-
-“Just let it go, Max. Please. We’ll talk more in the morning.”
-
-“Charlie, I—" but a thump from beneath the floor shut me up. “What was that?”
-
-A sudden look of malice budged Charlie’s face. The muscles around her eyes twitched angrily, and in the dim light, she looked less human. “Nothing, probably just pipes. Why don’t you just go to bed already, Max?! I’m tired, can’t we do this tomorrow?”
-
-“I just want to have a look downstairs.” I said, inching my way over to the basement door.
-
-“No, Max. I said to go to bed.”
-
-“What if it is something paranormal, Charlie? Then I’d believe you.”
-
-“You’re going to get hurt, Max. trust me, you don’t wanna investigate. Some things you should just forget about.”
-
-I marched towards the basement door, turned the lock with my fingernail and thrashed the door open. A dark, hungry abyss met me on the other side. There were no lights, or sounds. Nothing but silence.
-
-“Charlie?”
-
-But she did not reply. Instead, I felt two hands push me as hard as they could, and I fell down the stairs, into the dark basement.
-
-“Good night, Max Donovan.” Her voice called.
-
-I’d like to say I sprung up and ran for it, but all I had time for was a quick glance to see the door slamming shut behind me. I wish I knew why she did it. I wish I hadn’t been so blind. *That wasn’t Charlie.*
-
-*Silence.* No footsteps leading away or the patter of rain from outside. *Nothing.* I had to clap my hands just to make sure I hadn’t hit my head on the way down and suffered a concussion.
-
-“Max Donovan?” A voice called out from in the pitch-black basement.
-
-“Hello? Who’s there?” But I already knew the answer. I had heard the voice just moments ago upstairs, and now I’d heard it again from down in the basement. Yet, it was somehow weaker, softer, and more normal. “Charlie? Wha-how?”
-
-“Max, *that’s not me*. That *thing* up there isn’t me.”
-
-Then how—what are you doing down here?”
-
-“I…I dunno. I just…dying. I’m here to die. She trapped me down here.”
-
-“When?”
-
-“After I made the phone call to you. She made me do it, she made me lure you here. Oh, Max. I’m sorry.”
-
-“Charlie, it’s alright. I’ll get us outta this. Where are you?”
-
-“I-I can’t see anything.”
-
-“Neither can I. What do you feel?”
-
-“M-My hands are tied together. I’m blindfolded, and my legs are numb. Max, it’s cold. I’m so cold. I don’t wanna die, Max!”
-
-“Y-You won’t.” I felt my heart pounding the inside of my chest. “I promise. As soon as I find you, I’ll--"
-
-Suddenly, the basement door at the top of the doors flung back open, and the other Charlie stood at the top of it. The basement flooded with light, and I turned to see her silhouette from up above. “Max, stop!” She yelled.
-
-I didn’t listen, I swiveled back around to free the real Charlie, but then I noticed. There was no other Charlie. The basement was completely empty. No chair, rope, boxes, and certainly no other person.
-
-“Run!” The Charlie at the top of the stairs shouted, and I did just that. I turned back around and ran for it, up the stairs and two steps at a time.
-
-*Ten, then eight, then six, then four, then two…* but something caught my foot. I tripped, falling back down the stairs, or I would have if not for Charlie.
-
-She caught my hand, “Go away!” She shouted. “Just go away already! You can never take me back! It’s not worth it. I don’t need you to find happiness. Just go away!”
-
-The unseen grip on my ankle slipped, and with the force suddenly released, I nearly flew upstairs, landing onto Charlie. The Basement door swung shut, and I jumped to lock it with not a second to spare. Loud bangs came from the other side, but the heavy door wouldn’t budge.
-
-I stood up, brushing myself off. I quickly reached for the fire poker and aimed it at the Charlie in front of me. “What the hell is going on?! What was that?! What are you?!”
-
-“Max…” she caught her breath, “I-I’m Charlie.”
-
-“Are you?” My face was hot with anger, “And how should I trust you? I don’t know—”
-
-“Because, Max! I’m sorry! Please! It told me that if I fed it, then it would take me back to the past; a happier time.”
-
-“And so you pushed me down there with the intent for it to kill me? To sacrifice me? Charlie, nothing can bring your dead family back. They’re gone! You have to accept it!”
-
-“Please Max, you have to understand.” Tears welled up in her eyes.”
-
-“How can I trust you?!”
-
-She lowered her tone to a whisper. “Because, Max… I saved you. I just couldn’t go through with it. What you said to me just meant so much. I’m sorry I didn’t tell you the truth about that thing I trapped down there, but I just…” She made no attempt to hide her tears. The rest of her words were incomprehensible, and for a moment, I felt pity for the thing, but its facade was damn near perfect.
-
-I lowered the stick to her chest. “This might not kill you, but I promise I will find a way. Now tell me, where is the real Charlotte Valentina?”
-
-“I’m right here! Please Max! Kill me if you must, but just know that I never meant what I did to you senior year.”
-
-“And what did you do?”
-
-The thing looked up at me with red rimmed eyes and messy hair. “You asked me to the prom, and…” she paused, “I was too afraid to say yes.”
-
-I twitched in surprise, nearly dropping the poker to the floor.
-
-“Max, I think about that every day. I regret it every day. I spend my nights thinking about how amazing it would have been. My life is shit, Max, but if I had just said yes…that’s why I wanted to feed it.” She whipped the tears from her eyes. “I wanted it to take my mistake, to kill you, to have you be the sacrifice, and then to take me back to that day where I could fix my mistake and say yes. I wanted to say yes. To start over. But then, I realized that I just couldn’t. I didn’t want to start over. I missed those years of my life without you, and I accept that. But after seeing you again, I realized there was no use going back. Please, Max, let me fix the past by my actions in the future.”
-
-The sword slipped and clanged against the floor. “Charlie, it’s you. You--”
-
-“I know, burn me. Kill me. I deserve all of it.”
-
-“No you don’t.”
-
-“And why not?!”
-
-“Because, Charlotte, I forgive you.”
-
-She looked up at me from her crippled position, and in that moment, I saw her younger self; bright green eyes, sparkling back the sun’s rays, a smile between rose-colored lips that could lift anyone up from a bad day, and the unmistakable aura of pure love and joy.
-
-The hallway faded into a grassy field and the basement door a tree. The noon sun shined bright in the sky, and kids of all shapes and sizes rushed out from their classrooms, ready for lunch.
-
-“Hey Max?” Charlie sat under the same monstrous oak tree she always did, “when you grow up, what do you wanna be?”
-
-“Me? Well, I guess I haven’t thought about it.”
-
-“I think you’d make a good author.”
-
-“Like my dad? Ew, pass. What about you?”
-
-Charlie threw me a smirk, “I wanna be a paranormal investigator.”
-
-“What?!” I let out a genuine laugh. “That’s absolutely ridiculous. Ghosts aren’t real.”
-
-“It’s not ridiculous, and yes they are! Ghosts don’t just have to be misty figure’s y’know.”
-
-“Then what would they be?”
-
-“Many things, but mostly memories of the past that linger around longer than they should. Or maybe like imaginary friends.”
-
-“Nah, it’s just not my scene.”
-
-“But you get to help people.”
-
-“Maybe you need some help, Charlie.” I laughed again, but quickly trailed it off. “Hey Charlie?”
-
-“Yeah?”
-
-This was it. The time had come. I’d hyped myself up all last night, and now was the time to ask. “Do you wanna go to prom with me?”
-
-“Of course I do.” The response snapped me out of the memory. Charlie picked herself up.
-
-“Huh?” I looked around, seeing that I was still in the house.
-
-“You asked me if I wanted to start over? Of course I do.” She smiled.
-
-I recoiled. “Are you sure?”
-
-“Never been more sure” she took my hand in her hand, and the box of matches in the other, “but one last thing.” 
-
-And with that, we left, only checking the review mirror in my old beat-up Honda to see the house burning brightly as the first rays of early morning sunlight peeked over the distant mountain tops.
+If you are reading this, please believe me. I am desperate to reclaim my life and will do whatever it takes to bring her back to me.

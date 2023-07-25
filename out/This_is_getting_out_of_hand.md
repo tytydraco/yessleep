@@ -1,0 +1,18 @@
+As a person who has lived with their parents up until college, you can say I was spoiled. I was an only child, so I was always a priority. I was in private school my entire life, so I was protected by everything. My mother was a nurse and my father was a surgeon. Anyways, let’s talk about the nightmares. 
+
+
+They first started when I first moved into my dorm. The dorm is really old. 234 years old to be exact. It’s really creepy. People who have lived in the dorms gave me a set of rules to follow;
+
+
+1. Do NOT look the girl into the eye in the event of a nightmare. 
+2. If you do look her in the eye, repeat the words ‘I deeply and sincerely apologize and regret my actions’ the girl should start to calm down.
+3. If the girl does not calm down, you have  failed, and will not wake up. 
+4. If the girl offers tea, repeat ‘My mother doesn’t allow me to have tea. I do not disobey my mother.’
+5. After 8:23 pm, you must get in your bed. All lights will go out for exactly 7 seconds. If you see eyes in the darkness, immediately shut your eyes. 
+6. Last and final rule, do NOT shove things under your bed. He doesn’t like his home crowded. 
+
+After receiving these rules, I got goosebumps. Whose He? What eyes? What girl? I tried watching a movie to calm myself down. I was getting tired so I checked the time. 8:23. Less than 1 minute to get into bed. I turn the TV off, rush to my bed and get under the covers. The lights shut off. 1, 2, 3, I counted. 4 seconds later, it was done. I saw no eyes, so that part was definitely relieving.  I try to go to sleep, but I can’t. I have so many questions. Most importantly, Why do we need rules? I shut my eyes and a few moments later, Im sleep. In my dream, there is one table. It’s glowing. Everything else is dark. 2 chairs appear. They are also glowing. A girl appears on one chair. Shes maybe 5 or 6 but her eyes are glowing. I realized the rules. Oh no. She starts crying loudly. I almost start crying. ‘I deeply and sincerely apologize and regret my actions.’
+The crying stops abruptly. ‘Would you like tea?’ ‘My mother doesn’t allow me to have tea. I do not disobey my mother.’ ‘Aw, okay. she said. I wake up, sweating. 
+
+
+Lights are off, but I didn’t turn them off. I start sweating even more. I calm myself down. The nightmares counting for the next week. I ask my dorm neighbor about these nightmares and he says these nightmares last 10 days, meaning I have 3 days left. He said if they counting after 10 days, slip a note under your bed with it saying, “Nightmares will not stop. I seek help.’ with a pen. Almost immediately He should slip it back with an answer. If He doesn’t, He cannot help you. 3 nights later, I’m overwhelmed with joy that the nightmares are finally over. I get into bed, excited to have my first normal dream in a while. I go to sleep but, the table is still there? The chairs appear, and so does the girl. I look in her eyes because I was not expecting her. She starts crying. ‘I deeply and sincerely apologize and regret my actions’ ‘Would you like some tea?’ ‘My mother doesn’t allow me to have tea. I do not disobey my mother.’ ‘THATS NOT TRUE!’ she says. ‘What?!’ I wake up. Sweating. I grab my notebook, write ‘Nightmares will not stop. I seek help.’ He didnt send it back. I’m scared. Next day, like everyday, 8:24, lights go off. This time though, I see eyes. I guess I didnt close my eyes fast enough, because after the lights are turned on, the eyes are closer. They come into my body, taking control. “I” start screaming. I can see everything happening, but it’s not like I have control. The paramedics come. ‘There’s no hope, she looked into the eyes.’ ‘Unfortunate’ one paramedic said. They give me a shot. I feel woozy.

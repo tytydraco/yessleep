@@ -1,0 +1,32 @@
+You see, I work for a trading company based in London. Every few months or so, we travel to some part of the world (normally Europe), and I help negotiate with our customers. We trade a large variety of technology, normally parts of electric cars, but this isn’t important to the story.  
+About 2 weeks ago, we were told that we would be travelling to a city called Heraklion in Crete. We were told that we were expected to stay there for only a few days, and we would be back by the 10th of July. This was somewhat alright as me and my wife’s daughter’s birthday was on the 11th of July, so I would be hoping to bring back some souvenirs for her.  
+I boarded the plane just 3 days ago, happy that the weather forecast for Heraklion would be a steady 30 degrees. I even managed to learn a few Greek phrases on the plane to hopefully make a good impression.  
+ The first day was great. Our headquarters were based quite near to the beach, so that I could enjoy a picturesque view of the glistening waves. We managed to have a friendly conversation with the Greeks and they seemed to like our presentation.  
+But on the second day, something rather unusual happened. This morning, I decided to take a walk down the beach to our headquarters. The others decided to catch a taxi, but they would surely be jealous once they’d see the pictures I sent them.  
+Midway to the headquarters, I noticed that the beach was strangely empty. There weren’t any people, whatsoever. Or course there were people on the street, but that was around 100 or so metres away, but the beach was completely deserted. It was only 8:30am and I would expect to see a lot more people on such a lovely beach at this time.  
+Abruptly, I heard a muffled singing emanating from behind me. I was sort of relieved to hear that there was at least someone on the beach but it was strange that someone was singing alone, especially in a public place.  
+I continued walking, but with every step I took, the song seemed to get louder. It was almost as if they were calling out to me, begging me to turn around. And so I did. What met me was something beyond what I could’ve ever imagined.  
+Luscious, blonde hair glided along her shoulders. Hands adorned with bracelets and rings enticed me to come closer. Everything on my mind seemingly dissipated: worries that I was going to be late, presents to get for my daughter, hopes that my poor Greek was just adequate enough to meet our customers’ expectations were gone. Her blue eyes seemed to grow wider as I inched closer.   
+She perched atop a large rock, only a few feet away from the shoreline. She shuffled along a little bit so that I could sit right by her, and I did. I watched her with fascination as those rosy cheeks created music so beautiful that I couldn’t seem to focus on the sun setting.  
+I sat with her as the moonlight reflected off of her eyes and her singing was only as enchanting as it ever could be. You’d expect that after an entire day I would be deteriorating from hunger or thirst, but I didn’t feel either of them. My mind was set on one thing only: her. She stayed in the exact same position, all day and night. The only muscles she ever moved were the ones controlling her majestic vocals.  
+But once it became noon again, her singing started to sound less elegant and smooth. Once an angel of music, now a lead death metal singer trying to sing opera. The melody that she once sang so superbly now became a garbled chorus of random pitches. My brain still told me to keep still and maintain my gaze on her astounding beauty, but her singing started to creep me out a little.  
+It was now the evening of the 10th and her singing lost basically all structure and she was now singing a lot quieter than what she originally was. Honestly, I was feeling quite bad for her.   
+The sun was again setting and I continued to listen to her abstract tunes. Just as she was about to finish what once was the chorus, she suddenly stopped. Thoughts once lost to her singing appeared back into my mind: my job and my daughter’s bir-  
+“You need to listen to me.”  
+I practically jumped when she said that. She’s sat still for 2 entire days and she’s only now turning to talk to me.  
+“Well, I should really be asking if you can help me.”  
+“W-what?”, I replied meekly.  
+“You see, us sirens are in great danger. So-… Oh, sorry, I forgot to introduce myself. I’m a siren, and you’ve been in a trance for the past 2 days.”  
+“Ok..?”  
+“If you noticed that my singing started to get really bad after a day or so, that’s because we normally devour you after the first couple hours.”  
+“…”  
+“But you’re basically our only hope. There’s this weird new predator, or soon to be competitor, in our sea.”  
+“Most Greeks know about us and will just ignore us when we try to sing. That’s why you were the only good fit. Also, I need you to help us migrate to land.”  
+“A-Are you still going to be eating people?”  
+“Gee, of course not! We only eat people because everything in the sea’s either really big or really small: you’ve got tiny salmon, and massive things like sharks or… this new predator. You guys have cows and sheep which we would gladly eat.”  
+“What’s this predator?”  
+“I’ve never really encountered it. I just know it exists because every week or so, a couple of sirens will go missing from our group. This has been going on since the start of June.”  
+“Ok, so what do you want me to do?”  
+“Well, you’ll need to teach me how to walk and eat and behave like a normal human. I’ll try to teach the others once you teach me. Just saying, if you don’t, this predator thing might come after you guys.”  
+I just asked her if I could use my phone and she said that she needs to see what I’m doing. I don’t think she knows what a phone is or if she can read English because she’s just staring blankly at the screen.  
+I oddly want to help her, even though I already know that I’ve definitely lost my job at this point, the thirst and hunger is starting to affect me and my family’s waiting for me at home. I’m not sure if I’m still under a trance to be inclined to help her or I’m this willing to sacrifice so much to help a mythical creature. Please, Reddit, should I help her?

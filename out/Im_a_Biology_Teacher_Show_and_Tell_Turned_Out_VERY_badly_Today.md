@@ -208,7 +208,7 @@ Take us out, by any means necessary.
 
 Before we can become a part of IT.
 
-Before we become its next [meal.](https://youtu.be/rHcK2TpBeG4)
+Before we become its next [meal.](https://youtu.be/7Fz62mJsg7c)
 
 [JG](https://www.reddit.com/r/JGcreepypastas/comments/zpi8zt/master_story_list_updated_regularly/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
 

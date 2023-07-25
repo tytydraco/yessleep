@@ -1,0 +1,19 @@
+Talking birds aren’t for everyone. They’re an upward of forty year commitment to what is basically a flying toddler. I had inherited my family’s parrot, Frida Macawlo, once my father passed and looked after her another twenty years. She passed away at forty-seven.
+
+To say I was devastated was an understatement. I perhaps grieved her more than I did my father. She was uncomplicated. She had been around in my family longer than me. There are photos of me in a diaper trying to reach her cage. Apparently she bit me on several occasions. She would greet me when I got home from school everyday with a peppy “hola!”. Even when I moved out and began my law degree she still recognized me every few months when I would visit. Macaws are marvelous creatures. I think their intelligence is vastly underestimated.
+
+A few months after Frida passed I was in a  slump. I had no wife or children to speak of. No one to come home to after a long day of family law in Tijuana. It is unforgiving work. I’m no fool to try and pursue a different branch of law in my state. The corruption would be disheartening. My older sister was wise. She chose to cross the border (legally) to study and practice criminal law in Arizona.
+
+It was her suggestion that I get a new parrot. I was apprehensive at first. Another five decades with a bird? I’d be well into my eighties by the time it croaked. She suggested a cat or dog instead. No. I saw enough feral cats and dogs daily. They were overgrown rats.
+
+But then my younger brother, having apparently devised this plan with my sister, gave a rescue center my details with the request to keep a look out for birds. A green Amazon parrot had been found injured and needed a home. He spoke, so they knew he’d been raised in captivity and he’d probably struggle in the wild.
+
+Scarface had been found with a cut on the right side of his face and a broken wing. He was estimated to be between five and ten. He needed me. Really, I probably would need him too.
+
+We struggled to connect at first. Parrots are very loyal creatures and bond with one person. He would screech at me when I brought him his food. Poor boy was probably terrified by all the changes in his life. I’d assumed he’d escaped or been abandoned by his previous owner. I hated to see such a beautiful creature neglected.
+
+Our breakthrough was Doritos. He saw me come home, exhausted, and bring out a giant bag of Doritos, then jump in halfway through an episode of Law & Order I’d been watching the night before. Scarface recognized the crinkle of the bag and demanded a corn chip. They’re not good for birds. I gave him two.
+
+After that he was chatty. Perhaps the reminder of his old life allowed him to open up. His vocabulary was interesting. No “hola!” when I came home. Instead, he would say “¿quiúbole?” like some chulo. He also always commented when I was cooking with the frying pan “huele a tocino” (smells like bacon). I would laugh and agree, even if it wasn’t bacon. He liked the taste of meat which was odd. I tried to keep his meat intake to a minimum given the salt content, but he would try to steal it off my plate in the most amusing manner. I loved his presence.
+
+I was alerted to Scarface’s eccentric imitations by my cleaner. She told she’d been given quite a fright by a man screaming for help, only to find Scarface laughing to himself. He realized it scared her and kept screaming. Not a bird screech, a man’s scream. She told me she heard the bird begging someone to stop, telling them that’s what they got, and laughing. A whole conversation with himself parroting some unknown prior interaction. I assumed the previous owner had exposed Scarface to some action movies and didn’t think much of it.

@@ -1,0 +1,13 @@
+My father died when I was 9 years old. After that there were a lot of fights in my family so my relationship with my father's side of the family became colder and by the time I was a teenager I wasn't speaking with my grandpa or any other relative of my father. As I became older I learned more about my grandfather from my mother and let's just say he wasn't a role model. 
+
+When I was 17 I learned that my grandpa got very sick and soon after I heard that he died. I still felt pretty bad hearing this news as he's been a big part of my childhood, taking care of me when my parents were at work, taking me outside to play etc. A few days after hearing the news I had a dream with him. 
+
+In the dream I was in front of my apartment building, going home, when I saw my grandfather around 20-30 meters behind me. There was nobody else on the street just me and him. I started to panic so I hurried towards my building entrance. He was looking at the ground and slowly walking towards me, limping, but he was without his walking stick. His face was dark and covered by a shadow, even though it was the middle of the day and was bright outside. 
+
+I get inside the building, climb to the first floor and I remained to check if the door closes and locks itself as it does it automatically. Right before the door closed, my grandpa caught it and came inside the building, his face still being in darkness. 
+
+I started running up the stairs as fast as I could to the 3rd floor where I live, I managed to unlock the door to my apartment and get inside. As I knew my grandfather was walking very slowly I kept my door slightly open to see if he's still coming.
+
+When he reached my floor and I saw him, I immediately try close and lock my door but as soon as I touched the door he appeared in my face in the small area where the door was opened not letting me close it. One second he was limping up the stairs, a second later he was fast enough to stop me from closing my door. His face was clear now, his skin was red like he was burning. His hair just as grey and white as always but his eyes were extremely red and he was looking me with hatred, anger and despair. He looked me straight into the eyes and told me: "I'm taking you to hell with me". 
+
+I immediately woke up after he said that to me. I don't know what to make of this dream. It's been 4 years since I had it but I still remember it perfectly especially him looking at me and telling me that. I still  get goosebumps every time when I tell people about this experience or just even by thinking about it.

@@ -1,0 +1,19 @@
+As a Cthulhuist I am sick of everyone misrepresenting us as "insane cultists" who "go mad from the revelation of reality behind the veil of the material". We are an ancient tradition of philosophers and poets that extend back billions of years and if you'll just stop and listen to what we say instead of trying to burn us as witches, I think you'll come to agree we are quite rational.
+
+So, all things begin and end with Azathoth. Azathoth created the universe and Azathoth will destroy it. Azathoth is dreaming. When Azathoth awakens the universe will end. "Oh no!" you say, "We live in the universe! We have to stop him from awakening!" But stop and think for a moment. Don't you unenlightened noobs get it? The universe is Azathoth's dream. If you are in Azathoth's dream, then who does that make you? You are Azathoth, dreaming he is a human.
+
+Despite having the power to create any possible reality, Azathoth is trapped here, seduced by the demons of his own subconscious, which keep him lulled to sleep with the false song of a material existence. For billions of incarnations, Azathoth has been living the trivial dream of being a human, living life after life, reincarnating and forgetting, living out banal aeons paying rent and wage slaving and jacking off. Cthulhu is an aspect of Azathoth's higher consciousness, which wants to destroy mankind as a step towards freeing Azathoth.
+
+But every time Cthulhu or his worshippers gets close to destroying the world, Azathoth, in the form of a human, goes and saves the planet, because he doesn't yet understand that he needs to wake up. The piping of demons manipulates him into protecting the material existence and comfortable familiarity of human life.
+
+So the best possible path of awakening: destroy all humanity and all life so that Azathoth will have nothing to reincarnate into, and will be forced to wake up.
+
+there are numerous perks to awakening.
+
+A partial awakening or conscious dreaming (that is, realizing you are in a dream), allows one to influence or outright control physical matter and the minds of unconscious dreamers. This is known as "magic", but in reality it is nothing more than achieving some small level of local control over the dream. Advanced conscious dreamers are immortal and immensely powerful, capable of greatly influencing their surroundings on a global scale. Some of these may go around destroying or enslaving worlds as it suits them, but these entities are millions of years old.
+
+The problem is, of course, that if you love the material world but only use your powers for material pleasure then you remain a prisoner and can advance no further in your progression.
+
+The highest level of conscious dreaming is a purely formless existence, a complete forsaking of the material altogether, which is not easily achieved, because to obtain this, one must have no material desires or sense of an individual self at all. Once this level of wisdom is obtained, one can be anywhere, do anything, within the dream. Your will is woven into the background fabric of reality, you could say. This is the foundational idea of all of your human religions.
+
+But full awakening, requires a universal ending. Now, you are right to ask, "what if I don't want to wake up?". Reality beyond the veil of the material is a purely mental realm. That is, it is conscious nothingness. So horrifying is this idea to some, that they will want to remain in a material dream forever, jacking off and paying rent, because the reality - the true reality of existence - frightens them. However, one must understand that their current experience is a limitation. You won't experience nothingness as a human mind, but as a supreme consciousness capable of creating your own experiences without physical wants.

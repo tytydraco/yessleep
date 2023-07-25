@@ -2,7 +2,7 @@ Part 1: [https://www.reddit.com/r/nosleep/comments/zyqexx/stories\_from\_a\_gore
 
 After we had returned to the ranger’s station, I had a couple shots to calm my nerves. Looking down, I realized I had been spattered in the blue-black blood of the creature from the forest. Tiny droplets had dried on my arms, chest and face, and as I licked my lips, I realized I just ate a little of the blood too. I gagged for a second, furiously wiping at my mouth and spitting on the floor.
 
-Wickie seemed mostly unaffected by what had just happened. He was a teetotaller, avoiding all alcohol but smoking cannabis and occasionally even taking psychedelics. Whenever I drank, he always told me, “Alcohol rots your brain and kills your liver,” though I doubted any of that would matter if the things in this park killed me first.
+Wickie seemed mostly unaffected by what had just happened. He was a teetotaler, avoiding all alcohol but smoking cannabis and occasionally even taking psychedelics. Whenever I drank, he always told me, “Alcohol rots your brain and kills your liver,” though I doubted any of that would matter if the things in this park killed me first.
 
 I was looking into my empty shot glass with trembling hands when Sheriff Ames came into the ranger station, flanked by two agents in black suits and sunglasses.
 
@@ -36,7 +36,7 @@ I was looking into my empty shot glass with trembling hands when Sheriff Ames ca
 
 “Boy oh boy,” Sheriff Ames said, pouring himself a shot of vodka now that his federal babysitters were gone, “this is going to be a clusterfuck. Anytime the feds step in, they make things so much worse. In my experience, anyway.” He took the shot back like a pro, not even grimacing as the burning liquid went down. Without hesitation, he poured himself another one, and knocked that back as well. “Well, I’m off to the station. Your job is to help those agents in any way they see fit. If they tell you to jump, ask how high. The quicker we get this mess sorted out, the quicker they can leave.” With that word of advice, he tipped his hat to me and headed back to his car.
 
-As I heard him take off, his muffler sounding as if it was about to fall off as he peeled away, an old, broken, rust-bucket of a truck pulled in. It was a local that I knew well, a rancher named Bud Beacon with more kids than teeth and a sickly yellow cast to his skin. He had a Budweiser hat on and a grease-stained plaid shirt with multiple missing buttons on it. He stumbled in, and he did not look healthy. He had never really looked healthy, but now he *really* didn’t look healthy.
+As I heard him take off, his muffler sounding as if it was about to fall off as he peeled away, an old, broken, rust-bucket of a truck pulled in. It was a local that I knew well, a rancher named Bud Beacon with more kids than teeth and a sickly yellow cast to his skin. He had a Budweiser hat on and a grease-stained plaid shirt with multiple missing buttons on it. He stumbled in, and he did not look healthy. He had never looked healthy, but now he *really* didn’t look healthy.
 
 Due to budget cuts, the ranger station also doubled as a small convenience store, to try to bring extra income into the park. We sold odds and ends, like umbrellas, trail maps, hats, hiking shoes and some food and drink. Because there were no other stores around for miles, the locals often came here, despite our high mark-up and suspiciously missing expiration date labels on many of the items. Bud Beacon was one of our most regular customers.
 
@@ -139,3 +139,7 @@ I turned to Wickie, who looked fairly calm and placid despite all that had occur
 “I hope you at least have a plan,” he said to me as we began trekking towards the forest.
 
 “Not at all,” I replied.
+
+&#x200B;
+
+Part 3: [https://www.reddit.com/r/nosleep/comments/1126rfy/im\_a\_ranger\_at\_goreham\_state\_park\_and\_theres\_a/](https://www.reddit.com/r/nosleep/comments/1126rfy/im_a_ranger_at_goreham_state_park_and_theres_a/)

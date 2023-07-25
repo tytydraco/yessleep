@@ -1,0 +1,15 @@
+When i was younger, maybe 8 years old, i used to spend summer at my grandmothers house. she had a nice place and her house was very connected. when you walked in there would be a kitchen on the left and behind the kitchen looking further there would be my grandmas bed, then to the right would be a door. going through that door would be another bedroom with bunkbeds, a tv and a fireplace. looking forward there would be a toilet that had two doors- one to grandmes bed, and the other to this bedroom.
+
+anyways once i was sleeping in my grandmes bed with her and i woke up at night and saw shadows on the ceiling. it was like two men were talking and i heard whispers. every time i blinked they would go away - the next time i blinked the shadows came back. so i just played with the shadows for a little bit until they were gone and wouldnt come back. when that happened i heard wet grass footsteps and the bed was facing the front door where the eye hole was. from there was shining moonlight. but when the wet grass footsteps faded it was like a shadow walked through the front door.
+
+i got scared so i just turned away and went to sleep. after a few days i went home. then after a few weeks my mother told me that there was a stolen chainsaw from my grandmas garage.
+
+the next time i slept there i had this dream. it went like this: i wake up i look to my left where grandma should be and shes not there. she left the covers like she hurried to go somehwere. its the middle of the nightand the front door is a bit opened. in the bedroom i can hear the tv but not see it. it was breaking news something about a white figure like with a greenscreen suit but instead it was white and he walked on all fours. they said to be careful. then that same white figure stepped into the bathroom and turned to look at me. i froze in schock and the dream ended.
+
+the second night i dreamed the same thing but this time when the figure walked out i atood up from the bed and said "i am not afraid of you!". he didnt do anything and the dream ended. 
+
+the third night i had the same dream but this time i went to look for grandma. i stepped outside and looked around for her. i went behind the house where cows usually would be. there i saw the greaper holding my grandma and looking at me. keep in mind there wasnt tiktok then so i didnt even know about the grim reaper. i started shouting at him to let grandma go but he just stood there. after a few seconds of silence he dropped her and the dream ended. 
+
+i was shook but didnt say a thing to anyone. after i went home a few days later grandma went to the hospital. she layed there for a few weeks before dieing.
+
+only now i have linked up the dreams with these events. i stopped having nightmares after grandma died. till this day i am terribly scared of ghosts and dont know if i believe them or not. thoughts?

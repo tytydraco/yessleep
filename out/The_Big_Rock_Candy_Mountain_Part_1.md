@@ -232,3 +232,7 @@ You could nuke the fucking world to glass my son, and somewhere in the centre of
 I want to  argue, but based on every bit of information I’ve gathered Johnny is right. 
 
 But I didn’t come to this Voodoo meth shack to argue. I didn’t even come here expecting some kind of road map to my own damnation, I’d already did my work, that map was pretty much drawn already. But Johnny gave me that last, but most crucial piece any map needs, scale.
+
+Link to part 2
+
+https://www.reddit.com/r/nosleep/comments/10phn14/the_big_rock_candy_mountain_part_2/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button

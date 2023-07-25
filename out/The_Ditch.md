@@ -1,0 +1,33 @@
+I came back to my hometown for spring break. Pretty depressing stuff—driving past the same boarded up storefronts downtown, killing time in the same grimy dollar theater, listening to the same trainwhistle wail down the tracks as I lay awake on the musty futon in my dad's guest room, staring at the same brown water stains spreading across the ceiling. Two mind-numbing days into my week of “freedom,” I was starting to wonder why I had even bothered. I should have just stayed in my dorm and saved myself the headache. Even my seldom-showering roommate and his shitty seeds and stems seemed more appealing company than my dad's sullen silence—still pissed at me for going into graphic design—and the prospect of running into more people I hated from high school every time I had to venture to the corner store.
+
+I got a Facebook message from a guy from my old junior high chess team, Mike, asking me if I wanted to catch up and have a few beers at the old football field that night. Desperate to escape my dad hocking up phlegm into the kitchen sink and reruns of NCIS, I agreed.
+
+The field he was talking about was at our old junior high, which had been closed down a couple years after we graduated because I guess they found some black mold and it was cheaper to just vacate the place than try to clean it. Choked with dry brown weeds, patches of bare earth rubbed bald here and there, the field still held memories of after school soccer practice that were mostly positive, even if I was a clumsy nerd who never scored a goal. The school looming over us was much more depressing. Every window was cracked. Graffiti of illegible names and cartoon dicks covered the old bricks.
+
+Mike waved me over to the pollen-dusty bleachers, where he had a styrofoam cooler of beers set up. Mike looked like...Mike. You ever experience that, where you haven't seen someone since they were a kid, but even though they look completely different they look exactly the same? Same goofy, toothy smile, same red hair, same trying-to-be-funny overanimated expressions, the same ones he'd had when he'd try to crack the chess team up with impressions from Austin Powers. I wonder if I looked the same too. I spent so much time trying to be a different person than that dorky kid from a nowhere town—trying to be cool, trying to be adult—but my facade was probably just as thin.
+
+“Man, I'm glad we had a chance to catch up,” Mike said, sentimental, three beers deep. “I didn't even know you were back in town.”
+
+“Yeah, just stopped by to see my dad. How's grown-up life treating you?”
+
+Mike told me about his job at the textile mill outside of town, about his pregnant girlfriend. My back was starting to cramp from sitting on the bleachers, so we got up and walked around. At the edge of the field was a rusty chain link fence and a stunted wooded area rambling to a creek. We both curled our fingers through the rusty holes and jangled the fence, startling some crows out of a leafless tree. The first stars began to appear in the soft purple sky.
+
+“Remember when we used to sneak out here after soccer practice and smoke your brother's weed?” I asked Mike, smiling at him, starting to relax for the first time since spring break began. Mike didn't return my smile, instead staring at me with a weird, stricken expression. “Shit, dude, remember when you almost died out here?”
+
+“What the fuck?” The beers caught up with me suddenly—I felt clammy and stupid, kinda sick. “What are you talking about?”
+
+“Over there.” Mike pointed beyond the fence. A ways past the creek—really, barely a trickle, a sliver of black water in the rotten underbrush—there was a cluster of rocks. “That ditch. You slipped down there. I saw it happen, heard you scream and everything. I tried to grab you, but the ditch was so narrow and dark that I couldn't reach you. I freaked out and ran to get Coach Morris. When we got back, you were just sitting on one of those rocks, totally fine. I guess you pulled yourself out. It scared the shit out of me, though. When you fell in, you screamed, but then it was like—bam. Total silence. I thought you snapped your neck for sure.”
+
+Cold beads of sweat rolled down the back of my neck. “God, I don't remember that at all.” The smell of wet earth, of dirty creekwater, of dead pine needles—my head spun. I don't know why I felt so nauseated all of a sudden. All the cheap beer.
+
+“It was stupid anyway. You were fine. I don't blame you for not remembering.” Mike, to my alarm, started to climb over the fence. “I have to take the craziest leak.”
+
+“Mike...” I started to say something, like “better be on my way,” but something stopped me. I felt stupid for feeling so shellshocked and dizzy on this warm March evening, with a guy who I used to play Tekken 2 until 3 AM with, on the same field where I used to play middle school soccer. I followed him over the fence.
+
+While Mike found a patch of reeds to pee into, I stepped over the creek and walked towards the pile of rocks. Just beyond the woods, the faint yellow lights of downtown shimmered in the last bit of evening. A trainwhistle cut through the quiet rumble of faraway traffic and the chirping of crickets. I pressed my palms into the rough, cool surfaces of the rocks and peered over into the ditch. It didn't seem so big to me, barely wide enough for a scrawny kid to trip into, but in the fading light it seemed endlessly dark and deep.
+
+I swung my legs over the rocks and crouched down at the ditch's edge. Coolness radiated from the hole. The perfect, dense blackness fascinated me. I probed one foot down, experimenting with the depth—it was shallow enough that I could easily climb out, but if I ducked down, I would be hidden. I lowered myself inside, feeling silence slip over me like a heavy wool blanket, smelling the cold damp earth, tasting the darkness, like the metal taste of rain and dirt. I breathed the darkness into my lungs.
+
+Huddled against the side of the ditch was a ten year old boy in a soccer uniform long since rotted to gray threads. His hair was brittle and colorless, his eyes clouded white. He turned his head towards me. Tears made pale tracks on a face smudged with wet earth. When he opened his mouth, it was full of rotten black leaves. When he reached his hand out to me, I could see every delicate bone through his translucent skin.
+
+“Are you done yet?” he asked, in a familiar voice, my voice, my child's voice, a hollow croak now. “Are you done being me? Can I please come out now? Can I please go home?”

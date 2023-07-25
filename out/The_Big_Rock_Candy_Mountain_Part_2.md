@@ -254,3 +254,7 @@ I don’t like it, but we both stand, The Sadhatter has finished the last of the
 I’d like to think that if I was a badass, if I knew what I was doing in a fight, I’d have went back. The fact of the matter is, Levi is dead, and saving some poor bastard that didn’t even try to get into this shit storm would be a much more noble hill to die on than a quest for trivia about my best friends death. 
 
 But I’m not, this isn’t a story about that guy. This is a story about me, and my obsession. So I follow rabbit as the sounds of violence start to ring out from behind us.
+
+Link to part 3
+
+https://www.reddit.com/r/nosleep/comments/10v28xj/the_big_rock_candy_mountain_part_3/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button

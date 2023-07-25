@@ -1,0 +1,29 @@
+Let's rewind to around 2 hours ago. At the time of writing this I am currently cowered in fear in the far end stall in the bathroom of my local cinema while being hunted by approximately 15-20 crazed satanic cinema employees. I'm pretty sure my ankle is broken and at this moment in time I would estimate I have less than 15 minutes before they find me, I can already hear the chants getting closer. I could try to run but there is no doubt they would catch me. While I await my inevitable and brutal death, having my flesh and organs harvested, I thought I'd at least like somebody to know what happened to me.
+
+Lets rewind to around 2 hours ago.
+
+Considering the time crunch I'm under right now, I'll have to keep it pretty brief. The date is Sunday 26th of March 2023, I pretty much did nothing today except eagerly await my booking to see the new John Wick film at my local cinema. After all I have been waiting 4 years for it. My showing started at 7:00pm so I left at around 6:30 in order to make it on time and acquire the necessary snacks I would need for what *I thought* would be a relaxing 3 hour film. As I entered the building I thought nothing out of the ordinary, employees welcomed me in and I was served by the same depressed miserable teenagers you would expect to be working the counter at the cinema. When I went into my showing I was slightly late so the trailers were just ending in preparation for the beginning of the film. My town is pretty small so despite the film coming out recently it was pretty empty, a guy at the front, a couple in the middle and me all the way at the back. The film started and it was great, classic John Wick style action and gore. However, once we hit the halfway mark, things started to go downhill.
+
+I noticed a figure enter at the bottom of the stairs and just eerily stand still. They were stood there for a good few minutes and I figured maybe an employee just wanted to slack off for a bit and enjoy the film. I saw him approach the man who was sat at the front but again, I didn't want to take my attention off the screen; after all it was an intense piece of action. I realise now I was so oblivious to what was happening at first because, due to the commotion and loud noises on the screen, I never would have been able to hear the mans screams of agony as the employee plunged a serrated knife into his stomach and tore out his organs.
+
+Once satisfied with his gruesome task, the employee makes his way up the isle and starts approaching the couple sat in the middle row. Now I really was intrigued. Why is this guy acting so sketchy? I soon found out due to my heart falling into my asscrack when the light from the screen reflected onto the blood soaked knife he was clutching in his hand. In disbelief I thought to myself, "Wow they're trying really hard to make this immersive." When I leaned over my seat to observe the 'performance' I soon realised how much shit I was in when I saw the severity of the way this guy once again ripped the guys guts out. I will never be able to erase the look of sheer terror on the girls face from my mind as she had no choice but to accept her inevitable death. Her screams tore through the audio of the film and pierced my eardrums. With my anxiety spiking, I realised I was next as the employee turned to look at me. I always thought that in situations like this I would freeze, but my fight or flight kicked in. I bolted to the balcony that drops down to the entrance of the screen room and threw myself over the side. I felt my ankle snap as I awkwardly landed on it but I felt no pain as I picked myself up and half sprinted/half limped out of the room, leaving the gunshots and grunts of pain coming from the film behind me.
+
+As soon as I exited the room I froze. Before me was a sea of people strung up from the ceilings with their guts hanging out of their stomachs, blood everywhere. However, I averted my gaze to be met with an arguably worse sight than that of mutilated corpses, living people everywhere. I recognised a lot of them; the friendly manager who welcomed me in, the moody teenage girl that didn't fill my popcorn all the way to the top, the ticket guy who told me to enjoy my film. Only now they had additions to their uniforms. Soaked in blood, satanic symbols on their foreheads, and they were all wielding the same serrated knife I saw the other guy gut people with not even 5 minutes prior. Worst of all, they were all stood in front of the exit.
+
+"Oh, fuck."
+
+I bolted down the hallway until they were out of sight, expecting them to come tearing after me but I heard nothing. Complete silence. The only thing I could hear was my ragged breathing and the thumping in my head as I slammed open the door to the mens bathroom and locked myself in the far end stall. I realised when I sat down how excruciating the pain in my ankle had suddenly become. Turns out trying to sprint using a broken ankle hurts like a motherfucker. I also realised that I have no escape. My confusion turned into realisation as I came to the conclusion they didn't chase me because they knew they'd find me.
+
+So, here I am. Using the last few minutes of my life to upload this. I'm also suddenly realising that fire exits are a thing but clearly I don't work well under pressure and I am a moron. I'm going to comfort myself by saying that they probably would have had those covered too so I don't spend the last few minutes of my life drowning in regret. I can hear the chanting getting closer and closer as I've been typing this. I am so scared. Do you think it will hurt? Of course it will. I only pray that I will pass out before they take my insides.
+
+Oh God, I can hear the door opening.
+
+They're checking the stalls one by one.
+
+I think I'm going to throw up.
+
+They're two stalls away from me.
+
+God, please help me.
+
+**I just wanted to see John Wick.**

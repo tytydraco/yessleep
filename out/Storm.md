@@ -1,0 +1,39 @@
+ Have you ever tasted blood? I mean  really tasted blood. Have you ever had a hunger  so insatiable or a thirst so unquenchable that no  amount of food or wine could fulfill it? Blood,  the ruby nectar of life that is so precious to so  many. It is a rare commodity to find the purest  of the pure and a treasure that I value with my  life.  
+
+ Now before you think I am a vampire  because of my appetites I must tell you that I do  not belong to that illustrious sect, regretfully. I  belong neither to the immortals or the normal  living beings, the ones that crawl along the  freeways in their chrome and glass sarcophagi. I  belong to a group consisting mainly of myself. I  am sure that there are others like me but I am  unaware of them at this time .
+
+ I am in turn savage and gentle. I have  been called evil by those that are narrow minded  and do not understand me or my existence. I  have been viewed as a scientific miracle and  monstrosity by educated men and women. I  have been ostracized by my family since the  tender age of four when my mother and father  first realized that I was different.  
+
+ Instead of playing with other children I  stayed to myself and became obsessed with the  basic rules of nature between the hunter and the  hunted. I often wandered off into the woods behind our house and watched for hours on end  as snakes swallowed small field mice and the  spiders crawled on their nimble legs toward the  trapped and panicking flies that were silly enough  to stumble into their sticky lair. 
+
+ To look at me you wouldn’t know of my,  shall we say, unusual appetites. You could pass  me in a store, the school hallway, on the street  and never know who I am. I could be your best  friend, your neighbor, your lover. Your lover. I  have never denied my passion for the opposite  sex. I worship women, I adore women, I am  obsessed with them. I love their softness, their  essence, their sensuality. Most men take them  for granted or simply ignore the mystery that  surrounds the soft vixens that haunt their most  erotic dreams. Not I. 
+
+ Women, since the age of fifteen I have  been captivated by them. I have loved them with  a fierce abandon that amazed even me. I have  also been obsessed with one. Do you know what  it’s like to become so impassioned with one  person that all sense of right and wrong are  suspended and one thought burns like a fever in  your blood? 
+
+ I am not one of those men that they do a  movie of the week about. I do not stalk young  women and frighten them to death. I have  always prided myself on being better than those  poor fools that can’t seem to tell fact from fiction.  No, I do not stalk women. I love them too much  for that. My blood has made a very insatiable  man, the flesh is weak.  
+
+ I stare blankly at this monitor, not sure  why I am writing this for everyone to read. I’m  sure many of you will judge me but that is nothing  new. Madness, isn’t that what most great  tragedies are based on? The poor characters  that stroll across the stage are truly mad in their  own rights.  
+
+ Each person must deal with his own  demons; his own madness, but most just sit  quietly while it slowly eats them alive. I on the  other hand, am Madness personified. I am a  genetic what-if that never should have been. My  dear sweet, angelic mother and my father didn’t  know that inside each of them, they carried the  one dormant gene that would create the creature  they gave birth to. I remember going to church  on Sundays, sitting beside my mother on the front  pew and listening to my father preach his  sermons. 
+
+ He talked of sin and the serpent in the  garden and of man’s downfall. Then he talked of  the evil that Satan wrought when he led man  astray, of the evil that the devil could plant in the  seed of an unborn child because of the  faithlessness of two married people. He  preached long and hard of the weakness of the  flesh and of temptation. He stared at me the  whole time and I knew what he was saying, he  was denouncing me in front of the whole  congregation. He was telling everyone that my  dear sweet mother was less than what she had  always been to me. 
+
+ Then came the tests. My father  contacted some of the doctors he had known when he had been an intern. 
+
+ Tests. What a waste of a word. Torture  would be more suitable. Blood was a favorite of  theirs and they couldn’t seem to get enough of  mine. Four times a day they would take my  blood; you know after a while the needles cease  to hurt. I was put under glass you could say, I  was studied twenty-four hours a day. While I  slept they watched me; when I woke they  watched me; when I ate they studied me. 
+
+ For fourteen long years they probed me,  they poked me, they turned me every which way  they could and probably would have loved to cut  me open save for the fact that I was a living,  breathing ‘human’. All the time my hunger was  growing to a fever pitch and I knew that it was  going to surpass even my control. 
+
+ It was the eve of my eighteenth birthday  when I awoke with the worst gnawing in my  stomach I had ever felt. My body trembled as I  staggered from my hospital bed and made my  way into the tiny cubicle of a bathroom. The  fluorescent’s blinded my sensitive eyes as I  splashed icy water in my face and fought down  the wave of nausea .
+
+ I felt like a man that had been starved and  my throat burned with thirst. A thirst I had never  known. It was a thirst for something more  substantial than the chilly water that cascaded  over my open palms. I needed food. 
+
+ I pressed the call button and slipped into a  primal crouch on the floor, instinctively taking up  this ageless predatorial stance. The orderly that  came to my room was accompanied by another  burlier man that had been working at the hospital  for four months now. I don’t know what his  name was but I rarely ever worry about names  anymore. 
+
+ They pushed the door open and found me  crouched there. I must have been a terrifying  sight with my eyes glazed over with the blood lust  that creeps into them. I have seen it myself  many times. I launched myself at them like a  man possessed and quite possibly I was. The  need for sustenance overrode any fear that I  might have had that they could take me. Instead  I went for the throat on first one man and then I  lunged for the other as he tried to run from the  room. I’m sure their screams were heard in the  hallway but since it was so late at night there  weren’t many on duty in this ward at least. 
+
+ I didn’t care. I was in such a fever, I think  I would have taken all them on. The first taste is  always the most bitterly sweet. Salty with just a  touch of metal. Nourishment. Fulfillment.  Something to quench the burning thirst and quiet  my stomach. I ate. 
+
+ Sometime later, after the fever pitch had  left my body I realized what I had done. I wept  as I stared at the two lifeless bodies that were  now surrounded by the crimson pool of their own  life’s essence. It slowly slipped from the torn  flesh to run in ruby rivers to the pristine white  floor. Everything is so harsh in the light, but in  the shadows, there are areas that seem less real.  Not so with this. The light was harsh, it clearly  outlined the dead men lying on the floor and it  clearly showed me covered with their blood, smeared across my mouth, dripping from my  hands, coating the front of my sweat pants.
+
+ Time; it can play tricks on the mind.  Something may seem to take forever when in all  actuality in only takes a few seconds. I felt like I  had stared at those bodies for days but I had only  stood there for two minutes before I realized that  I had to get out of there. I had to run, to get  away before others came and put me in those  awful padded cells with the jacket again. I  grabbed the items closest to me and ran out the  door, unmindful of the bloody footprints I left in  my wake.

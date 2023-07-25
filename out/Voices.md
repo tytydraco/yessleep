@@ -1,41 +1,103 @@
-The voices are getting louder.  They have been there for my whole life, talking to me, keeping me company, offering me comfort and advice.  They have been incredibly helpful. They gave me words to speak when I just couldn’t find the right ones.  They have given me answers to questions that I couldn’t figure out on my own.  And they . . .how do I put this?  They . . . tell me things that nobody should know.
+*Long Story 
 
-I’m not psychic at all. I have no idea what the voices are or where they come from. What I do know is that if they tell me to cross the street right now, I do. I have. In fact, it was just in time to get out of the way of a couple of gang members shooting at each other through a crowd of pedestrians. A lot of people got hurt. Some died. Not me though. The same goes for when they told me not to get into the cab that first responded to my hail. Turns out that driver was looking to get revenge on the world before going out in a blaze of glory. He picked up four fares that day and killed every one of them before getting into a shootout with the police. He was killed. As for me? I would have been his third fare.
+I am a long term stalker on Reddit but never a poster - so here goes nothing. 
 
-I think that’s enough to give you an idea of my relationship to the voices in my head. I don’t think you want to sit though some long, drawn out story about the financial decisions they guided me on, or the relationship decisions, or the career decisions, the scratchers to buy, or the deep secrets that no one should know and I often wish that I did not.
+I’m not sure if you’ve ever been reading some of these stories that others post and it triggers a memory long since forgotten, but I must admit that I am there today. 
 
-Let’s jump into my present situation.
+This happened when I was 12(F). Memories from back then are not so clear, I’m 30+ now, but this one is clear as day. 
 
-The voices have never told me to kill anyone before. I don’t know why they want me to do it now. I don’t even know who the person is. Well, I didn’t know. The voices have told me everything there is to know about him. I know his name. I know where he lives. I know exactly what he looks like, his schedule, the name of his goldfish, his favorite food, the shows he watches. Heck, I even know that he rubs one out every night before bed. I really didn’t need to know that.
+My parents were not super well off and for a long time struggled to get ahead. My dad worked incredibly hard and after many years of stress and fights and all the shit that comes with money troubles he’d saved enough to put a deposit on a home. (I was 10). 
 
-I’ll call him Glenn. Not his real name, but I don’t think that using his real name would be a very good idea. He lives two states over in a smallish town. Nice house. Paid for it with the life insurance money from his wife that he murdered. Me made it look like an accident. Used some meth cooking methods to extract the epinephrine from a bunch of decongestants and injected it all into her while she slept. It gave her a massive heart attack. He jabbed her in the armpit, where it’s super easy for the coroner to miss a tiny needle mark. No one ever suspected a thing.
+I remember the first time I walked into our new house. I know it was the day of the key turn over and though I don’t remember my parents excitement or energy I do remember the feeling I got when I walked in behind them for the first time. 
 
-But I know.  I know because the voices know.
+It was a two bedroom, with a study. Not very big with really dark grey walls and a nice garden. I remember feeling this overwhelming sense of wrongness with the house. It made me feel strange and uncomfortable even though there was nothing about it I could put into words. 
 
-Oh, he hated her so much. What began as a marriage of love became a marriage of convenience that became a marriage trap. They fought all the time for years. Their hatred for each other grew by the day until one day he snapped. No, that’s not the day he killed her, but it is the day he decided to. He’s smart. He knows that the first suspect in any suspicious death is the husband, especially when he is always fighting with his wife. That’s why He stopped fighting with her and went out of his way to be super good to her.
+I tried to tell my dad about it and I remember him saying that it was just a big change and I’d get over it. I was a quiet kid, kept to myself and said nothing more about. 
 
-I know what you’re thinking. That’s the near-universal cure for a bad marriage. It makes a woman fall in love all over again and makes her putty in her hubby’s hands. You’re absolutely right about that. Even if it starts as a sham, you would think that the way the wife responds to the husband would soften his heart and the love would blossom between them. It wasn’t that way for him. His hatred was too deep. His resolve was too firm. All he cared about, all he wanted, was the illusion of being a loving husband so that he wouldn’t fall under suspicion.
+They took me to my new bedroom. It was so much bigger than our apartment. And I swear it I tried to be happy. But the walls where dark grey and it had those horrible star glow in the dark stickers all over the ceiling and one of the walls. There was a wardrobe too which was all black inside. All I know is that it didn’t make me feel safe. (Not that much made me feel safe in my childhood but that’s another long story). 
 
-He invested two whole years into his plan. She was so happy. All the while he was slowly obtaining the meds, making it a habit to go hiking or hunting in the woods so his final trip, the one where he would create his poison, wouldn’t look suspicious.
+My dad got angry that I didn’t like it. And I tried really hard to smile and say thank you. I didn’t know what was wrong. Still now I can’t tell you why I felt that way, but it was overwhelming. 
 
-She never saw it coming. He injected her. He watched her die. Then he got in bed with her and went to sleep. When he woke up, he pretended to panic. He called 911 with fake tears and choking in his voice. When the paramedics declared her dead and carted her away, he broke down in a flood of crocodile tears. When the police took his statement, he wailed and cried that he loved her with all of his heart.
+Before we moved in my dad took out the old carpets and did the floors. He got the whole house repainted and those stupid stars off the walls in my new room. When we moved in it was a clean space. 
 
-He went through all the right motions, playing the part of the grieving husband to perfection whenever there was anyone to see him. In private he reveled in his newfound freedom, loving the peace and the lifting of the burden of treating the woman he hated like a queen.
+Fast forward 11yo - for my birthday that year my parents decided to get me a pet. They took me to a breeder and they chose one. (I don’t like cats, I’d been bitten and scratched before) but I said thank you so much and loved on the kitten. 
 
-That’s the short version of his story. Of course, no one on earth knows this but him, the voices, me, and now you do too. He never told anyone. I have no way to know this. It’s the voices.
+That cat grew up and it absolutely hated everyone. It didn’t hiss or scratch but gods it would just hide away all day and night. You’d never see it but the huge amounts of fluff and hair everywhere. (This is important bare with me). It would never come out or play. And because it was a ragdoll it was an exclusively indoor cat. 
 
-I don’t like the idea of offing a man based only on what the voices tell me, but they voices have literally never been wrong. Never. Been. Wrong. Not even once. But this is a whole new level of demand from them. This isn’t life advice or protecting me from harm. This is murder. Or maybe it’s justice. If he really did murder his wife killing him would be justice, wouldn’t it? The cops can’t do anything. There’s literally no evidence of foul play. He had her body cremated, so they couldn’t exhume her and test her for an epinephrine overdose based on an anonymous tip. Everything he used in the murder, what little there was, was destroyed long ago. There is literally no way for the law to serve him with a big helping of justice unless he confesses to the murder. 
+She lived in the laundry at night. Which was where our toilet was as well. So to get to the toilet you’d have to sneak past her at night. 
 
-He will never do that. His conscience doesn’t bother him in the least. He thinks it’s the best thing he ever did.
+I absolutely (I am sure like everyone) hated going to the toilet at night. HATED with a passion. But it was only about 15 steps from my bed to the bathroom and I just remember one night I woke up and it was pitch black. 
 
-No one will ever believe me either. They have no reason to. I have no evidence but the voices in my head. That’s the kind of evidence that gets you locked up in an asylum for the criminally insane. It’s the kind of evidence that guarantees that you will be kept a drugged up, drooling mess in a straitjacket and a padded room.
+*you could look back and say perhaps it was a moonless night. Or a cloudy night ect. 
 
-I have been telling the voices no. I can’t do it. Justice or not, it’s still me taking another human life without the support of the law. I can’t be judge, jury, and executioner.
+But this black was so thick it made the hair on the back of my neck stand up on end. Even on my arms. It was terrifying. But short of piss the bed I had to move my ass and just go to the toilet. 
 
-They tell me that they are the judge and jury, and I am merely the executioner.
+I would of got the belt if I’d woken my parents up by turning on the light and both were light sleepers. So I walk in that dark. And it felt like it was watching me. I held onto the walls and put one foot in front of the other. Eyes open or not it was the same darkness, but it felt so heavy. So strong. I turn and open the laundry door only to find the cat upright on its bed hissing at the  window in the door. 
 
-I have never had any reason to doubt the voices in my life. I doubt them now. I doubt them because killing is wrong. But then again, he’s a killer, isn’t he? Is he really going to just get away with it and live a long and happy life? Could I live with myself if I do what the voices tell me to do?
+I think I was so stunned that this invisible cat that made no noise ever was hissing and angry, that I just froze. Dread swept over me like ice over my body. I went hot and cold all over before I could even tell you why. I - fuck this is brutal to write 
 
-I need to stop. Maybe take a sleeping pill. The voices are screaming at me. It’s so loud. It hurts. It hurts my head. It hurts my ears. It hurts my eyes and even my body. They are so loud. I don’t think they will stop unless I do what they say. I don’t know what to do. Do I trust them like I always have in the past? Do I do what they say whether I trust them in this or not? Do I continue to resist?
+I turned my head and in that window was a shadow of a man with a top hat on. I know it sounds insane but I know what I saw. And I know he was looking right at me. Through me. No features or anything in that thick darkness but the outline of him was very clear. 
 
-Help me. Please. I don’t know. I just don’t know.
+I forgot to close the door or to breathe. I just ran into my room and hid under the bed. Rocking back and for hours until the sun came the hell up. 
+
+I tried to tell my parents. I tied to tell them and they didn’t believe me. They said I saw the shadow of the tree moving and reflecting. It was my imagination. I was being stupid. 
+
+That night on I made sure to pee before bed. Double check the security door was clocked. That the wooden door was locked. That the blinds in my room where down and that I had my lamp on. For a full year I slept with the light on and even then I didn’t feel safe. 
+
+Fast forward a year - 12yo 
+
+My grandparents came to stay with us for the year. The house was small so they moved me from my room and gave it to them. (I had no complaint I loved my grandparents so much. And they loved me. It gave me some peace in my life for a little while. ) 
+
+The study was small. I slept on the pull out sofa. That touched the deck which had a computer on it. The window was narrow and in a corner but it was floor to ceiling. This room did not have curtains. My parents  also didn’t let me take my lamp as my grandparents needed it to read at night ect. I tried to ask for it a few times and was told to grow up. 
+
+It started maybe the night I first slept there. I can’t be sure that part is fuzzy so I won’t bullshit. Id wake up for no reason at first. In the middle of the night. Once twice a week then it got to every night. My parents started getting angry with me over it. I was tired and the school was noticing. 
+
+They got me a new night light. Not a lamp but still good. But even with it on id still wake up. 
+
+Id say it was months that constant night waking happened without cause (though it could have been weeks) when one night it changed. I woke up to hear tapping on the window. Sometimes scratching. Sometimes breathing. 
+
+No I didn’t look. It seems my fear response it to freeze like a coward. But that tapping and those sounds was terrifying. At first it was only a few times but each night it got longer. Harder. More persistent. 
+
+I would sit in that bed with my head under covers drenched in sweat. 
+
+I wasn’t sleeping. I wasn’t eating.  My parents were enraged with my bullshit. They told me it was birds. The flowers outside the window hitting it in the wind. That I was making things up in my head. 
+
+By summer I was a mess. My grandparents even offered for me to sleep in bed with them. But my parents got angry about it. Saying I wasn’t a baby and that was ridiculous. 
+
+It as a hot night. I’ll never forget it. It had been a scorcher if a day and we didn’t have aircon. Just a box in the living room. So my parents got the mattresses and put them in the living room floor for my grandparents and for them to sleep. 
+
+I got to sleep on the couch with them  and it was the first time in a very long time I got to Sleep in. 
+
+When I woke up, I am sure it was afternoon. Maybe the one and only time I was ever allowed to sleep in like that since I was little, my parents were acting so strange. 
+
+They made me breakfast in silence and my grandparents looked stressed and worried. I ate in this weird silence too and the longer it went in the sucker I felt. Like I had done something really bad and I was about to get a beating. 
+
+But dad sat down at the table and started asking me questions. When did I start hearing the noises. What did the man I saw look like ect. 
+
+I can not describe the relief I felt that finally I was being listened to. I went over all of it. Again. For the manyith time. The man in the window. The cat hissing. The tapping. Everything. I tried to be as honest as I could. 
+
+I know when I looked at my dad when I finished that he didn’t believe me. He said he heard the tapping at the windows, they all had. But when he went to look no one was there. He said it was just one of the kids from school who lived down the street pulling a prank on me and he’d talk to the school. 
+
+That night, after a long hot day we got this beautiful summer rain. I sat in the garden and got soaked before my parents got home from work and just enjoyed that water hitting me and just washing away all my problems for a minute. 
+
+That night I was so exhausted that I just fell asleep watching tv. My parents moved me and groggy as I was I just feel flat on the sofa bed and passed out. 
+
+They’d left my window open my night light off.  That night I woke up to the sound of my name, my full fucking name being whispered at first. Then it progressively got louder and louder. More demanding. Telling me to come to the window. 
+
+It was not a kids voice or a man or woman’s voice. I can no describe it to you. But in my bones I knew it was done plying with me. 
+
+When I tell you I screamed, I mean I screamed so loud that my voice broke. That sweat poured off my so bad it was like I’d wet the whole bed. 
+My dad burst into my room and asked me what the fuck was going on. And I couldn’t talk. I could speak. I was just terrified beyond measure. 
+
+I was allowed to sleep with my grandparents after that. And my parents got security lights and adt security that they armed every night. 
+They even got the priest to come and bless the house. 
+
+My parents even installed security cameras around the house too. 
+
+I never heard about it again. All the noises stopped. The darkness gone. The feeling of being watched all the time disappeared too. And I forgot about it. Friends and life and fun taking over those memories. 
+
+I did ask my dad about it years ago. I think I’d had a bad dream. I must of been in my late teens. 
+
+He said don’t worry about it. 
+But the look on his face was haunted. 
+Whatever actually happened he took it to the grave.

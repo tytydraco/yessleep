@@ -1,73 +1,23 @@
-20 January, 2022
+There once was a small town in the middle of nowhere, where the locals whispered about a dark secret hidden in the woods. It was said that a mysterious figure, known only as "The Watcher," roamed the forest at night, keeping a watchful eye on the unsuspecting inhabitants of the town.
 
-&#x200B;
+Despite the rumors, no one had ever seen The Watcher, and many believed it to be nothing more than a local legend. That was until the day a group of teenagers decided to venture into the woods to explore and see if they could catch a glimpse of the infamous figure.
 
-Dear Diary
+As they made their way deeper into the forest, the trees grew thicker, and the air grew colder. The group of teenagers began to feel uneasy as they stumbled upon an abandoned cabin deep in the woods. It was clear that no one had lived in the cabin for years, and the place was in a state of disrepair.
 
-&#x200B;
+As the group explored the cabin, they noticed strange markings etched into the walls and floor. The symbols were unfamiliar to them, but they gave off an eerie and ominous vibe that sent shivers down their spines.
 
-&#x200B;
+It was then that they heard a noise coming from outside. It was a faint whisper, almost like someone was trying to communicate with them. The teenagers cautiously stepped outside to investigate, but the woods were eerily silent.
 
-&#x200B;
+As they made their way back to town, strange things began to happen. The group began to experience bizarre nightmares, all featuring The Watcher. They would wake up in a cold sweat, feeling like something was watching them.
 
-I know everyone at school will make fun of me for this if they find out, but I have to tell someo- something. I have always struggled with sleep paralysis, I have talked to countless doctors and therapists but nothing seems to prevent/stop it. Recently it got worse. Every night I wake up between the hours of 1 AM and 3AM and have sleep paralysis. I have always had a wide variety of sleep "monsters"
+Days turned into weeks, and the group of teenagers grew increasingly paranoid. They began to see The Watcher everywhere, lurking in the shadows, watching their every move. The whispers they had heard in the woods were now a constant presence in their minds, haunting them day and night.
 
-&#x200B;
+It was then that they realized the true horror of what they had uncovered in the woods. The symbols etched in the cabin were a warning, a message left behind by someone who had encountered The Watcher before. It was a warning that they had ignored, and now they were paying the price.
 
-but recently I have only been seeing the same one. He, or well It...appears to be a human wearing all black at first glance, but upon further inspection he- it only has one eye. His eye is glowing white. When I first saw it in my episodes of sleep paralysis, it would only stand in the corner of my room, staring at me, as still as a statue. Not unusual. But as time went on, I saw him even more. Always getting an inch or two closer to me laying in my bed. I last saw him about a week ago, in my last sleep paralysis episode. But now I have started seeing him in the outside world. In the mirror, on the bus, in busy crowds and in school...Maybe I'm just on edge, but I stopped seeing him in my dreams altogether, but started seeing him outside of my dreams? I'm not sure what's going on, But I'll just have to wait and see
+The group of teenagers soon realized that they were not alone. The Watcher was now watching them, and there was no escape. They were trapped in their own nightmare, and there was no one to help them.
 
-&#x200B;
+It's been years since that fateful day, and the town has never been the same. The locals whisper about The Watcher, warning their children never to venture too deep into the woods. The cabin still stands, a dark reminder of the horrors that lurk in the shadows.
 
-Until Next Time, If there is one.
+Some say that The Watcher is still out there, waiting for his next victims. Others say that he's already claimed them, and that they're now trapped in their own nightmare, just like the group of teenagers all those years ago.
 
-&#x200B;
-
-&#x200B;
-
-24 January, 2022
-
-&#x200B;
-
-Dear Diary
-
-&#x200B;
-
-&#x200B;
-
-&#x200B;
-
-Today while my family and I were eating dinner, I looked down at my phone for merely a second, and then I looked up, and he was there, at the other end of our dinner table, starring at me. Holding a fork, He was holding it but was still maintaining perfect eye contact with me. It felt like an eternity, when it broke eye contact and looked at the fork. The next moment he stabbed himself in his eye. I fell out of my chair because of blood splattering all over me. The next moment I woke up in my bed. I'm not sure if I am going crazy or something, I can't take this anymore.
-
-&#x200B;
-
-Goodbye, For now.
-
-&#x200B;
-
-&#x200B;
-
-2 February
-
-&#x200B;
-
-Dear Diary
-
-&#x200B;
-
-&#x200B;
-
-&#x200B;
-
-Remember when he stabbed himself in the eye? Yeah, well, I saw him again. This time his eye was glowing, like usual but yellow and there was blood running out of his eye. Why Me. I really can't take this anymore. He follows me. He watches me. He is always there. In the shadows. In your closet and under your bed. The Watcher always watches.
-
-&#x200B;
-
-&#x200B;
-
-February 13
-
-&#x200B;
-
-Dear diary
-
-This is my last entry in this, During my latest episode, he started talking, some of it was inaudible, but I could still make out most of the spoken words. It's speech is as follows: (Sobbing) (inaudible) I am Always there, In the shadows, In your closet, (inaudible) The Watcher. Always. Watches.
+No one knows for sure what happened to the group, but some say that their souls are now trapped in the woods, forever tormented by The Watcher. And if you listen closely, you can still hear their screams echoing through the trees at night.

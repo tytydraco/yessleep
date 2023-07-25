@@ -1,0 +1,21 @@
+So, I had moved to this medium-sized city three months ago to start my first "real job" post-graduation. The city itself was as average and nondescript as any other; a patchwork of suburbs, an underwhelming downtown, most people just trying to make their way through life. I got myself a small one-bedroom apartment in an old building in a residential part of town. The rent was cheap, mainly because the building was old and most of the tenants had lived there for decades.  
+  
+One night, after scrolling through Facebook and seeing all the horror stories my friends would share about their own job experiences, I felt pretty fortunate with my situation. Nonetheless, it had gotten late, and my eyes began to feel heavy. I decided to turn off the glaring laptop screen and started flipping through channels on the small TV I had recently gotten as a hand-me-down gift from my uncle.  
+  
+The channels seemed to stretch on into the hundreds, but there wasn't much on late at night besides commercials and informercials. I finally stumbled upon a channel that stopped me in my tracks: Channel 10. At first glance, it appeared to be mostly static, but within the buzzing snowstorm of pixels, there seemed to be faint shapes and movement. Oddly enough, the movement and images were seared into my memory like a bad dream—ghostly shapes of faces, mouths in motion, a cacophony of voices just below the threshold of recognition.  
+  
+I chalked it up to my overactive imagination and my mind playing tricks on me, refusing to allow the unsettling vision to deter me from a good night's sleep. But as the days went on, the static-filled channel kept re-entering my thoughts. My body and mind seemed drawn to it, every night I spent longer periods of time staring at the screen, unable to snap out of it. The buzzing, shifting patterns of noise changed nightly; each time, the sensation that the whispering voices were on the cusp of revelation.  
+  
+I decided to probe my neighbors, asking if they had ever encountered anything unusual about the local TV channels. None of them, except one, had ever so much as heard of Channel 10. My last phone call was to the building manager. After hesitating for a moment, he confirmed that Channel 10 was reputed to be the remnants of an old local access channel that had since been shut down, after a string of bizarre and traumatic events.   
+  
+Now, I'm not one to typically indulge in ghost stories or indulge in local lore, but the entire thing sent shivers up my spine. I attempted to avoid flipping to Channel 10, but sleep eluded me, my ears on edge with the TV's white noise scratching at my senses. By day, the visions seeped into my thoughts, and I found my cynicism cracking.  
+  
+Tonight, I made a decision. I would confront Channel 10 one last time, dedicate my focus, and decipher the voices and images hidden beneath the whirling static.   
+  
+I settled in my chair in the dark room, the screen reflecting off my glazed eyes. The voltage sounds and whirring grew, somehow felt it mine, the voices redoubling their volume as if they knew their secrets were about to be unmasked.  
+  
+And suddenly, through the crackling distortion, a message: a string of numbers or some code - "74935... 50NC 6QS... 8V10S 0FR". Just as I was frantically scribbling them on a piece of paper, the channel snapped back to a normal TV program with people laughing and talking about the weather. My hand tremored, the pen fell from my grip. I stared at the scribbled letters in horror, fear pulsing through every fiber of my being.  
+  
+I now address this post to you, those who frequent these dark corners of the Internet, to warn you. Were you lulled, as I was, by the siren call of the mystery hidden in the noise? Or are you new to the mythos, your curiosity peaked? Turn away now, before it's too late. I share this experience not as bait, but as a caution—Channel 10 must remain untuned, the message within left unheard.  
+  
+Please heed my warning. My life has never known the terror that it now does, the knowledge of something in our world that barely bridges the gap of our understanding, waiting, watching, in the veil of static.

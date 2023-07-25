@@ -1,43 +1,19 @@
-One summer evening a young couple was sitting in their living room watching TV when they heard a knock at the door. The husband got up to answer it, and found himself face-to-face with a grinning skeleton wearing a black cape.
+It's happening so slow, I don't know what to do, my heart is pounding I'm being watched. 
+Throwback to around 6 months earlier, me and my friend, we were walking to my house when we saw a man looking at the sky, it was around 8pm and it was dark. We didn't think much of him we just went past him, but he never moved just like he was hypnotised. He stood there for a good while but he never moved at least i remeber it like that.
+Now im sitting on my bed and he's watching my window. He is tall and skinny, i live near a big graveyard and I've experienced a lot of "dark masses"? Like these normal in church every sunday but these sounded... weird... 
+Now back to that guy, i thought that he was baiting and his friend is looting my home but nothing downstairs. As i came back to my room, HE IS GONE.
 
-"Trick or treat!" the skeleton said in a high, sing-song voice.
+On the videos I don't see anything but after some filters... Well i do seem to see something. Please let there be a chance for me to update this...
 
-The husband's first instinct was to slam the door shut, but he realized that would be rude. So instead he stepped aside and motioned for the skeleton to come in.
+Somebody just took off with a great speed, it could be our local roadman type hooligans, it's Poland... For example in Cracow they run with machetes, here you can get stabbed in a assassin's Creed style.
+He dissapearded and i can't see the road near my house, my father is out of the country driving trucks. My mother is asleep and i have my arm in a denture. I have a dog that is higher than 1.8m when standing on his hind legs but ffs i can't do anything.
 
-"Thank you," the skeleton said, still smiling broadly. "My name is Skelly and I'm here to give you both a good scare!"
+I live near cementery, might that be somebody who got possessed? He was standing perfectly in line to me. Near my neighbors fence perfectly staring into my room.
+He couldn't be sleep walking right? I couldn't see his face, in fact i never did. The hell, i never saw his face now I know, i never did. I didn't saw his face 6 months ago neither did I today. Maybe IT didn't have a face? How come it took me as it's target? Why, why me?
 
-As Skelly entered the room, the couple's cat hissed and ran under the couch. The wife laughed nervously and scooted closer to her husband on the couch.
+It didn't have a face, video and pictures of poor quality. Never got a good look of him. What could it be? Maybe a skinwalker? No, no it couldn't be, i could be dead by now. Where did he go, where?!
 
-"Don't be afraid," Skelly said. "I only want to give you a good scare. I promise I won't hurt you."
+As of 2:21 am, he is not there. Heard a lot of weird stuff, i don't have a cross in my room or any other crucifix.
+All that stress, everything makes me tired and dizzy, i can't think straight nor i can go to sleep... Heh sleep I think it's the last thing I need for now. Maybe I'll be alive in the morning, maybe possessed like that thing, who knows there will be an update or will not be. I could send these videos on dms, but please help me identify what that could be, it couldn't be a skinwalker, could be?
 
-With that, he began to float around the room, making spooky noises and popping up suddenly in front of them. The couple tried their best to act scared, but they couldn't help but laugh at how silly Skelly looked.
-
-Finally, after a few minutes of this, Skelly floated over to the couch and said in a low voice, "I'm going to get you now!"
-
-He lunged forward…but instead of landing on the couch he went right through it! The couple yelped in surprise as they felt something cold and slimy wrap around their legs. They looked down just in time to see a huge snake slither out from under the couch and coil itself around them!
-
-"Aaaaah!" they screamed as the snake began to squeeze tighter and tighter. They could feel its slimy body crushing them and its sharp teeth sinking into their flesh. Just when they thought they were going to die, there was a loud ripping noise followed by complete darkness.
-
-The couple woke up a few minutes later, lying on the floor next to the now-empty couch. They were covered in slime and had bite marks on their legs, but other than that they were unharmed.
-
-As they got to their feet, they heard laughter coming from outside. They looked out the window just in time to see Skelly and a giant snake disappearing into the night.
-
-"That was a close one!" the wife said, shaking her head.
-
-"No kidding," the husband replied. "I don't think I've ever been so scared in my life!"
-
-But as they went to bed that night, they couldn't help but chuckle at the memory of Skelly's silly grin and how he had accidentally scared himself in the end.
-
-The next morning, the couple woke up to find that their house had been vandalized overnight. All of the furniture was overturned, pictures were ripped off the walls, and garbage was strewn everywhere.
-
-It was obvious that Skelly and the snake had been responsible for the mess, and the couple was furious. They spent hours cleaning up their house and trying to repair the damage, but it was a daunting task.
-
-Every time they thought they had finally finished cleaning up, they would find another mess that Skelly and his reptilian friend had left behind. It seemed like there was no end to the destruction those two could cause.
-
-Eventually, after days of hard work, the couple's house was back to normal - or as normal as it could be after being terrorized by a skeleton and a giant snake. Though they were exhausted from all the work, they couldn't help but feel relieved that everything was finally back to normal again.
-
-The couple went to bed that night, feeling relieved that their house was finally back to normal. However, they were soon awoken by a loud crashing noise. They got out of bed and looked out the window to see Skelly and the snake smashing up their car!
-
-The couple was horrified as they watched the two creatures destroy their property. They had thought they were done with those two after all the work they had put into cleaning up their house, but it seemed like the nightmare was far from over.
-
-The next day, the couple filed a police report and offered a reward for any information leading to the capture of Skelly and his accomplice. Unfortunately, despite their best efforts, those two remain at large to this day...
+Wait, why is my dog so quiet?

@@ -186,6 +186,8 @@ But a new rule isn’t the only thing I’ve gotten from this.  The way she swit
 
 I’m going to talk to Maria.  She can talk to Daniel.  And then we can figure out a way to remove him as the target and I’ll go in his place.[\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
 
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/111s5u1/how_to_survive_college_i_guess_this_is_what/)
+
 [Read the first draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 
 [Visit the college's website.](https://alderrayne.com/)

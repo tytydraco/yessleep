@@ -1,0 +1,29 @@
+I’ve had reddit for a couple months now, but I never thought I would post something here. I'm desperate for someone to believe me, please read my story. My name is Adalyn and I'm 17 years old, my dad passed away the day I was born. My mother said he got into a car crash on the way to the hospital; I never questioned her story, why would I? 
+
+My mother has always answered all of my questions about him, she said she would always tell me the truth. Shes a liar, a stupid fucking liar; because of her Im in danger. This would have never even happened if she had told me the goddamn truth, that's all I ever wanted. 
+
+I'm currently in my senior year of highschool and prom is nearby. My mom took me dress shopping about three weeks ago and I found the perfect dress, it was long and a dark emerald green, the sleeves rested on my shoulders perfectly. My mom said it complimented my hair and I loved all the attention I got online after posting my dress; uploading it was a mistake.
+
+A day after posting that stupid photo I got a letter in the mail with no senders address. When I opened the envelope and pulled the letter out a photo fell from between the folds; It was a photo of me. It had been taken through my bedroom window. I was sitting at my desk listening to music and doing my hair. I sat there, shocked. 
+
+The mysterious letter stated that the sender had been watching me for a long time. The sender exclaimed how excited they were to see me at my prom and that my dress was stunning. I threw the letter away and burned the photo later that night. I wanted to tell my mom about it but she would just say I'm crazy, that I made it up. She alway did that, when I was little someone would leave toys and photos of me next to my bedroom window; the same window that the current photo was taken from. 
+
+The toys and photos started appearing after my 8th birthday, I would hear footsteps, leaves and sticks crunching under the beings steps. I used to think it was Santa, it brought me toys after all. Shit, he's here again…I need to write faster, he's coming.
+
+Anyways, not even two full days later I received another letter. There was another photo, I was walking to school in this one, smiling at my phone. The letter was different this time, the sender was angry that I threw their last letter away. They said that I was a bitch and they thought that my mother raised me differently. I once again threw the letter away, I kept the photo. I shoved it into the depths of my desk in the corner of my room. I practically jumped onto my bed, thrusting my face into my pillow crying. Who the fuck was sending these letters?
+
+My mom had started dating again, she was hardly ever home. She was too busy going on some tinder date to pay any attention to my declining mental health. The letters started coming every day, each letter had more photos than the last. All taken of an oblivious Adalyn, I was minding my own business in each one. I began to never leave the house, I couldn't. Why would I go anywhere when somebody was stalking me? 
+
+The sender started to threaten me, they would tell me in detail about all the different ways they would torture me. One letter caught my attention more than the others, the sender wrote that they would get revenge on my mother and kill me, in the same brutal way my mother killed my dad. I was so confused, my dad died in a car crash, at least that's what I've always been told. 
+
+Someone or something started banging on my windows at night, it sounded determined to break the glass. I missed my prom, I was too scared to leave the house. My friends begged me to go out to the movies one night, I felt so guilty that I had been avoiding everyone so I agreed. 
+
+Today we went to see the new Scream movie. I was so excited; I even bought snacks. About half way into the movie and two large pops later my bladder felt like it was on the verge of exploding. I handed my popcorn to my friend and rushed towards the bathroom. I did my business, washed my hands, then splashed some cold water on my face. 
+
+I began walking past the concessions when I noticed something banging on the large glass doors, I froze; it was my dad. I recognized him from all the photos my mom showed me growing up, it took me a second to realize it was really him. In all the pictures and home videos my mom showed me he was never posing for the camera, they were always taken from a far. 
+
+He was just standing there smashing his face on the window, dark crimson blood started flowing out of his forehead. Why was nobody saying anything? Why was nobody helping him? I thought he was dead. I ran back to my friends and told them I had to go, of course they were angry with me. I always made an excuse to go home, to the comfort of my room, I felt safe there; not anymore.
+
+Now I'm sitting on the floor of my closet, typing this out on my phone. I'm not sure how much time I have left until he breaks the living room window. He kept slipping letters under the door, telling me how badly he wanted to talk to me. He said he was angry that mom took away his chance of living a normal life. He was yelling saying it was her fault I was going to die. He was practically screaming at the top of his lungs, he never wanted a child, she knew that. He was screaming that she was some crazy bitch he went to school with, she stalked him. He started sobbing saying that she baby trapped him and that when he refused to take care of the child she killed him. 
+
+He broke the window, he’ll be here any second. If you start getting candid photos of yourself in the mail, take it seriously. Someone might be after you too.

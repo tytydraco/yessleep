@@ -1,0 +1,52 @@
+A few years back I got divorced. I don’t blame Amy. I had a wondering eye. I’m not making excuses, but I just didn’t have it in me to remain faithful. I’ve come to the conclusion that I’m not made for marriage, and I’ve promised myself that I would never put another woman through that heartache and turmoil again. 
+
+Curiously though, with my freedom from matrimonial bondage, I became chained to an obsession, an obsession not of my own choosing but one I cannot find myself strong enough to fight off. An obsession that has pushed me into a relationship with the dead rather than the living. I have an obligated duty to remain married to my cause. 
+
+After the divorce was finalized and all the financial arrangements were settled, I began to look for another home. I stayed with my mother until I had saved enough money for a substantial down payment. I didn’t suffer as much financial degradation that some of my friends had with their divorces. I came out alright. Amy was ready to move on; she didn’t have the energy or the motivation to fight. She just wanted to be down with it all. 
+
+With no real financial burdens, I took a chance on a fixer upper. It was ranch style house built in 1965. It was an odd bird. It stood out from the more modern neighborhood homes that surrounded it. I imagined the previous owner was some stubborn old man refusing to sell, and the developers had no choice but to build around him. That’s the backstory I created for it, a story that enveloped the beauty of stubbornness.  It's cliched, but I still like it. 
+
+The house had an overhanging roof with grey siding. The home looked like it was built in separate sections and then glued together. It had two huge bay windows, with the front door between and set back a distance from the front of the house. The third section was a carport. There were three bedrooms, one bathroom, kitchen and a large living room with a massive cobble stone fireplace. The carport encircled around to the back of the house taking up much of the small backyard. Beside the landscaping, my first task was to reduce the carport and reclaim some land. 
+
+I didn’t choose the largest bedroom for myself because I loved the view of the backyard. Even though the backyard was small, the land behind it was vast. My fence line butted up against a state park, so there was no chance of development. There were massive oak trees lining the fence, with a slight opening in the middle, exposing a wide-open field of tall swaying grass. It’s a beautiful view, far better than the street view I was afforded in the biggest bedroom. I positioned my bed right up against the window.  
+
+All was good. My plan was set. I knew how I was going to progress with the renovating, where I was going to start and where I was going to end. I was excited about the prospect of burying myself in this project and not thinking about how bad I treated Amy. Everything changed on January 14, 2001.   
+I had laid down to go to sleep, staring out the window at the lonely, unadorned oak trees, illuminated by a solitary green lamp post- an iron stalwart, with a patina resembling the Statue of Liberty. I often wondered if it was made of copper. I could sell the copper if ever I was in a bind. I started thinking about how I’d never been to New York. Suddenly I was in a sea of people in the middle of a street surrounding by skyscrapers. It was early morning. I could feel a breeze on my arm. The crowd started coming in closer, leaving me no escape. Their eyes were blood red. I could feel myself kicking in bed. The crowd was now up against my body on all sides. I was sweating, feeling squeezed and trapped. I started to yell and then there was no one. The sky was dark now except for one lamp post. I felt hot air in my ear and the sound of a little boy’s voice, “Wake up.” I turned. There behind me floating in the air was a little sandy haired boy in his red pajamas, spotted with footballs, baseballs, and basketballs. He repeated his command, but this time in a deeper voice, “Wake up.”
+
+That scared me awake, so much so that I bumped my head against the windowsill. I saw through the opening in the oak trees, sunlight appearing on the horizon. There was no color in the room, only an outline of things existing as a black and white version of the real world. I felt a lump next to me in bed. I turned to look. The little boy from my dream was lying next to me, in his red pajamas, his neck cut, and clutched in his hands a miniature of the Statue of Liberty. There was blood all over the bed. His head was turned towards me, eyes wide open, looking at me with an unemotional appeal.
+
+I rolled over his body and onto the floor. My arm and side felt wet where I had landed. The sun was rising, the color was brewing, becoming more vibrant, and I realized I was laying in a large pool of blood. The hardwood flooring was a glistening sea of red in the morning sunlight. 
+
+I struggled to get up and ran out of the room. There in the hallway was an older woman, lying face down. Her hands were bound behind her back. Her light purple night gown was stained with blood. She had numerous stab wounds all over her body. I thought I must be having a nightmare, so I knelt down and touched her foot. It was cold and stiff, as real as the heart that was about to leap out of my chest. I shimmied past her and to the phone. I called the police and went to wait outside near the mailbox. 
+
+I heard the sirens in the distance. It sounded like the entire police force was heading my way. Four police cars squealed up to the front of the house. Most of the officers went into the house. One of them stayed behind with me. 
+
+“You alright?”
+
+“Yeah, just a little shaken.”
+
+After a while the other officers came back outside shaking their heads. 
+
+“You think this is a joke?” one of them shouted. 
+
+“What are you talking about? They’re in there. I saw them.”
+
+The police officer next to me responded, “If you’re trying to make a quick buck off of a tragedy, then I suggest you go find another murder house for sale. No book deals here. We ought to arrest you for filing a false report.”
+
+An older officer grabbed me by the shoulders. “I knew her. This isn’t funny. Do it again or make any more noise about this house and I promise you I will beat your ass.”
+
+They didn’t arrest me. I was questioning my sanity, but I wasn’t quite ready to go back inside. After a while, debating and arguing, I convinced myself that they wouldn’t have come back outside and done nothing if there were really dead bodies inside. 
+
+I walked in through the front door. There was nothing in the living room. I was still working up the nerve to go back to my bedroom, so I went first to the kitchen to get some orange juice. On the kitchen floor, slumped near the patio door, was a middle-aged man with a gunshot wound in the middle of his forehead. 
+
+I was swooning, about to pass out, when I noticed her, lying in the driveway, under the carport. I opened the patio door as I stepped over the dead man on my kitchen floor. I slowly made my way to her body. She had a massive wound to her head and some stab wounds on her abdomen. I was thankful she was clothed. I don’t think my psyche could have handled any more cruelty, much less the further desecration of her body. Her body was torn and battered but she was beautiful. This must be the ‘she’ the officer was talking about. She had long straight brown hair. She had a morose lost look on her face that evoked a deep sense of pity in my soul. That look said that she knew her killer. The wind picked up and my eyes caught sight of the opening between the oak trees. That’s where he came from. 
+
+I went and stayed with my mother. I told her I had mold in the house and that it had to be cleared before I could move back in. I researched the history of that house. It wasn’t difficult to find information on it. A family of four had been murdered. The crime unsolved, the assailant still on the loose. The Allans had two kids, a boy of nine named Timmy, and a seventeen-year-old girl named Betty. I couldn’t stop looking at the newspaper article, dated January 14, 1985. There was a picture of the family standing at an event held in the middle of the local mall, which now stands as a desolate unwanted parking lot. I read and researched everything about the case. I was obsessed for about two months and then just stopped thinking about it. 
+
+A month with my mother was all I could handle. I’d rather take my chances with a haunted murder house. Before I could go back inside though, I had to loosen up my nerves with a little whiskey. I sat on the front porch drinking Jack and Coke. I felt a little warmer, a little braver. I put the key in the lock and stepped inside. I flipped on the light and peered around to the kitchen floor. There was nothing there. Relief enveloped my body. I searched the entire house. It was clean. 
+
+I lived there without any issues for the next year. I almost forgot about it. Then came January 13th. All the sudden my memory was rekindled. I thought about going to my mother’s but then a second thought entered my mind. If I didn’t go through this then I would never overcome my fear of that dreaded date. Just in case though, I slept in a different room. I slept in the biggest bedroom. 
+
+I woke up January 14th in a pool of blood. The scene was the same throughout the house, except now I had a different perspective. I was still terrified but there was an added feeling of determination. I was determined to prove that I wasn’t crazy. I grabbed my phone and took pictures of all the bodies. I drove down to the police station and was ready to turn my phone in for evidence when I thought I better double-check. I scrolled through the photos, but there were no bodies. There were empty beds, floors, hallways, and nothing out under the carport. 
+
+Several years have passed. The same thing happens every year. I thought about selling the house, but then I think about Betty’s face. As I said before, I have a duty, a moral obligation to solve this case. Every January 14th I’m studying, looking over the crime scene, detailing every detail, sketching every clue. I know this scene. I live in it. I’ve soaked in it. I am a part of the scene. I decided that I wouldn't do any more renovations, especially the carport. I haven’t dated in years. I don’t have a wondering eye anymore; I’m focused on one thing and one thing only- finding the son of bitch that did this.

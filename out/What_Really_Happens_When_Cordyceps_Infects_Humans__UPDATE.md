@@ -1,0 +1,43 @@
+[Part One](https://www.reddit.com/r/nosleep/comments/11lna1n/what_really_happens_when_cordyceps_infects_humans/)
+
+It has now been 270 hours, or just over 11 days, since the first spores infected Mike. I have slowly accepted that help may not be coming, as some had suggested in the comments in my last post, so for the past few days I have been planning my escape. I am not sure what has happened outside of my lab area, or the conversations my superiors have been having, but I am assuming it has been deemed too risky to attempt a rescue at this stage.    
+  
+There are still no internal comms working – the phones are still down and the intranet chat is disabled. Actually, that’s not quite accurate. The phones don’t seem to be technically down, it is more like no one is answering them. The only item that is working is this tablet, setup to share documents and files on our intranet only, which I managed to jailbreak and connect to an external cell tower somewhere. Unfortunately, this section of the lab is located underground, and there is no reception. Every now and then, however, it does connect with a single bar. It is a brief connection, usually only seconds, and while I did once manage to connect a call, it dropped out almost immediately. But it was enough to upload my last report online, and hopefully it will be enough to do it again.    
+  
+There have been a few developments in my current situation that I need to share. These developments have impacted some of my plans and have also put me under some pressure to fast track my escape.    
+  
+Firstly, our test subjects.   
+  
+As mentioned earlier, test subject four was the one that showed the earliest signs they were experiencing a positive rection to the Cordyceps, which was later confirmed. I know some of you will find my use of the term ‘positive’ as an oxymoron, but from my point of view that’s what it was. Well, it seems that the cordyceps compound had also worked on test subjects six and seven, though it took another 72 hours for that to be confirmed. They had both been lying almost completely still in their cages, the monitors displaying their vitals indicating they were still very much alive and, like four, in extreme pain. That’s when Six started to violently convulse, thrashing about his cell like a puppet being pulled by all the strings at the same time. Not long after, his head suddenly jerked back at a seemingly impossible angle, splitting him open at the neck, as a long, wet fungal stalk pushed its way out of his throat. He collapsed to the ground and his vitals immediately flatlined, as the fungal stalk unfurled and stretched across the small cage.    
+  
+Seven was more interesting. Shortly after Sixs’ head “popped” off, Seven started to convulse. But Seven somehow managed to regain some motor control, scratching at his eyes, and managed to scream out “Help me!” before his both his eyes were violently forced out of their sockets as grey-green fungal stalks pushed their way through the path of least resistance. He continued to thrash and scream as his shirt rippled and moved, with dozens more stalks slowly ripping through the soft skin around his rib cage. Ten hours later, his screams had stopped, most likely due to the large stalk that had worked its way out of his mouth.   
+  
+The other subjects, One, Two, Three and Five, showed no signs of delayed infection. They died from having no access to food or water for 11 days, which, in hindsight, seems like a preferable way to have gone. They, of course, had no idea what had happened to the others, and had spent the first few days screaming and yelling for help, while trying to break out of their cages. I eventually muted their feed but kept the visuals going in case a delayed infection presented itself. None did though, which was a little disappointing.   
+  
+Also, on day six, the power cut out.  The back-up generators kicked in along with the emergency lighting, casting the hallways and labs in a slow, flashing, blood-red hue. Mikes disfigured body in the hallway, and those of the guards and lab technicians in the main lab hall, become an even more terrifying sight in the low red light. The flashing lights almost gave the bodies a new life, casting dancing shadows around them.    
+  
+Also, the blood that had pooled around each body from the wounds where the spores had torn their skin, had seemingly become the perfect ground for fungal growth. Large patches of mucus-coloured growths spread out from the bodies, like lumpy tentacles feeling their way across the floor and up the walls.   
+  
+And then, three days ago, Mikes head broke off and slid away.   
+  
+Yes, you read that right. And I didn’t even notice it happen. Mike was, essentially, just a large, semi-human shaped lump of colourful fungal growths by then. But I had been observing him on the monitors long enough to notice that something drastic had changed. I had to rewind the security footage to see what had happened, and sure enough, at around 11:30 the night before, his head “fell” from his body and onto the floor. Then, like a fast-moving snail, it slid off down the hall towards my door, where it stopped for a few minutes and seemed to feel around the edges, like it was looking for a way in. Then, it turned suddenly and took off, continuing down the hall and around the corner, where it moved out of sight. It was fascinating and terrifying at the same time. The fungal stalk from his eye socket almost looked like a snail's eye, moving around as the head slid like it was directing it as it went. But the thing that had me worried was the question; why did it stop at my door like that? Could it tell I was in here? Would it try again?    
+  
+I started to plan my escape at that point.    
+  
+This lab, as I have previously mentioned, primarily focuses on drug development for the pharmaceutical industry. The main building is a two storied glass and brick building, located in the mountains, 30 minutes from the city outskirts. The area I work in is located 30 meters directly below the main building.    
+  
+There are two main ways out. The elevator, which goes straight up to the main building, and an emergency exit. The Emergency exit leads to a two-mile-long corridor, which eventually exits via a large metal door in the side of the mountain.   
+  
+To get to either of those exits, I need to get through the doors that the lab technicians were banging on before they were infected. Behind that door is a small hallway with a security desk, that then leads to “The Lobby”, a large, pentagon-shaped room, where the lift and emergency exit are both located.   
+  
+Three of the five walls of the Lobby are coloured; Red, Yellow and Blue, and they all lead through laboratories and testing rooms just like the one I am in. The other two walls in the Lobby are white, with the reception and admin area on one, and offices for the senior managers and supervisors on the other. The emergency exit is located between these two areas.   
+  
+I am currently in one of the research rooms at the back of the Yellow lab. The biggest hurdle in my escape plan so far is a large fungal mass against the door in the main lab hall. Two or three bodies have become merged in a large clump of fungal matter, and it appears the bodies have, through what appears to be some sort of slimy mucus, become attached to the doors. The doors themselves will be unlocked now that the generators have kicked in, so at least it’s not all bad news.   
+  
+The entire facility may still be in a Code Red Lock-down, meaning I’m unlikely to receive a hero’s welcome in The Lobby as no-one will be there. The Red and Blue labs would have been evacuated once I activated the alarm, so I am unlikely to see anyone until I return to the main lab above ground.   
+  
+I am going to put on my hazmat suit and leave the safety of my office now. The suit is equipped with a camera and voice recorder, so I will be recording everything on that from now on, in case something goes wrong. I have downloaded all the data from our experiments onto a flash drive, which I will be taking with me. I also plan on trying to collect some samples on the way, if it is safe to do so, so I will have a small bag with plenty of sample tubes, swabs and tongs.    
+  
+I just heard some banging in the ducts, and what sounded like something crawling quickly in there, so it is time for me to get out of here.    
+  
+Wish me luck.

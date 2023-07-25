@@ -1,0 +1,37 @@
+Eh.. uhm.. hey, I’m really not sure if this [phone is still dictating](https://www.reddit.com/r/nosleep/comments/13l1p2p/83_laurier_road_part_1/) or if it’s even on, I can’t really tell because of how smashed up it is. A lot of things has happened though..
+
+When I woke up my body felt numb and cold, like I’ve been out in the snow for far too long, there isn’t any snow here, I wish there was, it would brighten up this depressing… house from hell, I guess that is the closest word I can think of.
+
+My movements felt really sluggish, I guess I was knocked out for a good while there, I felt something slowly dripping from my nose, I didn’t want to think about what that was, but I knew it wasn’t any good news, so I just wiped it away without even looking..
+
+I intended on getting myself over to the bathroom to wash myself off, but my body was suddenly not cooperating, like someone else was in control of my body, it started moving.. not really walking, more like limping or dragging itself over to the kitchen, my eyes landed on a knife stand, there were various knifes in it, but one of them was apparently particularly interesting, a bread knife with lots of sharp teeth, my right hand holding it up and dangling it with two fingers in front of my eyes like it was teasing me.
+
+My other hand slowly reached out to the cutting board and placed itself on top of it, stretching out a middle finger and fixating my eyes on it, whatever was in control of my body was taunting me and I felt so helpless and scared, my other hand that was holding the knife reached over and started cutting, slowly letting the teeth of the knife one by one rip into the skin, past sinew, and into bone, pain exploding in my mind like nothing I have ever felt before, I heard myself counting as every single tooth of the knife was cutting into my finger. One.. two… three.. four… this was pure agony, until the knife finally started cutting into nerves, that’s when my right hand reached into a drawer I could only see at the edge of my vision, I could feel my hand reaching around the handle of something that felt heavy in my hand, and slammed it down on my other hand violently several times, breaking every single bone in my hand with a meat tenderizer.
+
+My hand then grabbed my halfway cut of finger and started pulling and tugging on it, I could hear crunching and tearing sounds coming from my hand as I was almost passing out, and feeling like I would throw up from the amount of pain. Finally after twisting it around in all weird angles, like my hand was trying to break off a chicken leg, it finally snapped off pushing bone through my skin, that’s when the cutting continued, until the knife finally was all the way through. I didn’t even see all the blood until my body bent over and forced myself to lick it up, to let it gush into my mouth from where my middle finger used to be, the metallic taste drenching my senses.
+
+I felt like a puppet on strings, no matter how hard I tried, I could not for the life of me regain any kind of control over my body, and what happened next I barely want to say.. But I guess I have to..
+
+My broken hand somehow managed to fight through the pain and picked up my finger, my right hand grabbing the meat tenderizer again.. and my body started moving again, it opened the door to the washroom, a smell of rot filled the air, inside the room was still the man chained to the wall, still bleeding, blood and pus covering and seeping out of his wounds.. he gave a low grunt as he seemed he be smelling something entirely different, he opened his mouth and my hand reached forward to put my torn off finger in his mouth, he bit down on with with a sickening crunch.. and started chewing on it.
+
+Whatever was controlling my body then raised my arm and started beating down on this man with the meat tenderizer, smashing it into his skull, his shoulders, his stomach, I could feel the tears running down my cheeks as I continued brutally beat him up, however he seemed quite unfazed by whatever was happening to him, like he was in so much pain already that nothing whatsoever mattered to him.
+
+My body finally stopped moving when I think I had fully broken his jaw, he was spewing teeth, bone, the chewed remains of my finger and blood… oh god… so much blood.
+
+I then turned around and got out of that washroom and back into the kitchen, dropping the tenderizer on the floor, picking up a much sharper knife and started heading out the front door.
+
+The sky was still glowing red, despite there being a big bright moon in the sky, the air smelled like iron.. I have never liked that smell.. it reminds me of…. No, I shouldn’t talk about that…
+
+I guess I’m stalling a bit, mostly to prepare myself for what I’m about to say, but it happened, at least I think it did.. either way, it needs to be said..
+
+While walking outside, I got undressed… I walked up to the circle of fires and bowed down to the silhouette in the middle of the circle.. the little detail I could make out looked like a decomposing badly burnt corpse.. held up by ropes on a pole, skin and muscle flaking off of her, but I could still see what looked like breathing..
+
+I fought hard, so I could get some movement out of my eyes, around me were 9 other women, all fully naked, all of them with knives in their hands, the fires still lit, glowing orange but slowly turning blue.. that’s when all of us got up chanting something in a different language that I couldn’t understand, but It started giving me a headache..
+
+My body, still being puppeteered sprang into action, dancing in a big circle with the other women, jumping over the fires, chanting… almost singing a song that I had no idea how to even pronounce the words to, as I completed the first lap, my hand, and the hands of the others started stabbing ourselves in our chests using the knives, the pain was nothing like I have ever felt before, setting every single of my nerves on fire, and the blood, it just kept spraying everywhere, painting in the big circle as we kept dancing around the corpse, we were like in a trance all of us, I have no idea if I was the only one that was still aware though.
+
+We must’ve kept at it for several hours, eventually it started raining, the rain however turned darker and darker, thicker and thicker until it looked like the full moon above us was crying blood, the dancing, chanting, stabbing and the rain that was tickling… no burning my skin, was driving me slowly insane, all I could do to escape everything was to think back and reflect on my life leading up to this moment, just to try to block out the pain, I thought about that stupid time I was jealous of Sadie in 5th grade and I put gum in her hair and blamed it on Sarah, I thought of the times I pretended to go on a date just to get a free lunch out of it, I thought of the times that I skipped school just to hang out with Jack and Christen just to get high on weed, even about that time I played a stupid Halloween prank on that kid… I’ve forgotten her name.. she almost ended up being buried alive… damn I’ve been stupid. 
+
+I’m getting woozy… when I stopped thinking of those memories I found myself still in the house, in a bathtub, my entire body numb and cold still,  the water is tinted red and I can see the stab wounds… I see my phone being on the bathroom sink and I think I may be done for, I don’t have any energy left and my limbs doesn’t seem to respond… my wish is for everyone to know what happened here and to avoid this house…
+
+Siri, stop dictating and send everywhere….

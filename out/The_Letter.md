@@ -1,17 +1,119 @@
-(I just threw this together in half an hour but hey let’s see how far I can go with it, and I hope you enjoy reading my story and will stay tuned for the updates )
+Vroom, vroom! I was accelerating to nearly a hundred miles per hour. I had just picked up my new BMW M8. I couldn't contain my excitement. The thing was so fast.
 
-Late into the night George was tossing and turning in bed struggling to get to sleep, all that was on his mind was that there was something he hasn’t done or needed to do, he unwillingly got up out of bed and walked into the bathroom, he turned on the tap and splashed his face with water, 
+"Woohoo!" I exclaimed.
 
-he then walked downstairs into his kitchen and proceeded to pour himself a glass of whiskey to try and send him to sleep that way, after he finished his first glass he pours another and half way through drinking it he hears three loud spaces out knocks on his front door, the sound made him jump causing him to drop his glass shattering it on the wooden floor,
+"Take a right turn onto 495," my GPS said with its boring computerized voice. I knew the rest of the way home, so I exited Apple Maps and continued going at my speed. I arrived home to my son Yusuf, playing soccer in the backyard with his friends. I waved to him, he waved back and then I went inside. The first thing I smelled was food. I hadn't realized how hungry I was until just now. It was my wife cooking chicken curry.
 
- angrily he walked to the door ready to start an argument but to his surprise his porch was empty. Looking around in confusion George saw nothing but his desolate suburban street, George walks back inside thinking it was some neighbourhood kids playing a prank on him and started cleaning up the broken glass, 
+"It smells really good!" I exclaimed to my wife.
 
-whilst he was moping up the whiskey he heard the same three knocks on his front door again, George got up and begrudgingly opened the door, and as before no one was there, being stressed and over tired George looks down to the floor and notices something beneath his feet, he reaches down and picks up a envelope, as he holds it he feels something wet on his fingers and when he looks at his hand, his fingers are covered in blood, 
+"I'm glad"
 
-in terror George turns the envelope around and written in blood says “help me” seeing this George freaks out, dropping the letter and slamming his door shut, he stands there on the opposite side of the door until his silence is broke by the same three knocks. George waits a while before opening the door and when he manages to swing it open… nothing. 
+"Dinner will be ready in ten," my wife replied. So, I called out to Yusuf from the kitchen window.
 
-He decides to pick up the letter and take it inside, he takes it in his kitchen and being scared but also a bit curios he opens the letter and it says 
+"Your mom says dinner will be ready in ten minutes."
 
-“hello, I know you don’t know me but I know you George, I am in danger and I need your help, there are ten other letters you need to find and in those letters are clues to help you piece together my location, and rescue me, I know you may be confused George but when they said to choose someone, the only person I can trust is you, I can’t say much more but you will understand more throughout each letter… the first clue is (something you regret) please help me George. My life falls in your hands…”
+"Okay," he replied.
 
-Let me know if you would like part 2 cause I know I’m gonna enjoy writing it 😁
+I walked upstairs. to change, but then, I stopped myself realizing that I had forgotten to grab the mail. I ran back downstairs and outside towards the mailbox.
+
+"Ahh more bills," I sighed. However, one of the envelopes stood out from the others. It didn't look like a bill. I think it was a letter.
+
+"Who still sends letters?" I thought to myself considering all the technology around us. Couldn't this person send an email? I walked inside towards my bedroom, intrigued by the possible letter. I opened it first.
+
+*Hey there. Do you want a happier life? I can make things happen. Things you never knew were possible. I can remove things that you hate most in your life. Just call this number: \[Blah blah blah\]*
+
+This is probably some kind of joke. I was about to rip it up, but I wanted to see what would happen if I called the number.
+
+"Dinner is ready honey," my wife called to me. I set the letter down and went downstairs. Yusuf was playing on his computer, mind you he is fourteen years old. My wife was setting the table by herself.
+
+"Yusuf help your mom set the table," I said to him.
+
+"Okay dad," he replied. Yusuf had an obedient demeanor. He would never talk back and always did what we told him to. Now, we were all sitting at the dinner table.
+
+"I'm famished" I said. Yusuf was already gobbling his food down.
+
+"You must be hungry," I said to Yusuf.
+
+"Yeah."
+
+"The school lunch wasn't really good."
+
+"Some kid's food had mold in it so I decided not to eat," Yusuf replied.
+
+"Smart choice," I said to him and then I begin to eat. The moment that the chicken touched my taste buds was the moment it became my favorite food. Everyone agreed that it tasted really good. When I finished, I hugged my wife.
+
+"This chicken curry is just what I needed," I told her.
+
+"Thank you," she replied. I went upstairs to change this time for real when I remembered the letter. I picked it up from my dresser.
+
+"Maybe I should call it," I thought to myself.
+
+"What could go wrong?" I dialed the number on my phone. Whoever this was answered immediately.
+
+"Hi," the person said with an eerie voice.
+
+"Um."
+
+"Hi," I replied.
+
+"I received a letter that instructed me to call this number," I explained to him.
+
+"Perfect," he said again with an eerie voice.
+
+"What do you want removed?"
+
+"I'm sorry?" I replied.
+
+"I said what do you want removed?"
+
+"I don't understand sir," I said.
+
+"If you read the letter then you'd know what I mean." I glanced at the letter. I reread this phrase.
+
+*I can remove things that you hate most in your life.*
+
+"If you can really remove things," I said.
+
+"Then remove my alarm clock to prove it."
+
+"Your wish is my command," he said and hung up the phone. When I glanced at my nightstand, the alarm clock was gone. I couldn't believe my eyes. I rubbed the several times astonished at what I just saw. My wife then came upstairs.
+
+"Why do you look so shocked?" she asked.
+
+"And where is your alarm clock?"
+
+"I can't really explain it." I replied.
+
+"I'll just show you." I called the number again. He immediately picked up the phone.
+
+"Hello again," he said in the same eerie voice.
+
+"Hi," I said.
+
+"I want you to make my dollar bill disappear."
+
+"Your wish is my command," he said and hung up once again. My wife and I looked at each other, and then the dollar bill, or at least where the dollar bill had been. It also disappeared. My wife was left speechless.
+
+"H- How?" she uttered.
+
+"I am just as shocked as you are," I said to her. I figured I look more into this tomorrow. I glanced at the time on my phone. It was 8:45 PM.
+
+"Yusuf it is past your bedtime," I called out to him.
+
+"Coming dad," he replied. I changed into my pajamas and tucked myself in. The next day at around 7:00 AM, I woke up and remembered last night. I was about to dial the number again until I glanced at my nightstand. The alarm clock and dollar bill were back in its place, but there was no sign of the letter. Luckily, I had the number listed in my recent calls. I called the number.
+
+"Hello," he said.
+
+"Hey," I replied.
+
+"Why is the alarm clock and dollar bill back in its place?"
+
+"Are you ready ask for something you really want to disappear?" he replied
+
+"Ok," I said.
+
+"I want my co-worker Fred to disappear." Fred was my least favorite co-worker. He was very sassy and loved to brag. That's when all of a sudden, the phone hung up. I looked at my bed, my wife wasn't there anymore. I went to Yusuf's room; he wasn't there anymore. I scurried downstairs and looked everywhere. They were nowhere to be found. I looked out the garage window, my BMW was gone. Finally, I looked out the living room window and there was Fred standing in my front yard looking straight at me. He slowly picked up his cellphone and called me. To my horror, it was the same number of the eerie voice guy. How did I not recognize his voice? I slowly picked up the phone.
+
+"He- hello?" I spoke.
+
+"You wanted me to disappear?" he said in his eerie voice and then hung up. He morphed into a shadow that came straight towards me. He held out his hand with 10 sharp claws pointing at me on the other side of the window. I watched in horror as he somehow shot them out of his hand, through the glass like a bullet and straight into my neck. Everything went black all of a sudden. I woke up in a confined space. It is pitch black. My only source of light is my phone which I am lucky to have right now. I've tried calling for help but the location is impossible to trace. I am currently typing this from my phone, and I hear creeping footsteps every minute or so getting closer and closer. I doubt that I will make it out alive but wish me luck.

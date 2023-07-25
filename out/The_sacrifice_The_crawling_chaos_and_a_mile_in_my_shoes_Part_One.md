@@ -1,0 +1,45 @@
+My name is unimportant, the circumstances of my story are the only things of any great value left to speak of, in what's left of my life. I am currently living on death row in one of the many maximum security installations here in the states. I am using my last session within the law library here to submit this story as a cautionary tale to the whole of humanity. As a warning, that your time on this earth may be just as short and fleeting as my own. It's less than 48 hours now from the moment I get to meet my maker, so to speak, or so some tell me anyway. I'm a bit skeptical about meeting anyone at all after they slip that needle in my arm. But I guess ya never know until ya know.
+
+&#x200B;
+
+They refer to the last walk to the death chamber, as "The Mile", in most facilities, though it is quite a bit short of being a mile at all. For some reason the name has stuck over the years, and that mile is a walk I will have to take in a short time, and deservingly so. To tell the story of why I found myself in the situation that I have, I must first tell you the story of another. The story of a sacrifice.
+
+&#x200B;
+
+Their name is again, unimportant, but their actions led to an unfathomable amount of violence and evil. A woman and a man in love can be a beautiful thing, a romance can shine a light on some of life's most beautiful attributes. But a love between the right, or wrong pair, depending on how you see it, can lead to things you can't even possibly imagine. This story is a love story, and a horror story. The pair met at a small get together for friends and classmates of a particular school. And they pretty much hit it off right away, though it was what appeared to be the beginnings of any other relationship before it, it was actually the beginnings of a terrible set of events set in motion at that very get together. 
+
+&#x200B;
+
+They began their courtship as many others, going out to movies, dinners, and to anyone looking in from the outside they were nothing to pay any attention to. But for me I knew the woman in this pairing rather well, and to say she had some obscure and disturbing interests would be saying it extremely lightly. She was into anything occult related and her ability to manipulate a man was unbelievable. From nearly the start of this relationship she had him wrapped around all ten of her fingers. Her beauty was a thing of legend in a town full of rather ordinary looking folks, he would do anything to keep her heart and her attention. And she was more than willing to test this fact.
+
+&#x200B;
+
+At first it was one small ritualistic act leading to another, from cutting and blood related fetish performances, to the killing of a small helpless animal of some kind or another. But before it was over I had discovered through the running of his loose lips, that she had planned to summon some kind of ancient entity, and to do so she intended to sacrifice an innocent child in the name of this being. He who shall not be named, he said to me. And he said he didn't want to but he didn't know how to get out of it if she really decided to go forward with this sick and twisted plan. That he loved her with everything he was. 
+
+&#x200B;
+
+Unfortunately the day came, when she wanted to do this horrible thing, and she entrusted him with the acquisition of the child needed to perform the act. And because he couldn't fathom abducting someone else's child from a mall parking lot or school function somewhere, he did something far far worse than that. He had his ex-wife bring his own daughter over for the weekend. The authorities got involved after the weekend was over and done with, and the mother had come for her daughter only to be told she had run away and he had been looking for her desperately. Many questions were brought forth about why he hadn't contacted the police in this matter, and so on, but for the most part until any evidence was unearthed they had little to go on, just a reported runaway, and because I had knowledge to the contrary I made a decision I can never take back.
+
+&#x200B;
+
+I waited for night to fall, it was a crisp cold night, and you could see your breathe when you exhaled, I can remember it all so vividly. I waited until almost four in the morning when I thought they would all be fast asleep. I made my way into the residence through the front door with a key I knew was kept under a medium sized stone out front of their house in a little garden patch. At first I thought for sure I had been correct and that the occupants were all asleep, but I was dead wrong. As I made my way to the very back of the house to a spare bedroom there, I could hear the sounds coming from inside the room through the door.
+
+&#x200B;
+
+It was painfully obvious they were having sex in that room, the sounds were a dead give away to that fact, I steadied myself, and calmed my breathing. I took in a deep breath and raised the roofing hammer I had brought along from my toolbox at home, and I turned the door knob. When I opened the door I saw four people in the room, not the two I had originally expected, they had company. But that did not deter me, for evil was to be slain this night.
+
+&#x200B;
+
+I didn't know until afterward how much energy you really had to expend to beat someone to death, even with a 32 ounce hammer in your hand. The court records would go on to prove that I hit her and her lover a total of 63 times combined, I still remember the way her head came apart, I still have nightmares of it even to this day. I had never seen brains like that before. I spent a lot less energy on their two companions, though I did hit them more than a dozen times each as well. The murders were so horrific in fact that I was told many of the investigators working the case, were physically ill after having witnessed my work. And as bad as I felt for them all, I felt nothing for the evil people I had slain. This lack of remorse would make it quite easy for the prosecution to convict with a death penalty ruling.
+
+&#x200B;
+
+The true horror came during the trial though, on the eve that I was to be convicted, I would see the ex-wife enter the courtroom of the man I had beaten to death. And with her was a young girl, the same young girl that I know for a fact was killed by the same group of people I had murdered. I know they killed her, and I know they did grotesque and perverted things to her after the fact. The horror and evil that little girl encountered at the hands of her own father, someone she thought she was safe with and loved by, was just unfathomable. He told me himself what occurred that night, and how bad he felt about it, he even asked me what he should do now, if I thought he would go to hell for what he had done, or if I even believed in such things. I think back on it, and I believe he may have been sharing things with me in the hopes that I might stop it for him somehow. But I just don't know honestly it is hard to say. In the end though I put a stop to it all, forever.
+
+&#x200B;
+
+But I tell you all now, and do not take this lightly, I am going to die for what I did, but I didn't stop the evil at all, only those who brought it forth into our world. So I will die for nothing, for I have in no way accomplished what I intended to. I say to you now, that young girl, is not the girl she once was, I believe within her lies the entity they called forth. And some day, maybe not today, maybe not tomorrow, she will bring upon the earth an unspeakable evil. And if what I have read into is true, no human on the face of the globe will be spared of it. They may very well have killed us all, if the entity inside her truly is the chaos itself, then god help us all if there is a one, because we are definitely going to need one.
+
+&#x200B;
+
+I am working on a plan to escape from this hell hole of a prison, because I am the only one alive who truly knows what is at stake. The dangers in letting that little creature of a girl live on, for there is no telling when it will act. I must do something, I must stop her before it is too late, or impossible to do so. Hell for all I know it is already an impossibility, she may be too powerful already to stop. The die may be cast as they say. But I have to try if I can, I have to do something if at all possible. I just have to get out of here first, and maybe just maybe I will be able to save you all, myself, maybe even the world. Though I highly doubt I will get out of this situation with my life no matter how it plays out. My life though is not important, only the future of humanity, and it's existence in this beautiful world. I cannot allow those evil people, and their little monster to be the end of everything, the end of us all. I hope for all our sakes, or at least all of yours, that I get the chance to stop it, before it is inevitably too late.

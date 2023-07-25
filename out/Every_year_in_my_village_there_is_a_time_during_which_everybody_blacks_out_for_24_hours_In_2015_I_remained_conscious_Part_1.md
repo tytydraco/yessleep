@@ -1,0 +1,29 @@
+The 9th of June. Historical day for some, ordinary day for others, and birthday to many. However, in the village I was born and raised in, it is the day of a big event that went from a strange supernatural occurrence to the most feared phenomenon in our community. It is said to have started in 1931. A whole day or 24 hours during which everybody and everything just shut down, and as a result, no device could never be used to document what events exactly occur in that time frame. You read correctly, I wrote events, because on the next day, everyone usually wakes up to a surprise that can be either very funny or utterly disastrous.
+
+From the senior residents' testimonies, after the first blackouts, people used to just wake up in random places with no recollection of how they found themselves there. Things then evolved, taking a lighter tone, and people began finding themselves in bars, in other villagers' houses upon waking up, just to give a few examples. The most common occurrence was called the after party, as most people would apparently gather at a random place, feast all throughout the blackout and wake up the next day with hangovers, sometimes half naked and again no memories about the events. Those events gave birth to very funny stories and speculations that helped people to cope with the strangeness of the blackout, until things took a much darker tone.
+
+Unfortunately, the most recent blackouts from 1983, introduced the whole village to a new form of terror. Honestly, just imagine being on the verge of passing out or sleeping, not knowing if you or your loved ones will ever wake up. The funny stuff was still happening, but along with very terrifying things. One time, a woman drowned in another woman's bathtub, another time, several children went missing and were never found, again just to give a few examples. There was at least one death to expect and discover after every blackout from 1983. The most gruesome case was that of a girl named [Hazel](https://www.reddit.com/r/nosleep/comments/115y6au/last_week_i_would_have_become_either_a_murderer/) who woke up with a knife in her hand, and next to the eviscerated body of a woman. Following the incident, she was forced to flee the village for good.
+
+Because of those deaths, the villagers started to believe evil supernatural forces to be the culprits and began locking or even chaining themselves before every blackout to no avail. In 2015, my parents, my older sister Vivian, my younger sister Carla and myself Terrence, decided to try something new. Worried about us going out, or anyone getting in our house during the blackout, we put salt at every door and window hoping to stay safe. For extra precaution, we locked ourselves in our respective rooms and slid the key under the door, except for my father who opted for the bathroom. We then patiently waited for midnight and the blackout to strike, each of us provided with a fairly large plastic salt container.
+
+Lying on my bed, my eyes closed, my then 13 years old self recall thinking that I never had to wait that long for a blackout and my nervousness kept on increasing by the minute. I then tried to read the time on my phone but it was suddenly switched off. I noticed a strange darkness surrounding me, and it did not take me long to realize that the electricity was gone in the whole village. I retrieved my flashlight but it would not switch on, just like any other device in my possession. I felt perfectly normal and wondered if I would just wake up the next morning without remembering anything, or if maybe the 84th blackout did not just occur at all or only affected electricity and electronic devices. This is when I heard loud bangs on a door as one of us tried to kick it open. After at least five kicks, the person had succeeded, and I thought it could be my father coming to our rescue after realizing that the blackout did not occur.
+
+"Dad?" I called, not getting any response. "Dad is that you?" I asked again. I could hear the person walking calmly towards my door. "I think we're still lucid." I said before hearing the person kick on my door. I jumped back, surprised by such a behavior while the person kept on kicking and successfully broke the door at the fourth attempt. I could not believe my eyes. It was Carla, my 9 years old little sister.
+
+"You." She spoke, with a deep and adult male voice. "You're not a vessel. Why? Why are you not a fucking vessel?" She asked, but I could not answer, paralyzed by her shining white eyes. "How did you do that?"
+
+"Carla? Carla what— what's that?" I managed to ask.
+
+"Carla is unavailable you stupid piece of shit." She replied, to my absolute bewilderment.
+
+"Wh— what?"
+
+"You broke the covenant. You broke the fucking deal. The punishment for your crime is death."
+
+She tried approaching but got repelled by the line of salt surprisingly still intact in front of the doorframe. I watched her walk away and come back with a knife in one hand and a bucket of water in the other. I grabbed my salt container and was ready to storm out through the window. Carla understood my intentions and threw the knife at me, missing her target by just a few inches. While I opened the window, I heard her pour the water to remove the line of salt preventing her from entering. I jumped out and started running aimlessly in the dark of the night.
+
+"OUTLANDER!!!" I heard Carla scream behind me with rage in that deep male voice.
+
+Animalistic roars resounded in all the buildings surrounding me as I saw multiple pairs of white shining eyes appearing on the windows. I kept on running, wondering if this night would be my very last in this world.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/11w3gu8/every_year_in_my_village_there_is_a_time_during/)

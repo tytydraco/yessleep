@@ -1,0 +1,17 @@
+I tell yall, Ohio has gone to the fucking dogs, every building is either closed or condemned, we got a heroin epidemic and now bitches are trying to summon ghost in what few houses are left. One day an old booty call I used to keep in my contacts dipped into town and you know I had to try getting back with her, finally I had something to do in Ohio other than drink. I would move away but I got no way to get a good job with a bachelors in business management and three years’ experience working at a grocery store.
+
+Anyway, I’m getting sidetracked, so Reese cup comes over to my house (her real name was Laura I think.) and the first thing I noticed are the weird tattoos this woman’s got on her body, tattoos never bothered me, she was still hot as ever. We got into small talk, and I ask her how she’s been, she tells me she joined a circle of witches and made a pagan coven If I can meet one God damn woman from my past who isn’t doing drugs that’d be great.
+
+Anyway, she tells me we can smash tonight but it’s a full moon and She needs my help to summon a demon or some shit, I was cringing and rolling my eyes, but I was also down bad, I tell her yes and she pulls a spirit board out from her backpack. The symbols on the board match the tattoos she’s got on her body, she tells me to wait five minutes for midnight before beginning in the meantime I tried kissing her and getting fresh but she told me to wait, at this point I was getting a bit annoyed.
+
+Finally, 12:00 rolls around, she lights the candle and turns off all the lights, we put our hands on the board and she begins to chant something with breathy whispers. The wind outside began to stir, and the temperature dropped, finally the lights came back on even though no one hit the switch which can only mean one thing.
+
+I got to yell at my landlord about proper building maintenance.
+
+Reese cup escorts herself to the to the bathroom not saying a word to me, “Hey you all right?!” there was the sound of shattering glass and I ran begrudgingly to the bathroom only to see my mirror broken and this bitch passed out on the floor, bloody. Of course, this shit has to happen three days before inspection. Her body twitches and then she rises up like a marionette, she lifts off her feet and the lands back on them, her nails were longer, teeth razor sharp and cold dead eyes to match wispy hair.
+
+I ran to the kitchen because under the sink is where I kept my piece. I reached into the lower cabinet and grabbed the revolver with six rounds fresh in the chamber. When that thing came after me from around the corner, I rose up my weapon and BLAM! She took one to the head and survived. Not going to lie yall I pissed myself seeing that. I hit her on the head again and it didn’t do much to phase her, then I put one through her chest then one for each shoulder.
+
+I was down to one bullet, and I got a crazy Idea, while she was down, I put one bullet in the mirror of the spirit board breaking it in half, and when it did, I heard a screaming then a thud. I went into the kitchen to see her dead on the floor. Cops don’t come around here enough for me to worry about getting caught. But if I don’t clean this blood my ass is landlord grass.
+
+The moral of the story, if you invite a one night stand over and she starts talking about ghost and shit. Then she is for the streets for real.

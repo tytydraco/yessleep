@@ -1,0 +1,127 @@
+1
+
+A Drop
+
+April 17, 2020 1:00 p.m.
+
+Gravel cracked under the tires pulling up to the large estate. A single black Cadillac pulling into the empty gravel drive that lies in front of the massive stone structure. A 19th century castle in the foothills of Germany, a monolith of wealth in the empty countryside. Stepping out of the vehicle and looking up at the looming gray mass that covered his vision in its entirety stood Lars Hunde. At 29 years old he is a skinny man, tall in stature receding brown hair combed to one side. Fitted head to toe in exact measurements he wore a crisp black coat and vest with a white button up and green tie.
+
+He spent the last 2 years of his life avoiding this trip. He was actually born in Canada shortly after moving and living the remainder of his childhood in Texas. His fathers father was the one who had the place built in 1909. A man who got rich off the oil exploitation of the middle east and Africa. The generational wealth just multiplied as time went on. Lars’s dad married the princess to the Monaco royal family. Later investing into tech and media as the industries expanded. All culminating in a single heir to the wealth, Lars. 
+
+Adjusting his tie and collar he approached the home. Trying to open the door met with the cold locking mechanism attempting to keep him out. He stepped back once more taking in more of the exterior than he had before, a cancer of moss had eaten a majority of the front of the beautiful stone work. Vines the size of extension cords swinging in the wind. Disgust plastered his face, “How long have we not had caretakers?” he wondered aloud. The grass untrimmed, the garden more comparable to a jungle of beautiful weeds. Glancing one more time at the overgrown nature of the home he returned his gaze to the door. Crouching down to grab a rock he threw it through the wide oval piece of glass that sat in the middle of the door. Reaching through the new found hole he opened the door finally stepping into the old place.
+
+A weight set on him once he had fully stepped inside. Dust particles floated through the air all around him, illuminated by the large open windows decorating the ceiling. He felt the age of the building as he drew his first breaths. The smell of a dank rotting interior with the visage of a palace gave him a profound sense of inhospitality. Finding the grand dining room only took a few minutes and it was shrouded entirely in darkness. Just past the doorway sat a devourer. The darkness ate away at the room until nothing was left to see. Stepping into the room and finding the curtains that stretched up the 30 feet walls, he moved the heavy fabric back and immediately the once dead room sparked with the blinding light of creation. A long 20 person table with 3 chandeliers dangling above of massive proportions. The hitting and reflecting off of all the small glass pieces blinded him for a few seconds before his eyes readjusted. With a huff he sat himself at the head of the table admiring the portraits of those who came before all lining the walls. All fake.
+
+His grandfather was a man of image, after accruing his wealth he then began working on the surrounding cities getting in their good will. Eventually they wanted to do an article on him and his family, however his father had been a drunken abusive man and his mother had died in birth. So, instead he commissioned 8 paintings from eight different artists asking them to blend the faces of famous men in portrait. The end result was this very room in which he found himself. His father had told him that story, though Lars wished he could say his father was a less vain man… he cannot. But no corpse can be vain, he supposed. 
+
+Sprawled out in front of him lay the documents and specs of the house and land. Laying them out in preparation for tomorrow’s meeting with the realtor. As both his parents are now gone with his fathers passing and mothers indefinite stay in an institution somewhere in upstate New York. He doesn’t know her very well, he barely has a memory of her. Left with the entirety of his family’s assets he decided to liquidate. Near the bottom of the list was deciding the fate of “The Old Terrorman Place '' as his dad called it. 
+
+You see, Lars had never been to this place before this moment. He had been all over the world, to 82 different countries, seen lavish parties only visible to the disgustingly rich circle he swam in, but never the Terrorman Place. It was his fathers childhood home though he spoke of it as a betrayal by a close friend; little and vaguely. He knew his grandfather had not been a great person but past that fact his father was slow to even hint at what his childhood looked like. But it always seemed as if he was inclined to talk about something, rid his brain of some damage it had never been able to vocalize. “He took it to the grave.” Lars spoke to himself finalizing the placements of the papers. 
+
+He sighed a heavy sigh dreading his drive back to the hotel. Looking down at the table and frowning at the carpet like dust that coated the once beautiful table. He adjusted his tie leaving the illuminated room, almost disappointed. He knew that the house wouldn’t have been in great shape but from the looks of it, he would make more money by demolishing the house himself and selling it to a farming conglomerate. Though the realtor would be able to tell him tomorrow in the morning. Walking out of the mall that was a house past the grand staircase. A structure of a dark brown but closer to black than brown mahogany, hand engraved up and down the frame with everything from floral patterns to bible verses fitted into its already rich history. One hundred and two white marble slabs topped each step contrasting the dark wood with gray lines of contrast running through each one, the staircase beckoned to be stepped upon once more. 
+
+Glancing away from the set of stairs back to the door now with a broken centerpiece. Taking his first step towards the door a loud bang rang out from somewhere upstairs in the mansion. He stopped cold in his tracks, a fear crept through every nerve in his body. As a harsh silence fell over the space once more the fear slowly turned into something of a jealous rage within him. He was in one of the only pieces of his family left, one he had never even bore witness until now. But this squatter? No, the intruder had entered his castle and now he was to defend it. That’s how he justified turning around pulling out his gun and walking up those stairs as adrenaline began to pour into his veins.
+
+This rush had only come over Lars in very rare circumstances. He called out up the stairs as he was reaching the top “You better come out with your hands up I have a gun!” but no response was heard. A slight rattle in his tightly gripped hands as he strode down one of the hallways, only the decaying wood under his feet making a sound, a slight thud as he stepped. Then, the creaking of a door to the right rang out stopping him in his tracks. Training his pistol on the door he called out once again to no response.
+
+Stepping up to the door he listened intently hearing a soft high pitched giggle, but muffled. Not by the door or a hand, it was a much more intense silencing of sound. As if something was taking the sound waves and putting a blanket of dullness on them. He slowly pushed open the door stepping inside and scanning the dark room for any sign of a person. As he went to take another step something caught his foot and he went tumbling forward. As his frame came crashing to the ground his head hit the end of the grand termite ridden bed frame making him lose consciousness. What hitting his head also did was cause his body to tense up and squeeze the trigger letting out one single *POP* from his firearm.
+
+2
+
+Where They Lie
+
+He woke up in a black sea of inch deep midnight water. But when feeling the water on his skin and clothes he realized he wasn’t getting wet. The liquid moved over his body with a fluidity unknown to an earthly existence and the sensations kept him stunned and unmoving for a few moments. Eventually he had the curiosity to sit up and look around a little frantically after the memories leading up to this moment came flooding back. But there was nothing. An empty void devoid of things to see or hear.
+
+The sound of stage light turning on behind him echoed throughout the noiseless space causing Lars to whip his head around. There in his vision just ten yards away descended a column of light from the endless sky. In this light was the empty corner of a small concrete room, in it sat a girl no more than sixteen curled into a ball weeping. There was now sound in the hollow environment, a repeated sob breaking out followed by short but fast breaths as if to return to crying as fast as her lungs would have allowed it.
+
+Lars stood and began to approach the girl now beginning to believe he had died in his incident, but he was beginning to come to terms with that. “Nothing I can do now,” he said under his breath. He stepped into the light housing the girl and a warmth fell over him and every nerve in his body began to fire off feelings of fear and dread. He persisted in stepping onto the concrete block and getting down on one knee beginning to shake from the cortisone his brain was releasing. 
+
+He put a hand on the young girl's back as she lay sobbing. At first she seemed to have not noticed his touch, but her racking cries began to have larger breaks between them. As she began to remove her head from her knees, long black hair fell away from her face to reveal what looked like clothes made from the material of a potato sack. Her face was puffy and red from the expression of emotion she had just finished. She placed her hand right where his was on her back and it went right through his hand. Her hand took priority in his vision like it was a layer above his.
+
+She then moved to turn and face him asking “Who’s there?” not with fear in her voice, but a sad longing. He responded with his name and asked her what was wrong. She sat there for a second pondering where to begin. “I don’t know where I am and these people keep doing things to me. Putting these weird juices in my arms. I just wanna go home.” The last sentence was said with a defeat that Lars had not heard before. He looked upon the girl's track marks running up and down her arms, an old bruise finally beginning to transition from purple to pink underneath one of her bright green eyes. A pity fell over Lars; he did not know what a dead man was to do to help this girl. Just as he was sitting focusing on his surroundings once more a yell consumed the void, “*I AM STUCK HERE!”*
+
+Jolting awake on the dank moist floor boards he was being dragged by something violently. His ribs slammed into the doorway on the way out of the room sounding a CRACK throughout his body. He cried out in pain gripping at his side. He tried to lift his head to see whoever was dragging him but they immediately yanked him, sending his head into the soft floorboards. 
+
+Barely able to see his lifted right leg, each time the thing pulled him pain shot through his leg. He focused hard on his leg as it seemed it was all he could perceive. Eventually seeing the seeping red hole in his leg. Another hard pull sent his head jolting back against the floorboards. Bouncing off with a pulsing pain and loud ringing accompanying shortly after. 
+
+All of the fight either confused or beat out of him he let the being continue to drag his now lifeless body without resistance. Eventually he was lifted up limp like a noodle and put down some sort of chute, sliding a few different directions. Accruing a few scratches and cuts on the way he got dumped on top of a damp pile of drywall. 
+
+He curled himself into a ball beginning to smell the wet cement that made up to walls surrounding him. Soft weeps began to rack his body, sending him into a convulsive fit of hyperventilation and hysterical crying. Hope seemed so far out of reach the idea of trying to move hadn’t even crossed his mind
+
+Until the very warm and comforting feeling of a hand on his back sent calming waves floating through every nerve in his body. Filling him up with the emotion of empathy from another being. Lars had never felt such… unrestrained love and sorrow for his state. That’s when the words enough to motivate him bounced around in his head, “You need to move. It’s not safe here.” A small girl's voice.
+
+3
+
+Beginnings
+
+In his mind's eye he was at the age of 8, frame skinny and demeanor weak. Laying in his childhood bed the comforts of his closet light shining through the cracked shutters. Illuminating the room just enough to be comfortable as he could absorb his surroundings in the soft yellow light. Unaware of his current circumstances lying in that cold wet basement he snuggled under his covers with a big smile on his face. *Tap.* He immediately went straight.
+
+A chilling reality began to wash over him. First with the discomfort of deja-vu seeping into his head. He’d been here, heard that sound. Tap. His spine shivered from his hips to his skull as goosebumps crept up his arms. He knew what was coming. Pulling the covers up to his nose a heavy irregular breathing pattern set upon his lungs. Tap, Tap. The clothes hanging in the closet swayed slightly making the aluminum hangers meet one another leaving a soft crescendo of accidental percussion. 
+
+A skittering sound as a squirrel running up a tree, or a small dog's nails on tile came from the pile of dirty clothes visible in his closet. After they rustled for a moment there was no more noise. The blanket of silence fell over the room once again, all except the labored breathing of the young Lars. Staring into the chasm of his closet he knew what happened when he looked away all those years ago. He made the decision to stare infinitely into the yellow closet.
+
+Fate always forces the events of the world to play out as they should. There was no sound in the memory though a final tap rang out above his bed forcing him to stare at the plastered ceiling. Coming down from his ceiling reaching out towards him with one arm, was a being indescribable in figure. But material? It was wholly made up of weaving and moving pitch black hair. The being always in motion kept the figure of a human but constantly contorting the seemingly infinite strands of hair to different forms. An overweight man, a young girl, a small child, a fit woman. Constantly shifting.
+
+Without a hole or crevice on its silky exterior it lacked eyes, or a mouth. Just the smooth indentations decaying flesh would leave coated by the shadowy fibers. Only the beings waist and up were coming out of the ceiling, a small swirling black hole at the base of its body. Slowly gravity was pulling the being closer to him as it dripped out of its entrance into his room. Caught with fear in his throat the screams he was attempting to release trapped just below his tongue. 
+
+The vibrations his body had been creating began to get stronger as the creature got closer. As the beings outstretched pointer finger crept closer to his face, inches away, the bed was shaking like a train was running beside it. Closer. His small pupils dilated more and more, seeing each individual strand on the  terror quickly weaving onto itself no piece frayed or out of place. Closer, the beings finger starting to unwind itself letting out hundreds of follicles aiming towards his nostrils. The beds rattling was unbearable, it was like laying down on the worst wooden roller coaster on the planet. Then the lights in his room came on blinding him for a few moments, the being now gone, and bed calm, he looked towards his door. There stood a frantic and horrified look on his fathers face, a slight quiver in his hand hovering over the light switch.
+
+\-
+
+Some of the sitting water he was laying in had absorbed into different parts of his clothes. He stood a mess of emotions and shooting pain up the right-side of his body. Taking off his suit jacket he ripped a sleeve off tying it around his gunshot wound. Next he took out his phone and dialed the emergency number for the area. However he was met with the distressing return of a no service message. Deciding to send a string of texts to his assistant instead. 
+
+Something really weird is going on here.
+
+Not Delivered
+
+Please send help to my location.
+
+Not Delivered 
+
+I am not okay.
+
+Not Delivered 
+
+He huffed in frustration, his brow furrowing. “FUCK!” he screamed crumpling to his knees back down on the ground. Gazing around the room two doors on separate walls of the seemingly unfinished concrete room. Both heavy metal doors with viewing slides on his side of them. What was a room like this needed for? He pondered for a moment. Unable to come to a conclusion until his gaze set upon one of the corners of the room. A set of cuffs attached to chains bolted to the wall. Disgust quickly filled his head followed by a physical reaction in his face cringing away from the image.
+
+Looking back at the doors he was at a loss which to go through as both were equally looming. Behind both horrors that scraped around the deepest roots of his brain. But the decision was made for him very soon. As while looking at the doors on one of them gold orbs started to float out of one source which was in the shape of a hand. Warmth came from that direction. The golden handprint created the path which he was to follow. “Hurry.” The word was spoken almost inaudibly but the effect was profound. Pulling himself off the ground he sprint limped across the room reaching the door. Then, from across the dark space a sound was sent from the other door. A sound meant for him, the metallic sound rang from a small Tap.
+
+4
+
+Grende I Miss You
+
+April, 4 1942 
+
+She’s still gone. I haven’t seen my sister in almost 2 months. Dad told me that she was doing very important work for him in the basement, but sometimes if I put my ear to the floor I can hear screams that no one else could make except her. It always sounds very far away like it’s coming through a radio with a bad connection. 
+
+I know something bad is happening to her. The last time I asked my dad when I could see her again he shoved me to the ground screaming at me not to question him. He has always had anger issues but something else has him acting this way. But I know he has something to do with what’s going on with her.
+
+I don’t know how to explain it but since she’s left there has been this heavy feeling on my back. We are twins, so maybe it’s a twin thing but sometimes in the nighttime i feel little pricks all over my arms followed by the feeling of dozens, hundreds, of hands all over my body at the same time pinning me to my bed. I thrash and scream but no one comes, and I’m not allowed to leave my room past 10. I really wanna see her again. I miss you Grende.
+
+\- Greike Hunde 
+
+As Lars’s 15 year old father closed his diary and set it on his nightstand he took a deep breath letting it out in a long sigh. Expelling his emotions through breathing patterns was one of the only healthy ways he had found to express his emotions. Words had never been an option especially when around his father. He was essentially unable to speak in his presence. Raised by the staff of the home, the only relationship he had with his dad was one with a power imbalance caused by physical violence. 
+
+Opening the drawer on his dresser and pulling out a pill bottle one of the chefs had given him he gave it a light rattle. The substances inside were waiting to take away all of the sensations that haunted him as he slept. Looking at the label reading Benzedrine 40 mg, he had told the chef of his night terrors. The hands that grasped at him as if attempting to rip him open and get inside, his sister screams. The look of pity he received was almost enough to anger him, however he knew it was from a caring place.
+
+The chef had been the closest thing to a role-model he had, a large bald man in his mid thirties. He had started as just a line cook but as the years passed and the last head chef retired he was selected to take over. There since Greike’s conception as a positive influence, watching him grow attempting to shade him from his fathers atrocities. But this lie broke his heart to tell. He knew where Grende was. It was better that he didn’t though.
+
+“Take two and the sleep you’ll get will be indescribable.” said the chef when he had given the bottle to him with a slight chuckle after. The words bounced in his skull echoing, and he set the bottle on the table glancing at the clock. The hands of the clock pointing menacingly to the time 9:55 p.m. Sprinting out of his room to get to the bathroom and back before 10:00. After relieving himself while washing his hands sounds began to flow in his ears. Unsure of where they came from he scanned the room.
+
+Spotting a vent behind the toilet he sprawled out onto his stomach and crawled closer to try to hear it clearly. It was a chant. Low and droning. One line over and over. He couldn't quite make out what was being said but words began to manifest in his mind as he heard it more and more. Only three, but more than enough to make all his hair stand on end with a light shake thrumming through his limbs. “Take… Murder… Replace…” 
+
+He jumped up off the ground in haste slamming his head into the toilet. Collapsing back onto the ground from the shock and incoming panic attack. Scrambling to his feet he opened the door and ran down the long hardwood runway back to his bed. He turned the corner leading to his room, and there in his doorframe a tall man shrouded in shadows loomed. The aggression oozed off of his being, looking past him he could see the clock on his nightstand; 10:03. 
+
+“What did you hear?” the deep voice rumbled as he started towards Greike. Unable to form a word, all his vocal chords were able to produce was a combination of breathy words and stutters as his agresser came closer. First was an open slap to the side of his face forcing him to the ground. Quickly followed by a series of kicks into his gut, he coughed a few times blood coming out in bursts then began dribbling out of his mouth as the attacks ended. “You know the fucking rules.” stated the voice plainly. 
+
+Shaking in a bloody mess pooling by his mouth he uncurled himself from the fetal position to crawl to his room along the hard wood. The whole time to the doorway he held his breath in anticipation, waiting for a thunder of footsteps followed by a crippling kick. But as he gripped the carpeted floor of his room pulling himself to safety no kick came. Closing the door and sitting up against it letting out a heavy sigh and a few soft weeps. 
+
+Standing up he walked back to his bed taking three of the pills instead of two and laying down. The chef was correct, within five minutes the pain had subsided and a slight euphoria had set in easing his body through the transition of sleep. Soon his body was fully at rest, as well as a majority of his brain. But, one part was awake, a deep part, a part that some people don’t even have. If they do have it, the chance they are capable of accessing it is infinitesimally small. But as this part of his brain continued to fire off in his sleep an environment began to build around him in his brain, a dream. 
+
+A dark slated concrete hallway was in front of him and he was walking down it. Off in the distance a muffled sound, always occurring but faint. He took a right turn at the end of the hallway to see another, but this one was worse. In the place where the walls and ceiling met a dark green thick sludge was starting to seep out of the crack and begin its slow descent down the wall. The walls themselves had seemed to have gotten darker too. The white gray of the previous hallway now gone, a darker gray making his vision even dimmer. Starting to feel frightened he turned around to be met with a brand new wall that blocked his path back. 
+
+Taking a shuddering breath he continued forward, the sounds becoming louder, he became more and more startled with each step. Turning the next corner began to fill him with dread awaiting the next hall of horrors. A pitch black hallway aside from the bright crimson fluids strewn about at random. The smell of iron charged his nose, as he was realizing what the liquid surrounding him was. At the same time the sounds finally came enough into focus for him to grab a few. “Take… Murder… Replace…” He was frozen, a deer in the headlights. But an image stood out at the end of the hallway. A large metal door whose view slide was open to where the noise was originating.
+
+Walking down the hallway the chants seemed to go down to mumbling except for those three words like his brain couldn’t fill in the blanks. Stepping up to the slide his greatest nightmare was fulfilled. A group of hooded figures all holding candles stood in a half circle on the other side of the wall. Being held up against the wall by an invisible force was Grende. He cried out for her and their eyes met for a moment before the chanting stopped and she let out a blood curdling scream. An overwhelming light erupted from the hole he was viewing through blinding him. He stumbled backwards hitting his head on the wall.
+
+A pool of sweat was all of the explanation he received when waking. Shaking in a cold sweat he layed and cried.

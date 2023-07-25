@@ -1,0 +1,17 @@
+I was always one to enjoy the solitude of the night. I often took walks late into the evening, finding comfort in the stillness of the night air. However, one cold autumn evening, I had an encounter that would change my perspective on the night forever. That was the night I met the man in the black coat.
+
+I was walking down a narrow alley, the dim light from the streetlamps barely illuminating my path. As I reached the end of the alley, I noticed someone standing there, just beyond the reach of the light. He was wearing a long, black coat that concealed his features, but I could tell that he was watching me. I was curious about this stranger, but as I got closer, I realized that something was off.
+
+I tried to turn and walk away, but my feet wouldn't move. I was frozen, unable to escape the man's gaze. He started to move towards me, his coat rustling with each step, and I knew that I was in danger. I closed my eyes, bracing myself for the worst, but when I opened them again, the man was gone. I looked around the alley, but there was no trace of him, no sign of where he had gone.
+
+I was shaken by what had just happened, and I couldn't shake the feeling that I was being watched. I went home that night and tried to put the encounter out of my mind, but I couldn't forget about the man in the black coat. I never spoke of what had happened that night, but I couldn't shake the feeling that he was still out there, waiting for me.
+
+Years went by, and I thought that I had finally put the man in the black coat behind me. But then, one day, I saw him again. I was walking out of my office building when I spotted him standing across the street, wearing the same black coat. I felt his eyes on me, and I knew that he was following me. I started to run, but no matter where I went, he was always there, watching me, waiting for me.
+
+I was scared for my life and knew that I had to find a way to get rid of him. I tried everything, from changing my routine to seeking help from the authorities, but nothing seemed to work. The man in the black coat was always there, always watching me, always haunting me.
+
+I still don't know who the man in the black coat is, or what he wants from me. All I know is that he's still out there, waiting for me. I can never escape him, no matter how far I run or how hard I try. He will always be there, watching me, haunting me, until the end of my days.
+
+I often think about that autumn night, the night I first encountered the man in the black coat. I think about his black coat and the way it rustled with each step he took. I think about the feeling of being watched, of not being able to escape, and I shiver. I know that I'll never be able to forget about the man in the black coat, and I fear that I'll never be free from him. He will always be there, a constant reminder of the fear and terror that I felt on that autumn night.
+
+In conclusion, the encounter with the man in the black coat was a turning point in my life. It changed the way I viewed the night and left a lasting impression on me. I may never know who the man in the black coat is or what he wants from me, but I know that he will always be a part of me, a constant reminder of fear and terror.

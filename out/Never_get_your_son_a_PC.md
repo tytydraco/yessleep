@@ -1,0 +1,15 @@
+I had recently purchased my son a PC, now those of you familiar with the internet know it can be a dangerous place if you wonder in the wrong areas. Before I gave my son the computer, i had warned and made sure he understood that before he could use it stating multiple times not to talk to strangers on the internet. He said he understood so I gave him his PC. 
+
+
+
+A couple weeks went by and we started playing games together, now my son is around 7 years old so the games we would play together ranged from minecraft to My Friend Peppa Pig complete edition, but this one game in particular is one he found in the depths of the steam store. It was a free game called Mr. Marshmallow: Sunshine’s and Rainbows, now I had never heard of this game before but it was free and I could play with my son so when he would get home from school we would play together for an hour or so. 
+
+
+
+
+We had been playing for a couple of weeks at this point deep into the game when something strange had happened. We were just sitting in the main lobby when a player by the name “DrGruesome” had joined. When I asked my son if he knew who this was his answer had shocked me. He said this was a player he has been playing with after everyone in the house had went to bed. When i scolded him for talking to strangers what he said next sent chills down my spine. He said “I know him he’s my friend from the back of the play ground at school” *dramatic bass drop* i immediately contacted local authorities and reported this activity, I messaged DrGrusome and said “Stay away from my son” he responded almost immediately and said “I have something that might interest you” he proceeded to state that there was a version of Mr. Marshmallow: Sunshine and Rainbows that was fitting to his name, a more Gruesome version as one would say. 
+
+
+
+
+This peaked my interest. He said he pulled my email from the game files and sent me an email with instructions on how to install the game, i pulled it up and followed the instructions leading me to install a browser called “Tor” with a vpn built in, i loaded up the game after my wife and son went to bed and what I’m about to describe next is shocking viewer discretion is advised, instead of Mr Marshmallow being on the title page, it was a bloody more Gory version as DG described the characters in the game looked like real disembodied human beings almost as if pictures of said things were uploaded to the game. In the main lobby there was a picture that everyone on the server was gathered around. It was a picture of my son on the playground holding a bloody scalpel with a dead animal in his other hand. I immediately turned off my PC and threw it out the window along with my sons and got back in bed with my wife. It’s safe to say I didn’t sleep the whole night due to what I saw in DG’s game. I don’t know who this DrGruesome guy is or was, but whenever I figure it out, I’ll make sure he goes away for a long time

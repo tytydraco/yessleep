@@ -1,0 +1,37 @@
+I was feeling under the weather so I decided to call in to work and let them know I wouldn’t make it in. I plopped myself down on the couch, turned on an old episode of Futurama, and stayed in that seat all day, only getting up for Gatorade and Dayquill, my customary cold treatment. I had the next few days off, so by the time of my next shift, I was only dealing with the death throughs of congestion, I would be working that day. After a few minutes, my manager came up to me with a concerned expression.
+
+“You alright? You seemed really out of it Wednesday, almost like you were in a daze.”
+
+“Yeah, I’m fine now, just a head cold.” I said, wondering how she picked that up from a phone call.
+
+“You really shouldn’t come in when you’re sick.”
+
+“I didn’t, I called out.”
+
+“You called out but you still showed up on time, looking like death incarnate. I tried sending you home but you didn’t even react. I was really worried, but you look fine now.”
+
+“I’m reasonably certain I watched futurama on the couch all day.”
+
+“That’s concerning, maybe see a doctor about your memory.”
+
+I, believing this to be a strange misunderstanding, acquiesced to end the uncomfortable conversation, with no actual intention of going to the doctor. The interaction stuck in my memory and I couldn’t stop thinking about it all day, trying to figure out what could have happened but nothing made sense. I ran the scenario over and over in my mind, I couldn’t think of anything else. At the end of my wits, I decided to run a test the next day.
+
+After calling in, I parked in the back of the lot and watched the entrance of the building, and right as my shift was scheduled to start, I saw it. A cold shiver ran down my spine like icy water, my heart pounded deafeningly in my ears as I watched myself walk down the street, toward the front door of my place of work. I was cemented in place, entirely unable to move, just staring as this pretender walked by. For whatever reason, the part that got me, the part that really upset me, truly made me angry, was that it walked like me, somehow it knew me and it knew how to copy me perfectly. My state of static panic was quickly replaced by a state of active panic when the thing that wanted to take my place snapped its head in my direction, making eye contact.
+
+The new adrenaline pumping into my veins shattered the concrete that held me in place, and as my doppelgänger changed course to where I was parked, I regained the wherewithal to shift into drive and tear across the mostly empty parking lot out to the nearby highway. By the time I calmed down, I was nearly two hundred miles and several state lines away. A rest stop sign appeared against the already-darkening horizon and, thinking of my suddenly very heavy eyelids, I deemed I was far enough away that I could catch a few hours of sleep and figure out a plan. The moon was merely a sliver, unable to pierce the dense forest, the trees seemed to be a great dark wall that ominously encircled the rest stop, making it seem like the lights of the rest stop created a tiny island in an ocean of inky blackness. The ominous setting, however, was not enough to combat my exhaustion and I ended up drifting into a light, dreamless sleep. 
+
+Well into the late hours of the night, my sleep was broken by a quiet but unmistakable tap on my car window, just one. Immediately, the implications of such a noise crashed into my half-asleep brain, forcing me wide awake in seconds. Slowly, reluctantly, I forced my head up to find the source of the noise. As my gaze leveled on the driver’s window, my worst fears were proven true. My eyes met with their dark copies, nestled into an all too familiar face, the blank expression was unmoving, seeming to be etched in stone. I thought about starting my car and gunning it, but I already did that, 200 miles ago, and it got me nothing but isolation. Clearly, I wasn’t going to outrun this thing, and I was unbearably curious, so I did something truly stupid, I cracked the window to talk.
+
+“What do you want?” I said, fear making my voice crack like I was 12 again, living out my middle school hell.
+
+“I…wa.n..t…….m.ore..”
+
+That voice, it felt wrong, it wasn’t just off, it was hollow, so much less than human. I can’t explain what it was, but something was missing, some key element of speech was conspicuously absent, something so fundamental to humanity it could be considered an expression of the soul. His words felt like a black and white approximation of what people talking might sound like if you were hearing it for the first time and were unfamiliar with the nuances that every language, every dialect has in vast abundance. It seemed impossible for such sounds to be coming out of a human, yet here it was coming out of not just any human, but a copy of myself. Once it finished its uncanny speech, it shot out a hand towards the window, shattering it with seemingly no resistance, and clasped an iron grip around my throat.
+
+A million thoughts ran through my head at once but one idea was loud enough to be heard over the confusion, *Escape*. And so I did. Never breaking eye contact, I reached for the pen I knew had fallen weeks ago between the seats and by some miracle I found it. As my vision darkened, I uncapped the pen with one hand and jammed the makeshift weapon into the unholy abomination’s forearm and it let out an ear-shattering shriek that sounded more like a power tool cutting through metal than anything a living being could produce. Its fingers unclasped themselves from my trachea long enough for me to start the car and I tore the hell out of there. Unfortunately, the gas gauge eluded my attention and I was stranded on the side of the deserted freeway in the absolute middle of the night within half an hour, of course with no reception. 
+
+I knew it was coming, I could feel it, and this time I would be ready. I piled up a bit of junk I had in the car and threw a blanket over it, giving the illusion someone was hiding in the back seat, before creeping into the woods, finding a big stick, and treading lightly into the woods behind a particularly large bush. There I sat, waiting. This thing wanted my life, it wanted to be me, I’m not sure what its plans were but I was pretty sure I wasn’t a part of them for very long. I sat wound like a clock, ready to spring my improvised trap on my hopefully unsuspecting predator. Each muscle tensed to its breaking point, my nerves on a knife’s edge.
+
+After what felt like forever, I heard that familiar single tap on glass and knew it was now or never, live or die, kill or be killed. As silently as humanly possible, I climbed from my hiding place and crept toward the figure facing into the window. Right as I brought the branch down, it turned to face me, but it was too late. I watched as roughly a meter of pine turned my own face into a mess of a black, tar-like substance, and skin that shattered like porcelain. Watching the black goo seep out of the gaping hole in my face and onto the pavement, I shuttered, hoping I would never see anything like it again.
+
+I dumped my own body in the woods and drove home, I showed up to work the next day. I literally killed myself and now I need to pretend like everything is normal, like I didn’t meet something out of The Twilight Zone. How, how do I act normal now?  How do I move on from something like that? How do I ever relax again? I find myself constantly looking over my shoulder and getting jumpy over everything. I don’t think I’ll ever be the same.

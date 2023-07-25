@@ -1,0 +1,17 @@
+My experience at my friends ranch in midland texas, the fallen angel PART 1
+(Since the word “I” is prohibited and against the rules) the person who is me in this story will be referred to as “Lucas”
+
+Hello everyone. Nothing scary ever happens to me ever, Lucas lived a pretty normal life, Lucas attends highschool, Lucas plays on the schools football/basketball team. Lucas lived a generic life where the most scary thing to ever happen to me is getting pulled over for going 10 miles over the speed limit.  But back to the story. Lucas was at my buddy’s ranch last year with his parents. 
+
+This is not the first time I’ve been there. His parents would always take us there for years and nothing ever seemed off. It was a 200 acre ranch completely fenced and almost impossible to break into if anyone ever tried, so it was a Farley secure place. We would always drive my friends ATV around at night and drive around a path that would loop around an edge of the land that would bring us back to the house, it was roughly a 10 minute drive, and the the trail had this bridge that would cross over a large marsh land, there would be an occasional alligator that could be seen or the occasional turtle swimming. 
+
+The place was incredible. The trail would always end with a drive through a field filled with livestock and and a large body of water (almost pond like) where the animals could drink water. Well when Lucas was there a year ago my friends dad (let’s call him Mr Bruce) Mr Bruce told us to not go near the pond and stay inside for the whole trip for a while as there was wild hogs running around that he needed to kill. We were pretty bummed out about it but we didn’t really care since my friend (let’s call him sam) Sam brought some weed along and he said we could smoke it while his dad was out at night hunting hogs. 
+
+So that kind of redeemed the trip. Me and Sam spent most nights getting high and watching tv in his room. The trip was almost up and we wanted to have a little fun. So with just 2 days on the trip remaining we decided to go sneak out one night and ride the ATV’s on the trail that I mentioned in the beginning. Things were going good, 2 stoned teenagers riding ATV’s at night and playing loud music on the speakers. 
+
+Things were great until we arrived on the bridge over the marsh. We were stopped in our tracks because there was an alligator torn in half on the bridge with its insides scattered around the bridge. The smell was putrid and it through off the mood and me and Sam immediately felt uneasy and both agreed on turning back and riding back to the house. 
+
+We turned around our vehicles and began riding back when me and Sam heard a gigantic splash in the water. We immediately sobered up and rode off in full speed, we were not interested in seeing whatever the hell that was. As we were riding we heard these loud gallops behind us that grew closer by the second. It sounded like a horse, but when we looked behind us we saw nothing as the pitch black night consumed the whole area and we could barely see a foot behind us.
+
+
+Hey guys I will make a follow up post on this because my app is acting really choppy and I’m scared that it might crash before I can submit this whole story. Part 2 should be uploaded before the end of the day

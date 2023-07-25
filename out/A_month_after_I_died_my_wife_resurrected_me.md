@@ -1,3 +1,5 @@
+**Part I** - [Part II](https://www.reddit.com/r/nosleep/comments/zkilyw/a_month_after_i_died_my_wife_resurrected_me_part_2/)
+
 That’s only the cherry on top of the terrifying situation in which I find myself.
 
 This story isn’t about me. It’s about my wife. It’s about the price she had to pay to resurrect me.
@@ -110,13 +112,7 @@ His arms and legs were broken and twisted in ways that I can only imagine must h
 
 I didn’t go home. I’ve been living in my car. Whatever my wife did to resurrect me, it extracted a vile toll. I’ve conducted online research, but I can’t find anything on the subject. I assume she feeds on the essence of others to sustain herself.
 
-Should I go home? I can’t run and hide for the rest of my life. I think I have to stop her.
-
-&#x200B;
-
-UPDATE:
-
-You’re right. I can’t run from it. As I received a flood of replies, I found myself overcome with guilt. My wife made a desperate decision, and it came with an unimaginable price. That’s why I’ve been browsing the internet to find some sort of explanation for what happened to her. Perhaps I can stop her. Perhaps I can also save her.
+I found myself overcome with guilt. My wife made a desperate decision, and it came with an unimaginable price. That’s why I’ve been browsing the internet to find some sort of explanation for what happened to her. Perhaps I can stop her. Perhaps I can also save her.
 
 Earlier this morning, I found something.
 
@@ -188,4 +184,6 @@ I released the door handle, sprinted down the stairs, darted out of the front do
 
 I’ve been sitting here for the past hour, staring at the open front door to my blackened house. I’m flicking through the Veilbreaking book. I hope to find some answers.
 
-[II](https://www.reddit.com/r/nosleep/comments/zkilyw/a_month_after_i_died_my_wife_resurrected_me_part_2/)
+[Part II](https://www.reddit.com/r/nosleep/comments/zkilyw/a_month_after_i_died_my_wife_resurrected_me_part_2/)
+
+[X](https://www.reddit.com/r/dominiceagle/)

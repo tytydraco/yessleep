@@ -22,11 +22,11 @@ Let me explain. Last night, I took a Lyft. Didn’t notice anything out of the o
 
 “Remember last year? What took out the power grid in Texas?”
 
-I did remember when she mentioned it—the freak winter storm that caused power failures all across Texas as temperatures plummeted. 
+I did remember when she mentioned it—the freak winter storm that caused power failures all across Texas as temperatures plummeted.
 
 “Funny thing—his car in Minnesota had good tires and handled the snow well. But in San Antonio, he wasn’t prepared for it.” She shrugged. “I read his obituary. May he rest in peace… though he won’t.” Before I could ask what she meant by this ominous remark, she went on, “Then there was the guy last week…”
 
-“What happened to the guy last week?” 
+“What happened to the guy last week?”
 
 The woman’s eyes twinkled in that way of a street grifter who’s made their mark. “I picked him up from the airport, same as you. Gave him the warning, but he was curious—same as you—so I told him: ‘You die from the bite of a predator.’”
 
@@ -68,15 +68,15 @@ Her lips curled at the corners, and I swear I saw tiny horns in her mess of dark
 
 But the car screeched to a halt. She tapped her nose. “Think this’s your stop,” she said. I hadn’t even given her the building address—just the general neighborhood name. But here I was. I paid her and got out, and she zipped off before I could ask more questions.
 
-Later I contacted Lyft, but they didn’t have a driver matching her description or any record of the ride that picked me up. 
+Later I contacted Lyft, but they didn’t have a driver matching her description or any record of the ride that picked me up.
 
 \*\*\*
 
-Well. What would you have done? I marched my suitcase over to the elevator and pushed the button. I wasn’t about to carry that damned suitcase up ten flights of steep stairs. I reasoned that, instead of trying to outmaneuver her predictions, I’d pretend not to know about my death-due-to-snapped-elevator-cable. 
+Well. What would you have done? I marched my suitcase over to the elevator and pushed the button. I wasn’t about to carry that damned suitcase up ten flights of steep stairs. I reasoned that, instead of trying to outmaneuver her predictions, I’d pretend not to know about my death-due-to-snapped-elevator-cable.
 
 Pretending was hard, though, given the knowledge was already in my brain. I almost fainted when I crossed the threshold, dragging my suitcase into that wobbly, janky old elevator. Every creak and clank sent my heart plummeting. The sixty seconds it took to reach the 10th floor felt as if they stretched on for sixty years, and I was nearly sick on myself when the doors finally opened and I stumbled, pale and shaking, to my flat. Research helped me feel better about my situation later. See, unlike rabies, which really does leave you dead if you’re showing symptoms, or a cat bite, which really can kill you—an elevator plunging you to your death is more of an urban myth. There are backup cables and brakes, so that despite what you see in the movies, it’s essentially impossible for you to go plummeting. I spoke to several elevator technicians, and they all assured me there’s no way for me to die from a snapped cable, short of having a heart attack. And now that I know *that*, my panicking and dying by heart attack is a lot less likely.
 
-And here—here comes the bagel—the bagel that I mentioned in the title of this post, which nearly cost my life. See, I didn’t really *need* to go out today. But around lunch time, I craved a bagel. So. 
+And here—here comes the bagel—the bagel that I mentioned in the title of this post, which nearly cost my life. See, I didn’t really *need* to go out today. But around lunch time, I craved a bagel. So.
 
 I took the elevator.
 
@@ -94,4 +94,4 @@ I punched in the button for the lobby. I was already imagining what kind of topp
 
 —then my body slammed into the floor as the elevator car jerked to a halt. I’d only dropped… maybe a few feet? The brake saved me! And though my heart was hammering like the wings of a hummingbird, I think the fact I *knew* the elevator car couldn’t fall prevented me from being as petrified as I would’ve been otherwise. I’m proud to say that I was quite calm as I waited for emergency services to get me out. They’re still repairing the elevator, and despite my anxiety, I plan to ride it again once it’s fixed. Gotta keep on pretending like the cable hasn’t got it out for me right? Haha. Because see now, I’ve proven it is *safe.*
 
-So sorry this tale doesn’t end in the grim or ghostly, but what a wild ride, eh? And I never even got my bagel! Guess I’ll get it now. Figure I deserve it after all that! The elevator’s probably not operational yet, so for now, it’s the stairs. Hmm… cinnamon raisin or everything…?
+So sorry this tale doesn’t end in the grim or ghostly, but what a wild ride, eh? And I never even got my bagel! Guess I’ll get it now. Figure I deserve it after all that! The elevator’s probably not operational yet, so for now, it’s the stairs. Hmm… [cinnamon raisin or everything…?](https://www.reddit.com/r/QuincyLee/comments/11nxwz3/welcome_thanks_so_much_for_stopping_by/)

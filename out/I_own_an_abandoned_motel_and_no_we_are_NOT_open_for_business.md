@@ -182,4 +182,24 @@ After about a half an hour walking around, staring at the river, I made my way b
 
 “TAXES”
 
+[x](https://www.reddit.com/r/Wine_Dark_Sea_1239)
+
 [Part 2](https://www.reddit.com/r/nosleep/comments/10vpfzw/i_own_an_abandoned_motel_and_ive_just_become/)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/10x7n4n/i_own_an_abandoned_motel_and_ive_severely/?sort=new)
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/10yy5yi/i_own_an_abandoned_motel_and_im_not_sure_ill_be/)
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/11257sy/i_own_an_abandoned_motel_and_ive_attended_my/)
+
+[Part 6](https://www.reddit.com/r/nosleep/comments/113vpxd/i_own_an_abandoned_motel_and_im_warning_you_not/)
+
+[Part 7](https://www.reddit.com/r/nosleep/comments/116ckdh/i_own_an_abandoned_motel_and_im_feeling_reckless/)
+
+[Part 8](https://www.reddit.com/r/nosleep/comments/11a2n35/i_own_an_abandoned_motel_and_im_telling_you_you/)
+
+[Part 9](https://www.reddit.com/r/nosleep/comments/11dnong/i_own_an_abandoned_motel_and_i_dont_think/)
+
+[Part 10](https://www.reddit.com/r/nosleep/comments/11f8wap/i_own_an_abandoned_motel_and_if_you_find_a_shrine/)
+
+[Part 11](https://www.reddit.com/r/nosleep/comments/11j454z/i_own_an_abandoned_motel_and_you_never_know_when/)

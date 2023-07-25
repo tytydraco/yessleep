@@ -1,75 +1,37 @@
-Hi, my name is Gia (F15) 
+ 
 
-My grandmother(F72) lives in a very old and pretty creepy house in New York, I had been going over to her house since I was a baby and as I grew up that house gave me the creeps. 
+PRF: 23
 
-I know that sounds normal for an old house but I promise it was more then just that.
+RSTFR: 03MO111420
 
-Anyways, I believe my first experience with paranormal stuff was when I was about 9 years old. 
+My grandma is gone.
 
-I was sleeping over at her house because I would do that a lot at that time, I was in my fathers old room (he passed away 3 months before my 9th birthday) and I woke up around 2:50am and I went to the bathroom.
+She lives in the countryside, sort of. She’s not living outside but she definitely doesn’t live in a village or town or anything that would classify as a community. She lives in an old nipa hut styled house. Unlike the town I lived in, her house was in a perpetual paradise where the only season was sun or sun with a side of rain unlike the perpetual winter that enveloped our community.. For that reason, my parents preferred to leave me with her during weekdays when they had to work overtime at the company or when they went on work trips. My parents were workaholics, or maybe they just had a love for science so large that when they got a project assigned to them, they lost track of time trying to resolve it. This led them to come home at ungodly hours and they were worried about me staying all by myself until the early morning hours so bringing me to my grandma’s became a normal routine for us.
 
-I did my business and started walking back to the room and I saw a figure lay down on the bed, Not a shadow but a figure, I full blown grown man’s body lay down on my bed. 
+The house itself was built before my mom was even born, which raises a lot of concerns regarding safety but the countless renovations that it has undergone provided me with a bit of assurance that I won’t fall through the floors. It was surrounded by acres of rice paddies, from time to time we’ll catch a glimpse of the farmers working there, that doesn’t happen often though. It was a little bit peculiar seeing as no other houses were around. To young me, it seemed as though the farmers would appear out of thin air, I’m sure that’s not the case but it’s funny looking back at it now.
 
-For a minute I thought maybe it was my grandma but why would she lay in my bed. It’s 2:54am why would she be awake. 
+The rice paddies have their own irrigation system and every morning, as soon as the sun rises, you’ll see my grandma’s house, a steampunk looking contraption appearing to float on the water-filled fields.
 
-I walked over to her room and peaked in…she was asleep in bed. Out cold completely passed out. 
+The first thing you’ll see when you walk into her house is a bulky CRT television, two antennas sticking out from the pink radio beside it. It was placed on a metal table painted white, a stack of magazines underneath it, slightly concealed by the floral patterned tablecloth my grandma drapes on it. The couch was a short distance away from it, a wooden couch with some floral designed cushions. My grandma sewed those herself, the same fabric she used to make the table cloth.
 
-I turn to look and the figure is just standing in the doorway looking at me and I had this dark feeling wash over me. I ran into my grandmas room and woke her up crying. I turn to show her what I was seeing and it was gone.
+The wooden floors shine even in dim lighting, this would partly be because my grandmother never lets us wear shoes in the house and partly because she waxes it twice a week. On the left side of the house was the “bedroom”, a set of curtains, hung on some wire, acting as the divider. The bedroom consisted of two mattresses and a huge wooden cabinet. The cabinet had white doors, painted with colourful fairies and children and what looked like a waterfall, while the rest of it was a bright turquoise. It was pushed against the farthest wall, the bottom drawers blocked by the two mattresses that lay on the floor.
 
-The figure was just gone 
+There was a small kitchen and dining area right behind the TV. The kitchen had a mini fridge inside one of the cabinets and a two burner countertop stove. There was an opening right above the sink, covered with some screen and chicken coop mesh to keep the bugs and other animals outside. The dining area had a small square-shaped table with some monoblock chairs stacked on the side, right beside it was an old aluminium screen door, the screen had a few holes in it which my grandma covered up with some duct tape.
 
-She sat me on her bed and searched the house, nothing, no one, all doors locked and her alarm system set. 
+Sometimes when it’s raining, you’ll hear the winds blowing against this door and the raindrops hitting the screen, during those times, the rain splatters onto the wooden dining table my grandma keeps near it.
 
-Absolutely nothing 
+My grandma had an outhouse. A small square that houses a toilet (which didn’t have a flush), a faucet and the red pail and tumbler we used to take showers. It wasn’t a big space, the room was only 2 by 2 metres large. The bathroom lay flat on the ground, unlike the hut which was hoisted around half a metre off the ground. This meant that it wasn’t ideal to use the bathroom in the early morning or when it has been raining non stop because the bathroom floor is almost always going to be flooded with water. The outhouse is located at the back of her house. To reach it, you had to walk through the aluminium screen doors and onto this descending bridge. It was made of bamboo shoots, laid side by side and tied together, there was a railing made of the same bamboo, placed about one and a half metres off the ground, some old black trawls lining the area beneath it, a safety net of sorts.
 
-We went back to bed and I stayed in her room, I could not sleep, I knew there was something there…
+When I was younger, I had always been afraid of that area. I was afraid of everything outside my grandma’s house to be honest. I’ve always had trouble sleeping even as a child, and whenever I would have my bouts with insomnia, I would often turn on the TV and clear my mind. Listening to the advertisements roll, sort of like a lullaby, watching the flickering of the different colours bouncing throughout the room, resembling a dysfunctional rainbow. Oftentimes, this would be enough to make me sleep.
 
-I saw it…
-I felt it…
-I swear it was there
-There’s no way it wasn’t
+My grandma had a collection of gems embedded onto the concrete of her wall. Decoration, my mom says. My grandma would look at me and wink whenever mom said this. Grandma says it’s for protection. I say it served both purposes. When the sun’s rays seep through the screen meshes, the kaleidoscope on her wall lights up the whole house. It was pretty, pretty enough that I would be content to look at it in awe for a few minutes. At night, when the fields outside my grandma’s house would fall into silence, it acted as protection; made me feel strangely safe even with the lack of locks on my grandma’s doors.
 
-A few months later I was sleeping over again. 
-2:50am
-I’m woken up 
+My grandma’s house had a basement. The door to the basement was found in the backside of her house, hidden amongst the tall stalks of rice; a few centimetres right of the bridge to her outhouse. The door was made of metal, corroded and rusted from the constant flooding; no handles to open it. For as long as I’ve known, this door has never been opened; can’t be even when we tried. It was stuck to its frame, the effect of the rust, flooding and being unopened for decades.
 
-The corner of my room was blocked by something 
+At some point, my parents stopped bringing me to my grandma. I asked them about it and was told that since I started attending classes, they didn’t have to worry about me being home alone all day anymore and I was too busy to question it. Recently, I got my access permit and I was able to drive by my grandma’s house. I thought I got lost despite following the map because unlike my memory, the rice paddies were dry, almost like a drought had taken place. The stilts on my grandma’s house were exposed by the lack of water flooding the paddies and also the wilted stalks which had sagged to the ground. There were some farmers chopping at the stalks, claering the field it seems.
 
-That damn man standing in the corner
+The front door was open and I rushed inside to find her house exactly as it had been all those years ago with dust covering every surface. Grandma's gems weren’t on her walls anymore. This was odd, I remembered how much she treasured those, even putting plastic wrap over top of it to make sure they never fell off. As I went outside to the bamboo bridge, I noticed a strange smell coming from the basement door. I was planning to check it out but I noticed some of the farmers had stopped chopping down the stalks and were directly looking at me. I stood still for a moment, feeling their unblinking stares and fear started to seep into me. I rushed into the house and out to my vehicle, turning my car around to drive away, one thought was all that was left in my mind. My grandma’s house was lonely.
 
-It moved closer and reached out to touch me, cold…pure cold on my forehead
-I didn’t feel a hand 
-All I felt was cold
+LOG: END
 
-I closed my eyes
-3 Minutes passed 
-The feeling went away
-
-I called my mom 
-Made her pick me up
-I never went back to that house again
-That feeling was not my father 
-It was NOT something good 
-It was evil 
-
-Pure fucking evil
-
-I’m almost 16 now and I hate being in that house, I always feel that dark feeling like somethings watching me
-
-Like something bad is going to happen
-
-It feels weird and I don’t know how to explain it
-
-I live in California now and my grandma always asks when I’m going to visit. I tell her soon but to be quite honest with you all…I’m not going back.
-
-Don’t get me wrong, I’m not an asshole for not wanting to visit her…I love her very much. But that house…I can’t deal with that house
-
-Place gives me the creeps.
-
-I have vouched to never go back
-
-When I say never 
-
-I promise you all 
-
-I mean fucking never
+23 MTR START

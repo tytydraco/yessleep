@@ -1,0 +1,29 @@
+ 
+
+It was a long night. They always are. No matter how much coffee I drink, or candy bars I down, the overwhelming sense of fatigue would always take me. That's just how it is. Reports weren’t gonna write themselves, and I had been the crutch of the police department for years. I had heard of many cases, murder, mutilation, rape, torture, and the like. But this. This was different. We had received 3 counts of supposed murder, in all of which, the victim had been unrecognizable after the murders. The police department only found out their identities because of their ID’s in their wallets. I reached for my cup of coffee and lifted it to my lips. I lifted it higher and higher expecting a hot, energizing sensation to wash over me. As I sipped, however, nothing came out.
+
+“Damn it.” I said “gotta make another trip out…” I reached for my keys and walked to my car. The rain hit my jacket, creating light splashes. Felt nice. I always liked the rain. It had a sense of comfort to it.The old, dirt stained steel of my car held a sense of comforting familiarity. I got in, and put my keys into the ignition, before twisting clockwise. The engine hummed to life, and the lights shone so brightly they made me do a double take. I put it into reverse, backed out of the driveway, and made a right turn. I had already made 5 trips that night, and was apprehensive about having to make another, but if I didn't gulp down another cup of coffee, I would have become a walking zombie. I turned on my radio. There was a static sound at first, before I turned the dial, changing the channel to a local news channel.
+
+“This just in, Carson Melbarry has been reported missing. He was last seen leaving his high school. If you have any information on the case, please inform your local police sta-” the radio cut off. Nothing but static followed. It was almost deafening. My mind stewed, thinking about what I had just heard. 
+
+“Another person?” I thought out loud, half dreading the fact that yet another person could have fallen victim. I pulled into the parking lot of my local Dunkin Donuts. As I stepped out of my car, however, I heard something strange. A very faint noise, a hissing. I went forward and went behind the store, and saw a tiny black kitten, with piercing yellow eyes Staring, deep into the woods behind the shop. It was letting out a wretched hissing noise, the most visceral I’ve ever heard.  I followed the hissing, mostly out of curiosity. I was curious about what was so bad that a cat would stay out in the rain just to oppress it. 
+
+&#x200B;
+
+The rain fell harder, and I felt very apprehensive about the whole thing. What could possibly be there? I went through a crack in the fence, painted purple, but the color was fading. Little patches of wood were showing. I felt uneasy, but still, I walked into the woods. The tree’s provided very little shelter from the storm. My boot crushed the mounds of mud under me as I stepped forward, not knowing what to expect. I kept moving forwards. Eventually, I heard a strange sound. The sound of crunching, tearing, and ripping. I continued on, expecting to find a wolf or predator of some sort devouring a fresh kill…. And in a way…. I ***did.*** 
+
+&#x200B;
+
+I saw what appeared to be a man, on all fours, over what appeared to be a corpse…. The thing wasn’t human, It couldn’t have been, it looked tannish, with a pale glow surrounding it. It had a very pronounced spinal cord. The thing was practically skin and bones. Spots of flesh were gone from the creature's body, It had pieces of cloth, slightly resembling clothes strewn about its body. It stood over a body, tearing it open, and discarding it innards. The parts of the body were strewn about the woods, covering tree’s, grass, and everything surrounding the creature with blood and viscera. 
+
+&#x200B;
+
+I looked at the face of the body…. They were young, too young. Their face was covered in fear. Their left eye was torn out, and the back of his head was hanging on by a thread. The worst part of it all…. Was the laugh…. A low maniacal laugh
+
+“Heehehehehee” The laugh dropped and rose as the beast tore the victim apart, launching the organs all over the place. Then it happened…. In an attempt to step away, I snapped a twig under my boot. The thing stopped laughing, and became utterly still. The silence was deafening. I could feel my hope and courage draining by the millisecond and yet…. I couldn’t move….. Then it turned…. It looked at me, Its face was stretched out, tearing apart, like a bad mask that has been worn every day for years. It looked rubbery and fake. Across it’s face was sprawled a face of pure manic joy. It looked so happy, purely elated. 
+
+&#x200B;
+
+I felt my face hard stuck in that of horror. The monster saw me…. And it laughed. It proceeded to turn, still on all fours to face me. Its head twisted horribly, such that it was upside down, and Its jaw contorted such that the jaws were horizontal to each other. I turned to run, and It leapt after me. I ran the fastest I ever have, the monster tearing away at the tree’s as he leapt from tree to tree. I had no regard for my legs, or my breath, I just ran. Finally, I saw it. The hill where the Dunkin Donuts was. I ran forward, the rain pounding on my jacket as my feet crashed into the floor repeatedly, and finally, I reached my car. It was only when I was inside did I look to see my attacker. Still upside down, jaw contorted, he stared at me, piercing pale eyes, from the top of a large tree. His expression was that of disappointment. I immediately drove back to the station and threw myself inside. 
+
+“What the fuck did I just see…. What the fuck did I just see….” My colleagues helped me settle down, and got my story from me. we tried to find the creature, but none of us saw it again. I don't go to that Dunkin Donuts anymore…. And I **NEVER** go into those woods, especially not when it rains….

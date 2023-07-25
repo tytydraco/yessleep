@@ -1,0 +1,22 @@
+My coworkers started acting weird; they’re not their usual selves.
+I just started working at this tech company last month after graduation, and it’s been amazing. I’ve started becoming closer with my coworkers, especially Ava and Dean. I’d like to say we’re all pretty good friends. 
+
+Two weeks ago, Ava came to my office and asked if I talked to our boss at all today as he was acting off, and I just told her I hadn’t. I didn’t even think about that conversation until last week, when I came in and Ava came into my office. Usually, she’s a very cheerful person and very bright and happy. When she came in today, she greeted me in a very monotone voice with no emotion behind it. I asked if she was okay, and she just tilted her head slightly, said "of course," and left. I thought it was weird, so I went to talk to Dean and ask him if he noticed anything weird about Ava today, except he was acting the same way, with a blank stare and no emotion in his voice. It was creeping me out, so I just went back to my desk and started working. 
+
+Now my office, along with everyone else's, has a comfortable amount of room and a bunch of glass windows surrounding it, so I can just sit at my desk and see anyone walking around outside. As I was working, I started to see Ava pacing back and forth at my office door, so I stood up and opened the door to ask her if she needed anything, and she just stared at me with her head slightly tilted and a smile on her face. I know, just based on how I described it, that it doesn’t sound creepy, but you weren’t there; it was one of the creepiest fucking things I’ve ever seen. Ava just walks away after that. 
+
+After my shift is done, I start to walk to the elevator so I can go to my car and leave this place, as it was one of the weirdest fucking days I’ve ever had. As I go in the elevator and the doors start closing, Dean starts running towards it. It seems harmless enough, right? Wrong. 
+
+Have you ever seen one of those horror movies where the bad guy or evil person starts running towards the main character at a sprint and the main character has a weird look on their face? They eventually come to their senses and realise they need to start moving their asses so they can escape what looks like death. Well, that’s what Dean looked like while he was running towards me, and I had an awful feeling, so I came to my senses and quickly started pressing the button so I could close the elevator and escape certain death. 
+
+Lucky for us, it closes in time, and it sounds like Dean runs into the elevator doors at full speed. At this point, I’m creeped out, so I say fuck it and call in sick the next day and the next day and the next day until the weekend, when I’m off. 
+
+I eventually called my mom and told her about everything. She thought I was being dramatic and maybe they were playing a prank, and honestly, I thought maybe she was right. 
+
+So on Saturday, I text Ava first and tell her I’m coming over. She doesn't reply, so I just go over anyway. I knock on her door, no answer, I ring the doorbell, nothing, so I figure she’s out or busy, so I next text Dean, and same thing, no reply, so I go over, and same thing, no answer. At this point, I thought that something must be up, so I just waited until Sunday, but same thing, nothing. 
+
+When I go back to work on Monday, I see Dean and Ava in Ava’s office together just staring at each other. I’m about to walk in and ask why they both ignored me during the weekend until I see their mouths open so wide it looks like their jaws should be broken and their eyes so wide they eventually start bleeding. 
+
+After a few minutes, they close their mouths and their eyes go back to normal, and they just stare at me and start running towards me, so I use all my energy to get the fuck out of there, and I go and run into my office, shutting the blinds and locking the doors. 
+
+They’ve been banging against them all day, and I just saw the news that a body has been found, and they identified it as Ava’s body. I don’t know what the fuck is happening, but whoever that is isn’t Ava, and if I’m right, that isn’t Dean either. I don’t know what to do; I can’t stay in my office forever, but I’m not ready to die yet.

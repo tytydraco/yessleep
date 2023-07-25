@@ -98,7 +98,7 @@ If it doesn’t work, I’ll finish telling about my experience.
 
 
 
-[It didn't work](https://redd.it/10smgp4)
+EDIT: [It didn't work](https://redd.it/10znozf)
 
 ----------------
 

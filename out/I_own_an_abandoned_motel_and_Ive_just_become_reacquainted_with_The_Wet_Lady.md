@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/10ugxwp/i_own_an_abandoned_motel_and_no_we_are_not_open/)
+[\[Part 1\]](https://www.reddit.com/r/nosleep/comments/10ugxwp/i_own_an_abandoned_motel_and_no_we_are_not_open/)
 
 “What if you did the interiors in a light sage green?”
 
@@ -110,7 +110,7 @@ She shrugged again.
 
 She sighed and looked down at her line into the water.
 
-“First of all, the offering was the…let’s just call it the ‘leftovers’ from last night’s events. It’s always some macabre display.  Just collect it, toss it in the fire and try to not think about it again.  As for ‘taxes,’ it’s how your grandfather explained it to me, many, many years ago. The way he saw it, it was something *owed*.  A never-ending obligation. So he called it our taxes.”
+“First of all, the offering was the…let’s just call it the ‘leftovers’ from last night’s events. It’s always some macabre display. Just collect it, throw it in the fire and try to not think about it again. As for ‘taxes,’ it’s how your grandfather explained it to me, many, many years ago. The way he saw it, it was something *owed*.  A never-ending obligation. So he called it our taxes.”
 
 “Taxes to whom? Or what?”
 
@@ -118,7 +118,7 @@ She shook her head.
 
 “That I do not know, doll. I’ve been around here for over fifty years and all I know is that you follow what that book says and you don’t get trouble. I’m not going to lie and say it gets easier with time.”
 
-“Then why not tell me the day I got here?  Why bother humoring me with my idiotic renovation plans? There’s no way I can open this place as a business!”
+“Then why not tell me the day I got here? Why bother humoring me with my idiotic renovation plans? There’s no way I can open this place as a business!”
 
 “Your grandfather did. Avoid the cursed cottages. Close the place down on…tax days.”
 
@@ -162,7 +162,7 @@ She swore as she pulled in a perch.
 
 “Who is Jake?”
 
-“My mother in Rochester was sick. In fact, she was on her deathbed. I was cocky; I thought it would be easy to train someone to do the cottage payments. I hired a college kid who needed some extra cash before the next semester began.  Jake.  Seemed bright to me.  Eager.  I arranged everything.  All he needed to do was put the payment in the right spot on the right days and not let anyone stay at the cottages requiring … tasks. I left him a calendar with everything circled! And still he fucked it up. Now there were many ways he fucked up — I’m not going to get into all of that here. But now you’re telling me he fucked up even more than I thought when he let you and your mother stay in Cottage 9.”
+“My mother in Rochester was sick. In fact, she was on her deathbed. I was cocky; I thought it would be easy to train someone to do the cottage payments. I hired a college kid who needed some extra cash before the next semester began. Jake. Seemed bright to me. Eager. I arranged everything. All he needed to do was put the payment in the right spot on the right days and not let anyone stay at the cottages requiring … tasks. I left him a calendar with everything circled! And still he fucked it up. Now there were many ways he fucked up--I’m not going to get into all of that here. But now you’re telling me he fucked up even more than I thought when he let you and your mother stay in Cottage 9.”
 
 “Who is she? The Wet Lady?”
 
@@ -212,4 +212,22 @@ I tried to sit up, my head throbbing uncontrollably. Martina stood over me, visi
 
 I went back to my cottage and poured myself some scotch with a trembling hand, but even that sweet peaty burn wasn’t doing much to calm my nerves. So I typed everything out again, forcing myself to put into words something that has haunted me since childhood. Crazy how well that seems to work. Maybe I’ll actually get some sleep now.
 
-[Part 1](https://www.reddit.com/r/nosleep/comments/10ugxwp/i_own_an_abandoned_motel_and_no_we_are_not_open/)
+[x](https://www.reddit.com/r/Wine_Dark_Sea_1239)
+
+[\[Part 3\]](https://www.reddit.com/r/nosleep/comments/10x7n4n/i_own_an_abandoned_motel_and_ive_severely/?sort=new)
+
+[\[Part 4\]](https://www.reddit.com/r/nosleep/comments/10yy5yi/i_own_an_abandoned_motel_and_im_not_sure_ill_be/)
+
+[\[Part 5\]](https://www.reddit.com/r/nosleep/comments/11257sy/i_own_an_abandoned_motel_and_ive_attended_my/)
+
+[\[Part 6\]](https://www.reddit.com/r/nosleep/comments/113vpxd/i_own_an_abandoned_motel_and_im_warning_you_not/)
+
+[\[Part 7\]](https://www.reddit.com/r/nosleep/comments/116ckdh/i_own_an_abandoned_motel_and_im_feeling_reckless/)
+
+[\[Part 8\]](https://www.reddit.com/r/nosleep/comments/11a2n35/i_own_an_abandoned_motel_and_im_telling_you_you/)
+
+[\[Part 9\]](https://www.reddit.com/r/nosleep/comments/11dnong/i_own_an_abandoned_motel_and_i_dont_think/)
+
+[\[Part 10\]](https://www.reddit.com/r/nosleep/comments/11f8wap/i_own_an_abandoned_motel_and_if_you_find_a_shrine/)
+
+[\[Part 11\]](https://www.reddit.com/r/nosleep/comments/11j454z/i_own_an_abandoned_motel_and_you_never_know_when/)

@@ -1,0 +1,44 @@
+It  had taken the team roughly 48 hours to get on site. In the mean time more blood and gore had risen to the surface, origin unknown. Working theory was some kind of underwater calamity that had hit a pod of whales at an inopportune time. Yet some of the more intact pieces of flesh didn’t appear to be whale meat in Ashlee's opinion. The last eruption had also spewed some skeleton remnants to the surface. These did seem to fit with the whale theory, so the team would continue to work under that assumption. Still this amount of gore was unsettling to say the least.
+
+  
+Ashlee Kishinami had just earned her doctorate in marine biology and was considered something of a prodigy. This...would be her strangest assignment yet- when she received a call earlier that week this had NOT been what she had been expecting.
+
+As she approached a group of first responders she was hit by the smell of decaying flesh mixed with vomit from those with weaker stomachs. Not that she could blame them. She had arrived a little bit hungry from skipping breakfast, but her gut had promptly stopped complaining. She put down the suitcase full of scientific instruments on one of the cheap plastic tables that had been provided in a hurry. Couldn’t really expect a well equipped research facility, so this would do. Behind Ashlee stretched a scene straight out of a slasher movie. The waves staining the beach crimson as it kept carrying the spill of gore onto it as if it was purposefully trying to cleanse itself.   
+  
+“Has your team collected all historical reports on similar occurrences as requested?” Asked Ashlee while putting on a pair of rubber gloves.  
+  
+“They tried, but beyond a few folklore references they couldn’t find anything,” replied the man closest to her. The man was dressed in full white overalls. Or they had once been that way, now he looked like he just performed an emergency surgery with a blunt machete.   
+  
+“Has anyone been in the water yet?” Ashley inquired.  
+  
+“Couldn’t find anyone crazy enough to do so, ma'am," replied the man. “Not even for extra pay, which usually gets the nasty jobs done.”  
+  
+Ashlee shrugged and opened the suitcase. She took a test tube out of it and a pair of tweezers and stuck them in her front pocket. “Wish me luck,” she said as she walked towards the shoreline.  
+  
+As soon as Ashlee set foot in the lukewarm bloody water she felt a shiver going trough her spine. Like her body was protesting being here. She ignored the feeling and set out deeper into the churning sea of blood and rotting flesh. She took her tweezers and tried to separate some of the tissue, but found that as soon as she had cut some of it free it would try and reconnect with the rest of the blubber. It behaved more like a living mass than dead flesh. After somewhat of struggle she managed to get a sample into the test tube and closed it off. Putting the tweezers and tube back into her pocket she felt something tugging at her bio suit. As she looked down she saw that some of the flesh had attached itself to her. Trying to pull her in, oblivious to the fact that it was barely able to put any force behind it. As if acting on instinct. Another shiver went through Ashlee's spine. There was something strange going on that even she – with all her knowledge and experience – couldn’t begin to explain. She pulled herself free and waded back to shore.   
+  
+As she had reached the beach she felt a tremble through the sand. Like something was bubbling up towards the surface. Just when she had turned around a geyser of gore opened up roughly where she had been standing a minute ago. A giant fountain spewing pieces of flesh and blood everywhere. Some of it reached the coast and hit some of the clean up crew who immediately tried to wipe if off or emptied their stomachs on the sand. The flesh seemed to stick to them like glue and you could see the panic growing as they kept failing to separate themselves from the stuff. As one of them fought against it he stumbled into the water and fell over. As soon as his body hit the sea flesh that was drifting close by jumped on him. Engulfing him in a mass of gore consuming the screaming man in front of the astonished crowd that had gathered out of morbid curiosity. After half a minute or so the screaming stopped and the surface returned to normal. As if nothing had happened. The globs of viscous flesh and blood had just dissolved a human being and if you hadn’t seen it happening you would never be able to tell as no trace of the spectacle was left behind. The other men that had been hit by the flesh had stopped struggling and ran up on the beach. Far away from the water and no one could blame them.   
+  
+Later that evening Ashlee was examining the sample she had collected back in her tent. When she had taken it out of her pocket she saw that the flesh had clung itself to the side of the glass. Oriented towards the shoreline as if longing to rejoin the rest of the fleshy substance. As she rotated the tube of flesh it kept reorienting itself, proving the hypothesis. She wasn’t oblivious to the fact that just before that poor man had been taken, she had stood halfway in that mass herself. That could’ve been her. She suppressed the primal fear that rose in response to that notion. She was still here and she needed to find out what this stuff was before it would claim more victims. She put the test tube of flesh into a rack on her desk. First it was time to get some sleep. Today had been one of the most exhausting days in her life and she would need all her wit tomorrow.   
+  
+That night Ashlee's sleep was plagued by nightmares. Some about the horror she had witnessed, but with herself fighting against the consuming mass. Others had been weirder even. Dreams about weird shapeless entities that roamed the earth, consuming everything they came across. At times she found herself swimming in an endless ocean of blood.  
+  
+With a shock she woke up. Disoriented she could feel something viscous and wet clinging to her legs. Above her floated the moon, which cast just enough light for her to see her surroundings. She was standing in the middle of the water. In the middle of the fleshy substance. In her left hand she held the test tube containing the sample that now clung to the bottom of the glass. Closest to the rest of the stuff. Instinctively she opened the tube and held it upside down. The substance crawled slowly towards the opening. Tentatively reaching outside like a tentacle. It was met by a larger tentacle made of flesh that rose up from the water. As soon as they found each other the test tube sample was absorbed instantly and the fleshy limb dropped back into the sea. Ashlee felt an overwhelming feeling of tiredness take over and even though she fought it, she fell backwards into the salty bloody water.   
+
+She began thrashing as the blood and flesh began to poor down her throat, making her gag and choke as the darkness crept into her vision.
+  
+“Doctor, are you awake?!?!” yelled a voice outside of Ashlee's tent.   
+  
+Ashlee opened her eyes and to her surprise found herself back in her bed. Unsure whether last night was just part of her nightmares or not. She shot up and looked over at her desk in panic. There stood the test tube in the rack where she had put it. It was however empty. On a chair next to her bed lay her clothes, bloody and still wet. It hadn’t been a dream.  
+  
+“Y-yes. I’m awake now,” she yelled back.  
+  
+As she put on her damp clothes the man she recognized from yesterday stepped inside her tent. His eyes wide as if he had just seen something unreal. Which in light of yesterdays happenings seemed a both weird and alarming to her.   
+  
+“What is it, spill,” Ashlee demanded.  
+  
+“It’s gone, it’s all gone,” replied the man.  
+  
+Ashlee pushed the man to the side and rushed out of the tent. She was met by blinding sunlight and as she tried to block the rays with her hand her vision adjusted, abnormally quickly even. Looking over the surface of the sea in front of her, all she saw was the turquoise water dotted with white foam. Every speck of scarlet blood and rotting meat disappeared as if it had never been there, and inside she felt her stomach roil and churn, as if....no, no, no, just...it couldn't be true, it COULDNT be right? 
+
+Ashlee rushed to the water and as she eyed her reflection in the water her stomach dropped. Nothing seemed out of place...everything SEEMED normal, but she could feel the difference....now she had a new job, to figure out just WHAT she now was....and if she should report it, if she even WANTED to do so- No, she wouldn't, it was to risky...for now, she would bide her time, and wait. For what? Well...she didn't know that part yet.

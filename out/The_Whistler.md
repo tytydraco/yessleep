@@ -1,79 +1,84 @@
-I'm a folklorist, and recently I was in the Los llanos region of Columbia searching for El Silbón, The Whistler who takes the bones of drunkards.
+ Me and my brother have a tradition every year where we go camping out in our 10-acre backyard. Each time, we set up camp different places along our property, but this year, we chose the woods in the very back of the acreage. We do this tradition every year because our grandfather did it with us when we were kids, he used to hike out to the exact same spot every time, near the old barn, and set up camp there. We would spend about 2-3 days there, and when we had to leave, Grandpa drove us to the ice cream shop before we headed home, as a treat. God, what I wouldn’t do to get him back…  
 
-I was given the opportunity to stay with a small family in a rural village where there had been a number of sightings of this spirit. If someone had told me this story before I experienced what I had, I would not believe them. I figured that a group like this one would be willing to hear me out.
+When Ryan and I got to the woods, we were about to collapse from exhaustion. We dropped the ridiculously heavy bags we were carrying, and both looked at each other.  
 
-It was a pleasant spring evening, about seven at night. I was sitting with two members of a Colombian family. An elderly woman who looked to be in her sixties, and her son who looked about my age (around 30). Their home was decorated with an eclectic collection of spiritual items. Candles of various colors, statues of the Madonna, and the smell of sage permeated the air of their small home. Chickens ran freely around the property to be sacrificed and eaten. If you know your history at all then you'll know a lot of this is due to colonialism. The African diaspora was forced to hide their spiritual beliefs behind catholic imagery. Over time practices merge and you get practices like Santeria.
+“Well, let’s get camp set up, then we can have a drink.”  
 
-Laura, wearing a white dress and a beautiful many-colored beaded necklace, sat across from me and told me the dangers of what I was researching.
+“Sounds like a plan” I said  
 
-"You should not go out into the night, I know that El Silbón will be there, and he might put you in his bag" she warned.
+We began to unpack what we brought: a tent for each of us, some cooking equipment, a lighter and some firewood, food to last us about two or three days, a deck of playing cards, and some whisky. As we were unpacking, I noticed how quiet the forest had become since we got there. Usually, it was filled with birds chirping and squirrels chattering, but now it was dead silent. But I seemed to be the only one to notice because I looked over at Ryan, and he was still setting things up. I decided it was just me imagining things, so I went back to helping Ryan set up.  
 
-"I'm not worried about that, but I would like to see this creature if he does exist." I hoped my skepticism didn't show too much, I didn't want to be disrespectful, but I know that I'm not a very good actor.
+In the late evening, we were all settled in. We had gotten a roaring fire going and everything seemed blissful.  
 
-"I can take her out there, she'll be safe with me" Juan Chimed in, taking a break from the beer he was nursing, he had the confidence of someone who was a few drinks in.
+“Hey, want to crack open that Jim Bean?” My brother asked  
 
-"You especially can not go, you know he loves to take men that are drunk" Laura scolded despite her firmness I could hear the fear in her voice. She believed firmly that her boy was in danger.
+“Give me a good reason not to”  
 
-Truthfully, at the moment I thought to myself that if this creature really does exist, and it really does prey on drunk men then I would want very much for Juan to come with me. At the very least even if The Whistler didn't make an appearance I would know that we did everything we could.
+He got out two camping mugs and filled them a quarter full with the potent alcohol. We both sat back and watched the fire. It was mesmerizing with its dancing flames. Ryan and I stared at the fire occasionally sipping at our liquor. Not a single word was exchanged for several minutes, until Ryan looked up from the fire and spoke  
 
-Juan laughed and pulled a dagger out of his pocket that reflected the fiery light of an adjacent candle. "El Silbón is no match for my blade, I will protect myself, and I will protect Andrea, who will be by my side."
+“Remember when Grandpa used to bring us here, he would always tell us stories of when he was in the war?”  
 
-"I know that I can not stop either one of you, you are strong-willed. But I want to give you something to protect yourself Andrea" Laura walked over to a wooden drawer, and picked out a wooden box, and handed it over to me. I thanked her and put the box in my bag along with my camera, and a few bottles of water.
+I laughed “And how you always got super freaked out that a Nazi bombing squad would fly over our house and kill everyone?”  
 
-We walked out into the night, Juan holding a beer, and the sound of animals in the wilderness surrounded us. A chirp, a scuttle, the howling of a dog in the distance. The stars above us lit the landscape, if we never saw a monster, this was worth the plane ticket.
+Ryan laughed back “Yeah that was stupid”  
 
-"Do you hear that? I think it's a whistle" Juan feigned worry.
+And just like that, we went back to staring at the fire.    
+“Hey” Ryan said, “Want some dinner?”  
 
-"I hear it's worse when the whistling stops" I joked, and Juan pushed on the arm, laughing and throwing me off balance.
+“Does a bear shit in the woods?” I shot back  
 
-I pulled my camera out of my bag to get a picture of the land, and stars. I snapped a few pictures, of the stars, and fields that lay before me. A mountain somewhere off in the distance peeking through an overhang of clouds in the cool air. I put my camera back into my bag and looked behind me, the house was a good distance behind us, we had walked at least a couple of miles by now. I took a drink from a bottle of water and motioned it to Juan for him to drink. Juan, however, was a few feet away from me pissing into the grass. If this El Silbón didn't kill Juan then I just might.
+“Fair enough” he replied 
 
-Juan zipped his jeans, and we both listened to the howling wind. The deep moaning that flew through the mountains and fields. I remember being a kid in the winters of Utah when my mother told me that were the cries of pilgrims that died on the trail.
+Ryan stood up from his camping chair and walked over to the cooler where he had packed a bunch of food for our trip. “ 
 
-Then Juan turned to me
+“What do you want?” He shouted over his shoulder  
 
-"Andrea do you hear that?"
+“What did you bring?”  
 
-" Fuck off Juan"
+“Hotdogs, burgers, stuff like that”  
 
-"No, really, listen" Juan sounded serious this time, even afraid.
+“Hit me with a couple of hotdogs” I said  
 
-I listened and he was right, there was a whistling. Soon enough it was unmistakable, a loud whistle, a tone that went up and back down again. I could see that Juan was straightening himself up, he walked in a straight line like he was trying to pass a field sobriety test.
+Ryan came over and tossed the package over to me. I opened the pack and stuck two on a hotdog stick and hovered them over the fire. There is something about the fire that’s hypnotizing. I sat, the hotdog stick in hand hovering over the flames and staring at the fire. When I got out of my trance like state, I looked back at the hotdogs and swore. They were burnt to a crisp. I had left them too long  
 
-"He goes after drunken men" Juan's voice shook, he threw the beer as far from himself as he could. We both started to run toward the house, and the whistling got quieter, but as we ran, the house always seemed fixed at the same distance away from us. We were running again, and again, through the same patch of field. The stars that once beautifully lit our way now loomed over us, voyeurs in the cold sky.
+“Shit” I remarked  
 
-He was there in front of us, towering. A large bag was hoisted over his shoulder that dragged to the ground. He was easily twice as tall as Juan who stood greater than six feet himself. He had a tattered hat that shadowed his eyes, and a mouth that was gaunt and frowned in a perpetual sadness like chewing on the body of Brutus.
+“What’s wrong?” Ryan asked  
 
-He picked up Juan by the hair as he screamed. El Silbón said nothing as he slammed Juan's face repeatedly onto the grass until Juan stopped screaming. But I could tell he was still alive, his breaths jagged, his eyes pleading, and blood and tears caked his face. The smell of iron and alcohol carried through the still howling wind.
+“I burnt the goddamn hotdogs”  
 
-Then El Silbón with Juan dangling from his hand revealed his other hand which was full of long sharp claws. He tore open Juan's skin, tossing away meat, and organs like a child hollowing out a pumpkin at Halloween. I knew what he wanted, and I stood there transfixed. I pulled my camera out of my bag to take a picture, this had to be worth it. I still wish I could have saved those pictures.
+“It’s fine” he said “There’s two more for you there, ill just eat something else”  
 
-El Silbón took his bag, and laid it on the ground, he tossed Juan's bones into them. His skeleton was holding the dagger as it was tossed in.
+He then pulled some chips out of the cooler, opened them, then sat back down  
 
-The creature stood there staring at me with his bag on his shoulder once again. Then the bag started to rustle, and I could hear tearing, El Silbón dropped down to his knees and crushed the camera that I had left on the ground. Shit. Bones fell clanging on each other from the bag to the ground.
+“I wasn’t really that hungry anyway” he said  
 
-They started to move and form together, a tower of skeletons, femurs kicking, ulnas wrists looking for phalanxes that clawed at nothing. A great tower was built, that overtook the height of El Silbón. All of the souls that had been taken were together now, and they wanted revenge. A great arm wrapped around El Silbón's neck and squeezed so tightly that his head popped off, his hat parachuting down to the ground. Before this horrid skeletal menagerie crushed his head, I could see his eyes. They weren't hollow, but a hazel, with deep sadness to them. The skulls chattering, and the wind laughing through their foramina.
+After dinner, we had about a handle of whisky each, so we were well and proper drunk. At about 1AM, we decided to hit the hay. So, we crawled into our respective tents and climbed in our sleeping bag. I was so drunk; I fell asleep before my head touched the pillow.  
 
-I tried running toward the house again, and the creature hobbled after me, waving back and forth like it could barely stand. It was drunk, a giant boney abomination made of the bones of drunkards. I could hear its slurring voice
+**2 hours later**  
 
-"Come back here bitch, let me get some of that" the teeth chattered, a thousand drunken voices whooping and hollering without lungs to scream.
+I jerked awake; I didn’t know why. Something had been loud enough (or close enough) to wake me from my drunken haze. I Lay there for a couple of minutes, wondering what could have woken me up.  
 
-"Fuck you, you're a fucking slut. Come here" I ran, and it hobbled.
+Until I heard it.  
 
-"Getting tired now, lie down and I'll give a big boney kiss" the bones shook and chattered.
+One, single, monotone, long whistle. 
 
-I was getting tired, I had my knees in my hands and I was panting. The horrible creature was not far behind me, whispering unspeakable things.
+It sounded as if a record player had gotten a scratch and was repeating the same note over, and over, and over again. At first, I thought it was Ryan messing with me, so I opened the tent flap, the zipper seemingly louder than I remembered it, and there was Ryan, squatted in front of his tent, seemingly looking right at me. He had a look of pure terror I haven’t seen since he came back from Iraq. His mouth was agape, more so than a normal human should, I thought. What got me the most were his eyes. They were hollow and wide, almost as if they were going to pop out of his head. By the dying light of the fire, I could see his pupils were pinpricks and his skin gaunt. I realized then that he wasn’t staring at me but staring **behind** me. All while that same damned whistling noise echoed through the forest. It occurred to me that whoever was making that whistling noise did not stop for a breath, like anyone else would have. No, it was just one very long one note whistle.  
 
-Then I remembered the box that Laura had given me. I pulled out of my bag and opened it to reveal what I hoped would protect me. It wasn't a talisman or bottle of potion, it was a pistol, and it was loaded.
+I turned my head to look at what Ryan was stricken with fear at. What I saw, I can never *ever* forget.  
 
-I pointed at the monstrosity and shot at it, it hissed as bones snapped, and fell to the ground. I shot again, and more bones fell, it was working. I couldn't believe it was working. Soon, there was a mismatch of skeletons lying on the field. I saw the bottom half of a skull that moved and whispered.
+There was a figure, thin and fragile directly behind my tent, body pushing up against the fabric of the back of the tent. The figure finally took a breath, and that eerily familiar sound wafted through the air once again. I looked back at Ryan and said one word: 
 
-"Andrea, it's me Juan, you have to help me."
+“Run”  
 
-"Oh Juan" I said, and walked over to his skull. I picked up his head, and held it in front of me. 
+We both started to sprint back to our house, which was a good two miles away. While we made our escape, I looked back and saw the figure, not walk, but sort of slide towards us. I think I screamed; I can’t remember. Since we were wearing no shoes, it was painful to run through the forest and into the field towards our house. All while that **fucking whistling** kept on going. The figure was gaining on us quick, and a couple seconds later I heard Ryan’s bloodcurdling scream.  
 
-"Give me a smooch, baby" it cackled. 
+“RYAN!!” I shouted  
 
-I threw the jaw to the ground and smashed it with my boot.  He was influenced by the other drunk skeletons. Men are all the same. 
+What I saw almost made me throw up. The figure pinned Ryan up against a tree and used its long fingers to stab him right in the heart, blood draining from his body. I stopped for a brief second and stared, shocked. He was silhouetted in the moonlight. It was grimly poetic in a sense. The creature then turned its head towards me, and I ran. I ran until I finally got to our house and burst through the door. Our elderly parents, who lived with us, were sleeping upstairs, since it was after all 3 AM. I slammed the door behind me and locked the door pushing a cabinet in front of it and slumped down, crying.  
 
-I made it back to the house, I didn't have too much trouble convincing Laura of what happened though she was filled with sorrow.  El Silbón might not be out there anymore, but there are no shortage of tormented souls that roam the Colombian wilderness.
+Ryan was gone. He was gone and there was nothing I could do.  
+
+As I was wallowing in my own self-hatred that I let him fall behind, the phone rang. I picked it up and listened. What I heard; I won’t be able to forget until I die:  
+
+*One, single, monotone, long whistle.*

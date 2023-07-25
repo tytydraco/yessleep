@@ -1,0 +1,17 @@
+I volunteered to participate in a sleep experiment that promised to cure my insomnia, but the nightmarish visions that haunted me during the study were far worse than any sleepless night. The first day at the facility seemed normal enough. I filled out paperwork, met with the friendly staff, and was given a tour of the building. It was in a dull, unremarkable office park, the kind of place where you'd never suspect anything sinister to be happening behind closed doors.
+
+My room was small and sterile, with a single bed and a chair. They hooked me up to a mess of wires, which connected to a machine that would monitor my brain activity throughout the night. As I laid in bed, waiting for sleep to come, I felt a strange sense of unease. I couldn't shake the feeling that I was being watched, even though the room was empty except for me.
+
+That first night, the nightmares came. I was trapped in a dark, twisted version of my childhood home, pursued by grotesque, shadowy figures that seemed to whisper my name. I could feel their cold breath on the back of my neck, their foul stench in my nostrils. I tried to run, but my legs felt like they were made of lead. There was no escape.
+
+I jolted awake, drenched in sweat, my heart pounding in my chest. The doctors were there, their faces lined with concern as they examined the readouts from the machines. They assured me it was just a side effect of the treatment, that it would pass. That night, I wrote about my dreams in my diary, detailing every terrible scene in the hope that it would somehow exorcise the demons from my mind.
+
+But the nightmares only grew worse. Each night, the visions became more vivid, more disturbing, and more personal. I saw my loved ones, their faces twisted and contorted, accusing me of unspeakable acts I couldn't remember. The sense of dread grew stronger, the shadows darker, and the whispers louder. The line between the nightmare and reality began to blur, and I could no longer trust my own senses.
+
+I tried to confide in the staff, but they dismissed my fears as nothing more than the product of my overactive imagination. I felt isolated, as if I was trapped in a prison of my own making, with no way out. I began to question my sanity, wondering if perhaps I was losing my grip on reality. Was this the price I had to pay for a cure?
+
+One night, after another harrowing episode of terror, I found myself in an unfamiliar part of the facility. I stumbled upon a locked door, marked with a warning sign that read: "Authorized Personnel Only." My curiosity piqued, I managed to pick the lock and slip inside. What I found there made my blood run cold.
+
+Rows of glass chambers, each containing a person hooked up to a machine, their faces twisted in agony as they slept. Their nightmares were being recorded and studied, their suffering a necessary component of the experiment. It was then that I realized the horrifying truth: I was not a patient, but a lab rat, my darkest fears and deepest secrets harvested for some twisted purpose I could never understand.
+
+With terror coursing through my veins, I made my escape, leaving the sleep experiment behind me, but the nightmarish visions continued to haunt me. The line between the waking world and the realm of nightmares had been broken, and I could no longer tell where one ended and the other began. The cure for my insomnia had come at a terrible cost, and I was left to wonder if I would ever find peace again.

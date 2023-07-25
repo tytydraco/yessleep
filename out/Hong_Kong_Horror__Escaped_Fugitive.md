@@ -1,0 +1,26 @@
+&#x200B;
+
+As the school bell rang through the corridors on a late Friday afternoon, the dread of the school week finally came to an end. Awaiting in its place, a weekend long of tutoring and trips to the learning center. On a usual Friday, I would be stopping by the cha chaan teng on my way home and enjoying a night of chinese dramas on TVB, but not today. Today was anything but usual. 
+
+Right as I was about to leave the classroom, Ms Yip, the homeroom teacher, stopped me dead in my tracks. Her eyes filled with rage and nostrils flaring, I knew my evening was ruined before she even uttered a word. 
+
+“Cheung Long Jiang! Where do you think you’re going?” she exclaimed arrogantly.  
+ “Back home, Miss. Is there a problem?”  
+ “Don’t try to act innocent. I just received a note saying that you were the one who vandalised 
+
+the prayer room. What have you got to say for yourself?”  
+ “Me? Vandalising the prayer room? You have to be kidding. Just because I socked your son in 
+
+the face for harassing me does not mean you can just falsely accuse me.” My blood was boiling by the second. 
+
+“Don’t make such preposterous claims, I have the note on my table, you can stop by my office after you’re done with detention tonight. I’ve already contacted your parents, they know you won’t be home until midnight. Maybe after this you will begin to respect the rules of the school.” A smirk appeared on her face as she left me there in pure bewilderment and exasperation. 
+
+The hours passed by slowly as the evening light gradually lengthened the shadows of the rusting tables and chairs. The sound of the engines of the school buses faded into the distance. Soon, I was abandoned by the school day, and left to be engulfed by the darkness at twilight. I sat at my table. The resentment towards Ms Yip subsided as I tried to make the best of this situation by studying for my DSE exams. The noise of cicadas drowned the room, accompanied by the sound of the light bulbs flickering above me. In a weird way, it was quite peaceful. But just as I started to enjoy myself, it began. Knocking. Three loud knocks on the classroom door. The hair on the back of my neck jolted upwards, I quickly glanced up and my heart skipped a beat as I saw, nothing. Not a single soul by the door, only the dimly lit hallway was in my sight. 
+
+It took me a while to gather my thoughts, but when I snapped back to reality, I came to the logical conclusion that the long school week had taken a toll on me and my mind was playing tricks on me. It’s not like this was the first time. I swiftly returned to my focused state. Knock. Knock. Knock. There it was again. This time I was sure I wasn’t hallucinating as each knock gradually became louder. Adrenaline pumping through my veins, I ran out into the hallway, hoping to catch whichever idiot was playing this sick joke on me. Alas, once again, there was no one, just an empty hallway with a single light flickering at the end of it. I was dumbfounded. Was I really under that much pressure from the DSE exams? Perplexed, I stared straight down the hallway for the longest time. Emptiness. Flicker. Suddenly, the silhouette of a man of a similar height to myself flashed before my eyes. As abruptly as he appeared. Flicker. He was gone. My heart pounded in my chest at the speed of a ping pong ball at the height of a match. Although my legs were shaking, sensibility told me to go back into the classroom and lock myself in. 
+
+As I was planning on what to do, I noticed just how awfully quiet everything was. The cicadas seemed to have retreated for the night, I glanced out the window out of curiosity, half expecting something was going to pop out like they do in horror movies, but nothing. Out of the blue, a surge of uneasiness washed over me, like something didn’t feel quite right. Something was missing. I stared at the window until my eyes began to hurt. I focused hard on the darkness that seemed to have eaten up the world. I couldn’t put my finger on it. The deathly silence was interrupted by the buzzing of the classroom lights, and as my focus shifted from the outside to the reflections on the window, that’s when it hit me. ‘Where was my reflection?’ Before I could even begin to think, Bang! I passed out. 
+
+As I gradually regained my consciousness, I noticed I was no longer in school. A rush of relief filled me when I heard the familiar voice of my mother comforting me. Apparently a prisoner had escaped from a nearby prison, and the police had found him near the school. I just happened to be an unlucky victim in the wrong place at the wrong time. Thanks to Ms Yip. 
+
+Reassured, I got out of bed and jumped right into the shower. As I was showering, the events of the previous night suddenly popped into my mind, the obscureness of not being able to see my reflection replaying over and over again. I quickly dismissed those thoughts and attributed them to a lack of rest. But that’s when I heard, knock, knock, knock. I slowly turned the shower off as my legs turned limp and my heart dropped. I stepped out of the shower in front of the mirror, water dripping down from my hair. I looked into the mirror and saw my own reflection smiling at me. The only thing was, I wasn’t smiling.

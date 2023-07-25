@@ -1,0 +1,14 @@
+ I feel like I lost my mind completely a month or two ago. It was around 8pm. I was just getting off work and was ready to head over to my friends house. His name is Harry and we are still good friends, but this man doesn’t believe a word I told him about this night. I got in my car and started it, plugged my phone into aux, turned on music, then heat. It was cold as hell. As I was sitting there in my car, I looked out across the train tracks that cross the forest behind the shopping center. 
+
+  I notice movement behind a tree. What looks like raccoon or fox or something jumps out quickly. From behind one tree it leaps seamlessly to the cover of the next until it’s too deep in the woods for my vision to follow. Hell nah. “Click” I lock the doors and wait another few moments for my engine to warm, then I am out. Things like that freak me out. Wild animals are uncontrollable and they follow their own agenda. Could that agenda have been to hunt me down and steal my garbage? Maybe, or it’s just alerting the rodent army that their target is sitting like a duck in her car waiting to be sacrificed to the entity. Probably not but I would rather leave than let my mind jump to more conclusions.  
+
+     Down the road a few miles I make a right and cross the tracks. Following the road that leads to Harry’s house always confuses me, especially at night. Mailboxes blend together and turns seem to lead you in circles. 
+
+scratch
+
+My vision focuses on the rear view mirror. No sticks on the road, something must have gotten caught under my car. I turn down my music. I still have a few miles to go, and the occasional scratch can be heard from under my car. I stop quickly in an area lit by a dim flickering street light. I get out of my car to check for sticks. Quickly I walk around my car to make sure nothing is stuck to the wheels. Nothing to be found. Nothing is under my car either. strange but not worth standing around in the cold for. I hop back in and close my car door. Most of the heat was let out by the open door from my little pit stop so I blast the warm air. Starting down the road again, I don’t hear anything but warm air blowing and joey badass. 
+
+What I see in my mirror sends a cool shiver up my spine. 
+A rodent of sorts. Tall, with a mans posture. Its peeking at me from over and behind my seat with glossy eyes. 
+
+From there on out, my memory is foggy. One of Harry’s neighbors found me wrecked into a tree on the side of the road. I got a concussion and broken collar bone. The only sign of the creature was the back door left slightly open as though someone didn’t shut it hard enough.

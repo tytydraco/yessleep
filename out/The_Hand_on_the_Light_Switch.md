@@ -1,0 +1,13 @@
+The hand on the light switch
+
+The light bulb, in my opinion, is humanities greatest invention. Something so small that has the ability to make that which would be invisible during the darkest hours, visible. Of course, something so ingenious will be hated by someone, or in this case, something. After all, most evil exists where light does not.
+
+All the lights in my small, two bedroom house have dimmer switches, since i cannot sleep in both the bright light nor the dark. Ever since childhood, it has always been this way. The dark was bot something young me was too fond of, which is why my father had these switches installed, for my peace of mind. Even today, 26 years later, I still thank God that he did it. Yet, not even they can save me now. 
+
+After switching of the tv, i climbed up the stairs to my bedroom, the effect of sleep deprivation, most likely caused by all the overtime my job required, causing my eyelids to droop. Entering my room, my hand instinctively reached towards the dimmer switch, ready to turn down the light and fall asleep before my head hit the pillow. But what i felt wasn’t the circular shape of the knob I was so familiar with, but the unmistakable dry skin and several fingers of a hand. Alarmed, i jumped back, letting out a small yelp in the process. Yet, looking at the switch, nothing was there. Convincing myself it was just the effects of a lack of sleep taking its toll on me, i reached for it again, only to be met with the same invisible hand covering it, solid as a brick wall.
+
+The reason i did not immediately leave the house and call the police was because i had already became somewhat accustomed to these experiences. In a house as old as mine, built around the late 1800s, its not uncommon to hear scraping sounds, wailing, and sometimes see things which are not, or should not, be there.
+
+However, this was different. As i got into bed and pulled the sheets over myself, it happened. The light dimmed. It was such a minute change, hardly noticeable. I once again thought it was my imagination. Yet after it slightly dimmed again for the second time, there was no denying it. Whatever was holding my light switch was dimming it. Yes, it wasn’t by a lot but it was enough to catch my attention and alert me to it. Around every three minutes, it happened, a slight change in the light intensity. The only thing stopping me from getting up and leaving was the immense fear i would be met by more than an invisible hand at the door.
+
+Now, almost an hour later, i write this in the hopes that someone, anyone will save me. The light is so low that the light of my phone screen is brighter, and i don’t think i want to be around when the light goes off

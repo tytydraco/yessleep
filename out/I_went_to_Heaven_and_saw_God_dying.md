@@ -18,7 +18,7 @@ As my pupils constricted and I was able to see better, I realized that the light
 
 I screamed, clutching my cheek and feeling blood running down it in rivulets. I turned, running away from this monster as fast as I could. The eyes above me seemed to move faster, as if they had been agitated.
 
-At that moment, four people rushed from the forest waving swords and crossbows. They barely seemed to notice me, focusing entirely on the female shape-shifter behind me. She hissed at them like a snake, sending her long, forked tongue flicking out of her mouth and pulling her glowing sword from its scabbard. With a battle cry that made my ears ring, she rushed forward, slicing off the head of the man in front. I saw it fly across the air in slow motion, the man’s body falling to its knees. He still had a look of surprise in his eyes when his head landed a few feet to the left of his body on the tropical white sands of the ground.
+At that moment, four people rushed from the forest waving swords and crossbows. They barely seemed to notice me, focusing entirely on the female shapeshifter behind me. She hissed at them like a snake, sending her long, forked tongue flicking out of her mouth and pulling her glowing sword from its scabbard. With a battle cry that made my ears ring, she rushed forward, slicing off the head of the man in front. I saw it fly across the air in slow motion, the man’s body falling to its knees. He still had a look of surprise in his eyes when his head landed a few feet to the left of his body on the tropical white sands of the ground.
 
 The others wasted no time, using the female’s distraction with the front sword-wielding man to attack her ferociously. One shot her directly in the neck with a crossbow, the bolt piercing through and reminding me ludicrously of the bolts on the neck of Frankenstein’s monster. She screamed with rage and pain as another rushed her from the left, swinging a massive broadsword at her jaw. Time seemed to slow down as the sword connected, cutting through the skin of the monster easily. As it penetrated deeper, sickly green light began to shoot out the wound, and by the time he had fully decapitated her, the light was so blinding I could no longer look.  
 
@@ -48,7 +48,9 @@ They introduced themselves, and we sat down to eat. They poured delicious-smelli
 
 “It is at the end of Heaven,” the chubby man said, his eyes downcast. “It is… a horrible thing to behold. Trillions of gnashing teeth, endless insects infesting it and screaming in unison. Since his body began to fall apart, the insects of Heaven have really begun to consume His flesh… I think it is driving God insane. A lot of the terrible things in our world might be arising from his insanity and dying- the World Wars, the death camps, the mass killings by Communists. But that is just speculation, I don’t know that for sure.”
 
-At that moment, I heard a loud crash outside. Shouts and running from above us made everyone deathly silent. Then the hidden trapdoor leading down here was flung open and angels began pouring down the opening, carrying glowing swords and crossbows. They instantly attacked, dozens more coming from behind them. They slashed at the chef. He absurdly raised his wine glass in front of him as if that would stop the sword flying down towards his skull, but instead it cleaved his face in two, and he fell backwards. Within seconds everyone except me was moaning, dead or dying, on the ground. The angels began to pull their hacked-up bodies out, then approached towards me, their dead, black eyes staring daggers at me as I backed against the dirt wall of the hidden shelter.
+At that moment, I heard a loud crash outside. Shouts and running from above us made everyone deathly silent. Then the hidden trapdoor leading down here was flung open and angels began pouring down the opening, carrying glowing swords and crossbows. They instantly attacked, dozens more coming from behind them. They slashed at the chef. He absurdly raised his wine glass in front of him as if that would stop the sword flying down towards his skull, but instead it cleaved his face in two, and he fell backwards. Within seconds everyone except me was moaning, dead or dying, on the ground. I instinctively picked up my wooden bowl, spilling stew all over myself and the floor. 
+
+The angels began to pull the hacked-up bodies of the others they had murdered out, then approached me, their dead, black eyes staring daggers at me as I backed against the dirt wall of the hidden shelter.
 
 Just as they had all surrounded me, and one was raising his sword to cut me open, I began hearing sounds that didn’t fit.
 
@@ -58,10 +60,12 @@ Just as they had all surrounded me, and one was raising his sword to cut me open
 
 “He’s waking up!”
 
-As the sword came down towards my face, I suddenly opened my eyes, my other eyes, feeling the cold, damp pavement beneath my body. I looked around and saw myself surrounded by paramedics, a Lifestar helicopter loudly descending a hundred feet further down the road. I saw the naked woman who had run out in front of my car in the back of an ambulance. Then I closed my eyes and fell back asleep.
+As the sword came down towards my face, I suddenly opened my eyes, my other eyes, feeling the cold, damp pavement beneath my body. I looked around and saw myself surrounded by paramedics, a Lifestar helicopter loudly descending a hundred feet further down the road. I saw the naked woman who had run out in front of my car in the back of an ambulance. I looked down and saw the wooden bowl in my hands still, cleaved in two by a sword, remnants of herbs and sauce still clinging to the inside of it. Then I closed my eyes and fell back asleep.
 
 The doctors at the hospital told me I had been clinically dead for five minutes. Apparently the woman I had almost hit was the latest victim of a serial killer. She had escaped from him and ran blindly into the road out of mortal terror. I didn’t blame her in the least, and was simply glad I hadn’t hit her.
 
-But the vision of Heaven I had received was the most disturbing thing of the entire experience. It truly changed my life, and not for the better.
+I still have the wooden bowl I brought back with me, and the slices on my cheek from that thing I encountered. Once I get out of here, I want to send the remnants of the bowl to a scientific institute, to see what it is truly made out of. I have a feeling it is not a kind of wood anyone on Earth has ever seen before.
+
+The vision of Heaven I had received was the most disturbing thing of the entire experience. It truly changed my life, and not for the better.
 
 I wasn’t afraid of dying before. But I certainly am now.

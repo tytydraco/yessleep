@@ -1,0 +1,15 @@
+In the beginning of 9th grade, my dad told me I needed to start running in order to get ready for sports. He said I should do so by running early in the morning, early being 4:30 in the morning. I didn’t want to be yelled at so I set my alarm for the said time and went on with my day.
+
+My alarm rang the next morning and I got up, changed clothes and grabbed my ear buds and went outside. It was pretty dark out and I didn’t have a flashlight on me so I decided to suck it up and run in the dark instead of finding one and wasting time. 
+
+A little ways away from my home, I get the feeling that I’m being watched. I paused my music and looked around, listening for any sounds and looking for anything unusual but I didn’t hear or see anything. But the feeling just wouldn’t go away no matter what I told myself. I could feel myself internally panicking and my breath was speeding up. 
+
+I decided to only walk around for a bit and for a minute I thought I was fine until up ahead, I see a figure standing in the distance, maybe a couple hundred feet away from me. He wore a black jacket, black pants, and I couldn’t see his face. I was wide awake by then due to the running so I froze, too afraid to move in fear he’d run after me. But when he began to move forward, I bolted away from him in the opposite direction. 
+
+I kept running and looking back, but each time I did he would be that much closer to me. I could feel myself getting more and more out of breath but I didn’t quit in fear I would end up dead or being kidnapped. Eventually I gave up and decided to hide. I ran to a bush in my neighbors yard and crouched down trying to calm myself down so I would be heard. I sat there for a good 10 minutes maybe waiting for the figure to go by but he never did.
+
+Thinking I had miraculously outran him, I stood up, getting out of my hiding spot and looked around. Only to find him standing much much closer to and behind me, yet I still couldn’t see his face. This time, I screamed and once again I took off running away from him in fear for my life. Only when I turned back to see him, he was running too. At this point, I was in tears.
+
+I gave up on hiding and ran back to my house with him still following me and locked myself inside. I didn’t hesitate to tell my parents this and when they heard, they were just as shocked as I was. After convincing me, we went outside together to search for the figure but as soon as we exited the house, it was like he vanished. We searched for a good while but still not a trace of him was found. 
+
+Ever since this incident I haven’t gone outside in the dark alone and I refuse to go outside at night. But even in the daytime, when it’s the rare occasion I am outside by myself, I still get the feeling I’m being watched. And on some occasions, I will see the hooded figure, the darkness still covering his face…

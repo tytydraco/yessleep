@@ -1,0 +1,16 @@
+A bit of context: I am a female (22), I am petite, really pale, and always messy hair. I was wearing loosen clothes, all white (maybe you will guess where I am heading to) I was outside smoking, while sitting on a chair in my front yard. I forgot to mention an essential detail, I live in the countryside, my street leads to fields and forests, the night here hits differently, if you know what I mean ;) . The sky offers some great masterpieces freely to our starry eyes. 
+
+So yes I was just hyperfocusing on the sky. I just stood up and decided to take a picture, I wanted to reproduce it through painting. However, I was really disappointed by my lame camera. So I decided to head out inside to grab one of my parents’phone since their quality were better. 
+
+While I was trying to take some pics, I felt a gaze on me, it was my new neighbour. She was staring at me. I was in my front garden, just in front of her house. I was waiting since in my front yard there is an automatic light, it flashes at any movement and lasts for like twenty seconds. (Important element). So I was only visible for a few moment. It was pitch dark again. There are no street lights where I live. So I was relieved  to feel invisible. As I was finally taking mesmerised pictures. Out of the blue, the flash of the phone I was holding started to light up. The moon was right on the left side of her house, yeah it looked like I was taking photos of her house. I heard her screaming, I put my hand on the flashlight, turned it off.
+
+I was petrified, I didn’t know which option was the best.
+A- Fleeing right away in my house, so reactivated the flash, looking suspicious 
+B- Confronted her (also talking to her for the first time) and explaining the whole situation because I scared her quite often (i will explain after the other option)
+C- Just disappearing in the dark and waiting.
+
+Okay so I am a night owl and I love art. It is not unusual to see me outside standing right in front of my house or in the middle of the driveway past midnight, taking pictures, smoking or just contemplating. So I spooked her multiple times, I know because she said that I was “the weird neighbour” to someone. One day, I was playing in the front yard, playing with my cat with a red light laser, obviously late at night. I accidentally lighted my laser towards one of her windows, so a flashy red light point was visible. I heard her screaming, lighted up the room, I turned it off and I glanced at her. She was looking at me and shut the curtains. 
+
+Back to the story, I decided to not move and wait. Then I was like, I should still continue taking pics. I heard loud voices, the front door opened, I heard them walking slowly towards their car and whispering. What was I supposed to do? I just took a last pic and headed to my house. As the flash went on, I was petting my cat. I heard her saying “Again this weird chick”. 
+
+As soon as I closed the door, I laughed out loud. Nervous reaction? Surely, I should find a way to talk to her, reassuring her that I am inoffensive or just remaining the weird neighbour.

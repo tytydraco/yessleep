@@ -1,0 +1,21 @@
+It's creepy as hell, I'll be looking up a recipe for carrot cake or something on Google, and the next second I'm getting advertisements for baking sheets on Amazon. Or, I'll be watching a Korean drama on Hulu, and Netflix will start only recommending me TV shows in Korean. It's annoying, and it happens to everyone, but not to the degree to which I've been getting them.
+
+I've been testing it out recently, I'll say something random to my Alexa, for instance, I talked to it about getting a new hot tub. And no surprise, my YouTube feed a few minutes later, ads for hot tubs. I tried it again with other products, ovens, lamps, an office chair, and every single time the same thing happened. I'm not saying that the tech companies are spying on me specifically, but you can't say it isn't creepy. 
+
+Around a month ago, my boyfriend moved into my place. We've known each other for around three months, and the move sort of came out of nowhere, but I was excited. My boyfriend's name is Derek, he's charming, he's smart, he's kind. Once he moved in, and we connected some of our accounts (like our Amazon account), the same thing began happening to him. He would say something in the house while I wasn't home, and that product would start appearing in my ads, and vice versa.
+
+Derek is a great guy, don't get me wrong, but he has his flaws. One time I even thought he was cheating on me, because I thought I heard him sneaking girls into the house. It happened multiple times, but every time I came down to check on him, there was no one there. Derek says it's the movies he watches waking me up. He always turns down the volume for me, though.
+
+Two weeks ago, Derek suggested we start gardening, and guess what? Amazon starts to suggest we buy shovels. A week ago, Derek suggested we get more cleaning supplies. Amazon suggests we buy bleach. A few days ago, Derek wants to repair the shed outside. Amazon starts suggesting hammers, and duct tape. I'm starting to get annoyed with Derek, because when Amazon suggests he buy something, he does! So now, I have a garage full of random tools, and other shit!
+
+I think it's the Alexa that's listening to us, because everything that gets suggested to us is mainly on Amazon. Derek keeps provoking the damn thing. A few nights ago, I heard him repeatedly just saying the words "Knives" over, and over again into the Alexa. The next day, he suggests we get new kitchen knives, and shows me an advertisement for it on Amazon. I don't have the heart to say no, because he wants to start cooking. I think he's trying to get the Alexa to suggest him things he wants, so he doesn't come off as needy, and wanting everything. He'll say stuff like, "Hey, it already suggested it, I may as well buy them, right?"
+
+Derek has been renovating the basement with all of his new tools and has told me to keep out, so I obliged. He took an Alexa downstairs, to play music, or whatever. He told me if I heard noise from downstairs, it was just the music accidentally playing. The day after he told me that, Amazon Prime Video started recommending me a movie called "Help Me." Is that not creepy?
+
+I guess the real reason I'm here, telling you all this story, is because I decided to get rid of the Alexas in the house, except for the one Derek has in the basement. I'm still getting recommendations, though, and they're creepy. Amazon Music is recommending me songs like "Please" and "Stop" and "Get Away From Me," My boyfriend either has a really weird taste in music, or my recommendations are trying to scare me.
+
+I've asked Derek to just get rid of the Alexa in the basement, but he keeps saying no. He says the music from it helps muffle the noises coming from the basement from the renovations. He works on that damn basement all the hours of the day. He's even moved all the tools down there.
+
+But, I think I'm going to finally be able to get rid of the Alexa in the basement today, Derek told me he's ready to show me the basement, fully renovated. I'm excited, it's taken a week or two, but it's finally ready.
+
+I'm excited, except for the fact that Amazon Music is now suggesting I listen to the song "Don't Go In The Basement."

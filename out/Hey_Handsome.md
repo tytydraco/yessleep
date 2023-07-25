@@ -1,0 +1,20 @@
+*“I wouldn’t walk down there if I were you.”*   
+I looked down the snow-covered cobblestone alley and back at the man in the crimson scarf. Yes, he was talking to me, and yes, he was referring to the street was about to take–  
+Although I couldn’t see why.  
+The alley was well lit by old-fashioned yellow globe streetlights; there were no shadows for dangerous figures to skulk in along its short, unremarkable length.   
+“Why’s that?” I asked.  
+“You won’t believe me,” the man replied, taking a step toward me. “I don’t even believe me.”    
+“Try me.” I tried to smile bravely, but I took a step backwards anyway. the man in the crimson scarf didn’t seem to notice; he wasn’t even looking at me while he spoke, not really.  
+He was looking behind me—down the alley.  
+“Right around the time you get to the end of that old factory wall on the left, a woman might step out behind you. There’s no place she could’ve come from, and that will make you curious. It’ll make you look back over your shoulder, even though you know you shouldn’t. When you do, you’ll notice that her wild gray hair sticks out in all directions, that her clothes are more like ragged sacks, and that there’s something wrong with her skin. All that will make you want to turn the rest of the way around, and once you’ve done that–well, there’s no saving you.”  
+I was suddenly aware that I was completely alone with the man in the crimson scarf. That peculiar hush that snowy nights seem to bring had settled over the city; not even a dog barked. We might as well have been the last two people on Earth.   
+“I need to get going,” I smiled again, “my friend is waiting for m–”  
+“NO!” as I started toward the alley, the man grabbed my coat. I  knew I should have been screaming and hitting and calling for help, but instead I just froze–unable to look away from the burning intensity of his dark, agonized eyes.   
+“The woman will smile at you. It’ll be the most hideous smile you’ve ever seen. You’ll realize that her teeth are as long and jagged and yellowed as broken old piano keys, and that her gnarled skin is the rotten purple color of a cancerous lung. Hey, handsome, she’ll croak, and that’s when you’ll try to run, just like I how did when she said those words to me–just like how you’re trying to run from me right now. But you can’t! You can’t because there’s nowhere to run to!”   
+“LET ME GO!” I’d finally found my voice again, but screaming into the snowy night was like shouting down a well. Not even a dog barked, and the man’s desperate grip held tight against my coat sleeve.   
+“No matter how fast I ran, she kept getting closer! Little by little…I ran down crowded streets, but it was like other people couldn’t even see her! Where you going, handsome? She teased me–I can still hear her! I fumbled my keys twice but finally made it into my apartment building, took the elevator upstairs, bolted the lock and–” the man took a deep, rattling breath ”–and that’s when I heard her scratching at my door. Scratching with those nails as long as a storybook troll’s, calling to me! Open up, handsome. And when I didn’t…she reached through the crack underneath and pulled herself through. Right through, like some awful boneless thing! I know I should have run, but I was too terrified, much as you are now. She trapped me between those warty arms and leaned in close, so close I could smell the spoiled meat on her teeth, and whispered…Give us a kiss, handsome.”   
+“And did you?” the man clutched at the crimson scarf around his face. He had let go of me, but I was entranced. I had to know.   
+“I came back to this spot to warn the next person, so she wouldn’t get them, too. I came here to warn you, but it's just…you look so…” the scarf fell down around the man’s neck. The flesh around his lips was the same rotted purple as a cancerous lung, and his jagged yellow teeth reminded me of broken old piano keys “...so…*handsome*.”  
+
+
+[X](https://www.reddit.com/r/beardify)

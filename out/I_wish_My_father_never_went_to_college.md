@@ -1,0 +1,23 @@
+I know it might be weird to say, but I wish my Father never went to college. For some background, My parents had me in their teens. My Mom left and my Dad took care of me. After high school my dad didn’t continue education until he was 25 and found my Step-Mom. After the wedding and my two younger siblings were born my Dad went to college, he majored in Robotics. He always liked robots, I was happy for him. He became extremely busy with college, I ended up taking more of a father role to my little siblings, Abigail and Cody. 
+
+Everything was fine until my Dad graduated, I don’t understand what happened but he changed. He almost became more off putting, But no one else noticed. So I never questioned anything, and I was 18 and getting ready to move out anyways. I promised my parents and siblings I’d visit, call, write, etc. I was 19 when I finally moved into my own apartment, It was out of state though, which hurt my family even more. 
+
+I worked minimum wage and it was hard keeping the roof over my head. After only two years I’d been fired and couldn’t pay rent, So I had to go crawling back to my family house, the house I sit hiding in as I type this out. 
+
+I was greeted by my siblings, Abby, now 10 years old, and Conner, now 12. They came running out hugging me, I felt warm at first, to be with my family again, but then It’s like my stomach dropped. I don’t know why. It was my siblings, but it felt like I was hugging complete strangers. I brushed it off, probably jet lag. I went inside and hugged my Step-Mom. I didn’t see my Dad though. “Where’s Dad?” I asked. “He’s out,” The three of them said almost in unison.
+
+By the time dinner was ready My father had returned, “Son! So happy to see you face to face again,” It felt like it was my old Dad again, he felt so warm in our embrace. 
+
+After dinner I sat on the couch watching cartoons with my siblings. They eventually fell asleep on me, thats when I changed the channel. It was the local news channel, It was currently going over the weather. 
+
+Then it changed to two people sitting at the table, “Next the Murder case currently going on in Salt Lake City,” A murder case? I thought, What on earth happened while I was gone. “5 month ago 3 murders struck Salt Lake, When Veronica Adams, and her two children, Abigail and Conner Adams, were found dead after being missing for 2 month,” I could feel the color drain from my face. This had to be some horrible dream. A bad welcome back joke. My heart beat raced as the news caster continued, but I couldn’t take in anymore details. I finally realized, they were all cold. Was I hugging some zombies all day!? But then how were they’re bodies found? It didn’t make sense. I felt a cold, almost doll like hand touch my arm. I jumped up and turned to face the couch. My two siblings stared at me, Their eyes lifeless. They kept saying versions of “Whats wrong?” I felt like I couldn’t breath. “Our main suspect of the case is, Bill Adams, the husband and father of the victims,” I felt my heart drop. My eyes teared up. 
+
+“Son? What’s wrong?” My Father suddenly said in the door way of the Living room. I backed away slowly, “What did you do?” He grinned, “I’m making sure this family stays together forever,” Tears flooded down my face, “You killed them!” He kept coming closer and closer to me. I had to get out, “Everyone dies eventually, Son.” 
+
+Just as soon as He got far enough away I ran for the door, My dumbass decided to run into the basement. I locked the door and ran down the stairs. I turned on the lights. It was practically empty. I took out my phone and dialed 9-1-1, I could hear my father call for me at the top of the stairs behind the door. “9-1-1, What’s your emergency?” I didn’t know what to say, “My dad is a murderer!” I blurted out, “I need help! I locked myself in the basement!” 
+
+The dispatcher told me to calm down, asked me my name, and address. “What makes you believe this?” I didn’t know how to say it, My family is dead but isn’t and my Father practically admitted to it. Sounds like a bad horror story. 
+
+I looked around the room, and saw it. A mannequin? Doll? no… it was a robot. A robot that looked exactly like me. It’s lifeless eyes stared into my soul. “Sir? Hello?” I began to speak when all the sudden, My phone died. Of fucking course. The cops are on their way. I should be fine. And then theres a crash. He’s breaking through the door. 
+
+So here I am. On a old laptop I found in desperation to tell anyone my story. I don’t think the cops will be here in time, and he’s close to getting a big enough hole to climb in through. I hope he rots.

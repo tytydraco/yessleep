@@ -1,0 +1,19 @@
+ 
+
+I saw something that I shouldn't have seen. It was a hot summer day and I decided to explore the forest near my house. As I was walking, I came across an old abandoned house. I was curious and decided to check it out. The door was unlocked, so I walked inside.
+
+It was dark and damp inside, and the air was filled with an eerie silence. The furniture was covered in a thick layer of dust and cobwebs, and the wallpaper was peeling off the walls. It was clear that no one had lived there in years. I decided to spend the night in the house, as it was getting late and I didn't want to risk getting lost in the forest.
+
+During the first night, I heard strange noises coming from outside the house. At first, I thought it was just an animal, but the sounds were too unusual. It sounded like something was scratching at the walls and whispering my name. I tried to ignore it and fell asleep, hoping it was just my imagination.
+
+But the second night was worse. I had a nightmare that I was tied up to a bed and someone was performing experiments on me. I woke up in a cold sweat, feeling like I was being watched. The whispering and scratching sounds were even louder than the night before. I tried to convince myself that it was just the wind, but I knew it was something else.
+
+On the third night, I decided to investigate. I followed the sounds more profoundly into the forest, until I reached a clearing. There, I saw a group of strange, shadowy figures dancing around a fire. They were chanting in an unknown language and I couldn't make out their faces. I watched in horror as they suddenly turned to face me, and I realized that they were not human.
+
+I ran back to the house, feeling like I was being followed. The next morning, there was a knock on my door. When I opened it, I saw four identical men in black suits standing there. Without a word, they came into the house and began to question me about what had happened while I was staying there. They asked if I had seen anything strange, and I denied it. But they knew that I was lying.
+
+Before they left, they warned me never to come back to the forest, and that if I told anyone what I had seen, I would regret it. As I watched them disappear into the forest, I realized that I had stumbled upon something that was not meant to be seen by human eyes.
+
+As I left the house and returned home, I couldn't shake the feeling that something was still following me. The whispering and scratching sound still haunted me, and I knew that I had seen something that I shouldn't have seen.
+
+Suddenly, strange things started happening in my life. I felt like I was being watched all the time, and I heard strange noises in my house at night. Objects moved on their own, and doors slammed shut without any explanation. I knew that the mysterious figures in the forest had somehow cursed me. One night, I woke up to find a note lying on my bedside table. It read: "We told you not to talk. You have been warned." I realized that the men in black suits had somehow found a way into my home and were threatening me. I knew that I had to do something to lift the curse and protect myself. I went to a local shaman who specialized in spiritual cleansings. He performed a ritual to rid me of the curse but warned me that I had to leave the area and never return. The mysterious figures in the forest were too powerful, and they would stop at nothing to silence me. I left my home and moved far away, but the memory of what I had seen still haunted me. I knew that I had stumbled upon something otherworldly and that the price of discovery was too high. From that day on, I never ventured into the unknown, and I never spoke of what had happened to me. The fear of the unknown stayed with me, and I realized that some things are better left unseen.

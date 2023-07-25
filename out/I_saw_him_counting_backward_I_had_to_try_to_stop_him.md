@@ -55,3 +55,5 @@ His eyes were trembling, and I could tell he wanted to tell me something, that h
 Then the man pulled his hand away and straightened his coat, walking sadly away. As he did, Evan watched him go.
 
 “Daddy,” he asked. “Who was [that man](https://www.reddit.com/r/scarymaxx/comments/zwo5o8/welcome_to_the_world_of_scarymaxx/)?”
+
+[Related post.](https://www.reddit.com/r/nosleep/comments/10wguxp/i_think_i_saw_the_countdown_man_in_an_aol/)

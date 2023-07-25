@@ -1,0 +1,13 @@
+Every day since I was around 6, before I stepped on the bus to go to school, or just leave my house in general, I would look back into the tree line. I still remember the one day I looked into the woods, and I saw the man in the woods, looking around a tree at me. And every day since them, I would always look back into the tree line for some reason, I just, felt compelled to look back there. Its been a routine for me now, I wake up, get ready for work, and leave the door at 7, and just before I step into the car, I see the man in the woods. I tried calling the police on a few occasions, and even tried trapping him,
+
+&#x200B;
+
+but nothing changed. Every day he was still in the same spot just standing there, staring at me. I could never clearly see his face because of how far out he was, I could only see the same clothes he would always wear, a button down shirt with a suit jacket over it, and cargo pants. that's what he always wore,  I tried looking closer sometimes to see if he had any changes but there was always nothing. One day I woke up and was planning to do the same thing every day, but I saw that I woke up late, it was 7:20 and I'm supposed to be out by 7, so I got my clothes on as fast as I could, and ran out the door. While rushing though, I forgot to look at the man in the woods. I drove away, not thinking about it for the whole day. When I got home from work, I walked inside, but before I did I looked back at the
+
+&#x200B;
+
+treeline to see if he was there, he was never there after I had looked at him in the morning, he just seemed to disappear when I looked away. When I looked back at the treeline, I saw him, at the edge of the treeline, at least 600 ft. away from where he usually was. I got to see his face, it was disfigured, almost like it was destroyed in a fire. And his clothes, were ripped apart, they were always nicely kept. I ran upstairs as fast as I could to grab my pistol, but before I could get downstairs, he was inside my
+
+&#x200B;
+
+house. I fired off a shot at his disfigured face, but it just made it more disfigured. He grabbed me by the neck at unimaginable speeds before I could fire off another shot, he just stood there choking me, and then, darkness. Its raining outside now. I woke up a few moments ago, I had to write this, to document this before it gets someone else.  I cant see anything outside, its all, darkness. I cant see the rain. I can hear it. My phone says its 1 PM, My door is locked from the outside. Hes outside, its the only thing I can see. God save me.

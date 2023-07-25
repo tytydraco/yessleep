@@ -1,0 +1,15 @@
+
+Here is the what has happened today:
+
+I just moved into a new town, I was unpacking things still when I got a knock on the door. I was greeted by some of my new neighbours who asked to come in. I let them in and offered them coffee but they insisted we talk first. 
+They told me to be careful with my next door neighbour, not to talk to him past 12 and under no circumstances be near a window or door that you can see through past 12, they proceeded to leave after telling me this. I laughed it off as I thought it was just a prank on the new guy sorta thing. 
+
+For some context I usually go to bed around 1:30AM as my sleep schedule sucks. I had finished unpacking at 11PM and made myself some dinner I finished dinner at 11:30PM, I decided to watch a bit of TV and see what was happening on the news. The TV wouldn't work, it was as if somebody had unplugged my antenna. It was late but I had a flashlight so I went up on the roof and found that indeed my antenna had been unplugged. I plugged it back in. It was now 11:50PM as I climbed down from the roof I saw all my lights turn off, I went over to the power box and found somebody had switched it off. I turned it back on. I was heading back to my front door at 11:59PM. I went inside my house and shut the door as the clock hit 12. I instantly heard a knock from the door that was just behind me. It didn't make sense to me, I didn't see anyone out there just a second ago. I turned around to answer the door but as looked through the glass on my door my jaw dropped. Whatever was out there wasn't human, it looked like a human but didn't feel human. Kind of like when you see a robot that is made to replicate a human or wax replica's of people. He started banging louder and the glass on my door started to crack. I ran to my room and shut the door, I attempted to dial 000 but it won't work. I heard my front door fall down and my bedroom door opened I think I can hear something crawling under my bed. Please help me.
+
+
+Update:
+The thing that I believe to be my neighbour was under my bed so I had to think fast. I jumped out of bed, ran out of my room and shut the door behind me. My neighbour ran straight through my door chasing me, it grabbed me and started trying to rip my eyes out. I was able to push the thing off of myself. With no time to spare I ran out the door and tried to get in my car but the tyres were slashed, I had no choice but to run on foot. The thing was fast and chased me. It was about to get me until I finally hit a pub which was populated and had lots of people. The thing disappeared. 
+
+I don't know what to do now but I know for sure I can't go back there. Not yet at least. I've called a friend who is allowing me to stay at their house. I can't tell them why I need to stay there though. Nobody will believe me if I tell them about this. Nobody except the other neighbours. I will need to return there as I need to uncover the truth about what's going on but I can't do that until I'm mentally stable again. 
+
+Hope you guys liked the update. Sorry for it being short. If you want me to continue it comment some ideas!

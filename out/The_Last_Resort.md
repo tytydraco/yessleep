@@ -2,13 +2,13 @@ I loaded my cart with cleaning supplies and towels and made my way down the hall
 
 “Yes, I remember when this happened. I was about 9, and I was playing with the ball in the house. I knew I wasn’t supposed to, but I did it anyway. When I broke the lamp, I blamed it on my sister. She was 13 and she’d been caught by my mom throwing the ball in the house earlier that day. She said I was lying, but my mom believed me. She grounded her for a week, and she missed the school ski trip she had been looking forward to for months. I’m not sure she ever forgave me for that.”
 
-I finished sweeping up the shards, then picked up the base and the ball and tossed them in the garbage bag hanging from my cart. 
+I finished sweeping up the shards, then picked up the base and the ball and tossed them in the garbage bag hanging from my cart.
 
 “I should have owned up to my mistake, and I certainly shouldn’t have let Veronica get punished for it. I was jealous because I didn’t get to go skiing too, so I ruined it for her. I thought she deserved it. It was a shitty thing to do.”
 
-I heard the door to the hallway open again, and I rose, pushing the cart back out of the room. I closed the door to room 201 and moved on to the next door down the hallway. The door to room 203 didn’t open. I tried every key on my ring, but it stuck fast, so I continued to room 205. This door opened easily. Inside was a king-sized bed with crisp white linen, flanked by two bedside tables, a creamy white carpet, a wooden desk, a couple of armchairs and an armoire. I breathed a sigh of relief. Just an ordinary room, pristine and untouched. It didn’t take me long to restock the minibar and refresh the towels. As I returned to the hallway, I heard a bell chime. Guests. They didn’t have a reservation, but no one ever did. People didn’t come here on purpose, after all. They just sort of ended up here, at the end of whatever road they were travelling. At least, that was how it had been for me. I hurried to the front desk. It wouldn’t do to keep them waiting. 
+I heard the door to the hallway open again, and I rose, pushing the cart back out of the room. I closed the door to room 201 and moved on to the next door down the hallway. The door to room 203 didn’t open. I tried every key on my ring, but it stuck fast, so I continued to room 205. This door opened easily. Inside was a king-sized bed with crisp white linen, flanked by two bedside tables, a creamy white carpet, a wooden desk, a couple of armchairs and an armoire. I breathed a sigh of relief. Just an ordinary room, pristine and untouched. It didn’t take me long to restock the minibar and refresh the towels. As I returned to the hallway, I heard a bell chime. Guests. They didn’t have a reservation, but no one ever did. People didn’t come here on purpose, after all. They just sort of ended up here, at the end of whatever road they were travelling. At least, that was how it had been for me. I hurried to the front desk. It wouldn’t do to keep them waiting.
 
-I arrived at the front desk to find a couple, arguing quietly. 
+I arrived at the front desk to find a couple, arguing quietly.
 
 “You are always doing this!” she hissed. “I will not have this argument again. There isn’t anything going on, you are just jealous, and I am just about at the end of my rope.”
 
@@ -16,7 +16,7 @@ I arrived at the front desk to find a couple, arguing quietly.
 
 “Yes! You are paranoid, you think that I am…”
 
-They both fell silent as they noticed me approaching. 
+They both fell silent as they noticed me approaching.
 
 “Welcome to Ultima Resort,” I put on my best customer service smile. “What can I do for you today?”
 
@@ -36,9 +36,9 @@ They both fell silent as they noticed me approaching.
 
 “Well, if you have it, a room overlooking the woods would be ideal.”
 
-I jiggled the mouse on the computer and pulled up the booking software. It should have shown every empty room, but despite the fact that no one had checked in in days, the only room that showed as available was room 203. Well, it did overlook the forest. Good enough. 
+I jiggled the mouse on the computer and pulled up the booking software. It should have shown every empty room, but despite the fact that no one had checked in in days, the only room that showed as available was room 203. Well, it did overlook the forest. Good enough.
 
-“How long are you planning to stay?” I asked politely. 
+“How long are you planning to stay?” I asked politely.
 
 “Well, we took some time off for a romantic vacation, so we’ll be here though the weekend until Valentine’s. Let’s say we will be checking out on Wednesday.”
 
@@ -46,15 +46,15 @@ I jiggled the mouse on the computer and pulled up the booking software. It shoul
 
 “I have a case in the car.”
 
-I pressed a button under the desk and Manny emerged from the back. 
+I pressed a button under the desk and Manny emerged from the back.
 
 “Can you help Mrs. Anderson get her luggage?”
 
-He nodded and went about his task without further comment, following her out to the car. When they returned, I led the couple upstairs, towards room 203. For a moment, I was worried that the door would still be stuck, but this time when I inserted my key, the door swung open easily. I shouldn’t have been concerned. As the room came into view, Mrs. Anderson shrieked and dropped her bag. 
+He nodded and went about his task without further comment, following her out to the car. When they returned, I led the couple upstairs, towards room 203. For a moment, I was worried that the door would still be stuck, but this time when I inserted my key, the door swung open easily. I shouldn’t have been concerned. As the room came into view, Mrs. Anderson shrieked and dropped her bag.
 
-“Jessi, what’s the matter?” her husband put a hand on her arm, but she pulled away sharply. 
+“Jessi, what’s the matter?” her husband put a hand on her arm, but she pulled away sharply.
 
-There was nothing obvious in the room that would have triggered that reaction, though the décor was a bit odd, for a hotel. The bed was large and draped in black silk sheets. The floors were a gleaming mahogany and there were a pair of plush, leather armchairs in the corner. There was no minibar, no armoire, and the art on the walls was an abstract series, depicting a woman in various stages of undress. Jessi Anderson was staring at the painting above the bed, where the woman appeared to be fully nude, her face was deathly pale. 
+There was nothing obvious in the room that would have triggered that reaction, though the décor was a bit odd, for a hotel. The bed was large and draped in black silk sheets. The floors were a gleaming mahogany and there were a pair of plush, leather armchairs in the corner. There was no minibar, no armoire, and the art on the walls was an abstract series, depicting a woman in various stages of undress. Jessi Anderson was staring at the painting above the bed, where the woman appeared to be fully nude, her face was deathly pale.
 
 “Did you have them do this?” she whirled on her husband.
 
@@ -68,13 +68,13 @@ There was nothing obvious in the room that would have triggered that reaction, t
 
 “Of course not. How would I have anything to do with the paintings in a hotel I have never been to? What is the problem with the paintings anyway? They are a bit risqué for a hotel, I suppose, but this is meant to be a romantic weekend, maybe…”
 
-She rounded on me, 
+She rounded on me,
 
 “We need another room, right now.”
 
 “I’ll see what else is available, ma’am. I’m sorry for the trouble.”
 
-I pulled out my key and tried room 201 next door. The door opened to an utterly prosaic room with white linens and an armoire, as expected. Jessi approached the door cautiously, but relaxed when she looked inside. 
+I pulled out my key and tried room 201 next door. The door opened to an utterly prosaic room with white linens and an armoire, as expected. Jessi approached the door cautiously, but relaxed when she looked inside.
 
 “This is much better,” she huffed, pushing past me into the room. “You should consider redecorating that room, it really is in poor taste.”
 
@@ -82,7 +82,7 @@ She tried to sound offended, but I could see her hands shaking as she passed me.
 
 “Where did you pull those from, anyway?” a murmured quietly.
 
-“You shouldn’t talk to them,” Manny appeared behind me, presumably having dropped the bags off next door. 
+“You shouldn’t talk to them,” Manny appeared behind me, presumably having dropped the bags off next door.
 
 There was a time that would have made me jump, but I was used to it by now, so I just turned,
 
@@ -104,7 +104,7 @@ There was a time that would have made me jump, but I was used to it by now, so I
 
 “This is not an appropriate time for this conversation,” Manny shook his head. “Go see to your job.”
 
-I sighed. He was right. It also wasn’t fair of me to talk like that with him. Manny had been here even longer than I had, I shouldn’t force him to consider such things. I shook my head and returned to room 201. 
+I sighed. He was right. It also wasn’t fair of me to talk like that with him. Manny had been here even longer than I had, I shouldn’t force him to consider such things. I shook my head and returned to room 201.
 
 “Yes, sir. How can I help you?”
 
@@ -116,7 +116,7 @@ I sighed. He was right. It also wasn’t fair of me to talk like that with him. 
 
 I left to let them settle in, heading down the hall to continue my cleaning. Out of habit, I counted the doors. 10 now, on each side. I had better hurry, then.
 
-An hour later, I approached the door to room 201 to retrieve the Andersons. I could hear them arguing through the door. 
+An hour later, I approached the door to room 201 to retrieve the Andersons. I could hear them arguing through the door.
 
 “…I don’t even understand what you are upset about! Can’t we just relax and enjoy our weekend?”
 
@@ -124,7 +124,7 @@ An hour later, I approached the door to room 201 to retrieve the Andersons. I co
 
 “Admit what!? I didn’t even know we were coming here. You saw the road sign, you suggested we try this place! How could I possibly have ‘set you up’. And set you up for what?”
 
-“You know very well. I don’t understand you. You never have time for me, but you do have time for some elaborate plot? What do you think this will accomplish, anyway? I haven’t done anything wrong.” 
+“You know very well. I don’t understand you. You never have time for me, but you do have time for some elaborate plot? What do you think this will accomplish, anyway? I haven’t done anything wrong.”
 
 “Excuse me for having to work for a living.”
 
@@ -138,7 +138,7 @@ An hour later, I approached the door to room 201 to retrieve the Andersons. I co
 
 “Nothing, just forget it.”
 
-The silence that followed seemed like my best opportunity, so I knocked firmly. Brad Anderson opened the door, 
+The silence that followed seemed like my best opportunity, so I knocked firmly. Brad Anderson opened the door,
 
 “What?”
 
@@ -156,17 +156,17 @@ We walked through the courtyard in tense silence. As we passed the pool, Manny l
 
 “8pm? That’s ridiculous!” Jessi whirled on me. “Why is it closed so early? This is terrible customer service.”
 
-“If that is a problem, we also offer room service up until midnight. Then all services are shut down until the morning.” 
+“If that is a problem, we also offer room service up until midnight. Then all services are shut down until the morning.”
 
 “This is absurd. In bed by midnight? What, am I living with my parents? We should never have come to this dump…”
 
 “Jessi, please,” Brad tried to calm his wife.
 
-“Of course, you would take her side!” 
+“Of course, you would take her side!”
 
-She pushed her husband aside and stomped off into the spa door, now visible at the end of the path. 
+She pushed her husband aside and stomped off into the spa door, now visible at the end of the path.
 
-“Jessi, wait!” her husband ran after her. 
+“Jessi, wait!” her husband ran after her.
 
 I sighed. Perhaps I should try to tell them.
 
@@ -180,17 +180,17 @@ My shoulders slumped,
 
 “You’re right. I know,” I looked up into the forest canopy. “I know!”
 
-“Don’t talk to them,” he admonished me one last time before he returned to the pool. 
+“Don’t talk to them,” he admonished me one last time before he returned to the pool.
 
 I turned and jogged towards the spa. I still had a job to do.
 
-I was just locking up the dining room when I heard a commotion behind me and turned to see Mrs. Anderson stomping down the main staircase, wobbling slightly on her high heels. 
+I was just locking up the dining room when I heard a commotion behind me and turned to see Mrs. Anderson stomping down the main staircase, wobbling slightly on her high heels.
 
 “What is the meaning of this!?” she was holding something in her hands, shaking it frantically as she approached.
 
 I couldn’t tell, she was moving it too much, all I caught was a blur of pink and a flash of silver. Finally, she stopped in front of me, holding them out the way a person might a dirty diaper or a dead animal. She swayed slightly as she stood. From her fingers, dangled a pair of fuzzy pink handcuffs and some silky lingerie. I cleared my throat,
 
-“Well, ma’am. I they appear to be…” 
+“Well, ma’am. I they appear to be…”
 
 “That isn’t what I meant,” she cut me off; up close, her breath reeked of wine, she had had quite a lot to drink at dinner. “I mean why was it in our room?”
 
@@ -200,11 +200,11 @@ I couldn’t tell, she was moving it too much, all I caught was a blur of pink a
 
 “Maybe your husband…”
 
-I didn’t get to finish before she slapped me. 
+I didn’t get to finish before she slapped me.
 
 “No! Someone was in our room, and I demand to know who.”
 
-I rubbed my cheek. She didn’t hit especially hard, but her wedding ring was probably going to leave a mark. 
+I rubbed my cheek. She didn’t hit especially hard, but her wedding ring was probably going to leave a mark.
 
 “Ma’am, I can assure you that no one was in your room.”
 
@@ -212,7 +212,7 @@ She moved to hit me again, but her husband had finally caught up to her and he g
 
 “Jessi, what are you doing? What has gotten into you?”
 
-She whirled on him, the look on her face almost feral. 
+She whirled on him, the look on her face almost feral.
 
 “We are leaving this place, right now!” she demanded. “Get our bags, we are checking out.”
 
@@ -226,7 +226,7 @@ She whirled on him, the look on her face almost feral.
 
 Mrs. Anderson paused, staring at the lingerie for a long moment,
 
-“You didn’t put these there, did you?” she asked her husband softly. 
+“You didn’t put these there, did you?” she asked her husband softly.
 
 “No, I told you…”
 
@@ -238,7 +238,7 @@ I nodded politely,
 
 “Yes, sir. I will get your bill together.”
 
-I watched the Andersons’ taillights retreating into the night. I could go clean up their room, but what was the point? They would be back. I checked my watch, 9:30. Hopefully they would return before 12, because if they arrived any later, they were on their own. I turned and walked back to the front desk. 
+I watched the Andersons’ taillights retreating into the night. I could go clean up their room, but what was the point? They would be back. I checked my watch, 9:30. Hopefully they would return before 12, because if they arrived any later, they were on their own. I turned and walked back to the front desk.
 
 When I heard the bell some time later, I was surprised to see not the Andersons, but a stranger standing at the desk. He blandly handsome and I’d have guessed he was in his early twenties, but the dark circles under his eyes made him look older. I plastered on a smile.
 
@@ -258,7 +258,7 @@ He shook his head as he handed me a credit card.
 
 I opened the door to room 203 to find it unchanged from my last visit. Same art, same odd furnishings. Mr. Templeton seemed as shocked as the last guest had. He stared at the paintings,
 
-“Where did you get these?” he asked. 
+“Where did you get these?” he asked.
 
 “I couldn’t say, sir,” that was true enough. I could never say where these things came from.
 
@@ -266,7 +266,7 @@ He stepped into the room, placing a hand on the nude above the bed,
 
 “These are my paintings. I haven’t sold these. Hell, I’ve barely sold anything at all. How could they be here?”
 
-I stood awkwardly in the doorway. I didn’t really have an answer to give him. 
+I stood awkwardly in the doorway. I didn’t really have an answer to give him.
 
 “Would you like another room, sir?”
 
@@ -278,7 +278,7 @@ The Andersons were waiting for me when I arrived. Brad looking sheepish and Jess
 
 “I’m sorry, ma’am,” Brad said, abashed. “It seems we might need to stay the night after all. Any chance our room is still available?”
 
-I looked at the clock, 11:30. They had made it just in time. 
+I looked at the clock, 11:30. They had made it just in time.
 
 “Certainly, sir,” I handed him back the key.
 
@@ -292,15 +292,15 @@ I looked at the clock, 11:30. They had made it just in time.
 
 “No, we are fine, thank you. Have a good evening.”
 
-Brad took his wife by the shoulder and guided her up the stairs. 
+Brad took his wife by the shoulder and guided her up the stairs.
 
 I finished entering the data into the system, then turned and hurried down the back hall to where my room should be, it was nearly midnight so I couldn’t waste time. My heartrate increased as I went, and as I reached the corner before my door, I found myself holding my breath. Would it be there? Had I done enough? I didn’t exhale until I caught site of room 111, right where it belonged. I unlocked the door, slipped inside and slammed it behind me, triple bolting it before I turned. Laid out on the bed was a clean, crisp new uniform and a tray with a steaming bowl of stew. I smiled. They were satisfied with my work today. That was good. I was hungry, and going to bed without a meal was not a pleasant experience. I stripped off the uniform I was wearing and dropped it into the laundry bag, then put on my pajamas and settled in to eat. The food was pretty good tonight, I must have exceeded their expectations. When I finished eating, I rose to put the tray by the door for the morning, and found a bottle of whiskey waiting there. I shook my head,
 
 “Nice try,” I muttered, picking up the bottle and putting it in the armoire with another dozen, unopened bottles. “I’m not falling for that again.”
 
-I certainly wouldn’t have turned that bottle down when I first arrived. But one night I’d gotten too drunk and stumbled out into the hall, after midnight. I shivered at the memory. Never again. And even just a couple of drinks seemed to make the dreams worse. It wasn’t worth it. Instead, I lay down and tried to sleep. 
+I certainly wouldn’t have turned that bottle down when I first arrived. But one night I’d gotten too drunk and stumbled out into the hall, after midnight. I shivered at the memory. Never again. And even just a couple of drinks seemed to make the dreams worse. It wasn’t worth it. Instead, I lay down and tried to sleep.
 
-The brief yelp woke me, I checked the clock, 3:47 am. Groggily, I rose from the bed and went to the peephole. Nothing would compel me to unlock that door, but I was curious. Across the hall from my door, I could see Jessi Anderson, standing in the hall, hand over her mouth, staring at Mr. Templeton, who was just emerging from his room, a pack of cigarettes in his hand. My door hadn’t been across from room 203 when I went to sleep, but that didn’t really mean anything. Maybe Manny was right, I shouldn’t talk to them, it just drew their attention. He never seemed to get these special shows. 
+The brief yelp woke me, I checked the clock, 3:47 am. Groggily, I rose from the bed and went to the peephole. Nothing would compel me to unlock that door, but I was curious. Across the hall from my door, I could see Jessi Anderson, standing in the hall, hand over her mouth, staring at Mr. Templeton, who was just emerging from his room, a pack of cigarettes in his hand. My door hadn’t been across from room 203 when I went to sleep, but that didn’t really mean anything. Maybe Manny was right, I shouldn’t talk to them, it just drew their attention. He never seemed to get these special shows.
 
 “Jessi, is that you?” Templeton’s voice was low, but it carried in the quiet hall.
 
@@ -320,39 +320,39 @@ She pushed him away,
 
 “I told I’m not leaving my husband for you, Mark. I’m not going to be the wife of a starving artist. We talked about this. Fortunately, this stupid stunt of yours didn’t tip Brad off. Your art is so shit he couldn’t even recognize it was me in those paintings.”
 
-“You said you liked my paintings, Jessi,” he looked like a kicked puppy. 
+“You said you liked my paintings, Jessi,” he looked like a kicked puppy.
 
 “Mark, you are only good at one thing, I think we both know that,” her voice dripped disdain. “Now, get out of here, before Brad sees you.”
 
 “Too late, Jessi.”
 
-They both turned to see Brad Anderson, standing in the door of room 201. I caught the gleam of silver in his hand. 
+They both turned to see Brad Anderson, standing in the door of room 201. I caught the gleam of silver in his hand.
 
 “So, this is him, then? The guy you’ve been screwing behind my back?”
 
 “What, no, Brad. I don’t even know who this is. I just ran into him in the hall…”
 
-“Save it. I heard everything, Jess. How stupid do you think I am?” he took a menacing step forward. 
+“Save it. I heard everything, Jess. How stupid do you think I am?” he took a menacing step forward.
 
-I looked down at my phone and for a brief, mad instant I considered trying to call 911. Of course, I had no signal, and even if I did the call would never be answered. They would never find the place, anyway. 
+I looked down at my phone and for a brief, mad instant I considered trying to call 911. Of course, I had no signal, and even if I did the call would never be answered. They would never find the place, anyway.
 
 “Brad, please, it isn’t what it looks like.”
 
 “Just tell him, Jessi,” Mark interrupted. “Tell him you love me, not him. Tell him you spend every night he works late, in my bed. Tell him.”
 
-Jessi Anderson was frozen between the two men, unable to speak, her mouth simply opening and closing wordlessly. Brad stepped past his wife, towards Mark Templeton. The younger man didn’t back down, he poked a finger into his chest. 
+Jessi Anderson was frozen between the two men, unable to speak, her mouth simply opening and closing wordlessly. Brad stepped past his wife, towards Mark Templeton. The younger man didn’t back down, he poked a finger into his chest.
 
 “She loves me. You know what we talk about when I am screwing her? How pathetic you are. How you can’t satisfy her. We laugh at you, Anderson.”
 
-Brad’s face darkened, twisting into something ugly and frightening. Without breaking eye contact, he plunged the knife into Templeton’s stomach. The other man gasped, staring with disbelief at the blade protruding from his body. Brad Anderson twisted the knife, then yanked it out and Mark collapsed to his knees. That was when Jessi started screaming. 
+Brad’s face darkened, twisting into something ugly and frightening. Without breaking eye contact, he plunged the knife into Templeton’s stomach. The other man gasped, staring with disbelief at the blade protruding from his body. Brad Anderson twisted the knife, then yanked it out and Mark collapsed to his knees. That was when Jessi started screaming.
 
-“What did you do? What did you do?” she repeated hysterically. 
+“What did you do? What did you do?” she repeated hysterically.
 
 Brad said nothing, he just stared blankly at her. With no response from him, she turned to Mark, he was on the ground now, blood bubbling from his lips and pooling in a dark circle on the ground around him. That was going to be difficult to get out of the carpet.
 
 “This is all your fault,” she shrieked at his body. “Why did you have to come here? Why did you have to ruin everything? After you seduced me, made me stray, you come here and do this? And you,” she turned back to Brad. “So what if I was sleeping with him? I wouldn’t have done it if you didn’t neglect me. If you didn’t abandon me for your work. If you could have fulfilled my needs. This is as much your fault as it is his! Losers, both of you! I deserved better!”
 
-Brad dropped the knife and turned away, walking back into room 201. Jessi picked up the blade and followed him, still screeching at his back. 
+Brad dropped the knife and turned away, walking back into room 201. Jessi picked up the blade and followed him, still screeching at his back.
 
 “None of this is my fault. You both made me do this. What right do you have to be upset? I am the one who should be angry. I am the victim here…”
 
@@ -360,7 +360,7 @@ The door to 201 closed behind them and I could no longer make out the words, but
 
 “Thank you for your hospitality, inn keeper. But I won’t be needing the room anymore.”
 
-Then, she blinked, and her eyes were back to normal. She turned and walked slowly down the hall, leaving a trail of wet blood behind her. I finally stepped away from the peephole and crawled back into my bed, trembling under the covers until sleep took me. 
+Then, she blinked, and her eyes were back to normal. She turned and walked slowly down the hall, leaving a trail of wet blood behind her. I finally stepped away from the peephole and crawled back into my bed, trembling under the covers until sleep took me.
 
 In the morning I emerged into the back hall, where I should have been all along. I almost convinced myself that the events of the previous night had only been one of the usual nightmares, but when I entered the lobby, the bloody prints of bare feet going down the main stairs and out the front door made it clear it wasn’t. Upstairs, the body of Mark Templeton lay in a puddle of congealed blood in the hallway. Inside room 201 I also found the body of Brad Anderson. Well, most of the body. I couldn’t find his head anywhere. I returned to the desk and pressed the button to call Manny, I would need his help to move the bodies. He surveyed the carnage, then turned to me,
 
@@ -376,7 +376,7 @@ He shrugged,
 
 “How would I know? We should hurry and get this cleaned up, before anyone else arrives.”
 
-It took hours, but we managed to get everything back in order. I was back in my room, changing into a clean uniform when I looked down at my cell phone on the bed. On a whim, I picked it up and dialed my sister’s number. To my surprise, it actually connected. 
+It took hours, but we managed to get everything back in order. I was back in my room, changing into a clean uniform when I looked down at my cell phone on the bed. On a whim, I picked it up and dialed my sister’s number. To my surprise, it actually connected.
 
 “Hello?” I could barely make her voice out through the static.
 
@@ -422,11 +422,16 @@ There was a moment of silence and I worried I had lost her, but then she replied
 
 “Bye Lucy.”
 
-She hung up and I stared at the phone in my hand for a long time. 
-
+She hung up and I stared at the phone in my hand for a long time.
 
 I wonder, when did I get so disconnected from... everyone? So much so that no one even really noticed I was gone. Manny has this theory that those of us that get stuck, the staff, get stranded here because we don't belong anywhere else. We didn't fit in, in our own lives, and so we don't have strong bonds to anyone, to guide us back from the Resort. So, that's why I thought maybe, if I post these journals for people to see, that could help me feel more connected. Maybe find my way back, someday. The internet here is kind of spotty, like the phone signal, so I don't know how often I will be able do this, or respond to comments, but i will try to update when I can. And to anyone reading this: thanks, I think it helps. Well, I am going to post this now, I hope it goes through, because I just heard the bell and that means there are more guests to greet.
 
 Until next time,
 
 Lucy
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/10y9aaq/the_last_resort_the_house_always_wins/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/11441tm/the_last_resort_murder_mystery_weekend/?utm_source=share&utm_medium=web2x&context=3)
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/11ba09t/the_last_resort_i_think_im_in_trouble/?utm_source=share&utm_medium=web2x&context=3)

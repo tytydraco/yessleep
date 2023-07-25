@@ -1,0 +1,16 @@
+At first I thought it was just me going insane, but now i’m sure.
+
+One day I was heading for work and as I turned on the engine, I heard a glass shatter inside my house. I ignored it.
+
+I had arrived to work and I was working at a Taco Bell, it was going all in normal fashion and business was normal, and then a customer came up to me to alert me of a sound he heard up in the attic. I passed it off as a prank until another one came after him and asked me who was sleeping in the Taco Bell bathroom floor. I thought it was a prank but I was quite concerned, so I went and checked it anyway, I had slid the door open and heard an irritating snore. I peeked through and saw someones shoes, I was intrigued and opened the door fully and it revealed a sleeping man on the floor. I had kicked him out and as I escorted him out he told me “This won’t be the last time you see me.” 
+
+7 hours later I has arrived home. I went to take a shower and left my phone on my dresser. As i showered I heard footsteps but i thought it was all in my head. After i finished I headed to put on my clothes and I noticed something. My phone was not where I put it. I had become suspicious by this time and I just went to sleep. I awoke at 3:33 AM to a sound of a man under my bed, I checked and there was a hole now under my bed and I figured how it could of been, since my bedroom was on the first floor, I moved my bed and found a tunnel of dirt dug up that lead into my backyard. I called my brother and I stayed over for the night. I came back home after 1 week and the strange things had stopped. But I was surprised when I saw a yellow car in my driveway. I called the cops and they only took it out and told me it was probably my neighbors car. 
+
+This was a year ago. Nothing strange happened until this month. I was at a halloween party and I saw the costumer who I kicked out of the TacoBell spying through the window. I chased him down and he was nowhere to be found. I was beyond terrified. The party was now over and I was gonna go in my car to get back home, then I saw that someone had wrecked my car! Thankfully I didn’t live that far so I thought I could walk back home.
+
+It was getting late and I was lost in the middle of the woods, I found a cabin and thought I could stay there for the night since it looked abandoned, I walked inside and found the floor painted red by one of my friends blood, a chainsaw lied next to him, and I saw the sleeping man outside, I now call him the Watcher, I was horrified by the sight and unable to think of what decision to make, I called the cops.
+They framed me and put me in prison, I escaped and won’t get into detail, but after i escaped I bought a new identity
+
+
+I got a new name and I opened a bowling alley, Business was good until one day I was alone inside thinking of how I got here then I heard someone close the door on me and I got locked inside, I had a spare key though, I used it to open the door and asked who was there, then I got shivers down my spine. As I write this, I stare into the glass reflection of me and the Watcher behind me as he holds a knife
+Run.

@@ -278,4 +278,4 @@ Is Manny still coming? I don’t think he’ll find me in the basement.
 
 I’ve been pounding the door. No one answers.
 
-It took Gregory. It took Susan. It took Susan. It took Susan.
+It took Gregory. It took Susan. It took Susan. [It took Susan.](https://www.reddit.com/r/QuincyLee/comments/11nxwz3/welcome_thanks_so_much_for_stopping_by/) 

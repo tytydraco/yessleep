@@ -1,0 +1,25 @@
+Joey Evanston was nice. In high school, it's rare to find someone who's genuinely kind to others. Joey Evanston would go out of his way to help you if you dropped your books, needed a dollar extra to pay for lunch, or needed help with some homework. Joey Evanston is the type of guy you reach out to, for anything. One story I remember, about Joey Evanston, is when he saved the school's musical from ending in chaos by climbing to the top of the auditorium and fixing the speakers in less than ten minutes. 
+
+Joey Evanston was nice, and that was easy for people to prey on. In high school, there's always someone who's guaranteed to be an asshole. Brian Cavonia would go out of his way to push Joey Evanston or make fun of Joey Evanston's mom for her cancer, or mess up his projects, but Joey Evanston still kept a smile plastered on his face. Brian Cavonia is the type of guy who everyone hates but is too scared to stand up too. One story I remember, about Joey Evanston, is when Brian Cavonia tripped him down a flight of stairs, and he broke his leg, yet Joey Evanston didn't snitch. 
+
+Joey Evanston was nice, and that made Joey Evanston seem happy. In high school, there's plenty of problems people have, and Joey Evanston had a mental one. Joey Evanston's mom died a week before it happened. Joey Evanston started blowing off his classes. Joey Evanston seemed completely fine. Joey Evanston is the type of guy who seemed completely fine. One time I remember, Joey Evanston broke down in class the day before it happened, he ran out of the class to the bathroom. The teacher continued the lecture, and nobody checked on him. I could've checked on him. 
+
+A month ago today, at 12:22 PM, Joey Evanston got on top of a lunch table and just started screaming at random people. At 12:23 PM, Joey Evanston pulled out an M9 Beretta his dad used while on his deployment. People ran out of the cafeteria, hid under tables, called the police, and filmed Joey Evanston. Approximately forty-two cameras were on Joey Evanston when he put the gun against his head. I was frozen at my lunch table, staring upward at Joey Evanston. The screaming and panic had stopped, it was completely silent except for the breathing of the students in the cafeteria. 
+
+Joey Evanston looked down at me, from atop my lunch table, and told me four words. 
+
+"This isn't your fault." 
+
+Joey Evanston shot himself in the head at 12:25 PM. A piece of his scalp made its way into my lap, his blood splattered against me, other students, tables, the floor. The floor was red, completely red. Pieces of Joey Evanston's brain were in my hair, on my shirt, everywhere. A quarter of Joey Evanston's head was gone. Joey Evanston's body fell off the table, the gun still in his hand as he lay on the floor. 
+
+Joey Evanston was quiet, and the lunchroom was too, until Heather Ophelia screamed. Then more people screamed, more running, and more fear. Fear. Fear had frozen me in place, I sat with a soda can in hand, holding on to the tables bench, next to Joey Evanston's body, drenched in blood. The police had to drag me away from the scene, attempting to console me as they did. 
+
+A week later, school was back in session, and I had to sit at the same table I sat at when Joey Evanston put a bullet in his own head. I sat in my seat, and Brian Cavonia sat on the school's roof. Brian Cavonia wore his signature letterman jacket, previously stained with blood from Joey Evanston, now drenched in his own. Brian Cavonia's body was found by the school's janitor, Mr. Victor. Brian Cavonia was face down, on top of the principals now crushed car. Mr. Victor quit the next day. 
+
+A week later, Mr. Evanston, Joey's dad refilled his bottle of painkillers at the local pharmacy. People at the pharmacy said their condolences, and Mr. Evanston accepted them, like he had done when his wife had died. Mr. Evanston was a soldier; he'd made it through war. He'd made it through his wifes death, with his son. Mr. Evanston had nothing left when Joey Evanston killed himself in the middle of the school cafeteria. Mr. Evanston took out a bottle of his favorite whiskey and downed it with his pain killers. They found his body two days later, sitting on the floor of his bathroom, hand around the neck of the bottle of alcohol. 
+
+A week later, I thought about what Joey Evanston had said to me. He wanted me to know it wasn't my fault. I'd known Joey when I was really young, and sort of looked up to him. We started growing more distant, but still talked to each other from time to time. That's when I realized that Joey Evanston might've been nice to other people, but people weren't nice back to him, I was, though. I was Joey Evanston's only friend. Joey Evanston's death was my fault, and I know it, and he knows it, and everyone else knows it. 
+
+Joey Evanston was an inspiration, someone to follow in the footsteps of. 
+
+I've decided that I'm going to follow in the footsteps of Joey Evanston.

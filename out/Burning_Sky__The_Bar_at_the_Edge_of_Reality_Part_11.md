@@ -1,6 +1,6 @@
 Now that you know why Henri [responded the way he did](https://www.reddit.com/r/nosleep/comments/10ofz73/the_girl_of_henris_dreams_the_bar_at_the_edge_of/?utm_source=share&utm_medium=web2x&context=3)—and now that I’ve been able to take a breather following the whirlwind of a conversation we had—I’m ready to tell you about what happened between me, Henri, and Asher at the bar.
 
-To be honest, relaying Henri’s story was kind of a relief. My head was still reeling from everything we that happened, and it was nice to take a moment to process it before throwing myself into writing about it. 
+To be honest, relaying Henri’s story was kind of a relief. My head was still reeling from everything we that happened, and it was nice to take a moment to process it before throwing myself into writing about it.
 
 But now, let’s do this thing.
 
@@ -26,7 +26,7 @@ Henri frowned, though his gaze was focused on something else far beyond the room
 
 “Not ever,” corrected Henri quietly. And then he told us everything that I’ve already relayed to you: his childhood, his wife, the tragedies he’d experienced and the actions he’d taken as a result. “I’ve regretted it ever since,” he said solemnly when recalling the exile of Asher’s kind. “An individual’s deeds do not reflect that of his people. I should not have punished all of you.” He closed his eyes, and I swear I saw a tear trail down Henri’s cheek. I’d never seen him cry before. “Until now, I believed your race to be extinct, and I considered myself the cause.”
 
-When he finished, the silence stretched once more, deafening in its stillness. I didn’t know what to say. I’d heard about Henri’s past before, but never in as much detail as he’d just shared. I’d never heard the parts about the harbingers. 
+When he finished, the silence stretched once more, deafening in its stillness. I didn’t know what to say. I’d heard about Henri’s past before, but never in as much detail as he’d just shared. I’d never heard the parts about the harbingers.
 
 Asher was the one who broke it. His dark eyes had been wide, sorrowful, though no tears fell. I wondered if he *could* cry. Suddenly, he got to his feet, shoving his chair back, and in two quick steps had moved around the desk. To my surprise—and Henri’s, too, I think—Asher reached his arms around my uncle, hugging him.
 
@@ -50,13 +50,13 @@ Asher looked at me. “Yeah. I didn’t know anyone could exist in both dimensio
 
 “And maybe the murderer,” I pointed out. “What a fun thing to have in common.”
 
-Henri sighed again, but this was the exasperated kind I knew all too well: the sigh I’d heard throughout my childhood that meant *I’m too good a father figure to outright tell my kid to shut up, but I’m sure thinking it.* 
+Henri sighed again, but this was the exasperated kind I knew all too well: the sigh I’d heard throughout my childhood that meant *I’m too good a father figure to outright tell my kid to shut up, but I’m sure thinking it.*
 
 I shut up.
 
 “An interesting idea, though,” Henri mused. “Something else believed not to exist, its details lost to time and a fading of faith. But that doesn’t mean it *can’t* exist.”
 
-So he *did* know about the Ancient One! I wasn’t surprised. All those books in his office, all the history he’s studied in his thousands of years. Of *course* he must’ve heard of it. 
+So he *did* know about the Ancient One! I wasn’t surprised. All those books in his office, all the history he’s studied in his thousands of years. Of *course* he must’ve heard of it.
 
 Asher, meanwhile, was looking like an eager puppy who hears its owner’s keys in the lock. “You think the Ancient One exists?”
 
@@ -66,25 +66,25 @@ I knew what he meant: the murderer, and *me.* Maybe the Ancient One would have a
 
 Of course, there were still a lot of steps between us deciding it could help to actually finding this Ancient One and getting said help. “Not to dampen the excitement,” I said, “but if it’s never been seen in all of history, how the hell are we going to track it down now?”
 
-Henri smiled, and the skin around his eyes crinkled. I liked when his smile reached his eyes. “I’ve got some ideas that might help.” 
+Henri smiled, and the skin around his eyes crinkled. I liked when his smile reached his eyes. “I’ve got some ideas that might help.”
 
 He was reaching for one of the many drawers of his desk when suddenly we heard a scuffling noise directly outside the door, immediately followed by quiet cursing. Asher leapt not only to his feet, but also vertically up and onto his chair, crouching there like a scared demonic cat. I would’ve laughed, if my heart hadn’t nearly stopped in panic. Something told me that anyone else finding out about Asher wouldn’t go as well as the discussion with Henri.
 
-But I breathed a sigh of relief when Henri opened the door with a knowing sigh, revealing none other than Milo, leaning against the wall, deliberately staring at the ceiling and whistling—aka the most suspicious-looking attempt to look non-suspicious I’d ever seen. 
+But I breathed a sigh of relief when Henri opened the door with a knowing sigh, revealing none other than Milo, leaning against the wall, deliberately staring at the ceiling and whistling—aka the most suspicious-looking attempt to look non-suspicious I’d ever seen.
 
-“I know your parents have taught you not to eavesdrop on conversations that do not concern you,” said Henri. 
+“I know your parents have taught you not to eavesdrop on conversations that do not concern you,” said Henri.
 
 Luckily, Milo has spent enough time at [Griffin's Edge](https://www.griffinsedgebar.com/) to remain unfazed by anything me or Henri could say.  “Oh, they did,” he said cheerily. “But fortunately, I haven’t listened to their advice since I was eight. That’s why I’ve turned out so well.” He stepped past Henri, wandering into the room as casually as if he’d been invited. “Ian! Lovely to see that you’re alive. Not as big a fan of the new neck tattoo.” He gestured at his own neck, making a face. “And you! Charmed to make your acquaintance. Sounds like you’re quite an interesting influence.” He grabbed Asher’s gloved hands—despite Asher’s stony stare—and shook them up and down vigorously. “So am I. But I’m sure there’s room for two of us.”
 
-I met Henri’s eyes and shrugged. He muttered something under his breath but simply closed the door, this time locking it, before heading back to his desk. 
+I met Henri’s eyes and shrugged. He muttered something under his breath but simply closed the door, this time locking it, before heading back to his desk.
 
 After several solid seconds of handshaking—if you could call it that—Asher pulled his hands away, looking between me and Milo pointedly with raised eyebrows. “…And you are?”
 
-“Oh, sorry, this is Milo, my best friend,” I explained at the same time as Milo bowed deeply and said, “Milo, at your service!” 
+“Oh, sorry, this is Milo, my best friend,” I explained at the same time as Milo bowed deeply and said, “Milo, at your service!”
 
-Asher, not unlike Uncle Henri seconds before, shook his head and muttered something that sounded an awful lot like a curse. No wonder he and Henri were getting along so well. Shared exasperation over me and Milo must be an excellent bonding experience. 
+Asher, not unlike Uncle Henri seconds before, shook his head and muttered something that sounded an awful lot like a curse. No wonder he and Henri were getting along so well. Shared exasperation over me and Milo must be an excellent bonding experience.
 
-“You were listening?” I asked as Milo sat on the floor between my and Asher’s chairs. 
+“You were listening?” I asked as Milo sat on the floor between my and Asher’s chairs.
 
 He scoffed. “No.”
 
@@ -92,13 +92,13 @@ I smacked him.
 
 “Yes,” he corrected, rubbing his arm and shooting me a glare. “I saw Henri drag you and your mysterious stranger friend—still haven’t gotten your name, by the way—through the bar so fast you nearly broke the sound barrier. I figured it had to be important. I’d never heard him yell like that.” He nudged my shoulder. “Plus, you weren’t at the bar when it opened this morning. I was already worried about where you’d been.”
 
-“Thanks,” I said quietly. 
+“Thanks,” I said quietly.
 
 There was a pause before Asher, slowly relaxing enough to settle back onto the arm of his chair, begrudgingly said, “I’m Asher.”
 
 “Cool, cool, cool,” said Milo. “Thanks for saving Ian’s stupid ass when I wasn’t there to do it.”
 
-Apparently this won Asher over; he laughed out loud. Even Henri cracked a smile. “Someone had to.” 
+Apparently this won Asher over; he laughed out loud. Even Henri cracked a smile. “Someone had to.”
 
 “Glad we can all bond over me being an idiot,” I said. “Really enjoying that. *Anyway,* didn’t you have some ideas or something, Uncle Henri? That’s a *way* more interesting topic.”
 
@@ -108,7 +108,7 @@ Luckily, Henri was apparently on board, because he simply chuckled and reached f
 
 He *still* didn’t get to open it, because suddenly there was another disturbance at the door. Only this wasn’t just a scuffle outside; this time, the door burst inward with such force that one of its hinges exploded, leaving it hanging there lopsided. So much for Henri’s effort to lock his office door.
 
-This time, I felt no relief at the newest visitor—just a panicked heart beating as frantically as a butterfly in a cage, and blood running like barely-thawed ice in my veins. I knew her: an ancient nature spirit who went by the name Sky. She was in Henri’s group of ancient friends, one of the oldest beings alive today, one of the few who had been around as long as Henri. And while I’d known her all my life, it didn’t change the fact that she was incredibly powerful, or that she currently looked incredibly pissed. 
+This time, I felt no relief at the newest visitor—just a panicked heart beating as frantically as a butterfly in a cage, and blood running like barely-thawed ice in my veins. I knew her: an ancient nature spirit who went by the name Sky. She was in Henri’s group of ancient friends, one of the oldest beings alive today, one of the few who had been around as long as Henri. And while I’d known her all my life, it didn’t change the fact that she was incredibly powerful, or that she currently looked incredibly pissed.
 
 And like I’ve said before, pissing off powerful inhuman beings? *Never* a good idea.
 
@@ -118,13 +118,13 @@ As she stepped inside, winds whipped around us, blowing pages off Henri’s desk
 
 Henri calmly got to his feet. “You know I regret the haste of those actions. Surely it has been long enough to let our grudges dissolve. I do not mean to undermine you.”
 
-“And yet you hurried him away from the public eye to sneak around in your office,” she snarled. I had never seen Sky so angry, and it was terrifying. 
+“And yet you hurried him away from the public eye to sneak around in your office,” she snarled. I had never seen Sky so angry, and it was terrifying.
 
 “I had good reason,” began Henri. I heard the effort in his voice, how much he was restraining himself to stay calm. “I—”
 
 “Enough,” hissed Sky. “The punishment for leaving the dark forests was clear. Harbingers are too dangerous for our society. If the murders were a mystery before, they are no longer, now that we know his kind endure. You seem to have forgotten your place, old friend, but I have not.”
 
-Then, before any of us could react, she had swept forward and vanished in a swirling whirlwind…and when the air settled, she was gone. 
+Then, before any of us could react, she had swept forward and vanished in a swirling whirlwind…and when the air settled, she was gone.
 
 And so was Asher.
 
@@ -150,7 +150,7 @@ Immunity to fire sure would be nice right now! Why couldn’t any of my oddities
 
 But maybe it was worth it. After all, Asher had saved my life multiple times already.
 
-Cursing, I was about to suck it up and fire off a shot into Sky’s chest when a hand on my shoulder pulled me back. As I began to turn, a wave of chlorinated water swept past me, rising from the pool and collapsing onto a section of the flames with a quenching *hiss.* 
+Cursing, I was about to suck it up and fire off a shot into Sky’s chest when a hand on my shoulder pulled me back. As I began to turn, a wave of chlorinated water swept past me, rising from the pool and collapsing onto a section of the flames with a quenching *hiss.*
 
 I looked back to see Milo, eyes glowing blue like sapphires behind his glasses. He let go of my arm. “Get in there!” he said. “She’s a lot stronger than I am, I can’t quell her fire for long!”
 
@@ -162,7 +162,7 @@ Both Sky and Asher turned to look at me; Asher’s dark eyes were scared, while 
 
 The vines tightened; Asher’s face was turning gray as they squeezed his neck and chest. Sky simply chuckled. “Of course he is. His kind don’t know any different. They were *made* for death.” Her voice echoed with the memories of thousands of years.
 
-I thought of Asher sitting casually on a tree branch, laughing; of Acacia teasing me for thinking they ate people while she put a kettle on the stove; of the other harbingers I’d seen living happily in their village. They deserved to exist just as much as anybody else. And I’ve met plenty of beings *way* more evil than Asher—say, that nasty vampire who tried to drain me dry when I was thirteen. No comparison. 
+I thought of Asher sitting casually on a tree branch, laughing; of Acacia teasing me for thinking they ate people while she put a kettle on the stove; of the other harbingers I’d seen living happily in their village. They deserved to exist just as much as anybody else. And I’ve met plenty of beings *way* more evil than Asher—say, that nasty vampire who tried to drain me dry when I was thirteen. No comparison.
 
 “HE HASN’T KILLED ANYONE!” I yelled. “HE SAVED MY LIFE!”
 
@@ -172,21 +172,21 @@ My fear was suddenly overtaken by anger. All I could think of was Henri being to
 
 The shot seemed to take her by surprise; everything froze for a moment when it hit her. The flames faded to embers, the leaves blowing in the wind sat still in the air, the vines around Asher loosened.
 
-But only for a moment. 
+But only for a moment.
 
 Then Sky screamed, an awful inhuman sound, and everything resumed more intense than before. The ring of flames grew taller and hotter, scorching my skin even from several feet away, and the vines tightened around Asher so much that his eyes bulged as he lost all air.
 
-Sky threw out an arm and a tendril of ivy followed, wrapping itself around my neck and immediately constricting, lifting me off the ground as it did. The pressure, coupled with the pain of the handprints already lingering on my skin, nearly caused me to black out. 
+Sky threw out an arm and a tendril of ivy followed, wrapping itself around my neck and immediately constricting, lifting me off the ground as it did. The pressure, coupled with the pain of the handprints already lingering on my skin, nearly caused me to black out.
 
-Black spots danced across my vision as my feet dangled in the air. I tried to scrabble for the ivy around my throat with my free hand, but I couldn’t get a grip; my fingers just dug into my neck, making the pain even worse. 
+Black spots danced across my vision as my feet dangled in the air. I tried to scrabble for the ivy around my throat with my free hand, but I couldn’t get a grip; my fingers just dug into my neck, making the pain even worse.
 
 My thoughts were quickly dissolving into an oxygen-less blur of confusion. The edges of my vision were darkening—the smells of smoke and chlorine were overwhelming—Asher’s gasps for breaths mimicked my own—
 
-Another screech interrupted the mess of senses, but this one sent a wave of comfort through me; it was the screech of a griffin. And there’s only one of those left in the world: my uncle. 
+Another screech interrupted the mess of senses, but this one sent a wave of comfort through me; it was the screech of a griffin. And there’s only one of those left in the world: my uncle.
 
-The ivy immediately retreated, dropping me to my knees on the concrete. Gulping in air, wincing at the aching in my neck, I glanced over to see that the vines had retreated too. Asher, breathing heavily, was sitting up. 
+The ivy immediately retreated, dropping me to my knees on the concrete. Gulping in air, wincing at the aching in my neck, I glanced over to see that the vines had retreated too. Asher, breathing heavily, was sitting up.
 
-Henri, meanwhile, in his natural form, had attacked Sky. Or, at least, pinned her to the ground, talons buried in her shoulders. He screeched again in her face, twisting his talons in deeper. Asher pulled me to my feet as she grimaced, the flames and wind collapsing around us. 
+Henri, meanwhile, in his natural form, had attacked Sky. Or, at least, pinned her to the ground, talons buried in her shoulders. He screeched again in her face, twisting his talons in deeper. Asher pulled me to my feet as she grimaced, the flames and wind collapsing around us.
 
 “I need to leave,” he said in my ear. He was right. I nodded and let him pull me away from the pool, glancing back nervously at Sky struggling under Henri. Milo appeared on my other side, keeping stride as we hurried across the patio.
 
@@ -204,4 +204,4 @@ Henri gave me the tiniest flicker of a smile, but as soon as his eyes returned t
 
 Sky screamed again, and fire sprung up around the pair of them once more, a taller wall than before, enough that I could no longer see either her or Henri. My heart ached to stay and help, to make sure Henri was okay in there, to hug him after it was over. But I heard his roar, saw the explosion of lilac smoke as he transformed, and knew what he would say: *Go. Get Asher to safety. This is my fight now.*
 
-So with one last glance at the fire, I turned and ran after Milo and Asher into the silver fog, away from the only home and family I’d ever known.
+So with one last glance at the fire, I turned and ran after Milo and Asher into the silver fog, away from the only home and family I’d [ever known](https://www.reddit.com/r/nosleep/comments/11044k6/venom_in_my_veins_the_bar_at_the_edge_of_reality/?utm_source=share&utm_medium=web2x&context=3).
