@@ -54,7 +54,7 @@ for posts in post_generators:
             posts_map['posts'].append({
                 'title': post.title,
                 'author': author_name,
-                'timestamp': int(post.created_utc),
+                'timestamp': int(post.created_utc) * 1_000,
                 'permalink': post.permalink,
                 'content': post.selftext
             })

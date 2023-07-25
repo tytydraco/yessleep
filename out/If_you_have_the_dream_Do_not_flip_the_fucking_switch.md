@@ -1,3 +1,4 @@
+1.00-A.M. July 25th
 Let me get one thing straight with you guys. I will not be here in two days. I need to get my story out. And hopefully help whoever I can avoid this creature somehow. I can only post once every 24 hours. That gives me a total of 48 hours of dealing with it. She’s waiting, and I am not going to stay in this hell hole till I starve or lose my sanity. 
 
 Wherever my man is, I want to be there too. 
