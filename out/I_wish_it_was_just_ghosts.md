@@ -148,6 +148,6 @@ At first I didn't understand, but then my eyes widened with horror.
 
 "The boy had no name… that's why I couldn't find him, Eve." My uncle looked full of remorse.
 
-I dropped my fork on the table to suppress a desperate cry. My son was muffled by my hand, clamping down hard on my mouth.
+I dropped my fork on the table to suppress a desperate cry. My sob was muffled by my hand, clamping down hard on my mouth.
 
 "You invited it into your life, Eve. It's unfortunate, but… these things are hard to get rid of."
