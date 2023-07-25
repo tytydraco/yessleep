@@ -95,7 +95,7 @@ The Leshy proceeded towards us, his steps completely silent. I had already had a
 
 The creature's voice chilled me like the icy forest wind. I felt one of its long, wooden fingers reach out to touch my face, tipping my chin up and forcing me to look up at it. 
 
-"Forgive us, my Lord," I said quietly, holding the beast's red gaze.
+"Forgive us, my Lord," I said quietly, holding the beast's gaze.
 
 *"Then will you let me have this mortal?"*
 

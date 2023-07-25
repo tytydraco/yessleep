@@ -1,0 +1,15 @@
+I believe my parents will check me into a psychiatric institution. Why? It all started a year ago. I had just begun college, and I've been doing really well, but the only problem is that I frequently stay up all night working on something, and as a result, I'm constantly exhausted and doze off in the most random locations, like the library, the park, and occasionally when writing something. I received a call one day. A car hit my brother. He passed away. I was present at the funeral. My parents were extremely upset. My dad comforted my mom as she sobbed.
+
+My brother and I never really had a close relationship. When he was born, I was 13 and didn't give a damn. The funeral, however, seemed to have a strange energy surrounding it. I'm unsure of how to convey it. Whatever it was, I found it to be uncomfortable. My dad noticed I was on edge and asked me,
+
+"Ethan? Are you feeling, ok?" asked my dad.
+
+"Yeah... I'm fine. I just feel weird." I said.
+
+"Well, go home. You need a good rest." said my dad.
+
+He was right. After being up all night studying for a test, I wanted a decent night's sleep. I crossed a highway on my way home, which isn't frequently very busy. It was becoming somewhat hazy. When a car passed, I caught a glimpse of my brother's face through the back window. I froze and stared at the hazy highway. What was that? I was certain I wasn't crazy. It appeared too real to be a mirage. I simply swung around and sprinted back to my dorm. shutting my door with force and tossing myself into my bed. The next day, I called my mom and told her what I saw. She said that I was seeing things, but I was certain that I had seen my brother's face. My mother expressed her concern and said that I was going through some form of grief. Eventually, I got tired of it, and I hung up on her. I felt kinda ba
+
+Hm. Seems like he fell asleep. Writing to r/nosleep at twelve in the morning isn't ideal. I guess I'll continue the story. Don't ask me what or who I am. Allow me to give you his little story. He felt a little bad about hanging up on his mother, and his dad wasn't too happy about it. He tried to convince his parents that he isn't crazy. Which he certainly isn't crazy. Ethan overhears that his parents are thinking about checking him into a psychiatric ward. He believes that the strange energy around his brother's funeral is connected with his brother's face in the back of the car. Which he is actually correct!
+
+Normally, I would just keep writing, but when I woke up, I discovered that someone had written for me? It seemed to have summarized what I was going to write. Anyways, I guess I'll conclude this. I truly worry about being taken to a mental hospital. I really hope not. I also feel like... like I'm being watched. I don't know how to get out of this, and I have no idea who wrote this for me. It definitely wasn't a human, whatever it was.

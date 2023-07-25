@@ -1,0 +1,17 @@
+Saying goodbye to my grandfather for the last time wasn't easy. Ever since he's passed, I've found myself wandering through his old victorian house, seeking solace in the remnants of his life, and hoping that maybe one day he'd be sitting in his armchair again. 
+
+While walking around the house,I stumbled upon a dusty trunk in the attic. The lid creaked open, revealing a treasure trove of yarn and crochet supplies. My grandfather had been an avid crocheter, creating beautiful rugs and blankets in his spare time. Inspired by his legacy, I decided to embark on a crochet project of my own.
+
+ I wanted to make a rug, envisioning it as a final masterpiece to adorn my grandfather's beloved home. With each visit, I sat in his favorite armchair, weaving the yarn together, stitch by stitch. It was therapeutic, a way to keep his memory alive. I felt connected to him, almost like I had him back with me. 
+
+As the weeks passed, though, I noticed something peculiar. Every time I returned to the house to crochet, the rug appeared more complete. Rows of intricate patterns seemed to materialize overnight. At first, I dismissed it as my forgetfulness, assuming I had overlooked those sections. But as the rug seemingly continued to progress on its own, doubts and unease gnawed at me. So one evening, driven by curiosity and also a bit of fear, I decided to document my progress. I took pictures of the rug before leaving, hoping to prove to myself that I wasn't losing my mind. The next day, my hands trembled as I compared the pictures with the actual rug. The disparities were undeniable. The rug had grown even more while I was away, defying any logical explanation.
+
+I was scared and confused. Was my grief triggering delusions? I felt like I was going insane. Rugs can't grow overnight like they're some plants. I knew I had to distance myself from the house and the little grief project. I took a break, hoping that time away would bring clarity. Weeks turned into months, but the presence of the unfinished rug haunted my thoughts. What if I came back and it was completely finished? Oh, come on, there's no way, right?
+
+So after feeling overwhelmed by guilt and a desperate need to finish this project, I eventually returned to the house. With a heavy heart, I stepped through the front door. I was only thinking about how I needed to get it together or else my rug would never get finished. But the house felt different, and I felt extremely uneasy and unsafe. I ignored my feelings and made my way to the room where I had left the rug.
+
+To my horror, sitting in my grandfather's armchair, was my grandfather himself--or at least, a twisted version of him. His appearance was sickly, his features distorted and unsettling. And there he was, crocheting my rug with a fervor that defied all reason. His hands moved with an unnatural grace, manipulating the yarn as if he had never left.
+
+A primal fear gripped me, and I stumbled backward, fleeing from the room. It couldn't be my grandfather. He was gone, I literally saw him. Unless that wasn't my grandfather, of course. At least now I know I'm not insane. Or maybe I am. Am I losing my mind completely? 
+
+Needless to say, I haven't returned to the house since, nor have I tried calling my grandfather to confirm if there is actually someone still living at that house. Is it still irrational to fear someone might actually pick up the phone?

@@ -46,13 +46,13 @@ I punched the call button beside his bed to alert the nurse.
 
 He gripped my hand even more tightly and pulled me toward him. I leaned in closely, placing my ear to his mouth. Hot breath and wheezing filled my ear.
 
-“She will come to me, blanketed in the stars!” he said firmly. 
+“She will come to me, blanketed in the stars!” he said firmly.
 
 As he spoke the words, the bright fluorescent lights above the bed sizzled and burned away.
 
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-After Dad got out of the hospital, I became his full-time caretaker. I had worked as a home healthcare nurse for a number of years, so the transition was pretty natural. 
+After Dad got out of the hospital, I became his full-time caretaker. I had worked as a home healthcare nurse for a number of years, so the transition was pretty natural.
 
 His recovery for the most part had been incredible. All of his range of motion returned. He could walk on his own. His vision was as good as it had been before the stroke. Basic tasks like tying his shoes and getting dressed presented no issues.
 
@@ -92,7 +92,7 @@ The next morning when he came out of his room, I handed him the box of chalk.
 
 “I’m sorry,” I said sincerely. “It’s your house. If you want to draw on the walls then that’s okay.”
 
-He looked down at the box in his hand and smiled. “She will come to me, blanketed in the stars?” he said questioningly. 
+He looked down at the box in his hand and smiled. “She will come to me, blanketed in the stars?” he said questioningly.
 
 “Sure, dad,” I responded. “Blanketed in the stars.”
 
@@ -126,7 +126,7 @@ Me, I’d spend my day in front of the television. While I was a great student, 
 
 Sometimes I would wake up to see the glow of the TV hitting the tiny chalk dots on the wall. It almost made the little spots sparkle like the night sky. As though my father’s artwork had come to life and embodied the very celestial landscape that danced above us.
 
-It was in the cascade of light from the television that I first started to see the sinister shapes. I knew it must have been my imagination, but thin lines seemed to grow between some of the stars, forming ghastly figures. 
+It was in the cascade of light from the television that I first started to see the sinister shapes. I knew it must have been my imagination, but thin lines seemed to grow between some of the stars, forming ghastly figures.
 
 Sleek, hunched, and snarling creatures made of tiny chalk dots seemed to prowl on the illuminated walls. The sounds of crackling plaster and groaning wood filled my ears. A chill would build at the base of my spine as crawled up to my neck as though I were an unwitting prey animal in the sights of an apex predator.
 
@@ -190,7 +190,7 @@ Blow after blow with the hatchet rained down from above my head. Flecks of paint
 
 After a few moments, I was able to make a hole large enough to put my hand through. Shoving my hand inside, I swatted blindly for the door latch. The rumbling had swollen into deafening roars, completely covering my father’s screams of horror.
 
-My hand found the lock and twisted it, allowing the door the swing in. 
+My hand found the lock and twisted it, allowing the door the swing in.
 
 I could see my father reaching toward me, eyes filled with terror. He was screaming something, but I couldn’t hear him against the cracking of plaster and splintering of wooden beams. I didn’t need to hear him know what he was saying.
 
@@ -210,7 +210,7 @@ I looked to my side and saw brilliant beams pouring from the outline of the door
 
 Even the beast turned to look.
 
-The ornate door on the wall pushed open, flooding the room with overwhelming warmth and light. I wanted to cover my eyes, but the sight was too beautiful and I couldn’t turn away. 
+The ornate door on the wall pushed open, flooding the room with overwhelming warmth and light. I wanted to cover my eyes, but the sight was too beautiful and I couldn’t turn away.
 
 On the floor at the foot of my father’s bed, the celestial abomination began to roar and writhe in pain. I looked away from the opening to see the creature melting into a pool of illumination. The waves of warmth and light from the door had driven it back to wherever it had come from, leaving the room in silence.
 
@@ -236,7 +236,7 @@ The woman took my father’s hand.
 
 “Clara,” he cooed. “I knew you would come. You’re as beautiful as you were in my dreams.”
 
-My mother and father walked hand in hand toward the door, stopping for only a moment before me. He smiled at me as a single tear rolled down his cheek as my mother bent over and caressed my face. I put my hand over hers for just a moment as she kissed the top of my head.
+My mother and father walked hand in hand toward the door, stopping for only a moment before me. He smiled at me as a single tear rolled down his cheek. My mother bent over and caressed my face. I put my hand over hers for just a moment as she kissed the top of my head.
 
 They passed through the door and it sealed shut behind them.
 

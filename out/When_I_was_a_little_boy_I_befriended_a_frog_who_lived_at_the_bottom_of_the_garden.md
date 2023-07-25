@@ -593,3 +593,5 @@ A part of me was preparing for a response, I wasn't sure how adult me would reac
 I felt tears in my eyes as I shook it off, preparing to put the frog down. But it moved closer to my face and placed its little webbed foot on my nose, tapping lightly. 
 
 The woman in the house seemed genuinely warm, as I'm sure her husband is too. But I knew in my heart; if either of them turned out to be monsters, their children would be safe for as long as they lived here.
+
+[dd](https://www.reddit.com/message/compose/?to=UpdateMeBot&subject=Subscribe&message=SubscribeMe!%20%2Fr%2Fnosleep%20%2Fu%2Fdisco-dingus)

@@ -1,0 +1,33 @@
+I live in a fairly small town, around a population of 2,000. Founded in 1879, it was a small town in the west. Let me paint a better picture for you though. The whole commercial part of town was surrounded by one central park, everything sprouting from that point outward was all residential and farm land. It was a walkable town, my dream town. The house I lived in was not too far away from this park, the park itself had one fountain in the middle with trees and walkways covering the rest of the park. It was an attraction of the town, the only one per say. But it was still a nice town nonetheless.
+
+This dream of a town turned quickly around when people began reporting a human voice coming from the drainage pipes around the park. The county police were slow to respond and never found who this person was, but it continued happening. It happened so often the county police created a search party to look through the underground of the town to find this person. To no avail, they never found the person and called off all future efforts. Almost everyone in town has heard this voice at least once, except for me.
+
+I worked a little ways out of town and wasn't home often. I never bothered to go out because I didn't have much time after work. One night after work, I decided to go and find out what the townsfolk were making such a fuss about. I went out to the park, it was November so it wasn't the warmest out. I was lightly shaking from the cold, only being illuminated by infrequent light posts. I kept moving along, with hopes of finding who this person was and what they were doing.
+
+I noticed on the other side of the park that the light bulb had died as there was darkness spanning the part of the road where a manhole cover was. While I didn't hear any voice, I did however, hear a manhole cover being slid open. My eyes were having trouble adjusting to the darkness, with me still being under street light, so I began to move slowly over towards the manhole. I saw a figure in a black coat and hat climb down in to the sewer. He slid the cover shut afterward. *This must be the person everyone's talking about*, I thought to myself as I went to go investigate. I waited a few minutes before pushing the cover aside to reveal the opening to the sewer. I slowly climbed down the ladder into the sewer careful not to make any noise.
+
+I dropped to the floor of the sewer, the sound of my impact reverberating through the concrete tunnel. I'd hoped he didn't hear me enter, I also left the manhole open to make a quick exit if need be. I crept through the expanding tunnel with nothing but a flashlight in hand illuminating the path. I continued, zig-zagging through the city's underground maze, until I reached a light. I approached with caution, it revealed a door labeled "Emergency Exit". I could hear machinery running on the other side of the door. It wasn't cutting wood nor metal. It was cutting what sounded to be meat. I opened the door slowly, hoping whatever was on the other side wasn't ready to kill me.
+
+What I saw was the opposite of what I hoped for unfortunately. It was something burned into my memory, a repurposed room for industrial use with stairs leading to the concrete floor. The man, and who I can only assume are his associates, were cutting up and bagging human remains. I saw what looked to be a familiar face too, before it was engulfed by the flaps of the machine's cover. The face belonged to a woman I'd seen on a missing person poster that was posted all over town. They spotted me and ran to capture me now realizing what I saw. They caught up to me and put a bag over my head.
+
+I couldn't see anything for the next few minutes as I was dragged around. Once the bag was pulled off my head, I appeared to be sitting in an empty storage room. There was only one light in the center of the room, illuminating where I was sitting. They looked at me and asked what I saw. I knew that if I told them that I saw anything, they would take a gun to my head and make me go missing as well, so I told them I saw nothing.
+
+"Good,"
+
+The man responded,
+
+"and make sure it stays that way. Tell anyone about this place and no amount of protection will keep you from me. Got it?"
+
+"Yes."
+
+I responded, happy that I was able to leave alive. What I was not happy about was that the man in the sewer cutting bodies was our town's mayor.
+
+I quickly ran back from where I came and closed the manhole, I was in shock as I headed back to my house. From then on, any time I saw the mayor, I kept my head down. There was a local town meeting in the park for the celebration of the day the town was founded. I took the day off of work to see friends. There was a stand and a microphone where the mayor gave a speech and where others could put on an act or say something funny in front of the entire town. The county police was over there too to regulate the event.
+
+I had a plan, I parked my car behind the stage and left it running. Once the mayor was done giving a speech, I went up after a few minutes and said as fast as I could,
+
+"The person you can hear in the sewer is the mayor. He goes down into the sewer to a room where he cuts up the bodies of missing people."
+
+Afterwards, I flew off stage to my car. I was not out of the woods yet, the mayor wasn't kidding about what he said. There were black cars lined in the streets to make sure I couldn't get out. The police were not able to catch up with what was happening in time and the mayor escaped to his car to chase after me. I, realizing I couldn't get out of the town, got out of my car and ran to the sewer where I first found the mayor. I dropped down in a hurry. The entire sewer now had its lights on. I ran down the maze turning left, right, left, right. Over and over, thinking I'd lost him. I quickly realized that I may have lost him, but now there is a flood of blood-stained water pouring into the sewer. He was attempting to drown me, I ran the other way. Grabbing onto the ladder connected to one of the manholes to escape the water. The water rose higher and higher. I knew I couldn't stay. I pushed the manhole cover out of the way and made my escape through a back-alley. Running out of the town, with the mayor thinking I was killed.
+
+It will only take a few hours for him to realize I'm not there. I don't have long, and the next town over is 12 miles away for where I am currently. With hardly any cell service, I will have to continue at a swift pace to outpace that crazy town. I don't care what I left behind at this point as long as I can escape alive with the whole town knowing the truth.

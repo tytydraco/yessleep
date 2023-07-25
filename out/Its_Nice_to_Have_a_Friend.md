@@ -1,0 +1,61 @@
+I couldn’t have been older than five at the time. There was a little park near our house in the sleepy suburb I grew up in. It was a small patch of forest flanked by semi-modern homes on each end. At its mouth was a downtrodden basketball court. Cracks shot across the concrete like varicose veins and the rusted hoops lacked any nets. Grass threatened to overtake the court as the trees loomed over a solitary bench just to its right.
+
+Just past the court was a playground. Looking back, it was somewhat pitiful. Two rusted swing sets, monkey bars, and a slide. That slide is where one of my earliest memories took place. Flaking wooden steps led up to a dented metal surface with shallow railings on each side descending to the gravel below. Between each step was a wooden board with a circular hole punched out revealing the underside of the slide.
+
+I had approached the ladder and grabbed hold on both sides. Placing a shoe on the first step, I lifted myself while reaching for the step above. I peered through the first hole. It was about as large as my head. Someone had spray-painted something indecipherable to me at the time on the bottom of the slide. Reaching upwards and grasping above myself on the ladder, I took another step up. Again, I was met with a view of the metal underside. I continued, ascending another step, one hand reaching ahead of me. As I did so, my head tilted downwards to watch my footing for a brief moment. Once I reached the next rung, my head turned forward again.
+
+Instead of the slide’s underside, something else took up the circular frame. It was a hand. Its fingers were fully spread out, palm facing towards me. Its complexion was verging on pure white. Another peculiar feature was the lack of lines or creases on the palm or any of the fingers. I remained still on the step, watching with slight confusion. The hand remained motionless. I lifted my right hand from the ladder and gave a slight wave. The hand was still for a few moments, then rapidly moved back and forth in the same waving motion.
+
+I felt a grin spread across my face. Clambering up the final few steps, I planted myself at the top of the slide. I pushed myself forward and slid down the battered metal that had been warmed by the sun. As my feet dug into the pebbles at the bottom of the slide, I picked myself up and eagerly made my way to its underside.
+
+I turned the corner. No one was there. In a mix of confusion and disappointment, I scanned the playground but found that I was alone. It wasn’t long after until my mother told me it was time to the leave. I hadn’t thought to ask her if she had seen anyone under the slide. I had just accepted that whoever was under there was gone and I was whisked away by whatever captured my limited attention span. Not long after, the playground was redone and the slide was removed. I did not give much thought to that moment for quite some time.
+
+The memory was recorded and stored in the back of my mind. There had been a few moments where I had accessed it, seemingly at random. While it was discomforting, it was distant. As time went on, I had heard theories of childhood hallucination and false memories. I chalked it up as one of those and did my best to disregard it entirely.
+
+Growing up there were many things that I wrote off as pests, old pipes, and aging floorboards. If it wasn’t one of those, I would tell myself it was not of great importance knowing anyways. Those times where the room didn’t feel so empty in the dark…that was just nerves. Those times I swear I saw something. Something that was fast and shapeless …well I had to tell myself that I didn’t see anything since such things don’t exist.
+
+But they do. I know because I saw one…and, from time to time, I still see it. There are times where it’s far off, watching me. Other times its hiding at the edge of my vision, and sometimes…I feel it leaning over me as I hold my eyes shut in bed. It was only when I saw it, completely unobscured, that I began to understand it.
+
+I hadn’t been the most popular kid in school. I had my issues and tried my best to deal with them, but some kids latch on the moment they get a whiff of vulnerability. It was during a study period I had during the school day. It was not incredibly common at my school to be given such a privilege, but I had struggled throughout most of my classes. After some convincing, I was allowed to drop an elective course in favor of catching up with the core curriculum.
+
+The halls were mostly empty with everyone else being in class. I had been on my way to the library when I was intercepted by Aaron and Nick. I had been walking down the west-most hallway leading to the library when they approached me. Of everyone who gave me a hard time, these two were the worst. They did many things to me and said even more about me behind my back. Thanks to them, anyone who I met already knew me as a freak.
+
+I should have been more alert. It wasn’t the first time they had skipped class. I had my head down, lost in my own imagination. Now, I was less than a few feet away from them. They were both wide eyed and smiling ravenously. Before I could get away, they gripped me by both arms and began pulling me in the opposite direction of the library. I began to scream for help. They slammed me against a nearby locker. Nick pulled out a box cutter and held it to my throat.
+
+“If you don’t keep your mouth shut, I’ll have to open you up.” Nick said through a grin.
+
+I begged them to let me go. They laughed.
+
+“Easy there. You’re going to be fine. All we want to do is hang out. Honest.” Aaron said.
+
+My knees trembled as they escorted me down the other side of the hallway. Nick kept the box cutter in hand within the right pocket of his leather jacket. At one point we passed a teacher. Before I had a chance to get their attention, Aaron put an arm around me as I imagine a friend might. His right hand squeezed deeply into my shoulder. I figured I would just have to submit to whatever they had planned. If I tried to get help, it would be worse the next time. It had happened before. The teacher passed by with profound disinterest. Aaron patted me and let go. I felt a light jab from the box cutter in my back and continued forward.
+
+We arrived in the cafeteria, standing just shy of the kitchen’s concession window. A door flanked its right. Aaron approached it and reached into his back pocket, producing a key. Without much thought, I stammered through asking him how he got it. He only looked back at me with a malicious smile. He slid it into the keyhole and unlocked the door, pushing it forward. I felt a hand shove my back as I reluctantly walked inside. Aaron locked the door behind us.
+
+The kitchen was unremarkable with tile flooring and steel appliances. What had caught my attention was the unbearable stench. On the counter top on the other side of the room was large plate piled with meat. The meat’s hue ranged from grey to yellowish with a visibly slimy surface. It was all spoilt. I turned to see Aaron pointing a phone camera at me. Nick grabbed my arm and spun me back around. He then lifted my arm up behind my back. I was forcibly led to the sickly gunk. He shoved me towards the countertop. I began to fall forwards. My hands darted out in front of me to stop myself. My right-hand stuck into the putrid muck. It oozed and warped around my fingers as I pressed into it. I jerked my hand backwards in horror, knocking a portion of the pile off the plate. I shouted as I tried to wipe the slime off my hand. Aaron and Nick howled with laughter. I begged them once more to let me go, but they only smiled and shook their heads.
+
+“We’ve invited you to lunch. It would be very impolite if you didn’t clean the plate.” Aaron said while chuckling.
+
+I considered screaming again. Nick, seemingly reading my mind, had begun to play with the box cutter, eyeing me from off to the side of Aaron. I looked over towards the platter of spoilt meat. I tried to find something that appeared edible, but it was no use. I picked up a gelatinous piece. It made a nauseating squishing noise as it tried to escape my grip. Aaron and Nick continued giggling. I looked down upon it in my hands, barely containing my tears. An oddly loud sloshing noise overwhelmed my senses. I thought I might be losing it as the chicken I had grabbed was now stationary in my palm…and the sound seemed to be coming from the other side of the room.
+
+Nick shouted at me to look at the camera. I reluctantly obliged.
+
+There had been a vent in the ceiling near where we entered just behind Aaron and Nick. Something was descending from it. It was like a glob of white putty. How did they not hear it? It piled into a puddle behind them then began to rise. It took on a drooping humanoid shape, but lacked any features. It rose to a height of at least eight feet. I felt the chicken slip from my hand. It hit the tiled floor with a wet smack. Nick and Aaron’s laughter died down. Nick developed a scowl. He began to threaten me, but perhaps noticing I was looking past him, he steadily turned around.
+
+Once his gaze met it, he froze at the sight of the towering figure. Nick slowly took a few steps back. Aaron turned around soon after. There was silence in the kitchen, save for that odd sloshing coming from the thing that stood between us and the door. What I assumed was its head looked from Nick, to Aaron, and then back to Nick. A slit opened across its face, its head dividing into two sections. Nick began to let out a scream but was smothered as the newly formed mouth closed upon his head. A muffled, gargling cry echoed in the kitchen as the creature flicked him upwards and sucked his entire body down into its mass. Nick was gone.
+
+Aaron slowly backed up towards me. His phone slipped out of his hand. The creature was approaching him at an undeviating pace. He backed up into me. Aaron looked back and our eyes met. The person who tormented me was gone. What I was looking at now was a wild animal caught in a trap. With both hands, he shoved me towards it. I stumbled and caught my footing right in front of it. It continued moving forward like a tidal wave about to crash down. At the last moment before contact, its mid-section split, passing around me unharmed.
+
+Aaron was in full hysterics. My eyes were locked to the floor, focused on the phone. Aaron begged for help. I reached down and picked it up. The screen was cracked, but it was still recording. Aaron could barely form a coherent sentence through his crying. I turned around just in time, the camera facing forward.
+
+Legs first, Aaron was pulled into the creature’s maw. He clawed at his surroundings, trying to find something to hold on to. It was no use. At the last moment, his eyes met mine, then the camera lens. He was devoured with one last desperate scream for help. Then it was just the two of us. Myself and that thing. I could not tell what was the front or rear of it, but in that moment, it seemed to face me. A long branch extended from its base. From that, five more smaller branches sprouted outwards. The appendage formed into something mimicking a human hand. It waved. After a moment, I waved back. It then slid into a nearby vent, leaving me alone in the kitchen.
+
+Shortly afterwards, a janitor found me alone. He had been passing by the cafeteria when he heard some sort of commotion. I got into a bit of trouble for breaking into the kitchen. Detention and such. I was given a little leeway despite being unable to reveal the location of the spare key. After all, I was the “weird kid”.
+
+No one had seen us enter the kitchen together. As for the teacher who passed by us in the hallway, he had been so preoccupied with his own thoughts that he couldn’t recall seeing us at all. Nick and Aaron’s disappearance made the new cycle for a while, but eventually people moved on. People forgot, but I didn’t.
+
+Aaron’s password wasn’t too difficult to guess. I dumped the files onto a flash drive and tossed the phone in a river. Whenever I feel down, I watch that video. I like the look in his eyes before it happens. All this time I thought I was alone, but it turns out I do have a friend…And when I need him most, I know he will be there for me.
+
+\_
+
+[x](https://www.reddit.com/r/KamaciteClover/)

@@ -1,0 +1,33 @@
+I thought about posting this in r/parenting but it’s difficult to know what to do for the best. Anyway, I’m not sleeping, so I’m giving this a go. Any constructive advice is gratefully appreciated!  
+  
+My son started trying to tell us about the boos under his bed before he could speak in full sentences. ‘Boo’ was one of his first words, along with ‘milk’ and ‘mummy’. He’d be playing in his room, sitting on his sunshine rug with a toy train, and he’d point to the shadowy space under his cot and say ‘Boo.’ My husband and I didn’t think much of it to start with. We’d look under the bed for a missing ball that had rolled under there, or a fluffy toy that had got dropped in the night, but that was about it.   
+  
+As our son got a bit older, we sometimes had difficulty getting him to settle, but that’s normal with little kids, isn’t it? At bedtime, he’d cry and cling to me and say ‘Boos! Boos!’ and sometimes he’d point to the space down the side of his toddler bed. We knew we had to be firm with him, set up good habits, and with some comforting, he’d go down eventually.  
+  
+When he was about three years old, he started to talk about them in more detail. There were boos living under his bed, he told us. They looked like small black bears, he said. So, okay, more kid stuff. We’d go through a bedtime ritual of looking under his bed, seeing nothing, reassuring him there was nothing there. We kept on insisting that nothing could hurt him, there was nothing to be afraid of. And we told him there was no such thing as a boo.   
+  
+By four years old, the boos were getting implicated in some mischief. The night light that got broken? According to our son, the boos smashed it. The boos were the ones running around in the night, not him. But again, so far, so normal. We had conversations about the importance of telling the truth, and taking responsibility for your choices. We were loving but well-boundaried parents. Our son had an imagination, we decided. No biggie.  
+  
+The shift came about six months ago when my husband was away for the weekend visiting his folks, and my son and I were alone in the house. My son is six now, and doesn’t talk about the boos anymore. I‘d thought that phase of his development had passed, thank goodness, and the boos were behind us. My son and I hadn’t gone on the trip with my husband because my son was unwell with chicken pox, and we didn’t want to pass it on to our relatives. On Saturday night, my son was miserable, scratching and crying, so I brought him in with me for the night. He slept fitfully, and I lay next to him, awake for half of the night, stroking his hair.   
+  
+That night was the first time I saw the boos.  
+  
+I must have dozed off because I didn’t see them come into my room. But at some point during the night, I heard them moving around under the bed. Frightened the life out of me, I can tell you. We don’t have a cat or a dog, or any pets for that matter, so I didn’t know what the noise was. I switched on the bedside lamp, got out of bed and crouched low to have a look.   
+  
+It's a bad habit I know, but over the years my husband and I have fallen into keeping all kinds of rubbish under the bed. The electric guitar he hasn’t played in years. A vacuum-packed bag of clothes that don’t fit me anymore and I don’t have the heart to throw away. So what I’m saying is that I couldn’t see anything at first. I climbed back into bed and turned off the bedside lamp.  
+  
+The moment I’d switched on the light, the noise had stopped, but as soon as I was back in bed with the light off, it started up again. Shifting and scratching around, kind of like footsteps, but hard to describe exactly. I just lay there in the dark with my eyes open, feeling more and more unnerved by it. But I had a sense, I don’t know why, that if I turned the light back on again, I’d scare them off and then I’d never know for certain.   
+  
+I don’t know what time it was when they started to show themselves. My eyes were acclimatising to the darkness, but even then I only saw them as vague shadows. I don’t know where my son got the idea of ‘small black bears’, but I wouldn’t say bears exactly. Bears don’t have tentacles. Bears have a defined shape. Perhaps, when he was little, and my son’s vocabulary was limited to the creatures he’d seen in his baby books, bears was the closest thing he could think of.  
+  
+Or perhaps it’s just that they defy description. Sometimes I stare at them for hours, trying to come up with the words, but the longer I try to wrap my head around the shape and substance of them, the worse I feel. Sick to my stomach, and like my grip on reality is starting to slide. That’s the reason I started drinking more during the week. Just a couple of glasses of Sauvignon Blanc a night to start with, although it’s building, and most nights recently I’ll put back a bottle. Something to take the edge off the tiredness and the overwhelming sense of dread that seems to follow me everywhere I go.  
+  
+My husband can see them too by the way. But he doesn’t like to talk about it. I think maybe he blames me – unfairly, I reckon – for bringing this into his life. So he stays at work for as long as he can, grabs a beer or four with a colleague on the way home, and tries not to go to bed sober.  
+  
+Anyway, that’s not the reason I’m posting. Something’s come up at my son’s school, and these days I don’t have the mental energy to think clearly enough about how to resolve it. It started a month or so ago when my son had a sleepover with one of his new friends. Since the sleepover, the friend’s mother has stopped speaking to me at pickup, and I don’t know why. But like I say, I don’t have the energy for school-gate politics these days, so I just ignore her, and I wasn’t surprised when my son didn’t get invited to her child’s birthday camp out.   
+  
+Then yesterday we had an email from the school, something about some ‘craze’ that had been going around my son’s class, and how a lot of the kids were scared out of their wits and having trouble sleeping. And significantly they were talking about things under their beds. The email was suggesting that parents should all talk to our children about this silliness, to calm everything down. Which I’m not going to do, obviously, because nothing good is going to come of that, is it?  
+  
+Which brings me to my question. I’ve seen how fast this thing can spread. Somehow, it’s made it all around my son’s class already. All it takes is a visiting friend or cousin to take it to another town. We don’t mix with a lot of other people ourselves these days, but I’m afraid the damage is already done. They’re out there, already.  
+  
+What do I do?

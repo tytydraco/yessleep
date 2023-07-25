@@ -316,4 +316,4 @@ I contemplated throwing the drawing in the fire, ending my son’s misery once a
 
 So instead I framed the drawing and hung it up on the wall. The glass covers the little door, making it impossible to enter it without taking the drawing out of the frame. I do think about going back inside someday, trying once again to talk some sense into my boy. But I don’t want to risk getting separated from my granddaughter. I wasn’t there for my son, but I’ll be damned if I fail to be there for her.
 
-Her fun-sized, goofball friend – the [Hoppitoss](https://www.reddit.com/r/tobiasmalm/) – can be a real nuisance sometimes, but it’s growing on me.
+Her fun-sized, goofball friend – the [Hoppitoss](https://www.reddit.com/r/tobiasmalm/comments/112r4le/i_just_released_my_novel_the_cave_to_another/) – can be a real nuisance sometimes, but it’s growing on me.
