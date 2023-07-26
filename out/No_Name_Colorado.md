@@ -1,0 +1,19 @@
+I've always had a penchant for the peculiar, the odd, the unchartered. It's what led me to No Name, Colorado, a blip on the map that you'd miss if you blinked. A nondescript place, devoid of pomp and circumstance, it was an anomaly amidst the grandiose Rockies and the vibrant cityscape of Denver. I was on a cross-country drive through the heart of America, a journey of self-discovery, or so I told myself. But in reality, it was an escape, a desperate attempt to outrun the ghosts of my past.  
+  
+No Name had two trails, the Jess Weaver and the No Name. The former was the more popular choice, a well-trodden path teeming with hikers and nature enthusiasts. But the latter, the No Name trail, it called to me. Perhaps it was the irony, or just the allure of the unknown, but I was drawn to it like a moth to a flame.  
+  
+The No Name trail wound its way by a bubbling creek, a serpentine path cutting through a dense thicket of pines. The air was cool, laced with the scent of damp earth and pine. The rustling of leaves and the distant call of a bird were the only sounds that punctuated the profound silence. I ventured further, drawn into the heart of the wilderness, away from the comfort of the beaten path.  
+  
+Then I heard it, a soft whimper carried by the wind, a sorrowful wail that made my heart sink. A young boy's cry echoing through the silence. My blood ran cold, but I forced myself forward, driven by a primal instinct to help. The cries led me deeper into the woods, away from the trail. Then, as abruptly as they started, they stopped, leaving me alone in the silence once again.  
+  
+A chill ran down my spine as I came upon a clearing. Before me lay a gaping hole, about three feet in diameter, an abyss that stretched into the earth. I peered into it, the darkness within impenetrable, infinite. It was as if the earth had opened its mouth, revealing a void that swallowed all light and hope. A sense of dread washed over me, a primal fear of the unknown.  
+  
+I needed answers, and so, with a creeping sense of unease, I retraced my steps to the property near the trailhead. An old, dilapidated house stood there, its paint peeling and its windows clouded with age. An old lady lived there, the only inhabitant in this desolate place. I knocked, but the door creaked open under my hand.  
+  
+She emerged from the shadows, a hunched figure wrapped in a shabby shawl. But what made my blood run cold was her distorted head. Her face was backward, her features sagging with age and gravity. As she turned, a face formed on the back of her head, a grotesque mask that twisted into a scream. The words were foreign, unintelligible, but the malice in her voice was clear.  
+  
+I bolted, my heart pounding in my chest. But she was there, ahead of me, her gnarled hands reaching out. I ran, my breath ragged, my mind in a whirl of terror. I found myself back at the hole, the woman behind me, her screams echoing in my ears. Then, inexplicably, she stopped, her saggy face now casual as if nothing had happened.  
+  
+She called out, a guttural cry that made my skin crawl. From the hole emerged a baby, a newborn, wailing and wriggling in her arms. My heart stopped as she repeatedly stomped on the infant, her laughter a chilling melody in the silent woods. I lunged at her, my actions driven by sheer horror and desperation.  
+  
+She hissed, a sound so shrill it pierced my ear, blood trickling down my neck. And then, she was gone, disappearing into the woods as if she was never there. I was left alone, the mangled form of the baby on the ground, the silence of No Name swallowing my screams.
