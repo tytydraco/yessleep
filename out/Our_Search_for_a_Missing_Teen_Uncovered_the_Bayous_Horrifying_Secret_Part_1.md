@@ -24,7 +24,7 @@ It wasn’t really a case. Our elderly neighbor, Mrs. Dorsey’s tabby cat had g
 
 Our light-hearted moment was interrupted when Abby, our young secretary, poked her head into the office. The urgency in her wide, hazel eyes was a contrast to her usual composed demeanor.
 
-"Reine, there's a woman on the line. A Therese LeBlanc from Cameron Parish. She sounds distraught. I think you should handle this one."
+"Reine, there's a woman on the line. A Therese LeBlanc from Cameron Parish. It's about her daughter. She sounds distraught. I think you should handle this one."
 
 I shot a glance at Asher, eyebrows furrowed. Cases from outside the city were rare, especially as far away as Cameron.
 
