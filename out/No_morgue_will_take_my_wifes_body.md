@@ -4,23 +4,23 @@
 
 "My wife and I have always lived a kind of secluded life on our farm with our child. We aren't terribly far from any town or accommodations but we've been proudly self sufficient for the most part. We thought it'd give us some peace and quiet.
 
-This was until a couple months ago. 
+This was until a couple months ago.
 
 Our crops and livestock were dying left and right. The cows were dropping like flies. I still remember talking with my wife, at the very start of this, thinking it was some stroke of bad luck and how it'd all blow over soon, but then it kept on going. Cattle kept on dying. Plants kept on withering. She promised me that she would help "make things right".
 
-We called family friends one after the other. Maybe they had the same experience and had a better clue on what was happening. Weird weather, plague, contaminants, anything. Nothing. We were alone and there was nothing about this the news that could clue us in either. Odd. 
+We called family friends one after the other. Maybe they had the same experience and had a better clue on what was happening. Weird weather, plague, contaminants, anything. Nothing. We were alone and there was nothing about this the news that could clue us in either. Odd.
 
-Later the same day, we decided to finally look around our land. Whatever was doing this had to be in there, but it was already becoming difficult to search. Whatever caused this had done so much damage to our farm that it was almost completely unrecognisable to us. The ground was black as tar and rotting plant matter was sparcely coating the dirt. Dead cows we had yet to clean up layed across the strangely wet soil. 
+Later the same day, we decided to finally look around our land. Whatever was doing this had to be in there, but it was already becoming difficult to search. Whatever caused this had done so much damage to our farm that it was almost completely unrecognisable to us. The ground was black as tar and rotting plant matter was sparcely coating the dirt. Dead cows we had yet to clean up layed across the strangely wet soil.
 
 (In hindsight, leaving the cows be probably saved my life. Something was definitely wrong with them. Even after all the interventions, nobody dared touch them. I don't know why. Doubt I ever will.)
 
 My wife continued to insist that she would "make things right". She was always a determined woman. Much more determined than I was.
 
-As we searched, it was hard to even recognise what was supposed to be there from what could be a contaminant. It all looked the same. 
+As we searched, it was hard to even recognise what was supposed to be there from what could be a contaminant. It all looked the same.
 
-Soon enough, I heard my wife calling me to come look at something. 
+Soon enough, I heard my wife calling me to come look at something.
 
-The dirt around her looked soaked. More damp than usual. Beside her slowly drifted a tiny stream of.. something. It looked strange. It was pale red, with the texture of egg whites. It smelled strongly of undercooked meat and felt to be radiating a slight warmth. We moved away.
+The dirt around her looked soaked. More damp than usual. Beside her slowly drifted a tiny stream of.. something. It looked strange. Pale red, with the texture of egg whites. It smelled strongly of undercooked meat and felt to be radiating a slight warmth. We moved away.
 
 We didn't know what this was. I still don't. We immediately called the police and hoped that after some chemical clean up we could get back to normal. Maybe it would take weeks. Months. Years, but we would surely get back to normal. Surely.
 
@@ -44,7 +44,7 @@ I was trying to follow the situation as closely as possible. I talked to scienti
 
 Everyone was scratching their heads at how this had even happened.
 
-The more I learned about the contaminant, the more unbelievable it sounded. I reached out to police departments but all I could ever get was a cold "We're investigating the source of the contaminant". 
+The more I learned about the contaminant, the more unbelievable it sounded. I reached out to police departments but all I could ever get was a cold "We're investigating the source of the contaminant".
 
 The same non answer from every single call. I wondered if there even was an investigation. If there wasn't, why? Why weren't they investigating this serious contamination? I was left to fend for myself like this.
 
@@ -66,15 +66,15 @@ By sunset I knew what I had to do. I didn't want to and it wasn't exactly the bu
 
 After all this, the least I could do is let her find peace.
 
-Just as I was finishing digging, I heard something. First there was the sound of something heavy banging against a wall. Then screaming and then some strange grotesque dry crackling sound. 
+Just as I was finishing digging, I heard something. First there was the sound of something heavy banging against a wall. Then screaming and then some strange grotesque dry crackling sound.
 
-It was coming from the shed. I didn't know what was happening I froze as I stared into the shed, it's door violently shaking back and forth as whatever was behind the door tried to push it open. The door was ready to pop off its hinger or snap its locks any second. I had to think.
+It was coming from the shed. I didn't know what was happening. I froze as I stared into the shed, it's door violently shaking back and forth as whatever was behind the door tried to push it open. The door was ready to pop off its hinges or snap its locks any second. I had to think.
 
 I had to keep that door shut somehow. I knew it wasn't going to work but I didn't know what would happen if the door opened.
 
-Before I could reach the door, I was pushed back. The whole weight of the metal door lander on me. I was on the ground.
+Before I could reach the door, I was pushed back. The whole weight of the metal door landed on me. I was on the ground.
 
-I looked up. It was her. What I could only assume was her. 
+I looked up. It was her. What I could only assume was her.
 
 She appeared to be 7 ft tall, her bones stretched out and her skin looking as if it was melting off and simultaneously flaking to dust. She stood over me, her vacant eyes staring down. I could hardly breathe.
 
