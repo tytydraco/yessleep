@@ -400,4 +400,4 @@ If anyone is going to ask me what the symbol is, I won’t be revealing it here.
 
 And finally, was I serious about cementing the mirror and dropping it into the ocean? I was. In fact, I had just found someone who was willing to take on the strange job of cementing a mysterious box when other things started to happen.
 
-It’s not the last time I had to deal with the mirror demon. There’s still entities four and five to tell you about. [\[\]](https://www.reddit.com/r/TheEmptySpaces/)
+It’s not the last time I had to deal with the mirror demon. There’s still entities four and five to tell you about. [\[!\]](https://www.reddit.com/r/TheEmptySpaces/)
