@@ -32,9 +32,9 @@ Here's the transcript of the recording:
 
 **Teagan:** “While you keep an eye out for Dracula, here is some music since we had taken up most of your time.”
 
-\**music plays for about seven minutes before Rockwell's Somebody Is Watching Me gets interrupted \**
+\**music plays for about seven minutes before Rockwell's Somebody Is Watching Me gets interrupted*\*
 
-**Spencer**: “Sorry for the interruption, but get indoors immediately. I repeat, immediately. Lock your doors, windows, anything that can be used as an exit. Drag anybody or any pets you may have indoors. Go in the attic, basement, what have you, and do not, and I repeat, do not open for anyone that’s knocking and saying that they’re a loved one, begging to get indoors.”
+**Spencer**: “Sorry for the interruption, but get indoors immediately. I repeat, immediately. Lock your doors, windows, anything that can be used as an exit. Drag anybody or any pets you may have indoors. Go in the attic, basement, what have you, and do not, and I repeat, do not open for anyone that’s knocking and saying that they’re a loved one begging to get indoors.”
 
 **Teagan**: “Especially for the loved ones that you know are deceased.”
 
@@ -46,7 +46,7 @@ There was nothing but silence for a long while after that. I found myself hoping
 
 &#x200B;
 
-​The next night, I picked up 06.13 again. Thankfully everything seemed okay. Here's a recording transcript:
+​The next night I picked up 06.13 again. Thankfully everything seemed okay. Here's a recording transcript:
 
 **Spencer:** "Good afternoon, everybody. Natasha would like to thank Daniel Sherman for the safe return of Dracula." \**a sound effect of applause plays\**
 
@@ -54,7 +54,7 @@ There was nothing but silence for a long while after that. I found myself hoping
 
 **Spencer**: "Unfortunately Maddox's Mattresses had its windows smashed in during the Event. In other news, Nicole McKenna and her younger siblings, Martin and Josephina had also gone missing after school the previous day. Go to our website to find resources on how to help the McKenna family through this terrible tragedy."
 
-**Teagan**: "That's not all. The Halloween Festival is coming up in two weeks. My brother and I have a stall set up to see his Hellfire Salsa. It's hot as hell, but it tastes good. Devlin Moore also wants to advertise for his caramelized—"
+**Teagan**: "That's not all. The Halloween Festival is coming up in two weeks. My brother and I have a stall set up to sell his Hellfire Salsa. It's hot as hell, but it tastes good. Devlin Moore also wants to advertise his caramelized—"
 
 **Spencer**: "Sorry to interrupt, but we're getting a caller."
 

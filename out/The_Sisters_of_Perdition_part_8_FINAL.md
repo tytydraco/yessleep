@@ -288,7 +288,7 @@ I felt my mind race and then jam up. I lost all thought and curled over in menta
 
 It stopped but my mind felt shredded. Like I had just gotten dumber.
 
-They led us back to the edge of their swarm and we walked back to where the ice palace had been.A few Caesareans with mechanized chariots waited for us. They called them jeeps.As we drove they asked us their induction questions.
+They led us back to the edge of their swarm and we walked back to where the ice palace had been. Grimoire Noir was there with a petrified Dora head. A perfect souvenir!  A few Caesareans with mechanized chariots waited for us as well. They called them jeeps. We explained that the land ocopus were offering us a peace treaty. They wanted to coexist peacefully with humans. then we got in the jeeps.  As we drove towards shore they asked us their induction questions.
 
 “What is the code-word?” The caesarean in the passenger seat asked us.“Ouroboros.” we said in unison.
 
