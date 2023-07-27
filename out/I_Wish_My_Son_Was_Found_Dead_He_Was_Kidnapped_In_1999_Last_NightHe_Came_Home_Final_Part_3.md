@@ -162,4 +162,4 @@ Case No. 12833
 
 Patient: Spencer H\*\*\*\*\*\*
 
-[Woodland Grove Mental Hospital](https://www.reddit.com/r/DreadfulIncorporated/)
+[Cedar Grove Psychiatric Hospital](https://www.reddit.com/r/DreadfulIncorporated/)
