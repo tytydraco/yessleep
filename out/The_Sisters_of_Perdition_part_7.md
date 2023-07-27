@@ -3,6 +3,11 @@ part 6
 https://www.reddit.com/r/nosleep/comments/107rrdu/the_sisters_of_perdition_part_6/
 
 
+Part 8
+
+https://www.reddit.com/r/nosleep/comments/15aoeg8/the_sisters_of_perdition_part_8_final/
+
+
 
 I work at a construction company and we are renovating this old monastery into a library. The last of the monks decided to sell the building for money and the state of Tennessee bought it to make it a heritage site. There is still going to be a library and in addition to adding a bunch of books they are keeping all the ones that were originally here. While renovating the building I found another journal of someone named Ewan. After reading it I found this part particularly fascinating and wanted to share it.  
 

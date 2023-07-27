@@ -12,7 +12,7 @@ From memory, it went like this:
 
 They played a song that went about how some kid will never grow up. I couldn’t tell if that was a sick joke of some sort.
 
-I did look up the names that I remembered but I couldn’t find any information on this Grave Falls place and missing children. I chalked it up to stress-related hallucination…
+I did look up the names that I remembered but I couldn’t find any information on this Grave Falls place and missing children. I chalked it up to a stress-related hallucination…
 
 But the next night I managed to find the 06.13 radio station again. This time, I recorded it with my phone. I tried to upload the recording to my laptop, but the video came out silent, for the entirety of it being recorded. I can still hear it on my phone, so here’s a transcript. Oh, I did manage to get Spencer’s co-host’s name: Teagan. Apparently they’re twins.
 
@@ -46,9 +46,9 @@ There was nothing but silence for a long while after that. I found myself hoping
 
 &#x200B;
 
-​The next night, I picked up 06.13 again. Thankfully everything seemed okay. Here's a recording:
+​The next night, I picked up 06.13 again. Thankfully everything seemed okay. Here's a recording transcript:
 
-**Spencer:** "Good afternoon, everybody. Natasha would like to thank Daniel Sherman for the safe return of Dracula." *a sound effect of applause*
+**Spencer:** "Good afternoon, everybody. Natasha would like to thank Daniel Sherman for the safe return of Dracula." \**a sound effect of applause plays\**
 
 **Teagan:** "We hope that everyone was safe during the Lights in the Fog Event."
 
@@ -78,11 +78,11 @@ He sounded like he did believe the boy and not at all that he was humoring the c
 
 **Jimmy**: "I was just telling them about what I saw—"
 
-\**Silence. Presumably the phone was hung up. after a few seconds of silence:\**
+\**Silence. Presumably the phone was hung up. After a few seconds of silence:\**
 
 **Teagan**: "Hmm."
 
-**Spencer**: "Well, that was something. Anyway, if you or anyone else has any information regarding the disappearance of Nicole, Martin, and Josephine, please call \[phone number redacted\]. Any information regarding their safe return will help."
+**Spencer**: "Well, that was something. Anyway, if you or anyone else has any information regarding the disappearance of Nicole, Martin, and Josephina, please call \[phone number redacted\]. Any information regarding their safe return will help."
 
 **Teagan**: "Now, back to the Halloween Festival—"
 

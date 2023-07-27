@@ -100,4 +100,4 @@ After closing and covering my eyes with my forearms, I then felt a soft breeze c
 
 Better hurry, I thought, putting my weapons back in the bag before checking on the location of the West Altar. It did not take long and I quickly understood why the entity made me appear right at that familiar place. The map showed that the West Altar was precisely in the house behind me. I slowly turned around and approached the dark entrance left ajar as if I was expected. I stood in front of it, overwhelmed by a disturbing mix of dread and nostalgia. After all, I was home.
 
-[Part 10](https://www.reddit.com/r/nosleep/comments/158mdgp/every_year_in_my_village_there_is_a_time_during/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+[Part 10](https://www.reddit.com/r/nosleep/comments/15aoh9g/every_year_in_my_village_there_is_a_time_during/)
