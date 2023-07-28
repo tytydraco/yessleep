@@ -1,3 +1,6 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/15c9ffl/never_go_near_the_naked_lady_dancing_on_the/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
+
+
 'Creaaakkk', I hear someone going upstairs. I look at the clock. It's 2:45 a.m. "Who the fuck is up this night?" I say to myself before getting out of bed. As I open the door, I see a shadow near the terrace door. I go behind the shadow, causing no sound.
 
 
