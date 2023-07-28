@@ -71,3 +71,5 @@ In an attempt to catch up with him, I ran towards the window but stopped in my t
 "I'm done playing with him guys. Party's over. End him." Razor said, before escaping with the bloody knife.
 
 One of the souls who held a flame torch dropped it in front of him and a trail of fire was born, making its way towards the house. In a few seconds, I heard and saw flames rise all around the residence. I tried to control objects again, even the flames just in case, but I soon realized that I had lost any kind of telekinesis that I had briefly acquired earlier. Between the raging fire making its way inside, and the souls waiting for me outside, it seemed to me that there was no escaping a painful death that time. However, an unexpected help arrived, in a form neither the souls outside nor myself could imagine.
+
+[Part 11](https://www.reddit.com/r/nosleep/comments/15bvyra/every_year_in_my_village_there_is_a_time_during/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
