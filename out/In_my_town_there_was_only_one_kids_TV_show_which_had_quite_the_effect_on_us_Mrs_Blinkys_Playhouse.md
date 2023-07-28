@@ -122,7 +122,7 @@ Nice nodded vigorously along to his words, shooting me patronizing smiles which 
 
 Nice was yellow and orange, while Mean was a purply violet. I hadn’t yet mentioned this recent “development” in my symptoms because that would mean another trip to the emergency room and being stuck in an MRI machine. I don’t have to go into detail about why I hated it, but I will say it almost pushed me over the edge. 
 
-I  gestured as best as I could to describe them, but I looked a little crazy. Unfortunately, the door was open—because fuck privacy, right? Roman Wainwright, the mayor’s son, whom the town had tried to downplay having the sensitivity, was frowning at me. I could only tell it was him from his long-ass nose. I used to laugh at him when he stood next to his dad on the television. Rowan Wainwright, who the town initially used as a “Look! He’s all better!” ruse, definitely was not all better.
+I  gestured as best as I could to describe them, but I looked a little crazy. Unfortunately, the door was open—because fuck privacy, right? Rowan Wainwright, the mayor’s son, whom the town had tried to downplay having the sensitivity, was frowning at me. I could only tell it was him from his long-ass nose. I used to laugh at him when he stood next to his dad on the television. Rowan Wainwright, who the town initially used as a “Look! He’s all better!” ruse, definitely was not all better.
 
 Accompanied by three bodyguards, his sensitivity couldn’t be hidden anymore. Especially when, just a few weeks earlier, he’d attacked a classmate for whistling. The boy’s expression was tight, eyes narrowed. 
 
@@ -150,7 +150,7 @@ The ultraviolet haze sent my sluggish mind into gear. Bad. I wanted to cry out t
 
 I couldn’t breathe, talk, or move my facial muscles, my body and mind caught in an unyielding grasp. Mean’s voice whirred in my skull. “…which would only happen if Juniper was, let’s say, exposed to this phenomenon for a prolonged period of time. We have not quite understood this thing fully, yet, though we have a good idea. It can agitate the mind in ways we have not seen before, and in some ways, even hack its capabilities.”
 
-I didn’t understand what he meant until that moment, standing under the late evening, and watching Harry’s eyes that had already been permanently rolling, because in his words,  “Why the fuck would I want to deliver cookies to boomers?” jolted into the back of his head with a sickening squishing sound. 
+I didn’t understand what he meant until that moment, standing under the late evening sun, and watching Harry’s eyes that had already been permanently rolling, because in his words,  “Why the fuck would I want to deliver cookies to boomers?” jolted into the back of his head with a sickening squishing sound. 
 
 All of him seemed to jolt, to shudder, like he’d been struck by lightning. 
 
@@ -190,7 +190,7 @@ Could I… play dead?
 
 “Four.”
 
-I waited to see if she would notice—to see if I could play dead and pretend I too had popped like a grape. The woman’s breaths were too loud in my ears, and I risked peeling back one stick palmy, only for her to chuckle.
+I waited to see if she would notice—to see if I could play dead and pretend I too had popped like a grape. The woman’s breaths were too loud in my ears, and I risked peeling back one sticky palm, only for her to chuckle.
 
 “Three, two, one!” In quick succession, just like what I watched as a kid. I was frozen on the ground, eyes squeezed shut, waiting for her to deliver the final blow. And she did. I didn’t see her crank this thing to its highest setting, but I did see colors explode into the backs of my eyelids. This time I screamed. 
 
@@ -246,7 +246,9 @@ The shadows behind the camera did not have human faces.
 
 I was told to raise one large furry paw to confirm I was ready. 
 
-I did, my body slowly beginning to hyperventilate. 
+I did, my body slowly beginning to hyperventilate. Blinding lights flashed on, a familiar voice cutting through the quiet, and I knew it well enough for it to slice into me. I had a moment where I forgot about the noise inside my head, and the threat that my skull could be blown open any second.
+
+I fucking KNEW that voice. 
 
 But… somehow, my hands were moving to pull the furry head off, before a voice spoke through gritted teeth. Gabbles stood under his own spotlight. I could hear his heavy breaths bridging on hysterical giggles.
 
@@ -256,7 +258,7 @@ But… somehow, my hands were moving to pull the furry head off, before a voice 
 
 “Camera…”
 
-The Mrs Blinky theme began, and I found myself staring straight through a stuffy head of fur forced over my head. There were two tiny pin-prick holes to see through, and all I could see was painfully bright light and the intense pooling scarlet pouring from the gaping hole in Sadie's forehead. As if this thing had torn a physical cavern inside her. 
+The Mrs Blinky theme began, and I found myself staring straight through a stuffy head of fur forced over my head. There were two tiny pin-prick holes to see through, and all I could see was painfully bright light and the intense pooling scarlet pouring from the gaping hole in Sadie's forehead. As if this thing had torn a physical cavern inside her. Her smile was still bright. 
 
 “Action!”
 

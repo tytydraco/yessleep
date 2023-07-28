@@ -1,6 +1,6 @@
 For backstory, I was moving to a new city for job opportunities, hopefully in some well-paying company so I can move out of the apartment I previously rented. Though, this apartment is far worse. I was stuck in it for half a year.
 
-I arrived at my apartment after an hour-long train ride, late in the evening. I went up the stairs and to my door relatively quickly, as I was incredibly tired. I eased up, finally at my new home, until I opened the door a sheet of paper on the floor. It read:
+I arrived at my apartment after an hour-long train ride, late in the evening. My car had arrived in a separate train earlier in the day, on some freight train. I went up the stairs and to my door relatively quickly, as I was incredibly tired. I eased up, finally at my new home, until I opened the door a sheet of paper on the floor. It read:
 
 &#x200B;
 
