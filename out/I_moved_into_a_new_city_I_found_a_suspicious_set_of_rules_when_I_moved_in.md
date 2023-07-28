@@ -20,13 +20,13 @@ I arrived at my apartment after an hour-long train ride, late in the evening. I 
 
 *Rule 8: Do not move out or rent/buy another residence until the contract is up.*
 
-*Rule 8: If you hear constant rapping at the door, pray.*
+*Rule 9: If you hear constant rapping at the door, pray.*
 
 *If you break any of these rules, your survival is uncertain. You may suffer a fate worse than death.*
 
 &#x200B;
 
-I thought, why are these here? Is this a prank? I decided, wisely, to follow the rules unless disproven. Lord knows what might've happened to me if I didn't. 
+I thought, why are these here? Is this a prank? I decided, wisely, to follow the rules unless disproven. Lord knows what might've happened to me if I didn't.
 
 Suddenly, I heard weak knocking at the door. A voice said "Hey, is anyone home? I want to-" My eyes widened. Rule 1. I paid no attention to what else they had to say. I practically leapt to the bedroom, spotted a closet, and sped into it and hid. After what felt like an eternity, the knocking stopped.
 
