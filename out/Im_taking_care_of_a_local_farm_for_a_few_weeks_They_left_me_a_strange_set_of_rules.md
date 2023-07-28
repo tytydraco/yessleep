@@ -111,3 +111,7 @@ I think they must know all about the Gershon’s farm.
 So now I lie here, in my bed, listening the *snaps* and *rustles* of the cornstalks. There is a chair wedged under my doorknob. I’ve triple-checked all the locks.
 
 And all I can do is wait for [dawn.](http://www.reddit.com/r/blairdaniels)
+
+---
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/15bj0z3/im_taking_care_of_a_local_farm_for_a_few_weeks/)

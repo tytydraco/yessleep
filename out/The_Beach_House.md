@@ -5,14 +5,14 @@ It has been a cold night since I left the station after doing so much paperwork.
 
 
 
-For me, I drove around and then decided to leave the city. I decided to go to this beach. Even in the evening, it looked beautiful. But unbeknownst to me, my gas tank was half empty, and I needed to charge my phone. And to make matters worse, I had a flat tire. So I spotted this beach house that wasn't too far away. I slowly drove up to it; hopefully, I could speak to the homeowner or housesitter if I could charge my phone and call Triple A. 
+For me, I drove around and then decided to leave the city. I decided to go to this beach. Even at nigh it looked beautiful. But unbeknownst to me, my gas tank was half empty, and I needed to charge my phone. And to make matters worse, I had a flat tire. So I spotted this beach house that wasn't too far away. I slowly drove up to it; hopefully, I could speak to the homeowner or housesitter if I could charge my phone and call Triple A. 
 
 
 
 
 
 
-But there I spotted a woman sitting, or so I thought at first since it was a little difficult due to the nightlight. And when I got a better look, it was a doll—a human-sized doll wearing Victorian clothing. I was pretty freaked out by this, seeing how detailed they were even from a few feet away.
+But there I spotted a woman sitting, or so I thought at first since it was a little difficult due to the nightlight. And when I got a better look, it was a doll—a human-sized doll wearing Victorian clothing. I was pretty freaked out by this, seeing how detailed it was even from a few feet away.
  
 
 
