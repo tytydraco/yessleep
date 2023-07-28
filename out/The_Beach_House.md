@@ -189,7 +189,7 @@ As I stood there, still trembling with adrenaline, I knew I couldn't leave this 
 
 
 
-With determination, I secured the heart in a sturdy wooden box that I found next, still beating, and locked it away safely. I didn't know what I would do with it yet, but one thing was certain: I couldn't let it fall into the wrong hands.
+With determination, I secured the heart in a sturdy wooden box that I found next to a bin, still beating, and locked it away safely. I didn't know what I would do with it yet, but one thing was certain: I couldn't let it fall into the wrong hands.
 
 
 
