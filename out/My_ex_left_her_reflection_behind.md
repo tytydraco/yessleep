@@ -144,7 +144,7 @@ The last time I went against Knocks' advice had been to save my niece from the t
 
 Edward stood at the bottom of the stairs staring up at me.
 
-"FUCK!" I yelled falling over. I scrambled backwards till my back hit the wall. Edward's eyes appeared black and empty like those of a shark. His right hand was raised at me revealing the ugly melted symbol.
+"FUCK!" I yelled falling over. I scrambled backwards till my back hit the wall. Edward's eyes appeared black and empty like those of a shark. 
 
 "Ella?" I cried out, "I thought we agreed the doll was to stay in the car."
 

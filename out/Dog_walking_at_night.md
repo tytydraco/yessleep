@@ -6,7 +6,7 @@ I never encountered anyone doing drugs but I had found suspicious signs before o
 
 I walk my dog in the daytime and I’ve found beer bottles , cigarette packs, used condoms and even a syringe spread out through the streets and in the bushes nearby (the houses are surrounded by trees since it used to be a forest ).
 
-I also when preparing for my driving lesson I was driving in the road next to the houses and found a damaged car with a driver who literally drove through bushes instead of the road and hit a street sign before moving on so i assumed the driver was clearly not sober.
+I also when preparing for my driving  exam I was driving in the road next to the houses and found a damaged car with a driver who literally drove through bushes instead of the road and hit a street sign before moving on so i assumed the driver was clearly not sober.
 
 Today I was walking through  the same area and found a car literally blocking the road sideways.I’ve found cars parked in the area but nothing like this before so I immediately became more alert.
 

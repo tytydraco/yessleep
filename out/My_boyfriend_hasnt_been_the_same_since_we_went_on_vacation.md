@@ -128,4 +128,4 @@ I've received a similar box every night, since.
 
 I don't know if it's meant as a threat, or if due to some sort of twisted interpretation – I’m now a 'paying customer’ – he's slowly being returned to me.
 
-Either way, it turns out that I've gotten to see who Brian was on the inside, after all.
+Either way, it turns out that I've gotten to see who Brian was on the inside, [after all](https://www.reddit.com/user/JamFranz/comments/11or7ez/hello_and_welcome/).
