@@ -40,17 +40,17 @@ I heard a knock at the door.
 
 12/30/2021 5:10 pm
 
-I was on my computer searching to see if anyone had the same thing happen to them. That is when I came across a man by the user name Clausehunter91 he made a post about how his son went missing the same night. Messaged him and told him what happened to me. He responded I instantly.
+I was on my computer searching to see if anyone had the same thing happen to them. That is when I came across a man by the user name Claushunter91 he made a post about how his son went missing the same night. Messaged him and told him what happened to me. He responded I instantly.
 
-Clausehunter91: is you story true?
+Claushunter91: is you story true?
 
 Me: yes it all happened the other night. It still doesn't fell real to me.
 
-Clausehunter91: it's real and dont forget it. Now we need people to understand what happened.
+Claushunter91: it's real and dont forget it. Now we need people to understand what happened.
 
 Me: I called the cops and they are looking for my daughter and I still think it was all just someone breaking in and kidnaping her.
 
-Clausehunter91: NO IT WASN'T
+Claushunter91: NO IT WASN'T
 
 me: alright alright
 
@@ -66,15 +66,15 @@ I got a call from the police department saying they will have to call off the se
 
 11/30/2022 3:30 pm
 
-It has been almost a year since my daughter's disappearance. I kept in touch with Clausehunter91 and he told be that when Christmas came around be will kill what took his son. I decided I would try aswell. That is if the person who did came back. I bought a gun a few months after my daughter went missing. I was debating on using it on myself since I didnt have any family left. She would have been 7 by now. She absolutely loved Christmas like most kids. She was the only light left in my world. After her mother died in a car accident she was all I had left.
+It has been almost a year since my daughter's disappearance. I kept in touch with Claushunter91 and he told be that when Christmas came around be will kill what took his son. I decided I would try aswell. That is if the person who did came back. I bought a gun a few months after my daughter went missing. I was debating on using it on myself since I didnt have any family left. She would have been 7 by now. She absolutely loved Christmas like most kids. She was the only light left in my world. After her mother died in a car accident she was all I had left.
 
 12/24/2022 11:40 pm 
 
-I decided to stay up since that is all I can do. I have the gun next to me. I got a call from Clausehunter91 who's name is Chad. He said he heard the sounds again. In that call I heard the sounds of gun shots. Than his scream than nothing. The line went dead. I gripped the gun tightly to the point my knuckles where white. 
+I decided to stay up since that is all I can do. I have the gun next to me. I got a call from Claushunter91 who's name is Chad. He said he heard the sounds again. In that call I heard the sounds of gun shots. Than his scream than nothing. The line went dead. I gripped the gun tightly to the point my knuckles where white. 
 
 12/25/2022 12:32 am 
 
-I heard it again. The sound of hooves and something walking on the roof. I sat in front of the chimney waiting. I raised the gun as I heard something crawling down the chimney. A hand reached out from inside the chimney. It was different it's fingers where long and had sharp claws. It was white like a person's hand. Than I saw it the face of the real Santa Clause. The face is forever burned into my mind. The signature red pointed hat, red beard and mustache. The face looked human. But the eyes where black and small and it's mouth was big and had sharp teeth. While the body was skinny and tall with long legs and arms. The face was also elongated. I stared into its eyes as it stared back at me. I pointed my gun at it as it reached into its bag. It pulled out a box it was about the size of a pumpkin. It handed to me. I kept the gun pointed at it as I grabbed the box from it's large and when I grabbed it was heavy. I nearly dropped it. I dropped they gun and reached to stabilize the box out of instinct. That is when it spoke.
+I heard it again. The sound of hooves and something walking on the roof. I sat in front of the chimney waiting. I raised the gun as I heard something crawling down the chimney. A hand reached out from inside the chimney. It was different it's fingers where long and had sharp claws. It was white like a person's hand. Than I saw it the face of the real Santa Claus. The face is forever burned into my mind. The signature red pointed hat, red beard and mustache. The face looked human. But the eyes where black and small and it's mouth was big and had sharp teeth. While the body was skinny and tall with long legs and arms. The face was also elongated. I stared into its eyes as it stared back at me. I pointed my gun at it as it reached into its bag. It pulled out a box it was about the size of a pumpkin. It handed to me. I kept the gun pointed at it as I grabbed the box from it's large and when I grabbed it was heavy. I nearly dropped it. I dropped they gun and reached to stabilize the box out of instinct. That is when it spoke.
 
 "Open the box lance Smith. It is special made for you." It said in a very raspy voice almost like nails on a chalkboard. It pointed to the box. I hesitated for a moment. My heart was pounding and I started breathing hard. That is when I noticed the smell. It smelled like rotten meat. I feared the worst. Than I opened the box. I stared at the contents for a few seconds than I reached for the gun screaming. I grabbed it and shot at the creature. I successfully hit it in it's skinny chest but all it did was stand there. "I will be back lance Smith" it said in the same voice. I sat on the floor staring at the box. I started crying. 
 

@@ -34,7 +34,7 @@ I began exploring this weird place I found myself in. Unlike the subway, which w
 
 Eventually, I found myself in a cart that was more maintained than the rest. While there were still plants and water flowing, there was an order to it. The grass and vines were cut to a more manageable size, the branches on top were given patterns, even the animals were more relaxed. However, there was another thing that stood out.
 
-A person was standing at the end of the cart, his back turned towards me. Long, flowing silver hair was touching the floor at the cart, contrasting the pitch black cloak that was draped across the figure's body. In it's hands, covered in white gloves, he was holding a large lopper and cutting down overgrown tree branches. He began whistling. That whistle was the most beautiful thing I have heard in my entire life. It was incomparable. I wanted to get closer. 
+A person was standing at the end of the cart, his back turned towards me. Long, flowing silver hair was touching the floor at the cart, contrasting the pitch black cloak that was draped across the figure's body. In it's hands, covered in white gloves, he was holding a large lopper and cutting down overgrown tree branches. He began whistling. That whistle was the most beautiful thing I have heard in my entire life. It was incomparable. I wanted to get closer.
 
 Moving towards the figure, I stepped on a fallen branch, snapping it in half, making the man stop it's whistle and cutting.
 
@@ -80,11 +80,11 @@ Matt was a little surprised at this sudden outburst, taking him a few seconds to
 
 "What makes you think we wouldn't have accepted it?" I asked
 
-"I know everyone in this group," Matt answered, "and not a single one of you chuckleheads would've agreed with me. You would've desperately tried to save me, and when it would've finally entered your thick skulls you couldn't, you would've blamed yourselves. Why do I know this? Look over there and see..." 
+"I know everyone in this group," Matt answered, "and not a single one of you chuckleheads would've agreed with me. You would've desperately tried to save me, and when it would've finally entered your thick skulls you couldn't, you would've blamed yourselves. Why do I know this? Look over there and see..."
 
 Matt pointed out at the corner of the cart. That was the source of the sobbing I heard when I entered. It was Nick, huddled up in a ball.
 
-"It's all my fault... It's all my fault..." he kept repeating in between his tears. 
+"It's all my fault... It's all my fault..." he kept repeating in between his tears.
 
 "You see what I mean?" yelled Matt in the back. "I told him it was his dick of a boss that shot me,not him, but he wouldn't listen! He is been like this ever since I got to this point."
 
@@ -150,7 +150,7 @@ One by one, each of us nodded.
 
 "Thank you..."
 
-Since he was barely able to walk on his own, John and Nick carried him. Once we sneaked past the group, Matt having one last look at everyone, we marched on quietly. A hundred carts later, we had put Matt down. One by one, each of us had a last conversation with Matt before leaving the cart. 
+Since he was barely able to walk on his own, John and Nick carried him. Once we sneaked past the group, Matt having one last look at everyone, we marched on quietly. A hundred carts later, we had put Matt down. One by one, each of us had a last conversation with Matt before leaving the cart.
 
 "I am sorry, I am sorry," kept repeating Nick, who was the first.
 
@@ -185,3 +185,7 @@ Once we got back, everyone was still asleep. When they woke up, we explained tha
 It's been a while since Matt died. I managed to gradually began talking with the others and now, I finally took a step forward towards dealing with Matt's death. Although, now we have another thing to worry about. Yesterday, while reading the Journal, I glanced around, looking for that black mist that kept following us to see if it was still there. However, once I finally found it, I realized something that made me shiver in fear.
 
 There were two of them now.
+
+\-----------------------------
+
+[Part 10](https://www.reddit.com/r/nosleep/comments/15c01cs/we_have_met_the_operator_of_the_infinite_subway/)
