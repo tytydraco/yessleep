@@ -22,7 +22,9 @@ However, there would be no answer, only polite confusion when we asked if she ha
 Another thing we noticed was that we didn’t need to tell her that grandma would be coming tomorrow, for her to know it.  
 
 
-We quickly realised that we had been granted another miracle.Elin, who had been so unlucky and so badly hurt by the illness, has a memory that works in reverse. She can tell what is going to happen, but as soon as it has happened, it will be lost to her.  
+We quickly realised that we had been granted another miracle. 
+
+Elin, who had been so unlucky and so badly hurt by the illness, has a memory that works in reverse. She can tell what is going to happen, but as soon as it has happened, it will be lost to her.  
 
 
 It’s sort of like telling the future, but in a very boring way.  
