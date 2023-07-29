@@ -88,7 +88,7 @@ I started to pick up things I shouldn’t be able to, like police talkies crackl
 
 I was dragged to a homecoming game by a group of friends lucky enough not to get the sensitivity, only to figure out the whole game was just an excuse for other kids to take advantage of the sensitive ones. I remember seeing them waving dog whistles and walkie-talkies like weapons, and those of us who were fucking stupid enough to go to that game, scattered before things turned messy. 
 
-And things did turn messy. After turning fifteen years old, my ears started to bleed when the TV was too loud. It wasn’t just frequencies now, it was sound. This thing was ruining my life. Initially, I had been able to hear radio waves, and what was riding on them. 
+And things did turn messy. After turning thirteen years old, my ears started to bleed when the TV was too loud. It wasn’t just frequencies now, it was sound. This thing was ruining my life. Initially, I had been able to hear radio waves, and what was riding on them. 
 
 I could hear walkie-talkies and radio signals miles away.  But now, I could hear something else, a crackling sound like I could hear the waves themselves, enveloping and entangling with each other, swimming in and out. I imagined several lines of bright color at the backs of my eyes. When it was at its worst and I had to stuff my head in my pillow and swallow two Tylenol just to get rid of the brunt of it, I imagined the lines were brighter, blinding yellow and green. And when it was better, the colors were darker. Blue and Pink. 
 
@@ -140,7 +140,7 @@ And they were a relief.
 
 For two glorious years, I kept them corked in every night and day, reveling in… silence. 
 
-I wasn’t sure how exactly the two of them did it, but the earbuds were magic. Obviously, they couldn’t take it all away—so the colors were there to stay. But I saw it more as a light show with sound waves, eventually growing used to the ultraviolet rays every time someone screamed or a dog barked, and the plumes of blue and purple then with thudding noises, cars passing, and my parents' thud, thud, thudding down the stairs. My life came to an abrupt halt on a random Saturday during the summer. Mom forced me to circle the town delivering girl scouts cookies to get me out of my room. “Sensitives” was what we were named, and our condition was treated like a disability. I was seventeen years old, and Mom still wouldn't let me anywhere near the TV. 
+I wasn’t sure how exactly the two of them did it, but the earbuds were magic. Obviously, they couldn’t take it all away—so the colors were there to stay. But I saw it more as a light show with sound waves, eventually growing used to the ultraviolet rays every time someone screamed or a dog barked, and the plumes of blue and purple then with thudding noises, cars passing, and my parents' thud, thud, thudding down the stairs. My life came to an abrupt halt on a random Saturday during the summer. Mom forced me to circle the town delivering girl scouts cookies to get me out of my room. “Sensitives” was what we were named, and our condition was treated like a disability. I was fifteen years old, and Mom still wouldn't let me anywhere near the TV. 
 
 However, her favorite show was on, which meant I had no choice but to make myself scarce. Also an excuse for her to make me go outside. I had been put with two others. 
 
