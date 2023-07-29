@@ -72,6 +72,12 @@ I didn’t know what to do.
 
 So I stepped aside to type this up on my phone. In just a moment, I’ll help him, because I don’t see any other option. [Any insight would be appreciated](https://www.facebook.com/P-F-McGrail-181784199029462/).
 
+------------
+
+[Huh](https://redd.it/15cq9rh)
+
+--------
+
 [BD](https://www.reddit.com/r/ByfelsDisciple/)
 
 
