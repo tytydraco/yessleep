@@ -126,7 +126,7 @@ I  gestured as best as I could to describe them, but I looked a little crazy. Un
 
 Accompanied by three bodyguards, his sensitivity couldn’t be hidden anymore. Especially when, just a few weeks earlier, he’d attacked a classmate for whistling. The boy’s expression was tight, eyes narrowed. 
 
-He was either taking the brunt of the screaming child some genius thought was a good idea to bring inside a room of hyper-sensitive people or listening to our conversation. Maybe he could see the colors too. The mayor’s kid surprised me when he shot me the finger, a beaded black bracelet jiggling on his wrist. Like other kids, his personality had taken a drastic turn after developing “hypersensitive symptoms” with him getting overly defensive and argumentative to the point of being sent out of class. I looked away before I could get into a contest with him and turned back to my least favorite agent’s caterpillar eyebrows. 
+He was either taking the brunt of the screaming child some genius thought was a good idea to bring inside a room of hyper-sensitive people or listening to our conversation. Maybe he could see the colors too. The mayor’s kid surprised me when he shot me the finger, a beaded black bracelet jiggling on his wrist. Like other kids, his personality had taken a drastic turn after developing “hypersensitive symptoms” with him getting overly defensive and argumentative to the point of being sent out of class. I looked away before I could get into a staring contest with him and turned back to my least favorite agent’s caterpillar eyebrows. 
 
 Age had not been gentle to Nice. He nodded with that same fake smile. “The lines you are describing are normal! Have you ever heard of Synesthesia?” 
 
@@ -140,7 +140,7 @@ And they were a relief.
 
 For two glorious years, I kept them corked in every night and day, reveling in… silence. 
 
-I wasn’t sure how exactly the two of them did it, but the earbuds were magic. Obviously, they couldn’t take it all away—so the colors were there to stay. But I saw it more as a light show with sound waves, eventually growing used to the ultraviolet rays every time someone screamed or a dog barked, and the plumes of blue and purple when with thudding noises, cars passing, and my parents' thud, thud, thudding down the stairs. My life came to an abrupt halt on a random Saturday during the summer. Mom forced me to circle the town delivering girl scouts cookies to get me out of my room. “Sensitives” was what we were named, and our condition was treated like a disability. I was seventeen years old, and Mom still wouldn't let me anywhere near the TV. 
+I wasn’t sure how exactly the two of them did it, but the earbuds were magic. Obviously, they couldn’t take it all away—so the colors were there to stay. But I saw it more as a light show with sound waves, eventually growing used to the ultraviolet rays every time someone screamed or a dog barked, and the plumes of blue and purple then with thudding noises, cars passing, and my parents' thud, thud, thudding down the stairs. My life came to an abrupt halt on a random Saturday during the summer. Mom forced me to circle the town delivering girl scouts cookies to get me out of my room. “Sensitives” was what we were named, and our condition was treated like a disability. I was seventeen years old, and Mom still wouldn't let me anywhere near the TV. 
 
 However, her favorite show was on, which meant I had no choice but to make myself scarce. Also an excuse for her to make me go outside. I had been put with two others. 
 
@@ -198,9 +198,9 @@ I screamed until my throat had a heartbeat and my face was pressed into my knees
 
 “I found you.”
 
-Those were her words before everything went dark--- and I welcomed the dark. I welcomed the void where I could escape the overbearing monster digging further and further into my head. I didn’t understand what she meant until I found and lost consciousness in flickers of light and dark, colors and not colors; shapes and spirals and other squiggly doodles writhing in my vision as the noise continued cutting into me, and somehow not killing me. It had killed Harry in a matter of a minute, and then Evie a second later. How was I still alive? 
+Those were her words before everything went dark--- and I welcomed the dark. I welcomed the void where I could escape the overbearing monster digging further and further into my head. I didn’t understand what she meant until I found and lost consciousness in flickers of light and dark, colors and not colors; shapes and spirals and other squiggly doodles writhing in my vision as the noise continued cutting into me, and somehow not killing me. It had killed Harry in a matter of a minute, and then Sadie a second later. How was I still alive? 
 
-I was inside a floral-looking living room. I was hanging upside down on someone's back—and that someone smelled exactly like my father, a mixture of cologne and rich shoe polish. It wasn’t my dad though. Because my dad died when I was fourteen. The man holding me had rough hands keeping me in place. Harry’s body was in front of me, wobbling on a stranger’s back. 
+I was inside a floral-looking living room. hanging upside down on someone's back—and that someone smelled exactly like my father, a mixture of cologne and rich shoe polish. It wasn’t my dad though. Because my dad died when I was fourteen. The man holding me had rough hands keeping me in place. Harry’s body was in front of me, wobbling on a stranger’s back. 
 
 I watched Harry the whole time that I found myself conscious. I wanted him to wake up and tell me everything was lame, and I was weird for even worrying about this. I watched his eyes closely to see if they would open, when the floral wallpaper disappeared and made way for four walls of silver; it was an elevator. The grumble of the descent was powerful enough to plunge me back into darkness. When I woke for the final time, I was surrounded by a classroom-like setting. 
 
@@ -210,7 +210,7 @@ Whatever this classroom had once been was abandoned, and yet rows of desks still
 
 The whiteboard in front of me was full of formulas I didn’t understand. Initially, it felt like being at school, until I glimpsed worn velcro strapped to my chair. Going into panic mode, I twisted around to look for an exit which wasn’t the guarded door, but when I did, when I craned my neck and blinked into the heavy light illuminating the room, I found myself face-to-face with Mr Gabbles. It was him-- at least, the live-action version of him.
 
-His face was frozen in that same cartoon-like grin from my childhood, eyes sparkling with glee. Looking closer, though, his fluffy horns looked filthy and stained revealing red, while the fur of his suit was ragged. I could see exactly where Mr Gabbles ended, and the teenager-sized human who had been stuffed into his suit began. There wasn't much of the person there, only noticeable in cuffed arms behind their back. Mr Gabbles didn't move. I could see the threads in his eyes becoming loose, the stitches in his grinning mouth slowly coming apart. He wasn't alone. All of Mrs Blinky's friends were there. Mrs Lottie, the  "October 13th, 2010." A voice rang out, an ignition of yellow exploding into my vision. The scratchy voice of the woman dragged my gaze back to the front of the classroom. 
+His face was frozen in that same cartoon-like grin from my childhood, eyes sparkling with glee. Looking closer, though, his fluffy horns looked filthy and stained revealing red, while the fur of his suit was ragged. I could see exactly where Mr Gabbles ended, and the teenager-sized human who had been stuffed into his suit began. There wasn't much of the person there, only noticeable in cuffed arms behind their back. Mr Gabbles didn't move. I could see the threads in his eyes becoming loose, the stitches in his grinning mouth slowly coming apart. He wasn't alone. All of Mrs Blinky's friends were there. "October 13th, 2010." A voice rang out, an ignition of yellow exploding into my vision. The scratchy voice of the woman dragged my gaze back to the front of the classroom. 
 
 The woman was standing with her arms folded, her cold, grey eyes boring into me. 
 
@@ -218,7 +218,7 @@ The woman was standing with her arms folded, her cold, grey eyes boring into me.
 
 But… wasn’t he supposed to be in Switzerland at boarding school? 
 
-Ignoring Gabbles, my kidnapper continued. “However, we found ourselves hijacked.” Her eyes darkened. “We did not know who it was or what it was. All we did know was that if we did not sever the signal, the entire children’s populace of his town would have their brains fried.” I noticed her hands were shaking. 
+Ignoring Gabbles, my kidnapper continued. “However, we found ourselves hijacked.” Her eyes darkened. “We did not know who it was or what it was. All we did know was that if we did not sever the signal, the entire children’s populace of this town would have their brains fried.” I noticed her hands were shaking. 
 
 “It was… too late,” she whispered. “The signal was already broadcasting, and we had no choice but to… sacrifice two children to sever the connection and save all of you.” The door opened, and two teens were brought in, a boy and a girl. Both my age. The two were slumped in wheelchairs, vacant eyes staring straight forwards. There was a certain vacancy in their eyes, and I understood this woman's pain. “My children," she whispered, “I begged them not to. I told them that my kids had a right to survive just like you, but do you know what they said?” The woman slammed her fist into the board with a cackly laugh. 
 
@@ -266,4 +266,4 @@ And so began one year of relentless fucking torture.
 
 The good news is that we got out.
 
-The bad news is that we got out.
+The bad news... is that we got out.
