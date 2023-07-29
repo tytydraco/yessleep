@@ -258,7 +258,7 @@ But… somehow, my hands were moving to pull the furry head off, before a voice 
 
 “Camera…”
 
-The Mrs Blinky theme began, and I found myself staring straight through a stuffy head of fur forced over my head. There were two tiny pin-prick holes to see through, and all I could see was painfully bright light and the intense pooling scarlet pouring from the gaping hole in Sadie's forehead. As if this thing had torn a physical cavern inside her. Her smile was still bright. 
+The Mrs Blinky theme began, and I found myself staring straight through a stuffy mass of fur forced over my head. There were two tiny pin-prick holes to see through, and all I could see was painfully bright light and the intense pooling scarlet pouring from the gaping hole in Sadie's forehead. As if this thing had torn a physical cavern inside her. Her smile was still bright. 
 
 “Action!”
 

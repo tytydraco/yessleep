@@ -113,3 +113,7 @@ Then he turned on his heel and strode away.
 As I watched him go, I realized there wasn’t any car parked at the bottom of the driveway. He just turned onto the old country road and walked away. I watched him until he rounded the bend and disappeared from sight.
 
 I retreated into the house, checked all the locks, and decided I would spend the rest of the day inside—at least, until it was time to feed the animals and stock the farmstand [again.](http://www.reddit.com/r/blairdaniels)
+
+---
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/15cfo63/im_taking_care_of_a_local_farm_for_a_few_weeks/)
