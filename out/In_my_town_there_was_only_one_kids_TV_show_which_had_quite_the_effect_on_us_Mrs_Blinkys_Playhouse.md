@@ -38,6 +38,14 @@ Mr Nice had glasses, while Mr Mean wore a permanent scowl. They checked out the 
 
 I told him I didn’t like that he had made my Mom cry, and he did a fidgety shuffle thing with his whole chest, clasping his hands in his lap.
 
+To break the tension, Mr Nice nodded at my stuffed rabbit sitting on my lap. 
+
+“Does the bunny have a name?”
+
+I shrugged. “Teddy.”
+
+Mr. Mean cleared his throat. His eyes were dark. I didn’t like them.
+
 “Can you hear anything inside your head, Juniper?”
 
 “Inside my head?”
@@ -76,27 +84,27 @@ The 10 kids that died were the lucky ones.
 
 Growing up, it became evident that a number of kids in the town had in fact been affected by the frequency, and symptoms were beginning to show with age. It started when I was ten, during math class. Jason Marriot clamped his hands over his ears, his eyes wide. What is that? He kept saying, but there was nothing. Just the tick of the clock and the droning sound of our teacher’s voice. 
 
-When it got so bad that he ran out of class, muttering that there was a weird noise in his ears, it turned out that he could hear our principal fidgeting with the intercom dial. I thought what was happening to other kids who stopped mid-walk to crinkle their noses and look around like they could hear something, slapping their hands over their ears during assembly when it was dead silent, and yet they could hear something else. I thought I was safe. 
+When it got so bad that he ran out of class, muttering that there was a weird noise in his ears, it turned out that he could hear our principal fidgeting with the intercom dial. I thought it was just happening to other kids who stopped mid-walk to crinkle their noses and look around like they could hear something, slapping their hands over their ears during assembly when it was dead silent, and yet they could hear something else. I thought I was safe. 
 
 That was until I started to hear a tinny ringing sound when it was silent, and growing older, it got progressively louder until I was so longer alone inside my mind. In the middle of the night when I was trying to sleep, it was there, a constant never-ending ringing sound, like a coin rattling in a washing machine which could only be suppressed by loud music. Whatever this sensitivity was, it started to appear in others. Luke Solfield who sat behind me told our teacher to turn her phone off, complaining that the “squiggly noise” was annoying him. Mrs Tenner had taken out her phone, confused, realizing she had called someone. 
 
 Kids started to call this thing a spidey sense because it was kind of like having a superpower.  Though the term was quickly forgotten when it started to take over our lives. Emma Brien beat up a girl who intentionally blew a dog whistle, almost crippling her in the cafeteria. She was the school bully, and maybe had it coming—but seeing the girl on her hands and knees screaming, her cheeks red, tears streaming down her face as she begged her usual victim to stop—sent shivers down my spine. 
 
-The principal started to ban walkie-talkies, and then phones, and then radios (and dog whistles) because when a bunch of middle schoolers realize their classmates could be sent to their knees just by playing with a talkie, or in some cases, just playing a song on Spotify, of course, they are going to take advantage. What started out as playful teasing became sabotage, with the use of simple noise. I turned thirteen and was suddenly sensitive to television static which felt like knives prickling in the back of my head. 
+The principal started to ban walkie-talkies, and then phones, and then radios (and dog whistles) because when a bunch of middle schoolers realize their classmates could be sent to their knees just by playing with a talkie, or in some cases, just playing a song on Spotify, of course, they are going to take advantage. What started out as playful teasing became sabotage, with the use of simple noise. I turned twelve and was suddenly sensitive to television static which felt like knives prickling in the back of my head. 
 
 I started to pick up things I shouldn’t be able to, like police talkies crackling to each other, and Mrs Darby tuning in her ancient radio on the other side of the school.  We were repeatedly told that it was just a phase and that this “sensitivity” would eventually fade. But it didn’t fade. It got worse with age. I started high school, and what had been a tinny ringing sound until then, became a relentless screeching rattling in my skull when I was in the vicinity of anything emitting radio waves or frequencies.
 
 I was dragged to a homecoming game by a group of friends lucky enough not to get the sensitivity, only to figure out the whole game was just an excuse for other kids to take advantage of the sensitive ones. I remember seeing them waving dog whistles and walkie-talkies like weapons, and those of us who were fucking stupid enough to go to that game, scattered before things turned messy. 
 
-And things did turn messy. After turning thirteen years old, my ears started to bleed when the TV was too loud. It wasn’t just frequencies now, it was sound. This thing was ruining my life. Initially, I had been able to hear radio waves, and what was riding on them. 
+And things did turn messy. Reaching my mid teens, my ears started to bleed when the TV was too loud. It wasn’t just frequencies now, it was sound. This thing was ruining my life. Initially, I had been able to hear radio waves, and what was riding on them. 
 
-I could hear walkie-talkies and radio signals miles away.  But now, I could hear something else, a crackling sound like I could hear the waves themselves, enveloping and entangling with each other, swimming in and out. I imagined several lines of bright color at the backs of my eyes. When it was at its worst and I had to stuff my head in my pillow and swallow two Tylenol just to get rid of the brunt of it, I imagined the lines were brighter, blinding yellow and green. And when it was better, the colors were darker. Blue and Pink. 
+I could hear walkie-talkies and radio signals miles away.  But now, I could hear something else, a crackling sound like I could sense the waves themselves, enveloping and entangling with each other, swimming in and out. I imagined several lines of bright color at the backs of my eyes. When it was at its worst and I had to stuff my head in my pillow and swallow two Tylenol just to get rid of the brunt of it, I imagined the lines were brighter, blinding yellow and green. And when it was better, the colors were darker. Blue and Pink. 
 
 I stopped going to school, opting to stay in my room where I wouldn’t be attacked by invisible waves I could almost see. It’s like… do you know when you’re minding your own business, and suddenly… ringing? 
 
-It was like that but ten-fold. 
+It was like that but tenfold. 
 
-Like that tinny ringing sound normal people sometimes hear, had been cranked to the highest volume. Mom dragged me to the town doctor who told me the same thing he told me when I was five. That I was fine, and it was early tinnitus. He clearly had no idea what the fuck was going on, and from the look on his face, I wasn’t the only disheveled teenager dragged in by a parent. The reception area was full of us, and by now I could name them. There were fifteen of us exactly and could be identified through either the dead look on their faces, subdued clothing choices or the stream of headphone wire entangling around them— and or if they had rich parents, Air Pods. 
+Like that tinny ringing sound normal people sometimes hear, had been cranked to the highest volume. Mom dragged me to the town doctor who told me the same thing he told me when I was five. That I was fine, and it was early tinnitus. He clearly had no idea what the fuck was going on, and from the look on his face, I wasn’t the only disheveled teenager dragged in by a parent. The reception area was full of us, and by now I could name them. There were fifteen of us exactly and could be identified through either the dead look on their faces, subdued clothing choices or the stream of headphone wire entangling around them— or if they had rich parents, Air Pods. 
 
 The men in black, however, had a different diagnosis. They strode in with polite smiles and took over from the doctor, who was ushered away and shushed before he could attempt to stop them. After checking me over thoroughly, I was told that, yes, I was experiencing side effects from being blasted by the frequency at five years old.  They didn’t have the same reassuring tones as before. Mr Nice spoke with a Hollywood smile and told me what he had told the other sensitive kids. “As long as she is not exposed to it again, which might I say is highly unlikely, Juniper will be just fine.”
 
@@ -140,7 +148,7 @@ And they were a relief.
 
 For two glorious years, I kept them corked in every night and day, reveling in… silence. 
 
-I wasn’t sure how exactly the two of them did it, but the earbuds were magic. Obviously, they couldn’t take it all away—so the colors were there to stay. But I saw it more as a light show with sound waves, eventually growing used to the ultraviolet rays every time someone screamed or a dog barked, and the plumes of blue and purple then with thudding noises, cars passing, and my parents' thud, thud, thudding down the stairs. My life came to an abrupt halt on a random Saturday during the summer. Mom forced me to circle the town delivering girl scouts cookies to get me out of my room. “Sensitives” was what we were named, and our condition was treated like a disability. I was fifteen years old, and Mom still wouldn't let me anywhere near the TV. 
+I wasn’t sure how exactly the two of them did it, but the earbuds were magic. Obviously, they couldn’t take it all away—so the colors were there to stay. But I saw it more as a light show with sound waves, eventually growing used to the ultraviolet rays every time someone screamed or a dog barked, and the plumes of blue and purple then with thudding noises, cars passing, and my parents' thud, thud, thudding down the stairs. My life came to an abrupt halt on a random Saturday during the summer. Mom forced me to circle the town delivering girl scouts cookies to get me out of my room. “Sensitives” was what we were named, and our condition was treated like a disability. I was sixteen years old, and Mom still wouldn't let me anywhere near the TV. 
 
 However, her favorite show was on, which meant I had no choice but to make myself scarce. Also an excuse for her to make me go outside. I had been put with two others. 
 
@@ -150,11 +158,11 @@ The ultraviolet haze sent my sluggish mind into gear. Bad. I wanted to cry out t
 
 I couldn’t breathe, talk, or move my facial muscles, my body and mind caught in an unyielding grasp. Mean’s voice whirred in my skull. “…which would only happen if Juniper was, let’s say, exposed to this phenomenon for a prolonged period of time. We have not quite understood this thing fully, yet, though we have a good idea. It can agitate the mind in ways we have not seen before, and in some ways, even hack its capabilities.”
 
-I didn’t understand what he meant until that moment, standing under the late evening sun, and watching Harry’s eyes that had already been permanently rolling, because in his words,  “Why the fuck would I want to deliver cookies to boomers?” jolted into the back of his head with a sickening squishing sound. 
+I didn’t understand what he meant until that moment, standing under the late evening sun, and watching Harry’s eyes that had already been permanently rolling, because in his words,  “Why the fuck would I want to deliver cookies to boomers?” jolting into the back of his head with a sickening squishing sound. 
 
 All of him seemed to jolt, to shudder, like he’d been struck by lightning. 
 
-His hand wrapped around a pack of peanut butter creams curled around the edge, the cookies slipping from his outstretched hand where his fingers had adapted a mind of their own, jerking into a fist and then a palm, and then going completely still. His eyes flickered. His lip curled, like he could see something I couldn't. The frequency-proof plugs we had been wearing were no longer a protection. It pierced right through, and maybe I was crazy, but I could almost sense the thing laughing at us. *Oh, yeah*, I thought, as an all too familiar sound filled my skull, and then my entire being, like tiny knives slicing through me and opening me up from the inside. That’s why Mean had looked at me like that with eyes that spoke of sympathy. 
+His hand wrapped around a pack of peanut butter creams curled around the edge, the cookies slipping from his outstretched hand where his fingers had adapted a mind of their own, jerking into a fist and then a palm, and then going completely still. His eyes flickered, lip curling, like he could see something I couldn't. The frequency-proof plugs we had been wearing were no longer a protection. It just pierced right through, and maybe I was crazy, but I could almost sense the thing laughing at us. *Oh, yeah*, I thought, as an all too familiar sound filled my skull, and then my entire being, like tiny knives slicing through me and opening me up from the inside. That’s why Mean had looked at me like that with eyes that spoke of sympathy. 
 
 I knew exactly what he wanted to say. 
 
@@ -184,7 +192,7 @@ Sadie went over like a domino, almost crashing into me. I followed suit and drop
 
 I think I screamed, but I just coughed up blood, large globules of it running down my chin and shirt. There were no words on my tongue, and what words I managed to cry out were muffled by copper filing between my lips.  I was half aware of my body flopping onto warm concrete—and once I was lying on my stomach, my own body moving on its own, my arms and legs having minds of their own—did my head twist around, contorting under the force ripping my brain to shreds. 
 
-Harry’s body stopped writhing, his eyes flickering, before he went completely still. “Five.” I could sense the woman looming over them. She kicked Harry to see if he was dead. He was. Popped like a grape. When her foot slammed into his back, his form rolled over, seeping scarlet followed in a stream. He was almost swimming in it. She crouched to my level, this time stroking through my hair and prodding my cheeks. Half conscious, the noise wasn’t as bad as it had been. I still had my hands clamped over my ears, my head pressed into the concrete, sucking in sharp breaths.
+Harry’s body stopped writhing, his eyes flickering, before he went completely still. “Five.” I could sense the woman looming over them. She kicked Harry to see if he was dead. He was. Popped like a grape. When her foot slammed into his back and rolled him over, seeping scarlet followed in a stream. He was almost swimming in it. She crouched to my level, this time stroking through my hair and prodding my cheeks. Half conscious, the noise wasn’t as bad as it had been. I still had my hands clamped over my ears, my head pressed into the concrete, sucking in sharp breaths.
 
 Could I… play dead?
 
