@@ -104,7 +104,8 @@ It was a barren wasteland of red soil. The sky was clouded with volcanic ash and
  
 “What! What! You terrible monster!” I screamed.
   
-‘My ship.’ Yahweh cackled. ‘The one your master, Saren, tried to steal from me.’  
+‘My ship.’ Yahweh cackled. ‘The one your master, Saren, tried to steal from me.’ 
+ 
 All of a sudden the ashy sky cleared and giant golden cube floated in space. 
   
 “That can’t be your ship it's bigger than the death star” I screamed. 
