@@ -165,3 +165,7 @@ I shot up. The thing clasped around my arm wasn’t a sunflower—it was a hand.
 And there, several feet away from me in the dirt, was Derek. He was breathing hard—*alive—*but his right arm was covered in dark blood that spilled out into the soil.
 
 “I think it’s time we had a talk,” he said calmly, as he let go of my [arm.](http://www.reddit.com/r/blairdaniels)
+
+---
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/15dec9g/im_taking_care_of_a_local_farm_for_a_few_weeks/)
