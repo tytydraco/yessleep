@@ -186,3 +186,5 @@ A single call, from one minute ago, which lasted exactly thirty-six seconds.
 ...
 
 "I'm so scared, Carm" is all I could say.
+
+[Part Four](https://www.reddit.com/r/nosleep/comments/15el2ve/i_think_my_new_neighbors_are_trying_to_eat_me_and/)
