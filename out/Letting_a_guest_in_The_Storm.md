@@ -1,0 +1,13 @@
+I was sitting in my room, playing games on my computer, and I heard some loud as hell crashes from the lightning outside, then about two moments later my power went out.
+
+I live in Missouri, obviously I'm not saying where I live, but there is an especially bad storm over my home. I live in a suburban area, and I have been hearing tapping on the window outside, and no matter how much I look, there is nothing there. I figured it was probably a branch or something, and brushed it off. I sat back down at my desk and just took a nice deep breath, and the tapping starts again.
+
+I checked my window again, I still see nothing, and just to intertain the thought in my head I figured "well why the hell not, if something is touching my window a mark will be left... Right?" So I had shown my phone light on my window and I see a hand print as if someone was resting a hand on the outside of my window... And I don't know what kind of thoughts took over my head, but I opened my window and simply said "Come on in, lady of the storm" and I simply felt a gust of a chilly breeze go by and nothing... And I just stood there, heart pounding, not daring to move for another few minutes... Just petrified that I willingly let something in with no knowledge of what it was... I just sit back down and just stared into the black screen of my computer monitor, and I have a very clear reflection in it... But to my right I see a vague shape of a woman, and when I look over my shoulder, there is nothing there.
+
+I got up and just lie on my bed, and I am going to stay here unless I have to move. My fans aren't working so it is hot as hell and I'm lying here miserably, and sweating from how hot my room is and definitely not the experience I had just now
+
+And I have been hearing very rarely her voice speaking in the back of my mind... And in a mirror I sometimes see a figure with long white hair standing in it... I... Thought supernatural entities didn't actually exist... This is not in my head is it? I'm not losing my mind... right?
+
+So I am leaving this open to record and post any updates as to what is happening... I hope I'm not in any real danger... Anyone have any tips? Otherwise I may go to sleep soon. Is that a good idea?
+
+Actually before I post, I heard a voice say something along the lines of "My previous host was lost and I need someone to house me for a while" I tried responding and I have yet to get a response back. I apologize if my writing is a little bad but my head is all over the place.
