@@ -143,3 +143,5 @@ I walked over to inspect the plate. On it was a raw slab of meat, sitting in a p
 I gagged thoroughly as a realization hit me: that piece of meat didn't come from an animal.
 
 **It came from a human.**
+
+[Part Four](https://www.reddit.com/r/nosleep/comments/15fhruu/i_think_my_new_neighbors_are_trying_to_eat_me_and/?utm_source=share&utm_medium=web2x&context=3)
