@@ -1,3 +1,13 @@
+I work for BBC News UK. I found a disturbing video tape which shook me.
+
+I'll transcribe it below.
+
+A man named Andre Granger made an opening statement:
+
+'My Brother Was Murdered In the Himalayan Mountains. It was my fault.'
+
+Then he continued.
+
 ‘I can’t be restrained under the Mental Health Act, because I’m not crazy. I need to get it off my chest, but I can’t do it for free, not for something like this, even in my situation. And I certainly don’t need to speak to the police, there really is no need. I killed my brother. Killed him in cold blood.’
 
 A sinister blackness enveloped the second city. There was a late summer downpour, and it washed the sins of mankind, but not Granger. Each droplet boomeranged away from him, as he walked to the entrance of the towering cube.
