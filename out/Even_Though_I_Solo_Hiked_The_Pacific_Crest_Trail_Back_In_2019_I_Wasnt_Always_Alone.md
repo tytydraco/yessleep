@@ -1,6 +1,8 @@
 In April of 2019, I decided to solo hike the Pacific Crest Trail.
 
-After much planning, I finally began my journey on April. 30th in Campo, California.
+It had been a dream of mine ever since I watched the movie, "Wild".
+
+Anyway, after much planning, I finally began my journey on April. 30th in Campo, California.
 
 Now, I estimated that it would take me about 6 months or so to complete the trail with my final destination being Canada.
 
@@ -14,7 +16,7 @@ I decided to rest up there for a few days (Zero days) before heading back onto t
 
 It was several days later when I felt invigorated enough and was back on the trail again.
 
-About a week later, is when inexplicable things began to happen to me.
+About a week after leaving Kennedy Meadows is when inexplicable things began to plague me.
 
 It was around Yosemite National Park when I noticed I was being followed.
 
