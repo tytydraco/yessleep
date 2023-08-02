@@ -70,7 +70,7 @@ I didn't reply. Instead, I just breathed in and out. Waiting impatiently for me 
 
 "Who are you and why are you here?" I asked impatiently. I don't care about what he said about me nor my family. I just wanted to be left alone to myself and get the hell out of here. But I had to know who is he and why he's here.
 
-He didn't react, instead he just nodded. "My name is Darwin Michigan. I'm here to tell you that we have tracks to where the suspects have gone to. They're located at an abandoned mansion at Archon Arena."
+He didn't react, instead he just nodded. "My name is [Darwin Michigan](https://www.reddit.com/r/nosleep/comments/13s6hmh/theres_a_universe_where_earth_is_filled_with/?utm_source=share&utm_medium=web2x&context=3). I'm here to tell you that we have tracks to where the suspects have gone to. They're located at an abandoned mansion at Archon Arena."
 
 "Why are you telling me this?" Either he understood I wanted revenge for my family and rescue my daughter or just info dump on me. At least, I'm grateful he had told me this. Because I'm going to kill those fuckers myself. I don't care if the police arrests me or execute me. I will rescue my baby daughter.
 
