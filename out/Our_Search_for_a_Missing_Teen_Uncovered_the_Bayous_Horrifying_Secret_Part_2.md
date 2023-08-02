@@ -172,7 +172,7 @@ Our conversation with Remy wrapped up soon after, the lingering silence of the b
 
 I settled into the passenger's seat, feeling the car's familiar worn-in grooves against my back. I slammed the door shut, harder than I intended, earning a sharp look from Ash.
 
-"You've got to stop doing this, you know." His voice was calm, a contrast to the charged silence that filled the car.
+"Reine, you've got to stop doing this, you know." His voice was calm, a contrast to the charged silence that filled the car.
 
 I shot him a defensive look. "Doing what?"
 
