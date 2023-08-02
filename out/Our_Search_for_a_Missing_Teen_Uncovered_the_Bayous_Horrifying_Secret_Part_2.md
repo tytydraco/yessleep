@@ -60,7 +60,9 @@ Remy glanced at the name tag, his lips forming a thin line. "This don't mean not
 
 "Actually, it means a lot," I countered, "It means you've been hiring minors to work at a place that serves liquor."
 
-I tutted, shaking my head with feigned disappointment. "The sheriff might be very interested in that."Remy smirked with confidence. "You gonna call 'em? Go ahead. I ain't hidin' nothin'."
+I tutted, shaking my head with feigned disappointment. "The sheriff might be very interested in that." 
+
+Remy smirked with confidence. "You gonna call 'em? Go ahead. I ain't hidin' nothin'."
 
 The smirk was a challenge, a dare. I knew he was testing us. In my heart, I knew the sheriff would do nothing. This was a small town where secrets were kept and outsiders were viewed with suspicion. The police had already turned a blind eye to Gabby's disappearance.
 
@@ -128,7 +130,7 @@ Ash’s hand tightened around mine, the reassurance I desperately needed. A sile
 
 I knew I only had one card to play, and I had to do it quickly. I took a deep breath, and then... I dropped the facade. I spoke in flawless Cajun French, the language of my youth, the language of the place I used to call home.
 
-"Écoute-moi, mon frère," (“Listen to me, brother”), I began, my voice steady, authoritative, yet filled with the familiar drawl. There was an audible gasp in the room as my heritage was laid bare, my words hung in the air like a declaration.
+"Écoute-moi, mon frère, s'il te plaît," (“Listen to me, brother, please”), I began, my voice steady, authoritative, yet filled with the familiar drawl. There was an audible gasp in the room as my heritage was laid bare, my words hung in the air like a declaration.
 
 "Tu n’as pas besoin de faire ça," (“You don’t have to do this”), I pleaded, my eyes fixated on whatever weapon he had hidden.
 
