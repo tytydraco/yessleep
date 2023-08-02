@@ -1,10 +1,10 @@
 Recently my family was murdered i was away with a friend When it happened.
 
- it was a gloomy night and i spent a long time walking i thought "why the hell did i refuse to be driven home" as i walked up the steps to my house and i went to turn the door handle, but it just pushed open.
+it was a gloomy night and i spent a long time walking i thought "why the hell did i refuse to be driven home? i am such an idiot" as i walked up the steps to my house and i went to turn the door handle, but the door just pushed open.
 
-i stepped inside and I went and felt for the light switch, it felt wet with something i thought it was weird but shrugged it off and then found the switch and really wished i didn't. 
+i stepped inside and I went and felt for the light switch, it felt wet with something i thought it was weird but shrugged it off and then i finally found the switch and really wished i didn't.
 
-I went and flicked the switch to turn on the light and went pale. There was so much blood up the walls, the floor, the couch, desk, carpet tv everywhere i was in shock i felt sick my world just came down in one moment, the tears wouldn't stop flowing i knew i had to call the police and who ever did this could still be in here i thought my mind started racing thoughts flew through my head i couldn't stop shaking or crying and as i called the police i don't even know how the operator knew what i was saying.
+I went and flicked the switch to turn on the light and went pale. There was just so much blood  it looked like someone threw a bucket of red paint and left it was up the walls, the floor, the couch, desk, carpet tv everywhere i was in shock at the horrifying scene  i felt sick to my stomach  my world just came down in one moment, the tears wouldn't stop flowing i knew i had to call the police and who ever did this could still be in here i thought my mind started racing thoughts flew through my head i couldn't stop shaking or crying and as i called the police i don't even know how the operator knew what i was saying.
 
 they said they were on the way they said 10 minutes but it felt like years i was sitting in the cold waiting for them to arrive but i couldn't feel the cold, tears streaming down my face, soon i heard the sirens and the police pulled in, then they told me to go to a friends house while they searched so i did.
 
@@ -12,7 +12,7 @@ i checked every day for any update but they found nothing my house wasn't big ju
 
 He was tall, blonde, with blue eyes, small ears and a grin that he never really took off also he was slightly built and was pretty athletic. He was 20 so was i.
 
- we went everywhere together the movies, golfing swimming, watched tv, played games went to the bar you name it we went everywhere.
+we went everywhere together the movies, golfing swimming, watched tv, played games went to the bar you name it we went everywhere.
 
 also his parents where so kind to me they let me stay after i thought they would kick me out but they didn't and they also asked if i was ok every day it was very nice of them i said every time though i said i was fine.
 
