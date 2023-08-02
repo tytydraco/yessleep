@@ -98,7 +98,7 @@ Remy's gaze shifted from me to Ash, his anger turning to contempt. His broad fra
 
 "You're steppin’ into a world that ain't yours, boy," he said to Ash, his voice a deep, menacing rumble, his words sliding out like a snake in the grass. "You and your lady here better learn your place, or you'll find yourselves on the wrong side of the Mississippi."
 
-I watched as Ash took it in stride, his expression unchanging, his eyes steady. But I couldn't just stand there and watch this brute belittle Ash. My fingers clenched into tight fists, nails biting into my palm. I felt a prickling heat rise to my cheeks, a sign of the fury stirring inside me.
+I watched as Ash took it in stride, his expression unchanging, his eyes steady. But I couldn't just stand there and watch this brute belittle my husband. My fingers clenched into tight fists, nails biting into my palm. I felt a prickling heat rise to my cheeks, a sign of the fury stirring inside me.
 
 Without hesitation, I slipped in front of Ash, closing the gap between me and Remy. "And what world would that be, Remy?" I said, my tone icy, matching the hardness in his gaze. "The one where you exploit underage girls, or the one where you turn a blind eye when they disappear?"
 
@@ -180,9 +180,9 @@ He sighed. "Acting like a loose cannon. One of these days, you're going to get u
 
 "Please," I scoffed, "I handled myself just fine back there."
 
-"Did you?" He challenged, his sharp gaze never leaving mine. "Or did you just get lucky?"
+"Did you?" He challenged, his sharp gaze never leaving mine. "Or did you just get lucky this time?"
 
-I couldn’t answer that. He was right, as much as I hated to admit it. "Yeah," I said, finally breaking eye contact and staring at the winding road. "Yeah, you're right."
+I couldn’t answer that. He was right, as much as I hated to admit it. "Yeah," I said, finally breaking eye contact and staring at the winding road. "Yeah, you're absolutely right."
 
 "Wow, did I actually just hear that?" He teased, but I could tell he's relieved.
 
