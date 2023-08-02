@@ -171,3 +171,5 @@ They had taken her.
 Soon, they'd be *tasting* her.
 
 **And I was next.**
+
+[Part Five](https://www.reddit.com/r/nosleep/comments/15gfgx9/i_think_my_new_neighbors_are_trying_to_eat_me_and/)
