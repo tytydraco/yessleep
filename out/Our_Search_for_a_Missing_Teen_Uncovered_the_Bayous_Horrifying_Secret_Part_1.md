@@ -270,4 +270,6 @@ Therese, who had been quietly watching from the doorframe, took a step into the 
 
 We sat there in silence for a moment, taking in the horrifying revelation. The sketches hinted at a terror that seemed to be consuming Gabby from the inside. We had to find her, and fast.
 
+[Part 2](https://www.reddit.com/r/nosleep/comments/15fzmd6/our_search_for_a_missing_teen_uncovered_the/)
+
 [X](https://www.reddit.com/r/PageTurner627Horror/)

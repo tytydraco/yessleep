@@ -100,6 +100,6 @@ I don't want to bring him along with me. I don't want my dad to suffer and die t
 
 &#x200B;
 
-Part 2
+[Part 2](https://www.reddit.com/r/nosleep/comments/15f9qxp/the_cult_of_the_archon_the_mansion_in_archon/?utm_source=share&utm_medium=web2x&context=3)
 
 &#x200B;
