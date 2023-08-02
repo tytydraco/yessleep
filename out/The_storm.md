@@ -1,0 +1,16 @@
+That's the problem with storms, they cover up noises. I'm 1000% sure I just heard my stairs creak. It's the 9th step, it's starting to rot I think. I keep meaning to get it fixed but maybe it's a blessing I haven't. No I'm being ridiculous right? There's no way someone could have gotten in. No, I'd definitely know. 
+
+Having said that, why isn't Cody barking? He always barks during storms. Daft dog prolly thinks the thunder is a bigger dog and takes it as a challenge. The storms being going for at least an hour and I haven't heard him once. I've got to make sure he's OK. Right. I've got my torch, my phone and pepper spray. I won't need it though, there's no-one out there. I'd know. 
+I might drop to the floor and crawl, just in case. It's just more practical, less likely to trip over things Cody might have left on the floor. I can't believe this. Belly crawling from my bed to the door. 
+
+Shit.. that's definitely coming from the hall. God, why is this weather so loud? I'm straining to hear it again, but it was absolutely real. Someone whistled. A real low whistle, but real none the less. Through the crack under the door, I can see what look like stretched out paws with massive claws. Whatever it is, it's standing on its hind legs and must be huge. I've gone all cold, and this time I'm not blaming the storm.
+
+A second whistle, oh god OH GOD now its scratching at the door. Screw this, I've got to hide. Right, the wardrobe. I can hide inside under all the clothes I've yet to hang up. Hopefully that'll disguise me should they manage to get in. What could it be? Unless it's an elaborate costume, I can't see how they were human legs. Looked more like a long dog the way they were bent. Christ. I wonder if it's the dog from the forest? That was a weird looking thing, like a cross between a coyote amd a massive dog. From where I was standing it looked like it might have some human dna thrown in there for good measure. Poor Cody was terrified. I whistled at it, trying to coax it nearer so I could see if it needed help but it just stared at us.
+
+ Ugh,thinking about it again gave me the shudders. No, that's absurd. How could a dog from 3 evenings ago, find me during a storm, get in, get all the way upstairs to my bedroom and stand on his hind legs whistling? Main character syndrome or what. I'm just tired and freaked out. I've obviously imagined this, there is no way anyone or anything could be in my house. However, the nest I've made myself in the wardrobe is comfy so I'll stay here tonight. My phones about to die, I have to pee, there's something outside my door and I've only got pepper spray and a torch.
+
+God, if you exist and you have a minute. Please, PLEASE get that thing out my house and send it back to the forest or whatever dimension it crawled out of. 
+
+Did you hear that?? It opened the door. Oh god, if I wasn't trying so to not exist I'd be sick. The smell. Double fuck, I can see it through the tiny gap in the hinge. It's massive. It's like a dog/ deer/ human. It reeks of rotting meat. Oh god, its turning round.
+
+Help me, please god help me.
