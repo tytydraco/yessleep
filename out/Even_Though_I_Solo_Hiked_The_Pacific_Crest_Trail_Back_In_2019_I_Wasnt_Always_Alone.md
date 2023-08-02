@@ -14,13 +14,13 @@ Anyway, it was my 53rd day on the trail when I finally reached the famous Kenned
 
 I decided to rest up there for a few days (Zero days) before heading back onto the trail again.
 
-It was several days later when I felt invigorated enough and was back on the trail again.
+It was several days later when I felt invigorated and was back on the trail again.
 
-About a week after leaving Kennedy Meadows is when inexplicable things began to plague me.
+It was about a week after leaving Kennedy Meadows is when inexplicable things began to plague me.
 
 It was around Yosemite National Park when I noticed I was being followed.
 
-Now, there are other hikers and even wildlife but this felt different so, as a female hiker I had to be cautious.
+Now, there are other hikers and even wildlife on the trail but this felt different and so, as a female hiker I had to be cautious.
 
 Anyway, I found myself walking faster and according to my GPS, there was a campsite nearby.
 
@@ -90,12 +90,12 @@ As I was packing up, I noticed several sets of footprints surrounding my tent (E
 
 Anyway, I somehow managed to make it to the nearest town where I stayed for about a week in order for my ankle to heal.
 
-Despite my frightening experience though, I eventually got back onto the PCT and made it to Canada without another incident, although I was still being followed...
+Despite my frightening experience though, I eventually got back onto the PCT and finally made it to Canada without another incident, although I was still being followed...
 
-As soon as I got home, I did some research and the results I got were about Skinwalkers and the Wendigo...
+As soon as I got back home, I did some research and the results I got were about Skinwalkers and the Wendigo...
 
-Now, I'm not saying what I experienced on the PCT was supernatural (I'm a skeptic) but who knows what's real and what's not...
+Now, I'm not saying what I experienced on the PCT was supernatural (I'm a skeptic) but who really knows what's real and what's not...
 
 Anyway, to those of you who are thinking about hiking the PCT my story isn't intended to discourage you from hiking it but rather it's a cautionary tale about the potential dangers on the trail.
 
-Stay safe, everyone, and happy hiking.
+Stay safe everyone, and happy hiking.
