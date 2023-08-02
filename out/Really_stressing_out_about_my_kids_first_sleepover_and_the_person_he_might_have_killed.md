@@ -62,6 +62,12 @@ But I figure denying his request could make things much worse, so I promised to 
 
 [Thoughts?](https://www.facebook.com/P-F-McGrail-181784199029462/)
 
+--------
+
+[Thoughts.](https://redd.it/15g3q46)
+
+----------
+
 [BD](https://www.reddit.com/r/ByfelsDisciple/)
 
 
