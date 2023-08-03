@@ -211,3 +211,5 @@ I’m going to find out what happened to Kate, even if it means walking into hel
 PS: If anyone knows how to get rid of that thing do let me know, who knows, I may be able to convince Jackson to access my Reddit account.
 
 [X](https://abduladhlazeez.wordpress.com/)
+
+[Part 03](https://www.reddit.com/r/nosleep/comments/15h1447/the_bermuda_triangle_final_you_dont_wanna_fly/)

@@ -1,6 +1,6 @@
 In April of 2019, I decided to solo hike the Pacific Crest Trail.
 
-It had been a dream of mine ever since I watched the movie, "Wild".
+It had been a dream of mine ever since watching the movie, "Wild".
 
 Anyway, after much planning, I finally began my journey on April. 30th in Campo, California.
 
@@ -14,7 +14,7 @@ Anyway, it was my 53rd day on the trail when I finally reached the famous Kenned
 
 I decided to rest up there for a few days (Zero days) before heading back onto the trail again.
 
-Several days later when I felt invigorated and was back on the trail again.
+Several days later when I felt invigorated and was back on the trail.
 
 It was about a week after leaving Kennedy Meadows when inexplicable things began to happen to me.
 
@@ -26,13 +26,13 @@ Anyway, I found myself walking faster and according to my GPS, there was a camps
 
 It was about twenty minutes later when I finally, reached the campsite.
 
-I breathed a sigh of relief when I noticed there were several other campers there too.
+I breathed a sigh of relief when I noticed there were several other hikers there too.
 
 Feeling exhausted, I decided to camp there for the night.
 
-After setting up my tent, I decided to have something to eat, before going to sleep.
+After setting up my tent, I had something to eat, before going to sleep.
 
-It was around 11 PM when I was awoken by someone (Or something) calling my name.
+Around 11 PM, I was awoken by someone (Or something) calling my name.
 
 At first, I thought it was a dream that was until I heard it again.
 
@@ -78,7 +78,7 @@ I couldn't make out any features but it was humanoid in shape.
 
 "What do you want?"
 
-Now, it was clearly mocking me and at this point, I was truly scared.
+Now, it was clearly mocking me and at this point, I was really scared.
 
 With nowhere to go though, I decided to stay in my tent until morning.
 

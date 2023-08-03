@@ -113,3 +113,5 @@ Maybe you guys can help me out until Jackson comes. I’m too scared to go back 
 [X](https://www.reddit.com/r/abduladhlazeez/)
 
 [Part 02](https://www.reddit.com/r/nosleep/comments/14t5fn1/the_bermuda_triangle_update_i_shouldnt_have_dated/)
+
+[Part 03](https://www.reddit.com/r/nosleep/comments/15h1447/the_bermuda_triangle_final_you_dont_wanna_fly/)
