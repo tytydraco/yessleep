@@ -16,13 +16,13 @@ I decided to rest up there for a few days (Zero days) before heading back onto t
 
 Several days later when I felt invigorated and was back on the trail.
 
-It was about a week after leaving Kennedy Meadows when inexplicable things began to happen to me.
+About a week after leaving Kennedy Meadows, inexplicable things began to happen to me.
 
 It was around Yosemite National Park when I noticed I was being followed.
 
 Now, there are other hikers and even wildlife on the trail but this felt different and so, as a female hiker I had to be cautious.
 
-Anyway, I found myself walking faster and according to my GPS, there was a campsite nearby.
+I found myself walking even faster and according to my GPS, there was a campsite nearby.
 
 It was about twenty minutes later when I finally, reached the campsite.
 
@@ -58,7 +58,7 @@ Anyway, I was hungry but after my meal of beans and rice, I began to feel drowsy
 
 As I was about to fall into a deep sleep I heard someone shout, " Please help me, Kim, please help me, Kim, please help me Kim." in rapid succession.
 
-Anyway, the voice was the same one from 3 days earlier which unnerved me even more because I was certain now, this person or thing was stalking me.
+The voice was the same one from 3 days earlier which unnerved me even more because I was certain now, this person or thing was stalking me.
 
 Despite knowing this though I still wanted to see who or what it was terrorizing me.
 

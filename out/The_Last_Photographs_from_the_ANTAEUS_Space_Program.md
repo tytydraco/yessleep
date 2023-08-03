@@ -1,4 +1,4 @@
-There’s a reason the government is hiding it from the public. UFOs, UAPs, whatever you want to call them. Soon they’re going to have to come clean, at least about parts of it. Even so, there’s no way they’ll be honest about the worst of it. Why it’s been secret for so long.
+There’s a reason the government is hiding it from the public. UFOs, UAPs, whatever you want to call them. Soon they’re going to have to come clean, at least about parts of it. There’s no way they’ll be honest about the worst of it. Why it’s been secret for so long.
 
 I will. I don’t expect this to stay up for long. I bet my computer’s been bugged for the past ten years. So read carefully. I want you to be ready.
 
@@ -106,12 +106,12 @@ My tour was over. They let me leave. Who would believe me?
 
 Who did I have left to tell?
 
-Here’s the thing. I’m dying. Terminal brain cancer, one-of-a-kind. Doctors say they’ve never seen anything like it. Reminds them of something they’d see in someone exposed to nuclear waste. Must be why the government used me to take pictures instead of some precious scientist. But before I go I need someone to carry this burden with me.
+Here’s the thing. I’m dying. Terminal brain cancer, one-of-a-kind. Doctors say they’ve never seen anything like it. Reminds them of something they’d see in someone exposed to nuclear waste. Must be why the government used me to take pictures instead of some precious scientist. Before I go I need someone to carry this burden with me.
 
 I don’t have answers to everything I saw, every rumor I heard. But I saw enough.
 
 It was us that we were studying. The ANTAEUS and her crew. Returned to Earth butchered and broken and put back together into something new. There never were any aliens.
 
- But there is something up there. Something the government is watching in secret. Something that hates humanity enough to use the strings of time and space as instruments of torture. And I do know one thing.
+But there is something up there. Something the government is watching in secret. Something that hates humanity enough to use the strings of time and space as instruments of torture. And I do know one thing.
 
 In every picture, it was getting closer to Earth.
