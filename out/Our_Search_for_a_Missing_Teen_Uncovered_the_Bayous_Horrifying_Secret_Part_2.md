@@ -60,7 +60,7 @@ Remy glanced at the name tag, his lips forming a thin line. "This don't mean not
 
 "Actually, it means a lot," I countered, "It means you've been hiring minors to work at a place that serves liquor."
 
-I tutted, shaking my head with feigned disappointment. "The sheriff might be very interested in that." 
+I tutted, shaking my head with feigned disappointment. "The sheriff might be very interested in that."
 
 Remy smirked with confidence. "You gonna call 'em? Go ahead. I ain't hidin' nothin'."
 
@@ -190,6 +190,6 @@ I couldn’t answer that. He was right, as much as I hated to admit it. "Yeah," 
 
 I reached into my pocket, pulling out the crumpled note I'd received earlier from Lucien. "But I got something." I smoothed it out on my lap to read and held it up for Ash to see.
 
-‘I know what happened to Gabby. Meet me at Riverside Walk at midnight.’
+‘I know what happened to Gabby. Meet me at the pier at midnight.’
 
 [X](https://www.reddit.com/r/PageTurner627Horror/)

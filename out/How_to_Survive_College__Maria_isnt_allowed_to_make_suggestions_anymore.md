@@ -228,6 +228,8 @@ I told her.  How that creature had come out, grabbed her, and turned her into so
 
 Anyway, things have been super great after that.  Everyone looks so miserable that I can’t even feel smug about being right.  Maria seems embarrassed, Cassie is just… upset and bursting into tears at random points in the day, and I… well.  I’m just glad everyone is okay.  We won’t be trying this again.  Ever.  I promise.[\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
 
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/15gtncw/how_to_survive_college_we_can_all_learn_from_our/)
+
 [Read the current draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 
 [Visit the college's website.](https://alderrayne.com/)
