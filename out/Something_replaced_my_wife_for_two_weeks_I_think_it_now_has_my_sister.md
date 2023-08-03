@@ -33,4 +33,4 @@ Now it's been about a year since this happened. Fortunately, our son thinks it w
 We sold our house afterwards to a couple who are into horror stories and moved to another town.
 You remember how the creature was always staring out the window? And that my sister lived across the street from us? What if it was watching my sister the whole time?  
 She's on vacation in Italy right now and not answering calls from anyone, which is very unusual for Mia.
-But my son has the same nightmare every night: Elle and Suzy, both with completely black eyes and that grin.
+But my son has the same nightmare every night: Mia and Suzy, both with completely black eyes and that grin.
