@@ -64,7 +64,7 @@ But I figure denying his request could make things much worse, so I promised to 
 
 --------
 
-[Thoughts.](https://redd.it/15g3q46)
+[Thoughts.](https://redd.it/15i09dt)
 
 ----------
 

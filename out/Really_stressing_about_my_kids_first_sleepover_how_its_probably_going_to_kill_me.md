@@ -1,8 +1,8 @@
 “We need to have a talk.”
 
-My son rolled his eyes at me. “[About what](https://redd.it/15cq9rh)?”
+My son rolled his eyes at me. “About what?”
 
-“About those two police officers you killed,” I answered, folding my arms. 
+“[About those two police officers you killed](https://redd.it/15cq9rh),” I answered, folding my arms. 
 
 Of course, I didn’t want to believe that was true. But he had pushed things far enough, and it was time to see how he would react under gentle pressure. 
 
@@ -44,8 +44,7 @@ I tried to communicate with him in a way that he would understand. “Huh?”
 
 Ugly kid pointed to a trail of very muddy footprints that I’d missed because of the blood and rugs.  
 
-I wanted to puke frozen vomit. The child-sized footprints emerged from the woods behind my house and zigzagged through my backyard before disappearing around the corner. 
-
+I wanted to puke frozen vomit. The child-sized footprints emerged from the woods behind my house and zigged nineteen steps before zagging thirteen more and disappearing around the corner. 
 “You should have buried him deeper,” ugly kid whispered. 
 
 “Yeah,” my son answered in a quiet voice. “I realize that now.” He wiped his eye. “I’m so sorry, Dad. I tried to keep us safe. But Oliver’s gotten out of the grave we dug, and now [he’s coming to hurt us](https://www.facebook.com/P-F-McGrail-181784199029462/).”

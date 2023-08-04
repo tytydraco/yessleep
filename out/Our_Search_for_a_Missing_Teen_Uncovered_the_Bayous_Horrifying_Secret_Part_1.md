@@ -272,4 +272,6 @@ We sat there in silence for a moment, taking in the horrifying revelation. The s
 
 [Part 2](https://www.reddit.com/r/nosleep/comments/15fzmd6/our_search_for_a_missing_teen_uncovered_the/)
 
+[Part 3](https://www.reddit.com/r/nosleep/comments/15hzso1/our_search_for_a_missing_teen_uncovered_the/)
+
 [X](https://www.reddit.com/r/PageTurner627Horror/)

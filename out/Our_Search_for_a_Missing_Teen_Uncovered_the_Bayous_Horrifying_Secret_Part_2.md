@@ -192,4 +192,6 @@ I reached into my pocket, pulling out the crumpled note I'd received earlier fro
 
 ‘I know what happened to Gabby. Meet me at the pier at midnight.’
 
+[Part 3](https://www.reddit.com/r/nosleep/comments/15hzso1/our_search_for_a_missing_teen_uncovered_the/)
+
 [X](https://www.reddit.com/r/PageTurner627Horror/)
