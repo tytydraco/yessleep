@@ -34,6 +34,10 @@ I placed my keys into the lock of my basement and spoke some words until there w
 
 “Good. I’ve brought food.”
 
+“Do not deceive them. We will not be so lenient should you fail to deliver on your promises again. We have held our end of the bargain and it is you we will take next.” 
+
+My wounded pride was overwhelmed by the aching fear in my belly. I don’t know where I’ll be taken should I fail. But there will be no escape, that much is certain. I forget sometimes that the daemons I house are not my friends but merely… let’s call them work partners. I must plan this carefully or I’m terrified that eternal damnation will be my fate.
+
 This was yesterday. The fool with the megaphone would not allow me to sleep. But I know they are preparing. And I will allow them entry. They know not what waits for them. 
 
-I must go and finish my preparations. This will be fun.
+I must go and finish my preparations. If not for the stakes, this would be fun.
