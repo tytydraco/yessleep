@@ -144,7 +144,7 @@ The last time I went against Knocks' advice had been to save my niece from the t
 
 Edward stood at the bottom of the stairs staring up at me.
 
-"FUCK!" I yelled falling over. I scrambled backwards till my back hit the wall. Edward's eyes appeared black and empty like those of a shark. 
+"FUCK!" I yelled falling over. I scrambled backwards till my back hit the wall. Edward's eyes appeared black and empty like those of a shark.
 
 "Ella?" I cried out, "I thought we agreed the doll was to stay in the car."
 
@@ -400,4 +400,4 @@ If anyone is going to ask me what the symbol is, I won’t be revealing it here.
 
 And finally, was I serious about cementing the mirror and dropping it into the ocean? I was. In fact, I had just found someone who was willing to take on the strange job of cementing a mysterious box when other things started to happen.
 
-It’s not the last time I had to deal with the mirror demon. There’s still entities four and five to tell you about. [\[!\]](https://www.reddit.com/r/TheEmptySpaces/)
+It’s not the last time I had to deal with the mirror demon. There’s still entities [four](https://www.reddit.com/r/nosleep/comments/15gptpu/a_passageway_opens_up_in_my_house_at_night/) and five to tell you about. [\[!\]](https://www.reddit.com/r/TheEmptySpaces/)
