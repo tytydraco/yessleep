@@ -1,0 +1,42 @@
+We woke to the fire alarm. But couldn’t smell any smoke. My husband opened the door. I stayed close behind him, leaving our bedroom. Downstairs, the entire kitchen was engulfed. Mesmerizing pools of circular flames with mysterious black centers, spreading across the cabinets and up the ceiling. Within that inferno peculiar figures—furry red beasts with sinuous tails and eerie smiles, their fangs gleaming brightly like shards of moonlight—danced, bounding across the table and swinging from curtain to curtain.
+
+&#x200B;
+
+My husband rushed into the office, scanning for items to save. He grabbed a plastic container with paperwork, tax returns, passports, social security cards, and cherished relics from our kids' younger days—old notebooks filled with doodles and heartfelt letters from sleepaway camp. He placed his laptop and charger on top, balancing them. Instinctively, I followed suit, moved by the emotion and urgency in his movements. I hastened to my parent's cabinet, my fingers trembling as I gathered a selection of deeply sentimental items. Among them, I clutched fading photo albums, capturing weddings, birthdays, vacations, joy and laughter from years past, and then there were the war medals from my ancestors and postcards from my parents, a connection to loved ones now gone, a reminder of life's preciousness and the fleeting nature of time, and I ran, dragging my bags of keepsakes, past the inferno in the kitchen, not even looking again for fear of seeing those red furry imps.
+
+&#x200B;
+
+I found my husband at the edge of our lawn, surrounded by other belongings he managed to save—pillows, DVDs, oil paintings, and snacks. I added my treasures to the piles and asked if he saw those monstrous things in the flames. He hadn’t. I couldn’t believe it. I explained them to him, and he said I must have been seeing things, that the fire must have shaken me into madness, sort of joking about it, though it was difficult to make light of anything, given that our home was on the brink of ashy obliteration.  
+Outside in the courtyard, the night was quiet. We could hear our alarm blaring, but everything else seemed normal. Those creatures wreaked havoc inside, sprinting up the stairs and fornicating in the bedrooms. It dawned on us that our fire alarm served only as a noise to wake us in the night and had no connection to the world; it didn't actually send an emergency signal to the fire department.
+
+&#x200B;
+
+My husband called 911. He explained the dire situation to the operator. As worry gripped me, I thought about our neighbors and the potential spread of destruction but decided not to bother them.
+
+&#x200B;
+
+We waited, sitting on a bench near a pine tree, gazing at our darkened windows. My husband speculated that maybe it hadn't reached the bedrooms or office yet. If contained to the kitchen, we'd only lose food, dishware, and other things we could replace.
+
+&#x200B;
+
+The firetruck's siren wailed louder than necessary down our empty street, waking our neighbors, their window lights flicking on. Firefighters in full gear, wielding extinguishers and axes, entered our home to assess the extent of the damage.
+
+&#x200B;
+
+It didn’t take long.
+
+&#x200B;
+
+The fire chief approached us cautiously, already removing his face mask. He looked at us, two eighty-year-olds in our pajamas and shoeless at 3am on a Wednesday in October, surrounded by and holding our most prized possessions.
+
+&#x200B;
+
+He consoled us, speaking with an abundance of compassion and concern. Our home was completely fine. The alarm must have malfunctioned.
+
+&#x200B;
+
+But we both saw the fire and felt the terrible heat, we were sure. I have my husband as a witness, and he has me, to prove we haven’t begun the next, horrible phase of life, where the mind plays tricks, rebelling against the body.
+
+&#x200B;
+
+Or, at least, if we are going down that dark road, at least we are going down together.
