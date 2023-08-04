@@ -158,7 +158,7 @@ He nodded, looking out at his small, humble home. The dim porch light illuminate
 
 "But listen," I told him, meeting his gaze. "We're going to do everything we can to find Gabby, and you have my word that we'll keep you updated if anything comes up."
 
-He nodded, a small, grateful smile creeping onto his face. "Thanks, sœur," he said, his voice filled with sincerity. "For everything."
+A small, grateful smile creeped onto his face. "Thanks, sœur," he said, his voice filled with sincerity. "For everything."
 
 I nodded in acknowledgment, watching as Lucien got out of the car and walked towards his home. I watched him disappear into the dim light, his silhouette merging with the shadows. A sense of foreboding hung heavy in the air.
 

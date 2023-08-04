@@ -1,6 +1,7 @@
 Back in the 2000’s my grandparents bought a big house in the mountains. I loved going there for the summers even tho I had no friends there. Everyone was just so weird they stayed inside their homes rarely going out. As a child my grandma would say they were working from home and that the children studied at home all day even summers. I believed her as a little child but when i was a teenager i started being suspicious of my grandmothers lies. My mother told me to stop doubting my gran and just believe it. I let it go.
  
-One summer when i was 15 me and my siblings were staying over for a week. Grandpa sat us down in the living room. “Alright kids. Since you guys don’t really know the house or the village rules i’ll tell you.” he said something like that in a very cold tone as we never slept over before. My parents never let us stay longer than 8pm. I wonder why. My grandpa started listing the rules. - Never stay out past 8pm  
+One summer when i was 15 me and my siblings were staying over for a week. Grandpa sat us down in the living room. “Alright kids. Since you guys don’t really know the house or the village rules i’ll tell you.” he said something like that in a very cold tone as we never slept over before. My parents never let us stay longer than 8pm. I wonder why. My grandpa started listing the rules. 
+- Never stay out past 8pm  
 - If you see someone in the village who isn’t wearing a red shirt immediately go to the closest church and dip your hands in holy water - every night before 11pm you must lock the windows and cover them and never look out
  - you’re free to go outside and unlock your windows from 7am  I wrote down every rule to remember them. I thought of the second rule a lot. Why do they have to wear a red shirt?
 
