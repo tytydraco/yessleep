@@ -42,4 +42,4 @@ I laughed a little in spite of myself.
 
 I layed back inside the tent as overpowering relief flooded through my system. It had been a lo-ooong week and, finally, it was over.
 
-Little did I know that it was really only the beginning.
+Little did I know that it was really [only the beginning.](https://www.reddit.com/r/nosleep/comments/15iib2p/homo_annihilus_part_2/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=2).
