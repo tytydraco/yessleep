@@ -126,7 +126,7 @@ Lucien frowned, deep in thought. "I couldn't pick up much else, but he did menti
 
 "It must be an alias," Ash suggested.
 
-“Why didn’t Remy mention this ‘Lupin’ when we spoke?” I asked.
+“Why didn’t Remy mention a ‘Lupin’ when we spoke?” I asked.
 
 “His son was sick and wasn’t working that day,” Lucien responded.
 

@@ -148,7 +148,7 @@ The room held its collective breath as Remy slowly withdrew his hand, empty. I f
 
 Remy studied me with a new intensity. "Where are you from, petite?" he asked, reverting to English, though his tone was softer now.
 
-"Assumption Parish, a small place called Pierre Part," I replied sheepishly. My past wasn’t something I like talking about.
+"Assumption Parish, a small place called Pierre Part," I replied sheepishly. My past isn’t something I like talking about.
 
 He was silent for a long time, scrutinizing me, as if trying to piece together a puzzle. Eventually, he sighed heavily, the animosity in his gaze finally receding. "Okay, chère," he said, resignation lacing his voice. "Let’s talk."
 
