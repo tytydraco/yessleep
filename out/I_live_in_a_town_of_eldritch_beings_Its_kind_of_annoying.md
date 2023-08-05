@@ -102,7 +102,7 @@ Eventually I spotted the aforementioned deer corpse lying across the middle of t
 
 &#x200B;
 
-The deer’s body began to shake, not like a shiver, like you would expect, coming from within its body, but as if there was an invisible hand yanking it back and forth.  Its head twisted upwards, and its neck snapped in a sickening crunch as it rotated its head fully upside down.
+The deer’s body began to shake, not like a shiver, like you would expect, coming from within its body, but as if there was an invisible hand yanking it back and forth.  Its head twisted upwards, and its neck snapped in a sickening crunch as it rotated its head fully upside down.  
 
 &#x200B;
 
@@ -134,11 +134,15 @@ The deer blinked slowly, eyelids jerkily moving over its blank eyes.  I rolled m
 
 &#x200B;
 
-I sighed again.  The deer was facing west, so I figured if she started here, I’d have better luck if I tried moving in that direction.  After a bit of tripping over random logs and stepping into way too many anthills, I saw a couple of trees in the distance that looked way too bulky to be regular trees.  Bingo.I walked into a small clearing, and sure enough, three more deer carcasses were hanging upside down from the trees, tied to the trunks with their own intestines, necks slit so blood dripped down over their snouts into their open eyes.  A wolf’s head sat in the middle, eyes gouged out, the rest of its body spread out in an indiscernible mess along the grass.
+I sighed again.  The deer was facing west, so I figured if she started here, I’d have better luck if I tried moving in that direction.  After a bit of tripping over random logs and stepping into way too many anthills, I saw a couple of trees in the distance that looked way too bulky to be regular trees.  Bingo.
 
 &#x200B;
 
-“Jolene, your sister’s worried about you,” I said.
+I walked into a small clearing, and sure enough, three more deer carcasses were hanging upside down from the trees, tied to the trunks with their own intestines, necks slit so blood dripped down over their snouts into their open eyes.  A wolf’s head sat in the middle, eyes gouged out, the rest of its body spread out in an indiscernible mess along the grass.  Against my will, my heart started to pound in fear.  I know this is my job, it's what I get paid for, but nobody knows what Jolene can do better than I do.  I shut my eyes, trying to force images of my own imminent death out of my mind.
+
+&#x200B;
+
+“Jolene, your sister’s worried about you,” I said, doing my best to keep the terrified tremor out of my voice.
 
 &#x200B;
 
@@ -178,7 +182,7 @@ The wolf head stayed quiet for a moment, and even with no eyes, I could tell she
 
 &#x200B;
 
-I rubbed my temples, trying to think of the best way to explain this to her.
+I rubbed my temples, trying to think of the best way to explain this to her and also not get murdered.
 
 &#x200B;
 
@@ -206,15 +210,19 @@ The wolf head thought some more.
 
 &#x200B;
 
-The wolf head’s eye sockets widened, and the deer on the trees behind it began to shake and writhe in their bindings.  I swallowed nervously.  This had better work.
+The wolf head’s eye sockets widened, and the deer on the trees behind it began to shake and writhe in their bindings.  My heart fucking leapt in my chest, and I squeezed my eyes shut.  But I couldn't run, even though I really, really wanted to.
 
 &#x200B;
 
-“What?” She said, voice distorted and agitated.“Yeah, you might never see her again for as long as she lives.”
+“What?” She said, voice distorted and agitated.
 
 &#x200B;
 
-The ground shook menacingly beneath my feet.  The wolf head was breathing louder and louder until it erupted into a howl.  The deer behind it started shrieking in unison, banging their antlers against the trees until the wood started splintering off.  I said a quick prayer.  I’m not religious, but you know, just in case.  The smart thing would’ve been to run at this point, actually the smart thing would’ve been to never come out here in the first place, but hey, they don’t pay me to be smart.  So I pressed on.
+“Yeah, you might never see her again for as long as she lives.”
+
+&#x200B;
+
+The ground shook menacingly beneath my feet.  The wolf head was breathing louder and louder until it erupted into a howl.  The deer behind it started shrieking in unison, banging their antlers against the trees until the wood started splintering off.  I was sweating through my shirt at this point, and I said a quick prayer.  I’m not religious, but you know, fear will do that to a person.  Every cell in my body was telling me to run at this point, it would have been the smart thing to do, actually the smart thing would’ve been to never come out here in the first place, but hey, they don’t pay me to be smart.  So despite the fact that I was absolutely scared shitless and definitely felt a little pee eek out of me, I pressed on.
 
 &#x200B;
 
@@ -250,11 +258,11 @@ It was the first time she’d ever said my name.  High school me would’ve been
 
 &#x200B;
 
-And then the wolf head shook and tipped sideways onto the ground.  She was already gone again.  I sighed and began the walk back to my car.
+And then the wolf head shook and tipped sideways onto the ground.  She was already gone again.  I sighed in absolute relief and began the walk back to my car.
 
 &#x200B;
 
-True to her word, she was in the backseat.  Her many eyes followed me as I got into the car.  Of course she would sit in the back.  I felt like an Uber driver, but frankly, I was too tired to be annoyed or unnerved by the sight of her eyes in my rear view mirror.  I just wanted to go home and crack open a beer.  Or five.
+True to her word, she was in the backseat.  Her many eyes followed me as I got into the car.  Of course she would sit in the back.  I felt like an Uber driver, but frankly, I was too tired to be annoyed and too terrified by the sight of her eyes in my rear view mirror, watching me.  I just wanted to go home and crack open a beer.  Or five.
 
 &#x200B;
 
@@ -267,3 +275,7 @@ If I hadn’t found her in time, however . . . Let’s just say I would’ve fuc
 &#x200B;
 
 So, you’re welcome, I guess.  One less apocalyptic nightmare for you to fear.  Now, you only have to worry about climate change or nuclear war or something.  Yay!
+
+&#x200B;
+
+&#x200B;
