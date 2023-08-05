@@ -6,13 +6,13 @@ I work at a public bathhouse in a small town in Japan, doing housekeeping and ca
 
 &#x200B;
 
-**January 24th, 1967** 
+**January 24th, 1967**
 
 I woke up early this morning, feeling a bit restless. I got out of bed and went to the kitchen, where I found my mom. We started arguing almost immediately – she doesn't understand me, and I can't stand living under her roof. We were both shouting by the end of it. I stormed out of the house and went to find Kimura. I told her about my fight with my mom and she suggested that we go to the public bath tomorrow. I immediately agreed – it sounds like exactly what I need. I'm also going to invite some of our other friends, to make it even more fun.
 
 **January 25th, 1967**
 
-I was getting dressed in the locker room after spending the day in the public bath with my friends. Suddenly, it became eerily silent and I realized I was all alone. Upon leaving the locker room, I noticed the environment was different. The blue tiles of the bathhouse were now red, with black between them. I saw no one around, and the only sound was the soft lap of water against the tiles. This was definitely not the same bathhouse I had entered just hours ago. 
+I was getting dressed in the locker room after spending the day in the public bath with my friends. Suddenly, it became eerily silent and I realized I was all alone. Upon leaving the locker room, I noticed the environment was different. The blue tiles of the bathhouse were now red, with black between them. I saw no one around, and the only sound was the soft lap of water against the tiles. This was definitely not the same bathhouse I had entered just hours ago.
 
 I don't know how long I stood there, trying to understand what had happened. Had I somehow been transported to another building? Or was this some kind of dream? I pinched myself to see if that would wake me up, but it had no effect. I was really starting to freak out now.
 
@@ -28,7 +28,7 @@ I'm still here. I haven't found any way out. I'm starting to despair.
 
 I've been exploring more of the place. It's huge! There must be thousands of pools. There's not a living soul to be seen. Just me, all alone.
 
-I'm starting to feel like I'm going mad. Yesterday I could have sworn I saw someone in one of the baths, but when I got closer there was no one there. 
+I'm starting to feel like I'm going mad. Yesterday I could have sworn I saw someone in one of the baths, but when I got closer there was no one there.
 
 I'm so tired. I can't keep going like this. I need to find a way out.
 
@@ -54,7 +54,7 @@ I was starting to feel really weak, and I knew I needed to find food soon or I w
 
 It reminded me of a cathedral, but it was much more sinister. There was something about it that made my skin crawl.
 
-I was about to turn and leave when I saw something that made my heart stop. Lying on the ground, half-hidden in the shadows, was a body. 
+I was about to turn and leave when I saw something that made my heart stop. Lying on the ground, half-hidden in the shadows, was a body.
 
 I approached cautiously, not knowing what to expect. It was a man, and he was dead. There was no sign of violence, but his eyes were wide open and staring, and his face was contorted in a look of terror.
 
@@ -84,13 +84,13 @@ I lay down on the edge of the pool and leaned over. I tried to see the bottom, b
 
 I lay there for a while, too weak to move. I must have drifted off to sleep because the next thing I knew, I was awake and something was moving in the water. I saw a large, dark shape circling in the depths.
 
-It filled me with terror. As it moved closer and closer to the surface, I ran across the room to get away. 
+It filled me with terror. As it moved closer and closer to the surface, I ran across the room to get away.
 
 I don't know what that thing was, but I never want to see it again.
 
 **February 14th, 1967**
 
-The red colour of the tiles is making me feel dizzy and nauseous. It reminds me of blood. I can't take it anymore. I need to get out of here. 
+The red colour of the tiles is making me feel dizzy and nauseous. It reminds me of blood. I can't take it anymore. I need to get out of here.
 
 Wherever I go, there are just more pools and corridors. They all look the same, and they're all filled with that stagnant, undrinkable water.
 
@@ -106,17 +106,17 @@ I lay on the ground, too weak to move. I think this is it. I'm going to die here
 
 **February 18th, 1967**
 
-I've been thinking about the dead body I saw earlier. 
+I've been thinking about the dead body I saw earlier.
 
 I keep wondering who he was, and how he died. Was he poisoned by the water, like me? Or did something else kill him?
 
-I'm so tired. I can't keep my eyes open anymore. I'm going to rest for a while. 
+I'm so tired. I can't keep my eyes open anymore. I'm going to rest for a while.
 
 **February 20th, 1967**
 
-I can't believe it's been almost a month since I first arrived in this place. It feels like a lifetime. 
+I can't believe it's been almost a month since I first arrived in this place. It feels like a lifetime.
 
-I'm so weak I can barely move. I'm sure I'm going to die soon. I don't know why I'm still holding on. Maybe it's because I refuse to believe this is the end. I keep hoping that someone will find me, but I know that's unlikely. 
+I'm so weak I can barely move. I'm sure I'm going to die soon. I don't know why I'm still holding on. Maybe it's because I refuse to believe this is the end. I keep hoping that someone will find me, but I know that's unlikely.
 
 **February 25th, 1967**
 
@@ -124,13 +124,13 @@ It was my birthday today. I'm now 17. I should be out with my friends, celebrati
 
 **March 3rd, 1967**
 
-I'm getting weaker and weaker. I can barely move anymore. I've been lying in the same spot for days. I don't know how much longer I can hold on. 
+I'm getting weaker and weaker. I can barely move anymore. I've been lying in the same spot for days. I don't know how much longer I can hold on.
 
 **March 5th, 1967**
 
-I was lying underneath the pale lights, too weak to move. I thought I was going to die there and then. Then I heard something moving in the distance, getting closer and closer. It sounded like something big and heavy, dragging itself across the floor. 
+I was lying underneath the pale lights, too weak to move. I thought I was going to die there and then. Then I heard something moving in the distance, getting closer and closer. It sounded like something big and heavy, dragging itself across the floor.
 
-I was filled with terror, and I forced myself to my feet. I stumbled across the room, and then I was running, running as fast as I could. 
+I was filled with terror, and I forced myself to my feet. I stumbled across the room, and then I was running, running as fast as I could.
 
 I don't know what it was, but I know I don't want to meet it.
 
@@ -140,53 +140,52 @@ I've been walking for hours, as usual, and I still can't find a way out. Everyth
 
 **March 12th, 1967**
 
-I can't stop thinking about the thing that was hunting me. I can't shake the feeling that it's still out there, looking for me. How am I still alive? I haven't eaten for more than a month. It isn't natural, it's like this place is playing with me, toying with me. I'm getting weaker and weaker, and it's only a matter of time before that thing catches up to me. The sound of the water, the lapping against the tiles and the dripping from the ceiling, it all sounds like footsteps, like something is coming for me. 
+I can't stop thinking about the thing that was hunting me. I can't shake the feeling that it's still out there, looking for me. How am I still alive? I haven't eaten for more than a month. It isn't natural, it's like this place is playing with me, toying with me. I'm getting weaker and weaker, and it's only a matter of time before that thing catches up to me. The sound of the water, the lapping against the tiles and the dripping from the ceiling, it all sounds like footsteps, like something is coming for me.
 
 **March 17th, 1967**
 
 I found a newspaper on the ground yesterday. It was partly burned. I didn't recognize the language, but I could see when it was printed. September 5th, 2005. The images were strangely colourful, more vivid than anything I've ever seen before on a piece of paper. They showed people in clothes I'd never seen, smiling and happy.
 
-I stared at the paper for a long time, trying to understand what I was looking at. It must be from the future. But how did it get here? And how did I get here? 
+I stared at the paper for a long time, trying to understand what I was looking at. It must be from the future. But how did it get here? And how did I get here?
 
 **March 20th, 1967**
 
-I'm so thirsty. I've been walking for days. I know I won't make it much further. 
+I'm so thirsty. I've been walking for days. I know I won't make it much further.
 
-I've been thinking about the thing I heard. I keep wondering if it's still out there, looking for me. 
+I've been thinking about the thing I heard. I keep wondering if it's still out there, looking for me.
 
 **March 21st, 1967**
 
-I'm not sure what's real anymore. I keep seeing things that aren't there. Yesterday I saw my mom. She was standing in front of me, smiling. But when I tried to reach out to her, she faded away. 
+I'm not sure what's real anymore. I keep seeing things that aren't there. Yesterday I saw my mom. She was standing in front of me, smiling. But when I tried to reach out to her, she faded away.
 
 I know I'm going crazy.
 
 **March 23rd, 1967**
 
-I saw my mom again today. She was standing in front of me, smiling and holding out her arms. I tried to reach out to her, but she disappeared into thin air. 
+I saw my mom again today. She was standing in front of me, smiling and holding out her arms. I tried to reach out to her, but she disappeared into thin air.
 
 I miss her so much. I wish I could just go home.
 
 **March 25th, 1967**
 
-I heard that dreadful thing coming for me again, just a few rooms behind me. This time, it screeched too. I'm so tired. I can't keep running. 
+I heard that dreadful thing coming for me again, just a few rooms behind me. This time, it screeched too. I'm so tired. I can't keep running.
 
-I'm going to jump into one of the deep pools and dive into the darkness. Maybe this is the way out. Maybe this is what I've been looking for all along. 
+I'm going to jump into one of the deep pools and dive into the darkness. Maybe this is the way out. Maybe this is what I've been looking for all along.
 
-I'm leaving the diary here. It would be ruined by the water anyway. 
+I'm leaving the diary here. It would be ruined by the water anyway.
 
-I hope someone finds it and can make sense of what happened to me. 
+I hope someone finds it and can make sense of what happened to me.
 
-I'm so scared. But I'm also so tired. I just want this to be over. I don't know what's down there, but it can't be worse than what's chasing me. 
+I'm so scared. But I'm also so tired. I just want this to be over. I don't know what's down there, but it can't be worse than what's chasing me.
 
-I'm sorry, Mom. I wish I could have said goodbye. 
-
-&#x200B;
-
-\*\*\* 
+I'm sorry, Mom. I wish I could have said goodbye.
 
 &#x200B;
 
-What makes this so unsettling is that at the beginning of 1967, a young girl went missing in our otherwise peaceful town. And the last place anyone ever saw her was here, at the establishment where I work. I hope she got out, somehow – maybe in the distant past or future – and that it wasn’t just everlasting darkness that awaited her down that pool.  
+\*\*\*
 
+&#x200B;
 
-[X](https://www.reddit.com/r/tobiasmalm/)
+What makes this so unsettling is that at the beginning of 1967, a young girl went missing in our otherwise peaceful town. And the last place anyone ever saw her was here, at the establishment where I work. I hope she got out, somehow – maybe in the distant past or future – and that it wasn’t just everlasting darkness that awaited her down that pool.
+
+[ME](https://www.reddit.com/r/tobiasmalm/comments/112r4le/i_just_released_my_novel_the_cave_to_another/)

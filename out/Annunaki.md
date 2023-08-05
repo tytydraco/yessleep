@@ -23,7 +23,7 @@ The next day I quit my job and spent almost 15 hours at the library, trying to f
 
 
 
-That night, I gathered my courage and broke into the museum. I wished I thought ahead more, because I was caught before I found anything of value. When the police took me in, I decided to explain what I saw. They laughed, of course. I wouldn't have believed it myself if I hadn't seen it. Apparently, I had severely damaged some of the other things on display, so the case was taken to court. Again I tried to explain what had happened. And again nobody believed me. My lawyer decided to plead innocent by insanity. I was sent to the loony bin the next day. And so, I write this note containing what I did find in my cell. I plan on ending it all tomorrow, since I don't plan on being around when it occurs. 
+That night, I gathered my courage and broke into the museum. I wished I thought ahead more, because I was caught before I found anything of value. When the police took me in, I decided to explain what I saw. They laughed, of course. I wouldn't have believed it myself if I hadn't seen it. Apparently, I had severely damaged some of the other things on display, so the case was taken to court. Again I tried to explain what had happened. And again nobody believed me. My lawyer decided to plead innocent by insanity. I was sent to a insane asylum the next day. I managed to smuggle in a notebook and a pen, so I decided to use it to write everything I’ve learned, as well as to write my suicide note. plan on ending it all tomorrow, since I don't plan on being around when it occurs. 
 
 
 
@@ -39,6 +39,28 @@ World war three is on the horizon, and the enemy is not another country. It’s 
 They are already here. They were always here. They will always be here.  
 
 
+*************************************************
 
 
 The real question is: will we?
+
+
+“This was all he left?” The warden asked, after he finished reading the note.
+
+
+“Yes.” I responded. At the time I was a guard at the asylum. I found the body and the note earlier that day. “It’s strange though. His story stayed consistent the entire time. It almost like…” 
+
+
+“Like what? A madman looking for validation?” The warden said angrily. “Do me a favor and dispose of this note.” 
+
+
+The warden left the room, but the I remained  with the note. Something about what I read stuck with me. I took the note home and reread it over and over again. 
+
+
+Eventually I realized I believed it.
+
+
+Of course I knew that I couldn’t go public with this. Even if people did believe me, I would be silenced before I could reveal the truth.
+
+
+And that is what brings us here. I decided that the only way I could bring awareness was like this. I don’t know how long I have, so let me say this: don’t listen to them. They only want to weaken you. Be carful and expose the truth.
