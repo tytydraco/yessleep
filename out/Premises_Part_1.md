@@ -1,12 +1,14 @@
+I've been sitting down for a few moments debating on whether or not it's worth it to write this. I came to the conclusion that it's better to leave something behind than nothing. My story begins about a week and a half ago, somewhere in the middle of the woods.
+
 The neglect of the surrounding area was substantial. Tall grass and fallen logs took place of a well-kept trail. My sister, Keeley, was further ahead, haphazardly flailing a machete through the towering weeds.  
   
 "You're gonna lose a finger!" I shouted ahead to her.  
   
-She turned and pointed the tip of the blade towards me. "Keep up the sass and I'll make sure you lose all ten," she said with a mischievous smile that I returned. "I can see blacktop past that big ass tree up ahead. We're almost there."  
+She turned and pointed the tip of the blade towards me. "Keep up the sass, and I'll make sure you lose all ten," she said with a mischievous smile that I returned. "I can see blacktop past that big ass tree up ahead. We're almost there."  
   
 Keeley and I loved exploring abandoned places.   
   
-It started a few years ago when we got into hiking to try and live a more active lifestyle but that eventually became boring. One day, we came across an old convenience store which hadn't been touched in years. Nothing super exciting happened but the addition of liminal space in our adventures proved more enticing than a woodland stroll. Ever since then, we look up old business, houses or just structures in general forgotten by time and pay a visit to see what we can find. Keeley even suggested maybe starting a YouTube channel to document our experiences. On this day, we found our destination in a more unorthodox fashion. While screwing around on google earth, I came across a building dead center of the woods a few miles outside of town. I zoomed in and noticed the size was actually quite large. After bringing it up to Keeley and a few of our friends, it was evident no one knew what it could possibly be. Even a few older people I knew who ran some of the stores in town couldn't put a finger on it, despite apparently being familiar with the area.  
+It started a few years ago when we got into hiking to try and live a more active lifestyle, but that eventually became boring. One day, we came across an old convenience store that hadn't been touched in years. Nothing super exciting happened, but the addition of liminal space in our adventures proved more enticing than a woodland stroll. Ever since then, we have looked up old businesses, houses, or just structures in general, forgotten by time and pay a visit to see what we can find. Keeley even suggested maybe starting a YouTube channel to document our experiences. On this day, we found our destination in a more unorthodox fashion. While screwing around on google Earth, I came across a building dead center of the woods a few miles outside of town. I zoomed in and noticed the size was actually quite large. After bringing it up to Keeley and a few of our friends, it was evident no one knew what it could possibly be. Even a few older people I knew who ran some of the stores in town couldn't put a finger on it, despite apparently being familiar with the area.  
   
 That may sound obvious, but I live in a painfully small town surrounded by ever-so-slightly larger towns and at no point have they been anything more than that. There's an unknown number of miscellaneous things flying under the radar in these woods. What me and Keeley set out to do is find all...well, most of them. Our mom left when we were kids and dad died about 3 years ago, so as far as family goes, we're it. Most people can't believe a brother and sister could be so close, but I've never had anyone else come as close to a best friend other than her. Of course, being twins made it pretty easy.  
   
@@ -260,7 +262,7 @@ I felt my throat getting hot and started to fight tears from creeping up myself.
   
 After pulling myself together, I got in the shower to wash the day off of me. Every time I closed me eyes, I saw her. My mom, with that horrid smile, piercing me with her eyes. Quickly, I finished up and prepared for sleep, thinking a good rest would set me straight. Unfortunately, that would not be the case.  
   
-For what felt like hours, I tossed and turned through the night, the images I seen playing back in my head like a video tape. The stairwell, the ever-changing walls and floors, Keeley trapped in the room with mom, or...whatever is pretending to be her. My mind kept swimming, wondering what happened before I got there. Even when I drifted off, I had the first nightmare I'd had in years. I'm not much of a dreamer, so when I do I tend to remember most if not all of it.  
+For what felt like hours, I tossed and turned through the night, the images I seen playing back in my head like a video tape. The stairwell, the ever-changing walls and floors, Keeley trapped in the room with mom, or...whatever is pretending to be her. My mind kept swimming, wondering what happened before I got there. Even when I drifted off, I had the first nightmare I'd had in years. I'm not much of a dreamer, so when I do I tend to remember most if not all of it. Even now, wide awake, I shudder thinking back to it.
   
 I was still in my bed, but unable to move. My eyes frantically darted around and I realized I was in that white room Keeley was locked in. What little light shown swung from the ceiling, dimly flickering as it swayed. The only sound was the same droning feedback that came from the intercom earlier. Another noise made itself known and I saw two hands rise up from the end of the bed frame and grip the top with long black claws. A dark figure heaved itself upward, lumbering over my paralyzed body. The breathing coming from me was so visceral it felt as if my lungs were the size of a baseball. Before I knew it, mom was at the foot of my bed looking into me with the face ripping smile I ruthlessly hated.  
   
@@ -270,5 +272,4 @@ The intercom humming grew in volume until it was practically shaking the ground.
   
 The creature leaned forward digging its claws into the frame. When it spoke again, the noise came only from it's blood soaked throat in a deep, wet growl that ripped away at my sanity.  
   
-*"And it doesn't matter where you hide, Kameron."*  
-
+*"And it doesn't matter where you hide, Kameron."*
