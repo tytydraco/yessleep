@@ -148,7 +148,7 @@ I explained to him everything, from how I got in the subway, how I meet Matt, ho
 
 &#x200B;
 
-***I am... What I am... I have taken... Many forms... Many names... You may call me... Operator...*** 
+***I am... What I am... I have taken... Many forms... Many names... You may call me... Operator...***
 
 &#x200B;
 
@@ -225,8 +225,6 @@ Terrified at the thought of what the Operator might do to people he considered i
 &#x200B;
 
 ***Wonderful... This batch of experiences... Unique... New... Good... I am pleased... With your answers... Now... For the deal itself...***
-
- 
 
 Everyone's eyes were fixed on the Operator as he said the following:
 
@@ -331,3 +329,9 @@ Everyone began congratulating us, saying how long they've been waiting for me to
 &#x200B;
 
 ***Now... Guests... Each of you... Will tell me... What have you decided...***
+
+&#x200B;
+
+\-----------------------------
+
+[Part 11](https://www.reddit.com/r/nosleep/comments/15j21r0/weve_become_permanent_residents_of_the_infinite/)
