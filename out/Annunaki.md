@@ -41,10 +41,19 @@ World war three is on the horizon, and the enemy is not another country. It’s 
 They are already here. They were always here. They will always be here.  
 
 
+
+The real question is: will we?
+
+
+
 *************************************************
 
 
-The real question is: will we?
+
+
+
+
+
 
 
 “This was all he left?” The warden asked, after he finished reading the note.
