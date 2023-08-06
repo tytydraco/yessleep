@@ -42,8 +42,6 @@ I spent the night in the hospital wondering about the other kids that could have
 
 No numbers, no songs, just...static.
 
-I found out later on that a lot of kids in my area died from bizarre suicides. Biting their tongues, Jumping out of moving cars, slashing their wrists, and the list kept piling on and on. I was one of the lucky ones that survived. We held a vigil for the lives of the children the week after 'the incident', it was peaceful...and at the same time you could feel the somber air suffocate you...
+I found out later on that a lot of kids in my area died from bizarre suicides. Biting their tongues, Jumping out of moving cars, slashing their wrists, and the list kept piling on and on. I was one of the lucky ones that survived. We held a vigil for the lives of the children the week after 'the incident'. It was peaceful...and at the same time you could feel the somber air suffocate you...
 
 Kool Kids FM became a defunct radio station after this particular incident because even if they were hijacked like they claimed to be, it was too much of a risk to keep running. I still tune in to the station from time to time seeing if the static will crackle and gain life once more, but to this day all I hear is the static. Sometimes I even hear the numbers faintly, but I put it off as just my imagination. Maybe it was just survivor's guilt rotting my brain, or maybe...somewhere in the static... the numbers are still there; patiently waiting to be listened to once again.
-
-&#x200B;
