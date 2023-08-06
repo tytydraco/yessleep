@@ -24,7 +24,7 @@ Nick wasn't as lucky. He should've been, seeing that now we only had to search f
 
 We tried really hard to look for another ticket. Now with the pass we had free reign to separate and search in multiple places at once without worrying about food or ticket supplies. I was with Nick when it happened. 
 
-The whistle of the Conductor was heard in the distance. Nick began running, me trying to follow closely behind. Maybe we could've found at least one. Luck, it seems, wasn't on Nick's side.
+A shiver went down my spine when the whistle of the Conductor was heard in the distance. I may have been safe, but Nick was still in danger. He began running, with me trying to follow closely behind. Maybe we could've found at least one. Luck, it seems, wasn't on Nick's side.
 
 "Don't worry!" he yelled back as he continued to run. "I'll find a ticket and return! You can return to the others!"
 
