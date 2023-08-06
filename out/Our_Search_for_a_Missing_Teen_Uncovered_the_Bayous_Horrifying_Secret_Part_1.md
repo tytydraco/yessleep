@@ -240,7 +240,7 @@ Simultaneously, I was going through Gabrielle's closet, thumbing through the ass
 
 "Therese," I called, holding up the sweater. "Do you have any pets?"
 
-Therese shook her head, her face pale. "Non, chère. I'm allergic to dander. We’ve never had pets. "I bagged the sweater for further examination, the mystery of the strange fur adding another layer to our investigation.
+Therese shook her head. "Non, chère. I'm allergic to dander. We’ve never had pets. "I bagged the sweater for further examination, the mystery of the strange fur adding another layer to our investigation.
 
 From the other side of the room, Ash looked up from the MacBook he had been examining. "Her search history's been wiped clean," he said, his brow furrowed in thought. "She didn't want us to see something."
 
