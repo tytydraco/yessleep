@@ -4,7 +4,7 @@ Drug deals gone wrong in front of my elementary school, a drunk and high hobo tr
 
 But none of these (and the many others I haven’t mentioned) even come close to the shit I’ve seen at this one fucking private school I went to for six years (and no, I wasn’t there for that long because I’d been held back).
 
-I’m a college Junior now, and I’ve thought a lot about all the fucked-up things – things that defy any kind of explanation – that I’ve seen at that place.
+I just finished my college Freshman year, and I’ve thought a lot about all the fucked-up things – things that defy any kind of explanation – that I’ve seen at my old  high school.
 
 Things so fucking unbelievable it only makes sense to post here and not anywhere else.
 
