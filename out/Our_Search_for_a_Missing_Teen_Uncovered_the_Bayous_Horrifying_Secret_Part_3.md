@@ -72,7 +72,7 @@ I caught the meaningful look Ash shot my way and realized I needed to dial back 
 
 Lucien looked between Ash and me, his fear giving way to a hesitant trust. His voice broke as he began to speak. "We didn't tell her mom because… because we were having sex. We were in love, but her maman would never understand."
 
-I felt my eyebrows shoot up, surprised by the admission but still sensing there was more to the story. Lucien's face was pale, and he looked as though he were about to be sick.
+I felt my eyebrows shoot up, surprised by the admission but still sensing there was more to the story. Lucien looked as though he were about to be sick.
 
 "And then?" I pressed, trying to keep my voice gentle but firm.
 
@@ -102,7 +102,7 @@ A heavy silence filled the car, the weight of Lucien's revelation settling over 
 
 "Did she tell anyone else?" I asked, my mind racing with the possibilities.
 
-Lucien shook his head, his face pale. "No, not at first. We kept it between us. But then... then something happened."
+Lucien shook his head. "No, not at first. We kept it between us. But then... then something happened."
 
 "What?" Ash asked, his voice sharp, sensing that we were getting closer to something significant.
 
