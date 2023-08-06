@@ -102,7 +102,7 @@ Eventually I spotted the aforementioned deer corpse lying across the middle of t
 
 &#x200B;
 
-The deer’s body began to shake, not like a shiver, like you would expect, coming from within its body, but as if there was an invisible hand yanking it back and forth.  Its head twisted upwards, and its neck snapped in a sickening crunch as it rotated its head fully upside down.  
+The deer’s body began to shake, not like a shiver, like you would expect, coming from within its body, but as if there was an invisible hand yanking it back and forth.  Its head twisted upwards, and its neck snapped in a sickening crunch as it rotated its head fully upside down.
 
 &#x200B;
 
@@ -275,6 +275,10 @@ If I hadn’t found her in time, however . . . Let’s just say I would’ve fuc
 &#x200B;
 
 So, you’re welcome, I guess.  One less apocalyptic nightmare for you to fear.  Now, you only have to worry about climate change or nuclear war or something.  Yay!
+
+&#x200B;
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/15jdbxs/i_live_in_a_town_of_eldritch_beings_its_kind_of/?utm_source=share&utm_medium=web2x&context=3)
 
 &#x200B;
 
