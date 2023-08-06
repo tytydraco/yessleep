@@ -54,7 +54,7 @@ It was lunchtime when color started to bleed back into my reality, dragging me f
 
 "You are walking around like a zombie," Jun said, slumping down opposite me. Jun was the explosion of ADHD I needed to pluck me from my own mind. 
 
-I met him in my freshman year, and since then we had been inseparable. Fee Sutton was half Korean on his mother’s side, and the human embodiment of a golden retriever, looks and personality-wise. He picked up my half-eaten brownie and took a bite, spraying crumbs everywhere. 
+I met him in my freshman year, and since then we had been inseparable. Jun Sutton was half Korean on his mother’s side, and the human embodiment of a golden retriever, looks and personality-wise. He picked up my half-eaten brownie and took a bite, spraying crumbs everywhere. 
 
 "What's up?"  
 
@@ -166,7 +166,7 @@ Jun followed my gaze, nodding. “She’s the only girl working, so yeah.” It 
 
 “About what?!” He whisper-shrieked. “Wait, why do I need to distract her? Don’t you work here?”
 
-“I do, but I want to slip into the back without noticing,” I patted him on the head. “I only need five minutes. I’m just grabbing my stuff.”
+“I do, but I want to slip into the back without them noticing,” I patted him on the head. “I only need five minutes. I’m just grabbing my stuff.”
 
 He groaned, tipping his head back. “What do I get for it?”
 
@@ -186,13 +186,13 @@ I didn’t blame her. Jun’s messy curls and disheveled state definitely stood 
 
 Maybe it was just his face, which could be compared to a puppy dog, or his awkward smile when he dropped his phone. Her interest was piqued. 
 
-When her lipsticky smile widened and she leaned forward, exposing as much cleavage as possible through her apron, I took that as an opportunity to pull open the door and slip into the back room. I don’t know what I was expecting, but a normal-looking breakroom with a wooden table surrounded by chairs. This was the one room I was yet to see, and I thought it was their murder room.
+When her lipsticky smile widened and she leaned forward, exposing as much cleavage as possible through her apron, I took that as an opportunity to pull open the door and slip into the back room. I don’t know what I was expecting, but a normal-looking breakroom with a wooden table surrounded by chairs wasn't it. This was the one room I was yet to see, and I thought it was their murder room.
 
 That left the shady-looking door in Clayton’s office I’d first seen when coming for my initial interview. 
 
 I was about to leave when a muffled voice caught me off guard. I turned to the source and glimpsed a door at the back of the room leading outside. It was open, and when I got closer, I could see an outline standing in the late afternoon sunlight. “You’re late, asshole.” Dylan was leaning against the wall, his lips curved around a cigarette. 
 
-I noticed his hands were shaking trying to light it. His jacket was flung over a bright pink apron. 
+I noticed his hands were shaking trying to light it, his jacket clumsily flung over a bright pink apron. 
 
 I thought he was talking to himself again before my gaze found a second figure standing several feet away. When the shadow stepped into the light, I caught a glimpse of his face, and I understood why my colleague was trembling. He was around Dylan’s age. Early twenties. 
 
@@ -263,7 +263,7 @@ I took another step back, something slimy sticking to the back of my throat.
 
 “I didn’t let him go,” Dylan gritted out. “You assholes murdered him.”
 
-“No, we saved him,” the boy tipped his head back and sighed. “I’ve told you a thousand fucking times, your bro started all of this,” he straightened up, situating himself nose to nose with my colleague. “You weren’t the smart one, I get that,” he murmured. “Daly told us all about you. But. I’m sure even a dumb fuck like you can understand that this was all Daley’s idea.”
+“No, we saved him,” the boy tipped his head back and sighed. “I’ve told you a thousand fucking times, your bro started all of this,” he straightened up, situating himself nose to nose with my colleague. “You weren’t the smart one, I get that,” he murmured. “Daley told us all about you. But. I’m sure even a dumb fuck like you can understand that this was all Daley’s idea.”
 
 “You’re lying.” Dylan’s voice broke into a whisper.
 
@@ -295,7 +295,7 @@ I saw it in bursts of color and swimming light, a grey room with barred windows,
 
 *Whatever they’re doing to us,* the shadowy boy’s voice broke, *I don’t think they’re just killing us. They want us for something.* His grip tightened on my—on his—shoulder. 
 
-*Uncle Rory told us to run before he disappeared, so why aren’t we?* He shook Nathanial, and light bled through the shadow. I could see crazed eyes, eyes that weren’t human, and yet Nathanial trusted them with his life. “So why are we still here?” He answered his own question through a breath. *Conrad.*
+*Uncle Rory told us to run before he disappeared, so why aren’t we?* He shook Nathanial, and light bled through the shadow. I could see crazed eyes, eyes that weren’t human, and yet Nathanial trusted them with his life. *So why are we still here?” He answered his own question through a breath. *Conrad.*
 
 *They’re draining him to keep the façade of this place, and it's killing him.*
 
@@ -337,25 +337,29 @@ This time I did scream, the pain of the impact dragging a screech from my gritte
 
 The girl's words were still ringing in my head, rattling in my skull like they themselves were a physical entity. I tried to scream again, but a force had taken over me, closing my mouth and pinning my legs. "So, you're the new runner girl." The smooth voice came from the doorway, and I twisted my head, following the low murmur filling the silence. There were two figures. 
 
+I slid down the wall, my feet barely grazing the paintwork. 
+
 Males. But I couldn't see their faces, any semblance of identity blanketed in shadow. I could see that one was a messy blonde, while the other had reddish-brown curls tied into a ponytail. The two of them approached me like wild animals, unsteady and unsure, the one in front taking the lead and holding back the one behind. 
 
 The redhead wore a trench coat which was too big for him, while the blonde stuck to a simple t-shirt and jeans. "Hold her," when one of the shadows situated himself in front of me, while the other stepped back, a fresh coating of bile crept up my throat. 
 
-They were doing this-- or at least, the boy who had taken a step back and folded his arms. His face was like staring at uncanny valley, a human figure with no identity, no expression, only a t-shirt with a smiley face on the front. Drowning in the overhead light, these boys should have had a face. 
+They were doing this-- or at least, the boy who had taken a step back was. He folded his arms. His face was like staring at uncanny valley, a human figure with no identity, no expression, only a t-shirt with a smiley face on the front. Drowning in the overhead light, these boys should have had a face. 
 
-But they didn't. They should have made sense, at this time, where normality was home. Where I felt safe. But they didn't. While the other boy kept me pinned to the wall, the one in front took another step toward me. 
+But they didn't. They should have made sense, at this time, where normality was home. Where I felt safe. But they didn't. While the other boy kept me pinned to the wall, moving me up and down with a simple twitch of his wrist, the one in front took another step toward me. 
 
 I could feel his warm breath tickling my cheeks. He was human, and alive, breathing, thinking, and moving like normal-- and yet nothing about him was neither human nor normal. I couldn’t even see his eyes. I couldn’t see if he was angry or scared, or exhilarated at the thought of pinning me and stealing breath from my lungs. “Don’t fight back,” the shadow's voice was a low hum skating the back of my mind, “if you fight back, I will fucking wipe you clean, and that will be your fault."
 
 “Aww, Conrad’s trying to be intimidating!” the girl hadn’t moved from the couch, her wide eyes stuck to my TV, lips pulled into a grin. “Adorable!”
 
-"Shh!" The other shadow hushed her, twisting to her. I could see his hands twitching, fingers moving slightly, tightening his grip on my body. 
+"Shh!" The other shadow hushed her, twisting to her. I could see his hands flexing expertly, fingers moving, tightening his grip on my body. 
 
 It's hard to describe the act of being violated mentally, though I could feel phantom fingers grasping onto my skull and squeezing it enough to crack me open. When his ice-cold fingers grazed my temples, I knew what he was going to do, and I knew he couldn’t get inside my mind. Because if he did… I tried to think about anything else, ignoring his threat. I thought about my senior year trip to France-- and the time I was bitten by a spider and spent two days in the ER. But this boy was stronger, easily breaking down the barriers I had put up, and forcing his way into my mind. 
 
 Suddenly, I saw memories I had forgotten, memories that were still dear to me, all of them flashing in front of me like an animated photo album. I saw Jun's smiling face, his lips around his flask. I saw Violet standing behind the counter. Oh, no. I could feel this boy's desperation as he dove further, cutting into me. Dylan's face flashed into my mind, and then Freddie's. 
 
-Before they could speak, thankfully, he skipped right past them until I saw myself from my own perspective, reaching out with trembling hands. The memory came over me, thick and heavy, overwhelming me. I heard Nathanial's cries echoing-- but before the blur of silver could impact him, the boy was retracting himself from my mind. Not before another explosion of light hit the backs of my eyes. 
+Before they could speak, thankfully, he skipped right past them until I saw myself from my own perspective, reaching out for the dead Buggie's jacket with trembling hands. 
+
+The memory came over me, thick and heavy, overwhelming me. I heard Nathanial's cries echoing-- but before the blur of silver could impact him, the boy was retracting himself from my mind. Not before another explosion of light hit the backs of my eyes. 
 
 This time I was at Grand Court House. 
 
@@ -373,7 +377,7 @@ And this time they had faces. Human faces. They were just students. Kids. While 
 
 His gaze flicked to me, eyes narrowing. "What did you do with Nate?”
 
-Before I could answer, someone knocked on my door, and the guy who had been holding me, jumped, losing control. I slipped to the ground, though I barely felt the impact. “That will be Dylan,” I said in a hiss. I found myself overwhelmed by a sudden urge to protect these Buggie's, after seeing Nathanial's fate. “You need to hide.” When the three of them grew defensive, I shoved the redhead back. “I know who you all are,” I gritted out. “And they’re hunting you down just like your friend. They're going to kill you."
+Before I could answer, someone knocked on my door, and the guy who had been holding me, jumped, losing control. I slipped to the ground, though I barely felt the impact. “That will be Dylan,” I said in a hiss. I found myself overwhelmed by a sudden urge to protect these Buggie's, after seeing Nathanial's fate. “You need to hide.” When the three of them grew defensive, I shoved the leader back. “I know who you all are,” I gritted out. “And they’re hunting you down just like your friend. They're going to kill you."
 
 That seemed to scare them enough into hiding. The redhead crawled under the coffee table, while the other two dove into my pantry.
 
