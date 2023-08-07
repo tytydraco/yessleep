@@ -166,7 +166,7 @@ Regardless, he didn't get very far.
 
 It's rather poetic that the very anomaly which had instigated my descent into this rabbit-hole of insanity would ultimately bring about its conclusion. As soon as he crossed that event horizon, it was already too late for him. Similar to how my ball had arrived at a sudden and complete stop, his body also experienced an immediate cessation, only to be expelled back with such tremendous force that it literally sent him flying. He collided with the balcony, folding against its marble railing, and subsequently plummeting headfirst onto the solid deck below.
 
-Needless to say, he didn't survive. I find it difficult to mourn him. He was a brilliant intellectual, yet regrettably, an abhorrent human being, even before the onset of whatever madness afflicted him. He took things from me that were not his take, and growing up was never going to be the same because of it.
+Needless to say, he didn't survive. I find it difficult to mourn him. He was a brilliant intellectual, yet regrettably, an abhorrent human being, even before the onset of whatever madness afflicted him. He took things from me that were not his to take, and growing up was never going to be the same because of it.
 
 Sometimes I like to think that there are numerous ways my story could've played out. Perhaps there's a parallel universe out there where I go on to live a healthy and self-fulfilled life of blissful mediocrity. But after all of the events that I've transcribed here, how could I? How could anybody?
 
