@@ -20,7 +20,7 @@ A car with nobody inside of it ran him over and crashed straight into the Walmar
 
 I still remember all this like it was yesterday. After all the events i quit on the spot and i got a therapist and i left after a year on July 3rd 2023.
 
-I thought my life was getting better but 2 weeks ago my mother killed herself in the Walmart i worked at and now it is closed for good, I’m back in therapy now and i need to share this story because it has crossed my mind every day ever since i was back in therapy. I needed to get this off my head and if anyone went through something similar please tell me in the comments and please upvote it so people can see my story and what i have struggled with in the past year. I need people to be aware of things like this so they can save more lives than i saw being lost.
+I thought my life was getting better but 2 weeks ago my mother killed herself in the Walmart i worked at and now it is closed for good, I’m back in therapy now and i need to share this story because it has crossed my mind every day ever since i was back in therapy. I needed to get this off my head and if anyone went through something similar please tell me in the comments i would rather spend time reading your lives then recap mine. I need people to be aware of things like this so they can save more lives than i saw being lost.
 
 Thank you everyone for reading all this and being supportive.
 
