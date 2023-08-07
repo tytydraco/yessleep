@@ -14,7 +14,7 @@ My mom shot daggers at me with her eyes, It looked like she had been crying for 
 
 "What's going on is that I came back into the car to you hurting yourself, what were you thinking?!" My mom shot back at me, barely containing her emotions. 
 
-Hurting myself? I had only blacked out for five minutes at most. so how could I have hurt myself if I blacked out? My mind was racing feverishly trying to answer questions that I had no knowledge about. I stumbled for words to tell my mom and how to make 'I don't know' sound like a reasonable explanation. Just then, as if they popped up from thin air, these two men wearing suits came into my room.
+Hurting myself? I had only blacked out for five minutes at most, so how could I have hurt myself if I blacked out? My mind was racing feverishly trying to answer questions that I had no knowledge about. I stumbled for words to tell my mom and how to make 'I don't know' sound like a reasonable explanation. Just then, as if they popped up from thin air, these two men wearing suits came into my room.
 
 "You must be the Thompsons right?" The one with the buzzcut and thin beard spoke suddenly as he knocked on the hospital door.
 
