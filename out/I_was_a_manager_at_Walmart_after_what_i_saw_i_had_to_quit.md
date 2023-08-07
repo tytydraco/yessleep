@@ -13,10 +13,10 @@ As soon as 3 out of the 4 workers arrived, they all screamed and 2 of them diall
 
 This must have been a double homocide, but no.. all the doors were locked and camera footage showed no break ins. This left a big discomforting situation. 
 
-Police arrived, took the bodies. Told us they had no clue how this had happened and it was likely to be suicides. So early in the morning when most workers arrived we had to send them home so police could investigate everything.
+Police arrived, examined the bodies. Told us they had no clue how this had happened and it was likely to be suicides. So early in the morning when most workers arrived we had to send them home so police could investigate everything.
 5 Minutes later a new male worker, 18, showed up and when he got sent back another shocking thing happened..
 
-A car with nobody inside of it ran him over and crashed straight into the Walmart building. Everyone screamed even police, it was a terror for everyone.
+A car with nobody inside of it, only a brick on the accelerator, ran him over and crashed straight into the Walmart building. Everyone screamed even police, it was a terror for everyone.
 
 I still remember all this like it was yesterday. After all the events i quit on the spot and i got a therapist and i left after a year on July 3rd 2023.
 
