@@ -69,3 +69,5 @@ Redeye was present, dressed in his ceremonial attire just like earlier. On his l
 Seated on a floating golden throne, Redeye looked down on me with his expressionless golden mask. The third eye on the forehead shone brighter before the sealed facial features of his mask mysteriously moved as if it was alive, with the lips curling into a smile. Then, I heard his deep yet soft, calm and reassuring voice once again:
 
 "Terrence, wonderful boy. You are welcome son."
+
+[Part 12](https://www.reddit.com/r/nosleep/comments/15kjek1/every_year_in_my_village_there_is_a_time_during/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
