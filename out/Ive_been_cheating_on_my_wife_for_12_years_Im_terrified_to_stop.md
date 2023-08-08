@@ -3,7 +3,7 @@
 
 TW: child loss
 
-Part 1/2
+Part 1/2 (https://www.reddit.com/r/nosleep/comments/15lj3kg/ive_been_cheating_on_my_wife_for_12_years_im/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=1) 
 
 
 I was so determined to never share this story, I don't want the backlash, and I'm sure nobody will believe me, but I can't keep it to myself anymore. My life has been a miserable existence for the past twelve years and I'm ready to share why. 
