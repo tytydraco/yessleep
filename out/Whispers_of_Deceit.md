@@ -2,7 +2,7 @@ As the aroma of our dinner filled the air, I couldn't shake the feeling that ton
 
 Our dinners usually aren’t like this, in fact our dinners were quite the opposite. We’d usually spend our evenings struggling to finish our dinner, mom would be laughing and so would dad, food barely being contained to their mouths. But tonight was different, very different. The usual smiles that were glued upon their faces were now faces filled with disgust and sadness, even at such the young age of twelve, I understood the concept of rage.
 
-Midway through our meal, my mother excused herself from the table, her footsteps echoing down the hallway. Seizing the opportunity, I turned to my father, curiosity tugging at my mind. He sighed, his eyes heavy with concern. "Dad, something's off. What's going on?"
+Midway through our meal, my mother excused herself from the table, her footsteps echoing out of the dining room and up the stairs towards the second floor, down the hallway. Seizing the opportunity, I turned to my father, curiosity tugging at my mind. He sighed, his eyes heavy with concern. "Dad, something's off. What's going on?"
 
 He hesitated before leaning in, his voice a low whisper. "Listen closely, kiddo. Just trust me, alright?" I nodded, understanding the look in my father’s eyes, a look that signified to not question him in his moment of solitude.
 
@@ -12,7 +12,7 @@ Now, I did want to talk to him. And maybe I should have said something, maybe if
 
 Or maybe that’s still the kid inside of me wishing that things played out differently. The illusion of choice is often fueled by the fear of guilt, an illusion.
 
-Minutes stretched like hours as we conversed, and I could hear the seconds ticking away. Finally, I couldn't resist the urge any longer. I excused myself from the dinner table and made my way upstairs to check on my mother. At the top of the stairs, a familiar subtle click sent a shiver down my spine, and a pit formed in my stomach.
+Minutes stretched like hours as we sat and ate in silence, and I could hear the seconds ticking away. Finally, I couldn't resist the urge any longer. I excused myself from the dinner table and made my way upstairs to check on my mother. At the top of the stairs, a familiar subtle click sent a shiver down my spine, and a pit formed in my stomach.
 
 As I entered my parents' room, I saw my mother, her face pale as she knelt on the closet floor. My voice trembled as I called out to her, my heart racing. She startled, and in her haste, a magazine of bullets tumbled to the rug.
 
