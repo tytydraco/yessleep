@@ -1,8 +1,5 @@
-(Well, I appear to mistake the subreddie lol. That is a beginner for you... Good thing I save it in my phone notepad so this is all copy and paste to what I put in the WRONG subreddie.)
 
-Hello, first I am really sorry for my awful English. Second this story that I will share is true, I know that some people who said the same similar things to their stories to make it more creepy, but I don't want my story to be like that, I just want to be honest and clear that this happened to me and move on with my life.
-And finally, if you still don't believe me... It's okay, I understand. 
-
+Hello, first I am really sorry for my awful English.
 
 Year: 2013
 A little background. I am a female, I have 3 older siblings(male)(2female) and one younger brother, I have a mother and a father, that makes us a family of 7, safe to say that our financial situation was not the best so we had to move's House's a lot. Especially when I and my younger brother came into the picture, but we all got showered with love and support from my parent the same. my parent also made sure that we are all healthy and educated us to be rational thinkers when something unexplained or weird happpen, so
@@ -46,4 +43,4 @@ I remember how in the last few days that we stayed, the house really needed to a
 
 I am just happy that we moved out because of that event I can't now sleep without one light on, and also I became so uneasy with closet being open.(my brother shares this too)
 My condition become better and so is my brother.
-Thanks for reading all of my story, I didn't know that it's going to be this long, so sorry about that, you can believe me or not, just stay safe out there.
+Thanks for reading all of my experience,I didn't know that it's going to be this long, so sorry about that, just stay safe out there.
