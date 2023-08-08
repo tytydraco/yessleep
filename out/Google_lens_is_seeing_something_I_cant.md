@@ -113,3 +113,7 @@ I should wrap this up quickly before anything else happens.
 I know I can’t do the woman I saw killed today any justice; I don’t even know her name, and I can barely remember what she looked like in the ever-so-brief moment I saw her. Nevertheless, if the woman's family (if she has any) is reading this: I’m so sorry I couldn’t do anything to save her. I’m just… sorry.
 
 Lastly, if any of you reading this know what the thing is, please tell me. I’ve been searching for it and still can’t find it. Please, tell me I’m safe.
+
+&#x200B;
+
+[MM](https://www.reddit.com/r/Well_of_Misery/)

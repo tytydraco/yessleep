@@ -87,3 +87,7 @@ So, who was Sunny? Sunny was never his real name, just the name Bradly gave him.
 I don’t even know what to say. I would have never thought Bradly was capable of such horrible things. And I now have to live with the fact my friend was a kidnapping murderer. Yet, it gets worse. After the detective I spoke to told me the rest of the story, he also informed me that Bradly was trying to send me what looked like love letters.
 
 I could only unmask Bradly because I happened to look like his chained-up victim. So, if there is a lesson in my story, then make it this: know who your friends are. Because, for all you know, they might be just like Bradly.
+
+&#x200B;
+
+[MM](https://www.reddit.com/r/Well_of_Misery/)
