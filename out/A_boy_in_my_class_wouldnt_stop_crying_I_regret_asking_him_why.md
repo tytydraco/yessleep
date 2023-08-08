@@ -430,7 +430,7 @@ In the distance, a blinding beam of light scoured our town. 
 
 I found myself stumbling away from it, ducking when it illuminated my window. 
 
-I counted ten elephants before risking a peek, and Cal was still there. He didn’t say anything, only shooting me a, “I told you so” look. I reached up up to jostle the earplugs, dislodging them for a moment, and heard the faded ringing of bells, while the old man in front of me contorted into a seventeen year old boy once again, before disappearing into the dark. Look, I’ve been sitting here for a long time trying to figure out what I am, and what my fake mother is. Why I am being forced to relive the year 2013, while the rest of the world resides inside the present. 
+I counted ten elephants before risking a peek, and Cal was still there. He didn’t say anything, only shooting me a, “I told you so” look. I reached up to jostle the earplugs, dislodging them for a moment, and heard the faded ringing of bells, while the old man in front of me contorted into a seventeen year old boy once again, before disappearing into the dark. Look, I’ve been sitting here for a long time trying to figure out what I am, and what my fake mother is. Why I am being forced to relive the year 2013, while the rest of the world resides inside the present. 
 
 I need your help. 
 
