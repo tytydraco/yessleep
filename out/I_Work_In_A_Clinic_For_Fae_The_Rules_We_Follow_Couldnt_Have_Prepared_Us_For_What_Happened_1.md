@@ -489,3 +489,7 @@ Whatever this was… it wasn’t just Artie who’d come in with it. There was a
 &#x200B;
 
 Each one hammered in the cold, dawning truth that whatever this was…it wasn’t just going to be over in 48 hours.
+
+&#x200B;
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/15l7ihh/i_work_in_a_clinic_for_fae_the_rules_we_follow/)

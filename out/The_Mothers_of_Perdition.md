@@ -1,3 +1,12 @@
+The Daughters of Perdition
+
+https://www.reddit.com/r/nosleep/comments/z8hu0j/the_daughters_of_perdition/
+
+The Sisters of Perdition
+
+https://www.reddit.com/r/nosleep/comments/zlblgq/the_sisters_of_perdition/
+
+
 I work at a construction company and we are renovating this old monastery into a library. The last of the monks decided to sell the building for money and the state of Tennessee bought it to make it a heritage site. There is still going to be a library and in addition to adding a bunch of books they are keeping all the ones that were originally here. While renovating the building we found a secret room! And guess what was in it? More books! I even found a journal from Dora. After reading it I found this part particularly fascinating and wanted to share it.  
 
 
