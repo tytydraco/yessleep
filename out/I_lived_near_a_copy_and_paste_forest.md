@@ -57,7 +57,7 @@ By the time we made it back it was 6:00PM the next day.
 
 I thought we made it out fine but I’ve noticed a few things. Like when I make references to past events, I get a lot of funny looks and sometimes people correct me. It’s been the same for my friends too. 
 
-Last memory I have of before moving for college is when we got run out of a local bar and attacked once when I mentioned a harmless prank we played in high school.  People were giving us dirty looks the whole way home. One lady, one of the only people who knew about the trip pulled us aside and gently let us know that that fire killed 3 freshmen and it was best not to talk about it. 
+Last memory I have of before moving for college is when we got run out of a local bar and attacked once when I mentioned a harmless prank we played in high school.  People were giving us dirty looks the whole way home. One lady, one of the only people who knew about the trip pulled us aside and gently let us know that accidental fire killed 3 freshmen and it was best not to talk about it. 
 
 As far as I’m aware, none of us moved back after college. 
 
@@ -65,12 +65,12 @@ Sometimes I swear I pass by an upside down tree on my way to work but it’s nev
 
 The memories (flashbacks?) if that’s even what they are, are getting worse. Recently during a thunderstorm, I swerved around a tree that was inexplicably growing in the middle of the road. A road I take to work daily. 
 
-But I guess it could be worse. Grandpas friend was institutionalised. He remembers a completely different history. 
+But I guess it could be worse. Grandpas friend was institutionalised. He remembers a completely different history and made the mistake of doubling down and insisting on his version of events. 
 
 Anyways, the reason I’m posting this is because we were house hunting and I saw a posting for a house. The one across from the dog park. 
 
 God, if you see that posting ignore it. And if you for some reason choose to buy it, never go in the copy and paste forest. The locals aren’t crazy. 
 
-We’re looking to move further in the other direction. The other night, my husband saw a weirdly proportioned tree in the middle of the courtyard. 
+We’re looking to move further in the opposite direction. The other night, my husband saw a weirdly proportioned tree in the middle of the courtyard. 
 
 I didn’t see it.
