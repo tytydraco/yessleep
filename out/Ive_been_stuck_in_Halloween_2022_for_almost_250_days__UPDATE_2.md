@@ -3,7 +3,7 @@
 [Part 2](https://www.reddit.com/r/nosleep/comments/14sfzs0/ive_been_stuck_in_halloween_2022_for_almost_250/?utm_source=share&utm_medium=ios_app&utm_name=ioscss&utm_content=2&utm_term=1)
 
 
-I know I’ve been gone for a while, and I apologize for my sudden absence. After my last post, I couldn't shake the feeling that there was something peculiar about the forest near the house. My curiosity got the better of me, and I decided to follow the suggestion of a friendly local resident and check it out.
+I know I’ve been gone for a while, and I apologize for my sudden absence. After my last post, I couldn't shake the feeling that there was something peculiar about the forest near the house. My curiosity got the better of me, and I decided to follow the suggestion of u/Deathly-DumDum and check it out.
 
 As I ventured deeper into the forest, I noticed an unusual phenomenon: a bunch of leaves swirling in a mesmerizing and almost hypnotic pattern. Before I could fully comprehend what was happening, the world around me seemed to collapse into darkness. 
 
