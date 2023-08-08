@@ -1,3 +1,4 @@
+
 September 23, 2009
 I decided to go to the Vertloû Chèrier mountains in 4 days with my friend Luka. I'm starting to write in journals, notebooks and google docs because my memory's getting worse. My doctor said that I have some kind of mental condition. Was it Dementia? Or maybe it was Alzheimer's? It's getting worse by the month, so me and my friend decided to spend some time together. I hope that I won't forget about him one day.
 
