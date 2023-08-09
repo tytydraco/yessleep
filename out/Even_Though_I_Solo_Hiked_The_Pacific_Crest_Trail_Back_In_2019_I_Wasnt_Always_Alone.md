@@ -8,13 +8,13 @@ Now, I estimated that it would take me about 6 months or so to complete the trai
 
 On the first day of my hike, I managed to walk 25 miles despite the desert heat (Which was an accomplishment for me).
 
-The further I hiked the PCT though, is when I began to notice just how beautiful yet dangerous the desert could be (I nearly stepped on some rattlesnakes on the trail).
+The further I hiked the PCT though, is when I noticed just how beautiful yet dangerous the desert could be (I nearly stepped on some rattlesnakes on the trail).
 
 Anyway, it was my 53rd day on the trail when I finally reached the famous Kennedy Meadows.
 
 I decided to rest up there for a few days (Zero days) before heading back onto the trail again.
 
-Several days later when I felt invigorated and was back on the trail.
+Several days later I felt invigorated and was back on the trail.
 
 About a week after leaving Kennedy Meadows, inexplicable things began to happen to me.
 
