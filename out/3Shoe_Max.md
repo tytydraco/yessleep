@@ -20,7 +20,7 @@ One day, before work, his main pair of shoes broke. They had been worn one too m
 
 Once he got to the building, however, something strange happened. Something three-shoe Max found even stranger than wearing a white pair of shoes. A supply closet near his desk seemed to be glowing slightly. Curious as to what could be happening, he took a deep breath, opened up the door, and stepped inside...
 
----
+\---
 
 Max owned 7 pairs of shoes. No more, no less. When he ran into any shoe-related issues, he’d discard that pair, and buy another as replacement. The important thing is that he always, at any given moment, owned 7 pairs of shoes. This was a constant of the universe, whether Max knew it or not.
 
@@ -34,7 +34,7 @@ From his job, he met his wife, Katie. She worked as a data analyst at a firm tha
 
 Eventually, he tried to go back to work. On this day in-particular, however, he heard a strange come from his spare bedroom as he was about to leave the house. Perhaps he wanted an excuse to stay home, or perhaps he simply expected the worst, as he had done ever since Katie's passing. Regardless of reasoning or motive, he grabbed a knife, and slowly opened the spare bedroom door.
 
----
+\---
 
 3-shoe Max found himself standing in the dark closet. What had been glowing just a moment ago now seemed somehow void of any light. Turning back around to leave, he found the door to feel different - It was now smooth, cold to the touch, and almost glossy. As he pushed it open, the light that spilt onto him was not from the bustling office environment he had just entered from, but instead, a well-kept seemingly unused bedroom. It was only then that 3-shoe Max noticed the clothes touching him - He was in a wardrobe.
 
@@ -82,7 +82,7 @@ Suddenly, bursting through the bedroom door, came 5-shoe Max.
 
 "She's dead here. This is his universe, and she's dead." 3-shoe Max caught the new one up.
 
----
+\---
 
 After calming down and chatting for a while about how to return home, they all got onto the subject of their lives. 3-shoe Max in particular began to wonder if he even mattered at all - If the multiverse means he is only one of infinite, how can anything truly matter? He didn't speak this aloud. He just wondered it silently in his head. He wasn't one to speak his opinions or thoughts.
 
@@ -100,7 +100,7 @@ A silence fell over them as they all contemplated their unique situations. If th
 
 7-shoe Max took a little longer before he spoke - "I miss Katie. I miss her so, so deeply. I want to see her again. But I feel better knowing that others still get to experience being around her. Her warm smile, her contagious laughter - They do not belong to me. They belong to her. I am glad you both have the honour that she has shared that with you. She has chosen to let you both into her life, in different ways, and I hope neither of you take that for granted."
 
----
+\---
 
 Soon, the wardrobe began to glow. Each Max said their goodbyes, knowing that whilst they may never meet again, the lessons they had learnt from one another would forever stick true. They had each discovered how to look at themselves from a new perspective, knowing that the only life worth living is the one you live yourself.
 
