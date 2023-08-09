@@ -1,6 +1,9 @@
 TW: child loss, murder, insanity
 
-Part 2/2 (Part 1 in comments) 
+Part 2/2 
+
+Part 1 here: https://www.reddit.com/r/nosleep/comments/15ka5yr/ive_been_cheating_on_my_wife_for_12_years_im/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=1
+
 
 My whole body went numb. I was shaking. 
 
@@ -34,7 +37,7 @@ I loved Vikki, and would never stop seeing her, but I wasn't about to tell this 
 
 Kristen looked relieved and put the knife on the table. She went in for a hug, and I made a split-second decision. As my arms wrapped around her I grabbed the knife and plunged it into her back. I heard her gasp, and she pushed away from me. I could see the betrayal in her eyes, the hurt. 
 
-It didn't last long, though. I don't know where I hot but it must've been important because within a minute, she was dead. 
+It didn't last long, though. I don't know where I hit but it must've been important because within a minute, she was dead. 
 
 I could feel myself getting numb as I looked at Kristen. She had a single tear running down her face, and her eyes were empty. She looked... Innocent. 
 
