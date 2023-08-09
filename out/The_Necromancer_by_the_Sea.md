@@ -10,7 +10,7 @@ The woman had died on the cliffs below. Her neck had snapped, her bones had brok
 
 She was bloated and blue. The familiar scowl on her face was gone, eroded by the current and hungry fish.
 
-Nobody knew how Mrs. Dena Black had really died.
+Nobody knew how Mrs. Georgina Black had really died.
 
 Everyone thought she had fallen.
 
