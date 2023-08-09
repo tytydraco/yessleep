@@ -42,11 +42,15 @@ Just then we noticed the pod of orcas swimming towards the shore. Me, Max and Hu
 
 For a while we were silent as we surfed. No one was really speaking until Max asked a question of Hugo.
 
-“In your cycle were you the only one who didn’t blaspheme the holy spirit?” Max asked.“No there was another, master Jacob didn’t either.” Hugo responded.
+“In your cycle were you the only one who didn’t blaspheme the holy spirit?” Max asked.
+
+“No there was another, master Jacob didn’t either.” Hugo responded.
 
 Grimoire blanc chimed in “I miss master Jacob much though I am glad he did not have to return to this wretched world.”
 
-“What about you? Were you the only one in your cycle that didn’t?” Hugo asked, concerned.“Yeah I was the only one” Max responded.
+“What about you? Were you the only one in your cycle that didn’t?” Hugo asked, concerned.
+
+“Yeah I was the only one” Max responded.
 
 “What are you talking about?” I asked confused
 
@@ -56,7 +60,9 @@ Hugo looked at me with concern. “Since our second savior Jesus died every 75 y
 
 I then heard Yahweh’s voice in my head ‘You were the only one in your cycle who didn’t blaspheme the holy spirit. Just so you know.’
 
-“I guess I was the only one who didn’t in my cycle” I recited, shocked at what I had just heard and said.“I figured as much!” Hugo laughed. “Going by the dates it should be the one after next that spawns Julius Caesar.”
+“I guess I was the only one who didn’t in my cycle” I recited, shocked at what I had just heard and said.
+
+“I figured as much!” Hugo laughed. “Going by the dates it should be the one after next that spawns Julius Caesar.”
 
 “Do the prophets know why he fails?” I asked, sad that it was clearly a foregone conclusion.“The problem appears to be the stand-in for the female changeling.” Hugo said with dismay. “The legends say that Cleopatra is his Jesus and that she betrays him. Best anyone can tell, that appears to be what happens.”
 
