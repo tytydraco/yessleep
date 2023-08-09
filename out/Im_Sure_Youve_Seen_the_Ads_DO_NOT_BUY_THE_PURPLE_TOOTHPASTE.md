@@ -44,7 +44,7 @@ Holly was stomping around, squirming in her own skin, bracing the bathroom sink.
 
 I opened her mouth and looked inside. It looked like the purple goop was crawling across her teeth and up into her gums. I wiped off some of the paste with my thumb and looked at it. It was moving on its own and crawling its way down my thumb. I violently shook my hand trying to get it off and grabbed the a towel to remove the excess.
 
-Holly was crying and yelling mumbled words screaming that she couldn’t spit it out. The paste was defying gravity, climbing its way from her bottom teeth to her top. I could see the purple sludge working its way down her tongue. She began to gag. Holly grabbed my shoulders, and I grabbed her face. She shook violently like she was trying to get away from something buried deep inside her. I began to sweat, not knowing what to do, so much blood rushing to my head it made my vision red.
+Holly was crying and yelling mumbled words screaming that she couldn’t spit it out. The paste was defying gravity, climbing its way from her bottom teeth to her top. It appeared to be alive. I could see the purple sludge working its way down her tongue. She began to gag. Holly grabbed my shoulders, and I grabbed her face. She shook violently like she was trying to get away from something buried deep inside her. I began to sweat, not knowing what to do, so much blood rushing to my head it made my vision red.
 
 Every time Holly moved her mouth, the purple toothpaste took up more space. Her breathing became heavy, slipping through the small openings within the thick purple webbing aggressively growing in her mouth. In a panic, she ripped the towel rod out of the wall and began to spin around pulling at her hair and clutching her throat. Holly slapped at the walls in desperation. She was beginning to turn blue. Her heavy breathing turned into a faint whistle through the one small hole left on the growing tangled mass now protruding through her lips.
 
@@ -54,7 +54,7 @@ Holly’s face turned from blue into a deep purple, her eyes redder than I could
 
 She violently rocked back and forth, never breaking her stare. Her chest moved up and down in such a way that something was trying to get out although I know it was only air trying to get in. The purple sludge came slowly rolling out of her nose. She lunged at me, grabbing my head tight in what was going to be our last hug, our last loving embrace. She tried to squeeze the help out of me, but there was none to be found. In my ear, I heard the faint whistle from her breathing silence itself.
 
-I pulled away, her face maroon, and stared into her eyes one last time. The tension in her body slowly gave as she laid on the floor in her brave moment of acceptance. We met eyes once more. She still with me. He body laid still except for an involuntary jerk every four seconds from the muscles in her chest unsuccessfully trying to find one more breath of oxygen.
+I pulled away, her face maroon, and stared into her eyes one last time. The tension in her body slowly gave as she laid on the floor in her brave moment of acceptance. We met eyes once more. She was still with me. Her body laid still except for an involuntary jerk every four seconds from the muscles in her chest unsuccessfully trying to find one more breath of oxygen.
 
 I watched with deep regret as the small pupils in her eyes grew until she was no longer looking at me, but through me. I buried my head deep into her chest and soaked her shirt with my tears for I don’t know how long. She was gone.
 
