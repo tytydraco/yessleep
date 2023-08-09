@@ -1,0 +1,37 @@
+Everything they taught us about hell is a lie. Some teach hell is a big sinful party. A place where one can commit any sin that the heart desires, and lucifer sits on his thrown and takes it all in. Others teach demons run hell with unbearable evil and that hell is a agonizing torture orgy. Either way whatever these sick twisted individuals come up with is a lie. Anyone who has ever seen hell will not discuss it all. They will tell you that it is not a place where even the worst people will not want to go.  
+  
+Let me explain further, Hell was not originally intended for mankind. Hell was a place of eternal torture for fallen angels only. But after the creation of man and lucifer influencing man to sin against God, God had a change of heart. Man had become so corrupt so defiled in the face of the creator, that he opened the gates of hell to the humans who rejected him and his teachings.  
+  
+So in this matter God did not turn down the volume on hell just for hardheaded humans. When in hell one suffers the same horrific treatment as the fallen sons of God. Since the spiritual beings cannot die and does not have a physical existence. This torture is for mind, spirit and the essence of a being. So the reason the hell fire is so hot is because it was not meant for children of clay, beings made from dirt.  
+  
+So what exactly happens in hell you say??? We or tortured because they or and we or their Children.  
+  
+I was a priest for forty years but, I did not do confessions or sit in a church or even preach sermons. At age twenty-one, I was Swarn into the most ancient order of demon slayers dating all the way back to ancient Egypt. Established by Enoch himself. The reason this is important is because one undergoes a ritual or a vision. One being a servant to God dedicating your every waking moment to him. A blessing from God himself is bestowed on you to see the end. To actually see the torture of the devil himself when the creator returns.  
+  
+The vision starts in a real dark place, and this is not regular dark. This is soul crushing no hope darkness. In the distance there is a gold light that starts to glow brighter and brighter. As the vision becomes clear one instantly sees him, Lucifer. Even in his fallen state he is beautiful. He screams and begins to weep, he screams so loud that your brain vibrates inside your skull. His only words over and over or father please forgive me. Then it begins!!!!!!  
+  
+It seems as if he is bound to a unseen floor but one can see no chains binding him. But for some reason he cannot move. A still yet deep booming voice is heard speaking. Son of the morning you were special my most beautiful creation. But your heart was filled with jealousy and rage and know I must strip you of every gift I gave you.  
+  
+Lucifer begins to scream louder in ear shattering agony. A loud ripping is heard as if metal is being stripped from metal. His halo that is above his head is being torn from his very essence. He doesn't have a physical existence. But while the halo is being pulled, his spirit is stretched beyond limitation. Its as if his body is trying to clinch to it. His being tries to attach to it like a parasite, but it is ripped off and shattered like glass. He begins to weep harder.  
+  
+Keep in mind spiritual beings cannot bleed, so instead a thick fog begins to seep from his head. The fog is a fluorescent blue, the voice speaks again. Your halo was a symbol of my anointing upon you. Know it shall be removed, my anointing shall no longer be upon you. You used the great light bestowed upon you to trick my children that you were the almighty. Lucifer you wanted my praise from my children. So know give me back what never belonged to you since you were created.  
+  
+Then something grabs his wings, know his cries or full of hurt as if a father has done harm to a child. One really feels his pain and continence. He starts to plead, please not this I cannot! His wings sound like a cloud getting ripped from the air. After they leave his back they instantly burn up in front of his eyes. Some how there were ashes, God made a soft gust of wind blow them into his eyes. God spoke again the same wings that where bestowed upon you to exalt me. You used to mislead my children to stay under your wings for protection.  
+  
+He is on his knees at this point. I didn't know spirits can make tears. God continues, So the same wings you use to block my light, to keep them from seeing it clearly. May the same wings burn your eyes for eternity and you may never go blind and the burning may never stop. Lucifers agony increases.  
+  
+God speaks again, long before man, I used stones such as diamonds, rubies and emeralds to adorn one of the greatest beings I could create by fiat. This being was you lucifer.  
+  
+Well this part even made me agonize in pain. The son of the morning had jewels in his very being that God gave him. Know these were ripped off one by one. Every jewel that was detached, made him weaker and weaker. His beauty starting to drain slowly and his light began to dim from gold to a faded orange. The jewels given to Uplift the creator, he used them to bring praise to himself.  
+  
+God spoke again, lucifer was created with special pipes and instruments built into his very being. His throat was made to sing and praise me and me alone. The Beautiful instruments came from his body. I blessed him with the ability to sing musical notes that or beyond human comprehension. Just from his hum all of heaven was in awww, but he was my creation that brought glory to me.  
+  
+His instruments were tuned by the hand that created all life in existence. Beautiful string instruments and horns that were never revealed to mankind. But in his transgression once again the gift I bestowed on him to worship me. Was use to bring glory to himself. Exposing the instruments to man and his magnificent voice to lead people astray.  
+  
+Know a noise was made that sounded as if a entire orchestra threw there instrument's against concrete. Lucifer was on his back at this point with no more energy to scream. All he could do was weep very softly, like a child with asthma who cant really scream. The almighty ripped every musical instrument and wind pipe from lucifer.  
+  
+Lucifer's light was almost gone at this point. The almighty spoke once more. You were made from piece of my very essence, you twisted my commandments and blasphemed my holy scriptures. Teaching the world that evil is good and good is evil for this I remove my spirit from you.  
+  
+This time a big light which I have never soon before who's color I cannot described was ripped from him. Lucifer lay there while the fog oozed from his existence. Then God says burn for eternity, Lucifer begins to scream uncontrollably. Then God speaks to me and says Open your eyes.  
+  
+Then it is clear lucifer is not alone in this eternal fire and torture. His fellow fallen angels or right beside him. There also where people and they all were crawling over each other. They all where naked and burning. There skin bubbled and blistered, but they never died. God spoke one last time, this will be the end result for the fallen and his followers. Serve me and in the end live in paradise or be here to be apart of lucifers tears.
