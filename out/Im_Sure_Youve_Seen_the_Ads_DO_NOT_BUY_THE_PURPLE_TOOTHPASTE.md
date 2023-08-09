@@ -1,4 +1,4 @@
-I was in bed thumbing through my engagement photos when my fiancé walked in the room looking like a monster from outer space. She had a shopping bag tied around her hair, golden rubber pads beneath her eyes, and enough acne patches hanging off her cheeks to make her look like a Hannibal Lector victim. Underneath all the cosmetics, was my beautiful Holly.
+I was in bed thumbing through my engagement photos when my fiancé walked in the room looking like a monster from outer space. She had a plastic shopping bag tied around her hair, golden rubber pads beneath her eyes, and enough acne patches hanging off her cheeks to make her look like a Hannibal Lector victim. Underneath all the beauty products, was my beautiful Holly.
 
 I never knew how much she spent on all her beauty products, but I did know if we ever got into a dire financial situation, she would choose clear skin and soft healthy hair over electricity and food. We had been together for five years and a day had never passed when I wasn’t completely stunned by her beauty. I just wish what she saw in the mirror was what I saw when looking at her perfection.
 
