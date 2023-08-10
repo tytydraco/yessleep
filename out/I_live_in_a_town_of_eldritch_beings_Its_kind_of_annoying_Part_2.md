@@ -10,7 +10,7 @@ On my last post, someone commented joking about what our mayor’s campaign post
 
 &#x200B;
 
-Jane was in her 80s when the chaos with the drug and everything went down. She had lived with her husband in the same house for the last 50 years. They had never been able to have children, something that caused them great sorrow, but they had each other to get through it all. So obviously, it hit her pretty hard when he passed away.  
+Jane was in her 80s when the chaos with the drug and everything went down. She had lived with her husband in the same house for the last 50 years. They had never been able to have children, something that caused them great sorrow, but they had each other to get through it all. So obviously, it hit her pretty hard when he passed away.
 
 &#x200B;
 
@@ -34,7 +34,7 @@ She told me she noticed immediately. She knew her body was still there, she coul
 
 &#x200B;
 
-And then the trouble started with the mayor. The current mayor at the time. Mayor Jimmy.  
+And then the trouble started with the mayor. The current mayor at the time. Mayor Jimmy.
 
 &#x200B;
 
@@ -50,7 +50,7 @@ Some time later, girls started to go missing. Young girls from all over the town
 
 &#x200B;
 
-The town was in shambles, obviously. It seemed impossible. Girls were disappearing from crowded locations with no witnesses and no explanations. The details were getting fuzzy too. Some would swear they saw Samantha get on the bus, while some say they never even saw her at the bus stop. The police implemented a buddy system and a curfew. No children were allowed to go anywhere alone, and all had to be in their homes by seven.  
+The town was in shambles, obviously. It seemed impossible. Girls were disappearing from crowded locations with no witnesses and no explanations. The details were getting fuzzy too. Some would swear they saw Samantha get on the bus, while some say they never even saw her at the bus stop. The police implemented a buddy system and a curfew. No children were allowed to go anywhere alone, and all had to be in their homes by seven.
 
 &#x200B;
 
@@ -90,7 +90,7 @@ Jane started to follow Pauline. She was terrified, of course, she was a little o
 
 &#x200B;
 
-And sure enough, creeping up behind a tree like curling black smoke, was Jimmy.  
+And sure enough, creeping up behind a tree like curling black smoke, was Jimmy.
 
 &#x200B;
 
@@ -106,7 +106,7 @@ Jane managed to slip in through the door after Jimmy and Pauline, and what she s
 
 &#x200B;
 
-Sorry, I know that’s a really fucked up thing to read, but I’m really trying to hammer home what Jimmy did, so when I tell you what ended up happening to him, you’ll know it was well-deserved. 
+Sorry, I know that’s a really fucked up thing to read, but I’m really trying to hammer home what Jimmy did, so when I tell you what ended up happening to him, you’ll know it was well-deserved.
 
 &#x200B;
 
@@ -154,11 +154,11 @@ Jimmy followed her into the facility, still screaming for Pauline. Don’t know 
 
 &#x200B;
 
-Jane continued to run blindly, forcing her legs to keep going despite how much she wanted to cower and hide, She ran into the basement and yelled for Tommy.  
+Jane continued to run blindly, forcing her legs to keep going despite how much she wanted to cower and hide, She ran into the basement and yelled for Tommy.
 
 &#x200B;
 
-“Oh? Who’s there?” 
+“Oh? Who’s there?”
 
 &#x200B;
 
@@ -302,7 +302,7 @@ Jane ignored him and went to go retrieve Pauline.
 
 &#x200B;
 
-Visceral sounds of gore emanated from the cell, a harmony to the melody of Jimmy’s screams.  
+Visceral sounds of gore emanated from the cell, a harmony to the melody of Jimmy’s screams.
 
 &#x200B;
 
@@ -355,5 +355,9 @@ But before I could fall into any trance of suggestibility, then came Tommy screa
 &#x200B;
 
 20 years later and still Tommy’s chew toy. He bragged to Jane about not being able to die, and now I bet he wishes he could more than anything. Can’t say I’m upset about it.
+
+&#x200B;
+
+[Next Part](https://www.reddit.com/r/nosleep/comments/15nntgq/i_live_in_a_town_of_eldritch_beings_its_kind_of/?utm_source=share&utm_medium=web2x&context=3)
 
 &#x200B;
