@@ -540,3 +540,5 @@ Dr. Meehan’s breathing was heavy. I could see her shaking a little bit, but he
 Neither Sasha nor I responded. Dr. Meehan quietly turned away from us, leaving us alone in the room, and for a moment, the only sound was the frantic cries of Dr. LeRoy as he was dragged off to his fate.
 
 &#x200B;
+
+[Finale](https://www.reddit.com/r/nosleep/comments/15n5mb2/i_work_in_a_clinic_for_fae_the_rules_we_follow/)
