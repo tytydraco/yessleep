@@ -30,7 +30,7 @@ When feeding, I only take what’s needed. In other words, a source is left with
 
 As I drifted along the eastern coast of the United States, I found a small coastal town rooted in the deep South. I'm always on the lookout for smaller, more insular communities. I prefer playing in a small sandbox. This town, which I'll call Indigo, checks all the boxes: conservative, religious, homogeneous, and simple. Being near water is a benefit as well (boaters and fishermen make easy targets).  
 
-Yes, Indigo is just right. There’s a beautiful church there that sits right on the water. It’s a large church with over two-thousand members. The surrounding community is quite affluent. Most live in gated communities, own second homes, and enjoy the finer things in life. The entire area, which is more affordable relative to other places, attracts both tourists and transplants. I foresee continued population growth, but for now it's a manageable enough size for me.  
+Yes, Indigo is just right. There’s a beautiful church there that sits right on the water. It’s a large church with over two-thousand members. The surrounding community is quite affluent. Most live in gated communities, own second homes, and enjoy the finer things in life. The broader area, which is more affordable relative to other places, attracts both tourists and transplants. I foresee continued population growth, but for now it's a manageable enough size for me.  
 
 Now at this picturesque church by the sea, three ordained ministers are on staff. Two seemed wholly unremarkable upon investigation, but one was too good to be true. He was both young and exceedingly handsome. Charismatic and charming also come to mind. He could effortlessly build rapport with others.  
 
