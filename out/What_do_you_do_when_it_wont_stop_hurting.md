@@ -58,7 +58,7 @@ Then everyone scrambled to line up outside the church doors. Dappled sunlight da
 
 I took my place next to her. She did not notice. 
 
-Soon, we were the only two who had not walked down the isle. She pulled her hair in anticipation. She always pulled her hair in anticipation. 
+Soon, we were the only two who had not walked down the aisle. She pulled her hair in anticipation. She always pulled her hair in anticipation. 
 
 “Relax your hands, Katiebug.”
 
@@ -72,7 +72,7 @@ The music changed, and the crowd rose to its feet. A surge of emotion washed ove
 
 Her mascara held firm, but I think it was starting to waver. 
 
-We were halfway down the isle.
+We were halfway down the aisle.
 
 “This is the middle. A saying tells us that sailors fear this part the most, because it’s the farthest from the safety of any shore.” I looked back to the church doors, then turned ahead to contemplate the altar ahead of us. “It has all sorts of names, Katie. ‘The seven-year itch,’ ‘mid-life crisis,’ any number of sayings refer back the same thing. People are afraid of *themselves* in the middle, because potential has either become reality or withered away, and this when they realize what lost opportunities will never come back. They’re locked in, but not free, because the restricted path they’ve laid out before them has little room to escape but so much ground to cover. This is when people stop dreaming about what they might be and realize who they are, which terrifies the hell out of most of us.” I nodded quietly while she deftly wiped an eye. “This can be hard in ways that defy words, because each person looks inward and finds a different reason to be unhappy with him or herself.” I moved to brush a lock of hair past her ear, but was powerless to do so. “But this is where you *can* be the happiest, because the middle is where the most memories are made.”
 

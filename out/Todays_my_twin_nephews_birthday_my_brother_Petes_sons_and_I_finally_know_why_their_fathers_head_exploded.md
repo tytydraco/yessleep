@@ -64,7 +64,7 @@ She saw that Pete's admission notes showed he was picking up Zeke and Woody from
 
 "What kind of parent do you think I am?  Anyway, federal law requires it, as you oughta know.  Safety seats for both my boys."
 
-"Safety seats?"  I can kind of understand how her brain gears must have been grinding at this point.  *Parents?  My boys?  Federal law requires safety seats for old folks?*  She made a note on the tablet:  "Possible paranoid delusions; rx psych eval".  Strike 6.
+"Safety seats?"  I can kind of understand how her brain gears must have been grinding at this point.  *Parents?  My boys?  Federal law requires safety seats for old folks?*  She made a note on the tablet:  "Possible paranoid delusions; rec. psych eval".  Strike 6.
 
 "Yeah, Zeke fights me when I put him in it, but I don't take chances with my boys."  *Zeke fights me?*  Now, distinctly alarmed, she tapped an inconspicuous box on the tablet screen, one that checked a flag on the computer:  "Suspected elder abuse or neglect".  *Strike 99.*
 
@@ -206,4 +206,4 @@ Then my mind kind of blinked.  The decimal shifted to the right, turned into a h
 
 And I had the answer, the final, most outrageous coincidence of all.  I passed my idea through the FBI, and the Monk was kind enough to send confirmation back.  The Russian phone Pete had stolen had an app on it, *an app that controlled the Russian laser satellite.*  Pete had typed the two Social Security numbers, one real, one bogus, from his sons' hospital records into the phone; the satellite had converted them to GPS coordinates, automatically adding a minus to the longitude for positioning in the western hemisphere.
 
-Those coordinates struck right into Ben Geren Park.  Pete had used the stolen Russian phone to call a space laser strike onto his own head.
+Those coordinates struck right into Ben Geren Park.  With his sons' medical records, Pete had used the stolen Russian phone to call a space laser strike onto his own head.
