@@ -107,3 +107,5 @@ Both Flavio and Razor joined forces to tear the solid cage open to my complete b
 "You've committed a— fatal mistake. The girl who escaped— was the— key. But now, you've freed him. What I tried to— to do was the best for you but you're so young and— shortsighted. There are too many things you— don't know. He will unleash—" His last words were interrupted on the spot by a massive tentacle crushing his head.
 
 Jumping backwards in fear, I bumped into Flavio and the others standing right behind me. We all looked at the massive being towering above us, its evil intentions aggressively intimidating each of us. I am confident when I say that such a monster full of hatred and evil, could be invisible and still scare you by its mere presence, or even kill you with it and with ease. Askhartès let his eyes shine bright, almost blinding us and spread his countless tentacles, ready to attack.
+
+[Last Part](https://www.reddit.com/r/nosleep/comments/15n8j7u/every_year_in_my_village_there_is_a_time_during/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
