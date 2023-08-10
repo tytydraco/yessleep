@@ -69,7 +69,7 @@ Knowing Hot Sauce was a woman made her even more attractive. Thank God she was d
 
 We all agreed and let them go on their way. I thought the day might keep going like that. It was a nice feeling meeting new people who were so kind. It was a good break from the daily horrors and struggles of my life. I wished I could make these kinds of days a habit but knew how poorly that would turn out if I tried.  
 
-No one else arrived until around lunchtime. Max someone kept up with the kids the entire time. At some point, Maisy did disappear with Rufus while we weren’t looking. No one wanted to comment on or acknowledge that fact. We just started to wrangle the kids for lunch. Just as we caught the last of the screaming monsters, a new set of hands came to help.  
+No one else arrived until around lunchtime. Max somehow kept up with the kids the entire time. At some point, Maisy did disappear with Rufus while we weren’t looking. No one wanted to comment on or acknowledge that fact. We just started to wrangle the kids for lunch. Just as we caught the last of the screaming monsters, a new set of hands came to help.  
 
 A woman with long golden braided hair come rushing out of the door, kicking off her shoes as she raced down the beach. A man behind her calmly collected her shoes to tuck them into the bags and purses he carried for her. She was going to run right into the water, but noticed I was struggling to get Sweetheart to the towel for lunch without getting bitten. She changed direction to help me lure the little monster girl with a strip of jerk she had hidden away in her pocket. I thanked her as the man she came with caught up.  
 
@@ -83,7 +83,7 @@ Even if we didn’t talk with Hot Sauce, if we saw them go by, we would know tha
 
 “Do you have sunscreen? I forgot to bring some.” The blonde who helped me out asked.  
 
-I handed her a bottle and she went right to work rubbing it into the other man’s face with weak signs of protest. I was glad she asked. He had such pale skin; he was already getting red from the few minutes we talked for. We received another invite to the cookout before they walked away to find the other two. I think the kids would like another meal. I needed Maisy to come back so we could herd them over though.  
+I handed her a bottle and she went right to work rubbing it into the other man’s face with weak signs of protest. I was glad she asked. He had such pale skin; he was already getting red from the few minutes we talked for. We received another invite to the cookout before they walked away to find the other two. I think the kids might like another meal. I needed Maisy to come back so we could herd them over though.  
 
 I was tempted to go and find her, regardless of what situation I walked in on. Any plans for the day got derailed in the oddest way. I’ve seen nightmare monsters and felt the worlds crash into each other. The ripple of power followed by a grinding booming noise across the sky made us huddle around the kids. Each paused their lunch to look around to find the source of the noise. I knew this was a tear between worlds. I fully expected some kind of monster to appear ready to devour the group on the beach. What I didn’t expect was fluffy pink clouds to start falling from the sky.  
 
