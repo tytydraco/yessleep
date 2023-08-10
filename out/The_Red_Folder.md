@@ -26,7 +26,7 @@ He seized up and fell backwards. Whether he died from the initial surge or from 
 
 I withdrew from my vessel. If only entering was as easy as leaving. In a torrent of darkness, my presence departed with great haste. For the record, I never intended to kill anyone that night nor compromise my situation. Killing is a last resort, though admittedly I have been provoked into violent behavior in the past.  
 
-When feeding, I only take what’s needed. In other words, a source is left with enough energy to survive. Wanton killing would draw unnecessary attention. Subtlety and discipline is much more preferable. It’s like going on a hike and finding a orchard. The hiker enjoys the choicest fruit, moving on when satiated. Destroying or desecrating the orchard afterwards would be rather gratuitous.  
+When feeding, I only take what’s needed. In other words, a source is left with enough energy to survive. Wanton killing would draw unnecessary attention. Subtlety and discipline is much more preferable. It’s like going on a hike and finding an orchard. The hiker enjoys the choicest fruit, moving on when satiated. Destroying or desecrating the orchard afterwards would be rather gratuitous.  
 
 As I drifted along the eastern coast of the United States, I found a small coastal town rooted in the deep South. I'm always on the lookout for smaller, more insular communities. I prefer playing in a small sandbox. This town, which I'll call Indigo, checks all the boxes: conservative, religious, homogeneous, and simple. Being near water is a benefit as well (boaters and fishermen make easy targets).  
 
