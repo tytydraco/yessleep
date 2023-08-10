@@ -68,9 +68,9 @@ I gripped her little pink shoes in my hands, curling up into a ball and hugging 
   
 *Pain exploded from every nerve ending in my body. Everything was too loud, and too hot and too bright. My mind felt fuzzy and my mouth was so dry. I was drifting in and out of consciousness, my eyes gazing up at the man in front of me before I slipped into the dark.*  
   
-*Sadness gave way to anguish and anger quickly took over from there. I wrenched myself from the mat, standing on shaky legs, my hands betraying me as they threw the shoes across the room. They landed in a heap in the hallway, lighting up the second they hit the floor. A new wave of tears washed over me, and I crumpled to the ground, my hands yanking and pulling at my hair as I wrestled with the onslaught of emotions coursing through my system.*  
+Sadness gave way to anguish and anger quickly took over from there. I wrenched myself from the mat, standing on shaky legs, my hands betraying me as they threw the shoes across the room. They landed in a heap in the hallway, lighting up the second they hit the floor. A new wave of tears washed over me, and I crumpled to the ground, my hands yanking and pulling at my hair as I wrestled with the onslaught of emotions coursing through my system.  
   
-*Mack’s old sweatshirt was stained with snot and mascara as I wiped at my face. I’d been wearing it for a week straight, and when I buried my nose in it and realized that I couldn’t smell his all-too-familiar scent, I ripped it off of my head and threw it over next to the shoes.*  
+Mack’s old sweatshirt was stained with snot and mascara as I wiped at my face. I’d been wearing it for a week straight, and when I buried my nose in it and realized that I couldn’t smell his all-too-familiar scent, I ripped it off of my head and threw it over next to the shoes.
   
 *“Marcy Barnes?”*  
   
