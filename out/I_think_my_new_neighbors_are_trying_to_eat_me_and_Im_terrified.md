@@ -6,7 +6,7 @@ The new neighbors moved into the house across the street from us just a few week
 
 That afternoon, I was in my office, which is on the second floor of our home, the window of which directly faces the street.
 
-The moving truck had parked there all day, though I found it a bit odd that all I'd seen thus far were movers. Every time I looked up (which was often since I couldn't focus on my novel), I expected to catch a glimpse of our elusive new neighbors, but alas, I was going to have to stay curious.
+The moving truck had been parked there all day, though I found it a bit odd that all I'd seen thus far were movers. Every time I looked up (which was often since I couldn't focus on my novel), I expected to catch a glimpse of our elusive new neighbors, but alas, I was going to have to stay curious.
 
 My wife, Carmella, was the one who originally suggested we invite them over for dinner.
 
