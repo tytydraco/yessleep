@@ -99,17 +99,17 @@ I opened it to find diagrams and instructions for some sort of ritual. The seed 
 
 I skim-read the list of instructions, and the picture of this seemingly-supernatural ritual started to form.
 
-*Remove the brain…
+*Remove the brain…*
 
-Plant the seed…
+*Plant the seed…*
 
-Water the brain, and watch limbs grow…
+*Water the brain, and watch limbs grow…*
 
-Let a new, improved human flourish…
+*Let a new, improved human flourish…*
 
-Mould your loved ones in your desired image…
+*Mould your loved ones in your desired image…*
 
-No more resistance…*
+*No more resistance…*
 
 I started to wail uncontrollably, and Jessie nuzzled my leg to soothe me. I could type more of what I read in that document, but recounting it in greater detail would only make me relive that sickening feeling — a horror that cannot be put into words.
 
