@@ -14,11 +14,19 @@ This caught me by surprise and confused me. Cloned the Earth? What did he mean b
 
 “What do you mean?” I asked, trying to sound calm.
 
-“They clone it.” He simply said, still staring forward, hands still clasped. “They clone everything. The planet, the plants, the buildings, the animals, and even the humans. They clone it all. Well, maybe not everything. They do make sure not to clone the artifacts and technology responsible for the process, as well as the people working on it, so that we won’t have a situation where clones are making clones. Anyways, they manifest these clones into their own universes, which is actually just a small copy of the nearby space around the prime Earth.”
+“They clone it.” He simply said, still staring forward, hands still clasped. “They clone everything. The planet, the plants, the buildings, the animals, and even the humans. They clone it all. Well, maybe not everything. They still have to make sure that they don’t clone the artifacts and technology responsible for the process, as well as the people working on it, so that we won’t have a situation where clones are making clones.”
 
-“Okay…” I said cautiously, finding everything he was saying to be completely ridiculous. “So why would the government clone the Earth?”
+“Okay…” I said cautiously, finding everything he was saying to be completely ridiculous. But seeing no immediate danger from him, I decided to continue the conversation. “So the government is just casually cloning the Earth, without anyone knowing about it or seeing any of these clones up there?” With that I gestured up at the night sky.
 
-“To experiment on them of course!” He said, as he suddenly turned towards me, revealing his wide bloodshot eyes. “Sure, simulations can predict how humans or the environment would react to this or that situation, but nothing beats the real thing. Besides, from what I was told, the use of some kind of ancient artifact from the stars makes the cloning process much cheaper than one would think. So the government uses these clones to conduct experiments. From testing the spread of new viruses to seeing how wars would go, they change and manipulate the environments and societies of these Earths as if they were ants in an ant farm.”
+His response came quickly, as if he was expecting me to ask that.
+
+“It's a closely guarded secret under a classified department in the government. It’s buried deep within the institution, with layers and layers of cover ups and security. It’s known only to a few public officials and to those who work in the department. As for the clones…well they’re not hard to hide when you can put each clone in their own small universe, away from the far seeing gaze of most of humanity.”
+
+I simply nodded at this. Although I still didn’t believe his crazy story, I decided to continue and amuse him, as long as he continues to act as calmly as he is now.
+
+“So, the government clones the Earth. Okay. But why?”
+
+“To experiment on them of course!” He said, as he suddenly turned towards me, revealing his wide bloodshot eyes. I was taken aback by this, but remained seated, not wanting to do anything drastic that might set him off. “Sure, computer simulations can predict how humans or the environment would react to this or that situation, but nothing beats the real thing. Besides, from what I was told, the use of some kind of ancient artifact from the stars makes the cloning process much cheaper than one would think. So the government uses these clones to conduct experiments. From testing the spread of new viruses to seeing how wars would go, they change and manipulate the environments and societies of these Earths as if they were ants in an ant farm.”
 
 At that point he sighed and sat back. Looking up at the night sky he then shook his head.
 
@@ -26,7 +34,9 @@ At that point he sighed and sat back. Looking up at the night sky he then shook 
 
 That last one brought a chill to my spine. Despite the fact that what he was saying was completely insane, the tone in his voice and the deadpan expression on his face whispered to me, as if it was telling me to believe him.
 
-Letting me ingest all that he said, the man remained silent as he continued staring at the sky. For a moment we remained like that. Sitting there and staring at the man, I debated if I should walk away now. It would have been the perfect moment to do so, while his attention was away from me. However, instead of leaving, I remained there, sitting and waiting.
+Letting me ingest all that he said, the man remained silent as he continued staring at the sky. For a moment we remained like that. Sitting there and staring at the man, I debated if I should walk away now. It would have been the perfect moment to do so, while his attention was away from me.
+
+However, instead of leaving, I remained there, sitting and waiting.
 
 Giving a quick look towards the road, I tried to check if there was any sign of the bus. There was none. Checking my watch I realized that I would be stuck with him for a few more minutes. Giving a sigh, I shook my head and studied this strange man.
 
@@ -34,9 +44,17 @@ My caution towards him was still there. Clearly he was a mad man and there was n
 
 Sitting there, we remained there in a few more seconds of silence before the question circling in my head finally came out.
 
-“How do you know all about this?” 
+“If this Earth cloning business is such a secret, how come you know all about this? You seem to know a lot about it.” 
 
-“Because I work with the government.” He said, as he stopped gazing at the sky and sat straight before facing me. “I’m part of the same department that clones the Earth, although not a part of the team who does the cloning. No, I’m not smart enough for that. I'm a reconnaissance officer. Me and a hundred others have been trained to visit the clones, inspect them, and, after a month of initial assessments, we present a verdict on whether they are suitable for experimentation or not. Basically, we’re there to make sure that there are no anomalies in the clone’s were assigned to check.” 
+“Because I work for the government.” He said.
+
+“You work for the government?” I repeated, as he stopped gazing up at the sky and turned towards me.
+
+“Yes. I can’t say I applied for it, I don’t think anyone applies for that department. Instead, they find you, if they think you meet the requirements. Somehow they thought I was qualified for certain tasks they needed, so I got recruited.
+
+“So you clone the Earth then?” I questioned, trying not to roll my eyes at how ridiculous that sounded.
+
+“No.” He said with a shake of his head. “I’m not smart enough for that. I'm a reconnaissance officer. Me and a hundred others have been trained to visit the clones, inspect them, and, after a month of initial assessments, we present a verdict on whether they are suitable for experimentation or not. Basically, we’re there to make sure that there are no anomalies in the clone’s were assigned to check.” 
 
 “So you check the Earth clones and make sure they’re similar to the original?” I asked.
 
@@ -48,7 +66,7 @@ I nodded at this. Despite him losing his sense of reality, this fictional world 
 
 “Wait, erased? How does one simply erase a world?” I asked.
 
-“Yes, erased.” He said. “There’s no use for a world that can’t be experimented on, so they get erased. But it’s not a simple task. After I mark a clone for erasure, the department would send a team that would begin the process. The clean up crew, as I like to call them. First they would wipe every living creature on the planet, every single one. That’s a quick process, only takes a few minutes. Then, once all life is gone, they would begin to harvest the planet for any useful resources. They somehow still got to get their investment back after all. The last part usually takes around a year or so, but in the end we are left with a ravaged, hollow, and empty planet drifting in a void that would never again be visited by any living creature.”
+“Yes, erased.” He said. “There’s no use for a world that can’t be experimented on, so they get erased. But it’s not a simple task. After I mark a clone for erasure, the department would send a team that would begin the process. The clean-up crew, as I like to call them. First they would wipe every living creature on the planet, every single one. That’s a quick process, only takes a few minutes. Then, once all life is gone, they would begin to harvest the planet for any useful resources. They somehow still got to get their investment back after all. The last part usually takes around a year or so, but in the end we are left with a ravaged, hollow, and empty planet drifting in a void that would never again be visited by any living creature.”
 
 I slowly nodded at this, feeling a sense of dread at the idea, before calming down as I remembered that none of that was true.
 
@@ -82,13 +100,11 @@ Deciding not to waste another second, I started getting up. But, before I could,
 
 Shocked and frightened, I turned my head towards him, wondering what he was going to do with me. Staring at me with his bloodshot eyes, I saw an expression of determination on his face.
 
-“You don’t believe me, but I’ll make you believe.” He said, as I tried to push against his strength.
+“You don’t believe me, but I’ll make you believe.” He said, as I tried to push against his strength. 
 
 Realizing that I won’t be able to escape unless I knocked him out, I prepared to give him a punch on the face. However, before I could do so, he suddenly grabbed my arm and pulled it towards him. He was way stronger than I expected, so I was unable to stop him when he placed some kind of bracelet on me.
 
-“This might sting a bit.” He said, before letting my arm go, freeing me. 
-
-Seeing this as an opportunity, I quickly got up and started running away. I knew that I needed to get as far away as possible from him, so I wasted no time turning back to see what he was doing. But I was only able to get a few steps away when a sudden pain erupted from my wrist, right where he placed the bracelet. I tried to ignore it and did my best to continue running, but then the pain spreaded and engulfed my whole body. This forced me to drop to my knees and before I could comprehend what was going on I blacked out.
+“This might sting a bit.” He said, before letting my arm go, freeing me. Seeing this as an opportunity, I quickly got up and started running away. I knew that I needed to get as far away as possible from him, so I wasted no time turning back to see what he was doing. But I was only able to get a few steps away when a sudden pain erupted from my wrist, right where he placed the bracelet. I tried to ignore it and did my best to continue running, but then the pain spreaded and engulfed my whole body. This forced me to drop to my knees and before I could comprehend what was going on I blacked out.
 
 When I opened my eyes I realized I was laying down on the sidewalk. Quickly, I sat up and looked around, confused and scared. I didn’t know how much time had passed, but clearly it was still night. Looking around, I examined my surroundings and felt my heart drop when I saw that the man was still there.
 
@@ -144,6 +160,6 @@ He gave me a somber look in response.
 
 Before I could say anything he backed away from me, pressing a bracelet he had on his wrist.
 
-“I’m sorry, but your Earth failed. The clean up crew will arrive a few weeks from now. Make the most of your time.”
+“I’m sorry, but your Earth failed. The clean-up crew will arrive a few weeks from now. Make the most of your time.”
 
 With that he disappeared, leaving me alone at the bus stop.  

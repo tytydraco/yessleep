@@ -34,7 +34,15 @@ MILLIONS.
 
 OH how many I ẁ̵̪̼̤͙̞̳̞̳͕̊͊̏̇̇̽͛̑͘ä̵̢̞͇̣̫̣͇̜́̎̃̈̀̓t̴͙͈͕̗̜͓̘̯̀̆̐̓̈̾̓̋̕c̵̡̠͉͖͚̞̺̰͖̗̞̒̓̇̆̈́̋̈̂͝h̸̡̢̲͈̻̣̱̠͎͖̦͈̒͐̃̊͐̃̑́̇͗̌̓͆͘͝e̵̠͖̼̖͎͓̺͙͔̝̞̠̖̪͐̿̆͐̀̀̌̐͘͝͝d̵̨̙̗̤̦̻̫̬̼͓̦̻͔̦̑̆
 
-Until that night, of course. I had found myself watching, and for what felt like millenia. This one, however... was so different from the others. She had long since begun to witness me. MY FORM, you may be curious to discover, was not as it was before you this day. THE DAY OF YOUR THIRTEENTH BIRTHDAYS! THE MOST WONEROUS COMING OF THE DAY UPON WHICH Y̷̟͉̙̝̓O̶̫̟͓̻͖̒̅̒̄̔͒͝͝Ű̵̠̰ Ǐ̵̡͙̘͙̗̗̦͔̲̅͗͑̈́̀̂́͑͊̓̀͊̕̕Ṉ̵̡̨̨̖̟̰̩͕͕̥̬͈͕͕̓̒̀̌̀̈́͗͗̊̈́̋̊̊̉͛́H̵̨̢̫̘͔̟̦̳̠̯̅͒̋̎͒́͌̒̈́͛͂̅̌̑̇̚È̴̗̘̦̍̔̿R̶̢͈̿E̵̜̦̤̿̔͗͌̕̚̕T̴̨͇͓̉͐̓͑̽̊͐͌͠ ̵̧͎̖̝͍̖͖̩̼͖͂͆̽̇́̎ͅÝ̴̺̖͓̟͎̜͚͙̹͍͍̳̱̤̐͛͊̽̽ͅO̶̟͔̱̰̰̿̐̒͊̾̍̇͋̅̔̕Ü̶̧͎̣͇̩̩̲̞̼̮͔͇̖͒̐̏̇̈́̌̅̆̑́̀Ṟ̶̡̧̳͍͔̪͙͚̹̂̅̽͛͆̈́̎͗̽̏̚͝--...HAH! I lost my composure again, FORESHAME ON YOUR FATHER!What I meant to say, is that your father was... not the man that he is today when your mother first saw him. He was scarcely even a 'he' at all. Just a long tall shadow and a face that should have made your mother weep. And yet, she didn't.
+Until that night, of course. I had found myself watching, and for what felt like millenia. This one, however... was so different from the others. She had long since begun to witness me. MY FORM, you may be curious to discover, was not as it was before you this day. THE DAY OF YOUR THIRTEENTH BIRTHDAYS! THE MOST WONEROUS COMING OF THE DAY UPON WHICH Y̷̟͉̙̝̓O̶̫̟͓̻͖̒̅̒̄̔͒͝͝Ű̵̠̰ Ǐ̵̡͙̘͙̗̗̦͔̲̅͗͑̈́̀̂́͑͊̓̀͊̕̕Ṉ̵̡̨̨̖̟̰̩͕͕̥̬͈͕͕̓̒̀̌̀̈́͗͗̊̈́̋̊̊̉͛́H̵̨̢̫̘͔̟̦̳̠̯̅͒̋̎͒́͌̒̈́͛͂̅̌̑̇̚È̴̗̘̦̍̔̿R̶̢͈̿E̵̜̦̤̿̔͗͌̕̚̕T̴̨͇͓̉͐̓͑̽̊͐͌͠ ̵̧͎̖̝͍̖͖̩̼͖͂͆̽̇́̎ͅÝ̴̺̖͓̟͎̜͚͙̹͍͍̳̱̤̐͛͊̽̽ͅO̶̟͔̱̰̰̿̐̒͊̾̍̇͋̅̔̕Ü̶̧͎̣͇̩̩̲̞̼̮͔͇̖͒̐̏̇̈́̌̅̆̑́̀Ṟ̶̡̧̳͍͔̪͙͚̹̂̅̽͛͆̈́̎͗̽̏̚͝--.
+
+&#x200B;
+
+..HAH! I lost my composure again, FORESHAME ON YOUR FATHER!
+
+&#x200B;
+
+What I meant to say, is that your father was... not the man that he is today when your mother first saw him. He was scarcely even a 'he' at all. Just a long tall shadow and a face that should have made your mother *weep*. And yet, she didn't.
 
 For you see, now is where PHILLIP comes into this tale-- because it turned out *I was not the monster which your mother feared.*
 
@@ -44,17 +52,27 @@ Every night, her gaze would drift to me as he would subject her.
 
 And in her eyes, I saw something -- I *FELT* something.
 
-This was extremely unusual. Not only did those who met my gaze seem to quite dislike it, but I certainly had never FELT anything for any of them other than dark, ominous k̴̡͔̺̟͓̖̩͍͍̆̽̽͒̾͠ń̸̝̏̌̑̄͐̏͝o̵͍̝͗͆̄͋̃̔̇w̸̖̾̾ị̴̡̛̞̝̖͊̌̐͐̓̚͝ͅñ̸͜g̵̨͚̲͉͠.
+This was extremely unusual. Not only did those who met my gaze seem to ***quite*** *dislike it*, but I certainly had never FELT anything for any of them other than dark, ominous k̴̡͔̺̟͓̖̩͍͍̆̽̽͒̾͠ń̸̝̏̌̑̄͐̏͝o̵͍̝͗͆̄͋̃̔̇w̸̖̾̾ị̴̡̛̞̝̖͊̌̐͐̓̚͝ͅñ̸͜g̵̨͚̲͉͠.
 
-And yet, here was I! THE MANIFEST FORM OFYOUR FATHER! FEELING for YOUR MOTHER that she must have done nothing which could warrant not only the torment of MY presence, but ALSO the SHEER INHUMANITY of Ṗ̸̡̡̛͚͈͈̙̜̗̞̥̜͔̘̼̪͜͠H̷̡̛̛͑̽̃͆͗̇̄̀͗̎̈̿́̿̃̈́͠Ì̷̢̛̭̗̮̞͓̳̥̰̜̤̲̻̭̦͉͎̔͌͌̅͂̊͘͜L̶̨̧̧̯͖͚̩̭̝̻͍̖͚̜͈̻͈͔͕̖̱̮̞̙̥̉̾̐̓͆͌̍̓̉̌̈́́͌̀́̈́̔̆̄̚͝͝Ļ̴̧̛̛͚̮̲͉̯̱̟̦͖̙̮͇͖̤͍͎͎͎̪̭͔́̀̋̓̔͆̄̂̀͗̉͑̍̾̔͗͌̑̂͗͒͂͊̒̕͘͘͠ͅĮ̵̢̩͉̞̩̰̺̺̜͈̰̫͕̝̠͗̓̑͂͂͜͠P̴̨̥̙͕͍̞̬̦̫̞̰̤͉̖͕̜̼͔̍͋̐̈́͐̽̈̇̊̿̔̓̆̆̓̌̈́̅̾͐̅̆̔̍̓̀͊̕͝͝.
+And yet, here was I! THE MANIFEST FORM OF YOUR FATHER! FEELING for YOUR MOTHER-- that she must have done nothing which could warrant not only the torment of MY presence, but ALSO the SHEER INHUMANITY of Ṗ̸̡̡̛͚͈͈̙̜̗̞̥̜͔̘̼̪͜͠H̷̡̛̛͑̽̃͆͗̇̄̀͗̎̈̿́̿̃̈́͠Ì̷̢̛̭̗̮̞͓̳̥̰̜̤̲̻̭̦͉͎̔͌͌̅͂̊͘͜L̶̨̧̧̯͖͚̩̭̝̻͍̖͚̜͈̻͈͔͕̖̱̮̞̙̥̉̾̐̓͆͌̍̓̉̌̈́́͌̀́̈́̔̆̄̚͝͝Ļ̴̧̛̛͚̮̲͉̯̱̟̦͖̙̮͇͖̤͍͎͎͎̪̭͔́̀̋̓̔͆̄̂̀͗̉͑̍̾̔͗͌̑̂͗͒͂͊̒̕͘͘͠ͅĮ̵̢̩͉̞̩̰̺̺̜͈̰̫͕̝̠͗̓̑͂͂͜͠P̴̨̥̙͕͍̞̬̦̫̞̰̤͉̖͕̜̼͔̍͋̐̈́͐̽̈̇̊̿̔̓̆̆̓̌̈́̅̾͐̅̆̔̍̓̀͊̕͝͝.
 
-And in that instant, I felt yet another thing. A thing which I had never felt before and have never felt since:HATRED.I Ḧ̶̛̱́̆̍̆̊́̈́̀̀̐̑̀̃̋̀̈́͘͝͠͠A̵͉͍̙̞͕͓̻̠͖͗͂̅̅̄̓̈́̇͋͛͂͗̚̕͝T̴̨̡͔̗̬̣̳̯͉̣͓̺̩̒̋̽͊̇͊̎̇̾͂͑̊̽̇͂͝Ȩ̴̖͙̺̠̥̒̄̆̓͂̿̆̌͠D̵̨̡̘͔͔̪͔̞͙͈̮͖̖̞̤̦͛̉͂̓̃̐̄̌̍͒̊̿̓̚͠ P̷̧̧̨̡̫̞̻̥̣͓̱͔̫̮̹̰͇̦̣͚̭̰̞̠̠̗̻̓͑̒̉̓Ĥ̶̡̡̧̧̢̛͕̻̲̝̗̱͖͕̮̭̪̙͓̼̺̫̪͈͕̺̆̉͂̀̈̐̾̔̍̏̂̍̑̎͂̃͛̿͋͊̈̿̒͌̕͘͝ͅI̷̢̢̢̢̘̹̩͔̖͇̺̰̪̤̼͍̰̘̮̻̦͚͇͚͉̦̹̮͇̲̬̞̩͔͓̲͆͜͜ͅͅͅͅĻ̴̧̨̢̧̹͉̱̟͙̳͖͕̖̗̞͎̫̠̭̤̻̪͙͓̫̤̝̘̠͙̯͍͇̗̦̘̳̙͙̠͊̔̋͊̄̉̈́̄͘͝͝L̷͈̦̣̭͓̉͐͑̆͒̚Ị̶̡̙̳͈̯̣̖̣͉̬̻͇̳̼̦̤̪̹̯̥͈̻̩̖̯̪͈̤̫̙̘̒̌̒͆̾̈́̇͊͊͊͊̓͌̎͜͜͜͝͠͝ͅͅP̶̡̢̛̮͈̯̟͖͉͙̼̲̱̼̩͉̬͖͓͙̘̩̗̯̮̗͇̺̈́͊͒̋̈́̿̿̑̑̂͗́̄̀̀̿͆̔͊͐́̉́͆͜͠͝͝ͅ.And from that hatred grew my appendages. MANY of them
+...That she deserved *no more torment at all.*
+
+And in that instant, I felt yet another thing. A thing which I had never felt before and have never felt since:
+
+HATRED.
+
+I Ḧ̶̛̱́̆̍̆̊́̈́̀̀̐̑̀̃̋̀̈́͘͝͠͠A̵͉͍̙̞͕͓̻̠͖͗͂̅̅̄̓̈́̇͋͛͂͗̚̕͝T̴̨̡͔̗̬̣̳̯͉̣͓̺̩̒̋̽͊̇͊̎̇̾͂͑̊̽̇͂͝Ȩ̴̖͙̺̠̥̒̄̆̓͂̿̆̌͠D̵̨̡̘͔͔̪͔̞͙͈̮͖̖̞̤̦͛̉͂̓̃̐̄̌̍͒̊̿̓̚͠ P̷̧̧̨̡̫̞̻̥̣͓̱͔̫̮̹̰͇̦̣͚̭̰̞̠̠̗̻̓͑̒̉̓Ĥ̶̡̡̧̧̢̛͕̻̲̝̗̱͖͕̮̭̪̙͓̼̺̫̪͈͕̺̆̉͂̀̈̐̾̔̍̏̂̍̑̎͂̃͛̿͋͊̈̿̒͌̕͘͝ͅI̷̢̢̢̢̘̹̩͔̖͇̺̰̪̤̼͍̰̘̮̻̦͚͇͚͉̦̹̮͇̲̬̞̩͔͓̲͆͜͜ͅͅͅͅĻ̴̧̨̢̧̹͉̱̟͙̳͖͕̖̗̞͎̫̠̭̤̻̪͙͓̫̤̝̘̠͙̯͍͇̗̦̘̳̙͙̠͊̔̋͊̄̉̈́̄͘͝͝L̷͈̦̣̭͓̉͐͑̆͒̚Ị̶̡̙̳͈̯̣̖̣͉̬̻͇̳̼̦̤̪̹̯̥͈̻̩̖̯̪͈̤̫̙̘̒̌̒͆̾̈́̇͊͊͊͊̓͌̎͜͜͜͝͠͝ͅͅP̶̡̢̛̮͈̯̟͖͉͙̼̲̱̼̩͉̬͖͓͙̘̩̗̯̮̗͇̺̈́͊͒̋̈́̿̿̑̑̂͗́̄̀̀̿͆̔͊͐́̉́͆͜͠͝͝ͅ.
+
+And from that hatred grew my appendages.
+
+MANY of them
 
 so many it blocked out ǎ̸̢͙͚̭͆̈̅͠ļ̸̡͖̝͉̱̎̎͛͘͠͝l̷̘̰̥͈̭͑̍͋́͋̿̍ ̸͕̩̳̱͔̾̿͋́̎ͅͅẗ̴̜͍͚͕̖́̾̆́͘͜ͅẖ̶̰͇̫̿̚͜ễ̷̛̲͓̖͓͍͑́͗̀ ̷̼͖̱̬̣̊͐̓̊͊͋͑ļ̷͕̹͇͕̰̅̌͒̄͋̈́į̶̛̳̬̳̙̟̀͛̈̈́̒̅ģ̴̩͍̺̬̔̏͆́̀̍͝h̵̘͖̤̮͓͍̒̉̒̓͊͛͝t̷͔̣̮͉̟̽̍̈̾͘͠ͅͅ ...
 
 ...
 
-...And when the darkness, the shade of my being had finally subsided, PHILLIP was no more.There was ONLY I!^(focusedallofmyintentionandbecame)YOUR FATHER, and THANKFULLY, ALSO YOUR MOTHER! She cried for a moment, and yet she was smiling -- relieved, even. She reached out and touched my face...
+...And when the darkness, the shade of my being had finally subsided, PHILLIP was no more. There was ONLY I!^(focusedallofmyintentionandbecame)YOUR FATHER, and THANKFULLY, ALSO YOUR MOTHER! She cried for a moment, and yet she was smiling -- relieved, even. She reached out and touched my face...
 
 ...It brought me such anguish in the first moments. A being so innocent and pure who was *so afraid* for *so long*, reaching out and touching me-- *bestowing her gratitude upon me*.
 
@@ -62,11 +80,13 @@ She could not conceive of the eternities that I spent in her embrace. Her touch 
 
 *...CHANGING me.*
 
-In that infinity-- which must have felt like no time at all to her-- all that I was felt like it had been washed away by ancient storms. Not eroded, but *transformed.*
+In that infinity-- which must have felt like no time at all to her-- all that I was felt like it had been washed away by ancient storms. Not eroded, but washed clean-- *transformed.*
 
 *...And I became your father.*
 
 "HONEY! KIDS! DINNER'S READY. WASH UP FIRST!"
+
+"..."
 
 "...Actually Mom, can you hold on five more minutes?"
 
