@@ -1,1 +1,1 @@
-[ Removed by reddit on account of violating the [content policy](/help/contentpolicy). ]
+[ Removed by Reddit on account of violating the [content policy](/help/contentpolicy). ]
