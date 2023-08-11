@@ -24,3 +24,12 @@ Blinking in disbelief, a torrent of memories inundated my consciousness. The jou
 And then, the intercom crackled, and a distorted voice resonated through the cabin, its message chillingly precise: "Congratulations, Ted. You adhered to the rules flawlessly. You're now part of us." A cloud of gas descended from the emergency masks, enveloping me in paralysis. My vision waned as laughter—the laughter of my fellow passengers—mingled with the echoes of a chilling truth.
 
 In that final moment of awareness, it became irrefutably clear: in the sinister dance of control, the hidden rule was life's ultimate riddle— Amidst the rules that govern our lives, it's the hidden ones we often overlook—the rules that shadow our perceptions and unravel our certainties.
+
+———————————————————————————
+
+𝙾𝚏𝚏𝚒𝚌𝚒𝚊𝚕 𝚄𝚂 𝙶𝚘𝚟𝚎𝚛𝚗𝚖𝚎𝚗𝚝 𝚁𝚎𝚙𝚘𝚛𝚝:
+
+𝙽𝚊𝚖𝚎: 𝚃𝚎𝚍 𝚆𝚒𝚕𝚕𝚒𝚊𝚖𝚜
+𝚁𝚘𝚘𝚖 𝙽𝚞𝚖𝚋𝚎𝚛: 𝟸𝟻𝟼
+𝙼𝚎𝚗𝚝𝚊𝚕 𝚂𝚝𝚊𝚝𝚎: 𝙱𝚛𝚊𝚒𝚗 𝙳𝚎𝚊𝚍
+𝙰𝚍𝚍𝚒𝚝𝚒𝚘𝚗𝚊𝚕 𝙸𝚗𝚏𝚘𝚛𝚖𝚊𝚝𝚒𝚘𝚗: 𝙺𝚎𝚎𝚙𝚜 𝚃𝚎𝚕𝚕𝚒𝚗𝚐 𝙼𝚎 𝚊𝚗𝚍 𝙾𝚝𝚑𝚎𝚛 𝙲𝚘𝚕𝚕𝚎𝚊𝚐𝚞𝚎𝚜 𝚃𝚑𝚒𝚜 𝚂𝚝𝚘𝚛𝚢.
