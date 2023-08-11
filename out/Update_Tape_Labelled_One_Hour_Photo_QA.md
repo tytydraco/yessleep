@@ -96,7 +96,15 @@ provide afterlife care.
 
 &#x200B;
 
-It's 1:30 in the morning. You are reading stories on your phone. Nothing is wrong, nothing is
+Q: What is afterlife care?
+
+A: Palliative care for the deceased involves a combination of séance and medication to help 
+
+remedy and treat the afflictions of the recently deceased.
+
+&#x200B;
+
+It's 9:30 in the morning. You are reading stories on your phone. Nothing is wrong, nothing is
 
 outside your house right now. That doesn't mean you should go looking.
 
@@ -179,6 +187,12 @@ Need to be more vigilant I don't know why but they are trying to hide this. Don'
 Q: Is God real?
 
 A: No, God is probably not real.
+
+&#x200B;
+
+Q: Who is God?
+
+A:
 
 &#x200B;
 
@@ -282,6 +296,6 @@ A: No. The Tape is not real.
 
 &#x200B;
 
->*Thank you Reddit for showing so much enthusiasm and interest in our employee's short story. We hope that this answers some questions you all had about the story and our company. When we found our employee's story on this website and gaining so much attention we were truly surprised to say the least. Although we are a major pharmaceutical company and we take our obligation to the health of the planet very seriously, we hope this Q&A goes to show that we also have a creative and artistic side as well. We are all Org. Stay tuned the next 24 hours on our main website, or tune in tomorrow live on WOF-TV for a surprise announcement of our new project.*
+>*Thank you Reddit for showing so much enthusiasm and interest in our employee's short story. We hope that this answers some questions you all had about the story and our company. When we found our employee's story on this website and gaining so much attention we were truly surprised to say the least. Although we are a major pharmaceutical company and we take our obligation to the health of the planet very seriously, we hope this Q&A goes to show that we also have a creative and artistic side as well. We are all Org. Stay tuned the next 12 hours on our main website, or tune in tomorrow live on WOF-TV for a surprise announcement of our new project.*
 
 &#x200B;
