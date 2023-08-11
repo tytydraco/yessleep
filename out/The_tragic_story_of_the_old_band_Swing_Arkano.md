@@ -18,7 +18,7 @@ A few weeks after the news report, a witness named George saw one of the members
 
  The band members were hanging by a rope.
 
-One for each member, not only that but they had a symbol carved into their chest along with their hearts carved too, what made this even more sickening, the hearts were out of their body and placed under each person the hearts each had a number on them. Even more officers came in with a camera and numbers. 
+One for each member, not only that but they had a symbol carved into their chest along with their hearts carved too, what made this even more sickening, the hearts were out of their body and placed under each person the hearts each had a number on them. Even more officers came in with a camera and forensic equipment. 
 
 The people were told to leave as they would investigate the crime scene. 
 
