@@ -8,6 +8,4 @@ I only escalated from there, soon after the nightmares started. I would wake dre
 
 This may come as no surprise but I am regretting the decision to ever buy anything from that market place. I have whitnessd youtubers open boxes like this from the deep web and i took it all as foolery. I wish I could turn back the clock and stop myself from every pressing purchase, the voices get louder and more often with every passing day now giving me headaches that not even painkillers can get rid of. I try to take the object from my house to get rid but something always stops me at the threshhold, a power holding me in place, i can only compare it to sleep paralysis, you know you can move and want to move but you just cant... as the pressure builds in my head I'm forced to set it back down again and walk away, the faces visible behind every blink.
 
-If you take anything from this story please learn from my mistake. If there is something recommended to stay away from.. stay away from it. I wanted an easy viral video instead my mind is broken, my body betrays me making me think and feel things, there is nothing for the pain and im embarrassed to ask for help
-
-https://youtu.be/UJlhys96Ek0
+If you take anything from this story please learn from my mistake. If there is something recommended to stay away from.. stay away from it. I wanted an easy viral video. Instead, my mind is broken. My body betrays me, making me think and feel things. There is nothing for the pain, and im embarrassed to ask for [help](https://youtu.be/UJlhys96Ek0)
