@@ -1,0 +1,32 @@
+The dictionary defines hallucination as "an experience involving the apparent perception of something not present."
+ 
+I first noticed it when I was 6. Our small house had a wooden staircase leading to the second floor, where the bedroom was. I always sat on the top of the stairs, where I could oversee the whole living room, with picture frames nailed to the railing obstructing my view slightly. There’s something about observing the daily movements of my family that I often find mesmerizing, and whether it's my mother sweeping the floors and folding the laundry on the living room floor, my father crossing the area to the kitchen where he stores his tools behind the back door, or my little pets running around, it always seems to amuse my little imagination.
+ 
+On one hot summer day in 2011, that’s when I felt it. My left foot was dangling between the balusters, and my eyes focused on the little window near the door. I felt a hand, or something resembling a hand, sticky, wet, and slimy, barely gripping my ankles. Being smarter than I should have been at that age and also watching more horror movies than I should have made me think two things: that it’s impossible for a ghost to appear midday or that if it’s a ghost, then pretending that I don’t see or feel it equates to it not knowing that I know. I quickly pulled my leg up, scratching it while still staring at the same window, acting like nothing happened and my ankles just happened to itch. My little mind contemplated believing it was a ghost, or maybe it was a little thing I read before called hallucinations.
+ 
+It has become a regular occurrence since then. Most times, I can feel something crawling on my skin in the shower, brushing it off as water droplets but also thinking that water droplets wouldn’t travel against gravity. Other times, it was a prickling feeling—like multiple needles gently stabbing into small patches of my skin randomly. Many other things happened, but their common denial was that all of them involved tactile touch—something that could only be felt.
+ 
+When I was 12, that was when I started hearing things. I would hear short, quiet whispers, ringing, or even someone talking or calling my name straight up. It was all faint and ignorable at first, but through the years, those imaginary words became louder and louder, now audible and sometimes even overlapping real sounds. In eighth grade, I almost died when someone called my name in the distance. When I turned around to see who it was and noticed there was no one, a truck almost hit me.
+ 
+After this incident, I went to great lengths to identify my hallucinations. Before I responded to any sound or feeling, I made sure it was real and not a phantom in my mind. The sounds and sensations I felt gradually worsened over the years. In my late teenage years, the gentle prickling became an outright stabbing pain, and the whispers became loud voices that invaded my head, but to my relief, they were rare occurrences.
+ 
+In June 2023, I saw him with a quick passing glance at a dark gap between the furniture. I saw an abominable amalgamation of empty eyes, a wide mouth, teeth, and a gaping throat where something that feels sinister lurks. The best way I adapted to the sheer terror was by thinking that my overactive imagination had gone wild after watching tons of horror movies. That was the only time I saw him, but the fear lingers to this day.
+ 
+After that, I started to hallucinate, seeing shadows, haze, and dark, ominous clouds. They would sometimes be formless, like smoke and steam, or have a solid structure: humanoid with arms and legs, a long torso, and elongated heads with pointy tips; animal-like, shaped like a bulging toad, a bird-tailed bear, or even a massive wasp; but mostly indescribable shapes that seem to impersonate inanimate objects. There were never details, only faint outlines that disappeared immediately when I looked directly at them and stayed in my peripherals, never in my direct line of sight.
+ 
+My hallucinations, whether auditory, textile, or visual, have always bothered me and distracted me in my daily life, startling me into small accidents. My life never seems to be fully peaceful, as my hallucinations seem to obstruct even the smallest joys in life. Listening to songs, taking late-night drives, and sleeping are mostly ruined when there are always whispers in my ears.
+ 
+But last month, something changed. The shapeless shadows in my peripheral vision are gone, as are the prickling sensations and the whispers. I was overjoyed, thinking that it was finally gone for good. I can finally enjoy my life without having to be wary of my hallucinations. I started sleeping better, enjoying my life more, and even having a wider social network. My life isn’t too difficult, but the inconvenience of living with these hallucinations, even when I got used to them, felt like I lost my phone charger every day.
+ 
+Something sinister happened yesterday.
+ 
+It was there. He was there. Staring, watching. I saw him before I even opened my eyes. He chatters with his teeth before his gaping throat. I lay frozen in my bed, paralyzed with fear. I thought that maybe it was just sleep paralysis and that I should just let it pass, but it feels so real. It went on for hours, with the sharp and distasteful sound of his gritting teeth constantly echoing in my ears, and his form was so horrifyingly absurd and unnatural that I am unable to describe it in detail except for the empty eyes, teeth, and gaping mouth.
+ 
+I was released from my suffering the moment I felt the sunlight blaring at my eyelids, urging me to wake up. The sun must have driven him away, with his loud chattering gone when I opened my eyes and the cool morning breeze refreshing me from my night terrors. Still panicked and constricted, I rushed to the bathroom to wash my face.
+ 
+My hands felt numb under the ice-cold running water as I fixated on the tap, calming myself down and trying to breathe.
+ 
+I was about to step outside the bathroom when I heard a faint whispering sound coming from my side. I turned to look at it and saw nothing. Then I proceeded to walk when I felt my organs swirling.
+I heard it again, but this time I saw it inside my own eyes. I can see it in the darkness at the edge of my sight: empty eyes, teeth, and a gaping throat, whispering.
+ 
+“𝘐 𝘢𝘮 𝘪𝘯𝘴𝘪𝘥𝘦 𝘺𝘰𝘶.”
