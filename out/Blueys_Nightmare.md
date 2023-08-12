@@ -18,21 +18,26 @@ Butterflies
 -
 Regret
 -
+
 I tried out the DVD on my DVD player and the first episode played and to my surprise, It looked like there was nothing wrong with what was in front of me. I thought I was given a miracle. The only thing that I found a bit off was the last episode’s title.
 “Regret”.
 
 On the DVD menu, the titles for choosing an episode were just
 Episode 1. Episode 2. And so on.
 
-The menu screen was in a gray color with white colored titles. After taking the time to make a final decision, I came to the realization that there was nothing really wrong with the DVD, I was going to give this to Georgina as a gift on Christmas. I changed the cover and found the proper art cover for the show and wrapped it up in waiting for christmas. There was really nothing I could have done to change the titles properly on their original names.  But then again, there was really nothing wrong with what was in front of me. 
+The menu screen was in a gray color with white colored titles. After taking the time to make a final decision, I came to the realization that there was nothing really wrong with the DVD, I was going to give this to Georgina as a gift on Christmas. I changed the cover and found the proper art cover for the show and wrapped it up in waiting for christmas. There was really nothing I could have done to change the titles properly on their original names. 
+
+But then again, there was really nothing wrong with what was in front of me. 
 
 The day after Christmas took place, and everyone had a good time at the Christmas party. The next day I gave my cousin her DVD and she was so happy with what she had received. It then later came to me that she had not used the DVD yet. 
 
 After new years, my parents and other relatives that were older than me went out for the evening, and had left me to babysit Georgina. I was paid with some takeout from my favorite fast food joint and watched my cousin until they would come back. Georgina then asked me to put the new DVD she had gotten.
 
-I setted up the DVD player and inserted the disc. As I was in my room playing a computer game, from the living room I heard Georgina scream in terror. Immediately I got up and ran out of my room and Georgina came to me, she had tears in her eyes and hugged me. I looked up and to my surprise, on the screen, a creature of which I do not have a name for, was eating Bluey’s mother. The hideous deformed being was devouring her intestines. The next scene showed Bluey in tears, as she was hiding behind a wall of some kind. Immediately I grabbed the remote from the couch and turned off the TV. I was able to calm Georgina down, trying to convince her that what she saw wasn’t real. Not long after she fell asleep on my bed. 
+I setted up the DVD player and inserted the disc. As I was in my room playing a computer game, from the living room I heard Georgina scream in terror. Immediately I got up and ran out of my room and Georgina came to me, she had tears in her eyes and hugged me. I looked up and to my surprise, on the screen, a creature of which I do not have a name for, was eating Bluey’s mother. The hideous deformed being was devouring her intestines. The next scene showed Bluey in tears, as she was hiding behind a wall of some kind. Immediately I grabbed the remote from the couch and turned off the TV.
 
-My conscience told me that what I saw on the screen was true, that it was no dream or from the imagination.  My parents send me a text message that read
+I was able to calm Georgina down, trying to convince her that what she saw wasn’t real. Not long after she fell asleep on my bed. 
+
+My conscience told me that what I saw on the screen was true, that it was no dream or from the imagination.  My parents send me a text message that read :
 
 WE WILL BE OUT ALL NIGHT
 TAKE CARE OF YOUR COUSIN
@@ -47,9 +52,7 @@ All of the sudden, the creature rushed back into the room and went into the clos
 
 Bluey remained hidden behind the drawer. The camera remained on the terrified blue dog. It then got quiet. Bluey remained still when suddenly the drawer was pushed away and the creature then grabbed her and ran out the room. The sound of the beast screeching came from the darkness of the hallway.
 
-The screen went black and the word “Regret” popped out in white letters and Immediately I turned off my computer. I sat there and tried to understand what I just saw, I searched up the episode I saw and nothing came up. Someone had made the episode. I placed the DVD in an envelope and put it near the TV. The next morning, I woke up and went into the living room. My cousin was still asleep. I looked to where I left the DVD and noticed that It was gone. I then noticed that the front door was opened. I looked outside and found a black car outside, and this time, it slowly drove away.  I then looked down and found a once-folded piece of paper.
-
-I opened it and it read:
+The screen went black and the word “Regret” popped out in white letters and Immediately I turned off my computer. I sat there and tried to understand what I just saw, I searched up the episode I saw and nothing came up. Someone had made the episode. I placed the DVD in an envelope and put it near the TV. The next morning, I woke up and went into the living room. My cousin was still asleep. I looked to where I left the DVD and noticed that It was gone. I then noticed that the front door was opened. I looked outside and found a black car outside, and this time, it slowly drove away.  I then looked down and found a once-folded piece of paper. I opened it and it read:
 
 Merry Christmas,  
 And I hope your cousin loved my video :)
