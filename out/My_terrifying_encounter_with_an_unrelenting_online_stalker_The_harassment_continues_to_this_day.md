@@ -1,0 +1,17 @@
+Hey there, r/nosleep. It's taken a lot of courage for me to share this unnerving experience, but I believe it's important to shed light on the chilling realities of the digital world. Brace yourselves for a story that still gives me shivers whenever I recall it – my relentless battle against an online stalker.  
+  
+At first, it seemed harmless – a few peculiar comments on my social media posts. I dismissed them, thinking they were just random trolls seeking attention. But then the comments took a disturbing turn, referencing details only someone extremely close to me would know. The hair on the back of my neck stood up as a sinister realization washed over me – someone was watching my every move.  
+  
+My inbox became the breeding ground for an onslaught of chilling messages. The stalker's words dripped with familiarity, as if they had crawled inside my mind. They knew about the quaint coffee shop I frequented, the inside jokes I shared with friends, and even my childhood memories that had never seen the light of social media. Panic became my constant companion as I grappled with the violation of my privacy.  
+  
+Blocking seemed to fuel their obsession. The messages kept pouring in, each more disturbing than the last. Screenshots of my private messages, candid photos from my personal albums, and snippets of conversations I'd long forgotten – they were all laid bare before me. It was as if my life had been stripped of its privacy, put on display for this faceless tormentor to savor.  
+  
+My frantic attempts at regaining control led me to cybersecurity experts. I changed passwords, activated two-factor authentication, and even went so far as to delete some of my social media accounts. But like a malevolent specter, the stalker always found me, infiltrating my digital sanctuaries with ease.  
+  
+I couldn't escape the constant feeling of being watched, my every digital step shadowed. Even my closest relationships became tainted with suspicion. Could this stalker be someone I knew? The uncertainty gnawed at my sanity, leaving me sleep-deprived and perpetually anxious.  
+  
+In a moment of desperation, I embarked on a journey to Mexico, hoping that the physical distance would sever the stalker's grasp. But even there, I was haunted. The messages persisted, relentlessly invading my digital life. It was as though my tormentor had transcended physical boundaries, and I was ensnared in their web no matter where I went.  
+  
+Fighting back took a toll on me, physically and mentally. But I refused to be a victim any longer. I immersed myself in the world of online security, arming myself with knowledge about Virtual Private Networks (VPNs) and encryption. Slowly, the messages began to wane, as if the stalker sensed my resolve.  
+  
+As I write this, miles away from my previous life, I can't shake the feeling that the stalker might still be out there. The scars of their intrusion are etched into my psyche, a constant reminder that even the virtual realm isn't impervious to darkness. My tale is one of survival – a reminder that the digital landscape, while a realm of connection, can also be a breeding ground for the unimaginable. Stay vigilant, protect yourselves, and remember that behind every screen, there might be more than meets the eye.

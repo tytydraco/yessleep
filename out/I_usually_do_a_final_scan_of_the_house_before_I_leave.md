@@ -1,0 +1,16 @@
+
+
+I usually do a final scan of the house before I leave. I got a couple of things out the drawer before I made my way down the hallway to check on the girls. Stephanie was fast asleep under her pink covers. I could see her name above her bed glisten in the night light. Then I went to the baby's room to make sure she was still sleep as well. She looked so cute snuggled up with her stuffed animals. As I made my way downstairs to the living room I could feel that something was slightly off. I just tried to brush it off and continue with what I was doing. As soon as I went to grab the car keys out of the living room, something hit me in the head really hard.
+
+I think I might have passed out because when I opened my eyes I was in a dimly lit room that I can only describe as a basement. I tried to reach my hand and that's when I realized that my hands were tied behind my back. My feet were tied up as well. I could feel that my phone was no longer in my back pocket even though I probably couldn't do much with it anyway in my current state. I started to yell for help, but right before I shouted I decided against it. I didn't want to make the situation worse. I don't know what awaited me. I scanned the room trying to see if I could find anything that could help me, but it was really hard to see anything.
+
+I don't even know how long I've been down here. Honestly I'm terrified, I've never been in a situation like this before. I can hear footsteps above me and the faint sound of a voice. A woman's voice I believe. It sounds like she's dragging something across the floor.
+
+Suddenly I hear the door open and a faint light quickly entered the room. I hear the pitter pat of little feet skipping down the stairs. A pair of pink pajamas sat down in front of me on the floor. 
+
+"Stephanie?", I called out. "What is happening? How did I get down here?" She just giggled and whispered, "You're going to die tonight."
+
+Immediately it was hard to breathe. Hard to speak. I wanted to ask her what she meant by that, but before I could muster up the courage to speak....I heard the footsteps and the dragging noise again. They were getting closer...and closer....until finally I heard the door slowly open again. Only this time there was a much larger silhouette in the doorway. 
+
+They walked down there stairs letting whatever that they were dragging hit every stair. I could feel my heartbeat in my chest. I look up to see a woman standing behind Stephanie holding a bat.
+She lit a cigarette and signaled for Stephanie to go back up stairs. She looked at me and smiled. Then she said, "We're going to play a game." That's when I knew without a shadow of a doubt that I had decided to rob the wrong house.
