@@ -47,3 +47,7 @@ She took me back to the last night she saw Dillon. To the moment she stood froze
 &#x200B;
 
 Sometimes I see her and her young lad about the town. Gettin big now so he is. Wonder if he knows. Wonder if the truth will become just another tale to scare him. I often think on this when passin them by and about the stories me mother used to tell us. Was there any truth to them? How can I say otherwise knowin what I know?  What I think on most however, is if she told him. Dillon I mean. Did he know he was goin to be a father ‘fore he was ripped from this world? I hope so.
+
+&#x200B;
+
+[X](https://www.reddit.com/r/nathanagomez/)
