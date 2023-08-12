@@ -1,3 +1,4 @@
+First instalment here: https://redd.it/15lqpmo
 
 My mother-in-law, Maura, was overjoyed when my wife and I had our daughter Lily.  For the past two years, the stupid old cow had been whining nonstop about how she wanted a grandchild and how we were so horribly mean for not giving her one right away.  Maura took our decision to wait to start a family as a personal insult, as if we had made it because we knew it would upset her.  Not because, you know, we simply weren't ready for kids yet.  Amy tried explaining it all to her, but Maura operated under the belief that everything revolved around her.  She wanted to be a grandmother, and it was our responsibly to make that happen.  By not doing so, we were failing in our duties as her daughter and her son-in-law.
 
