@@ -121,7 +121,7 @@ But it explains so much. The blank spots in my memory. The ‘misremembering’ 
 
 Every time, he’s been chipping a piece of me away. Changing me. *Improving* me.
  
-That might, before he came back to the house, I took Jessie and left without a word. Is he tracking me? I hope not. Whoever ‘me’ might be. A far stretch from Sofia. That much is certain. And it fills me with a deep sorrow. It also explains the unsalvageable chasm within me. Some repressed, unreachable, past version of myself lies at the bottom of that well, I imagine.
+That night, before he came back to the house, I took Jessie and left without a word. Is he tracking me? I hope not. Whoever ‘me’ might be. A far stretch from Sofia. That much is certain. And it fills me with a deep sorrow. It also explains the unsalvageable chasm within me. Some repressed, unreachable, past version of myself lies at the bottom of that well, I imagine.
 
 After all, Jack killed the real Sofia long ago. Who knows how deeply into the forest she’s buried?
 
