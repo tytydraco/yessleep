@@ -1,0 +1,23 @@
+This started happening three days ago. My life has been utterly destroyed. Whenever I have intrusive thoughts, they HAPPEN. I was already struggling with anxiety and OCD, but now these seem minor in comparison.  
+  
+I am Mark by the way, not going to ask how good are you because i am in top of tree right now struggling for connection, I record bodybuilding videos and provide personal coaching to make a living. My life seemed normal from my perspective, until everything changed just three days ago. This blow hit me even harder after my mother passed away four days ago.  
+  
+Intrusive thoughts were always with me, occurring about 4 to 5 times a day. However, I  didn't pay them much attention. Yesterday evening, my neighbor (whom I also coach) invited me to dinner. His wife is an excellent cook, so I accepted, although I generally prefer eating alone.  
+  
+As I was cutting my steak and chit-chating with them, a intrusive thought emerged: "Gouge out your neighbor's eyes; you deserve this life more." I absolutely extremenly love my own life and have no desire for his, having chosen to live alone and remain unmarried is my own decision. Well for what happened. as I blinked, the entire scene transformed. My neighbor was lying dead, with a knife and fork protruding from his eyes, reaching deep into his brain. Blood stained my hands, their children were screaming hysterically, and his wife was dialing the police.  
+  
+Despite my confusion, I soon realized that my thoughts were becoming reality, at least the intrusive ones. I had often contemplated scenarios like this and prepared for them in my bed in the night i can't sleep. Unfortunately, I needed to take action to save myself; it seemed as though the world was conspiring against me. Is there a fourth-dimensional being toying with me? I am cursed suddenly, why though? Regardless, I had to act swiftly.  
+  
+I had to apologize to my neighbor's family, but my primary concern was not going to jail. I geniually apologized from them while I grabbed another knife and, with a sorrow but no regret, i cut this wife's throat fast. before she could call 911. As for their children, believe me, my intention was not evil or bad; I believed their lives would become miserable and horrific without their parents, so I sent them to a more peaceful place.  
+  
+The screams attracted attention from other neighbors who had gathered outside. I hurried back to my house, entered the garage, and finally said, "Alexa, we need guns." i saw it from a cool video and designed my gun store to be opened like that, it was a awesome feeling, i feeled a little bit bad to feel good after committing three murders. My collection of firearms began to grow. I selected what I needed and grabbed my emergency backpack, stocked with water, food, bandages, painkillers, and general emergency supplies, Can survive 4 days with those.  
+  
+I might have spent too much time packing, as I heard sirens outside, understanding that the neighbors had contacted the police. I placed the shotgun on the table and a Sig Sauer P365 behind me, I slightly opened the door, revealing half of my body, and greeted the approaching officers. This made them come to me before entering the house 4 dead bodies i killled. When they were all in my line of sight, I seized my gun and emptied all 17 bullets.
+
+From now on i started to count, i had 180 seconds to move from here, police is going to be faster than me. I started to run the second nearest busy road, It took me 210 seconds and i can swear i heard police sirens behind me. I pointed the gun at a driver and forced him to drive me to forest. I can't believe i had this escapade it was funny but i really felt bad for enjoying a little bit from this. 
+
+I didn't killed the driver but the intrusive thought had him. I closed his eyes and  saw the helicopter searching the city for me probably, i took over the car put the body in the back and drived to the forest as much as i can before trees becomed so dense. 
+
+I left the car and i think i walked several miles, I am hiding for 3 days tomorrow i will run out of supplies, I had to kill little bit of animals because of thought curse (this is what i call it now)  i am sure this is a curse my dad did to me, He always talked about seeing shadowthings and my mom told me shadowthings forced him to do bad things, I think shadowbeings are doing same to me but i am not seeing them. Maybe they learned to hide?
+
+anyway after getting supplies and preparing enough, i will find and interrogate my father, He is in state asylum as i know. I will need to do a plan.

@@ -358,7 +358,7 @@ He nodded slowly. “Uh-huh. And why do you think I did that?”
 
 “Because you’re a psychopath.”
 
-“Wrong,” he said. “I just want one thing,” his words were still rattling in my head when I reached into my phone and dialed 911 with shaky fingers. He disappeared, dragging Nico’s shadow with him, with the latter struggling and squirming to get away.
+“Wrong,” he said. “I just want one thing,” his words were still rattling in my head when I reached for my phone and dialed 911 with shaky fingers. He disappeared, dragging Nico’s shadow with him, with the latter struggling and squirming to get away.
 
 *I just want my family back.*
 
