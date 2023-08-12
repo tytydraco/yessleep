@@ -49,6 +49,12 @@ I wanted to puke frozen vomit. The child-sized footprints emerged from the woods
 
 “Yeah,” my son answered in a quiet voice. “I realize that now.” He wiped his eye. “I’m so sorry, Dad. I tried to keep us safe. But Oliver’s gotten out of the grave we dug, and now [he’s coming to hurt us](https://www.facebook.com/P-F-McGrail-181784199029462/).”
 
+---------
+
+[Aw, nuts](https://redd.it/15p1cme)
+
+------------
+
 [BD](https://www.reddit.com/r/ByfelsDisciple/)
 
 
