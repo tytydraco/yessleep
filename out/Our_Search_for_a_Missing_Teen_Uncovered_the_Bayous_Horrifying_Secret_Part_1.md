@@ -44,7 +44,7 @@ My heart clenched as I heard the pain in Mrs. LeBlanc's voice. It was a sound al
 
 "Mrs. LeBlanc," Ash chimed in, his voice as steady as a rock, "did you contact the local police?"
 
-A bitter laugh echoed from the [other](https://www.youtube.com/watch?v=xKhPAMZIcJc&feature=youtu.be) end of the line, "Yes, I did. But dem officers, they're treating it as if she's jus’ a runaway teen. They say she'll come back when she feels like it. But I know my Gabby. She wouldn't do dat. Something's wrong."
+A bitter laugh echoed from the [other](https://www.youtube.com/watch?v=MGd1F6Ay8ho) end of the line, "Yes, I did. But dem officers, they're treating it as if she's jus’ a runaway teen. They say she'll come back when she feels like it. But I know my Gabby. She wouldn't do dat. Something's wrong."
 
 "I'm so sorry you're going through this, ma’am," I said softly. The desperation in her voice was palpable. Here was a mother, helpless and terrified, reaching out for help. Her desperation resonated with me. I knew that feeling all too well, the gnawing fear of not knowing if your loved one is safe.
 
@@ -273,5 +273,7 @@ We sat there in silence for a moment, taking in the horrifying revelation. The s
 [Part 2](https://www.reddit.com/r/nosleep/comments/15fzmd6/our_search_for_a_missing_teen_uncovered_the/)
 
 [Part 3](https://www.reddit.com/r/nosleep/comments/15hzso1/our_search_for_a_missing_teen_uncovered_the/)
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/15pp6n5/our_search_for_a_missing_teen_uncovered_the/)
 
 [X](https://www.reddit.com/r/PageTurner627Horror/)

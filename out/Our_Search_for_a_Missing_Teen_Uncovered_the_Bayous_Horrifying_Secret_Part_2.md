@@ -108,7 +108,7 @@ He leaned within inches of my face. He was so close that I could see the scars c
 
 "Y’know, this here's gator country, and they don't discriminate between a meal and an intruder,” he said, a deadly undertone to his voice. "Gators, they like a nice, fat tourist every now and then. Shame if a couple go missin' in the bayou, hein?"
 
-The scrape of chairs against the wooden floor behind me sent a shiver down my spine as I realized that the [other](https://www.youtube.com/watch?v=xKhPAMZIcJc) patrons were getting up and slowly making their way towards us, forming a tightening semi-circle around us. I was well aware we were treading on dangerous waters. This wasn't our turf, but my pride and our mission overshadowed the alarm bells in my head.
+The scrape of chairs against the wooden floor behind me sent a shiver down my spine as I realized that the [other](https://www.youtube.com/watch?v=MGd1F6Ay8ho) patrons were getting up and slowly making their way towards us, forming a tightening semi-circle around us. I was well aware we were treading on dangerous waters. This wasn't our turf, but my pride and our mission overshadowed the alarm bells in my head.
 
 "Well, I appreciate your concern," I responded, a sharp edge to my voice. Terror was coursing through me, but I couldn't show it. “But I’m not a fucking tourist, and your threats don’t scare me.”
 
@@ -193,5 +193,7 @@ I reached into my pocket, pulling out the crumpled note I'd received earlier fro
 ‘I know what happened to Gabby. Meet me at the pier at midnight.’
 
 [Part 3](https://www.reddit.com/r/nosleep/comments/15hzso1/our_search_for_a_missing_teen_uncovered_the/)
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/15pp6n5/our_search_for_a_missing_teen_uncovered_the/)
 
 [X](https://www.reddit.com/r/PageTurner627Horror/)

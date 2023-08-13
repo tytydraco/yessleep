@@ -56,7 +56,7 @@ We scrambled into the car, and the doors shut with a reassuring thud, though the
 
 Once inside, I could see Lucien's fear was genuine, and it matched the uneasy feeling I'd been experiencing. I tried to be patient, but my mind was racing. "Okay, Lucien, spill it. What's going on?"
 
-He looked out the window, his eyes lost in the darkness. "Gabby and I... we've been seeing each [other](https://www.youtube.com/watch?v=xKhPAMZIcJc)."
+He looked out the window, his eyes lost in the darkness. "Gabby and I... we've been seeing each [other](https://www.youtube.com/watch?v=MGd1F6Ay8ho)."
 
 "Seeing each other?" I pressed, not satisfied with his vague answer. "What does that mean? Were you dating?"
 
@@ -165,5 +165,7 @@ I nodded in acknowledgment, watching as Lucien got out of the car and walked tow
 My mind couldn't help but wander into dark territory. The prospect of a kidnapping or even human trafficking reared its ugly head, casting a chilling shadow over the unfolding mystery. Whoever Lupin was, he was now our prime suspect.
 
 I looked out the window, my eyes drawn to the shadowy swamp, a place filled with secrets and mysteries. The bayou had seen much over the years, and it felt as though it were watching us now, waiting to see what we would do next.
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/15pp6n5/our_search_for_a_missing_teen_uncovered_the/)
 
 [X](https://www.reddit.com/r/PageTurner627Horror/)
