@@ -34,7 +34,7 @@ We created a timeline of disappearances. It was a gruesome puzzle, but one that 
 
 Our research unearthed similar stories, from Evangeline to Acadia Parish. There was an undeniable pattern. Young women in desperate straits, disappearing without a trace, only to be found, if at all, weeks or months later, their remains too mutilated to provide any substantial forensic evidence.
 
-One of the earliest cases we stumbled upon was that of a young woman named Lila Deschamps who disappeared in 2012. She was a pregnant teen, abandoned by her family and seeking refuge wherever she could. Her diary was found on the banks of the Bayou Teche, with its pages soaked, the ink smeared, and her hopes and fears nearly washed away. Two weeks after her disappearance, a fisherman came upon her body, drifting among the water hyacinths, her skin marred beyond recognition by the teeth and claws of scavengers.
+One of the earliest cases we stumbled upon was that of a young woman named Lila Deschamps from Lafayette who disappeared in 2012. She was a pregnant teen, abandoned by her family and seeking refuge wherever she could. Her diary was found on the banks of the Bayou Teche, with its pages soaked, the ink smeared, and her hopes and fears nearly washed away. Two weeks after her disappearance, a fisherman came upon her body, drifting among the water hyacinths, her skin marred beyond recognition by the teeth and claws of scavengers.
 
 Then there was the heart-wrenching 2015 case of Daisy Fontenot, a twenty-year old sex worker trying to make enough money to escape the clutches of her abusive boyfriend. Her last known location was on the outskirts of St. Landry Parish. She had called her younger sister, telling her about a new client who seemed oddly familiar. That was the last anyone heard from her. Three weeks later, a group of children playing near the bayou stumbled upon a washed-out purse with Daisy's ID. Her remains were found deeper in the marshes, making it impossible for the coroners to piece together the events leading up to her death.
 
@@ -58,7 +58,7 @@ The discovery of a serial killer sent a rush of adrenaline through our veins, an
 
 It began subtly. The early victims, like Lila, were found in areas where they could be easily discovered, almost as if the killer was still hesitant, still unsure. As the years progressed, the locations of the dumped remains became more secluded, hidden deeper in the swamps, making them harder to find and connect.
 
-But what was even more disturbing was his increasing audacity. He began to leave tokens that seemed utterly random – a locket, a bracelet, a scrap of fabric. It was as though he was intentionally leaving us clues.
+But what was even more disturbing was his increasing audacity. He began to leave tokens that seemed utterly random – a locket, a bracelet, a scrap of fabric. It was as though he was intentionally leaving us bread crums.
 
 “This is sick,” Ash muttered, frustration evident in his voice. “He’s toying with the families and the police.”
 
@@ -98,7 +98,7 @@ I flipped to the report from the day her remains were discovered. There, in the 
 
 Adjacent to the coroner's note was a hastily sketched map indicating where Claire's belongings were discovered. Her backpack was found just a short distance away from her body, lying half-submerged in a muddy puddle, the contents strewn around it. But the most eerie discovery was a waterlogged Polaroid that had been carefully stored in a waterproof pouch. It was believed to be the last photo taken of Claire.
 
-I pulled the reproduction of the photo from the folder, the image still capable of turning my veins ice old. Claire stood alone in the bayou, her expression a stark contrast to the beautiful, natural backdrop.Her once radiant eyes were now wide with fear, the bright gray hue dulled by the horror of her circumstances. Her disheveled brunette hair was wild and tangled, as if she had been running or struggling. Her mouth was slightly agape, lips quivering, as if she had been screaming moments before the picture was taken. But what truly added a layer of unease was the shadow cast behind her, elongated and distorted, a sinister presence lurking just out of frame. The shape was undoubtedly that of a person, presumably the one who had taken the picture — her killer.
+I pulled the reproduction of the photo from the folder, the image still capable of turning my veins ice old. Claire stood alone in the bayou, her expression a stark contrast to the beautiful, natural backdrop. Her once radiant eyes were now wide with fear, the bright gray hue dulled by the horror, pleading for help. Her disheveled brunette hair was wild and tangled, as though she had been running or struggling. Her mouth was slightly agape, lips quivering, as if she had been screaming moments before the picture was taken. But what truly added a layer of unease was the shadow cast behind her, elongated and distorted, a sinister presence lurking just out of frame. The shape was undoubtedly that of a person, presumably the one who had taken the picture — her killer.
 
 The haunting photograph left me breathless, but as I looked closer, I recalled more discrepancies that made my heart race faster. Claire was dressed in a simple black dress, its delicate lace contrasting sharply against the oppressive backdrop of the bayou. But according to testimonies from her family, Claire had never owned a dress like that. Why was she wearing it, and where had it come from?
 
@@ -106,7 +106,7 @@ However, the most important detail was the absence of the locket around her neck
 
 With a shaky hand, I compared the photo of Claire’s locket, which had been documented in her belongings list, to the photo of Lila’s locket. It was a match — the intricate design of the willow tree, the small dent on the bottom right, everything. This wasn't just a coincidence. Claire LeJeune was one of Lupin’s earliest victims.
 
-Suddenly, all those seemingly random trinkets made sense. I realized they all belonged to previous victims. These were trophies, displayed with the new victims as a taunt, a cruel game he played with investigators. 
+Suddenly, all those seemingly random trinkets made sense. I realized they all belonged to previous victims. These were trophies, displayed with the new victims as a taunt, a cruel game he played with investigators.
 
 My chest tightened and the world seemed to blur around me. Realization crashed down in waves as the past and present collided. The file in my hand felt heavy, the weight of Claire's memory bearing down on me. My breaths came in short, ragged bursts as the looming feeling of dread threatened to consume me.
 
@@ -140,7 +140,7 @@ But before I could respond, an eerie silence enveloped the bayou, broken only by
 
 "Mon Dieu, je vous en supplie, non !" (My God, I beg you, no!) she murmured, voice barely above a whisper, disbelief etched into every word. The quiet bayou was pierced by a heartbreaking scream as she crumpled to the ground, the weight of the evidence in my hand hitting her like a tidal wave.
 
-Time seemed to stretch, and everything became a disorienting blur. The world around me muffled, and the weight of the moment bore down on me, making it hard to breathe. My vision tunneled, focusing solely on Therese's tear-streaked face.
+Time seemed to stretch, and everything became a disorienting haze. The world around me muffled, and the weight of the moment bore down on me, making it hard to breathe. My vision tunneled, focusing solely on Therese's tear-streaked face.
 
 I could distantly hear Therese's anguished sobs, broken up by desperate prayers in French, each word heavy with pain. Ash quickly moved to her side, wrapping an arm around her shoulders, trying to offer solace in a situation that defied understanding.
 
