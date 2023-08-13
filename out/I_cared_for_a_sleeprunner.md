@@ -6,9 +6,9 @@ It was tough finding something new, but even tougher to stay positive. While my 
 
 &#x200B;
 
-I’m using a fake name here to keep some semblance of privacy, as what I’m about to tell you relates to his medical history. Let’s call this client “Lucas”. Lucas is not the kind of person you think would have need for on-site medical assistance. He’s in his early 40’s and has exceptional physical health. Since the reason behind his need for a nurse was very much a personal health matter, my husband had no idea what the job was really about. There was nothing obviously wrong with him.
+I’m using a fake name here to keep some semblance of privacy, as what I’m about to tell you relates to his medical history. Let’s call this client “Lucas”. Lucas is not the kind of person you think would have need for on-site medical assistance. He’s in his early 40’s and has exceptional physical health. Since the reason behind his need for a nurse was very much a personal health matter, my husband had no idea what the job was really about. There was nothing obviously wrong with Lucas.
 
-“You can just talk to him,” he said. “If you don’t like it, that’s fine.”
+“You can just talk to him,” my husband said. “If you don’t like it, that’s fine.”
 
 I was very against it at first, but after two months of rejection letters (or no letters at all), I was willing to give anything a shot. It’d be nice to have something new to talk about. To share an equal scoop of “you’ll never guess what happened at work today” at the dinner table.
 
