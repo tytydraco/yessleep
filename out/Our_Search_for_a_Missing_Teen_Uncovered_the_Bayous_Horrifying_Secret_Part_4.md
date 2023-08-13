@@ -142,7 +142,7 @@ But before I could respond, an eerie silence enveloped the bayou, broken only by
 
 Time seemed to stretch, and everything became a disorienting haze. The world around me muffled, and the weight of the moment bore down on me, making it hard to breathe. My vision tunneled, focusing solely on Therese's tear-streaked face.
 
-I could distantly hear Therese's anguished sobs, broken up by desperate prayers in French, each word heavy with pain. Ash quickly moved to her side, wrapping an arm around her shoulders, trying to offer solace in a situation that defied understanding.
+I could distantly hear her anguished sobs, broken up by desperate prayers in French, each word heavy with pain. Ash quickly moved to her side, wrapping an arm around her shoulders, trying to offer solace in a situation that defied understanding.
 
 A heavy dread settled in my gut. Was Gabby still alive, or had I just discovered the last remnant of her existence?
 
