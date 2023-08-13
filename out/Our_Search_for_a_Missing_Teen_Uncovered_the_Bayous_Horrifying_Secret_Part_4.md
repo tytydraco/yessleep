@@ -58,7 +58,7 @@ The discovery of a serial killer sent a rush of adrenaline through our veins, an
 
 It began subtly. The early victims, like Lila, were found in areas where they could be easily discovered, almost as if the killer was still hesitant, still unsure. As the years progressed, the locations of the dumped remains became more secluded, hidden deeper in the swamps, making them harder to find and connect.
 
-But what was even more disturbing was his increasing audacity. He began to leave clues, tokens that seemed random at first – a locket, a bracelet, a bloodied scrap of fabric. But as we scrutinized each item, we realized they all belonged to previous victims. These were trophies, displayed with the new victims as a taunt, a cruel game he played with investigators.
+But what was even more disturbing was his increasing audacity. He began to leave tokens that seemed utterly random – a locket, a bracelet, a scrap of fabric. It was as though he was intentionally leaving us clues.
 
 “This is sick,” Ash muttered, frustration evident in his voice. “He’s toying with the families and the police.”
 
@@ -105,6 +105,8 @@ The haunting photograph left me breathless, but as I looked closer, I recalled m
 However, the most important detail was the absence of the locket around her neck. A treasured gift from her sister. Claire never took it off. It was her safety net, her connection to family even when she was away from them.
 
 With a shaky hand, I compared the photo of Claire’s locket, which had been documented in her belongings list, to the photo of Lila’s locket. It was a match — the intricate design of the willow tree, the small dent on the bottom right, everything. This wasn't just a coincidence. Claire LeJeune was one of Lupin’s earliest victims.
+
+Suddenly, all those seemingly random trinkets made sense. I realized they all belonged to previous victims. These were trophies, displayed with the new victims as a taunt, a cruel game he played with investigators. 
 
 My chest tightened and the world seemed to blur around me. Realization crashed down in waves as the past and present collided. The file in my hand felt heavy, the weight of Claire's memory bearing down on me. My breaths came in short, ragged bursts as the looming feeling of dread threatened to consume me.
 
