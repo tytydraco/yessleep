@@ -214,6 +214,8 @@ He stared down at his hands, linking his fingers together.  His knuckles were wh
 
 I think I know what’s happened to his dad.  The tree is a curse on Grayson’s family.  It’s taking his dad and when his dad is all gone, when mind and body has failed and there is nothing left to drink up… then Grayson will be next.[\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
 
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/15pn7c3/how_to_survive_college_i_shouldnt_have_broken_his/)
+
 [Read the current draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 
 [Visit the college's website.](https://alderrayne.com/)
