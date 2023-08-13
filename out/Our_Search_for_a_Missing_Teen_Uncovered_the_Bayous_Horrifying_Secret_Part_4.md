@@ -38,7 +38,7 @@ One of the earliest cases we stumbled upon was that of a young woman named Lila 
 
 Then there was the heart-wrenching 2015 case of Daisy Fontenot, a twenty-year old sex worker trying to make enough money to escape the clutches of her abusive boyfriend. Her last known location was on the outskirts of St. Landry Parish. She had called her younger sister, telling her about a new client who seemed oddly familiar. That was the last anyone heard from her. Three weeks later, a group of children playing near the bayou stumbled upon a washed-out purse with Daisy's ID. Her remains were found deeper in the marshes, making it impossible for the coroners to piece together the events leading up to her death.
 
-Sophie Broussard's case from two years later was one of the most mysterious. A sixteen-year old runaway from Evangeline Parish, Sophia was always on the move, relying on the kindness of strangers. Locals in the town of Ville Platte remember seeing her hitchhiking on a cold evening, her breath forming tiny clouds as she waved down passing cars. Not long after, pieces of her clothing were found strung up in the trees, almost ritualistically. Her body, when found, was so disfigured by wildlife that her identity was confirmed only through dental records.
+Sophie Broussard's case from two years later was one of the most mysterious. A sixteen-year old runaway from Evangeline Parish, Sophie was always on the move, relying on the kindness of strangers. Locals in the town of Ville Platte remember seeing her hitchhiking on a cold evening, her breath forming tiny clouds as she waved down passing cars. Not long after, pieces of her clothing were found strung up in the trees, almost ritualistically. Her body, when found, was so disfigured by wildlife that her identity was confirmed only through dental records.
 
 Our work stretched for hours, the silent hum of the overhead fan providing the only semblance of background noise in Therese’s dining room. The more we unearthed, the more chilling the scenario became. I could feel the weight of every young woman's story pressing on us, heavy and demanding to be told.
 
@@ -128,7 +128,7 @@ But as the light steadied, the grim reality took a different form. Instead of hu
 
 The light from my flashlight danced erratically as I tried to gain control over my racing heart. The grotesque sight of the alligator had already shaken me, but what truly stole my breath was the hint of something caught in its mangled jaws.
 
-Reaching forward cautiously, my fingers brushed against a soft, silken strand. With trembling hands, I pulled out a lock of chestnut hair, unmistakably Gabby's, bound tightly with the tautness of violin string. The metallic scent of blood mingled with the musty odor of the bayou, clouding my senses.
+Reaching forward cautiously, my fingers brushed against a soft, silken strand. With trembling hands, I pulled out a lock of chestnut hair, unmistakably Gabby's, bound tightly with a taut violin string. The metallic scent of blood mingled with the musty odor of the bayou, clouding my senses.
 
 Lost in my thoughts, I barely registered the firm grip on my arm until I was yanked upwards. For a split second, panic seized me, and my mind imagined the worst. However, the familiar, concerned face of Ash greeted me. He hauled me out of the muck, his eyes wide with a mix of relief and alarm.
 
