@@ -46,8 +46,10 @@ I was eventually dragged inside, despite my horror-filled please, and taken to a
 
 "This is where you will be kept for the time being, If you behave, And be patient, We will take you someplace far more comfortable."
 
-So now I sit on the wood bed, My face buried in my hands as I weep, Thinking of a mother who never loved me, A father who never had faith in me, And brothers who barely knew me.
+As I sat, I remembered that they didn't take any of my possessions, I still had my phone, And I'm sure how, But they have open wifi here, Maybe it's because this place is more normal during daytime, Maybe they are fucking with me, I don't know.
 
-Somehow, I have a paranoid feeling that the worst of this place is yet to come.
+So now, After a few days here, I sit on the wood bed, My face buried in my hands as I weep, Thinking of a mother who never loved me, A father who never had faith in me, And brothers who barely knew me.
+
+Somehow, I have a paranoid feeling that the worst of this place is yet to come, And I don't think they plan on releasing me so suddenly, I've already been in this place for 3 days, And they refuse to tell me anything.
 
 My name is Thomas Baker, and I need help, Please.

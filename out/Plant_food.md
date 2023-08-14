@@ -13,7 +13,3 @@ As the plant was torn from its pot, an unworldly screech filled the air. The hig
 I raced outside and without thinking buried the plant deep in the ground, far from your home. As the days went by, a sense of peace returned to my now-empty household. Though the memory of my beloved lost pets haunted my thoughts at times, the experience served as a chilling reminder that some beauty hides a darkness beyond comprehension, waiting to consume the unwary.
 
 And now I have a new fear, what if this plant that I buried begins to grow on its own? Was I also remembering seed pods on the plant when I had pulled it from its pot? Oh sh... I heard that rustling noise again. I don't think I can go back out there and look. What should I do?
-
-
-
-(This might become a small series if the interest is there. Let me know you thoughts. Tia)
