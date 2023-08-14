@@ -18,7 +18,7 @@ From my monitor I could see everything, my lawn, the vegetable patch I recently 
 
 I could see in the bottom corner the chat started to blow up. People from everywhere around the world were requesting for this man to do unspeakable things to me. I closed my curtain immediately after reading the sinister  requests put in by the thousands of viewers.
 
-As I grabbed my phone to call the police a deep echoing voice came through the speakers of my monitor “I wouldn’t do that if I was you” he said. I froze, my hands stared to tremble causing me to release my cellphone. I checked the monitor again. He was now outside my back door, the hairs on my legs began to stand up on edge as if trying to escape from my jeans. 
+As I grabbed my phone to call the police a deep echoing voice came through the speakers of my monitor “I wouldn’t do that if I was you” he said. I froze, my hands started to tremble causing me to release my cellphone. I checked the monitor again. He was now outside my back door, the hairs on my legs began to stand up on edge as if trying to escape from my jeans. 
 
 All of a sudden a voting pole appeared on the screen, there was two options, both involved a gruesome way to torture me. I sat there, eyes glued to the screen un able to move as the viewers began there vote.
 
