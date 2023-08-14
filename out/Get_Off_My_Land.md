@@ -54,4 +54,4 @@ My protection on this land may be thinning if they are able to get that close to
 
 As I have shown here, this land is dangerous. Pretending to be a mystic land to lure humans in with an unknown agenda that I am still trying to figure out. No human should visit this place, and yet it keeps on attracting you humans to come visit. So please, disregard the siren call that this land has on you!
 
-\[C\]([https://www.reddit.com/user/sci300768](https://www.reddit.com/user/sci300768))
+[C](https://www.reddit.com/user/sci300768)
