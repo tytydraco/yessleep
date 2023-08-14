@@ -93,7 +93,7 @@ On the car ride home my mother talked about how my father would beat me. She sai
 When we got home he made a joke about her being a dick chopper and put her in her place. 
 
 The next day when I was getting ready for school I heard the black dragon head again.
-'Sean, this school thing is more lies than truth. Your grandfather got rich and he dropped out in the third grade.' It said.
+'Sean, this school thing is more lies than truth. Your grandfather got rich and he dropped out in the third grade 3.' It said.
 
 'What are you telling me?' I thought.
 
