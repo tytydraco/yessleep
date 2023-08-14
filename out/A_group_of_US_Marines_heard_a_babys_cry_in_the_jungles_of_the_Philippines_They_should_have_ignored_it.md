@@ -160,7 +160,6 @@ I don’t remember how long I ran and tumbled through the jungle, but eventually
 
 I later learned that out of all the men in my section, I was the only one that survived. The Captain asked me what had happened and I told him what I remembered, but he gave me a strange look and I knew that he didn’t believe me. I can’t blame him. I wouldn’t have believed my story either if I didn’t see it with my own eyes.
 
-From what I hear they’ll soon be shipping me out of here. Johnny, one of the few friends I have left in the company, says the Captain has written me off as unfit for combat. They’ll probably end up sending me to the garrison at Cavite, where it’s much quieter.
+I have few friends left here. Most think I have lost my mind due to the encounter. Talk among the company says that many think that the Lieutenant and the rest of my sectiom were ambused by insurrectos and badly butchered by them in an attempt to send us a horrific message. From what I hear they’ll soon be shipping me out of here. I Johnny, one of the few friends I have left in the company, says the Captain has written me off as unfit for combat. They’ll probably end up sending me to the garrison at Cavite, where it’s much quieter.
 
-As much as I hate leaving behind my unit, I’m happy to get away from this place and the horrors it contains within its jungles.  
-  
+As much as I hate leaving behind my unit, I’m happy to get away from this place and the horrors it contains within its jungles.
