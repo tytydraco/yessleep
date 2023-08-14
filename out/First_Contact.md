@@ -1,4 +1,4 @@
-For the last two years, I’ve been secretly employed by the US government for locating and retrieving alien spacecraft. Only 4 people including me work at Site 13. Site 13 is located in the deserts of New Mexico, and is where work really gets done, not Area 15. 
+For the last two years, I’ve been secretly employed by the US government for locating and retrieving alien spacecraft. Only 4 people including me work at Site 13. Site 13 is located in the deserts of New Mexico, and is where work really gets done, not Area 51. 
 
 The worst part is that no one knows what happens there, it’s only the 3 other guys and me, all of us have sworn to secrecy, and we’ve seen what happens when we tell anyone. Doesn’t matter how close. 
 

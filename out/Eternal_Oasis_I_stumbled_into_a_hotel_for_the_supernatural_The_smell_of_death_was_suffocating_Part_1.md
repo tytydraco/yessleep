@@ -26,7 +26,7 @@ I felt his death like my own, choking on blood tinged water spilling from his li
 
 His last words were on my lips, while the girl's tears stained my cheeks pressed to my pillows.
 
-“Winnie!” Karma yelled, tearing me from yet another sleep-mare. “Wake up!” Her high-pitched screech instantly ripped me from slumber, and I swallowed the word *‘beautiful’* with the majority of my breakfast. Thankfully, my roommate was quick to shatter the dream, or nightmare, or whatever the hell it was. Karma's stomps were loud and angry, and when she finally stopped right in front of me, I was shocked to see a crumpled piece of paper hanging from her manicured fingers. Oh, Gosh, no.
+“Winnie!” Karma yelled, tearing me from yet another sleep-mare. “Wake up!” Her high-pitched screech instantly ripped me from slumber, and I swallowed the word *‘beautiful’* with the majority of my breakfast. Thankfully, my roommate was quick to shatter the dream, or nightmare, or whatever the heck it was. Karma's stomps were loud and angry, and when she finally stopped right in front of me, I was shocked to see a crumpled piece of paper hanging from her manicured fingers. Oh, gosh, no.
 
 It was a "polite" request for me to vacate the room.
 
@@ -122,7 +122,7 @@ Fiery red hair cascaded over her shoulders like a waterfall. And then I heard vo
 
 I lost consciousness somewhere between their arguing, and my own muddled thoughts, which made me wonder if I had a concussion. Man, my head hurts.
 
-A cacophony of hissed whispers, both of which from the two in question, slowly drew me from brain fog. I listened in, straining my ears to hear, the woman’s irritation only seeming to grow by the second. My attention shot to Noah, his coughing and sputtering surely alerting everyone to the fact that we were *very* much alive. A wince left my lips as I crawled over closer to him and applied some pressure to his arm. His wound was gaping, shiny with perspiration, a bloody, fleshy mess caught up between charred flaps of skin. It hit me that my friend was okay. Ish. I couldn't speak for internally, but he seemed mostly all right, except from a gash stretching across his left temple.
+A cacophony of hissed whispers, both of which from the two in question, slowly drew me from brain fog. I listened in, straining my ears to hear, the woman’s irritation only seeming to grow by the second. My attention shot to Noah, his coughing and sputtering surely alerting everyone to the fact that we were *very* much alive. A wince left my lips as I crawled over closer to him and applied some pressure to his arm. His wound was gaping, shiny with perspiration, a bloody, fleshy mess caught up between charred flaps of skin. It hit me that my friend was okay. Ish. I couldn't speak for internally, but he seemed mostly all right, except for a gash stretching across his left temple.
 
 "We crashed…?" Noah's voice was a question mark slur, rolling off his tongue. He weakly pointed towards the woman in the water before mumbling, “I heard…”
 
