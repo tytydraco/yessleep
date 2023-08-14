@@ -26,7 +26,7 @@ She kept asking me the same question, and I realized I couldn’t answer it.
 
 Why did I want to join in so badly? I thought about it and concluded that I didn’t like being left out. It’s not like the other kids boasted about video time. Some of them even forgot it existed. I asked them if they had fun watching movies, and they blinked at me, confused. “What movies?” They would say, before giving me an odd look and running away. I asked my brothers what movies they were all watching over dinner, and they too looked at me like I was a weirdo, before Mom changed the subject. She did that a lot—especially, when I got kind of desperate, grilling my younger brothers on what exactly they were all watching in that big room. 
 
-But Mom would quickly start talking about something unrelated. I did manage to question one of them in the car when Mom was getting groceries.  Cam was the quiet one out of my siblings, usually keeping to himself, glued to the newest Pokémon release. I found myself with the perfect opportunity. PJ, our brother, was at a friend’s house, it was just me and him. “You guys watch movies in that red room, right?” I leaned over in my seat and poked my brother’s cheek teasingly. “So, what do you watch?”
+But Mom would quickly start talking about something unrelated. I did manage to question one of them in the car when Mom was getting groceries.  Cam was the quiet one out of my siblings, usually keeping to himself, glued to the newest Pokémon release. I found myself with the perfect opportunity. PJ, our brother, was at a friend’s house, so it was just me and him. “You guys watch movies in that red room, right?” I leaned over in my seat and poked my brother’s cheek teasingly. “So, what do you watch?”
 
 My brother didn’t look up from his DS, “They’re not movies, stupid head,” he mumbled through a mouthful of stylus, his gaze glued to the screen.
 
@@ -74,7 +74,7 @@ Cam didn’t answer, enthralled in his game, and I admit, I don’t think I want
 
 They were the least energetic kids I had ever met, choosing to sit on the grass and pick their noses, staring at the sky like a giant question mark was looming over them. They didn't even speak. 
 
-When they did, it was just nosies, or snorting. 
+When they did, it was just noises, or snorting. 
 
 I got tired of them eventually, and it was starting to rain—which neither of them noticed. One of the girls tipped her head back and didn’t even flinch when fat drops of rain hit her in the face. When the downpour started, I hurried to get inside. Normally, we had to ask a teacher during recess, but I was getting soaked. I tried to open the doors leading back into the school, but they were locked. I found another entrance, which this time led into the auditorium. I planned to go right back to my classroom, though once I left the comfort of the auditorium, I realized something was wrong.
 
@@ -142,9 +142,11 @@ I mean the duck and cover, hiding behind books, and darting onto the shadows, sp
 
 Initially, I thought their joint obsession with their younger brother’s dating life was kind of cute. Luna Delaney would pop up out of nowhere while we were on a date, and be like, *Oh, what a coincidence! I was going to see this movie, too!* But then it kept happening. I would be at the grocery store, and a familiar bouncing ponytail would be bobbing behind me, her face expertly (or she thought) hidden behind a book. I didn’t even have to be with their brother, I could be anywhere, and somehow, the Delaney siblings would find me. I went to a baseball game with my dad over a long weekend, and somehow, Jasper Delaney was sitting behind me. I knew it was him. Like I said, these guys thought they were inconspicuous, but I would recognize that bushy dark brown hair, anywhere.
 
-I thought it was a joke, because it was almost comical, like I was playing, “Spot the spy!” Neither of them were as slick as they thought, they were pretty fucking noticeable in a crowd. 
+I thought it was a joke, because it was almost comical, like I was playing, “Spot the spy!” 
 
-But when they got progressively better, I got more paranoid. It had been a while since they had been spying us, and I was feeling on edge.
+Neither of them were as slick as they thought, they were pretty fucking noticeable in a crowd. 
+
+But when they got progressively better, I got more paranoid. It had been a while since they had been spying on us, and I was feeling on edge.
 
 “My family are kind of weird.” That was what Spencer had warned me on our second date, his joking smile twisting into more of a serious frown. I laughed, and said, *Well, aren’t all family’s weird?* But now I understood his twisting expression. He didn’t laugh at my joke, instead downing his glass of wine and changing the subject. The whole date, I’d caught his wandering eyes—not because he was daydreaming or zoning out like usual. 
 
@@ -178,7 +180,7 @@ It was early evening, we had just finished classes, and I was being (dragged) ge
 
 I jumped when my boyfriend playfully nudged me, laughing. "You got it!" 
 
-Spencer’s smile made my heart ache. How could he be blood-related to these weirdos, I had no idea. Spencer was the complete of both of them. Luna Valdez was like a snake, a snake I knew would backstab me the second she got the chance. Luna was beautiful, but there was a certain contortion in her lipsticky smile that sent shivers skittering up and down my spine. Jasper at least tried to be friendly, but the grins splitting his mouth apart were too wide like he was hiding something, like he secretly wanted—no needed—me to get away from his brother. His teeth were too sharp, like fangs, and he had a vacancy in his eyes, like he wasn't aware of the world around him, only his younger brother. The Delaney siblings did not deserve a brother like Spencer. 
+Spencer’s smile made my heart ache. How could he be blood-related to these weirdos, I had no idea. Spencer was the complete of both of them. Luna Delaney was like a snake, a snake I knew would backstab me the second she got the chance. Luna was beautiful, but there was a certain contortion in her lipsticky smile that sent shivers skittering up and down my spine. Jasper at least tried to be friendly, but the grins splitting his mouth apart were too wide like he was hiding something, like he secretly wanted—no needed—me to get away from his brother. His teeth were too sharp, like fangs, and he had a vacancy in his eyes, like he wasn't aware of the world around him, only his younger brother. The Delaney siblings did not deserve a brother like Spencer. 
 
 "Lastly, I can't challenge your brother at a game," I relayed his words from earlier. "Especially when he's drunk."
 
@@ -194,7 +196,9 @@ I turned to frown at him, at my boyfriend, who was the human embodiment of a gol
 
 The Delaney household was just as I expected, as we headed up a gravel driveway; a large Victorian house surrounded by a white picket fence. The flower garden was perfectly placed, with a small pool carved around the back, and a jacuzzi sitting on a wooden platform. I found myself transfixed by the sight, everything looked so clean and untouched. The pool still had its cover, and the deck chairs surrounding it looked brand new. 
 
-I expected security cameras mounted on the door, already taking full body scans. But the house looked like your average family home. Though the fact that it was far too clean and untouched bothered me. When Spencer pulled me to the front door, I glimpsed a tag still hanging off of a rose bush next to the entrance. I opened my mouth to ask what his parents did for jobs. Maybe they were too busy to enjoy the luxury of their front yard. Before I could, Spencer knocked on the door twice, before shouting, “Hey, Mom! I’m home!”  He opened the door, gesturing me inside a brightly lit hallway which already made me feel at home. I found myself standing on a “Home Sweet Home!” welcome mat, which again, looked brand new, my gaze automatically finding baby pictures mounted on the walls, of what I presumed to be the three Delaney siblings.
+I expected security cameras mounted on the door, already taking full body scans. But the house looked like your average family home. Though the fact that it was far too clean and untouched bothered me. When Spencer pulled me to the front door, I glimpsed a tag still hanging off of a rose bush next to the entrance. I opened my mouth to ask what his parents did for jobs. Maybe they were too busy to enjoy the luxury of their front yard. Before I could, Spencer knocked on the door twice, before shouting, “Hey, Mom! I’m home!”  He opened the door, gesturing me inside a brightly lit hallway which already made me feel at home. 
+
+I found myself standing on a “Home Sweet Home!” welcome mat, which again, looked brand new, my gaze automatically finding baby pictures mounted on the walls, of what I presumed to be the three Delaney siblings.
 
 “Spencer!”
 
@@ -212,7 +216,7 @@ Spencer laughed that time, and it was a throw-your-head-back laugh, the one I pa
 
 I couldn’t help but notice in one particular picture, the smiling little girl waving at the camera, was a redhead, while I was sure Luna Delaney was a brunette. Sure, she could have dyed her hair, but looking closer, while Spencer dropped his bags and helped me take off my jacket, the other kid photos stood out. The two little boy’s playing in the Delaney flower garden were blonde. I didn’t think much of it, sliding out of my heels. Spencer pulled open a small closet next to the door, and I ducked in, neatly placing my heels next to a pair of battered boots. 
 
-Something stopped me from leaning back and dropping my heels, my fingers wrapped around the shoes. There were so many shoes, and when my gaze tracked the closet, I was seeing jackets and bags, backpacks, wallets, and phones piled inside a small blue basket. Too many, I thought dizzily. So many, for one family of five. It was when I found blurred and old stained red stuck to the bottom of a particular worn pair of converse, when a scream began in my chest, winding it's way toward my throat. I was partially aware that my boyfriend wasn’t speaking, only allowing me to take in what was in front of me. There was something hanging from above. 
+Something stopped me from leaning back and dropping my heels, my fingers wrapped around the shoes. There were so many shoes, and when my gaze tracked the closet, I was seeing jackets and bags, backpacks, wallets, and phones piled inside a small blue basket. Too many, I thought dizzily. So many, for one family of five. It was when I found blurred and old stained red stuck to the bottom of a particular worn pair of converse, rimming the edges, when a scream began in my chest, winding it's way toward my throat. I was partially aware that my boyfriend wasn’t speaking, only allowing me to take in what was in front of me. There was something hanging from above. 
 
 ID tags. 
 
@@ -226,7 +230,7 @@ It was a UCLA ID, and it belonged to someone named  Zach Valdez, an unsmiling c
 
 Before I could catch my breath, I twisted around with the intention to run, already mapping how I would get around Spencer, and dart toward the door. But what I wasn't counting on, was to find myself inches from a gun, perfectly melded into my boyfriend's hands, his finger teasing the trigger, right between my eyes. His trajectory was perfect, and I realized I had been dating a wolf in sheep's clothing. He was the perfect Delaney sibling, after all. I raised my arms in surrender, and he followed my movement, his eyes drinking me in, for maybe the first time.
 
-Just like him taking me in, however, I was also lost in eyes I thought I knew, eyes that had been behind a carefully sculpted facade. When I looked closer, there was a certain blankness in his face, no contortions in facial muscles, or if they were, it was all planned and trained. Even his smiles were just his brother's. "Freida Castor," he spoke like a robot, tightening his hold around the butt of the gun. I didn't see him pull the trigger, but something definitely hit me, a sharp thing, which felt like a needle, slicing into the back of my neck. 
+Just like him taking me in, however, I was also lost in eyes I thought I knew, eyes that had been behind a carefully sculpted facade. When I looked closer, there was a certain blankness in his face, no contortions in facial muscles, or if they were, it was all planned and trained. Even his smiles were just like his brother's. "Freida Castor," he spoke like a robot, tightening his hold around the butt of the gun. I didn't see him pull the trigger, but something definitely hit me, a sharp thing, which felt like a needle, slicing into the back of my neck. 
 
 *"You're going to tell us exactly what you know about..."* I couldn't register the word, the curl of it razor sharp in my mind, refusing to settle in. When I managed to turn my head, my gaze found the older Delaney brother standing in the hallway, shadowed by light, a pea shooter curled between his lips, a gun pointed at me. I didn't have to search for the last sibling, hiding just outside my line of sight. I saw her ponytail, and then I saw a third magnum pointed directly at my head. 
 
@@ -244,14 +248,20 @@ Spencer knelt in front of me, those exact same words rolling off of his tongue, 
 
 While her soldiers, The Delaney Family, swiftly followed her orders. 
 
-Mrs Delaney, looming over me, in fifties style dress. 
+Mrs Delaney, looming over me, in fifties style dress, a bright yellow dress, and matching slippers. 
 
 Mr Delaney, lurking in the shadows. 
 
-And the three children, standing either side of me. Spencer Delaney had my arm, while Luna Delaney's fingers were wrapped around my neck, forcing my head forwards. Jasper Delaney held open my eyes, forcing them wide open. 
+And the three children, standing either side of me. Spencer Delaney had my arm, while Luna Delaney's fingers were wrapped around my neck, forcing my head forwards. Jasper Delaney held open my eyes, forcing them wide open. I finally understood the blankness in his eyes. I knew why I couldn't read them. 
+
+They say eyes are the windows to the soul, and the eldest Delaney son had a deep, cavernous hole, hollowing him out. 
 
 Finally, I could hear it, and somehow it was familiar. 
 
 It was *home*. 
 
-"You're going to tell us exactly what you know about *Sɥɐpoʍ*." 
+"You're going to tell us exactly what you know about *Sɥɐpoʍ*."
+
+So yeah, you could say my boyfriend's family was *weird*.
+
+I'll tell you more soon.
