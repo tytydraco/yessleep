@@ -33,7 +33,7 @@ Someone was looking straight back at me. The reflection of the living room light
 
 ‘The light turned off, I can’t see anything mommy.’ I said. I remember trying to open my eyes, in hope that I could see more if I opened them wide enough.
    
-‘Okay honey, where were you last?’ She asked.   
+‘Okay honey, where were you last?’ She asks.   
 
 ‘Living room.’ I replied softly.   
 
@@ -57,7 +57,7 @@ I walked to the side of the doorframe, feeling around for the doorbell system an
   
 ‘Please leave me alone!’ I screamed with a hoarse voice.   
 
-‘Why?’ I man’s voice was clear as day through the speakers. Surprise caught me as I had not expected this person to talk back.   
+‘Why?’ I heard man’s voice was clear as day through the speakers. Surprise caught me as I had not expected this person to talk back.   
 
 ‘There’s nothing here for you to steal. Please go away.’ I said.   
 
@@ -67,6 +67,6 @@ I walked to the side of the doorframe, feeling around for the doorbell system an
 
 ‘Good, now go upstairs.’ My mom said hastily.   
 
-I took a breath of relieve and I turned around, ready to hide upstairs, when the man’s voice came through again.   
+I took a breath of relief and I turned around, ready to hide upstairs, when the man’s voice came through again.   
 
 ‘The question remains though,’ He stopped talking, and I stopped walking. ‘Did you just lock me in or out?’
