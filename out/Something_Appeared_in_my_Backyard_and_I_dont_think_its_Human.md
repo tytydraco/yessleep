@@ -36,9 +36,9 @@ He fell silent as he scrunched his face up, no doubt thinking. "I... I think I w
 
 I nodded, "I see, well Charlie, let's go to the police. Someone who knows you might've filed a missing person's report, and even if they didn't, the police should have you in their database."
 
-He agreed and before long, we were on the road headed to the police station. Arriving at the station, I informed the police of the situation. After running a check they said there weren't any missing persons reports for Charlie. They then rand a check for him through their databases, but they came up with nothing. Feeling stumped, they fingerprinted him in hopes that it was just a glitch in their system.
+He agreed and before long, we were on the road headed to the police station. Arriving at the station, I informed the police of the situation. After running a check they said there weren't any missing persons reports for Charlie. They then ran a check for him through their databases, but they came up with nothing. Feeling stumped, they fingerprinted him in hopes that it was just a glitch in their system.
 
-"Alright ma'am, it'll take three to five business days to get his background check back. if you will, please sign your name here along with your phone number so we can call you when we get the results," the officer said.
+"Alright ma'am, it'll take three to five business days to get his background check back. If you will, please sign your name here along with your phone number so we can call you when we get the results," the officer said.
 
 "Okay," I responded as I signed the form.
 
@@ -92,7 +92,7 @@ I stepped back a bit and started shaking. “No, I divorced you because you are 
 
 “Oh, so you want to call the cops now, do you?” He said, laughing a bit. “Fine, I’ll give you a reason to call them.”
 
-He raised his fist and went to swing, and in an instant, he was sliced into multiple pieces. I stood there shaking, soaked in his blood. I was frozen, unable to move, but slowly looked down at what used to be my ex-husband. Now he resembled that of chopped up beef. I felt my stomach begin to turn before I vomited what I had eaten for lunch.
+He raised his fist and went to swing, and in an instant, he was sliced into multiple pieces. I stood there shaking, soaked in his blood. I was frozen, unable to move, but slowly looked down at what used to be my ex-husband. Now he resembled that of chopped up beef. I felt my stomach begin to churn before I vomited what I had eaten for lunch.
 
 What happened to him?! What could’ve done this?! It was then that I felt something was wrong as Charlie hadn’t said anything or moved. I slowly turned to see Charlie standing there, with an emotionless look on his face. I looked into his eyes and no longer saw a human. No, I saw something worse, something more evil than anything I had ever seen.
 
@@ -114,7 +114,9 @@ How could he answer so nonchalantly as if he didn’t just kill someone?! “No 
 
 “I don’t understand, I thought you’d be happy with him dead. Was I wrong for what I did?” He asked almost with a face of innocence.
 
-How?! Could he ask something like that?! It’s like he has no understanding of what’s right and what's wrong! “What t-the hell are you?! Just h-how did you slice him into p-pieces?!” I asked, completely overtaken by fear.
+How could he ask something like that?! It’s like he has no understanding of what’s right and what's wrong! 
+
+“What t-the hell are you?! Just h-how did you slice him into p-pieces?!” I asked, completely overtaken by fear.
 
 He cocked his head to the side, “What do you mean? I’m Charlie, did you already forget? And as for him, well it’s not hard to slice a human up as if you are cutting tofu.”
 
@@ -132,7 +134,7 @@ I nodded. “I n-need to get cleaned u-up so I’m g-going to get a shower.”
 
 Before I could leave Charlie grabbed me by the wrist, “You won’t leave me, will you?
 
-“O-of course. I’m n-not going to l-leave you. I’m j-just a little f-frightened from what h-happened,” I answered.
+“O-of course not. I’m n-not going to l-leave you. I’m j-just a little f-frightened from what h-happened,” I answered.
 
 He said nothing more but let go of my wrist. I must’ve stayed in the shower for an hour, crying while I cleaned the blood from my skin and hair. I couldn’t stop trembling and dreaded having to go back out and see that thing. The water had turned cold, and I finally got out, getting changed into some clothes.
 
