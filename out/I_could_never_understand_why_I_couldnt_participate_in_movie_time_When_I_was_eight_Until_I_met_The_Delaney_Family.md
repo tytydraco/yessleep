@@ -248,7 +248,7 @@ And somehow, I wasn't thinking of my current situation, dropping to my knees, al
 
 *Some things aren't for you, Freida. Do you understand me?*
 
-I remember being paralysed, dragged inside the Delaney household, while the three of them repeated the same phrase, two adult voices joining, as I was forced into a leather sofa, a mounted television on the wall switching on, a screen full of buzzing static before words appeared in black and white: *The Delaney Family! In: Hunt down and Delete every ____.*
+I remember being paralysed, dragged inside the Delaney household, while the three of them repeated the same phrase, two adult voices joining, as I was forced to sit on a leather sofa, a mounted television on the wall switching on, a screen full of buzzing static before words appeared in black and white: *The Delaney Family! In: Hunt down and Delete every ____.*
 
 Spencer knelt in front of me, those exact same words rolling off of his tongue, at the exact time as a woman with a bright, hypnotising smile, flickered onto the screen, her arms by her sides. She reminded me of the how-to tutorial videos you can find on YouTube. The old ones from the 70's with cheesy music. Maybe it was the drugs, but she almost looked like she was bleeding from the static, her body slowly taking shape in the real world. 
 
