@@ -110,7 +110,13 @@ I became withdrawn from the rest of my class, as well as my younger brothers, hi
 
 I felt it being around them, a suffocating darkness eating me up inside, dozens of invisible eyes boring into my back, watching my every move, choking my words before I could speak. 
 
-That sensation came back to haunt me nine years later, unwelcome and agonising, and yet familiar. I got that exact same feeling being around my boyfriend’s family. Well, his siblings, for one. I was yet to meet his parents. 
+That sensation came back to haunt me nine years later, unwelcome and agonising, and yet familiar. 
+
+I got that exact same feeling being around my boyfriend’s family. 
+
+Well, his siblings. 
+
+I was yet to meet his parents. 
 
 Spencer Delaney was a catch I didn’t think I deserved. I met him at a party, and he was the type of guy who was both the introvert, sitting with the house cat, and the extrovert, jumping up and down to music, and getting blackout drunk. I met him on the way to the bathroom to throw up, the two of us bonding over our love for potted plants and tragic romance.  Through drunk vision, Spencer had resembled a Hollywood star that night, a sparkling smile under bedhead curls held back by raybans perched on his head. Our first conversation was just me pointing out he’d spilled his drink, and him gleefully naming the stain on his collar. 
 
