@@ -50,11 +50,11 @@ The pieces began to come together, each one forming a pattern that became harder
 
 I spread out photographs of the victims, the lost souls looking back at us. They had been taken from this world too soon, their dreams and aspirations cruelly snuffed out. "Do you realize what this means, Ash?" I whispered, though I was sure he had come to the same disturbing conclusion.
 
-"We have an active serial killer," he responded, voice filled with dread. "One who has been operating under the radar for at least a decade. And no one has connected the dots."
+"We have an active serial killer," he responded, voice filled with dread. The words 'serial killer' hung heavy in the air, a suffocating weight. "One who has been operating under the radar for at least a decade."
 
 I felt a chill down my spine. The weight of the realization was overwhelming. Not just the deaths, but the sheer number of them. "Two dozen victims," I whispered, the magnitude of it hitting me. "At least."
 
-The discovery of a serial killer sent a rush of adrenaline through our veins, and as we continued to delve into the cases, we saw a progression, an evolution in his modus operandi.
+As we continued to delve into the cases, we saw a progression, an evolution in his modus operandi.
 
 It began subtly. The early victims, like Lila, were found in areas where they could be easily discovered, almost as if the killer was still hesitant, still unsure. As the years progressed, the locations of the dumped remains became more secluded, hidden deeper in the swamps, making them harder to find and connect.
 
@@ -82,7 +82,7 @@ Breathing heavily, the room seemed to close in on me. A flood of memories washed
 
 Ash noticed my distress. "Reine, what is it?" he asked, concern evident in his eyes.
 
-Without uttering a word, I bolted from the room, the shock evident in Asher's voice as he called out to me.
+Without uttering a word, I bolted from the room, the shock in Asher's voice as he called out to me.
 
 Outside, the night air hit my face, but it did little to quench the growing panic. I fumbled for my keys and unlocked the SUV, rummaging through the boxes of cold cases I had brought along. I needed to confirm what I was feeling, what I was thinking. With trembling hands, I pulled out a dusty, worn-out folder labeled "Claire LeJeune."
 
