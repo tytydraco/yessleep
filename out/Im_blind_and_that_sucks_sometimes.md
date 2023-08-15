@@ -33,7 +33,7 @@ Someone was looking straight back at me. The reflection of the living room light
 
 ‘The light turned off, I can’t see anything mommy.’ I said. I remember trying to open my eyes, in hope that I could see more if I opened them wide enough.
    
-‘Okay honey, where were you last?’ She asks.   
+‘Okay honey, where were you last?’ She asked.   
 
 ‘Living room.’ I replied softly.   
 
