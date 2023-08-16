@@ -6,11 +6,11 @@ When I was around the age of 21 (I am not 23) I was diagnosed with glaucoma. It 
   
 The following happened in summer break, my parents were both working a late night shift and I was hanging out with my friend, Tiara. Usually when she comes over, she stays for a long time. She is like the only person I can tolerate for more then 24 hours. If you know, you know.   
 
-We both finished watching (listening) our favorite series both tired from binge watching and a few tears left on our cheek because of the sad ending of it. Shortly after, she left and I went to clean up. I left the remaining popcorn for me to eat as I put on a podcast to listen to, while loading the dishwasher. I heard a chime from my phone, and Siri reading the message Tiara sent: ‘I’m home! Goodnight and thanks for the fun day’. I smiled and my podcast continued.  
+We both finished watching (listening) our favorite series both tired from binge watching and a few tears left on our cheek because of the sad ending of it. Shortly after, she left and I went to clean up. I left the remaining popcorn for me to eat as I put on a podcast to listen to, while loading the dishwasher. I heard a chime from my phone, and VoiceOver started reading the message Tiara sent: ‘I’m home! Goodnight and thanks for the fun day’. I smiled and my podcast continued.  
  
-The podcast talked about strange disappearances a few towns over, labeling it as a cold case. I huffed, as the disappearances are still happening thus I do not think the case is that cold yet. I turned off the kitchen lights and moved my way through the hallway towards the living room and I let myself fall back onto the comfy couch, reaching for the bowl of popcorn, when my phone chimed again. Siri read the message that came from the security app.   
+The podcast talked about strange disappearances a few towns over, labeling it as a cold case. I huffed, as the disappearances are still happening thus I do not think the case is that cold yet. I turned off the kitchen lights and moved my way through the hallway towards the living room and I let myself fall back onto the comfy couch, reaching for the bowl of popcorn, when my phone chimed again. VoiceOver read the message that came from the security app.   
 
-***‘Person detected backyard.’*** The voice of the app said.  I frowned my brows. Is Tiara back? Or maybe it is a squirrel. Most of the times the system things those are persons too.   
+***‘Person detected backyard.’*** The voice said.  I frowned my brows. Is Tiara back? Or maybe it is a squirrel. Most of the times the system things those are persons too.   
 
 I waved it off as being a squirrel, and went back to listening my podcast while shoving handfuls of popcorn in my mouth.   
 
