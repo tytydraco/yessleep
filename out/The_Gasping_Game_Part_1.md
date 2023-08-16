@@ -114,10 +114,6 @@ By the time they pulled the sheet off, everything had gone blurry. I was dizzy a
 
 "So? Do you see him?"
 
-I looked around.
-
-Literally *everyone* was staring at me.
-
 I slowly peered around the room, my heart still racing.
 
 "Oh my God..." I mumbled.
@@ -181,3 +177,5 @@ The last thing I heard was Kirby *gasp* on the other line.
 My blood ran cold.
 
 [The call had dropped.](https://www.reddit.com/r/nicolascurcio/)
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/15sw8g5/the_gasping_game_part_2/)
