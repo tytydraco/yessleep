@@ -209,7 +209,7 @@ That night when I was going to sleep I saw someting I will never unsee.
 
 I sat bolt upright and starred through the open door to my bedroom. On the other side of the door was a weird purple red world, with a purple red version of me starring back. I heard a voice in my head.
 
-'Buy a playstation 3, Xbox 360 and a wii, or I'll eat you for dinner' the voice said.
+'Buy a playstation 3, Xbox 360 and a revolution, or I'll eat you for dinner' the voice said.
 
 The shadow me and his strange world then dissapeared and I saw the hallway.
 
