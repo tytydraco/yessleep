@@ -1,6 +1,8 @@
-Please excuse me if I mistype. Even as I write these words, I am waving to the man who sits among the stars. A new moon will come soon and I must get my waving in. It would be impolite not to.
+Please excuse me if I mistype. Even as I write these words, I am waving to the man who sits among the stars. A new moon will come soon and I must get my waving in. 
 
-For those of you that don’t know of me — I work in an observatory specializing in comprehensive galactic surveys by night and, by day, I inform this lovely faceless chorus on the internet about various celestial phenomena. 
+It would be impolite not to.
+
+For those of you that don’t know of me — I work in an observatory specializing in comprehensive galactic surveys by night and, by day, I inform this lovely faceless chorus on the internet about various celestial phenomena.
 
 Planetary transits, meteor showers, eclipses — it has been an absolute pleasure to share and discuss these beautiful sights with you all.
 
