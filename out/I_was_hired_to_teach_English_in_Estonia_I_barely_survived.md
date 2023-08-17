@@ -82,7 +82,7 @@ Yuri smiled as we were being led down the spiral staircase. “We are going to b
 
 “Are you serious?”
 
-He laughed. “Yes, mademoiselle. We are going to be free of our heads at sunrise.”
+He laughed. “Yes, *mademoiselle*. We are going to be free of our heads at sunrise.”
 
 “How are you laughing right now?” I yelled, as tears began streaming down my face.
 

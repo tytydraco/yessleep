@@ -312,7 +312,7 @@ We went out as a family to burn the wallets and other evidence. In a morbid way,
 
 I’ve been in shock since I finished reading the diary.. I can’t believe what I read. Grandma was a sweet old lady.. I don’t even think I’ve ever heard her swear. I just can’t believe it..
 
-I know that my uncle is in a mental institution now. I never knew the reason and I never really knew him. My dad always said that putting him in there was the hardest thing he ever had to do. He said that even with the Alzheimer’s, grandma was upset about it. She may have quickly forgotten though as she had a lot of difficulty in the later years of her life.
+I know that my uncle is in a mental institution now. I never knew the reason and I never really knew him. My dad always said that putting him in there was the hardest thing he ever had to do. He said that even with the Alzheimer’s, grandma was upset about it. She may have quickly forgotten though as she had a lot of difficulty with her memory in the later years of her life.
 
 My hands were shaking as I unfolded one of the paper footballs in the box. There was a drawing inside that looked like a child drew it. It depicted a small boy pointing a gun at a woman and another small child behind her. There are blue dots around the boy’s eyes that I assume are supposed to be tears.
 
