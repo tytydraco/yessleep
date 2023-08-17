@@ -228,7 +228,7 @@ It wanted me to point it out, but my arms were strapped down. So, I blinked my a
 
 “Yes, it is in the window,” The woman appeared at the left side of the screen, mocking a frown. “To tell the difference between a human and a ʍopɐɥs, there is only one thing you have to do,” she pointed to the thing on the screen. 
 
-“If it has a face, it is a human! If it has a face with too many eyes… you must shoot it with no hesitation; ʍopɐɥs cannot be looked at for too long. If you maintain eye contact with a ʍopɐɥs, it will already have you. And you will destroy yourself. Destroying yourself, you simply protrude our gun into the side of our temple and pull the trigger.” 
+“If it has a face, it is a human! If it has a face with too many eyes… you must shoot it with no hesitation; ʍopɐɥs cannot be looked at for too long. If you maintain eye contact with a ʍopɐɥs, it will already have you. And you will destroy yourself. Destroying yourself, you simply protrude your gun into the side of the temple and pull the trigger.” 
 
 She turned directly to me, her eyes suddenly far too real. “Again.” She spoke into my head, and I could feel the sleek metal of a gun molded into the flesh of my palm. In the blur of mind, was my mother, her hands tied behind her back. “What do we do if these things do not have human faces?”
 
