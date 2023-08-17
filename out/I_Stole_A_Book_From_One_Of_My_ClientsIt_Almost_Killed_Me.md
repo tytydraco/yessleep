@@ -1,7 +1,4 @@
-Hello Again, It's Been A While, If You Need To Catch up On My recent predicaments, Here they are:  
-[Part 1](https://www.reddit.com/r/nosleep/comments/156ypar/i_stole_a_book_from_one_of_my_clients_it_drove_my/), [Part 2](https://www.reddit.com/r/nosleep/comments/15bpi9g/i_stole_a_book_from_one_of_my_clients_its_been/).  
-   
-
+Hello Again, It's Been A While, If You Need To Catch up On My recent predicaments, Here they are:[Part 1](https://www.reddit.com/r/nosleep/comments/156ypar/i_stole_a_book_from_one_of_my_clients_it_drove_my/), [Part 2](https://www.reddit.com/r/nosleep/comments/15bpi9g/i_stole_a_book_from_one_of_my_clients_its_been/).
 
 In Hindsight...This Was A Terrible Idea. I was WARNED and Told By People To NOT Try Communication With "It"...But I was Too Curious...I Was Too "Intrigued".
 
@@ -15,7 +12,7 @@ I opened the other drawers but to my horror, the book had melted through the flo
 
 I ran into the basement and the book was sizzling through the concrete floor. I rushed to it but realized I didn't have my protective gloves... That didn't matter to me at the time, I Could not let the book and key escape.
 
-I reached my hand into the burning concrete and felt a searing pain throughout my whole body. I kept reaching farther down. I rammed my fingers down, trying to get it over with but the hole was getting deeper by the second, Half of my arm was in the hole now, My brain screamed at me to stop but I pushed on, Now almost my entire arm reached into the hole. 
+I reached my hand into the burning concrete and felt a searing pain throughout my whole body. I kept reaching farther down. I rammed my fingers down, trying to get it over with but the hole was getting deeper by the second, Half of my arm was in the hole now, My brain screamed at me to stop but I pushed on, Now almost my entire arm reached into the hole.
 
 It seemed hopeless but I felt the texture of the book. I reached further, My entire arm reaching into the hole but it was not enough, I kept pushing, trying my best to reach just a little further before it was too late.
 
@@ -25,7 +22,7 @@ Suddenly The Hole Started Sucking me into it. At First I thought my brain was im
 
 I screamed for help but nobody heard me. I didn't care about the book or the key anymore, Now it was a fight for survival.
 
-I pulled and tugged but the hole was tightening and constraining my arm along with tugging me deeper into the burning concrete. 
+I pulled and tugged but the hole was tightening and constraining my arm along with tugging me deeper into the burning concrete.
 
 &#x200B;
 
@@ -39,7 +36,7 @@ I closed my eyes, accepting my fate. My entire life was flashing before my eyes;
 
 &#x200B;
 
-I winced as the blinding lights confused me, was I in heaven? No. I was not in heaven, I was in the hospital. 
+I winced as the blinding lights confused me, was I in heaven? No. I was not in heaven, I was in the hospital.
 
 I went to get up and use my right arm to sustain myself but I cried out in anguish as my arm screamed at me to go back into a more comfortable position.
 
@@ -139,9 +136,9 @@ She shrugged and turned to look at my arm.
 
 I sighed and waited as 10 days passed by. Not much happened at that time but I was unable to tell people what was happening, online. I shared more info with Emily Michone and we eventually became friends.
 
-At the end of the 10 days, Me and Emily Uncovered the bandages to a burned arm,hand and shoulder. I could finally move it without pain but It still stung from time to time. 
+At the end of the 10 days, Me and Emily Uncovered the bandages to a burned arm,hand and shoulder. I could finally move it without pain but It still stung from time to time.
 
-What I didn't tell Emily was that during the 10 days, the key was talking to me through my head. Telling me horrible things like how it would kill Emily and everyone I knew. I mostly Ignored the key but I snapped at it a couple times and It revealed to me its name, "Gorgen Oritero". 
+What I didn't tell Emily was that during the 10 days, the key was talking to me through my head. Telling me horrible things like how it would kill Emily and everyone I knew. I mostly Ignored the key but I snapped at it a couple times and It revealed to me its name, "Gorgen Oritero".
 
 I didn't think a key would have a name but...At this point the key wasn't really a key anymore, to me, it was a pest.
 
@@ -151,4 +148,7 @@ I feel like there might be hope for me yet, but I don't have enough money to rem
 
 I also got mail from George Rintoro. He wanted to meet up again and he had some "good news" to share with me.
 
-I'll try to report back to you all soon.
+I'll try to report back to you all soon.  
+
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/15tqwvo/i_stole_a_book_from_one_of_my_clientsits_creating/)  is out.
