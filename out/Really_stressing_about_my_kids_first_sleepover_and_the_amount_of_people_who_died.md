@@ -70,6 +70,12 @@ I looked up at him from the hole where I stood.
 
 So I stopped to type this up and post it before listening to [what he had to say](https://www.facebook.com/P-F-McGrail-181784199029462/).
 
+--------
+
+[What he had to say](https://redd.it/15uicly)
+
+-----------------
+
 [BD](https://www.reddit.com/r/ByfelsDisciple/)
 
 
