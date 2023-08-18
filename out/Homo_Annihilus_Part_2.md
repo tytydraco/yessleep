@@ -367,5 +367,4 @@ They're engaged at the perimeter. And the power needed to be sabotaged from the 
 This wasn't a subtle psychological ploy. This wasn't a hunt. This was a coordinated manoeuvre articulated through Dark Empathy. They were attacking us.
   
 
-  
-This was war.
+  [This was war](https://www.reddit.com/r/nosleep/comments/15rg1im/homo_annihilus_part_3/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=1).
