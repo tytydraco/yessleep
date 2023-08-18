@@ -12,7 +12,9 @@ It was just a comically large red arrow pointing at a location and a phone numbe
 
 (415) <REDACTED>"
 
-The words *"CALL NOW!!!"* were written at the very bottom of the website.I was skeptical so I decided call Avery to discuss this whole situation.
+The words *"CALL NOW!!!"* were written at the very bottom of the website.
+
+I was skeptical so I decided call Avery to discuss this whole situation.
 
 **ME:** Hey, Avery.
 
@@ -166,7 +168,9 @@ Sam turned to Avery.
 
 A large cloud of dust flew out, causing him to cough.
 
-**HAILEY:** Ew. Why's there so much dust? This place shut down about a month ago.**JACK:** Must be dried ectoplasm. That's-...
+**HAILEY:** Ew. Why's there so much dust? This place shut down about a month ago.
+
+**JACK:** Must be dried ectoplasm. That's-...
 
 Jack lets out a dry cough.
 
@@ -188,7 +192,9 @@ He was right. The entrance that we just walked through was replaced with a brick
 
 **JACK:** Must be an... ancient curse or somethin'. Haha...
 
-**SAM:** It... It has to be. We've dealt with this kinda thing before, right?**JACK:** Yeah, obviously. Obviously we have.
+**SAM:** It... It has to be. We've dealt with this kinda thing before, right?
+
+**JACK:** Yeah, obviously. Obviously we have.
 
 **AVERY:** You brought your phone with you, right, Josh? You should probably call 911. This isn't... normal, you know?
 
