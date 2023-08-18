@@ -32,7 +32,7 @@ Why, I’m not sure. Furthermore, it's also the first tape we've seen that shows
 
 &#x200B;
 
-The main focus is a girl by the name of Lakisha Gardner. She appears to be either a preteen or in her early teens. Also present are her parents,  Troy, her father,  Jeannie, her mother, Cora, her grandmother, and Mel, her grandfather. It begins with Lakisha in school. The time period appears to be the 90s given the technology some kids have. The bell rings and the teacher tells everyone to enjoy their weekend.
+*The main focus is a girl by the name of Lakisha Gardner. She appears to be either a preteen or in her early teens. Also present are her parents,  Troy, her father,  Jeannie, her mother, Cora, her grandmother, and Mel, her grandfather. It begins with Lakisha in school. The time period appears to be the 90s given the technology some kids have. The bell rings and the teacher tells everyone to enjoy their weekend.*
 
 &#x200B;
 
