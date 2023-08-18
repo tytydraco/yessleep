@@ -1,10 +1,10 @@
-[\[Part 1\] The Check-in](https://www.reddit.com/r/nosleep/comments/15nzevd/a_guest_at_my_hotel_requested_a_demonic_symbol_on/)
+[\[Part 1\] The Check-In](https://www.reddit.com/r/nosleep/comments/15tscvu/a_guest_at_my_hotel_requested_a_demonic_symbol_on/)
 
-\[NSFW/Trigger Warning\]\[self harm\] I didn’t arrive back at the resort until noon the following day. I decided covering the graveyard shift after already working a full day earned me a late start. I had been home barely five hours when my alarm went off, but I had to get moving. I was the only rooms division manager on duty for the next several days and my team needed me. Caffeine was going to be my friend today. Without much time to get ready, I pulled my hair up into a messy bun, threw on a cardigan over my plain gray top, grabbed my favorite cherry limeade energy drink, and hopped in my Hyundai. I started guzzling it as soon as I was on the road.
+\[NSFW/Trigger Warning\]\[self harm\] I didn’t arrive back at the resort until noon the following day. I decided covering the graveyard shift after already working a full day earned me a late start. I had been home barely five hours when my alarm went off and I had slept very little of it due to the terrifying episode in my bedroom, but I had to get moving. As my thoughts drifted back to work, what had felt like such a frighteningly real experience just hours ago began to fade. The memory of it seemed nightmare-like now, and while I knew it would stick with me, the sense of danger I’d felt was gone. Going back to the resort off virtually no sleep now seemed more daunting. I was the only rooms division manager on duty for the next week and my team needed me. Caffeine was going to be my friend today. Without much time to get ready, I pulled my hair up into a messy bun, threw on a cardigan over my plain gray top, grabbed my favorite cherry limeade energy drink, and hopped in my car. I started guzzling it as soon as I was on the road.
 
-While I was still in the resort parking garage, I remembered I was going to text one of our front desk agents, Neal, to see if he knew what Kilday’s symbol was. Neal was quiet and aloof, but he also knew a lot of stuff about a lot of things no one else did. Sometimes that meant ancient religions, and sometimes it meant rabbit holes like flat earth and reptilians in the federal government. It also meant he was just the kind of person who might recognize the symbol. I texted him the photo I took of the rose petals on the bed:  Hey Neal. Guest had me make this. Do you know what it is?
+While I was still in the resort parking garage, I remembered I was going to text one of our front desk agents, Neal, to see if he knew what Kilday’s symbol was. Neal was quiet and aloof, but he also knew a lot of stuff about a lot of things no one else did. Sometimes that meant ancient religions, and sometimes it meant rabbit holes like flat earth and reptilians in the federal government. It also meant he was just the kind of person who might recognize the symbol. I texted him the photo I took of the rose petals on the bed: Hey Neal. Guest had me make this. Do you know what it is?
 
-When I got to my office, I found something strange sitting on my desk—three giant, black feathers. They were large enough to have come from a vulture or some kind of oversized buzzard. I rolled my eyes, knowing full well who must have put them there. Kat was off today, and our mid-shift front desk agent was Rory, another twenty-something. We had a running gag where whenever Rory found some random, weird thing around the property (which in hotels is practically all the time), he’d neatly place it on my desk while I was away. I took a feather and went out behind the desk to see him. He was wearing black and white Jordan 1s along with his uniform slacks. He knew I was the only manager who’d let him wear basketball shoes at work. We were cool.
+When I got to my office, I found something strange sitting on my desk—three giant, black feathers. They were large enough to have come from a vulture or some kind of oversized buzzard. I rolled my eyes, knowing full well who must have put them there. Kat was off today, and our mid-shift front desk agent was Rory, another twenty-something. We had a running gag where whenever Rory found some random, weird thing around the property, he’d neatly place it on my desk while I was away. I went out behind the desk to see him. He was wearing black and white Jordan 1s along with his uniform slacks. He knew I was the only manager who’d let him wear basketball shoes at work. We were cool.
 
 “Rory, where’d these feathers come from?” I asked.
 
@@ -26,13 +26,13 @@ He shrugged. “It’s been pretty dead today. Only twelve departures and four a
 
 “Great…” I droned. “I have to go down there. Call me if you need something.”
 
-But before I paid a visit to security, I walked out front to inspect the planter. What Rory said was true. More of those giant, black feathers covered the succulent plants and sugar palms used for landscaping. I bent down to look at them and I noticed something else—the tips of the feathers were singed like they had been burnt. I could almost feel static in the air again as I recalled the visual of the tall figure walking where I now crouched, and it sent chills to my fingers and ears. Had I actually seen something after all? Was I not just imagining it? I didn’t want to think about it.
+But before I paid a visit to security, I walked out front to inspect the planter. What Rory said was true. More giant, black feathers covered the succulent plants and sugar palms used for landscaping. I bent down to look at them and I noticed something else—the tips of the feathers were singed like they had been burnt. I could almost feel static in the air again as I recalled the visual of the tall figure walking where I now crouched, and it sent chills to my fingers and ears. Had I actually seen something after all? Was I not just imagining it? And If I had seen something there, was it the same nightmare entity that took the form of my neighbor’s dog, Moose, I’d seen in my apartment? I didn’t want to think about it.
 
 Resort security was down on the basement level along with the loading dock, storerooms, and cafeteria. To find the black case, I’d need security to review the cameras.
 
 “Morning, Morris,” I said, walking in.
 
-“You mean afternoon.” He nodded to a clock showing 12:03PM. Morris was in his fifties, a former flight attendant who left the airline business in search of a career that gave him less to do. His entire manner of speaking seemed designed to put off taking action for as long as possible.
+“You mean afternoon.” He nodded to a clock showing 12:09PM. Morris was in his fifties, a former flight attendant who left the airline business in search of a career that gave him less to do. His entire manner of speaking seemed designed to put off taking action for as long as possible.
 
 “Well, it’s morning for me. Hey, I need your help finding something. Last night there was a black, hard plastic shipping case when I walked into 4180. But it was gone when I went back later. We don’t know whose it is or what happened to it. I’d like to check the cameras.”
 
@@ -52,7 +52,7 @@ This was typical Morris—addressing everything but the actual point. I was goin
 
 “Great, Morris. You do that and let me know.” I touched him on the shoulder again and left the security office. Morris wasn’t a bad person, but sometimes hotel staff can be just as infuriating as the guests.
 
-By then, I really had to use the restroom. I had chugged the whole energy drink in the car, and if you’re someone who binges caffeine like I do, then you know the um…effect it has on the body. I walked into an employee restroom, and after making sure no one else was in one of the stalls, locked the restroom door. I couldn’t allow anyone to see me. There was something else I had been dealing with for the past year, and it liked to confront me in the restrooms. I took my time in the stall, checking all my socials on my phone, procrastinating—dreading what I knew might await me when I opened the stall door. But eventually, I had to. I stood up, zipped my pants, and eased open the door. I saw nothing, only my own reflection in the bathroom mirror. I inched out of the stall and checked my surroundings. For now, I was alone. I went to the sink and washed my hands, checking behind me in the mirror every few seconds. I shut off the water, dried my hands…and waited.
+By then, I really had to use the restroom. I had chugged the whole energy drink in the car, and if you’re someone who binges caffeine like I do, then you know the um…effect it has on the body. I walked into an employee restroom, and after making sure no one else was in one of the stalls, locked the restroom door. I couldn’t allow anyone to see me. There was something else I had been dealing with for the past year, and this was one place it liked to confront me. I took my time in the stall, procrastinating—dreading what I knew might await me when I opened the stall door. Eventually, I stood up, zipped my pants, and eased open the door. I saw nothing, only my own reflection in the bathroom mirror. I inched out of the stall and checked my surroundings. For now, I was alone. I went to the sink and washed my hands, checking behind me in the mirror every few seconds. I shut off the water, dried my hands…and waited.
 
 “I know you’re there,” I said into the mirror. “Just get it over with.”
 
@@ -96,7 +96,7 @@ I didn’t know right away whether to be relieved or concerned that the cameras 
 
 I hung up and pulled up the reservations for the two rooms that had called-in noise complaints. 3133 was booked under Nguyen. I hadn’t dealt with them yet and there were no troubling notes on their reservation. And 3135 was…Wojciechowski, the last person I wanted to talk to. I called Nguyen first. Their phone rang five times without an answer. This happens all the time. Guests will call to ask for something or complain, and if I have to call them back, they don’t pick up the phone. They either leave the room for some reason or do something stupid like sit on the balcony with the sliding door closed so they can’t hear the phone. Then they get upset because they think we didn’t get back to them. Still, 3133 was an ocean suite and the Nguyens had booked it for seven nights. I went up to visit them in person.
 
-Off the elevator, I rounded a hallway corner and knocked on the door to 3133. A soft-spoken woman answered almost right away (but didn’t pick up the phone? I don’t even try to understand anymore). I heard the problem right away. Numetal music was absolutely blaring from the pool deck. Anyone staying on this side of the building could hear it through the balcony doors and thin walls.
+Off the elevator, I rounded a hallway corner and knocked on the door to 3133. A soft-spoken woman answered almost right away (but didn’t pick up the phone? I hate hotel guests). I heard the problem. Numetal music was absolutely blaring from the pool deck. Anyone staying on this side of the building could hear it.
 
 “Hi, Mrs. Nguyen? I’m Osprey with the guest experience team. I’m here about your noise complaint.”
 
@@ -122,7 +122,7 @@ I pointed at the water. She didn’t react.
 
 “Yes, sorry. I just thought I…never mind. I’ll make sure he turns down the music, Mrs. Nguyen.”
 
-I left the room and leaned against the wall in the hallway once the door to 3133 shut. I felt like I was falling apart. If the resort had been fully open, I would have gone home early for the day. There would have been other managers and more staff to pick up the slack. But right now, it was just me and the employees Amisha still allowed me to schedule. They needed me. I took a few deep breaths and stood back from the wall just as a sharp-looking brunette in a maroon jogging suit approached.
+I left the room and leaned against the wall once the door to 3133 shut. I felt like I was falling apart. If the resort had been fully open, I would have gone home early for the day. There would have been other managers and more staff to pick up the slack. But right now, it was just me and the employees Amisha still allowed me to schedule. I took a few deep breaths and stood back from the wall just as a sharp-looking brunette in a maroon jogging suit approached.
 
 “Why does that room have a doorbell and mine doesn’t?” she stopped and asked with a raised eyebrow, referring to 3133.
 
@@ -174,7 +174,7 @@ I exhaled and the unpleasant sensation went away. “I’m fine. It’s just whe
 
 “Good thing we’re grabbing dinner later. You can tell me all about it. You’re still down, right?”
 
-After deliberating for a moment, I caved. “Yeah. Sure. Where did you want to eat.”
+I should have brought up seeing his symbol again on the SUV’s rear window last night. I should have pressed him about the nature of this vague partner of his. But I just couldn’t. I wanted him to like me and sought his approval. After deliberating for a moment, I caved. “Yeah. Sure. Where did you want to eat.”
 
 “Right here. At the Aqua Table.”
 
@@ -188,11 +188,11 @@ I knew eating on property with a guest could be a bad look. I could actually get
 
 He offered me a Corona from his bucket. I knew I’d cave and drink with him later, but my stomach couldn’t handle alcohol at the moment. “I’m a lightweight, I’m sorry. Let’s wait til tonight,” I said, picking up one of his empty bottles and cheers-ing him with it.
 
-I checked my phone once I left the pool deck. I had a dozen work-related texts, but one in specific I’d been waiting for. Neal had texted me back about Kilday’s symbol. It read:  We cant text about this. Its not safe.
+I checked my phone once I left the pool deck. I had a dozen work-related texts, but one in specific I’d been waiting for. Neal had texted me back about Kilday’s symbol. It read: We cant text about this. Its not safe.
 
-Now, I didn’t usually take Neal seriously. But if I was ever going to, it occurred to me this might be the time. It made me a little nervous. But the thought of flaking or canceling on Kilday was even more nerve-wracking. Plus, I really did want to eat with him. I texted Neal to say thanks, then went back up to the lobby. I knew I would see Neal at work the next evening. I could ask him more about it then.
+I didn’t usually take Neal seriously. But if I was ever going to, I realized this might be the time. But the thought of flaking or canceling on Kilday was even more nerve-wracking. Plus, I really did want to eat with him. I texted Neal to say thanks, then went back up to the lobby. I knew I would see Neal at work the next evening. I could ask him more about it then.
 
-The rest of my workday was relatively drama-free. I checked with security again to see if Morris had found the black case, but he had gone home. The guard on duty after him said Morris hadn’t told him anything about it. There was nothing I could do short of taking two hours to review all the cameras myself, so I put off worrying about it until the next day. My mind kept drifting back to Neal’s text. I’d get worried for a minute, then convince myself not to be. Then 8:00PM arrived. It was time for dinner.
+The rest of my workday was relatively drama-free. I checked with security again to see if Morris had found the black case, but he had gone home. The guard on duty after him said Morris hadn’t told him anything about it. When 8:00PM arrived, it was time for dinner.
 
 The Aqua Table had this weird “nautical meets millionaire kitchen” vibe that never gelled for me. Lots of dark, polished woods, fake fruit bowls, and granite countertops violated by fishermen’s nets and steering helms. Whatever. People seemed to like it. I had eaten there before and the food was actually great.
 
@@ -218,7 +218,7 @@ Terry took our drink orders. Kilday had Irish whiskey, neat. I had a vodka soda.
 
 He shrugged. “We’ll see.”
 
-I must have glanced at that empty chair every fifteen seconds throughout the meal. Every so often, I thought I saw a glimmer of movement in it from the corner of my eye, but once I turned and looked, there was never anything there. I figured it must be my lack of sleep or a trick of the light in my peripheral vision. Kilday didn’t comment on it. He was way too busy alternately stuffing himself with his fish tacos and talking about himself. He had grown up in the southwest—Albuquerque, Fort Worth, El Paso, and eventually Phoenix. He said he was a fat kid growing up and never had friends or money. I started wondering if his apparent wealth was all his partner’s. He said he worked now as a traveling consultant but stopped short of describing what kind of companies he consulted for. Once I’d finished my seabass, he asked me about myself.
+I must have glanced at that empty chair every fifteen seconds throughout the meal. Every so often, I thought I saw a glimmer of movement in it from the corner of my eye, but once I turned and looked, there was never anything there. I figured it must be my lack of sleep or a trick of the light in my peripheral vision. I should have connected it with the similar phenomenon in my apartment the previous night, but Kilday had my full attention now. He was stuffed himself with his fish tacos and talked about his background. He had grown up in the southwest—Albuquerque, Fort Worth, El Paso, and eventually Phoenix. He said he was a fat kid growing up and never had friends or money. I started wondering if his apparent wealth was all his partner’s. He said he worked now as a traveling consultant but stopped short of describing what kind of companies he consulted for. Once I’d finished my seabass, he asked me about myself.
 
 “What kind of name is Osprey?” he asked. “I mean it’s cool and all, I’ve just never heard it.”
 
