@@ -1,10 +1,12 @@
 I was browsing /r/nosleep and I saw an advertisement that really intrigued me.
 
-*"Are you a fan of the paranormal? Do you want to experience ghost-hunting firsthand? Well, you're in luck! Join the Society of the Anomalous and Paranormal today! (Only* *~~99.99$~~* *29.99$) Learn more at* *https://<REDACTED>.com*"
+*"Are you a fan of the paranormal? Do you want to experience ghost-hunting firsthand? Well, you're in luck! Join the Society of the Anomalous and Paranormal today! (Only* *~~99.99$~~* *29.99$) Learn more at* https://*<REDACTED>.com*"
 
-I did, indeed, like horror so I decided to join along with my friend Avery. Thirty dollars seemed expensive but we've both been working our asses off the past month so I thought it'd be a fun little activity for the two of us.
+I did indeed like horror so I decided to join along with my friend Avery. Thirty dollars seemed expensive but we've both been working our asses off the past month so I thought it'd be a fun little activity for the two of us.
 
-I clicked on the website and it looked kind of sketchy and unfinished.It was just a comically big red arrow pointing at a location and a phone number under it, all on a white background.
+I clicked on the website and it looked kind of sketchy and unfinished. Almost like something a kid would throw together for their school project.
+
+It was just a comically large red arrow pointing at a location and a phone number under it, all on a blinding, white background.
 
 "<REDACTED>, Illimitata Mall
 
@@ -36,7 +38,9 @@ The area where I was had an empty field and two roads leading to the parking lot
 
 Avery's car was already there. And so were three others.
 
-**AVERY:** Hey! Josh! C'mere!As I walked over to her, I noticed that five other people were waiting for me at the parking lot.
+**AVERY:** Hey! Josh! C'mere!
+
+As I walked over to her, I noticed that five other people were waiting for me at the parking lot.
 
 **????:** There you are! Your girlfriend told me you'd pay your fair share.
 
@@ -50,7 +54,9 @@ I turned to Avery.
 
 **ME:** What's the S-
 
-**JACK:** Society of the Anomalous and Paranormal. The thing you saw in the advert. Thought that'd be obvious.Damn, this guy's even douchier than I thought.
+**JACK:** Society of the Anomalous and Paranormal. The thing you saw in the advert. Thought that'd be obvious.
+
+Damn, this guy's even douchier than I thought.
 
 **JACK**: So, what's *your* name?
 
@@ -84,7 +90,9 @@ Sam yawned.
 
 **JACK:** Go talk to Hailey or somethin'. I'm busy with a few customers. I'll keep 'em entertained. You don't need to be involved.
 
-**SAM:** Okay, great...Sam slowly stumbled over to the van. As soon as he got close to the seat, he fell on his knees, face-first into the fabric and instantly fell asleep.
+**SAM:** Okay, great...
+
+Sam slowly stumbled over to the van. As soon as he got close to the seat, he fell on his knees, face-first into the fabric and instantly fell asleep.
 
 **HAILEY:** Oh, fuck off!
 
@@ -180,7 +188,9 @@ He was right. The entrance that we just walked through was replaced with a brick
 
 **JACK:** Must be an... ancient curse or somethin'. Haha...
 
-**SAM:** It... It has to be. We've dealt with this kinda thing before, right?**JACK:** Yeah, obviously. Obviously we have.**AVERY:** You brought your phone with you, right, Josh? You should probably call 911. This isn't... normal, you know?
+**SAM:** It... It has to be. We've dealt with this kinda thing before, right?**JACK:** Yeah, obviously. Obviously we have.
+
+**AVERY:** You brought your phone with you, right, Josh? You should probably call 911. This isn't... normal, you know?
 
 **HAILEY:** You signed up for a ghost-hunting session and now you're bitching about things not being normal. I swear to God, I'm working with actual toddlers at this point.I tried to call 911, but again, nothing but loud, obnoxious static. I felt like it was taunting me. Mocking me
 
@@ -200,7 +210,7 @@ I was starting to feel panicked.
 
 Sam took a step backwards, stepping on a cracked floor tile and he fell through the floor.
 
-And I'm not talking about the tile collapsing and forming a big, Sam-sized hole in the ground. It just looked like Sam no-clipped through the floor. Like his body was in the ground from the neck down.Luckily, he held onto a non-cracked tile and Avery pulled him up. 
+And I'm not talking about the tile collapsing and forming a big, Sam-sized hole in the ground. It just looked like Sam no-clipped through the floor. Like his body was in the ground from the neck down.Luckily, he held onto a non-cracked tile and Avery pulled him up.
 
 He said he felt "a bunch of smooth pieces of paper" on the other side.Right after Sam stood up, everyone in our group recieved a text message.
 
