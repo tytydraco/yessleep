@@ -2,6 +2,13 @@ Part 2
 
 https://www.reddit.com/r/nosleep/comments/15ql5j3/the_mothers_of_perdition_part_2/
 
+
+part 4
+
+https://www.reddit.com/r/nosleep/comments/15v9vdw/the_mothers_of_perdition_part_4/
+
+
+
 I work at a construction company and we are renovating this old monastery into a library. The last of the monks decided to sell the building for money and the state of Tennessee bought it to make it a heritage site. There is still going to be a library and in addition to adding a bunch of books they are keeping all the ones that were originally here. While renovating the building we found a secret room! And guess what was in it? More books! I even found a journal from Sean. After reading it I found this part particularly fascinating and wanted to share it.
 
 
