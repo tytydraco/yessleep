@@ -186,7 +186,9 @@ As our group stepped inside the mall, the unusual humidity of the air was immedi
 
 Cam turned the Parasonic on, but he was only met with loud static.
 
-**CAM:** What the fuck? I swear, this thing worked a minute ago. I gotta go back and check on it.Cam turned around and his face went as white as a sheet of paper.
+**CAM:** What the fuck? I swear, this thing worked a minute ago. I gotta go back and check on it.
+
+Cam turned around and his face went as white as a sheet of paper.
 
 **CAM:** The fuck is going on!? The exit's gone!
 
