@@ -92,7 +92,9 @@ Sorry for the mushy shit again. This journal, entry-thing is like therapy for my
 
 &#x200B;
 
-Well, since I'm already knee-deep in this shit I might as well get something off my mind, something off my chest that I feel like I can't keep bottled up for much longer. It happened just a couple days ago and I still remember that shit like it was today. But before I dive into that dark pit of memory, let me introduce you to my crew – the 3, now 2 ragtag bunch of mercenaries who've become and were my brothers in arms.First up is Zoran, a 29-year-old charmer hailing in from Serbia. He's got my back through thick and thin, even if he can be a bit of a pain in the ass at times.
+Well, since I'm already knee-deep in this shit I might as well get something off my mind, something off my chest that I feel like I can't keep bottled up for much longer. It happened just a couple days ago and I still remember that shit like it was today. But before I dive into that dark pit of memory, let me introduce you to my crew – the 3, now 2 ragtag bunch of mercenaries who've become and were my brothers in arms.
+
+First up is Zoran, a 29-year-old charmer hailing in from Serbia. He's got my back through thick and thin, even if he can be a bit of a pain in the ass at times.
 
 Then there's Yuri, this quiet dude from Ukraine in his mid-twenties, about my age I think. His actions speak volumes, and you can count on him when shit hits the fan. Never really had time to talk with him, but he seemed alright to me at least.
 
