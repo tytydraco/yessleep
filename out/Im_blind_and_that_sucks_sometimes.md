@@ -2,7 +2,7 @@ I was not born blind. I used to see the bright colours of flowers, decorate my r
 
 My father works in healthcare as a nurse and my mom is a 911 operator, which means long hours for them and me spending time alone in our house. It is not a large house, but it is not tiny either. I know every corner of the house and move around the house as if I’m not visually impaired.   
 
-When I was around the age of 21 (I am not 23) I was diagnosed with glaucoma. It took around a year for me to go almost completely blind but I have learned to live with it. I work in education and I am still able to teach all of the 7 year old kids in my class. They ask me lots of questions and I don’t mind answering them at all. If anything I enjoy answering those curious little minds. 
+When I was around the age of 21 (I am now 23) I was diagnosed with glaucoma. It took around a year for me to go almost completely blind but I have learned to live with it. I work in education and I am still able to teach all of the 7 year old kids in my class. They ask me lots of questions and I don’t mind answering them at all. If anything I enjoy answering those curious little minds. 
   
 The following happened in summer break, my parents were both working a late night shift and I was hanging out with my friend, Tiara. Usually when she comes over, she stays for a long time. She is like the only person I can tolerate for more then 24 hours. If you know, you know.   
 
@@ -16,7 +16,7 @@ I waved it off as being a squirrel, and went back to listening my podcast while 
 
 About 2 minutes later my phone chimed again, and again the voice said that there was a person detected in the backyard. I turned my podcast off and listened, hoping I would hear footsteps or anything. I asked Siri my battery percentage, and when he mentioned it is 40% I was slightly relieved. Phone in my hand, I made my way to the back glass window, listening closely, but not being able to see anything in the pitch dark. The lights of the living room reflecting.  
  
-I leaned my ear against the glass, hoping to hear anything. That was I heard a soft breath hitting the glass. I gasped and jumped back. I must be imagining things. The phone chimed again, the voice mentioning a person in the backyard again. I felt a chill run down my spine.   
+I leaned my ear against the glass, hoping to hear anything. That was when I heard a soft breath hitting the glass. I gasped and jumped back. I must be imagining things. The phone chimed again, the voice mentioning a person in the backyard again. I felt a chill run down my spine.   
 
 I tried to look, hoping I might see something, someone. For the first time since my blindness, I cursed my lack of sight. I cupped my hands against the glass, looking.   
 Someone was looking straight back at me. The reflection of the living room lights lit up the whites of his eyes. I screamed and fell back down. I grabbed my phone, calling 911 immediately. The door wriggled and I heard my breathing quicken.   
@@ -25,10 +25,11 @@ Someone was looking straight back at me. The reflection of the living room light
 
 ‘Mom there is someone in the backyard, trying to break into the house.’ My voice was shaking and I felt tears streaming down my face. There was a few seconds of silence, which honestly felt like minutes.
   
-‘Honey, I got the police send to our place, can you hide?’ She asks in a calm voice.   
+‘Honey, I got the police send to our place, can you hide?’ She asked in a calm voice.   
 ‘Yes, Yes I try.’ I swallowed the lump in my throat and got up. The lights cut off. Shit.   
 
 ‘Mom-‘ I cried, now completely blind and scared for my life.   
+
 ‘What happened honey keep talking.’ She said, I heard panic in her voice but she tried to hide it. I reached for my air pods and after seconds of panicked searching I found them. I put one in my ear and put my phone down the front of my pants. Now I had my hands free to feel around. It was like I completely forgot what our house looked like.   
 
 ‘The light turned off, I can’t see anything mommy.’ I said. I remember trying to open my eyes, in hope that I could see more if I opened them wide enough.
