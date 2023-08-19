@@ -216,9 +216,13 @@ I was starting to feel panicked.
 
 Sam took a step backwards, stepping on a cracked floor tile and he fell through the floor.
 
-And I'm not talking about the tile collapsing and forming a big, Sam-sized hole in the ground. It just looked like Sam no-clipped through the floor. Like his body was in the ground from the neck down.Luckily, he held onto a non-cracked tile and Avery pulled him up.
+And I'm not talking about the tile collapsing and forming a big, Sam-sized hole in the ground. It just looked like Sam no-clipped through the floor. Like his body was in the ground from the neck down.
 
-He said he felt "a bunch of smooth pieces of paper" on the other side.Right after Sam stood up, everyone in our group recieved a text message.
+Luckily, he held onto a non-cracked tile and Avery pulled him up.
+
+He said he felt "a bunch of smooth pieces of paper" on the other side.
+
+Right after Sam stood up, everyone in our group recieved a text message.
 
 "*RULE 1: Stay away from the cracked floor tiles. You don't wanna find out what's on the other side.If you see pale, thin hands appear from one of them, run. If you see a human hand, grab it and pull it up. Unless that hand has a blue rose tattoo on it. If you pulled Matthew out of wherever the hell he's been, may God help you.*"
 
