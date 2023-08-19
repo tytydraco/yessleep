@@ -106,7 +106,7 @@ So, we were on an expedition – far from our fortified compound – scavenging 
 
 So, there we were, my companions and me, stepping into this place, the walls of the building overgrown with vegetation, almost surreal looking, albeit slightly unnerving. As I followed them inside, this rancid smell pierced my nostrils, it was unlike anything I have ever smelt before, I swear, it vapourised my fucking nose hairs. Imagine that funky and rotten smell of old meat, add in some spoiled sardines, with the sickly smell of something sweet hitting the back of your throat, that's the best way I could describe it.
 
-I gagged as I felt a feeling of unease crept over me, I vividly remember the hairs on the back of my neck raising, a small chill running up my spine. It was as if some primal instinct deep within me was screaming, "Get the fuck out of here." But you know how it is – curiosity and desperation have their own way of winning over your instincts.
+I gagged as I felt a feeling of unease creeping over me, I vividly remember the hairs on the back of my neck raising, a small chill running up my spine. It was as if some primal instinct deep within me was screaming, "Get the fuck out of here." But you know how it is – curiosity and desperation have their own way of winning over your instincts.
 
 &#x200B;
 
