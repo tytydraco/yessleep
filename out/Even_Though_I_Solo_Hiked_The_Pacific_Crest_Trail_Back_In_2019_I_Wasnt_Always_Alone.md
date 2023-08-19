@@ -14,9 +14,9 @@ Anyway, it was my 53rd day on the trail when I finally reached the famous Kenned
 
 I decided to rest up there for a few days (Zero days) before heading back onto the trail again.
 
-Several days later I felt invigorated and was back on the trail.
+Several days later I felt invigorated and was back on the trail again.
 
-About a week after leaving Kennedy Meadows, inexplicable things began to happen to me.
+It was about a week after leaving Kennedy Meadows when inexplicable things began to happen to me.
 
 It was around Yosemite National Park when I noticed I was being followed.
 

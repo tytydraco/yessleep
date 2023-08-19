@@ -164,7 +164,9 @@ Sam turned to Avery.
 
 **JACK:** Well, you've got the damn ghosts. That's some proper protection for ya.
 
-**ME:** I guess you're right.Jack pried open the automatic door with his bare hands.
+**ME:** I guess you're right.
+
+Jack pried open the automatic door with his bare hands.
 
 A large cloud of dust flew out, causing him to cough.
 
@@ -224,7 +226,7 @@ He said he felt "a bunch of smooth pieces of paper" on the other side.
 
 Right after Sam stood up, everyone in our group recieved a text message.
 
-"*RULE 1: Stay away from the cracked floor tiles. You don't wanna find out what's on the other side.If you see pale, thin hands appear from one of them, run. If you see a human hand, grab it and pull it up. Unless that hand has a blue rose tattoo on it. If you pulled Matthew out of wherever the hell he's been, may God help you.*"
+"*RULE 1: Stay away from the cracked floor tiles. You don't wanna find out what's on the other side. If you see pale, thin hands appear from one of them, run. If you see a human hand, grab it and pull it up. Unless that hand has a blue rose tattoo on it. If you pulled Matthew out of wherever the hell he's been, may God help you.*"
 
 I tried calling the phone number of the sender but, again, there was just static on the other end.
 
