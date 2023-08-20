@@ -103,7 +103,7 @@ If the man in black was being serious, I wasn't going to see my Dad for a long t
 The sphere then displayed my Dad's eye. The pupil was small and the eye itself was teary. The pupil moved up and around, with the eye itself barely ever blinking. I couldn't think at all with how depressing and creepy this was. I was frozen. I wasn't doing anything inside the garage anymore in case this shit would ever end up happening to me.
 
 
-A moment later, six soldiers arrived and attached ropes to the sphere's base. Tugging the ropes, they hauled it out of the tent. The pupil remained pointed in my direction as the sphere itself was tugged across the grassy yard. I didn't want to see my Dad in this condition at all. Especially if it was the last condition I'd see him in for a while. I pulled out my phone and put on his favorite song, "Shadows" by Slow Pulp, and played it on near-full volume as he was tugged away. I followed him, watching his tears build.
+A moment later, six soldiers arrived and attached ropes to the sphere's base. Tugging the ropes, they hauled it out of the tent. The pupil remained pointed in my direction as the sphere itself was tugged across the grassy yard. I didn't want to see my Dad in this condition at all. Especially if it was the last condition I'd see him in for a while. I pulled out my phone and put on his favorite song, "Shadow" by Slow Pulp, and played it on near-full volume as he was tugged away. I followed him, watching his tears build.
 
 
 A few feet away from a flatbed truck, one of the soldiers ordered me to step back. I watched from afar as the soldiers placed the sphere onto the truck, then placed two layers of tarp over it. Then they drove off... disappearing into the night with my Dad.
