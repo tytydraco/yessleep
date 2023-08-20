@@ -202,7 +202,9 @@ He was right. The entrance that we just walked through was replaced with a brick
 
 **AVERY:** You brought your phone with you, right, Josh? You should probably call 911. This isn't... normal, you know?
 
-**HAILEY:** You signed up for a ghost-hunting session and now you're bitching about things not being normal. I swear to God, I'm working with actual toddlers at this point.I tried to call 911, but again, nothing but loud, obnoxious static. I felt like it was taunting me. Mocking me
+**HAILEY:** You signed up for a ghost-hunting session and now you're bitching about things not being normal. I swear to God, I'm working with actual toddlers at this point.
+
+I tried to call 911, but again, nothing but loud, obnoxious static. I felt like it was taunting me. Mocking me
 
 .**ME:** Are we trapped here?
 
