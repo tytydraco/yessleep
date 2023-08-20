@@ -66,7 +66,7 @@ Damn, this guy's even douchier than I thought.
 
 **JACK:** Nice to meet you, bud. I'm sure we'll get along just fine.
 
-**ME:** So, what exactly is this group?
+**ME:** So, what exactly is your group and what do you do?
 
 **JACK:** We go to an abandoned place, find somethin' scary, collect evidence and scram. Simple as that.
 

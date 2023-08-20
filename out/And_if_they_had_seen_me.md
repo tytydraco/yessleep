@@ -1,0 +1,15 @@
+Hello, today I'm going to share with you a chilling story that happened to me and my cousin. We were in 2018, at my uncle and aunt's house, in a two-story home adjacent to 4-5 other houses. At the time, I was just 11 years old and my cousin was 9. The house layout featured a front door on the first floor that opened directly into the living room and kitchen.
+
+On that night, it was around 11 PM, and everyone was sleeping peacefully except for my cousin and me. Earlier, as we were getting ready to go to bed, we heard the soft sound of a car parking nearby. However, in the innocence of the moment, we didn't pay it much attention.
+
+About 20 minutes later, the car's engine roared to life again, and it drove away. Little did we know, this marked just the beginning of a memorable night. In the early hours of the morning, around 4 to 5 AM, my grandfather went fishing. His movements woke me up, and as I regained my senses, I realized he might have forgotten to lock the front door behind him.
+
+I went to use the bathroom (there were bathrooms on both floors), and suddenly I heard strange sounds coming from downstairs. Perplexed, I stopped to listen. However, my grandfather had left a while ago; the only plausible conclusion was that someone else was in the house. I quickly woke up my cousin and asked if he heard what I heard: footsteps and muffled whispers seeming to come from the lower floor. To my surprise (or perhaps consternation), he confirmed hearing these unsettling sounds too.
+
+We decided to summon our courage to investigate. With trembling legs, I approached the stairs. (It's worth noting that the stairs were right next to the bedroom.) Peering down, I was met with a shocking sight: two figures dressed in black, lurking around the living room. The truth hit me like a bolt of lightning—they were intruders, burglars who had entered our home under the cover of the night. Fear rooted me in place. My body was frozen, and for a moment, I couldn't even gather the strength to move.
+
+Eventually, I managed to retreat to my room, my mind consumed by panic and confusion. I shared this distressing discovery with my cousin, and together, we battled the overwhelming fear of confronting these unwanted guests. Regrettably, our young hearts couldn't muster the courage needed to leave our sanctuary and alert our uncle and aunt.
+
+The dawn brought a troubling realization as we woke up in a house transformed by the darkness of theft. The burglars had indeed targeted us, leaving behind stolen handbags and wallets, along with a lingering sense of vulnerability. Over time, the shock faded, but the memory remained etched in my mind, haunted by a single, nagging question: What if they had seen me on the stairs?
+
+In hindsight, that night forever altered my perception of security, serving as a chilling reminder that danger can sometimes infiltrate even the most familiar places.
