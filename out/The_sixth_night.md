@@ -22,17 +22,17 @@ What a never ending day, I’m exhausted. We came back home like an hour ago. We
 
 Before leaving, Marie talked about the package again. I completely forgot about that. She led me to the attic, and she gave me a painting hidden under white sheets, and a letter. I wanted to look under the sheets, but Marie stopped me. Apparently, Freddy makes her swear to never look under it. This day was growing more peculiar.
 
-The first thing I did when I came home, was to look at the painting. It represents a very strange creature, half-human, half-goat. It was seating on a chair, it has hairy paws and hoofs, the chest and arms were human, same for the face, except for the fact that there were two horns on top of it. The strangest thing is that the creature had closed eyes.
+The first thing I did when I came home, was to look at the painting. It represents a very strange creature, half-human, half-goat. It was sitting on a chair, it has hairy paws and hoofs, the chest and arms were human, same for the face, except for the fact that there were two horns on top of it. The strangest thing is that the creature had closed eyes.
 
 I’m running out of energy to think for tonight, I’m exhausted, I’m going to bed.
 
 **Sunday, August 13th, 2023 - 5 : 15 PM**
 
-I haven’t slept that much last night, I got a lot of nightmares. This morning, when I woke up, all my thoughts were about my brother, I got really sad. I sneaked out the bedroom to not awake Annie and I met Charly who was already eating breakfast. I sat and ate with him in silence.
+I haven’t slept that much last night, I had a lot of nightmares. This morning, when I woke up, all my thoughts were about my brother, I got really sad. I sneaked out the bedroom to not awake Annie and I met Charly who was already eating breakfast. I sat and ate with him in silence.
 
-When I went to the loo, I passed by my office and saw my brother’s painting. I've forgotten about it, to be honest. With everything that happened last night, I wasn’t thinking about it. So, I went to my office and I had noticed that something was wrong. The painting was different. Today, the eye’s creature were open. This look seemed to be familiar to me, I can’t explain why, it’s like we already knew each other.
+When I went to the loo, I passed by my office and saw my brother’s painting. I had forgotten about it, to be honest. With everything that happened last night, I wasn’t thinking about it. So, I went to my office and noticed that something was wrong. The painting was different. Today, the creature's eyes were open. This look seemed to be familiar to me, I can’t explain why, it’s like we already knew each other.
 
-Oh God, I just got goosebumps when while writing this…
+Oh God, I got goosebumps just by writing this…
 
 I’ve just decided to put back the sheets, I’ll get rid of the painting eventually.
 
@@ -40,7 +40,7 @@ I’ve just decided to put back the sheets, I’ll get rid of the painting event
 
 I haven’t slept last night again, it was impossible.
 
-When I went downstairs to drink some water, I got stopped by some noises coming from the office. Oh God, I can’t believe I’m writing this, but I swear, I’ve heard hoofs walking around the house. I was dreaming, there is no other possibilities.
+When I went downstairs to drink some water, I got stopped by some noises coming from the office. Oh God, I can’t believe I’m writing this, but I swear, I heard hoofs walking around the house. I was dreaming, there is no other possibilities.
 
 I got brave enough and went to the office to take off the sheets of the painting. The creature was still there, with its familiar look. It looks like it could see through me. And then nothing, complete void.
 
@@ -50,7 +50,7 @@ I woke up an hour later, still in the office, it must have been a dream. The hal
 
 Earlier today, I remembered that my brother left me a letter with the painting ? How I could forget that ?
 
-In his letter, he explained where he got the painting and why he bought it. My brother is a connoisseur of mysterious objects, so when he learnt the existence of a cursed painting to sell to auction, he did everything to get it. According to the seller, this very old painting brings luck and fortune to anyone who posses it for at least six nights. So, to get all of that, you have to live with it for six nights. My brother never really believed it, but couldn’t resist adding it to his collection.
+In his letter, he explained where he got the painting and why he bought it. My brother is a connoisseur of mysterious objects, so when he learned the existence of a cursed painting to be sold at auction, he did everything to get it. According to the seller, this very old painting brings luck and fortune to anyone who owns it for at least six nights. So, to get all of that, you have to live with it for six nights. My brother never really believed it, but couldn’t resist adding it to his collection.
 
 In his letter, he talks about the reason of his suicide. I was in shock, he preferred to end his life rather than spending one more night with the painting. I don’t understand, he could have just thrown it away, destroyed it or burnt it. Instead of that, he sent it to me to spare Marie and he was counting on me to find a solution.
 
@@ -58,7 +58,7 @@ I don’t know what to think about it, my brother must have lost his mind in his
 
 **Tuesday, August 15th, 2023 - 5 : 30 AM**
 
-I can’t sleep again, I consistently perceive sounds, but this time, all over the house. I also feel like I’m being watched. Not only that, but I’ve talked to Annie about that and she didn’t hear anything, she must think I’m losing my mind. It must be a hallucination due to the lack of sleeping. My brother’s death affect me more than I thought it would.
+I can’t sleep again, I consistently perceive sounds, but this time, all over the house. I also feel like I’m being watched. Not only that, but I’ve talked to Annie about that and she didn’t hear anything, she must think I’m losing my mind. It must be a hallucination due to the lack of sleeping. My brother’s death is affecting me more than I thought it would.
 
 I’m also thinking about that painting, I will get rid of it, I haven't slept for three days now.
 
@@ -68,17 +68,17 @@ I’m feeling so much better. This afternoon, I have bought sleeping tablets and
 
 **Wednesday, August 16th, 2023 - 3 : 30 AM**
 
-Oh God, something just happened, and I don’t know if it’s a good thing to write it down. If somebody read this, they will think I’m mental. But I have to write, I have to put on paper just to see how crazy that was.
+Oh God, something just happened, and I don’t know if it’s a good thing to write it down. If somebody reads this, they will think I’m mental. But I have to write, I have to put on paper just to see how crazy that was.
 
-I was finally asleep, but I felt like I was being watched, it woke me up. My eyes were wide open and I saw the human-goat at the end of my bed with a knife in its hand. It was saying on repeat, “ Kill them ”. My loud screams were enough to wake Annie up. Then, the human-goat disappeared.  I thought I had a nightmare, so I went downstairs and I saw it. The painting was in my living-room, how is this possible ? I have burnt the shit out of this painting. I went upstairs to ask Annie about that. She confirmed that I went into the backyard, but that I stand still for thirty minutes, and that I insisted on hanging the painting on the living-room wall.
+I was finally asleep, but I felt like I was being watched, it woke me up. My eyes were wide open and I saw the human-goat at the end of my bed with a knife in its hand. It was saying on repeat, “ Kill them ”. My loud screams were enough to wake Annie up. Then, the human-goat disappeared.  I thought I had a nightmare, so I went downstairs and I saw it. The painting was in my living-room, how is this possible ? I have burnt the shit out of this painting. I went upstairs to ask Annie about that. She confirmed that I went into the backyard, but that I stood still for half an hour, and that I insisted on hanging the painting on the living-room wall.
 
-I’m wondering if that a joke for Annie. Why is she doing this ? After everything that happened.
+I'm starting to wonder if that was a bad joke from Annie. Why is she doing this ? After everything that happened.
 
 I need to get my shit back together, the funeral is planned for tomorrow.
 
 **Wednesday, August 16th, 2023 - 9 : 00 PM**
 
-Today was long, the funeral was unbearable. I felt like it was there all the time, it’s getting closer and closer. But, what got me mad was my wife, she was faking tears, so she got all the attention. She didn’t know my brother like I did and she dared doing that in front of my entire family. I had to control my anger during the ceremonies.
+Today was long, the funeral was unbearable. I felt like it was there all the time, it’s getting closer and closer. But, what got me mad was my wife, she was faking tears, so she got all the attention. She didn’t know my brother like I did and she had the nerve to do that in front of my entire family. I had to control my anger during the ceremonies.
 
 I’m going to bed right now, I hope I will be able to finally sleep.
 
