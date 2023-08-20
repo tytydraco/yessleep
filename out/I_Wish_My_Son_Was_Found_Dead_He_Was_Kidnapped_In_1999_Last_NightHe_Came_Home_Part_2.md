@@ -117,3 +117,7 @@ We got to the car, put it into gear, and peeled out of the parking lot.
 “Dad, you need to turn yourself in before more people get hurt.” Levi said through a fit of tears.
 
 “It’s ok buddy. Everything is going to be alright. That man tried to hurt you. I’m never going to let anyone hurt you again.”
+
+&#x200B;
+
+[Part 3-Final](https://www.reddit.com/r/nosleep/comments/15amde9/i_wish_my_son_was_found_dead_he_was_kidnapped_in/)

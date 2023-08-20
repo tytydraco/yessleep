@@ -54,7 +54,7 @@ I stared at her as she laughed, a pit of dread forming in the bottom of my stoma
 
 “You know. How us Sampsons have the parasitic crabs Ka’til living in our brains. And how we have to spread it to anyone who officially enters the family. So on your wedding night, you apply this sticky stuff to your lips, make a perfect seal against his mouth, and let some of your crabs crawl into him. He’ll be in pain, but it’s a necessary evil, you know. I did it with your father, and my father did it with my mother… et cetera.” Her lips stretched into a grin. “It’s a tradition as old as time.”
 
-I stood there, absolutely frozen.
+I stood there, absolutely frozen. My heart pounding in my chest. Feeling the world tilt away from me.
 
 Then I raced out of the room.
 
