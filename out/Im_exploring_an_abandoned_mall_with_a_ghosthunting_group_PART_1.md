@@ -80,7 +80,7 @@ I tried to hide my sarcasm and smiled.
 
 **JACK:** That's Sam.Jack pulled Sam aside. I don't think anyone else saw this.
 
-**JACK:** C'mon, Sammy, ya gotta show a little more... enthusiasm, a bit more pazazz, got it?
+**JACK:** C'mon, Sammy, ya gotta show a little more... enthusiasm, a bit more pizazz, got it?
 
 **SAM:** Sorry, I'm just a bit tired. Ghost-hunting for 7 hours straight is a bit tiring, isn't it, boss? Hahahah...
 
@@ -236,4 +236,4 @@ I tried calling the phone number of the sender but, again, there was just static
 
 What if there wasn't an exit? What if we were trapped in here forever? And all I wanted was just to have a break from the mundane monotony of life. And now I've doomed both me and my friend. I shouldn't have dragged her into this mess. I should've never clicked on that advert, should've never talked to anyone about it. But I did, and now we're trapped in this never-ending nightmare.
 
-We've been here for the past 6 hours. We have enough supplies to last 3 more days, although we could steal some non-perishables from one of the department stores. I don't know what to do. I need any help I can get.
+We've been here for the past 6 hours. We have enough supplies to last 3 more days, although we could steal some non-perishables from one of the department stores. I don't know what to do. [I need any help I can get.](https://www.reddit.com/r/nosleep/comments/15wek5u/im_exploring_an_abandoned_mall_with_a/)
