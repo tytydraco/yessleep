@@ -1,4 +1,4 @@
-I've been trying to piece all of this together for a while now, but I haven't really known how until recently. So here’s the thing: I’ve been living in a hotel for the supernatural. Eternal Oasis saved my life, but it also awakened an awareness in me that still terrifies me. If you don’t believe in the supernatural, you will now.
+I've been trying to piece all of this together for a while now, but I haven't really known how until recently. So here’s the thing: I’ve been living in a hotel for the supernatural. Eternal Oasis saved my life, but it also awakened an awareness in me that still terrifies me to this day. If you don’t believe in the supernatural, you will now.
 
 This started with one too many night terrors and a notice to vacate. I was never very good at sleeping. I know how that sounds, but just stick with me for a moment. Ever since I was little, I’d wake in the middle of the night, covered in a thin sheen of sweat, my gut twisted into knots.
 

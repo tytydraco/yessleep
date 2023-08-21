@@ -100,7 +100,7 @@ Baffled, I just responded with "He wasn't happy to see me".
 
 Our conversation was short lived as he had some errands to run but before he ended the call he told me one last thing; "Don't Think I Don't Know About That Book You Have".
 
-What was he trying to tell me? That he wanted the book? Or did he know I stole it from Henry? Or...he knew because he is some clone of the key or something? 
+What was he trying to tell me? That he wanted the book? Or did he know I stole it from Henry? Or...he knew because he is some clone of the key or something?
 
 I looked at the book again, What if everything about these crazy things are in the book? I Could solve all of this easily if...no....I won't open it. I can't. But I can't just sit here blind.
 
@@ -131,3 +131,5 @@ The Key Has given me useless information too, I asked for any way to stop the te
 Emily Should Be Here Tomorrow... Maybe she could help me pay to get the stupid key out of my arm. If the key is this annoying when in my arm, I'm scared to know how bad it would have been if it managed to get to my head.
 
 I'll Try and get back to you all sooner or later...
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/15xkzyj/i_stole_a_book_from_one_of_my_clientsits_taken/)

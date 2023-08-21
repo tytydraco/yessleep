@@ -261,3 +261,5 @@ And now I’ve got Lady Blood(Hound) from Hell on my heels. But this jackal has 
 And that’s why I’m posting here. I’ve got a pretty unusual problem, gonna need a pretty unusual solution. So… how do I escape? How do I make it out alive for seven more days? There are no bad ideas here, folks. And I’ll pay back anyone whose plan keeps me alive, with whatever money I have left. So please. Please, please, please.
 
 For God’s sake, [help me.](https://www.reddit.com/r/QuincyLee/comments/11nxwz3/welcome_thanks_so_much_for_stopping_by/)
+
+[UPDATE!](https://www.reddit.com/r/nosleep/comments/15xkgi5/i_have_a_million_dollars_and_five_days_to_live/?sort=new)
