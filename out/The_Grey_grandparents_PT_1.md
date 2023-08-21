@@ -1,4 +1,4 @@
-Emerald's pov:
+Hi, my name is Emerald, and this is my story. This all happened about a year ago.
 
 One day I was up in bed scrolling on TikTok and I stumbled across this livestream of a guy exploring an abandoned farm. As he passed by the barn, I immediately recognized that this is my dead grandparents' place.
 
@@ -14,18 +14,14 @@ After 20 minutes of driving, I get to Johnathan's place and pick up Poppy on the
 
 Poppy says, "We have one last thing to make their souls rest." I complete her sentence by saying "Preforming an exorcism." Poppy says "We've tried cutting them, taking out their eyes, even holy water. This is the last resort and I thought we would never use it." I say, "Well looks like we are."
 
-&#x200B;
-
-Poppy's pov:
-
-I was chilling at my friend Johnathan's place when my sister Emerald called and told me to get my things and leave. At first, I found it quite strange she wanted me to leave, but as we drove, she told me what happened, and I was horrified. I had thought the last time me and Em went out there was the last but turns out it's not. When we got to the farm, I asked Em "Do we have what we need?" and she responded with "Yes." A simple one-word answer. That scared me. As we dug up the graves and waited on the exorcist, I remembered the time we brought a medium in, to assess the situation. When we got to the gate the medium said, "I'm not going any further I'm sorry. There is too much energy here and it's not good." Which confirmed me and Em's suspicions that our grandparents went over to the dark side. The exorcist came to the lace just as we finished digging up the graves. The pastor said, "Perfect girls let's get this over with, shall we?" As the pastor exorcised our grandparents something about the whole place changed it was a bit less dark somehow...
+As we pulled into the place the air seemed.... colder and heavier somehow. But I just shook my head saying to myself that once we exorcise our grandparents it will be back to normal. Oh, how I was wrong. As me and Poppy dig up the graves, I remembered the time we brought a medium in and how at the gate she turned around and said "There is an extremely dark presence here. I won't go any further." When the graves were fully dug up the exorcist had pulled into the place. He said, "Let's rest these souls once and for all shall we, Girls?" Poppy and I replied in unison "Yes, Sir we would like these souls to finally rest." When the exorcism was over the air seemed a small amount warmer and a little less heavy.
 
 &#x200B;
 
-Emerald's pov:
+On the drive home Poppy asked me "Em is it gonna be alright?" In a shaky voice I say, "I think so Poppy." As we drove home, I didn't see a stop sign and we almost had a crash. When that was happening, I saw two ghosts. Our grandparents. I had thought we got rid of them once and for all, as their voids for eyes stared straight into my soul, I felt true fear. The kind that raises the hairs on your neck, slows down time, and makes you feel so helpless that you just freeze up. But as I was about to crash into the semi something pulled me out of the trance, they had put me into and I swerved just in time, Saving me and Poppy from death that night. But it wasn't quite over yet, as the paranormal events have kept happening. I will post more updates as this story goes along but for now, stay safe and stay away from Wyoming at all costs, as the Grey Grandparents might come along and ruin your life.   
 
-It's finally over...  
+&#x200B;
 
-to be continued...
+&#x200B;
 
 &#x200B;
