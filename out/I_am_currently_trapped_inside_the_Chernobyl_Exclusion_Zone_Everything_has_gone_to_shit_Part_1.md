@@ -196,7 +196,7 @@ I should probably wrap this mess of an entry/message up. Captain Petrov is proba
 
 Also, The rain's still coming down, the mud's still clinging to my boots, and my PDA is about to die.
 
-If you're reading this, whoever or whatever you are, I hope this message reaches you. Maybe you'll be able to make sense of this mess, or maybe you'll be just as baffled as I am. Either way, if there's any way to get in touch with the outside world, I'll fucking take that chance and do my best to try and respond if anything does come through.
+If you're reading this, whoever or wherever you are, I hope this message reaches you. Maybe you'll be able to make sense of this mess, or maybe you'll be just as baffled as I am. Either way, if there's any way to get in touch with the outside world, I'll fucking take that chance and do my best to try and respond if anything does come through.
 
 For now, I'm stuck in this twisted nightmare, in a place where reality itself seems to warp and crumble. I'm not sure what lies ahead, but I'm holding onto whatever shreds of sanity I have left. If you're out there, stay safe. And if you're not, well, I'm not sure what else to say.
 
