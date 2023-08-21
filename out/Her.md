@@ -1,71 +1,198 @@
-I’ve never been one to engage in gossip, it felt pointless. My school isn’t abnormally large; it would take days to catch up on gossip from just a week, so I just never payed attention. But, some rumors stick around for so long it’s inevitable to know the story.  At some point it’s not gossip, it’s common sense.  It’s a story everyone who goes to my school knows, though anyone outside of the district would see it as silly gossip… but it’s not. It’s a gut feeling, something that has no real proof, nothing but the alarms in your head yelling at you to believe the eerie words spoken about her. To stay away from her.
+“So, what’s keeping you up at night?” said the sleep therapist.
 
-Her name was Maeve. She was quiet and timid, she never spoke in class and always kept her head down. No one even believes she had lived here before 8th grade, even if her transcript says otherwise. She was in my math class freshman year and only spoke loud enough for the teacher to hear, having chosen the seat closest to their desk.  I don’t think I had actually heard her voice until a week before the end of that year. She wasn’t well known and didn’t have many friends, but she had some.  She sat in a corner of the school courtyard with a few other students, occasionally the others would come and go but she never sat in another place. Her entire persona was unnerving unmoving.
+  
+I don’t want to admit it. I tried everything to avoid the obstacle. Melatonin pills and gummies. Herbal teas that promised to put you to sleep in an hour. Hell, I even followed those hardcore sleeping schedules. Put your phone away one hour before sleep, turn off all artificial light one hour before sleep, don’t eat before bed, and read a book to sleep. I can’t even read! But I still tried.
 
-No one really payed attention to her until a few days before fall break.  At first, people were saying that she spoke in class and actually had a full on conversation loud enough for people to hear. The only reason people really cared was because of how worked up others were over it.  How her voice was as ‘sweet as honey’… melodic like a piano ballad. Their eyes almost white.  It was all anyone could talk about for the rest of the day.  People searched for her, wanting to hear her voice for themselves.  But, it seemed as though she disappeared.
+  
+None of it worked.
 
-One of the students who was present to hear her that day had broke up with his girlfriend. Two others kept jabbering about it, and another actually tried to ask her out. People joked that she had hypnotized them with her voice, but that’s all it was, a joke. that’s what we told ourselves. Still, I kept my distance; something about her was off.
+  
+It would be the same story over and over again. Toss and turn. Shut my eyes and see her face. Toss and turn again. Shut my eyes and images of our time together flashing through my mind like a slideshow. Jolt up out of bed and think I see her in the shadows of my room. Flick on the light switch and disappointment washes over me like a tsunami. Only to start from the beginning over and over.
 
-Then the next day was met with two more break-ups, and a rather large bouquet of flowers crudely stuffed in her desk. 
+  
+“...Nightmares, I guess.” I managed to stammer. I looked up at my new sleep therapist, who noticed I was daydreaming. “Sorry, I tend to… Well, uh, yeah.”
 
-The female students started theorizing that it was just some dumb superiority complex, and the guys were attempting to stake claim now that she was the ‘hot topic’.  I couldn’t help but notice how she had crawled back into her shell. But, what I hadn’t noticed was how far she had come… until she was back to looking like a broken doll, trying to hold itself together.  The hairs on the back of my neck stood up as I watched her. The way she walked, the way she carried herself, just didn’t feel right.  A lump formed in my throat, a pounding in my head screaming at me to get away look away.
+  
+Her blue eyes seemed to stare deep into my soul. Those eyes analyzed every little movement I did—some I wasn’t even conscious of. They focused on my fidgeting fingers, then at my bouncing legs. As she noticed my fidgeting, I stopped doing it.
 
-People started to pity her; unsolicited affection can only be handled to a certain extent.  Her boundaries were more than likely more sensitive than normal. Everyone held a sense of protectiveness over her, giving the courters a hard time. Things eventually died down and when fall break started, the whole ordeal was largely disregarded.  That was until two boys were arrested for harassment, along with breaking and entering.  They were identified as Sebastian and Tristan, two students who were in Maeve’s presence, who heard her speak. The trial was relatively quick, both had restraining orders and 7 months in juvie. 
+She leaned forward, the brown leather couch squeaking, and grabbed a coffee mug from her side of the table.
 
-It was startling, but it could never prepare the school for what was about to go down. The night they were meant to be carted off to juvie, they broke out, beelining for Maeve’s house.  That’s where the others were camping out to “protect her.”
+  
+“It’s only normal,” she said, “for those who’ve gone without sleep for so long to lose themselves in daydreams.” She wrapped her red lips around the cup and sipped. “Some say repeated nightmares may be your subconscious self telling you something. Maybe unfinished business? Others say they’re a way to relieve stress and anxiety from your mind. So tell me, Xander, what do you see in these nightmares?"
 
-3 people died that night.  Tristan and Sebastian themselves were amongst the dead, the third being a student by the name of Andrew.  Tristan was beaten to death, while Sebastian and Andrew were shot. The three other male students were arrested and put on trial.
+  
+“I-I see my fiance.”
 
-When school started back up, we were divided.  Some saw her as an omen of death, or perhaps a siren, hypnotizing men with her voice.  Others thought she was a victim, being aggressively pursued only to be harassed and have three boys die on your front lawn. Maeve kept her head down for the rest of the year. I could breath again.
+  
+“What is your fiance doing?”
 
-Students then started to bully her, slipping crude notes into her locker, calling her names, and threatening her to never speak to their boyfriends or crushes. Some people comforted and stood up for her, but she never spoke. The teachers never called on her and she eventually just faded back into the background, whispers and rumors being the only thing that kept her name alive. 
+  
+“She… She does many stuff.” I avoided eye contact, my eyes darting back and forth. “It starts sweet. I see her and I at our highest. The moments I cherished, you know? And then-”
 
-Then, Sam started to follow her around. He just trailed behind her as close as possible. No matter how fast she walked or where she went, he was there. She never spoke up about it, and he never touched her.  There was nothing anyone could do about it not that anyone wanted to.   It went on for weeks, just trailing behind, eyes locked on her as if she was the only thing that existed in his world.  People started to trade rumors again; how far would this go? When would things start to go wrong? 
+  
+“Tell me a few of those moments,” she said, setting the coffee mug down and sitting back in her seat.
 
-The next thing we knew, search parties were sent out for Sam, he just… disappeared. No trace, no leads, nothing.  We all knew it, but there was nothing we could say that would be taken seriously. Maeve started showing up with more bruises that week.
+  
+“Oh, you know, sexual stuff.” I scratched the back of my head.
 
-Three months ago, a boy committed suicide. His letter was simply a confession to Maeve, telling her how madly in love he was with her, and how he couldn’t live if she didn’t love him back. The school tried to keep it under wraps, not wanting the backlash that Maeve would inevitably receive to get out of hand.  But, there was no use, she’d walk into class with bruises and cuts, black eyes and swollen lips. People said she deserved it, others said it was good that she couldn’t seduce anyone else.  Some even pitied her.
+  
+“Are those the only cherishable moments, Xander?”
 
-I didn’t think any of that, god, I was scared, all I did was stare and wonder why she would let it happen. Why she didn’t just move away or defend herself.  I couldn’t help my curiosity. 
+  
+“No-no, of course not. They’re just the first that came to mind."
 
-It was three days ago when I was running an errand for my teacher and found her wobbling out of the girls bathroom.  Blood running down her knees, fresh cuts and bruising.  I didn’t know what to do, yet I carried her to the nurse’s office and stayed with her until her parents came to pick her up. I felt like I was on autopilot… what was I even thinking?
+  
+“And why is that, Xander?” She leaned forward again, grabbing a notebook from the table and a pencil from her hair bun. As she pulled the pencil out, her straight black hair came cascading down to her shoulders.
 
-I knew I knew I’d get in trouble, but I couldn’t just leave her there. Before she walked out of the nurse’s office, she whispered something to me.  I heard it, but I didn’t understand it until she hesitated, her breathe caught in her throat. She thought for a moment before speaking again.
+  
+“...I-I don’t know. I guess, if I'm being one hundred percent honest, I miss her body. There are other memories I cherish as well, don’t get me wrong. Like that one time we-”
 
-“I’m sorry.”
+  
+“You haven’t seen another woman after her? Is that why you miss her body?”
 
-She was apologizing? It broke my heart how fragile she was. I never understood how people could hurt her, how easily they could just ignore her.  She was… beautiful, she radiated magnificence.
+  
+I stared down at the floor, my Converse were untied. I spoke as I leaned down to tie them. “Of course not. She was the love of my life… Like, this one time we raced through the Mexican beaches barefoot and I tripped over some rocks. That was a great memory. We laughed the whole way back to our hotel-”
 
-I didn’t understand how I was ever scared of her.
+  
+“Look at me, Xander.”
 
-My god, her voice was heavenly. I knew no one else would understand, they all saw her as a monster or someone who needed pity.  I knew better, though.
+  
+Slowly, I looked up at her, tears trickling down my cheek.
 
-No one deserved her, she was something above us all.
+  
+“You’ve seen other women, haven't you?”
 
-She didn’t come to school the next day, I bit my nails and scratched myself in worry.  It more than just bugged me, I needed to make sure she was okay.  I hastily questioned the school nurse on her absence.
+  
+“...I-I haven’t.” 
 
-“Oh? You’re the boy who brought her in yesterday,” she gave a tight smile, her lips pressing into a thin line.  “Her mom called her in sick today.”
+  
+“Xander, those dreams you are getting of her are because you feel shame. Is that correct?”
 
-I felt relieved, but uneasy.
+  
+The tears went from trickling to streaming. “Yes.”
 
-“Um, can I call her house? I just want to check up on her…” that’s all I needed, just another moment to feel closer to her.
+  
+“And this shame stems from having a sexual encounter with another woman. Is that correct?"
 
-The nurse thought for a moment before declining. My throat burned, my head was fuzzy.  I needed to see her.
+  
+“No…” …Images of Abby and I, laughing and having a great time, flashed through my mind. “Fuck! Okay, yes! I had one little one-night stand. I just couldn’t control the desire any longer. And… and I didn’t even fucking finish. I couldn’t. I felt shameful as soon as I stuck it in. Abby’s ghost loomed overhead, watching me with her head shaking from side to side and her arms crossed and…”
 
-I gave a stiff nod and continued on with the day.  I asked around to try and find out what bus she was on, what her stop was.  Until, I remembered a girl who once mentioned Maeve only lived a few doors down from her.  So, I followed her bus to her house. It was easy to spot Maeve’s house.  It had been engrained in my brain ever since it was on the news Sophomore year.
+I buried my face in my palms. Tears seeped through my finger and landed on the hardwood floor.
 
-I could spot her window with ease. It almost felt like fate when I noticed the closest tree was so easily climbable.
+  
+I felt a delicate pat on my shoulder as I shuddered.
 
-And listen… you have to understand.  I know I sound like all those guys who became obsessed with her, but I swear I’m not. I knew her worth, I had wanted to speak to her for so long but was scared.  I just didn’t deserve to speak to her.  No, nobody did.
+  
+“Xander, you said it’s been a little over two years now, no?”
 
-Everyone else held her down, trapped her, undeserving of her presence.
+  
+“Yeah.” I sniveled.
 
-No one else could see it, but I could.  She never deserved to be tortured like that.  So, I’m going to put her out of her misery.
+  
+“Wouldn’t Abby want you to move on?”
 
-I’m doing this for her. 
+  
+“I-I don’t know what she wants anymore. I just see her shaking her head and her face… I can’t even remember her fucking face.”
 
-I’ll be her salvation.
+  
+“Why wouldn’t she want you to move on?” She sat back down across from me. I wiped the tears with my long sleeve. “Is there any other action you did that brings you shame? Maybe this Abby you see is a manifestation of that guilt.”
 
-She won’t need to live like this anymore.
+  
+“I don’t think it's a manifestation. It’s like she is real.”
 
-I’ll be back tomorrow.
+  
+“Xander, is there anything you’re leaving out?”
+
+  
+“I really see her–and no, I’m not crazy. I can see you looking at me as if I’m another one of those crazy people you’d give pills to.”
+
+  
+“Xander, I wasn’t implying that. I genuinely want to help, but you have to talk to me.”
+
+  
+“And that’s another thing. What the hell is talking gonna do? You’re just making things worse. I…” I turned left and saw Abby’s blonde hair peeking from the corner. “Look! Look, there she fucking is!”
+
+  
+The sleep therapist didn’t look. Her eyes stayed locked on me.
+
+  
+“Answer my question, Xander. Is there anything you’re leaving out?”
+
+  
+“No, I already told you, no.”
+
+  
+“After that first sexual encounter, you had another. Didn’t you?”
+
+  
+“Are you a therapist or a fucking detective? No!”
+
+  
+Abby walked forward, hair dangling in front of her face, and stood next to the sleep therapist.
+
+  
+“Then where does this guilt stem from? Abby's ghost wouldn’t just manifest itself to you if you didn’t have anything to hide.” 
+
+  
+“I-I…” Abby’s head cranked to me. The black holes that were her eyes seemed to suck in my soul. “No.. No,” I murmured to myself, “Leave her alone, she is good.”
+
+  
+“Leave who alone, Xander?” She looked at Abby. “Is Abby standing right here, right now?”
+
+  
+“Yes.”
+
+  
+“What is she doing?"
+
+  
+“She’s trying to make me do something that I don’t want to do.”
+
+  
+The sleep therapist’s eyebrow shot up in confusion and she looked at her Apple watch. “How does Abby appear to you now? Describe what she’s wearing and how she looks.”
+
+  
+“She… She looks angry. She’s wearing the clothes she died in.”
+
+  
+The therapist stood up slowly, her eyes wide, and began to walk backwards to the exit. “We-We'll pick this up tomorrow, Xander. Your time is up.”
+
+  
+I looked at the clock and stood up. “Ten minutes early?"
+
+  
+She avoided eye contact. Abby was staring directly at me, nodding her head. “Yeah, I just remembered I have to go pick up my kids… Don’t worry though, I won’t charge you for a full session.”
+
+  
+I inched forward. She placed her hand on the doorknob. Abby vanished.
+
+  
+“Please, stay. I’ll talk. I’ll tell you what I left out.”
+
+  
+She let go of her grip on the doorknob and crossed her arms. “What’d you leave out?”
+
+  
+“Abby… Abby wasn’t real.”
+
+  
+I lunged forward and tackled her on the ground. She squirmed around, reaching to press her Apple watch. I pinned her arms down and looked around for something sharp. As I spotted a plant pot, I felt a set of teeth clamp onto my forearm.
+
+  
+I fell back, gripping my arm and groaning. The therapist stood and grabbed the plant pot I had just set my eyes on. She raised it over her head and yanked it at me.
+
+  
+I twisted my head, the pot just scraping my ears, and exploded off the ground. I tackled her again.
+
+Her head banged off the wall, those blue eyes rolling back. Her body collapsed on the floor, folding over itself, as I let go of my grip.
+
+A pool of blood formed.
+
+  
+“She almost found out,” Abby’s voice called out from behind. “Sooner or later, one of them will find out.”
+
+  
+I turned back, Abby’s dark eyes stopping me dead in my tracks. Her wedding dress was torn from stab marks. The bottom of the dress dipped into the pool of blood like a quill.
+
+  
+“No one, not one person, will find out.”
