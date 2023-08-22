@@ -436,3 +436,6 @@ He smiled at me with those hideously crooked and stained teeth, while my ears we
 And before I could say anything else, he was gone. 
 
 Lazarus had shut down all on its own.
+
+PART TWO
+https://www.reddit.com/r/nosleep/comments/15yhhfl/lazarus_new_ai_app_allows_users_to_speak_with/
