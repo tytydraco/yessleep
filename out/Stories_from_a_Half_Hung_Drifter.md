@@ -26,14 +26,16 @@ I decided to take a rest, morning was soon to break and what I was about to do s
 
 Those things surrounded me. I was done for; I was in and out of consciousness as they dragged me to their nest and hung me. They tied a noose around my neck and pulled me up... I was there hanging for thirty minutes! When they finally cut me down, I was still half awake I acted dead until I saw an opening, I saw one enter into their what I now knew was a nest and they turned to him I ran to the opening and stopped. I'm not stupid, when I saw first one I knew I needed to be prepared especially after what was requested of me. I grabbed the two flashbangs I had pulled from my car the night before and removed the pins before tossing the both of them into the nest. I closed my eyes covered my ears and dropped into a ball to cover my eyes further. I am so glad that civilians can buy flashbangs; I prayed "god I hope this works." When the two went off I came upright. Holy hell did it hurt. I fired all of my rounds from my first magazine and reloaded just to fire my second round of shots. Twenty shots later I limped my way out to find the man that gave me the job. He was sliding down the rope of a helicopter.
 
-Whilst he was sliding down, I yelled out one simple phrase, "you bugged me didn't you" as he landed, he laughed and pulled the bug from my watch. He got the jump on me; this cocksucker got the jump and me. He slid it under my watch when he shook my hand after offering me the job.
+Whilst he was sliding down, I yelled out one simple phrase, "you bugged me didn't you" as he landed, he laughed and pulled the bug from my watch. He got the jump on me; this cocksucker got the jump on me. He slid it under my watch when he shook my hand after offering me the job.
 
 Here would get tricky to write our entire conversation so to sum it up he was surprised that I cleared out this mess so quickly when I was initially just requested to investigate, and we decided there was a "terrorist attack". Afterwards they had they field medics patch me up and we decided I'll continue to live my life the way I want if I deal with the monsters I find wherever I am.
 
 I was allowed to go after a few days in the hospital. I went back to the hotel and picked up my things and filled up my car and got ready to leave.
 
+&#x200B;
+
 I just saw a skeleton with a black cloak in the window of my hotel room when I went to leave...
 
 &#x200B;
 
-Next Post: https://www.reddit.com/r/nosleep/comments/15r228s/stories\_from\_a\_half\_hung\_drifter/?utm\_source=share&utm\_medium=web2x&context=3
+Next Post: [https://www.reddit.com/r/nosleep/comments/15r228s/stories\_from\_a\_half\_hung\_drifter/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/15r228s/stories_from_a_half_hung_drifter/?utm_source=share&utm_medium=web2x&context=3)
