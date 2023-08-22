@@ -147,3 +147,5 @@ On the drive home, I felt like I did something wrong. Only when I arrived back h
 "Rule 9.) By 6 A.M., open the gates of the cemetery and wait for the next security guard to take over. Your shift is not over until the next guard arrives or until it's 8 A.M. Do not leave the cemetery until the next guard arrives or it's 8 A.M."
 
 I checked the time; [It was 6:31 A.M.](https://www.reddit.com/user/_Not_Not_Sag)
+
+[\[Part 3\]](https://www.reddit.com/r/nosleep/comments/15ycxny/i_took_a_job_as_a_night_guard_at_a_mysterious/)
