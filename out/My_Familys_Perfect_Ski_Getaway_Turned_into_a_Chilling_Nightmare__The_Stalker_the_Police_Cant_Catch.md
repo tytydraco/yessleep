@@ -1,0 +1,17 @@
+  
+  
+Hey fellow Redditors, I never thought I'd be sharing something like this, but I'm at my wit's end and need to get this off my chest. What started as a picturesque family vacation at a remote ski resort has turned into a spine-chilling ordeal that's keeping us up at night. I need your advice on how to handle this because, honestly, I'm out of options.  
+  
+Let me set the scene: a cozy cabin nestled in the heart of a snow-covered wonderland, laughter echoing through the crisp air as my wife, kids, and I embarked on what was supposed to be a dream getaway. The snow-covered mountains seemed to promise nothing but good times and precious memories. But little did we know, a sinister presence was lurking in the shadows, turning our perfect vacation into a living nightmare.  
+  
+It all began innocently enough. On the first night, I noticed a man, dressed in a nondescript jacket and hat, watching us from a distance. Initially, I brushed it off as a fellow vacationer, but his unwavering gaze raised my suspicions. By the second day, I caught him following us around the resort, always at a distance, but never out of sight. Unease settled in, and I decided to approach the resort's security. They assured me they'd keep an eye out, but there was little they could do without concrete evidence.  
+  
+Determined to protect my family, I snapped a photo of the man, which led to a tense encounter with the resort security. They confronted him, but he managed to talk his way out of it, claiming he was merely taking in the sights. Frustrated, I contacted the local police and shared the photo, hoping they'd take the matter more seriously. To my shock, they brushed it off, suggesting it might be a misunderstanding and that I should enjoy my vacation.  
+  
+But I couldn't shake the feeling that something was deeply wrong. I decided to take matters into my own hands, gathering evidence and documenting his every move. Convinced that he was stalking us, I approached the police once more, armed with a comprehensive file of his actions. This time, they seemed more responsive and even questioned him, but somehow, he slipped through their fingers again.  
+  
+As my paranoia grew, I set up cameras around our cabin and watched the footage with a knot in my stomach. Night after night, I saw him lurking in the shadows, watching our every move. His face was etched in my mind, his presence suffocating. But just when I thought the police were finally closing in, he vanished without a trace. It was as if he knew we were onto him and disappeared into thin air.  
+  
+Now, here we are, back home, and the fear hasn't left us. The police have been unable to locate him, and my once-idyllic memories of our ski vacation are tainted by this unshakable feeling of being watched. I'm sharing this story in the hopes that someone out there has been through something similar or might have some advice on how to handle this situation. How can someone so clearly dangerous manage to slip through the cracks of law enforcement?  
+  
+So, fellow Redditors, what would you do in my shoes? How can I protect my family when the very people meant to uphold the law can't seem to catch our relentless stalker? Any advice or similar experiences would be greatly appreciated. This nightmare continues to haunt us, and I'm desperate to find a way out.
