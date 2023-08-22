@@ -28,7 +28,7 @@ He shrugged. “It’s been pretty dead today. Only twelve departures and four a
 
 But before I paid a visit to security, I walked out front to inspect the planter. What Rory said was true. More giant, black feathers covered the succulent plants and sugar palms used for landscaping. I bent down to look at them and I noticed something else—the tips of the feathers were singed like they had been burnt. I could almost feel static in the air again as I recalled the visual of the tall figure walking where I now crouched, and it sent chills to my fingers and ears. Had I actually seen something after all? Was I not just imagining it? And If I had seen something there, was it the same nightmare entity that took the form of my neighbor’s dog, Moose, I’d seen in my apartment? I didn’t want to think about it.
 
-Resort security was down on the basement level along with the loading dock, storerooms, and cafeteria. To find the black case, I’d need security to review the cameras.
+Resort security was in the basement level with the loading dock, storerooms, and cafeteria. To find the black case, I’d need them to review the cameras.
 
 “Morning, Morris,” I said, walking in.
 
@@ -60,7 +60,7 @@ I waited a few more breathless seconds, and then I saw its reflection—the shap
 
 I looked back in the mirror. A hole was opening up in the young man’s forehead. I knew what would happen next, and as if on cue, blood started spurting from the gaping wound. When the reflection of his head was right over my shoulder, he opened his mouth and screamed—a piercing, ceaseless wail I knew I alone could hear. I covered my face and retreated across the restroom floor. I slumped against the wall and curled up into my knees. All the while, the screaming continued. I lifted my eyes once. I still saw no one in front of me, but in the mirror, his reflection loomed over me.
 
-A moment later, it stopped. I was alone in the restroom once again, in the mirror and out. It didn’t happen to me every time I was alone by a hotel mirror. No, that would have been too predictable. He wanted to keep me guessing, feeling a constant sense of unease. But every time it did happen, I emerged shaken and in a pit of self-loathing that made the rest of the workday almost unbearable. I stood up and splashed my face with handfuls of cold water. I didn’t have time to put on makeup that morning, but if I had, my face would have been an impossible mess.
+A moment later, it stopped. I was alone again, in the mirror and out. It didn’t happen to me every time I was alone by a hotel mirror. No, that would have been too predictable. He wanted to keep me guessing, feeling a constant sense of unease. But every time it did happen, I emerged shaken and in a pit of self-loathing that made the rest of the workday almost unbearable. I stood up and splashed my face with handfuls of cold water. I didn’t have time to put on makeup that morning, but if I had, my face would have been an impossible mess.
 
 I did my best to look and act normal and went back up to the lobby.
 
@@ -108,7 +108,7 @@ She interrupted. “This is not what I pay for when we stay at this resort. And 
 
 “I understand. I assure you we’ll take care of it. We take this very seriously and I will personally make sure they turn the music—down…” I trailed off when I looked back outside and saw the guest in question.
 
-Mr. Kilday was alone, shirtless, and stretched out on a chaise lounge surrounded by a bucket of beer and several end tables with plates of food. He had a big wireless speaker next to him streaming music from his iPhone. He was the only guest at the pool. I looked at the water. It was brackish and cloudy, not at all the clean, blue-hued water it normally was. Then I saw why. The tall, eerie figure was laying flat on the bottom of the pool, and now there seemed to be something sprouting from its back. My gut twisted and I had to grab the balcony railing to steady myself. Was I going crazy or not?
+Mr. Kilday was alone, shirtless, and stretched out on a chaise lounge surrounded by a bucket of beer and plates of food. He had a big wireless speaker next to him streaming music from his iPhone. He was the only guest at the pool. I looked at the water. It was brackish and cloudy, not clean like it normally was. Then I saw why. The tall, eerie figure was laying flat on the bottom of the pool, and now there seemed to be something sprouting from its back. My gut twisted and I had to grab the balcony railing to steady myself. Was I going crazy or not?
 
 “Don’t just stand there, go make him turn it off!” said Mrs. Nguyen, understandably upset.
 
@@ -174,7 +174,7 @@ I exhaled and the unpleasant sensation went away. “I’m fine. It’s just whe
 
 “Good thing we’re grabbing dinner later. You can tell me all about it. You’re still down, right?”
 
-I should have brought up seeing his symbol again on the SUV’s rear window last night. I should have pressed him about the nature of this vague partner of his. But I just couldn’t. I wanted him to like me and sought his approval. After deliberating for a moment, I caved. “Yeah. Sure. Where did you want to eat.”
+I should have brought up seeing his symbol again on the SUV’s rear window last night. I should have pressed him about the nature of this vague partner of his. But I just couldn’t. I wanted him to like me and sought his approval. I caved. “Yeah. Sure. Where did you want to eat.”
 
 “Right here. At the Aqua Table.”
 
@@ -218,7 +218,7 @@ Terry took our drink orders. Kilday had Irish whiskey, neat. I had a vodka soda.
 
 He shrugged. “We’ll see.”
 
-I must have glanced at that empty chair every fifteen seconds throughout the meal. Every so often, I thought I saw a glimmer of movement in it from the corner of my eye, but once I turned and looked, there was never anything there. I figured it must be my lack of sleep or a trick of the light in my peripheral vision. I should have connected it with the similar phenomenon in my apartment the previous night, but Kilday had my full attention now. He was stuffed himself with his fish tacos and talked about his background. He had grown up in the southwest—Albuquerque, Fort Worth, El Paso, and eventually Phoenix. He said he was a fat kid growing up and never had friends or money. I started wondering if his apparent wealth was all his partner’s. He said he worked now as a traveling consultant but stopped short of describing what kind of companies he consulted for. Once I’d finished my seabass, he asked me about myself.
+I must have glanced at that empty chair every fifteen seconds throughout the meal. Every so often, I thought I saw a glimmer of movement in it from the corner of my eye, but once I turned and looked, there was never anything there. I figured it must be my lack of sleep or a trick of the light in my peripheral vision. I should have connected it with the similar phenomenon in my apartment the previous night, but Kilday had my full attention now. He was stuffed himself with his fish tacos and talked about his background. He had grown up in the southwest—Albuquerque, Fort Worth, El Paso, and eventually Phoenix. He said he was a fat kid growing up and never had friends or money. I started wondering if his wealth was all his partner’s. He said he worked now as a traveling consultant but stopped short of describing what kind of companies he consulted for. Once I’d finished my seabass, he asked me about myself.
 
 “What kind of name is Osprey?” he asked. “I mean it’s cool and all, I’ve just never heard it.”
 
@@ -282,7 +282,7 @@ I turned around at the sound of dishes and glass breaking. Terry had fallen down
 
 He gasped and I saw his lips moving. I leaned in close. His voice was barely above a whisper. “No skin…It got no skin…”
 
-“Somebody help! Call 9-1-1!” I finally shouted. The couple across the restaurant pulled out their phones. I froze. “What do I do, Terry? What do you need?” All management had to take an emergency first-aid and CPR class annually, but no one retained anything. I couldn’t remember shit. And Terry was focused only on whatever he saw in the chair. His lips were still moving. I bent closer to listen.
+“Somebody help! Call 9-1-1!” I finally shouted. The couple across the restaurant pulled out their phones. I froze. “What do I do, Terry? What do you need?” All management had to take an emergency first-aid and CPR class, but no one retained anything. I couldn’t remember shit. And Terry was focused only on whatever he saw in the chair. His lips were still moving. I bent closer to listen.
 
 “Flesh and bone…no skin…skull with eyes…horns in a circle—” He grimaced and grabbed his chest with both hands, rolling onto his side in a fetal position.
 
@@ -294,4 +294,6 @@ Kilday came out of the restroom. “Oh, shit. What happened?”
 
 I don’t know why—I still couldn’t see anything—but I took out my phone and snapped a photo of the empty chair. Then Terry grabbed my hand and looked into my eyes. I had never seen someone so afraid.
 
-Paramedics arrived shortly after. Terry was still alive when they loaded him onto a gurney and wheeled him into the ambulance. They said it was a heart attack. I had no idea if he’d survive the night. We called it a night and Kilday returned to his suite. I called a Lyft to take me home. Terry’s emergency sobered me up real quick, but I was in no shape to drive. While in the back of the car, I looked at the photo I took in the restaurant. The chair still appeared empty, but there was a vague shape visible above the chairback. It looked like two sharp points coming together, but not quite touching, to form the top of a circle. The shape had a translucent, ethereal quality to it, like it wasn’t a physical object. I remembered one of the fragments Terry whispered to me: [“…horns in a circle.”](https://connorgunnin.com/)
+Paramedics arrived shortly after. Terry was still alive when they loaded him onto a gurney and wheeled him into the ambulance. They said it was a heart attack. I had no idea if he’d survive. We called it a night and Kilday returned to his suite. I called a Lyft to take me home. Terry’s emergency sobered me up quick, but I was in no shape to drive. While in the back of the car, I looked at the photo I took in the restaurant. The chair still appeared empty, but there was a vague shape visible above the chairback. It looked like two sharp points coming together, but not quite touching, to form the top of a circle. The shape had a translucent, ethereal quality to it, like it wasn’t a physical object. I remembered one of the fragments Terry whispered to me: [“…horns in a circle.”](https://connorgunnin.com/)
+
+[\[Part 3\] The Spa](https://www.reddit.com/r/nosleep/comments/15y9xb6/a_guest_at_my_hotel_requested_a_demonic_symbol_on/?sort=new)

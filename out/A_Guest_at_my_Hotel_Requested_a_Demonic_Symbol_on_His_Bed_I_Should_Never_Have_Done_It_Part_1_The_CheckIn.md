@@ -295,3 +295,5 @@ But it happened again. In my peripheral vision, I saw a black silhouette in the 
 I could move again and I thrashed and kicked under the bedsheet. I rolled off the bed onto the floor and scrambled out from underneath. The light came back on and the tall silhouette and Moose were nowhere in sight. I checked the front door and it was locked. I looked at my phone and saw I had only a few hours until I needed to be back at work. I laid down on the couch after that. I would see Mr. Kilday at the hotel and get answers. At least [I hoped I would.](https://connorgunnin.com/)
 
 [\[Part 2\] The Dinner](https://www.reddit.com/r/nosleep/comments/15upty7/a_guest_at_my_hotel_requested_a_demonic_symbol_on/)
+
+[\[Part 3\] The Spa](https://www.reddit.com/r/nosleep/comments/15y9xb6/a_guest_at_my_hotel_requested_a_demonic_symbol_on/?sort=new)
