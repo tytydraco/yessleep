@@ -2,8 +2,6 @@
 
 As I caught my breath and the figure faded back into the shadows, I knew that my encounter with the unknown was far from over. My heart raced, and a cold sweat clung to my skin. I couldn't simply ignore the rest of the rules now; I had to know what I was up against. Swallowing my fear, I resumed reading from where I left off.
 
-[Rules](https://qtext.io/z3n6) (had to upload it somewhere else because reddit didn't let me upload it for some reasons. ) 
-
 And there it was, Rule 100: "If you see a locked door with a rusty handle in aisle 13, cut your finger with something sharp and put blood where the key would belong, inside aisle 13 is a floating head  but do not worry, he has bad sight, just turn all lights off and sneak near him, after that, you'll find yourself in a room painted blood red, in that room there is a pool of red liquid, but DO NOT TOUCH IT, instead, sweep it away with a broom and you'll get a wooden cross, only use the wooden cross when you're in extreme danger, i warned you."
 
 My heart pounded in my chest as I read the bizarre instructions. It sounded like something out of a nightmare, and yet, I knew I had to face it. The locked door held secrets that might hold the key to surviving this ordeal. But the thought of cutting my finger and dealing with a floating head monster sent shivers down my spine.
