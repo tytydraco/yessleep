@@ -208,6 +208,8 @@ Because if it’s what’s siphoning his dad away, then he might just be despera
 
 I really hope I’m wrong.  But when dad didn’t come back… I felt so helpless and I wonder if I’d been offered a thin glimmer of hope, a chance to find out what happened to him, a chance to bring him back… I wonder if I would have taken it, no matter the cost. [\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
 
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/15ys46i/how_to_survive_college_time_to_commit_some_crimes/)
+
 [Read the current draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 
 [Visit the college's website.](https://alderrayne.com/)
