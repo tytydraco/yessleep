@@ -262,4 +262,6 @@ And that’s why I’m posting here. I’ve got a pretty unusual problem, gonna 
 
 For God’s sake, [help me.](https://www.reddit.com/r/QuincyLee/comments/11nxwz3/welcome_thanks_so_much_for_stopping_by/)
 
-[UPDATE!](https://www.reddit.com/r/nosleep/comments/15xkgi5/i_have_a_million_dollars_and_five_days_to_live/?sort=new)
+[[Part 2]](https://www.reddit.com/r/nosleep/comments/15xkgi5/i_have_a_million_dollars_and_five_days_to_live/?sort=new)
+
+[[Part 3]](https://www.reddit.com/r/nosleep/comments/15yotcq/i_have_a_million_dollars_and_its_my_last_day_to/)

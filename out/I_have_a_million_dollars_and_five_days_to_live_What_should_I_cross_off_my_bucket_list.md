@@ -253,3 +253,7 @@ From now on, I stop hiring anybody. No more protection. No more assassins or gan
 So have it your way, Lady. We’ll play your game *your way*. Just you and me. No one else. House rules.
 
 But of course I know better than anybody… [the House always wins…](https://www.reddit.com/r/QuincyLee/comments/11nxwz3/welcome_thanks_so_much_for_stopping_by/)
+
+[[Part 1]](https://www.reddit.com/r/nosleep/comments/15wmuwv/i_have_a_million_dollars_and_one_week_to_live_how/)
+
+[[Part 3 FINAL]](https://www.reddit.com/r/nosleep/comments/15yotcq/i_have_a_million_dollars_and_its_my_last_day_to/)
