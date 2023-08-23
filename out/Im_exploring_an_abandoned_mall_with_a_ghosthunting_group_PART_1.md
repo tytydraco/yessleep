@@ -28,7 +28,9 @@ I was skeptical so I decided call Avery to discuss this whole situation.
 
 **AVERY:** Yep. I'll see you there then.
 
-**ME:** See you later.The drive to Illimitata Mall took about 40 minutes.
+**ME:** See you later.
+
+The drive to Illimitata Mall took about 40 minutes.
 
 The road a smooth, straight line. And it wasn't even on Google Maps.
 
