@@ -44,7 +44,7 @@ Once their victim had been swept into the current, with only their own grip keep
 
 Meanwhile, on the other side of the lagoon, the ancient anchoring rope’s time had come. Sawed down to a thin strand by the diligent work of our dynamic duo and a trusty pocket knife, the once-mighty rope now could barely contain the pull of the overladen raft. As the teenagers inside jostled around in the rapids, the rope finally gave in. Its snap echoed like a shotgun blast throughout the lagoon.
 
-The lifeguard hadn’t even made it to the edge of the water before his head whipped around to the sound. That’s when he saw ten teenagers in the whitewater raft, screaming, twenty feet away from where the raft should be anchored. They had formed a sort of human-chain with the last one clinging to the frayed end of what had once been the raft’s tether.
+The lifeguard hadn’t even made it to the edge of the water before his head whipped around to the sound. That’s when he saw ten teenagers in the whitewater raft, screaming, twenty feet further away from where the raft should be anchored. They had formed a sort of human-chain with the last one clinging to the frayed end of what had once been the raft’s tether.
 
 Making a split-second decision, the lifeguard took a single glance back at the lone child clinging for dear life, and started sprinting in the exact opposite direction.
 
@@ -86,7 +86,7 @@ But fear not for our duo - they still have each other! And it is at this point i
 
 You see, I told you: *this is a ghost story*. And I, Dale, the third Hastings triplet, am a ghost. I have been my entire life. Overlooked, unwanted, completely and utterly forgotten. Lost in the glaring and constant light of Devin and Dylan, anyone would be. I was nothing. Nothing special, anyway. And Devin and Dylan were so much closer than I could ever get to either of them. They saw at once that I was different, an outcast - not like them. So they cut me out. From then on it was never a triplet bond, but a twin, with a lonely outside observer desperately clamoring to understand a language they once knew fluently.
 
-And my family? They were ashamed of me too. So much so that most people had no idea we were triplets. Locals began referring to Devin and Dylan as the “Hastings Twins” and nobody ever corrected them. What was I supposed to do as a forgotten toddler? Nothing. Just like what I was: nothing.
+And the rest of my family? They were ashamed of me too. So much so that most people had no idea we were triplets. Locals began referring to Devin and Dylan as the “Hastings Twins” and nobody ever corrected them. What was I supposed to do as a forgotten toddler? Nothing. Just like what I was: nothing.
 
 Whenever I was accidentally exposed and my family was forced to reveal my presence to the outside world, people would squint and say, “...triplets?” Their look of confusion was always quickly replaced by one of abject pity. A knowing, an understanding that I'm somehow unclean, unwanted, untouchable, unlovable. How is it that everyone in town knew of Dylan and Devin but there'd never been a whisper of Dale? The answer then becomes apparent to them: I am simply nothing. Nothing special. I have no dazzling pizzazz, no je’ne sais quoi, no electric chutzpah that set me apart like it did my siblings. No. Not Dale Hastings, resident ghost.
 
