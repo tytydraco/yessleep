@@ -120,4 +120,4 @@ Interdimensional space placement, universe borders, sentient space, living color
 
 I finished the book, I did it, after three months of long torture, and non-stop reading. That's when I reunited my last strengths, to write this warning.  
 
-I'm gonna burn this house down, with me and the book inside, no one should ever know these cursed things. I say my goodbyes to you. My last warning, is to not look at void, it does not only looks back at you, it consumes you entirely.
+I'm gonna burn this house down, with me and the book inside, no one should ever know these cursed things. I say my goodbyes to you. My last warning, is to not look at the void, it does not only looks back at you, it consumes you entirely.
