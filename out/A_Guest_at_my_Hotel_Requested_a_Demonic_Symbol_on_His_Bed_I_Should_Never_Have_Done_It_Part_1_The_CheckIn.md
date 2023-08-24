@@ -297,3 +297,5 @@ I could move again and I thrashed and kicked under the bedsheet. I rolled off th
 [\[Part 2\] The Dinner](https://www.reddit.com/r/nosleep/comments/15upty7/a_guest_at_my_hotel_requested_a_demonic_symbol_on/)
 
 [\[Part 3\] The Spa](https://www.reddit.com/r/nosleep/comments/15y9xb6/a_guest_at_my_hotel_requested_a_demonic_symbol_on/?sort=new)
+
+[\[Part 4\] The Bonfire](https://www.reddit.com/r/nosleep/comments/16046u6/a_guest_at_my_hotel_requested_a_demonic_symbol_on/)

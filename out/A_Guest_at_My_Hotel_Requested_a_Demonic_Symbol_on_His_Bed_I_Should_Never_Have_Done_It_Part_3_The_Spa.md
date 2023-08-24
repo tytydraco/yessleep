@@ -299,3 +299,5 @@ I felt like such an idiot. Neal really had me going for a minute. I knew he mean
 One of the cops came back a few minutes later to collect a few of the Wojciechowskis’ things. I went up to the room to watch as he packed items into a police duffel and brought it downstairs. I let him take the elevator down without me. I wanted to be alone. I took the next one. But when the doors opened, Kilday was inside. I tried my best to act naturally and went in with him.
 
 “Awesome news,” he said. “My partner is arriving tonight. [For certain.”](https://connorgunnin.com/)
+
+[\[Part 4\] The Bonfire](https://www.reddit.com/r/nosleep/comments/16046u6/a_guest_at_my_hotel_requested_a_demonic_symbol_on/)

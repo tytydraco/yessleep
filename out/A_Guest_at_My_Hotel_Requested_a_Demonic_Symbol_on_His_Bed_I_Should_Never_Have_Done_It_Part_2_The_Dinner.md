@@ -2,15 +2,15 @@
 
 \[NSFW/Trigger Warning\]\[self harm\] I didn’t arrive back at the resort until noon the following day. I decided covering the graveyard shift after already working a full day earned me a late start. I had been home barely five hours when my alarm went off and I had slept very little of it due to the terrifying episode in my bedroom, but I had to get moving. As my thoughts drifted back to work, what had felt like such a frighteningly real experience just hours ago began to fade. The memory of it seemed nightmare-like now, and while I knew it would stick with me, the sense of danger I’d felt was gone. Going back to the resort off virtually no sleep now seemed more daunting. I was the only rooms division manager on duty for the next week and my team needed me. Caffeine was going to be my friend today. Without much time to get ready, I pulled my hair up into a messy bun, threw on a cardigan over my plain gray top, grabbed my favorite cherry limeade energy drink, and hopped in my car. I started guzzling it as soon as I was on the road.
 
-While I was still in the resort parking garage, I remembered I was going to text one of our front desk agents, Neal, to see if he knew what Kilday’s symbol was. Neal was quiet and aloof, but he also knew a lot of stuff about a lot of things no one else did. Sometimes that meant ancient religions, and sometimes it meant rabbit holes like flat earth and reptilians in the federal government. It also meant he was just the kind of person who might recognize the symbol. I texted him the photo I took of the rose petals on the bed: Hey Neal. Guest had me make this. Do you know what it is?
+While I was still in the parking garage, I remembered I to text one of our front desk agents, Neal, to see if he knew what Kilday’s symbol was. Neal was quiet and aloof, but he also knew a lot of stuff about a lot of things no one else did. Sometimes that meant ancient religions and sometimes it meant rabbit holes like flat earth and reptilians in the federal government. It also meant he was the kind of person who might recognize the symbol. I texted him the photo I took of the rose petals on the bed: Hey Neal. Guest had me make this. Do you know what it is?
 
-When I got to my office, I found something strange sitting on my desk—three giant, black feathers. They were large enough to have come from a vulture or some kind of oversized buzzard. I rolled my eyes, knowing full well who must have put them there. Kat was off today, and our mid-shift front desk agent was Rory, another twenty-something. We had a running gag where whenever Rory found some random, weird thing around the property, he’d neatly place it on my desk while I was away. I went out behind the desk to see him. He was wearing black and white Jordan 1s along with his uniform slacks. He knew I was the only manager who’d let him wear basketball shoes at work. We were cool.
+When I got to my office, I found something strange sitting on my desk—three giant, black feathers. They were large enough to have come from a vulture or some kind of oversized buzzard. I rolled my eyes, knowing full well who must have put them there. Kat was off today, and our mid-shift front desk agent was Rory, another twenty-something. We had a running gag where whenever Rory found some random, weird thing around the property, he’d neatly place it on my desk while I was away. I went out to the lobby to see him. He was wearing black and white Jordan 1s along with his uniform slacks. He knew I was the only manager who’d let him wear basketball shoes at work. We were cool.
 
 “Rory, where’d these feathers come from?” I asked.
 
 “What’s up Osprey. I don’t know, but they’re all over the ground by the planter out front,” he said.
 
-The planter he spoke of ran along the floor-to-ceiling window where I’d seen the tall, eerie figure the night before. I realized then that things were still going to be weird today.
+The planter he spoke of ran along the floor-to-ceiling window where I’d seen the tall, eerie figure the night before. Yes, things were still going to be weird today.
 
 “Have you seen Mr. Kilday, the guest who checked into 4180 last night?” I asked.
 
@@ -26,9 +26,9 @@ He shrugged. “It’s been pretty dead today. Only twelve departures and four a
 
 “Great…” I droned. “I have to go down there. Call me if you need something.”
 
-But before I paid a visit to security, I walked out front to inspect the planter. What Rory said was true. More giant, black feathers covered the succulent plants and sugar palms used for landscaping. I bent down to look at them and I noticed something else—the tips of the feathers were singed like they had been burnt. I could almost feel static in the air again as I recalled the visual of the tall figure walking where I now crouched, and it sent chills to my fingers and ears. Had I actually seen something after all? Was I not just imagining it? And If I had seen something there, was it the same nightmare entity that took the form of my neighbor’s dog, Moose, I’d seen in my apartment? I didn’t want to think about it.
+But before I paid a visit to security, I walked out front to inspect the planter. What Rory said was true. More giant, black feathers covered the succulent plants used for landscaping. I bent down to look at them and I noticed something else—the tips of the feathers were singed like they had been burnt. I could almost feel static in the air again as I recalled the visual of the tall figure walking where I now crouched, and it sent chills to my fingers and ears. Had I actually seen something after all? Was I not just imagining it? And If I had seen something there, was it the same nightmare entity that took the form of my neighbor’s dog, Moose? I didn’t want to think about it.
 
-Resort security was in the basement level with the loading dock, storerooms, and cafeteria. To find the black case, I’d need them to review the cameras.
+Resort security was in the basement with the loading dock, storerooms, and cafeteria. To find the black case, I’d need them to review the cameras.
 
 “Morning, Morris,” I said, walking in.
 
@@ -60,7 +60,7 @@ I waited a few more breathless seconds, and then I saw its reflection—the shap
 
 I looked back in the mirror. A hole was opening up in the young man’s forehead. I knew what would happen next, and as if on cue, blood started spurting from the gaping wound. When the reflection of his head was right over my shoulder, he opened his mouth and screamed—a piercing, ceaseless wail I knew I alone could hear. I covered my face and retreated across the restroom floor. I slumped against the wall and curled up into my knees. All the while, the screaming continued. I lifted my eyes once. I still saw no one in front of me, but in the mirror, his reflection loomed over me.
 
-A moment later, it stopped. I was alone again, in the mirror and out. It didn’t happen to me every time I was alone by a hotel mirror. No, that would have been too predictable. He wanted to keep me guessing, feeling a constant sense of unease. But every time it did happen, I emerged shaken and in a pit of self-loathing that made the rest of the workday almost unbearable. I stood up and splashed my face with handfuls of cold water. I didn’t have time to put on makeup that morning, but if I had, my face would have been an impossible mess.
+A moment later, it stopped. I was alone again. It didn’t happen to me every time I was alone by a hotel mirror. No, that would have been too predictable. He wanted to keep me guessing, feeling a constant sense of unease. But every time it did happen, I emerged shaken and in a pit of self-loathing that made the rest of the workday almost unbearable. I stood up and splashed my face with handfuls of cold water. I didn’t have time to put on makeup that morning, but if I had, my face would have been an impossible mess.
 
 I did my best to look and act normal and went back up to the lobby.
 
@@ -297,3 +297,5 @@ I don’t know why—I still couldn’t see anything—but I took out my phone a
 Paramedics arrived shortly after. Terry was still alive when they loaded him onto a gurney and wheeled him into the ambulance. They said it was a heart attack. I had no idea if he’d survive. We called it a night and Kilday returned to his suite. I called a Lyft to take me home. Terry’s emergency sobered me up quick, but I was in no shape to drive. While in the back of the car, I looked at the photo I took in the restaurant. The chair still appeared empty, but there was a vague shape visible above the chairback. It looked like two sharp points coming together, but not quite touching, to form the top of a circle. The shape had a translucent, ethereal quality to it, like it wasn’t a physical object. I remembered one of the fragments Terry whispered to me: [“…horns in a circle.”](https://connorgunnin.com/)
 
 [\[Part 3\] The Spa](https://www.reddit.com/r/nosleep/comments/15y9xb6/a_guest_at_my_hotel_requested_a_demonic_symbol_on/?sort=new)
+
+[\[Part 4\] The Bonfire](https://www.reddit.com/r/nosleep/comments/16046u6/a_guest_at_my_hotel_requested_a_demonic_symbol_on/)
