@@ -25,7 +25,7 @@ I checked the guide and it said troll.
 
 I was weirded out. I had seen this movie before and this was not in it.
 
-I turned around to see two ethereal women standing there looking at me. They looked like cartoons just appearing in front of the sofa. One was a math smoking hippie girl and one was Plutia from Hyper dimension neptunia.
+I turned around to see two ethereal women standing there looking at me. They looked like cartoons just appearing in front of the sofa. One was a meth smoking hippie girl and one was Plutia from Hyper dimension neptunia.
 
 "I'm Santa Muarte and I put a curse on you when jerked off too the first scene in troll 2. That's why you're seeing the real troll right now. I want you to go watch Troll 2 again and jerk off to that other scene with a pretty girl in it so you can see the real troll 3." The hippie girl growled. "Or else I'll eat you!"
 
