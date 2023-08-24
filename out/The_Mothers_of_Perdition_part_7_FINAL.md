@@ -77,7 +77,7 @@ The lights shifted from gold, to purple and then to red.
 
 I made it home, and when I went inside I went to look out the window too check and see if my footprints were still there.
 
-While I was seeing no footprints I saw Santa Muarte standing behind me in my reflection. She was folding in on herself in a 4D kind of way. Her raggedy hair and intense hangings being profoundly scaring since they were appearing at so many points in time simultaneously.
+While I was seeing no footprints I saw Santa Muarte standing behind me in my reflection. She was folding in on herself in a 4D kind of way. Her raggedy hair and intense hangnails being profoundly scary since they were appearing at so many points in time simultaneously.
 
 I turned on the light and turned around and saw nothing. I checked the clock and realized that the ides of march were over. Maybe  symbol of something?
 

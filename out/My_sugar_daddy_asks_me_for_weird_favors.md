@@ -259,6 +259,3 @@ Next came another picture, this one was of the outside of my house.
 It was followed by another text. 
 
 **Watch out.**
-
-
-[Part Two](https://www.reddit.com/r/nosleep/comments/q7e6m8/my_sugar_daddy_asks_me_for_weird_favors_part_2/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
