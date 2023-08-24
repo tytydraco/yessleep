@@ -4,7 +4,7 @@ It's crazy to me that in 2023, so few people realize that what they do online an
 
 When I first started a couple of years ago, I used to not really poke around outside of erasing the drive and doing a fresh install. I guess out of a sense of honor, respect for privacy, etc. But I've always been curious, and honestly, as time has gone on, I've gotten bored, too. And it definitely keeps things interesting.
 
-I feel a little weird doing it sometimes because I know it's really on the borderline of creepy/invasive, but also, it's not my fault that people are careless with their personal information. Once it gets to me, none of what's on there should be considered private anymore, really, in my opinion.
+I feel a little weird doing it sometimes because I know it's really on the borderline of creepy/invasive, but also, it's not my fault that people are careless with their personal information. Once it gets to me, none of what's on there should be considered private anymore, in my opinion.
 
 As you can imagine, a lot of it is NSFW/NSFL/Rule 34 content that has totally blown my mind. It's actually insane what you can do with ai now. Some of the stuff, though, is seriously fd up in ways that I think this sub will appreciate.
 
@@ -140,7 +140,7 @@ I'll try to head out to the property to get more photos for you, but it might be
 
 A little about Aunt Elle first. She was really a lovely woman. But there was a family tragedy- a boating accident- in the lake adjacent to the estate, and she lost her husband, my great uncle, and her two sons. I've been reading up on hoarding, and I guess you must be used to that. The family tragedies. I've been thinking a lot about what makes someone jump off that deep end.
 
-But anyway, I say that because the decline happened so gradually, the family didn't even have time to notice. I remember, 40 years ago, she was an amazing hostess when I was a kid. The house was a little over-stuffed, I guess, but not even close to how it is now. I guess I just don't want you to think we abandoned her or anything. We really didn't know. Apparently, no one in the town knew either, which is why I want to keep this quiet.
+But anyway, I say that because the decline happened so gradually, the family didn't even have time to notice. I remember, 40 years ago, she was an amazing hostess when I was a kid. The house was a little over-stuffed, I guess, but not even close to how it is now. I guess I just don't want you to think we abandoned her or anything. We really didn't know. Apparently, no one in the town knew either, which is why we want to keep this as quiet as possible.
 
 What is bizarre is that the foyer is immaculate when you first walk in. I guess she knew that's as far as she had to let people in.
 
@@ -336,7 +336,7 @@ But this is fucking horrifying.It's like someone came through the house and some
 
 **To: Jonathan Doe (jonathan.doe@(redacted))**
 
-Actually, I'm sorry. It looks like your team focused on the staircase, like you said. It looks brand-new. It really reminds me of when I was a kid. I can't believe how clean it is. It's glowing. I'm going to check the second floor. Thanks.
+Actually, I'm sorry. It looks like your team focused on the staircase, like you said. It looks brand-new. It really reminds me of when I was a kid. I can't believe how clean it is. It's almost glowing. I'm going to check the second floor. Thanks.
 
 \---
 

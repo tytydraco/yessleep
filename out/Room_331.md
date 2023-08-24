@@ -76,9 +76,9 @@ I snapped back to reality again and turned to see… the sweet old lady! I smile
 
 I looked back down the East Wing hall again and still saw nothing. “What… what was that?” I inquired.
 
-Mrs. Donahue opened her door and gestured for me to follow her in, which I did without question - I wasn’t going to stay out there with that thing for another minute. “Don’t mind him”. She said. “He’s just grouchy. But he can’t hurt you if you don’t let him.” She looked up at me and handed me my phone, wallet and keys: "I think you dropped these, sonny". 
+Mrs. Donahue opened her door and gestured for me to follow her in, which I did without question - I wasn’t going to stay out there with that thing for another minute. “Don’t mind him”. She said. “He’s just grouchy. But he can’t hurt you if you don’t let him.” She looked up at me and handed me my phone, wallet and keys: "I think you dropped these, sonny".
 
-I nodded, still confused in response. "T-thank you, miss" I said in a stupor. 
+I nodded, still confused in response. "T-thank you, miss" I said in a stupor.
 
 Mrs. Donahue said to me with a quirky grin: “ooh, I see you ate that candy after all. Here, let me give you some more”. She walked around to her coffee table and grabbed that tin with the winter scene on it and I laughed a hearty laugh.
 
@@ -86,7 +86,7 @@ Mrs. Donahue said to me with a quirky grin: “ooh, I see you ate that candy aft
 
 “Take the whole thing, sonny. I insist.” She responded.
 
-She wasn’t getting an argument from me. We laughed for a while and we talked about life for a bit and she mentioned that she would usually walk to the grocery store at night because it was the best time to go since it was less crowded. She walked me to the door and said “now remember, you don’t pay no heed to people who try to tell you to be scared of the unknown. Those things can’t hurt you if you don’t let them.”
+She wasn’t getting an argument from me. We laughed for a while and we talked about life for a bit and she mentioned that she would usually walk to the grocery store at night because it was the best time to go since it was less crowded. She walked me to the door and said “now remember, you don’t pay no heed to people who try to tell you to be scared of The Unknown. Those things can’t hurt you if you don’t let them.”
 
 I smiled at Mrs. Donahue, and thanked her for everything. I looked down the East Wing again and saw a shadow dart from the plant to the corner again. I shook my head. “Not this time, guy” I said down the hall. I walked towards the elevator and headed back out to my truck. The rest of the night went pretty quietly. Nothing of note really happened after that.
 
@@ -110,6 +110,6 @@ I stood there shocked to my soul. I think the nurse could feel my internal strug
 
 I looked down at the ground. The nasty, brown and speckled carpet making me cringe inside. “It’s okay.” I told her. I set the tin down on the coffee table in the room. “I have some fond memories of her to make me smile”. As tears welled up in my eyes I walked out of the room. The nurse headed down the West Wing hallway towards another patient after locking up room 331. I placed my hand on the door and said “thank you, miss”.
 
-As I walked past the East Wing hallway I got that feeling of dread again. But I remembered what Mrs. Donahue taught me. The unknown may be scary. But it can’t hurt you if you don’t let it. I walked towards the elevator and I left the building. I won’t ever forget what happened on that day and I won’t ever forget that sweet old lady.
+As I walked past the East Wing hallway I got that feeling of dread again. But I remembered what Mrs. Donahue taught me. The Unknown may be scary. But it can’t hurt you if you don’t let it. I walked towards the elevator and I left the building. I won’t ever forget what happened on that day and I won’t ever forget that sweet old lady.
 
 And… If you ever get a bad feeling when staring down a long hallway, turn the other way and don’t look back. It may just save your life…
