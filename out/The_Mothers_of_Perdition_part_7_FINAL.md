@@ -35,7 +35,7 @@ I remembered how obviously cursed theose neptunia games had been once I knew wha
 
 The first two neptunia games had been jokes and the third one was a trap. Once you got too the impossible joke ending after a barrage of impossible side quests you came too and impossible boss. After you got owned by the impossible boss the enemies in the first 2 games then all became impossible.
 
-Plutia interrupted me "You but I sparred you! You didn't finish the second game, and you are just assuming they are invincible in neptunia 1! You haven't tried it out yet. And I mean if ever want t suicide ill make special for you if you go back and finish the spell..."
+Plutia interrupted me "You, but I sparred you! You didn't finish the second game, and you are just assuming they are invincible in neptunia 1! You haven't tried it out yet. And I mean if you ever want to suicide ill make it special for you if you go back and finish the spell..."
 
 Santa muarte barked "Go to the meth cave so that you may see my children in action, and so that you may retrieve your stuff, and so that you may know who you are!"
 
@@ -129,7 +129,7 @@ Satan clicked his remote and went to the next scene. "Then she's going to let yo
 
 "And at the end of this when your going to do what I tell you to do now and get her out of your life and never speak to her again, she's going to hunt you down and murder you. It's programmed into her soul and nothing is going to stop her. So I would advise you get rid of her as fast as fucking possible.
 
-Satan showed me some alternate timelines as well, going over the best and worse case scenarios based on how well I could have taken this or not and then I was back in my room. Sitting there looking at Clara.
+Satan showed me some alternate timelines as well, going over the best and worse case scenarios based on how well I could have taken this or not and then I was back in my room. Sitting there looking at Clara."
 
 
 I am a monk who lives at a monastery in rural tennessee. I wrote the preceding story when  Satan told me that if I did not, that I would be sent to the lake of fire. I have written this here so please God have mercy on my soul!
