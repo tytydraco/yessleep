@@ -91,4 +91,4 @@ It’s time for me to go.  I always loved you.  I love our baby girl.  And I’m
 
 I can feel him staring up at me.  Oh God, I can feel him from here.
 
-I’m climbing the railing, but it’s not me!  It’s not me doing it!  I don’t want to die!  I’m not killing myself!  [I’m not ki](https://redd.it/9ndww5)
+I’m climbing the railing, but it’s not me!  It’s not me doing it!  I don’t want to die!  I’m not killing myself!  I’m not [ki]( https://redd.it/9ndww5)
