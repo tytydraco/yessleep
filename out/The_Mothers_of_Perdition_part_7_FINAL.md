@@ -127,9 +127,9 @@ I watched in disbelief. I had never been more scared in my life.
 
 Satan clicked his remote and went to the next scene. "Then she's going to let your soul that's full of love go and your mother will intercept it. Smashing it took bits and taking all the love. Clara would like you to believe this is an accident. But I assure you, she programmed her soul from heaven to comply with Saren's plot and your mother is taking orders from the same person. Nothing you can do to stop it either, it happens." Satan went through more scenes and went years into the future.
 
-"And at the end of this when your going to do what I tell you to do now and get her out of your life and never speak to her again, she's going to hunt you down and murder you. It's programmed into her soul and nothing is going to stop her. So I would advise you get rid of her as fast as fucking possible.
+"And at the end of this when your going to do what I tell you to do now and get her out of your life and never speak to her again, she's going to hunt you down and murder you. It's programmed into her soul and nothing is going to stop her. So I would advise you get rid of her as fast as fucking possible."
 
-Satan showed me some alternate timelines as well, going over the best and worse case scenarios based on how well I could have taken this or not and then I was back in my room. Sitting there looking at Clara."
+Satan showed me some alternate timelines as well, going over the best and worse case scenarios based on how well I could have taken this or not and then I was back in my room. Sitting there looking at Clara.
 
 
 I am a monk who lives at a monastery in rural tennessee. I wrote the preceding story when  Satan told me that if I did not, that I would be sent to the lake of fire. I have written this here so please God have mercy on my soul!
