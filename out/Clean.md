@@ -6,7 +6,7 @@ When I first started a couple of years ago, I used to not really poke around out
 
 I feel a little weird doing it sometimes because I know it's really on the borderline of creepy/invasive, but also, it's not my fault that people are careless with their personal information. Once it gets to me, none of what's on there should be considered private anymore, in my opinion.
 
-As you can imagine, a lot of it is NSFW/NSFL/Rule 34 content that has totally blown my mind. It's actually insane what you can do with ai now. Some of the stuff, though, is seriously fd up in ways that I think this sub will appreciate.
+As you can imagine, a lot of it is NSFW/NSFL/Rule 34 content that has totally blown my mind. It's actually insane what you can do with ai now. Some of the stuff, though, is seriously fucked up in ways that I think this sub will appreciate.
 
 I found the below on an older model MacBook that was part of an estate sale, if I remember correctly. I cut the addresses and switched out some of the names, but the rest is word for word what was in the email exchange.
 
@@ -22,7 +22,7 @@ Hi Brian,
 
 I'm reaching out about something that's both urgent and a bit out of the ordinary. I work with Tom Morton, who gave me your contact info. He says he had a somewhat similar issue with his grandmother in Maine, and you're the best.
 
-Do you have representatives in Idaho? Would you be available to start work immediately? I really need someone out here ASAP.
+Do you have representatives in *(redacted)*? Would you be available to start work immediately? I really need someone out here ASAP.
 
 Thank you in advance for your assistance.
 
@@ -70,7 +70,9 @@ Sorry for being vague earlier; this situation is a little sensitive.I've inherit
 
 It is a large estate and is well-known in the community. You can't see it at all from the outside, but inside, I'm honestly not sure how much will be salvageable. I need to get it cleaned out first.
 
-I'm located in *(redacted)*. Could you provide me with a quote and let me know if you have a team available in my area?Appreciate your discretion on this matter.
+I'm located in *(redacted)*. Could you provide me with a quote and let me know if you have a team available in my area?
+
+Appreciate your discretion on this matter.
 
 Best regards,
 
@@ -232,7 +234,7 @@ Our policy is to give an update on our initial evaluation (attached). Please see
 
 **2. Kitchen:** There might be an extra charge associated with the cleaning here, and we cannot guarantee that all fixtures will pass a home inspection afterward. It looks as if your aunt had been collecting various cuts of meat without properly storing them. The decaying process has led to issues such as wood warping on the tables and counters, and it has attracted various pests and wildlife.
 
-**3. Butler's Pantry:** It looks as if the walls in this pantry were initially covered in a striped wallpaper, but it has been half-painted over in what seems to be red oil paint. Mason jars are overflowing from the shelves and stacked about waist-high. Most appear to be intact. Each seems to be filled with the same substance, which is thick, brownish-green in color, and otherwise indiscernible.-Would you like us to dispose of these jars altogether?
+**3. Butler's Pantry:** It looks as if the walls in this pantry were initially covered in a striped wallpaper, but it has been half-painted over in what seems to be red oil paint. Mason jars are overflowing from the shelves and stacked about waist-high. Most appear to be intact. Each seems to be filled with the same substance, which is thick, brownish-green in color, and otherwise indiscernible.- (Would you like us to dispose of these jars altogether?)
 
 **4. Drawing Room:** This room was filled approximately two feet high with a mixture of mulch and various other objects, including what looked to be a collection of porcelain dolls. Sticks and branches were thatched together and lined the room. Unfortunately, many of the dolls were broken when they were buried. The team will not be able to clear them out without damaging them. The furniture will probably require professional reupholstering, as it was also mostly submerged in dirt, with the exception of a mattress and bedding that we recommend be disposed of.
 
@@ -244,7 +246,7 @@ Our policy is to give an update on our initial evaluation (attached). Please see
 
 **8. Living Room/Bathroom:** Unfortunately, it seems the first floor bathroom became unusable some time ago, and a corner of the living room was repurposed for this reason. The team believes this is where the worst of the smell is coming from. As for the fireplace, we actually found that to be clear. Perhaps you were mistaken, or there has been some wildlife activity indoors, as the team actually found a great deal of toys scattered over the carpets. They did not appear to have dust, indicating they had been moved recently.
 
-**9. Staircase:** We will be concentrating on the staircase so the team can get to the higher floors. Behind the stacks of books, a number of doors were taken off of the hinges throughout the house and potentially collected from other locations as well. They have been placed upright and, in many instances, appear to have been cemented to the stairs with cinder blocks behind them. This excess weight is probably what has caused the significant warping.
+**9. Staircase:** We will be concentrating on the staircase so the team can get to the higher floors. Behind the stacks of books, a number of doors were taken off of the hinges throughout the house and potentially collected from other locations as well. They have been placed upright and, in many instances, appear to have been cemented to the stairs with cinder blocks behind them. This excess weight is probably what has caused the significant warping. Of note, we have found additional large quantities of what looks to be salt in front of the doors. 
 
 Please review the attached and confirm the next steps you would like to take.
 
@@ -268,9 +270,11 @@ Hi Brian,
 
 Wow. I don't even know where to start.
 
-Thank you for the report. I knew it was bad, but seeing it all written down really drives it home. I noticed that the report didn't have pictures of the study. Are you sure that it said "Birdy Boy"? I'll be out there soon anyway to see for myself, but I just had to ask. I can't believe it, to be honest. I'm surprised Aunt Elle would remember that nickname. I mean, I didn't even remember until I read your email. I can't think why she would write it down like that.
+Thank you for the report. I knew it was bad, but seeing it all written down really drives it home. I noticed that the report didn't have pictures of the study. Are you sure that it said "Birdy Boy"? I'll be out there soon anyway to see for myself, but I just had to ask.
 
-The plan outlined in the report looks great. And feel free to go ahead and toss the jars.
+I can't believe it, to be honest. I'm surprised Aunt Elle would remember that nickname. I mean, I didn't even remember until I read your email. I was only there for a couple of summers. It's because of my middle name, Jay. Wow. What a throwback. And how fucking sad, also. I wish I had just called more.
+
+Anyway, plan outlined in the report looks great. And feel free to go ahead and toss the jars.
 
 Thanks,
 
@@ -310,7 +314,9 @@ I am really confused. I'm doing a walk-through of the house, and it's been the b
 
 It looks like maybe someone started going through some of the rooms and the piles. I can see what you described in the report. But our contract says you will provide a full scope of industrial-level cleaning. Largely, this place is the same as when I last left it.
 
-I am incredibly confused and disappointed.Also, did someone cut themself? There are red footprints throughout the whole house. It looks almost like they were barefoot.
+I am incredibly confused and disappointed.
+
+Also, did someone cut themself? There are red footprints throughout the whole house. It looks almost like they were barefoot.
 
 Call me.
 
@@ -326,7 +332,9 @@ Jon
 
 I will level with you right now. I don't want to call the police or get the legal system involved. Like I said, we are really trying to keep this a quiet family matter. I hope you can understand how devastating it would be to have my aunt's reputation ruined after her death and how it would impact us all.
 
-But this is fucking horrifying.It's like someone came through the house and somehow made it worse. Like you're messing with me. Or mocking me. Like someone organized the meat in the kitchen??? So there's just a bunch of half-rotten skulls in size order on the counter. The mason jars are emptied out in the sink, but it's completely clogged up and smells horrible. It's bubbling. God knows what it is doing to the pipes. The dolls have all been arranged like they're having a demented tea party in the dining room with the knives laid out in front of thhem.   What the
+But this is fucking horrifying.
+
+It's like someone came through the house and somehow made it worse. Like you're messing with me. Or mocking me. Like someone organized the meat in the kitchen??? So there's just a bunch of half-rotten skulls in size order on the counter. The mason jars are emptied out in the sink, but it's completely clogged up and smells horrible. It's bubbling. God knows what it is doing to the pipes. The dolls have all been arranged like they're having a demented tea party in the dining room with the knives laid out in front of thhem.   What the
 
 \---
 
@@ -348,7 +356,7 @@ Actually, I'm sorry. It looks like your team focused on the staircase, like you 
 
 Hi Birdyboy,
 
-Welcome home.
+Welcome back to the nest.
 
 \---
 

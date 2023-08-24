@@ -16,7 +16,7 @@ I've never been so terrified of a toy store before. The amount of sheer disgust 
 
 And to think that he lost an entire arm simply because he stuck it out into the entrance.
 
-Cam's fine, but he refuses to approach retail stores now, and I perfectly understand why. 
+Cam's fine, but he refuses to approach retail stores now, and I perfectly understand why.
 
 We're a lot more cautious when exploring now.
 
@@ -60,4 +60,4 @@ I took a few steps back, each step echoing throughout the seemingly empty comple
 
 **JACK:** I know. I didn't know how I'd redeem myself, y'know? I'm... I'm such an idiot.
 
-I thought that Jack was our hope, our leader, our shining star in this desolate, empty abyss. Turns out he knowingly led us to our doom. What do we even do anymore?
+I thought that Jack was our hope, our leader, our shining star in this desolate, empty abyss. Turns out he knowingly led us to our doom. [What do we even do anymore?](https://www.reddit.com/r/nosleep/comments/160akeo/im_exploring_an_abandoned_mall_with_a/)
