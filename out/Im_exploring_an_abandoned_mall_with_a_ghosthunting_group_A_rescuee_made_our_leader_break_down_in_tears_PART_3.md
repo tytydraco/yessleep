@@ -14,7 +14,7 @@ We've officially been here for [6 days](https://www.reddit.com/r/nosleep/comment
 
 &#x200B;
 
-Jack walks up to the unusually calm, unmoving hand and pulls it up.
+Jack walked up to the unusually calm, unmoving hand and pulled it up.
 
 &#x200B;
 
