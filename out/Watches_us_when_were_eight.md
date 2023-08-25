@@ -1,4 +1,3 @@
-The story I am about to tell you is true. 
 
 I once lived in a trailer park when I was a child over in rural West Virginia. 
 
@@ -8,7 +7,7 @@ My room was stationed near the far end of the large single wide trailer and my p
 
 I had a closet that took up a good portion of my room along with a window right next to my bed. If I were to measure this room, it was no bigger than a closet you would find in a much bigger house. 
 
-I remember so vividly that October night when it was time to go to bed, the sound of crickets outside my window and owls making their noises near the trees further away.
+I remember so vividly that September night when it was time to go to bed, the sound of crickets outside my window and owls making their noises near the trees further away.
 
 It was late September and the nights were getting a tad crisp. 
 
@@ -59,6 +58,8 @@ I didn’t get much sleep that night and my dog never stopped watching the windo
 
 Years go by and I have a daughter, she turned eight and on the phone she told me of when “it” watched her. 
 
-A shadowy figure, everywhere she went in her home (_her mother and I have been divorced_) it followed.
+A shadowy figure, everywhere she went in her mother’s home, it followed. 
 
- As she explained its appearance and how it was in broad daylight, she added one detail that struck me to my core. The being had faint red eyes.
+Since her mother and I were divorced and living in separate houses miles apart, all I could do was listen. 
+
+ As she explained its appearance and how it was in broad daylight, she then added one detail that struck me to my core. The being had faint red eyes.
