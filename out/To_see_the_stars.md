@@ -37,3 +37,5 @@ I saw nothing. I looked out over the field towards the woods. Nothing. The sun w
 Later that day I went out to the field and the edge of the woods in the light. I checked everywhere along the edge of the woods and walked back to my house looking for tracks. The only tracks I saw were deer tracks and there was no sign of anything near my house.
 
 I think I might get a dog. I don’t know what I will do when I wake up at 3:30 am in the morning, but I’ll keep y’all updated if anything happens again. I really don’t even want to go to sleep tonight and as much as I love the stars I don’t know if I’ll ever go lay in the field and look at them again.
+
+[part 2](https://reddit.com/r/nosleep/s/kHLlcDeZd2)
