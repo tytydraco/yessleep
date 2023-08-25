@@ -1,3 +1,5 @@
+(UPDATES AT THE BOTTOM!!)
+
 Just to clarify, I won’t give any names for obvious reasons, although I do sincerely hope that there will be a braver person to unveil the awful happenings that take place when the curtain closes. Also, please excuse any typos or mistakes, but I am writing this in precarious conditions and in a rush.
 
 For context, I was one of the main characters on a top-rated horror TV Show that has been going on for over a decade. Considering the genre, it was not uncommon that a lot of actors (playing main characters or side characters) died. It’s a perk, to be honest, because if you want to change jobs, you can just notify the writers and producers, and they will kill you off. And then they throw you a last supper and off you go. Although, come to think of it, I don’t recall seeing any of the actors in any other roles since, but more on that later.
@@ -205,3 +207,19 @@ I won’t put down what followed next, because the level of gruesomeness can’t
 “Fuck no, snap out of it”, Mary shook me again. “I know a guy, he’ll get you paper work, you run, go to South America, it’ll be easy.”
 
 And that’s what we did, and here I am it’s Sunday and I am telling you my story. I am in a godforsaken place somewhere I won’t name, for obvious reasons. I don’t know what to do, I don’t know who to call, so I’m reaching out to reddit in the hopes that someone has some sort of power or investigative drive to get to the bottom of it. I have nothing to offer, I’ve lost everything but my life, and I would have given that up gladly if I knew that would put an end to this, but it won’t. Those fucking bastards, they’re going to keep doing this, unless someone stops them.
+
+&#x200B;
+
+EDIT & UPDATES: 
+
+  
+Thank you all for your support and words of encouragement! I have been moving locations a lot and I don’t always have access to the internet, it’s hard to check and reply to you all, but I will try to answer some of the messages and questions.
+
+  
+\- I don’t have access to my funds and most of my money is safely in banks, so plastic surgery is not an option, at least not at this time. I do like the idea of growing a beard and becoming a mountain man.  
+\- I have to move every 2-3 days, to stay ahead of them, I don’t know if this will ever change, but I will keep you updated   
+\- Yes, you can have the gift basket, if you dare!  
+\- I have no idea whether the drone recorded anything or not, and I have no way to contact Mary at the moment - or rather, I don’t want to put her in danger. All I have is some petty cash, the clothes on my back, and this burner phone - sometimes I find a friendly local to let me sleep over and give me some food. I avoid using their internet, as I fear for their lives.   
+\- I wouldn’t be surprised if the FBI is in on this  
+\- I can’t name the show but some of you weren’t far off  
+\- Luckily, I have received a private message offering investigative help - of course, I am wary of meeting them, but so far, they are handling it remotely - maybe they will be able to help, and quickly, before the next death on the TV show  

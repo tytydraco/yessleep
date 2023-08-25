@@ -1,6 +1,6 @@
 Throwaway because my boyfriend's on reddit and I don't want to freak him out more than I already have but has anyone else used the open casket filter?
 
-Like everyone during Hurricane Hilary, I was messing around on tiktok playing with the new filters until I stumbled upon this new one called open casket. It's right after bold, and basically the filter shows you laying in a casket as it gives you the exact date of when you will die. I made my boyfriend try it first and he looked fine, pretty much just like the aged filter with a date for 03/12/2067. But when I tried it, I literally threw my phone across the room.
+Like everyone during Hurricane Hilary, I was messing around on tiktok playing with the new filters until I stumbled upon this new one called open casket. It's right after bold, and basically the filter shows you lying in a casket as it gives you the exact date of when you will die. I made my boyfriend try it first and he looked fine, pretty much just like the aged filter with a date for 03/12/2067. But when I tried it, I literally threw my phone across the room.
 
 Why? Because the filter gave me my date for this weekend. And it didn't show me as some peaceful old lady laid gracefully to rest -- it showed me as I am now, except there was a deep ridge that swallowed the middle of my face. And my jaw hung impossibly low, as if stretched by something unnatural. I don't remember everything because I don't want to remember everything.
 
