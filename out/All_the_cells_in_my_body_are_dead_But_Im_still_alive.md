@@ -158,7 +158,7 @@ She looked upset. No longer excited and fascinated by me, but disturbed. I final
 
 “You’re not saying…” I shook my head. “That’s crazy. I can’t—”
 
-“Six months ago,” she said, pulling out her phone. “A woman named Cate Benson died of a seizure. You can’t tell me that doesn’t look *exactly like you.”*
+“Six months ago,” she said, pulling out her phone. “You, Cate Benson, died of a seizure. Look at the photo. You can’t tell me that doesn’t look *exactly like you.”*
 
 I looked at the article.
 
