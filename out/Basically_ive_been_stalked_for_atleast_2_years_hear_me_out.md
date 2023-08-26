@@ -1,0 +1,14 @@
+Basically i’ve been stalked for at least 2 hrs, hear me out
+
+If my stalkers are reading this, please just stop. you know how tragic my life has been recently, and while i may have deserved it in the past, i’m just a kid and it ruins my life.
+
+Don’t know where to talk about this, thought y’all may wanna hear…
+Will give more detail after sleep
+
+About 2 and a half years ago my uncle came to my house in distress hiding from windows and acting very paranoid.. i just shrugged it off as it just didn’t surprise me. Later that day, at night, I was alerted to really loud knocking on the door by police. They forced us all out of the house, sat us down in the rain and cold, kept asking about guns and searched the house. I initially thought my uncle had snuck someone in my house, and so I proceeded to ask him what was going on. He just responded with “I’m a dead man, they’re going to kill me.”
+
+As the police officer asks what’s going on, my uncle explains that, keep in mind this is likely not the full story, in his words, he was letting some people live in his apartment, they didn’t pay rent, so he threatened to evict them. they then made death threats, and planted cameras in my uncles room, or he claims so atleast, this lead to him coming to my
+house to make sure we’re okay, and claims the people were lurking around our house, which my friend who was there confirms he saw. I did not see them, however I saw the blue van they described which I have never seen in my neighborhood before. Now I know what your thinking, this sounds like typical schizophrenic behavior, I thought so too, until later on I would notice the door to my house being open when I come back home after leaving, hearing footsteps outside, one time hearing really loud whistling at midnight coming from my bushes, and then eventually seeing someone stalking me face to face on my property. A couple expensive items have gone missing, but my uncle claims they truly just want to make our lives horrible and nothing more, but he always states that we DO NOT know what their intentions are. They initially at the first day stated they would kill me, the whole family, and burn the house down. It’s been 2 and a half years since this started, and i’m not sure if they still stalk us, but damn… sure makes life weird.
+
+Another time they came into my room while I was asleep and did only god knows what and then walked out. I am not crazy. I exhibit no signs of schizophrenia. This started when I was 13 I believe. Wild that this is happening. I just can’t catch a break in my life. I’m not sure what you guys want from a post. I don’t have any proof, you guys are just gonna take my word here. It’s currently 5 am and I kinda just want some people to talk to while i’m paranoid in the darkness lol… Just heard footsteps in my
+house but it was prob nothing… There’s more to the story but i’ll add more another time. Not sure what y’all want to read but hope y’all enjoy this…
