@@ -2,7 +2,7 @@
 
 The Sisters of Perdition
 
-https://www.reddit.com/r/nosleep/comments/zlblgq/the\_sisters\_of\_perdition/
+[https://www.reddit.com/r/nosleep/comments/zlblgq/the\_sisters\_of\_perdition/](https://www.reddit.com/r/nosleep/comments/zlblgq/the_sisters_of_perdition/)
 
 &#x200B;
 
@@ -190,4 +190,4 @@ Just then Samiaza appeared with a wand knife. "A land octopus can fit through an
 
 He then went through the opening in Maximillians's forcefeild and gouged out his third eye. Maximillians's Halo turned black.
 
-I got into a jeep and drove out of the canyon. I raced back to my home away from home, the monastary, before I head to st pertersburge to try and warn the remaining Caesareans about Maximillian.
+I got into a jeep and drove out of the canyon. I raced back to my home away from home, the monastary, before I head to st pertersburge to try and warn the remaining Caesareans about Maximillian. I thought about sending a telegraph, but I assumed they were all being watched and that Maximillian had sent out orders to capture me.
