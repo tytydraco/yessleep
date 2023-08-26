@@ -60,3 +60,5 @@ I’ve got to go now as Percy is demanding his feed, I don’t want to keep him 
 
 I’m determined to  find out what’s possessed my Penis and I’ll keep you updated with what I discover. 
 He’s really starting to scare me with some of the things he’s threatening to do if I don’t feed him.
+
+Edit: Thank you for all your suggestions , ideas and comments of support, I will post an update once I’ve processed all that’s been happening.
