@@ -274,7 +274,7 @@ written at the very bottom of the next page.
 
 &#x200B;
 
-There was a depiction of a stickman burning in the middle of the page.
+There was a depiction of a burning stick figure in the middle of the page.
 
 &#x200B;
 
