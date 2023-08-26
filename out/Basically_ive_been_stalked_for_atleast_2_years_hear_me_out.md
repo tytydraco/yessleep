@@ -1,5 +1,8 @@
+-notable info: stalkers left deer head on uncles porch, left burned car (motorcycle?) parts in firepit, part of a nazi gang i’m not going to name, hacked uncles texts to see where girlfriend worked, and then proceeded to flirt with girlfriend and steal her, converting her to fuck with my uncle with him. crazy, i know, but believe me, it’s true..
+
 Basically i’ve been stalked for at least 2 hrs, hear me out
 
+-blood stain post from over a year ago [blood stain post](https://www.reddit.com/r/CrimeScene/comments/p9jm6r/what_would_an_8_month_old_bloodstain_look_like/?utm_source=share&utm_medium=ios_app&utm_name=ioscss&utm_content=2&utm_term=1)
 If my stalkers are reading this, please just stop. you know how tragic my life has been recently, and while i may have deserved it in the past, i’m just a kid and it ruins my life.
 
 Don’t know where to talk about this, thought y’all may wanna hear…
