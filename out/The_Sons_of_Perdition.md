@@ -68,7 +68,7 @@ Just then the sky turned blood red and the sun turned into a red eye.
 
 A voice echoed through the canyon "You will all die!"
 
-Just then hundreds of thousands of demons started pouring into sight, filling the canyon one demon high. Demons fell from above us and the nitro glycerin tanks exploded, killing hundreds of demons.
+Just then hundreds of thousands of demons started pouring into sight, filling the canyon one demon high. Demons fell from above us and the nitro glycerin tanks exploded, killing hundreds of demons. They had reddist brown skin and horns, with a stalky humanoid build.
 
 We turned all our weaponry around and began firing into the oncoming haord. We were hitting them with everything we had and shreding them by the thousand, but they just kept coming.
 
