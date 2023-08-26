@@ -1,0 +1,23 @@
+Have you ever heard the saying, ‘Men are afraid that women will laugh at them.  Women are afraid that men will kill them.’?  It’s actually a quote from one of my favourite authors, Margaret Atwood, the author of ‘The Handmaid’s Tale’.
+
+I read stories of dystopian futures and things that go bump in the night, and I am so thankful to live in the now.  Women have more freedom and equality than ever before.  I have been able to build a career in software development, I have a lovely house of my own, a car, money in the bank and so many things that a woman 150 years ago would not have believed was possible.  There was a time when a woman like me, despite being intelligent, curious and independently minded, would have only been able to secure a future by finding a husband to take care of her.  I couldn’t bear the thought of being so dependent on someone else, unable to make my own choices and decisions.  I am the master (or mistress?) of my own destiny and that is just how I like it.
+
+Having said all that, just because I am independent doesn’t mean I have to be lonely.  I date, and isn’t it great that I can date freely without being slut shamed and shipped off to some convent or something?  Jane Austen could only dream of the life I live.
+
+So, I have been dating this guy, Ian, for a few months.  Ian .. I mean, it isn’t Heathcliff or anything cool (not that the Brontes are role models) but he is a nice guy.  I like how he really appreciates me, you know?  He has been so kind and attentive when we spend time together.  He notices little details about what I am wearing, or doing, I haven’t experienced anything like this before, I was kind of swept off my feet a little.
+
+However, in the last few weeks I have started to notice a few red flags.  Things that alone I could overlook but together … not so much.   When we go out, he has started to suggest that my clothes are too provocative, that other men are paying too much attention.  He texts me all the time and has started to get really irritated when I take too long to reply.  I have been starting to feel a little bit smothered, and it is making dating him a lot less fun.  In fact, now when I see a message coming through from him I feel slightly anxious instead of excited, and that’s not what I am looking for.  I don’t need or want any man telling me how to live my life or behave.  I don’t need his control, his money, his validation or frankly any of his crap.
+
+So tonight, we had plans.  He wanted to go to dinner, but I decided it would be a good time to discuss my concerns.  He actually got the ball rolling when he came to collect me and told me my dress was too short.  I took the cue and I told him very calmly that I want to end the relationship.  I told him that I didn’t feel comfortable continuing dating him, that his level of intensity was too much and that I wished him well in the future.
+
+I didn’t expect him to be happy, per se, but I was completely unprepared for his reaction.  He became verbally aggressive, telling me that I was stupid, that I would never find someone as good as him.  He called me an attention-seeking whore who was breaking up with him to continue a life of promiscuity and depravity.  
+
+I was horrified.  How dare any one come into my home and speak to me like that?  That’s not ok, I mean, we are living in a post me-too world.  I told him in no uncertain terms to get out of my house and never contact me again.  I was brave, strong and forthright.  I stood up for myself, I set clear boundaries and I made sure he knew I wasn’t prepared to take any crap.  I am a modern woman, I know my rights.
+
+That’s when it all went dark.  From what I can tell from here, he smacked me across the face so hard that he shattered my cheekbone and dislocated my jaw.  After I lost consciousness, he kept hitting me, until he caused a fatal bleed in my brain.  When they found me I had no less than nine broken bones and my injuries rendered me unrecognisable.
+
+I thought I was so blessed, so lucky to have so much freedom in my life.  I had rejected the patriarchy and built my own life.  I did everything right, I set my boundaries and I tried to get out when I saw the red flags.
+
+So here is my final thought, when people are victim-blaming and asking how can women find themselves in abusive situations and not get out.  Be warned, you can be strong and be smart and stand up for yourself…… and then some man will just fucking kill you.  
+
+Good luck out there, ladies.  The world has not changed as much as we would like to think it has.
