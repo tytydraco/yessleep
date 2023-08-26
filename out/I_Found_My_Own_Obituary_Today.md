@@ -89,7 +89,7 @@ I'm now sitting in a hotel room in the main part of this dreadful town. I consid
 
 I've thought of everything! Surely, it's a dirty joke being played on me! I considered old lady Francis but I highly doubt she had the resources or skill to create such a perfect copy of a newspaper. 
 
-Maybe one of the cruel bullies from my childhood still live around here and did this to mess with me, knowing I'd be coming here after the death of my aunt (word travels fast in small towns).
+Maybe one of the cruel bullies from my childhood still lives around here and did this to mess with me, knowing I'd be coming here after the death of my aunt (word travels fast in small towns).
 
 Regardless of all the logical reasons I've come up with, a part of me not only feels terrified but actually believes this stupid piece of paper! 
 
