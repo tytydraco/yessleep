@@ -173,3 +173,5 @@ My head swam. I felt weak. Every muscle in my body felt like it had seized up. â
 I stared down at my hands. At my skin. Made of mud. Made of clay.
 
 Animated, but never [alive.](http://www.reddit.com/r/blairdaniels)
+
+[Update](https://www.reddit.com/r/nosleep/comments/162hmhu/all_the_cells_in_my_body_are_dead_but_im_still/)
