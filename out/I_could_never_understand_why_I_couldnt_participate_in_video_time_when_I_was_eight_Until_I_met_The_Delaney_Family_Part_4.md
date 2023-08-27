@@ -274,7 +274,7 @@ Even with all of the color drained away, reality twisted and contorted into this
 
 While the man whom I thought I knew seemed to be a clumsy mess, this guy’s expression was hardened, a certain hollowness in his eyes. Not the vacancy of a lost soul lost inside a shell of himself. This guy had a rough upbringing and definitely had street sense. He was younger, a piercing in his nose, and tattoos running up and down his arms. While Spencer had worn white shirts and sweater vests, a rich guy part of a high-class family, this guy’s hair was in need of a cut, lips chapped. I could see his attempt at coloring in the holes in his sneakers, and his cap was definitely thrifted. 
 
-“Yoo,” Spencer’s eyes were narrowed, lips curved around the pen parting into a scowl. “Anyone in there? Dude, I’ve been knocking for like, five minutes. I’m here for, uh… The Delaney’s?” He ducked down and pulled out four pizza boxes from a large bag. “Three pepperoni pizzas, a large Coke, and a brownie dessert.” Spencer paused. 
+“Yoo,” Spencer’s eyes were narrowed, lips curved around a pen parting into a scowl. “Anyone in there? Dude, I’ve been knocking for like, five minutes. I’m here for, uh… The Delaney’s?” He ducked down and pulled out four pizza boxes from a large bag. “Three pepperoni pizzas, a large Coke, and a brownie dessert.” Spencer paused. 
 
 “Do you want me to leave ‘em out here, or….?”
 
@@ -442,17 +442,19 @@ I was aware of my gun slip from my hands, and my knees hitting the floor.
 
 A familiar voice, arms on my shoulders. Breath in my face. *Say it with me,* his voice was shaking. *Three point one, four–* 
 
-*We’re running out of time,” another voice. Harsher. "Oh my fucking god, let me try.*
+*We’re running out of time, idiot.* 
 
-*She's not responding!" 
+Another voice. Harsher. *Oh my fucking god, let me try!*
+
+*But she's not responding!* Shaky voice whispered. 
 
 *You know we’ve got minutes, right?*
 
-*It's all we've got,* The shaky voice hissed out. *You guys taught me it.*
+*It's all we've got,* The one with the trembling voice was the one holding me. *You guys taught me it.*
 
-The harsher voice groaned. *It's an anchor, that's it. This thing is permanent. We're never getting free.*
+The harsher one groaned. *It's an anchor, that's it. This thing is permanent. We're never getting free.*
 
-A girl's voice this time, "Maybe we're saying it wrong? Three point one, four, one, five, nine, two, six, five, three…* 
+A girl's voice this time, *Maybe we're saying it wrong? Three point one, four, one, five, nine, two, six, five, three…* 
 
 The voices faded into white noise, and I was left with the numbers in my head. 
 
