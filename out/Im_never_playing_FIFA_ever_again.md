@@ -1,0 +1,29 @@
+About a year ago, I wanted to play a football game on my Playstation. So I went and bought the newest edition of 'FIFA'.
+
+I particularly love the single player career mode in this game. Just managing my own team and endlessly playing matches for a few hours. It's really relaxing and previous editions of this game had already brought me countless hours of fun.
+
+In this particular one, FIFA 22, had some interesting new features in career mode that I hadn't seen before. For instance, players could send you messages to ask you things like more play time or to review thzir contracts. And many more new features.
+
+In this mode of the game, you don't just play matches, but you control every aspect of the team. You set the formations, select your basic players and substitutes, you can buy and sell players,.... . A lot of immersive options. Sometimes, you have to make decisions that are good for a player, but that can affect the team and vice versa. You also get 'manager points' based on decisions and results. If those points get dramatically low, you can actually get sacked as a manager.
+
+Anyways, I installed the game and fired up a career mode with my favorite team and started playing. And after a few days, I completed a successful season with my team. I had made good and bad decisions, always for the good of the team. That meant I also had to dissapoint some lesser players that I didn't include in my selection. But I never transferred them. Because, in case of an unexpected injury, I'd have a temporary player to fall in. Those players would occasionally send a message asking to play, but I'd usually blew them off. 
+
+One day, one of those players sent me a message. I saw the 'player chat' option with a big number one next to it. I sighed and opened only to find a very weird message. It consisted of nothing but gibberish. There just letters randomly scrambled across the message. I was perplexed, but I figured this must have been some glitch. To dispose of the message, you also have to answer the message. The options I had were also gibberish, so I randomly selected one and gone was the message.
+
+After a few matches, I got a new chat request from the very same player. Again consisting of gibberish. This went on about a few times and I was now fully convinced that this was just an annoying glitch and told myself I'd sell the player in the next transfer period.
+
+But then, the next message I got, scared the living hell out of me. The message only contained two words, written in all caps: HELP ME. I startled when I saw this. It couldn't be a coincidence. I stared at the words for a while, but then, my eyes dropped on the player's avatar. Every player has got an avatar picture. It shows up in the selection list, transfer hub, etc. And also when you get a message from a player. This player had one too, but in that particular message, it was completely different. It wasn't just a picture of the player, posing and smiling in his jersey. It was the same player, but without jersey. All beat up and mawled across his face. There was a lot of blood on the face as well. A truly horrific sight.
+
+I put my controller down and wandered off for a bit, trying to regain my senses and to try an captivate what just happened. This must be some creepy joke one of the developers had put in. That must be it.
+
+I then returned to the console and tried to reply to the message. But instead of the usual 3 reply options you get, I got only one. I still get goosebumps thinking about it. It read:  "Send to hell". Without any other option, I clicked it. The 'happiness bar' of the player dropped to an absolute zero and the avatar turned completely black.
+
+I exited the player chat and hoped that would finally be the end of it. To test it out, I decided to play another match. I started it up and waited for it to begin. What happened then, still haunts me. The line-up of my squad was normal, but one of the players had been substituted with that player. Before a match begins, you see a cutscene of the players walking on the field. The player was among my squad, but he looked completely different. His face was disfigured and bloodied, just as in the avatar. His arms were missing and his legs were very thin and very white. 
+
+The moment the referee blowed his whistle tot start the game, that player out of nowhere catches fire. Yes. Fire! In a football game! At this point, I was shaking. I tried to play the game anyway. The moment, the burning player gets the ball, I pass it to another player. That player catches fire too. And the next one too. And the one after that. Not long after that, every single player on the field is on fire. I keep cursing and muttering in disbelief. How is this possible? Then, after only 5 'game minutes' of playing, the referee ends the game and the end of game cutscene comes on. I shake my head in complete disbelief. The screen then cuts to black and without any explanation or cutscene, I'm warped to the main menu of the game. 
+
+I then try to restart my game, only to find my save file is gone. Even stranger: the team I was managing seemed to have completely dissapeared from the game. I then turned off my console and took the box of the game. I couldn't see anything strange about it. I then decided to delete the game and never play it again.
+
+The day after, I googled the name of that particular player. It turns out, he was involved in drug trafficking with a south-American cartel. He got in a disagreement with them and they kidnapped him and brutally murdered him. 
+
+One thing's for sure: I'm never playing that game ever again!
