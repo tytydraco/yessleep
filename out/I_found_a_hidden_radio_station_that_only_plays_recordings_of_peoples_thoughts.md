@@ -410,7 +410,7 @@ I hit a fucking telephone pole.
 
 &#x200B;
 
-The wood of the pole splintered. It was gonna fall. I darted forward and turned back to watch it fall.
+The wood of the pole splintered. It was gonna fall. I darted forward and turned back, waiting for it to fall.
 
 &#x200B;
 
