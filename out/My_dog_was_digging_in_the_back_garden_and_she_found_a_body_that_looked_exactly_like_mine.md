@@ -72,7 +72,7 @@ Dirt.
 
 My heart was pounding as I pieced together what I could — that Jack had clearly slipped into the garden and moved the body to his car before coming inside. Why? Well, I had an inkling as to how I could find the answers about the man I thought I had known for 7 years.
 
-With Jessie closely following me — still rattled about her discovery in the garden — I headed to Jack’s office. It wasn’t a room that he had ever forbade me from entering. However, one of his desk drawers had a lock, which had always been a point of contention in our relationship. Something that Jack forever dismissed as a security measure against intruders.
+With Jessie closely following me — still rattled about her discovery in the garden — I headed to Jack’s office. It wasn’t a room that he had ever forbidden me from entering. However, one of his desk drawers had a lock, which had always been a point of contention in our relationship. Something that Jack forever dismissed as a security measure against intruders.
 
 I didn’t know how much time I had before he returned home, so I got to work. I strode through Jack’s cluttered workspace, rounding the corner of the desk. Without hesitation, I proceeded to hammer away at the locked drawer with the blunt end of a heavy ornament. Jessie pawed at the drawer inquisitively, barking at the excessive noise.
 
