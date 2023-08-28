@@ -59,9 +59,9 @@ While I was in the process of making my way back through the snow to my vehicle,
 
 
 
-If you are taking the time to read these words, please know that your willingness to read this story is greatly appreciated. It truly means the world to me that you have invested your time and attention to do so.
+If you are taking the time to read these words, please know that your willingness to read this story is greatly appreciated. It truly means the world to me that you have invested this much time and attention to do so.
   
-I would like to take this opportunity to inform you that I am currently working on developing even more stories like this one. I would like to show my appreciation for your support by letting you know that you don't owe me anything. All I ask is that you help me spread the word about my channel.
+I would like to take this opportunity to inform you that I am currently working on developing even more stories like this one. I would like to show my appreciation for your support by letting everyone know that no one owes me anything. All I ask is that you consider helping me spread the word about my channel once it's started.
 
 
-I’ll be reading these on my own true crime podcast channel as well. If you liked the story, I hope that you will keep returning to read future stories that I create. I strive to create unique content that is informative, entertaining and spooky, so that you can enjoy it as much as I do.
+I’ll be reading these on my own true crime podcast YouTube channel. If you liked the story, I hope that you will keep returning to read future stories that I create. I strive to create unique content that is informative, entertaining and spooky, so that you can enjoy it as much as I do.

@@ -32,6 +32,7 @@ But the land never drew closer. I put all my strength into it, really buckled do
 
   
 Charon came to claim his ferry when he woke up. Turned out he had a spare boat, surprise surprise.  
+
 He commanded the boats together and wrapped one big hand around my throat. He held me up over the river, while I clawed at his wrist with my fingernails. “I should really just drop you in.”
 
   
@@ -42,6 +43,7 @@ He sighed, then tossed me in the back like a sack of flour and took me back to s
 
   
 Another time, I tried to steal his watch. He’d learned from the boat incident, and was always careful to keep an eye on me when I was around, so I had to wait until his guard was down.  
+
 I wrapped my fingers around the knob and spun it like I’d seen Charon do, filled with hope for the first time in decades.
 
   
@@ -100,6 +102,7 @@ The stakes fell into the river with a sound like a fire starting. There was a pa
 
   
 I ran for the dock, where I knew Charon kept emergency stakes. I fell to my knees in the sand beside his tool chest and gathered up a handful, as well as a hammer. When I got to my feet, I could see that his shield was failing. A claw slipped through, or the end of a tail. A Damned managed to fit its entire upper body through the barrier before Charon managed to push it back. We didn’t have much time.  
+
 He saw me coming, the silver in my hand, and nodded in grim understanding. He turned the knob another degree, and took a step forward, pushing the shield and the Damned with him. I stayed beside him, holding onto his arm when he stumbled. I tried not to look at the Damned; I was barely holding onto my courage without the sight of them literally foaming at the mouth as they tried to get at me.
 
   
