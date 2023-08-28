@@ -1,4 +1,4 @@
-I'm sure some of you know what the Stranger Ritual is, right? Well, perhaps you're safer not knowing about such a ritual. But if you do want to know, however, then I guess I'll tell you. The Stranger Ritual is a ritual that allows anyone to contact something from another world, a world beyond the limits of human comprehension. Some people believe this ritual allows anyone to contact Death itself.
+I'm sure some of you are asking what the Stranger Ritual is, right? Well, perhaps you're safer not knowing about such a ritual. But if you do want to know, however, then I guess I'll tell you. The Stranger Ritual is a ritual that allows anyone to contact something from another world, a world beyond the limits of human comprehension. Some people believe this ritual allows anyone to contact Death itself.
 
 At least, that's what I heard from people who talked about it.
 
@@ -18,7 +18,7 @@ I placed the bag of ROLOs far enough in front of the door so it wouldn't touch o
 
 I opened the door, but not fully. I cracked the door and not looking outside, turned around and stay behind my gift away from the door. I heard the door open fully, and the Stranger became a guest in the cabin.
 
-The Stranger's presence felt so wrong, like something that shouldn't even be in this world. But I quelled my fear as much as I could, as the Stranger itself is my guest, so it wouldn't harmed. 
+The Stranger's presence felt so wrong, like something that shouldn't even be in this world. But I quelled my fear as much as I could, as the Stranger itself is my guest, so it wouldn't harmed.
 
 And I didn't dare myself to look at the Stranger behind me. And if I did, I heard stories of people going blind or insane, stating the Stranger's presence never goes away. I did not want to end up like those poor souls who performed this ritual. I was so worried that the Stranger would not approve of the gift I gave it, but thankfully, it did. And the Stranger asked me for a name. I looked into the photo and gave the Stranger Julian's full name.
 
