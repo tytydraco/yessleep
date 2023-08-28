@@ -54,18 +54,14 @@ After finally landing on the rooftop, I paused to catch my breath as I took in t
 
 While I was in the process of making my way back through the snow to my vehicle, the creature quickly descended the wall. It was heading right towards me. My heart was racing as I trudged through the snow as fast as I could. I jumped into my Jeep Gladiator and floored the gas pedal, the engine roaring to life. The sound of my tires squealing echoed around the corner as I took off, heading home. During the drive, I made a difficult phone call to my boss and submitted my two-week notice.
 
-&#x200B;
 
-&#x200B;
 
-&#x200B;
 
-&#x200B;
 
-&#x200B;
 
-&#x200B;
+If you are taking the time to read these words, please know that your willingness to read this story is greatly appreciated. It truly means the world to me that you have invested your time and attention to do so.
+  
+I would like to take this opportunity to inform you that I am currently working on developing even more stories like this one. I would like to show my appreciation for your support by letting you know that you don't owe me anything. All I ask is that you help me spread the word about my channel.
 
-If you are taking the time to read these words, please know that your willingness to read this story is greatly appreciated. It truly means the world to me that you have invested your time and attention to do so.  
-I would like to take this opportunity to inform you that I am currently working on developing even more stories like this one. I would like to show my appreciation for your support by letting you know that you don't owe me anything. All I ask is that you help me spread the word about my channel.  
-I’ll be reading these on my own true crime podcast channel as well. If you liked the story, I hope that you will keep returning to read future stories that I create. I strive to create unique content that is informative, entertaining and spooky, so that you can enjoy it as much as I do. 
+
+I’ll be reading these on my own true crime podcast channel as well. If you liked the story, I hope that you will keep returning to read future stories that I create. I strive to create unique content that is informative, entertaining and spooky, so that you can enjoy it as much as I do.
