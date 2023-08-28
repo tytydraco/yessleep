@@ -377,3 +377,9 @@ That was three nights ago. It's been my day off for the weekend, and Cassandra h
 
 
 If anyone out there is reading this, I'd appreciate your thoughts or feedback. Am I overthinking things? Am I going crazy thinking something is messed up with this place? I'll be checking back here for any responses, so feel free to share your thoughts.
+
+
+
+
+
+[next entry](https://www.reddit.com/r/nosleep/comments/163liaw/i_work_as_a_nightguard_for_a_run_down_hospital_i/)
