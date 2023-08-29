@@ -30,7 +30,7 @@ It was about then that my wife startled me with her shriek of desperation from t
 
 Fortunately the ballroom music was so loud that the party on the other side of the wall never heard this, so I opted to play calm for my wife when in reality I was trying to remain undetected. 
 
-The ambulance and first responders soon had me fished out of the home after lowering a rope. I didn’t dare speak of what I’d seen for fear of being accused of insanity, and because I needed time to decide for myself how to accept what I’d seen. 
+The ambulance and first responders soon had me fished out of the hole after lowering a rope. I didn’t dare speak of what I’d seen for fear of being accused of insanity, and because I needed time to decide for myself how to accept what I’d seen. 
 
 It’s now the third night and the music has started up again. I’m thankful that my wife was so exhausted from the drama of the previous evening to hear it. As I lay here in bed with a cast over my right leg and a tunnel into hell just outside of my bedroom window, I have to wonder:
 
