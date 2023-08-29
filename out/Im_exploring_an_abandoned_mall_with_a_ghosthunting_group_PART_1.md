@@ -80,7 +80,9 @@ I tried to hide my sarcasm and smiled.
 
 **???:** Yeah, we're... we're like the Ghostbusters. Wooooo.
 
-**JACK:** That's Sam.Jack pulled Sam aside. I don't think anyone else saw this.
+**JACK:** That's Sam.
+
+Jack pulled Sam aside. I don't think anyone else saw this.
 
 **JACK:** C'mon, Sammy, ya gotta show a little more... enthusiasm, a bit more pizazz, got it?
 
@@ -146,7 +148,7 @@ We walked over to the mall's entrance, but I noticed something odd.
 
 **ME:** The sign looks a bit off.
 
-"Illimitata Mallest.
+"Illimitata Mall
 
 est. ∞"
 
