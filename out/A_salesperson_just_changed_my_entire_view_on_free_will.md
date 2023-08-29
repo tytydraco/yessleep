@@ -1,3 +1,4 @@
+
 Imagine you open your door and in front of it stands a person who apparently knows everything about you.
 
 The guy looked just as smug as I imagine a door salesperson. Honestly, I didn't know that they even existed anymore. I mean it does feel slightly intrusive and somewhat old-fashioned, especially as this particular guy didn't stop ringing until I finally opened the door.
@@ -28,7 +29,7 @@ The man chuckled.
 
 He shook his head vigorously.
 
-"No, no. *I* don't want to kill anything in there. I'm simply here to drop off a sample and if you look like it you can give me a call. Easy peasy. See, if *they* find their way inside. I know you think I'm trying to sell you something you don't need but you are simply wrong, Owen."
+"No, no. *I* don't want to kill anything in there. I'm simply here to drop off a sample and if you like it you can give me a call. Easy peasy. See, if *they* find their way inside. I know you think I'm trying to sell you something you don't need but you are simply wrong, Owen."
 
 Of course, he already knew my name as well.  
 

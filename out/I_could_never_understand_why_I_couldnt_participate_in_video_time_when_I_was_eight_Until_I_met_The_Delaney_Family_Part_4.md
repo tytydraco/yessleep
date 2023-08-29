@@ -144,7 +144,7 @@ I craned my neck. “I can see her behind that book.”
 
 I didn’t think Spencer could somehow embody anxiety and stress itself, and yet somehow he was managing it. I caught sweat glistening on his forehead. “Yep, I know,” he said through a wide smile. “Luna is just… curious. I’ve never had a girlfriend.”
 
-I folded my arms, enjoying the pretty glow in his eyes, which were mod-roll. 
+I folded my arms, enjoying the pretty glow in his eyes, which were mid-roll. 
 
 Every time I looked at him, I felt myself melt. It wasn’t just his smile that completely entranced me. It was everything about him; the stain on his blazer from the wine he’d spilled, and the red glow in his cheeks elevating uneven freckles. I had considered having “the talk” with him when I realized his brother and sister were slightly on the crazy side, clearly obsessed with their brother. 
 
