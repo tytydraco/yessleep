@@ -436,9 +436,9 @@ I felt her face showered in them, in pure ʍopɐɥs.
 
 I sensed her smile growing, revelling in each kill. 
 
-Something slammed into the back of her–our– head. 
+Until something slammed into the back of her–our– head. 
 
-I was aware of my gun slip from my hands, and my knees hitting the floor. 
+I was aware of my gun slipping from my hands, and my knees hitting the floor. 
 
 A familiar voice, arms on my shoulders. Breath in my face. *Say it with me,* his voice was shaking. *Three point one, four–* 
 
