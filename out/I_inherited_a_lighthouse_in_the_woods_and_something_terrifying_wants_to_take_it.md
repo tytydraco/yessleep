@@ -81,8 +81,4 @@ I lit a letter aflame. Stuffed it inside the lantern housing. It crackled and po
 
 See, the night before Harriet's message came, I'd seen another omen. This one came to me in a dream. In it was a crooked shadow with eyes of burning embers. It stood over a woman, small and pale with auburn hair, and a head lying six feet from her body. 
 
-A head that belonged to my sister. 
-
-​
-
-[MORE](https://www.reddit.com/r/TalesFromTheCryptid)
+A head that belonged to my [sister.](https://www.reddit.com/r/TalesFromTheCryptid)
