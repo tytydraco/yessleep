@@ -1,6 +1,6 @@
 She calls to me now across the sweating fog and with a shiver, I am with her. 
 
-Before now, there was a warm electric night in June, and she’d looked like pretty trouble lighting her last cigarette at the foot of a street lamp. She was quitting this time for good. She said it from the corner of her mouth and her invisible words were followed by a curl of smoke. It always seemed odd to me to celebrate an end with another quick beginning, but maybe I didn’t know the implacable nag of comfort as she did. 
+Before now, there was a warm electric night in August, and she’d looked like pretty trouble lighting her last cigarette at the foot of a street lamp. She was quitting this time for good. She said it from the corner of her mouth and her invisible words were followed by a curl of smoke. It always seemed odd to me to celebrate an end with another quick beginning, but maybe I didn’t know the implacable nag of comfort as she did. 
 
 The times that we had broken up before, she’d always come back, wordless and tearful and desperately affectionate and hopeful eyed. And foolish or loving, I’d never turned her away. So maybe my comfort was just different from hers. She savored hers in a breath and I, a touch. 
 
