@@ -48,8 +48,6 @@ I shouted..
 
 It stayed quiet, it held my son in its arms and plucked his eyes out. I passed out...
 
-I woke up in a bright room with people surrounding me, I heard them talking
+I woke up in a bright room. I opened my eyes and it was standing right infront of me, it placed it's hands on my head and I passed out again...
 
-What's happening with him?!
-
-We forgot to give him his meds doc.
+I woke up in a house, I felt like I saw it before. Is this my old home?

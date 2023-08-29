@@ -1,7 +1,3 @@
-[Derek](https://www.reddit.com/r/nosleep/comments/159hng1/why_i_will_never_send_my_kids_to_a_private_school/)
-
-&#x200B;
-
 William Harrison’s Preparatory School for Gifted Youngsters was a big school.
 
 A very big school.
@@ -393,3 +389,9 @@ Those who were consumed before they had the chance to do so themselves.
 God knows that’s the only reason why I’m still alive and kicking shamelessly.
 
 All thanks to you…
+
+&#x200B;
+
+&#x200B;
+
+[Derek](https://www.reddit.com/r/nosleep/comments/159hng1/why_i_will_never_send_my_kids_to_a_private_school/)
