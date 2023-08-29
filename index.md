@@ -1,6 +1,6 @@
 ## r/nosleep archive
 
-file count: 19148
+file count: 19149
 
 * [0315  A Ghost Story](out/0315__A_Ghost_Story.md)
 * [0](out/0.md)
@@ -4321,6 +4321,7 @@ file count: 19148
 * [I dont have much time left I need to make this quick](out/I_dont_have_much_time_left_I_need_to_make_this_quick.md)
 * [I dont know how I ended up in the ocean](out/I_dont_know_how_I_ended_up_in_the_ocean.md)
 * [I dont know how it got in](out/I_dont_know_how_it_got_in.md)
+* [I dont know how long shes been in the basement](out/I_dont_know_how_long_shes_been_in_the_basement.md)
 * [I dont know how old my university actually is](out/I_dont_know_how_old_my_university_actually_is.md)
 * [I dont know how to explain what happened to me at Sunset Grove](out/I_dont_know_how_to_explain_what_happened_to_me_at_Sunset_Grove.md)
 * [I dont know how to fix this](out/I_dont_know_how_to_fix_this.md)
@@ -4529,8 +4530,8 @@ file count: 19148
 * [I followed your advice and replied to Annes text Not sure I shouldve](out/I_followed_your_advice_and_replied_to_Annes_text_Not_sure_I_shouldve.md)
 * [I forgot everything from archery class](out/I_forgot_everything_from_archery_class.md)
 * [I forgot to bathe my son today and my partner is pissed](out/I_forgot_to_bathe_my_son_today_and_my_partner_is_pissed.md)
-* [I forgot to end the ritual](out/I_forgot_to_end_the_ritual.md)
 * [I Forgot To End The Ritual](out/I_Forgot_To_End_The_Ritual.md)
+* [I forgot to end the ritual](out/I_forgot_to_end_the_ritual.md)
 * [I forgot to feed my daughters imaginary friend and I may have put our entire neighborhood in danger](out/I_forgot_to_feed_my_daughters_imaginary_friend_and_I_may_have_put_our_entire_neighborhood_in_danger.md)
 * [I Forgot to Say Goodbye to My Brother I Dont Know Who Im Talking to Now](out/I_Forgot_to_Say_Goodbye_to_My_Brother_I_Dont_Know_Who_Im_Talking_to_Now.md)
 * [I forgot why I boarded this train and no one can tell me where its going](out/I_forgot_why_I_boarded_this_train_and_no_one_can_tell_me_where_its_going.md)
@@ -4701,8 +4702,8 @@ file count: 19148
 * [I found a strange radio in the attic It broadcasts messages from the other side](out/I_found_a_strange_radio_in_the_attic_It_broadcasts_messages_from_the_other_side.md)
 * [I found a strange room that shouldnt exist](out/I_found_a_strange_room_that_shouldnt_exist.md)
 * [I found a strange vase at an antique shop](out/I_found_a_strange_vase_at_an_antique_shop.md)
-* [I Found a Tape Recorder in the Woods What happened Afterwards Will Haunt Me Forever](out/I_Found_a_Tape_Recorder_in_the_Woods_What_happened_Afterwards_Will_Haunt_Me_Forever.md)
 * [I Found a Tape Recorder in the Woods What Happened Afterwards Will Haunt Me Forever](out/I_Found_a_Tape_Recorder_in_the_Woods_What_Happened_Afterwards_Will_Haunt_Me_Forever.md)
+* [I Found a Tape Recorder in the Woods What happened Afterwards Will Haunt Me Forever](out/I_Found_a_Tape_Recorder_in_the_Woods_What_happened_Afterwards_Will_Haunt_Me_Forever.md)
 * [I found a tape recording the confession of a crazy person This is what they said](out/I_found_a_tape_recording_the_confession_of_a_crazy_person_This_is_what_they_said.md)
 * [I Found a Time Capsule with a Letter Inside That Predicts My Death](out/I_Found_a_Time_Capsule_with_a_Letter_Inside_That_Predicts_My_Death.md)
 * [I found a tooth](out/I_found_a_tooth.md)
@@ -5847,8 +5848,8 @@ file count: 19148
 * [I need HELP My husband is being a complete gentleman and I think Im in GRAVE danger](out/I_need_HELP_My_husband_is_being_a_complete_gentleman_and_I_think_Im_in_GRAVE_danger.md)
 * [I need help out of his bathroom](out/I_need_help_out_of_his_bathroom.md)
 * [I need help with something I cant explain](out/I_need_help_with_something_I_cant_explain.md)
-* [I Need Help](out/I_Need_Help.md)
 * [I need help](out/I_need_help.md)
+* [I Need Help](out/I_Need_Help.md)
 * [I need serious help ive lost all hope](out/I_need_serious_help_ive_lost_all_hope.md)
 * [i need some help figuring out whats in my brothers room](out/i_need_some_help_figuring_out_whats_in_my_brothers_room.md)
 * [I need some help](out/I_need_some_help.md)
@@ -6222,8 +6223,8 @@ file count: 19148
 * [I see creatures keep appearing outside my church at night and they are not friendly](out/I_see_creatures_keep_appearing_outside_my_church_at_night_and_they_are_not_friendly.md)
 * [I see faces that arent mine when alone Part 1](out/I_see_faces_that_arent_mine_when_alone_Part_1.md)
 * [I See Her](out/I_See_Her.md)
-* [I see him everywhere](out/I_see_him_everywhere.md)
 * [I see him Everywhere](out/I_see_him_Everywhere.md)
+* [I see him everywhere](out/I_see_him_everywhere.md)
 * [I see it every night And it sees me](out/I_see_it_every_night_And_it_sees_me.md)
 * [I see my brother even though he is dead](out/I_see_my_brother_even_though_he_is_dead.md)
 * [I See Myself in the Mirror](out/I_See_Myself_in_the_Mirror.md)
