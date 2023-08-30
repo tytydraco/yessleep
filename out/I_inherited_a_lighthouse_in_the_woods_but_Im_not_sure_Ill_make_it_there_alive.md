@@ -1,8 +1,8 @@
 [PART 1](https://www.reddit.com/r/nosleep/comments/16427gn/i_inherited_a_lighthouse_in_the_woods_and/)
 
-The wood was a blanket of darkness. Tall trees reached to the sky, their branches stealing the narrow shafts of moonlight. I navigated with my lantern alone. In it, I burned my letters of safe passage. I hoped I’d brought enough, but even now, a half hour into the journey, I felt my bag emptying faster than expected. 
+The wood was a blanket of darkness. Tall trees reached to the sky, their branches stealing the narrow shafts of moonlight. I navigated with my lantern alone. In it, I burned letters. I hoped I’d brought enough, but even now, a half hour into the journey, I felt my bag emptying faster than expected. 
 
-Not good.
+*Not good.*
 
 My heart thrummed as I moved through the brush. There was a single path to Gloomfall, a narrow trail that was rarely traveled except by my family and those like us. It’d lead me to the lighthouse, to my sister, but only if I could find it. 
 
@@ -132,10 +132,10 @@ The shadow was tall. Far taller than I remembered. Its hair fell around its neck
 
 “What's the matter?” asked the shadow. “Don't you want to give your big brother a [hug?"](https://www.reddit.com/r/TalesFromTheCryptid)
 
-&#x200B;
+​
 
-&#x200B;
+​
 
-&#x200B;
+​
 
 **Events have been later transcribed from my journal.*
