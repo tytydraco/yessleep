@@ -4,7 +4,7 @@ The wood was a blanket of darkness. Tall trees reached to the sky, their branche
 
 Not good.
 
-My heart thrummed as I moved through the brush. There was a single path to Gloomfall, a narrow trail that was rarely traveled except by my family and those like us. It’d lead me to the lighthouse, to safe haven, but only if I could find it. 
+My heart thrummed as I moved through the brush. There was a single path to Gloomfall, a narrow trail that was rarely traveled except by my family and those like us. It’d lead me to the lighthouse, to my sister, but only if I could find it. 
 
 “Lost?” said a voice.
 
@@ -16,7 +16,7 @@ More laughter. The dogman dropped onto all fours. It was the size of a small bea
 
 Fucking hell. 
 
-I didn’t have any silver on me, which meant even if I could fight this thing, I couldn’t kill it. I’d left before considering what I was walking into. Foolish. Stupid. Now I was paying the price. I felt my bag around my shoulder, crunching the letters in my grip. There were fewer than I thought. 
+I didn’t have any silver on me, which meant even if I could fight this thing, I couldn’t kill it. I’d left before considering what I was walking into. Foolish. Stupid. Now I was paying the price. I squeezed the bag around my shoulder, crunching the letters beneath the fabric. There were fewer than I thought. 
 
 “You’re going to be waiting awhile,” I lied, trudging on. 
 
@@ -28,93 +28,109 @@ I still hadn’t found the damn path.
 
 “You’re right to be afraid,” said the dogman. 
 
-“That so?” I glanced over my shoulder, but I couldn’t see it in the dim light. It was moving just beyond my vision. Out there, in the dark. 
+“That so?” I glanced over my shoulder, but I couldn’t see it in the dim light. It was moving just beyond my vision. Out there, somewhere in the dark. 
 
-“Your old man was just the beginning. Things are shifting here. Wheels are turning.”
+“Your old man was just the beginning," it said. "Things are shifting here. Wheels are turning.”
 
 “You’re a Nameless Haunt,” I told it. “What would you know?”
 
-It snapped its jaws, and I stumbled in surprise, almost extinguishing my lantern as I fell. More laughter. This time, howling. “And you’re a fucking coward. Nameless Haunt or not, I’ll have your heart in my teeth by the end of the hour. Bet on it.”
+It snapped its jaws, I stumbled backward in surprise and nearly dropped my lantern. More laughter. “And you’re a fucking coward," it sneered. "Nameless Haunt or not, I’ll have your heart in my teeth by the end of the hour. Bet on it.”
 
-I got to my feet, fishing in my bag for a fresh letter to light aflame. *Probably sooner,* I thought. *Where the hell is this path?*
+I took a deep breath, fishing in my bag for a fresh letter to light. *Probably sooner than that,* I thought anxiously. *Where the hell is this path?*
 
 Wait.
 
-There, up ahead. A winding creek. I'd walked along it ten years ago when I first left Gloomfall. If I followed that stream, it'd lead to my family’s land, and the lighthouse that sat upon it. 
+A sound up ahead, just beyond the brush. Running water. 
 
-I jogged toward it. My chances of survival just went from zero to slim, and I considered that a welcome improvement. 
+I fumbled forward, doing my best to keep my tripping on any errant roots. I parted a clutch of branches, and ahead I saw a winding creek. The same one I'd walk along ten years previous. If I followed that, then it'd me back to my family's land, and the safeguarding lighthouse that sat upon it. 
 
-“She’s next, you know,” the dog man said, rising up on its hind legs. It had to be seven feet. It kept pace with me, its jaws salivating while its cold eyes buzzzed with hungry anticipation. “Without your old man, the girl’s as good as dead.”
+I smiled. My chances of survival just went from zero to slim, and I considered that a welcome improvement. 
 
-I grit my teeth. If only I had some silver, I’d have run it through that monster’s ribs already. But I didn’t. All I had was my lantern and my wits, and my lantern was already doing all it could. “You’re well informed for a Haunt,” I muttered, doing my best to sound diplomatic. “Something as well connected as you probably knows what killed my old man, don't you?"
+“She’s next, you know,” the dog man said, rising up on its hind legs. It had to be seven feet. It kept pace with me, its jaws salivating while its cold eyes buzzed with hungry anticipation. “Without your old man, the girl’s as good as dead.”
 
-More laughter. Howling. It kicked up stones along the creek bed as it bounded around me, and I did my best to shield my lantern from any errant debris. If it knocked it out of my hand, even accidentally, the dogman would die. That was the law of the land. But I’d still be left without a lantern, and that meant I’d end up dead soon after.  
+I grit my teeth, telling myself to ignore its taunts. It wanted a rise out of me. The more emotional I got, the sloppier I became, and the more likely I'd be to drop the lantern. “You’re well informed for a Haunt,” I said, doing my best to salvage something from my situation. “Something as well connected as you probably knows what killed my old man."
 
-“Something funny?”
+More laughter, howling. The dogman kicked up stones along the creek shore as it bounded around me, and I did my best to shield the lantern from any errant debris. If it knocked it out of my hand, even accidentally, the dogman would die. That was the law of the land. But I’d still be left without a lantern, and that meant other phantoms would have their fill of me before long. 
 
-“I’ve just forgotten how long you’ve been gone. You never met him, did you?”
+“Something funny?” I asked.
 
-I frowned. “Met who?”
+“I’ve just forgotten how long you’ve been gone. Eight years? Ten? You never met him, did you?”
 
-The dogman stepped in front of me, its eyes gleaming. “The Stick Man,” he snarled. “He’s on his way to Gloomfall now. He’ll be killing your sister while we speak, I expect.”
+I frowned. “Who?”
 
-I searched his eyes, but I saw no hint of laughter behind them. No hint of  a lie.
+The dogman stepped in front of me, its eyes dangerous. “The Stick Man,” it whispered. “He’s on his way to Gloomfall now. He’ll be killing your sister while we speak... Doing all sorts of things to her."
 
-I ran. 
+I searched his eyes, but I saw no hint of laughter behind them. No hint of a lie. He was telling the truth. 
 
-My feet pounded over the stones of the dark shore. I rushed down the edge of the creek, wondering how much further until I’d make it onto our land, onto safe haven. *Too much further,* I thought hopelessly, *she’s already dead.*  
+"Damn it!"
 
-Images played in my mind, images of a shadow crouched over my sister, its long limbs playing over Harriet’s corpse. In its skull burned two cinderlight eyes. I'd seen it in my dream. In the omen. 
+I bolted. 
 
-“No!” I shouted.
+My feet pounded over the stones of the dark shore. I rushed down the edge of the creek, wondering how long until I’d make it back onto our land, back to my sister. *Too long,* I thought hopelessly, *she’s as good as dead.*  
 
-I doubled my efforts, my lungs scorched like a furnace. The dogman ran at my side, his powerful legs kicking back stones as his teeth snapped near my ear. “About time for another letter, don’t you think? That one’s almost out!”
+Images played in my mind, images of a shadow with cinderlight eyes, crouched over Harriet, its long limbs playing over her corpse. I'd seen it in my dream. An omen. 
+
+*Faster! I've gotta pick up the pace!*
+
+I doubled my efforts, my lungs scorching like a furnace. The dogman ran casually at my side, his powerful legs kicking back stones as his teeth snapped near my ear. “About time for another letter, don’t you think? That one’s almost out!”
 
 “What?” I glanced down. The letter was still fresh–
 
-My world span. I tumbled, slipping on a wet stone. I rolled in a shower of pebbles and came to a groaning stop, hating myself for being so gullible, so stupid. 
+My world span. I tumbled, slipping on a wet stone. *Stupid!* I rolled in a shower of pebbles and came to a groaning stop, hating myself for being so gullible. I blinked, unable to see anything.
 
-My hands shot out. I felt desperately for my lantern, but the moonlight was so faint beyond the twisting canopy. Too faint. 
+The light.
+
+What happened to my light?
+
+My hands shot out. I searched desperately for my lantern, but the dark was suffocating. I couldn't see my fingers in front of my face. 
 
 “Looking for this?” said the dogman.
 
-“Please!”
+I turned toward its voice. “Please!”
 
-I heard something whistle through the air. I reached out, desperate to catch it but in the dark I couldn’t see my hands in front of me. Glass shattered. My stomach plummeted, my hands rushing to my side and feeling the warm metal of the lantern’s frame. Its broken glass. 
+"Here ya go!"
 
-No. I couldn't give up. 
+Something whistled through the air. I reached for it-- fumbled it, and it crashed to the ground next to me. "No!" I gasped. I spread my hands across the stone shore, feeling for the lantern, and broken glass met my fingertips. 
 
-I could still use this. I’d just need to protect the flame with my hand. Frantic, I dug into my bag and fished out a letter, but before I could light it, a rough paw gripped my throat. It lifted me into the air. I coughed and sputtered. My legs kicked, spasmed under me as I tried to beg for my life. 
+"Uh oh," said the dogman, but its voice had lost its teasing playfulness. It sounded hungry. Vicious. "Looks like you've lost your safe passage."
 
-“Told you I’d have you between my teeth,” the dogman snarled. He snapped his jaws near my ear. “Question is, which end do I start with? Sometimes I like to listen to the screams for a bit…”
+I grabbed the lantern. Broken or not, I could still use it so long as I protected the flame from the wind. I dug into my bag frantically, fishing out a letter, but before I could light it a rough paw gripped my throat. I wheezed. It lifted me into the air, coughing and sputtering. My legs kicked out. They spasmed under me as I tried to beg for my life. 
 
-My mind reeled. I punched, clawed at the dogman but he was too big, too powerful and even if I had a shotgun he wouldn’t stay down without silver. 
+“Told you I’d have you between my teeth,” the dogman snarled. It snapped his jaws near my ear. “Question is, which end do I start with? Maybe the feet. Sometimes I like to listen to the screams for a bit…”
 
-“Puh… puhlease…” I gagged, choking in his grip. 
+My mind reeled. I punched, clawed at the creature but it was too big, too powerful.
+
+“Puh… puhlease…” I gagged. "L-Let..."
 
 “Don’t beg,” the monster said. “Desperation tastes pathetic–”
 
-It dropped me. I fell to the stones, gasping for air and I fumbled around lamely, still light-headed from the lack of oxygen. Letters. I needed to burn another letter. I reached for the bag, and as I did I heard a yelping sound. The dogman. It was crying out in pain. 
+I fell. 
 
-Why?
+I fell to the stones, gasping for air. The dogman had dropped me. Why? 
 
-No. I couldn’t worry about that. What I needed now was safe passage. I lit a fresh letter aflame, placed it in the lantern, and breathed a sigh of relief. That’ d buy me another few minutes.
+A yelp sounded in the dark. 
 
-Now, where had the dogman got to?
+My heart pounded. Letters. I needed to burn another letter. I reached for my bag. Another yelp. Was the dog man in pain? Being attacked? I couldn't worry about that. Right now, all that mattered was securing safe passage. I brought my lighter to the edge of a letter, and the paper curled, hissing and crackling with the sound of salvation. 
 
-I lifted the lantern, squinting into the murky black. 
+Good. I breathed a sigh of relief, placing it into the lantern housing and pinching it beneath a stone. 
 
-Another yelp. Something wet, slick, to my right. The sound of something tearing into flesh. More yelps, more canine whines. I stepped forward hesitantly, approaching the sound, unsure I wanted to see what was out there. The dogman wasn’t a powerful entity. He was considered a Nameless Haunt, a wandering phantom of the wood that did the bidding of other, more terrifying creatures. Still, as Nameless Haunts went, dogmen were fierce monsters, and anything that could threaten them was a creature to be feared.  
+*That should buy me a few minutes.*
+
+A new sound from my right. Slick. Wet. It was like flesh being torn into, carved up, and it was followed by a low canine whimper. 
+
+I swallowed. The dogman wasn't a particularly powerful entity. It was considered a Nameless Haunt, a wandering phantom of the wood that did the bidding of other, more terrifying creatures. But as Nameless Haunts went, dogmen were fierce beasts, and anything that could threaten a creature like that was wisely feared. 
 
 “Hello?” I said uneasily to the dark. 
 
-A scene unfolded in the faint lantern light. Blood. Blood coated the stones of the creek, flowing between my feet, and all of it came from the same source. The dogman. It lay in front of me, its hindlegs still kicking limply as it gasped its final breaths. I brought a hand to my mouth, stifling a gasp. In its neck was a silver machete.
+My lantern flickered, revealing a scene upon the rocky shore. Blood. It trickled over the stones, flowing past my boots and down into the babbling creek. I inched closer. A body lay on the ground. The dogman'a. It wheezed, heaving weak breaths as something carved into its neck, working its way back and forth across the thick muscle with practiced efficiency. 
 
-I took another step forward. There was a shadow beyond the dogman, standing above it. The shadow grunted, heaving the machete from its neck in a spray of red, before resting the blade on broad shoulders. I raised my lantern. I painted the newcomer with my glow, and my heart nearly stopped beating. 
+"You're rusty," said a voice, cold and haunting. It belonged to a shadow. The shadow that held the machete. It stopped carving the creature's head, lifting the blade onto its broad shoulders where it gleamed serrated silver. I raised my lantern. My feet stumbled backward, my mouth moving wordlessly. 
 
-The shadow was tall. Much taller than I remember, and its hair had grown into thick black tangles. “You…” I breathed. It was all I could think to say– no words could express the hurricane of emotions, of rage, pain and hatred I felt in that moment. 
+The shadow was tall. Far taller than I remembered. Its hair fell around its neck in a black mane, and its lips spread into a midnight smile. "At long last," it said. "The prodigal son returns, and with him, brings the end of all things."
 
-“At long last,” my brother smirked. “The prodigal son [returns."](https://www.reddit.com/r/TalesFromTheCryptid)
+“You…” I breathed. It was all I could think to say– no words could express the hurricane of emotions, of rage, pain and hatred I felt in that moment. 
+
+“What's the matter?” asked the shadow. “Don't you want to give your big brother a [hug?"](https://www.reddit.com/r/TalesFromTheCryptid)
 
 &#x200B;
 
