@@ -58,15 +58,13 @@ I frowned. “Met who?”
 
 The dogman stepped in front of me, its eyes gleaming. “The Stick Man,” he snarled. “He’s on his way to Gloomfall now. He’ll be killing your sister while we speak, I expect.”
 
-I searched his eyes, but I saw no hint of laughter behind them. 
-
-*No! Harriet.*
+I searched his eyes, but I saw no hint of laughter behind them. No hint of  a lie.
 
 I ran. 
 
 My feet pounded over the stones of the dark shore. I rushed down the edge of the creek, wondering how much further until I’d make it onto our land, onto safe haven. *Too much further,* I thought hopelessly, *she’s already dead.*  
 
-Images played in my mind, images of a shadow crouched over my sister, its long limbs playing over Harri’s corpse. In its skull burned two cinderlight eyes. I'd seen it in my dream. In the omen. 
+Images played in my mind, images of a shadow crouched over my sister, its long limbs playing over Harriet’s corpse. In its skull burned two cinderlight eyes. I'd seen it in my dream. In the omen. 
 
 “No!” I shouted.
 
