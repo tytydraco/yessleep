@@ -22,4 +22,4 @@ That encounter, filled with pure terror, coursed through my veins all the way to
 
  Being amidst other cars and seeing the lights from buildings was, without a doubt, the best feeling I had ever felt. It's strange how much you come to appreciate life when your very existence is threatened. This encounter made me value my life much more, yet it also lessened my desire to travel.
 
-I can't even begin to imagine what that thing might have been. My only hope is that any person venturing down that road steers clear of it; luck might not favor them as it did me. If ever you spot a figure, something resembling a man on that stretch, press on the accelerator, and don’t look back. And if by chance you hit this thing, don’t stop like I did, just keep on driving.
+I can't even begin to imagine what that thing might have been. My only hope is that any person venturing down that road steers clear of it; luck might not favor them as it did me. If ever you spot a figure, something resembling a man on that stretch, press on the accelerator, and don’t look back.
