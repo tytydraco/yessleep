@@ -1,4 +1,3 @@
-
 Midday sunshine streamed down as I crossed into Colorado, the SUV's engine humming like a hive of distant bees. I'd been on the road since California, the hours blending into one another, stealing away the sharp edges of my alertness. Every swig of caffeine or sugar from the snacks sprawled on the passenger seat felt like throwing pebbles at the looming wall of exhaustion.
 
 Yurea. That was the name of the town I passed, the radio's voice turned into static, cold air  blasted from the vents, prickling my skin, trying in vain to keep me awake.
@@ -19,8 +18,6 @@ The engine roared to life, tires screeching as I tore away from the horror I had
 
 This thing, or whatever the hell it was, started chasing after my car, Its body grotesque and fast, moving in a manner no human ever should. Every nerve screamed at me to go faster. The miles slowly stretched between us, and it faded into the distance.
 
-That encounter, the pure terror, coursed through my veins all the way to Indiana. Sleep, it seemed, would now have to wait.
+That encounter, filled with pure terror, coursed through my veins all the way to Indiana. Sleep, it seemed, would have to wait for another time. I floored it down the road until I saw a sign welcoming me into Indiana. When I reached the city, it was only then, for the first time in hours, that I felt a sliver of safety. Being amidst other cars and seeing the lights from buildings was, without a doubt, the best feeling I had ever experienced. It's strange how much you come to appreciate life when your very existence is threatened. This encounter made me value my life much more, yet it also diminished my desire to travel.
 
-I have the slightest clue as to what that thing was. I just hope whoever else goes down that road doesn’t come into contact with it, because they might not be as lucky.
-
-Thanks for reading! I hope you enjoyed this story!🙏
+I can't even begin to imagine what that thing might have been. My only hope is that any person venturing down that road steers clear of it; luck might not favor them as it did me. If ever you spot a figure, something resembling a man on that stretch, press on the accelerator, and don’t look back.

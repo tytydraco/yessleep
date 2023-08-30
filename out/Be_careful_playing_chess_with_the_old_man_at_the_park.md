@@ -47,7 +47,7 @@ When I was 10 years old, my family was having a bonfire, and I went into my back
 "But, who are you?" I repeated, still dumbfounded.   
 "I think you know who I am" He said, winking again.   
 "But if you are. . . Death, and you say that I am going to die of old age, why are we talking now?" I asked flatly, still dumbfounded the words left my mouth.   
-"Because I am not here for you. I'm here for him." Scratch said, pointing at an old woman sitting underneath a tree. She wasn't ready to go quite yet, and I knew you'd be here, so I fancied a match."   
+"Because I am not here for you. I'm here for her." Scratch said, pointing at an old woman sitting underneath a tree. She wasn't ready to go quite yet, and I knew you'd be here, so I fancied a match."   
 "why play me if you knew you were going to win?"   
 "I always win, but I love a battle."   
 
@@ -55,4 +55,4 @@ When I was 10 years old, my family was having a bonfire, and I went into my back
 After that, the man got up and walked over to the woman. I don't know when he left, but I waited. It was only 20 or so minutes before the ambulances had began to roll up. I found out later she managed to call 911 with concerns of a heart attack before she passed. I have been at a loss for words the past day, and thought that writing this out would help me process what had transpired. As I am finishing this, I still feel uneasy, but I will leave you with this parting lesson:   
 
 
-Be careful when playing chess with old men at the park. 
+Be careful when playing chess with old men at the park.
