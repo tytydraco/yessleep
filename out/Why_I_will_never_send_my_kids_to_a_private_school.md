@@ -213,3 +213,9 @@ Knowing what I know now, as I’m writing this, if I could go back to that day y
 But since I’m writing this, you know I didn’t.
 
 And trust me when I say this was the least interesting thing I’m going to be writing about.
+
+&#x200B;
+
+&#x200B;
+
+[Mr. Enoch](https://www.reddit.com/r/nosleep/comments/164khmq/im_thankful_i_found_where_my_school_kept_the/)
