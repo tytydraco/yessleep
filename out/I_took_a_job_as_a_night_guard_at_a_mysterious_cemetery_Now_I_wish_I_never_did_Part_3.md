@@ -41,3 +41,5 @@ But I was no longer alone in this battle—I carried the strength of the souls t
 Outside, the sunlight cast long shadows as the world continued its daily rhythm, unaware of the hidden struggles within Nekropolis. I knew that the battle against the curse had just begun, and that the shadows would conspire, the Keeper would resist, and danger would lurk around every corner.
 
 But I was prepared to face whatever darkness awaited me. The crypt was only the beginning—a symbol of the journey that would lead me deeper into the heart of Nekropolis, [towards a confrontation that would determine the fate of the trapped souls and my own.](https://www.reddit.com/user/_Not_Not_Sag)
+
+[\[Part 4 || Final\]](https://www.reddit.com/r/nosleep/comments/166eu6w/i_took_a_job_as_a_night_guard_at_a_mysterious/)

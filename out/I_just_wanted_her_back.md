@@ -1,0 +1,19 @@
+I dread this time the most. The darkness, when it's quiet. When I'm putting her to bed and telling her I love her. This time where I have to suppress my emotions and do what needs to be done. Fear creeping up my skin, tying it's noose around my neck. Throat dry and the only thought swirling in my big empty head is that I have to do this. By instinct my hands move on their own, a gnawing feeling poking at my heart. 
+
+She tugs at my shirt and speaks with a sweet voice "Daddy, I don't want to die". Taken aback, I give her a weary smile "You won't princess" kissing her forehead, she closes her eyes. I continue to smother her with a pillow. Tears streaming down my face. Legs shaking, as she thrushes trying to break free. "It's okay, it's okay bab-" it's okay. Words getting stuck on my throat. Her body jerks and jerks until it goes limp. I take off the pillow and stare at her lifeless eyes, she died screaming. Her face frozen in a state of fear, panic and agony.
+
+That night I don't sleep, I down a bottle of Jameson, cussing and cursing myself for the path I took. I could hear my wife's muffled cries through the walls. But this was the path we chose. The life we chosen. I don't know when I fell asleep, I awoke to hands wrapping themselves around my neck. "Hey pumpkin" I hold back tears, looking into my daughter's gleaming eyes "Hey daddy, slept on the floor again?" I nodded, pulling her into a bear hug. My wife avoiding her during breakfast, she couldn't bear the thought of what was going to happen to our precious girl tonight again for the fifth time in a row.
+
+We spent the whole day, playing house. Playing dress up. Drawing family portraits. Her smiles lit up my soul. For a moment just a moment the world felt right. It wasn't until I saw dusk peeking through the window sills. My wife closed herself in the room again, I was left to deal with it. I took the deal, so I was the one to make sure I kill my daughter before midnight.
+
+I didn't like the thought of killing my only precious daughter. It took a lot of convincing to get my wife on board. Just because she gave in it didn't mean she wanted any part of it. It was left to me. 
+
+After dinner, we watched her favourite cartoons and I sang for her. That always got her smiling. She was giggling, making bubbles in the tub. I hated this part, she kept diving under the water and coming back up. When she dove, I held her down. Clare, kicked and scratched fighting for air. Fighting for a way out. My heart sank, I could feel the knots in my stomach tighten, pulling on me. I wept, when she stopped moving. Dying from drowning.
+
+I went to check on my wife. Tonight I didn't feel like being alone, I froze at the sight before me. Blood all over the floor, her wrists were cut. Tears on her eyes. I had just killed my daughter and in a way I also killed my wife. The room spun, I lost balance and fell hard. Curling into a ball and whimpered. I cried until my eyes dried up. It hurt, it hurt so bad I could feel it down my soul. 
+
+I was a selfish bastard, I didn't think about her when I asked that, that demon to bring my daughter back to life. She was just 5, diagnosed with cancer and hadn't long to live. I couldn't lose her, I didn't want to. So through connections from the dark Web I found a book that could summon a being that'll bring her from the dead.
+
+Little did I know I had made a deal with a devil. In return it demanded in a deep unnatural cacophony of voices "Make sure you kill her every night. Before midnight. She'll wake up anew in the morning. No memory of you killing her. If you don't kill her by midnight she won't wake up", those words echoed in my mind.
+
+So like a family man that I am. I summoned it again. To bring back my wife.
