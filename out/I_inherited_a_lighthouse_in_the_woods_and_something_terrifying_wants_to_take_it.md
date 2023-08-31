@@ -82,4 +82,6 @@ If I had more time, I would have written a surplus. But I didn't. Truth was, I h
 
 Like I said, omens belong to me. I own them. The night before Harriet's letter arrived, I'd been visited by a new omen, a fresh one in the form of a dream. In it, I saw a being. A vast creature with eyes of burning embers and long, crooked limbs. It sat perched above a body. A woman's. Her hair was the color of chestnuts, and her eyes were an ocean blue, but she had a head that was lying six feet from her corpse.
 
-A head that belonged to my [sister.](https://www.reddit.com/r/TalesFromTheCryptid)
+A head that belonged to my [sister.](https://www.reddit.com/r/nosleep/comments/1651jtd/i_inherited_a_lighthouse_in_the_woods_but_im_not/)
+
+[X](https://www.reddit.com/r/TalesFromTheCryptid)

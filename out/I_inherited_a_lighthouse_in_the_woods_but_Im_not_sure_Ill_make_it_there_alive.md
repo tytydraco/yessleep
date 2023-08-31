@@ -122,15 +122,15 @@ I swallowed. The dogman wasn't a particularly powerful entity. It was considered
 
 “Hello?” I said uneasily to the dark. 
 
-My lantern flickered, revealing a scene upon the rocky shore. Blood. It trickled over the stones, flowing past my boots and down into the babbling creek. I inched closer. A body lay on the ground. The dogman'a. It wheezed, heaving weak breaths as something carved into its neck, working its way back and forth across the thick muscle with practiced efficiency. 
+My lantern flickered, revealing a scene upon the rocky shore. Blood. It trickled over the stones, flowing past my boots and down into the babbling creek. I inched closer. A body lay on the ground. The dogman's. It wheezed, heaving weak breaths as something carved into its neck, working its way back and forth across the thick muscle with practised efficiency. 
 
-"You're rusty," said a voice, cold and haunting. It belonged to a shadow. The shadow that held the machete. It stopped carving the creature's head, lifting the blade onto its broad shoulders where it gleamed serrated silver. I raised my lantern. My feet stumbled backward, my mouth moving wordlessly. 
+"You're rusty," said a voice, cold and haunting. It belonged to a man. He stopped carving the creature's head, lifting the blade onto his broad shoulders where it gleamed serrated silver. I raised my lantern. My feet stumbled backward, my mouth moving wordlessly. 
 
-The shadow was tall. Far taller than I remembered. Its hair fell around its neck in a black mane, and its lips spread into a midnight smile. "At long last," it said. "The prodigal son returns, and with him, brings the end of all things."
+The man was tall. Far taller than I remembered. His hair fell around his neck in a black mane, and his lips spread into a midnight smile. "At long last," he said. "The prodigal son returns, and with him, brings the end of all things."
 
-“You…” I breathed. It was all I could think to say– no words could express the hurricane of emotions, of rage, pain and hatred I felt in that moment. 
+“You…” I breathed. It was all I could think to say– no words could express the hurricane of emotions, of rage, pain and hatred I felt in that moment. I hadn't looked into those eyes since I'd watched them kill my mother 30 years ago.
 
-“What's the matter?” asked the shadow. “Don't you want to give your big brother a [hug?"](https://www.reddit.com/r/TalesFromTheCryptid)
+“What's the matter?” asked the man. “Don't you want to give your big brother a [hug?"](https://www.reddit.com/r/TalesFromTheCryptid)
 
 ​
 

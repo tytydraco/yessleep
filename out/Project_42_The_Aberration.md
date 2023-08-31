@@ -215,7 +215,7 @@ I push the flatbed. As we pass from the shadow of the doorway and into the dim l
 
 I gasp, wiping my lips with my sleeve and looking back to flatbed in the corridor light. The wooden box is no more. It’s a scatter of splinters, but its contents are clearly visible. Or, whatever's left of them. 
 
-There’s a man’s face on the cart. It’s caved in, the jaw shattered and the skull split open. Pieces of his brain are oozing onto the floor. His heart is sitting inside his split-open rib-cage, several ventricles missing alongside serrated teeth marks. His intestines are a mangled mess. He looks like a half-finished meal. 
+There’s a man’s face on the cart. It’s caved in, the jaw shattered and the skull split open. Pieces of his brain are oozing onto the floor. His heart is sitting inside his split-open rib-cage, leaking red through serrated teeth marks. 
 
 “Jesus Christ…” I mutter, looking away from him. “What is this place? This lab?”
 
@@ -267,8 +267,6 @@ She nods, solemn. “Yes. He looked at it. The Aberration, I mean. The lenses fi
 
 Her mouth becomes a thin line. “Understandable. The first encounter is always a traumatizing experience. You have my apologies for that.”
 
-My hands tighten around the handlebars, knuckles turning white. “So what happened to him?” I ask. “Rico?”
+My hands tighten around the handlebars, knuckles turning white. “So what happened to him?” I ask. “To Rico?”
 
-Dr. Driver nods at the flatbed. She nods at the half-eaten face, the scatter of intestines, the split-open rib cage and brain matter tumbling onto the concrete floor. 
-
-She nods at all of that, and then she tells me, “You’re looking at [him."](https://www.reddit.com/r/TalesFromTheCryptid)
+Dr. Driver nods at the flatbed. She nods at the half-eaten face, the scatter of intestines, the split-open rib cage and brain matter tumbling onto the concrete floor. She nods at all of that, and then she tells me, “You’re looking at [him."](https://www.reddit.com/r/TalesFromTheCryptid)
