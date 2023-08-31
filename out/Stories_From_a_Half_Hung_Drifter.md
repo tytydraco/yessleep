@@ -181,3 +181,5 @@ Travis when you read this, I'm sorry I lied.
 First Post: [https://www.reddit.com/r/nosleep/comments/15lzlf4/stories\_from\_a\_half\_hung\_drifter/](https://www.reddit.com/r/nosleep/comments/15lzlf4/stories_from_a_half_hung_drifter/)
 
 Previous Post: [https://www.reddit.com/r/nosleep/comments/15vk1yq/stories\_from\_a\_half\_hung\_drifter/](https://www.reddit.com/r/nosleep/comments/15vk1yq/stories_from_a_half_hung_drifter/)
+
+Next Post (NSFW): https://www.reddit.com/r/nosleep/comments/166cslj/stories\_from\_a\_half\_hung\_drifter\_metamorphosis/
