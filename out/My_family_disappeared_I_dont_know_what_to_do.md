@@ -13,3 +13,6 @@ I contacted the authorities, and a search was launched. 5 Days turned into 3 wee
 I can't shake the feeling that something is still off, something just isn’t right. The parallels between our story and the Jamison family deaths are eerie, I write this post as a desperate plea - if anyone out there has experienced anything similar or has any insight, please, I beg you, share it with me.
 
 My days are consumed by frantic internet searches. And nights are sleepless with unanswered questions. I feel like I'm losing my grip on reality. If my family is still out there somewhere, I'm determined to find them but I feel like if I ever do I will be another part of the case. That or what I find..will be utterly terrifying.
+
+—-
+Part two is up 🫶
