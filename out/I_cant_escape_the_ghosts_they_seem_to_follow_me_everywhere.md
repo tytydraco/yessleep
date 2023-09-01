@@ -1,0 +1,17 @@
+I paused at the entrance of my apartment building, a shiver running down my spine. The corridor stretched ahead, dimly lit by flickering lights. Shadows danced ominously around me, whispering secrets I couldn't comprehend. My heart raced, hammering in my chest with a dread that had consumed every fiber of my being. I was Faith, a girl haunted by ghosts that followed me relentlessly, never allowing me a moment of respite or safety.
+
+It all started when I moved into that old, decrepit house years ago. Strange things happened from the moment I set foot inside. Objects would move on their own, doors creaked open with no explanation, and chilling whispers echoed through the hallways. At first, I dismissed it all as mere figments of my imagination, but then I saw them—the apparitions lurking in the corners of my vision, their hollow eyes fixed upon me.
+
+Driven by fear, I decided to leave that place behind, hoping to escape the haunting that had consumed my life. I moved to a new city, seeking solace and a fresh start. But my ghosts were relentless, refusing to release their grip on me. They manifested in different forms, their ethereal figures materializing at the most unexpected times. Faces twisted by agony, their mournful cries resounded through the night, they were the remnants of tortured souls yearning for release.
+
+Even in my workplace, I found no respite. The ghosts followed me there too, disrupting my life with their relentless presence. They rattled pens, flickered lights, and whispered warnings that only I could hear. My colleagues couldn't understand my terror, dismissing it as mere paranoia or stress. But I knew better. I was trapped in an endless nightmare, a waking horror.
+
+Sleep became a distant memory, for the ghosts invaded my dreams, tormenting my subconscious. Every night, I relived their deaths, feeling their pain and anguish as if it were my own. Their tortured faces haunted my waking hours, etching themselves into my memory until I could no longer distinguish between the living and the dead.
+
+I sought help in desperation. Priests, paranormal investigators, charlatans claiming to possess the power to banish evil spirits—I tried them all. But nothing worked. The ghosts remained, growing stronger with each passing day.
+
+One fateful night, as I lay beneath my covers, my room plunged into an eerie silence. I held my breath, knowing what was to come. A figure materialized at the foot of my bed—a young girl, her eyes vacant and lifeless. She reached out, her translucent fingers gently grazing my arm. Fear and resignation washed over me as I realized that escape was futile.
+
+From that moment on, I accepted my fate. I became a vessel for the suffering of the spirits that clung to me like a curse. I roamed the world, forever pursued by the ghosts that had become my eternal companions. Every step I took was haunted, every breath I drew filled with the anguish of those who found no rest.
+
+I was Faith, forever trapped in my personal purgatory, forever tormented by the ghosts that followed me everywhere I went. Safety eluded me, and I realized that my only solace would be found in acceptance. I was destined to wander the earth alongside the spirits of the past, forever haunted, never truly finding peace.
