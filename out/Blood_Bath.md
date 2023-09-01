@@ -1,0 +1,30 @@
+“You may be jealous of me,” I said to the new young housemaid, I just hired. She looked at me as if I was accusing her of something bad. “Worry not. It’s natural.” I reassured her. 
+
+You see I was not always a very rich 60-year-old woman that lives in a grand mansion. “60!” she uttered in disbelief. I laughed out loud and said “Actually it’s 62. Yes, a lavished lifestyle and long-lasting beauty are part of the deal” I said to her, as her eyes grew wider, “You made a deal to get all this?”. I looked at her beautiful youthful face with a smile for a moment before I broke the silence. “Let me tell you a story”.  
+  
+  
+In my early 20s, Just like you do now, I worked as a maid in a grand mansion of a wealthy family. There were a total of nine maids, and I was the youngest one among them when I first started. I was surprised when I first met my coworkers. They had pale skin and looked sickly. I didn’t think much of it and brushed it off, I thought they had a type for all the maids working there. But as time went on, things started getting stranger. 
+
+The maids would collapse one after the other, and I could clearly sense that they were getting weaker every passing month. Something was happening to them. But even when I asked in private they wouldn’t tell me anything. I didn’t know what was going on and I had no idea how I could find out what was wrong with them. For as long as I was working there I was healthy. It was not the food. I knew that much. Since we would usually eat the same food that was prepared for us by the in-house Chef.  
+  
+But one day, the lady of the manor called me into the bathroom with her. When I went inside, I saw her lying in her bath with the curtains closed almost all the way. I could only see her head lying back as she was enjoying her bath. She was in her 50s at the time, but unlike most 50-year-olds, she had an unbelievably youthful face and perfect skin. Without opening her eyes she beckoned me forward. But when I got closer my eyes widened as I froze in place. 
+
+My feet would not obey me anymore and I almost fell backward. Her bathtub was filled with crimson red liquid. I could not believe my eyes as a metallic scent dominated my senses. The smell from this moment is still vivid in my memory as If it happened yesterday. It was Blood. She quietly asked me to come closer, and from within the bathtub, she took out a syringe and pierced it into my arm, drawing blood. Shocked as I was, I didn’t even realize what was happening.  
+  
+I didn’t even try to resist, I was too terrified to move. She took my blood and sprayed it all over her body and then took hold of a small glass bottle that was resting on the lip of her bathtub and let a drop loose of a vaporous red liquid in the water. I could see the red liquid swirl and change color becoming bright red in some places and darkening in others, all the while exclaiming in admiration, about how refreshing her bath was. 
+
+Then she opened her eyes looked straight at me and said. “Hmmm. Yes. I think I like you. I’ll double your salary this month. Come to the bathroom again next week”. My jaw was stuck open. I could not master a response. Sensing my hesitation, she held the syringe close to my neck, “Should I finish it all today?” I had no choice but to agree.  
+  
+I wanted to run away. I couldn’t refuse the large sum of money she was offering. At that time, my family was very poor, and I couldn’t earn that much money anywhere else. But the threat of death she represented was undeniable. Her family were very influential and I am sure they could make someone like me disappear without a trace. And so, I continued to give her my blood as it was demanded of me.  
+  
+I tried to be a loyal puppy for her. In time she trusted me enough to start talking about all this. One day she let it slip that she was not the only one taking blood baths. There were many rich people in her circle who took part in doing this. Then I asked about this red liquid she was using in her water and she got apprehensive. No matter how many times I would ask her, she would not tell me much. The only thing I managed to get out of her was that as far as she knew, was that this weird liquid was the catalyst that makes the blood work.  
+  
+I felt hopelessly helpless, until one day out of the blue she gave me a new task. She wanted me to pick up a refill for her. She gave me directions for a grand building without an address. It looked imposing and ominous. I followed her interaction as close as I could and I approached a large metal door on the side of the building. I knocked and announced myself. 
+
+A metal eye slot opened with a screeching sound and a pair of pale eyes looked at me. A moment later a deep voice bellowed from the other side “Put the bottle in the receptacle on the door”. A small hatch opened halfway down the door. I did as he asked and got a full vial with this red liquid smoke. To this day I have no idea what this is. But I know it works.  
+  
+But I kept doing it until one day, my mistress was found dead in her bathtub. The police arrived with the screams of the maids, and when they saw her body, her body was blue, and the police said that there was not a drop of blood left in her entire body. 
+
+There were dozens of holes punctured all over her body, and it was speculated that someone had drained all her blood at once. Strangely, the police never found the culprit. No evidence was discovered whatsoever. Of course, all the maize had alibis. After that, the case of her death remained unsolved. To this day, nobody knows who killed her.  
+  
+But you know something, I actually know the answer. I was in the room when she took her last bath before she died. I was there with my new master. And my master has a deal to offer you. Are you interested?
