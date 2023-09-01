@@ -1,0 +1,14 @@
+ 7 minutes they say. Brain activity after death. Once your pulse stops, your brain will continue to send signals. 
+I call bullshit.
+
+It's been 3 days. 72hours and 33 minutes to be exact. As Rimmer said in Red Dwarf ""All the notice most of us get is "Mind that bus. What bus? Splat!.." I dint even get that, the green man was green so I looked and stepped into the road. The car came flying from nowhere and next thing I know... I'm standing on the pavement looking at myself in the road. At least the people around came to help, well most of them the others I guess were too busy live streaming to actually do anything. I'm not mad, I get it. Morbid curiosity. Nothing makes you realise your alive than watching someone else die I suppose. 
+
+  The medics arrived fairly quick at keast, did the usual checks and loaded me on the gurney to take me to hospital. I went with them, the little one said "no pulse, no signs." "I'M RIGHT HERE! DO SOMETHING, PUT ME BACK!?" they couldn't hear me. No matter how loud I tried to be. Sounds ridiculous but I punched myself, I guess I thought that if I touched my actual body something would happen. Spoiler, nothing did. I can't believe that's the outfit I died in. Thank the stars I put underwear on that day.
+  At the hospital they called me DOA. I tried to argue but it was useless. Straight down to level -1, the morgue. They left me in the locker for 2 days. I couldn't even fiddle with anything to let them know I'm still there, I just didn't have the energy. So I just watched people come and go. Shift workers, people coming to identify their loved ones. I stood next to the family of the girl, trying to be a reassuring presence. They didn't notice. 
+
+ I started hearing a high pitched whining in my ears. I didn't realise ghosts could tinnitus. Just my luck. Then the cold kicked in. It felt like I was freezing slowly, from my stomach outwards. It was agonising. The water came next, probably halfway through day 3. It was warm. That should have told me something was wrong, I just chose to ignore it. 
+
+ At 72hours and 33minutes I sat up and gasped for air like my life depended on it. I'm in a tank, like a bathtub but bigger. The man in the suit leant over and said
+" Good job number 24. Just over 72 hours, you beat the record." He turned and spoke to his, I guess colleagues before turning back to me. "Well give you 12 hours to rest, then we'll try again. See how long you last this time." That's when they walked out and I heard the door lock. I found an unlocked laptop, I assume it's bugged/monitored so if this posts o guess it won't stay up for long.
+
+But 7 minutes is a lie. They're testing us to see what we remember, and learning how to exploit it. I don't want to know what for.
