@@ -1,13 +1,7 @@
- 
-Pt 1- https://www.reddit.com/r/nosleep/comments/15gno9x/im_stuck_inside_a_dollar_general_beyond/?utm_source=share&utm_medium=web2x&context=3
-
-Pt 2-https://www.reddit.com/r/nosleep/comments/15hmp9x/trapped_in_the_dollar_general_beyond_pt_2/?utm_source=share&utm_medium=web2x&context=3
-
-Pt 3-https://www.reddit.com/r/CreepyPastas/comments/15jo8cx/trapped_in_the_dollar_general_beyond_pt_3/?utm_source=share&utm_medium=web2x&context=3
 
 pt 4- https://www.reddit.com/r/nosleep/comments/15m3pra/trapped_in_the_dollar_general_beyond_pt_4/?utm_source=share&utm_medium=web2x&context=3
 
- 
+
 I know, I know, it’s been longer than you likely wanted to wait to hear more.
 
 I’ve been in a place the last few days that I’ve been calling DGB 0. It's a place I’ve never been but seems to be where Gale has been staying.
@@ -127,3 +121,5 @@ He looked sad, but when he turned back, his smile had returned.
 Gales promised to teach me what he knows, and I’m eager to learn. I think I’ve shared enough for now. Gales asleep and I can tell that the tapping from my phone is bothering him. I’ll update you guys again a little later. Until then, don’t get stuck in the Dollar General Beyond either, or we might have to come find you as well.
 
 Till next time.
+
+Pt 6- https://www.reddit.com/r/nosleep/comments/15u1njh/trapped_in_the_dollar_general_beyond_pt_6_training/?utm_source=share&utm_medium=web2x&context=3

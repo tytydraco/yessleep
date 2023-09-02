@@ -1,8 +1,6 @@
-Pt 1- https://www.reddit.com/r/nosleep/comments/15gno9x/im_stuck_inside_a_dollar_general_beyond/?utm_source=share&utm_medium=web2x&context=3
-
-Pt 2-https://www.reddit.com/r/nosleep/comments/15hmp9x/trapped_in_the_dollar_general_beyond_pt_2/?utm_source=share&utm_medium=web2x&context=3
 
 Pt 3-https://www.reddit.com/r/CreepyPastas/comments/15jo8cx/trapped_in_the_dollar_general_beyond_pt_3/?utm_source=share&utm_medium=web2x&context=3
+
 
 I know it's been a little bit (or maybe it hasn't?) but I hope you guys haven't worried about me too much.
 
@@ -143,3 +141,5 @@ Gale grabbed my wrist and as we lunged through the bathroom door, the thing was 
 As we lay outside the bathroom, the new Dollar General a pleasant sight after the burnt-out husk we'd come from, the man smiled at me and offered me a hand.
 
 "It's nice to meet you properly, Alphabet Man. I'm Gale, but I suspect you already figured that out."
+
+Pt 5- https://www.reddit.com/r/nosleep/comments/15pk9u1/trapped_in_the_dollar_general_beyond_pt_5_gales/?utm_source=share&utm_medium=web2x&context=3

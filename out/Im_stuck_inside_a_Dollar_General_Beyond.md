@@ -1,9 +1,3 @@
-Pt 2-[https://www.reddit.com/r/nosleep/comments/15hmp9x/trapped\_in\_the\_dollar\_general\_beyond\_pt\_2/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/15hmp9x/trapped_in_the_dollar_general_beyond_pt_2/?utm_source=share&utm_medium=web2x&context=3)  
-
-
-  
-Pt 3-[https://www.reddit.com/r/CreepyPastas/comments/15jo8cx/trapped\_in\_the\_dollar\_general\_beyond\_pt\_3/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/CreepyPastas/comments/15jo8cx/trapped_in_the_dollar_general_beyond_pt_3/?utm_source=share&utm_medium=web2x&context=3)
-
 &#x200B;
 
 It all started because I had to go to the bathroom.
@@ -77,3 +71,6 @@ If you come across one, I cannot stress enough to avoid Dollar General Beyond at
 If you do, for god sake don’t enter the bathroom.
 
 There are forces at work that I don’t think anyone understands.
+
+Pt 2-https://www.reddit.com/r/nosleep/comments/15hmp9x/trapped\_in\_the\_dollar\_general\_beyond\_pt\_2/?utm\_source=share&utm\_medium=web2x&context=3  
+Pt 3-https://www.reddit.com/r/CreepyPastas/comments/15jo8cx/trapped\_in\_the\_dollar\_general\_beyond\_pt\_3/?utm\_source=share&utm\_medium=web2x&context=3

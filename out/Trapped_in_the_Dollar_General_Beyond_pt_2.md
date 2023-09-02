@@ -1,4 +1,5 @@
-https://www.reddit.com/r/nosleep/comments/15gno9x/im_stuck_inside_a_dollar_general_beyond/?utm_source=share&utm_medium=web2x&context=3
+Pt 1- https://www.reddit.com/r/nosleep/comments/15gno9x/im_stuck_inside_a_dollar_general_beyond/?utm_source=share&utm_medium=web2x&context=3
+
 
 Hey everyone, I have no idea how long I've been in the Dollar Genera Beyond, but I figure it's been about a week. I've been keeping notes in my journal (it's the purple one with the glitter cover if you must know) so I could update you guys on what I've learned about this place. It isn't a lot, I'm still getting used to the DGB, but I have made a few little discoveries.
 
@@ -97,3 +98,5 @@ Wish me luck.
 Either way, that's all for now.
 
 Hopefully, there will be a chance for more some other time.
+
+Pt 3-https://www.reddit.com/r/CreepyPastas/comments/15jo8cx/trapped_in_the_dollar_general_beyond_pt_3/?utm_source=share&utm_medium=web2x&context=3
