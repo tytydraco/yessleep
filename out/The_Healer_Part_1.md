@@ -14,7 +14,7 @@ Anyway, back to my dying father…I’ll never forget this day as long as I live
 
 &#x200B;
 
-***“Ricky I’ve been praying for you. I know things are pretty bad right now and it ain’t looking so hot.”***
+*“Ricky I’ve been praying for you. I know things are pretty bad right now and it ain’t looking so hot.”*
 
 &#x200B;
 
@@ -22,9 +22,9 @@ My dad had hardly been talking at that point but he had conversations when he co
 
 &#x200B;
 
-***“Joey I’m just doing my best to take things a day at a time. My clock is almost up pal. I hate it but it’s true.”***
+*“Joey I’m just doing my best to take things a day at a time. My clock is almost up pal. I hate it but it’s true.”*
 
-***“Rick, I know you’re not a Jesus freak, and I know you never were too gung-ho about going to church. But there’s this thing happening in a couple of days and I really want you to consider it.”***
+*“Rick, I know you’re not a Jesus freak, and I know you never were too gung-ho about going to church. But there’s this thing happening in a couple of days and I really want you to consider it.”*
 
 &#x200B;
 
@@ -32,7 +32,7 @@ My dad wasn’t religious and he certainly never forced the idea of church on us
 
 &#x200B;
 
-***“No Joey, I’m on painkillers, I’ve talked to every doctor on the fucking planet, and it’s just my time. I want to be at peace and have some dignity at this point.”***
+*“No Joey, I’m on painkillers, I’ve talked to every doctor on the fucking planet, and it’s just my time. I want to be at peace and have some dignity at this point.”*
 
 &#x200B;
 
@@ -40,7 +40,7 @@ I don’t ever remember Uncle Joe being much of a crier but at that point, he wa
 
 &#x200B;
 
-***“Ricky, please. Do it for me. I ain’t never asked you for anything but to be my friend for all these years. Just do this one thing for me.”***
+*“Ricky, please. Do it for me. I ain’t never asked you for anything but to be my friend for all these years. Just do this one thing for me.”*
 
 &#x200B;
 
@@ -48,7 +48,7 @@ I remember Dad’s demeanor seemed to change at that moment. Probably because Un
 
 &#x200B;
 
-***“Joey. I love you. You’re like a brother to me. If you really want this last thing, I’ll do it. But tell me, man. What the fuck are we even talking about?”***
+*“Joey. I love you. You’re like a brother to me. If you really want this last thing, I’ll do it. But tell me, man. What the fuck are we even talking about?”*
 
 &#x200B;
 
@@ -56,7 +56,7 @@ Then Uncle Joey pulled a folded pamphlet from his pants pocket. The whole atmosp
 
 &#x200B;
 
-***“Close the door, Ricky. I think you and I better talk about this alone.”***
+*“Close the door, Ricky. I think you and I better talk about this alone.”*
 
 &#x200B;
 
@@ -72,7 +72,7 @@ Two days later I woke up for breakfast and Dad was waiting for me at the table. 
 
 &#x200B;
 
-***“Son, Uncle Joey and I are going to this event. I want you to come with us. I could use the moral support and if you want we can pick up a friend for you to go with.”***
+*“Son, Uncle Joey and I are going to this event. I want you to come with us. I could use the moral support and if you want we can pick up a friend for you to go with.”*
 
 &#x200B;
 
@@ -106,7 +106,7 @@ I won’t say she was beautiful or really even pretty. But she was striking. Her
 
 &#x200B;
 
-***“Brothers - and sisters. Thank you for attending this most sacred gathering.”***
+*“Brothers - and sisters. Thank you for attending this most sacred gathering.”*
 
 &#x200B;
 
@@ -114,7 +114,7 @@ Her voice seemed soft but there was a firmness to it. She was wired to a mic, bu
 
 &#x200B;
 
-***"We have all come together to witness the power of the Holy Spirit. We seek to be slain by the Almighty Power and to feel the glory of His presence. We ask for love and light to come into our lives and cast out the darkness within.”***
+*"We have all come together to witness the power of the Holy Spirit. We seek to be slain by the Almighty Power and to feel the glory of His presence. We ask for love and light to come into our lives and cast out the darkness within.”*
 
 &#x200B;
 
@@ -138,11 +138,11 @@ Janet was standing at the center of the stage when she was taken up. She looked 
 
 &#x200B;
 
-***“Tell me, child, what is your name?”***
+*“Tell me, child, what is your name?”*
 
 &#x200B;
 
-***“ Uhhh- my name is Julia.”***
+*“ Uhhh- my name is Julia.”*
 
 &#x200B;
 
@@ -150,7 +150,7 @@ Janet smiled and gently caressed her cheek.
 
 &#x200B;
 
-***“Julia, how long have you been in this wheelchair?”***
+*“Julia, how long have you been in this wheelchair?”*
 
 &#x200B;
 
@@ -158,7 +158,7 @@ The girl’s voice was soft and she seemed timid with her response.
 
 &#x200B;
 
-***“I had an accident when I was six. I haven’t been able to walk in eight years.”***
+*“I had an accident when I was six. I haven’t been able to walk in eight years.”*
 
 &#x200B;
 
@@ -166,7 +166,7 @@ Janet’s eyes widened and she nearly shrieked with her reply…
 
 &#x200B;
 
-***“Eight years?! Why a child like you should be running about and enjoying life. Tell me, Julia. Do you want to walk again?”***
+*“Eight years?! Why a child like you should be running about and enjoying life. Tell me, Julia. Do you want to walk again?”*
 
 &#x200B;
 
@@ -182,7 +182,7 @@ At that very moment, the wheelchair flew back nearly ten feet and there was a bl
 
 &#x200B;
 
-***“Oh my fucking God.”***
+*“Oh my fucking God.”*
 
 &#x200B;
 
@@ -192,7 +192,7 @@ Janet waved her hands towards the audience - who then erupted in applause and ch
 
 &#x200B;
 
-***“ And that - my brothers and sisters…. is the power of the Holy Spirit at work! Surely you must believe that this is an act of God?!”***
+*“ And that - my brothers and sisters…. is the power of the Holy Spirit at work! Surely you must believe that this is an act of God?!”*
 
 &#x200B;
 
@@ -204,7 +204,7 @@ Then that was when I noticed it.
 
 &#x200B;
 
- I looked over to the seat next to me.
+I looked over to the seat next to me.
 
 &#x200B;
 
