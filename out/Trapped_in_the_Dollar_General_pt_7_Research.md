@@ -1,24 +1,4 @@
 
-Pt 1- https://www.reddit.com/r/nosleep/comments/15gno9x/im_stuck_inside_a_dollar_general_beyond/?utm_source=share&utm_medium=web2x&context=3
-
-
-
-Pt 2-https://www.reddit.com/r/nosleep/comments/15hmp9x/trapped_in_the_dollar_general_beyond_pt_2/?utm_source=share&utm_medium=web2x&context=3
-
-
-
-Pt 3-https://www.reddit.com/r/CreepyPastas/comments/15jo8cx/trapped_in_the_dollar_general_beyond_pt_3/?utm_source=share&utm_medium=web2x&context=3
-
-
-
-pt 4- https://www.reddit.com/r/nosleep/comments/15m3pra/trapped_in_the_dollar_general_beyond_pt_4/?utm_source=share&utm_medium=web2x&context=3
-
-
-
-Pt 5- https://www.reddit.com/r/nosleep/comments/15pk9u1/trapped_in_the_dollar_general_beyond_pt_5_gales/?utm_source=share&utm_medium=web2x&context=3
-
-
-
 Pt 6-
 https://www.reddit.com/r/nosleep/comments/15u1njh/trapped_in_the_dollar_general_beyond_pt_6_training/?utm_source=share&utm_medium=web2x&context=3
 
@@ -264,3 +244,5 @@ People- shadow drivers
 Theme- Street Fair Shop
   
 S is a perfectly normal street with booths set up that have items. Its all still inside, but the ground is concrete and there are garbage cans and street lamps and graffiti in odd areas. The only real danger present is that sometimes cars drive up the road part of the street. They don’t go very fast and they’re not hard to get out of the way of, but if they hit you, it could kill you or hurt you. The shadow people who drive them look like living shadows and they don’t get out so they aren’t any trouble. As long as you stay out of the center of the street, then you should be fine. The food is normal but aside from shelves there are also these odd little food stalls that just seem to have cooked food in them. You shout what you want into the stalls and if they cook it then you can just watch it make itself. It’s wild, but a nice little change up from the norm. The stalls have a finite amount of resources but if they run out of food then they put out a CLOSED sign. There are eight “streets” and they have side walks beside the shelves. The cars don’t seem to come from anywhere in particular and don’t seem to go anywhere either. The exit is a tunnel with a crossbow blocking it off. I’ve talked to Gale about going into the tunnel to see whats on the other side but he is staunchly against it.
+
+Pt 8- https://www.reddit.com/r/nosleep/comments/16113t1/trapped_in_the_dollar_general_beyond_pt_8_the/?utm_source=share&utm_medium=web2x&context=3

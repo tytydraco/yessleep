@@ -1,14 +1,3 @@
-Pt 1- https://www.reddit.com/r/nosleep/comments/15gno9x/im_stuck_inside_a_dollar_general_beyond/?utm_source=share&utm_medium=web2x&context=3
-
-Pt 2-https://www.reddit.com/r/nosleep/comments/15hmp9x/trapped_in_the_dollar_general_beyond_pt_2/?utm_source=share&utm_medium=web2x&context=3
-
-Pt 3-https://www.reddit.com/r/CreepyPastas/comments/15jo8cx/trapped_in_the_dollar_general_beyond_pt_3/?utm_source=share&utm_medium=web2x&context=3
-
-pt 4- https://www.reddit.com/r/nosleep/comments/15m3pra/trapped_in_the_dollar_general_beyond_pt_4/?utm_source=share&utm_medium=web2x&context=3
-
-Pt 5- https://www.reddit.com/r/nosleep/comments/15pk9u1/trapped_in_the_dollar_general_beyond_pt_5_gales/?utm_source=share&utm_medium=web2x&context=3
-
-Pt 6- https://www.reddit.com/r/nosleep/comments/15u1njh/trapped_in_the_dollar_general_beyond_pt_6_training/?utm_source=share&utm_medium=web2x&context=3
 
 Pt 7- https://www.reddit.com/r/nosleep/comments/15xov8g/trapped_in_the_dollar_general_pt_7_research/?utm_source=share&utm_medium=web2x&context=3
 
@@ -150,3 +139,5 @@ When I came through in DGB but he didn’t, I knew something was wrong.
 Now I’m left here with just the journal for company, feeling like maybe we’ve crossed a line that neither of us were ready for.
 
 I’ll keep you all posted, but for now, I think I need to go and think about whats happened today.
+
+https://www.reddit.com/r/TalesOfDarkness/comments/167mvuw/trapped_in_the_dollar_general_beyond_pt_9_the/?utm_source=share&utm_medium=web2x&context=3
