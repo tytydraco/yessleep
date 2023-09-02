@@ -2,7 +2,7 @@
 
 &#x200B;
 
-I was always scared of the the last day of the month since I started working here.  I performed my end of the month ritual in my office, two Xanax bars and half a whiskey flask to chase it down.  My cell phone read 9:45pm, which meant it was time to meet the managers on the inbound docks of the warehouse.  I drank the rest of my whiskey flask and quickly filled it up again in preparation for the long walk to dock door 18.
+I was always scared of the last day of the month since I started working here.  I performed my end of the month ritual in my office, two Xanax bars and half a whiskey flask to chase it down.  My cell phone read 9:45pm, which meant it was time to meet the managers on the inbound docks of the warehouse.  I drank the rest of my whiskey flask and quickly filled it up again in preparation for the long walk to dock door 18.
 
 I stepped out of my office and awkwardly looked at Bertha, the overweight secretary.
 
@@ -66,7 +66,7 @@ The managers were silent, one passed out as I heard the thud of his head hit the
 
 Occasionally a few stragglers would huddle to the back of the truck thinking they could avoid the human paste they were about to be.  If that happened, the inside driver would radio the driver that went outside, and he would hit another button.  When that button was hit, the entire back wall of the trailer would move forward pushing everything out into the unavoidable grinder.  The bright side to this was that it didn’t take very long, it was just intense to sit through.
 
-When it was all done, I pushed the lever in the opposite direction and we were done with that month’s special delivery.  My managers were pale and silent as I rounded them up into my office to debrief.
+When it was all done, I pushed the lever in the opposite direction, and we were done with that month’s special delivery.  My managers were pale and silent as I rounded them up into my office to debrief.
 
 “We will start rotations next month starting with Chris.”  I said sitting in my desk chair.
 
@@ -98,6 +98,6 @@ I walked out the front door at the same time Bertha was walking out.  Normally I
 
 Bertha just stared at me blankly.
 
-“It’s not easy to make a moral choice for people like us in a place like this, but you did.  I just wanted you to know, I’m still happy you’re around Bart uhhh I mean Bertha.  I’m sorry, Ill get use to it eventually.  I just don’t have the courage you do, I’m too afraid I’ll lose my…well you know, that’s why I keep to the end of month routine.  They must have put you as my secretary to remind me, it’s fucked up.”  I said sincerely before walking to my car.
+“It’s not easy to make a moral choice for people like us in a place like this, but you did.  I just wanted you to know, I’m still happy you’re around Bart uhhh I mean Bertha.  I’m sorry, I'll get used to it eventually.  I just don’t have the courage you do, I’m too afraid I’ll lose my…well you know, that’s why I keep to the end of month routine.  They must have put you as my secretary to remind me, it’s fucked up.”  I said sincerely before walking to my car.
 
-I drove by a local fast food chain before heading home and bought a veggie burger.
+I drove by a local fast-food chain before heading home and bought a veggie burger.
