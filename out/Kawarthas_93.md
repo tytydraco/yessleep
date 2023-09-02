@@ -1,8 +1,10 @@
+Pt.1
+
 *This is story is written on the behest of the last survivor of the events that took place in Cottage Country in 93. They want their story told before it happens again*
 
+Night 1:
 
-
-Picture it. Eastern Ontario, Summer of 1993. Eastern Ontarios Best Rock 91.5 The Owl's Canadian Summer rock playlist was in full swing.
+Picture it. Eastern Ontario, Summer of 1993, the regional radio station 91.5; referred locally as The Owl. A Canadian Summer rock playlist was in full swing.
 
 "GIVE ME A HOOOOOOT!" 
 
@@ -23,18 +25,52 @@ So I planned a Canada Day Banger! July 1st Long Weekend. At the Cottage.... I th
 
 I wanted to arrive a day before everyone so I could decompress a little, and clean up a bit before the real party showed up. 
 
-After an uneventful 4hour drive out from the GTA (Greater Toronto Area) I made it. Once I was done unpacking and settling in. I got into the vodka, set up the old JVC to Eastern Ontarios Best Rock 91.5 The Owl
+After an uneventful 4hour drive out from the GTA (Greater Toronto Area) I made it. Once I was done unpacking and settled in. I got into the vodka, set up the old JVC to Eastern Ontarios Best Rock Station 91.5 The Owl. 
 
 "GIVE ME A HOOOOOOT!"
 
-Now another Canadian Classic was playing Gordon Lightfoots Sundown. One of my all times fav was playing and I thought it couldn't get much better than this... little did know
+Now another Canadian Classic hit the airwaves; Gordon Lightfoots Sundown. One of my all times fav was playing and I thought it couldn't get much better than this... little did know...
 
-The... activity started around 11 when I was good and hammered. I should mentioned this earlier. The family cotty was situated in a valley on the Raven River. It's on private lane way with only 2 other cottages. The neighbors who lived up there had actually gone away to their kids for the weekend so it was extra quiet... and eerie. The lot is sort of on a peninsula. Riverfront and a little basin like gimmick and woods on the otherside of the property. This is important for later.
+The cottage was situated in a valley on the Raven River. It's on private lane way with only 2 other cottages. The neighbors who lived up there had actually gone away to their kids for the weekend so it was extra quiet... and eerie. The lot is sort of on a peninsula. Riverfront and a little basin like area and woods on the otherside of the property. Surrounded by nature. It *was* my happy place. A place I felt spirituality connected to. 
 
 
 
-I had got bored and started a bonfire. It was located near the river. Technically at the back of the cottage. I heard some odd noises from behind where the basin and wooded area is at front of the cottage. At first it was just twigs snapping, dead leaves being brushed around. I just chalked it up to an Animal. We have everything from deer, yotes, porcupines, other miscellaneous rodents and even bears. Although I had never seen one before.
+The... how shall I say it.... The oddities started around 10pm when I was good and hammered.
+I had got bored and started a bonfire to keep busy. 
 
-Then....IT appeared 
+As I got tranced out by the fading glow of the embers, and crackle of the burning wood. I reflected deeply about my life, and how I'd let myself get to this point... When suddenly the radio cut out. 
 
-Pt 1
+It was then I noticed I was enveloped in silence. As if the all frogs, and crickets and all the other woodland critters disappeared completely.
+
+I also felt a change in the air... It was cold....How? It's the middle of summer and I'm sitting by a fire. 
+
+I sit in silence and try to make some sense of what's happening, when something that defies all logic happens. 
+
+I hear laughter.. It's... a child.. No it sounds like multiple children.. 
+
+I wonder maybe if the neighbour's up here decided to hang back for the wknd. 
+
+Can't be, I would have seen them, or the vehicles at some point. 
+
+I curse myself for drinking to much, and freaking myself out and decide to hit the hay. I had a whole a weekend to party after all.
+
+I woke up at around 3 in the morning still a little dazed and half cut. I heard a tapping on the cottage coming from outside. 
+
+I don't think much of it in the moment thinking I'm still in dream world.
+
+Than the tapping got more aggressive. It was no longer a tap. It was a full on cop knock.
+That's when the laughter started again. Followed by what sounded like a group of kindergartens playing tag...
+
+I should've gone home right then and there. 
+
+I was selfish, all my best friends were coming up. I wanted to have a greasy Canada day weekend with lots of debauchery like old times.  
+
+>>>>>>
+
+I have been living with this guilt for 30 years... my time in realm of the living has nearly run its course. 
+
+Recently I've heard that same chilling laughter in my dreams. 
+
+It's time to head back to the Kawarthas and get some answers... 
+
+*hmmhmmhmm*
