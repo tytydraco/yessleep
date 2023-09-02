@@ -254,6 +254,8 @@ I don’t have answers yet.  I know I promised myself that I wouldn’t divulge 
 
 I’m going to tell Cassie. [\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
 
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/167t6h2/how_to_survive_college_his_name_is_james/)
+
 [Read the current draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 
 [Visit the college's website.](https://alderrayne.com/)
