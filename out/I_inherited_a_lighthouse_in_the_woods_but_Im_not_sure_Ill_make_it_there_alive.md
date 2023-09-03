@@ -130,12 +130,10 @@ The man was tall. Far taller than I remembered. His hair fell around his neck in
 
 “You…” I breathed. It was all I could think to say– no words could express the hurricane of emotions, of rage, pain and hatred I felt in that moment. I hadn't looked into those eyes since I'd watched them kill my mother 30 years ago.
 
-“What's the matter?” asked the man. “Don't you want to give your big brother a [hug?"](https://www.reddit.com/r/TalesFromTheCryptid)
+“What's the matter?” asked the man. “Don't you want to give your big brother a [hug?"](https://www.reddit.com/r/nosleep/comments/16971rx/i_inherited_a_lighthouse_in_the_woods_there_are/)
+
+
+
+[X](https://www.reddit.com/r/TalesFromTheCryptid)
 
 ​
-
-​
-
-​
-
-**Events have been later transcribed from my journal.*
