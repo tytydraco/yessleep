@@ -1,6 +1,6 @@
-\[Part 1\]([https://www.reddit.com/r/nosleep/comments/166cj25/part\_1\_someone\_has\_been\_hiding\_in\_our\_house\_and\_i/](https://www.reddit.com/r/nosleep/comments/166cj25/part_1_someone_has_been_hiding_in_our_house_and_i/))
+\[Part 1:([https://www.reddit.com/r/nosleep/comments/166cj25/part\_1\_someone\_has\_been\_hiding\_in\_our\_house\_and\_i/](https://www.reddit.com/r/nosleep/comments/166cj25/part_1_someone_has_been_hiding_in_our_house_and_i/)\]
 
-\[Part 2([https://www.reddit.com/r/nosleep/comments/1678mlv/part\_2\_someone\_has\_been\_hiding\_in\_our\_house\_and\_i/](https://www.reddit.com/r/nosleep/comments/1678mlv/part_2_someone_has_been_hiding_in_our_house_and_i/))
+\[Part 2: https://www.reddit.com/r/nosleep/comments/1678mlv/part\_2\_someone\_has\_been\_hiding\_in\_our\_house\_and\_i/\]
 
 “You need a doctor.”
 
