@@ -86,7 +86,7 @@ Over the next few days, I caught on to the simple routine. I also caught sight o
 
 “Hey neighbour” I said, siding up in the crowd.
 
-At first Clive looked at me with shock, then recognition, and finally manic glee. I hugged him despite us not really being much of friends at all. But then a second later, his mirth vanished to be replaced concerned sorrow. A tear accompanied the sharp change of expression.
+At first Clive looked at me with shock, then recognition, and finally manic glee. I hugged him despite us not really being much of friends at all. But then a second later, his mirth vanished to be replaced by concerned sorrow. A tear accompanied the sharp change of expression.
 
 “Hey man, it will be OK, we will get out of here sooner or later” I said immediately to offer some comfort.
 
