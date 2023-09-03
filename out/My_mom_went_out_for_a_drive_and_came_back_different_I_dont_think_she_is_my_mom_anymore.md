@@ -1,3 +1,5 @@
+''part 2'' https://www.reddit.com/r/nosleep/comments/1695ufv/my_mom_went_out_for_a_drive_and_came_back/?utm_source=share&utm_medium=web2x&context=3
+
 "Hey honey, I'm thinking of heading out for a drive. Care to join me?" my mother's voice echoed.
 
 Glancing up, I responded, “Thanks mom, but I think I'll pass. Where are you headed?”

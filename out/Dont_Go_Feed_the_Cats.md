@@ -74,9 +74,9 @@ But I told myself to shrug it off. It had been years, hadn’t it? It was alrigh
 
 My phone buzzed with a text from my dad.
 
-All good? He asked.
+*All good?* He asked.
 
-You’re such a worrier, I responded after giving his question a thumbs up.
+*You’re such a worrier*, I responded after giving his question a thumbs up.
 
 We ate at the table, as the procedural show wrapped up. I felt like we should be talking, sharing, but here wasn’t much to say, really. The absence of conversation stretched between us like a tightrope we didn’t dare step out onto.
 

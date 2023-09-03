@@ -1,6 +1,6 @@
 \[Part 1:([https://www.reddit.com/r/nosleep/comments/166cj25/part\_1\_someone\_has\_been\_hiding\_in\_our\_house\_and\_i/](https://www.reddit.com/r/nosleep/comments/166cj25/part_1_someone_has_been_hiding_in_our_house_and_i/)\]
 
-\[Part 2: https://www.reddit.com/r/nosleep/comments/1678mlv/part\_2\_someone\_has\_been\_hiding\_in\_our\_house\_and\_i/\]
+\[Part 2: [https://www.reddit.com/r/nosleep/comments/1678mlv/part\_2\_someone\_has\_been\_hiding\_in\_our\_house\_and\_i/\]](https://www.reddit.com/r/nosleep/comments/1678mlv/part_2_someone_has_been_hiding_in_our_house_and_i/])
 
 “You need a doctor.”
 
@@ -42,11 +42,11 @@ I finished cleaning the chalk and rushed to my desk. I googled “Amalia archeol
 
 **ANCIENT DEFIXIONES FINALLY FOUND IN ESCAVATION**
 
-Amalia \[Redacted\], director of the archeology department at the University of \[Redacted\] marked the culmination of a 15-year long research yesterday, in \[Redacted\].
+*Amalia \[Redacted\], director of the archeology department at the University of \[Redacted\] marked the culmination of a 15-year long research yesterday, in \[Redacted\].*
 
-Amalia and her team have dedicated 15 years to the study of Ancient Rome’s religious practices, and have been searching for years for what they believe they might have finally found: the defixiones.
+*Amalia and her team have dedicated 15 years to the study of Ancient Rome’s religious practices, and have been searching for years for what they believe they might have finally found: the defixiones.*
 
-Also called “curse tablets”, these tablets are believed to be an ancient form of ritual practices of black magic in Ancient Rome. Romans believed that writing in these tablets would put them in contact with the gods and the dead, which they could then use to take down their enemies. The escavation near started after a long back and forth with the Italian government, has rewarded Amalia’s long devotion to research.
+*Also called “curse tablets”, these tablets are believed to be an ancient form of ritual practices of black magic in Ancient Rome. Romans believed that writing in these tablets would put them in contact with the gods and the dead, which they could then use to take down their enemies. The escavation near started after a long back and forth with the Italian government, has rewarded Amalia’s long devotion to research.*
 
 I scrolled down to the bottom of the article. There was a picture: a blond woman was holding a tablet that looked made of lead. I zoomed in. Right on the tablet I saw the same kind of strange words I’d seen on the walls and floor in my dream.
 
@@ -54,11 +54,11 @@ Next, I searched “defixiones”. Oddly, the first article that showed on top w
 
 **DEFIXIONES DISAPPEAR FROM \[REDACTED\] MUSEUM**
 
-The so-called “curse tablets”, finally placed in the \[redacted\] Museum after a 5-year battle between the Municipality, the owner of the land where the piece has been found and Amalia’s team of archeologists, have been reported as missing last night.
+*The so-called “curse tablets”, finally placed in the \[redacted\] Museum after a 5-year battle between the Municipality, the owner of the land where the piece has been found and Amalia’s team of archeologists, have been reported as missing last night.*
 
-Through the official twitter account of her department, Amalia, the lead archeologist who 5 years ago brought the defixiones to light, has declared her deep sorrow.
+*Through the official twitter account of her department, Amalia, the lead archeologist who 5 years ago brought the defixiones to light, has declared her deep sorrow.*
 
-The artifacts were held in the small local museum and it’s not clear how much value these tablets could be sold for in the black artifacts market.
+*The artifacts were held in the small local museum and it’s not clear how much value these tablets could be sold for in the black artifacts market.*
 
 That didn’t help much. I now knew what Amalia had dedicated her life to. I knew some ancient piece of history had probably been sold for some thousands bucks in the black market. I knew those words were written in Latin.
 
