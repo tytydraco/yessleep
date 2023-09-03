@@ -302,7 +302,7 @@ I suddenly felt a wave of seething energy fill my body, and as I raised the pist
 
 ***“What are you-“***
 
-“I promise, I will erase you all from this world.” Bang.
+“I promise, I will erase you all from this world.” ***Bang.***
 
 Everything faded to black, and I sent a desperate plea to anyone or anything that would listen: Take me back dammit. Let this work as it did before. When I suddenly opened my eyes to a familiar voice.
 
