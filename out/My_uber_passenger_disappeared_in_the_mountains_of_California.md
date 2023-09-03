@@ -54,9 +54,9 @@ The car roared back to life, lights illuminating his face. His skin was pale as 
 
 Something must have clicked in my head as I see myself going out of the car and approaching the fence. 
 
-One I stepped closer, reality hit me like a ton of bricks. 
+Once I stepped closer, reality hit me like a ton of bricks. 
 
-I scanned the whole area, up and down. There was no land, just a precipice. The fence was there to halt cars. 
+I scanned the whole area, up and down. There was no land, just a precipice. A grandeur sight of a cliff. The fence was there to halt cars. 
 
 My heart raced, and I hyperventilated, every hair on my body standing on end.
 
