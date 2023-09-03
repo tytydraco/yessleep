@@ -6,13 +6,13 @@ The most common eerie sight was a figure, a person walking down the middle of th
 
 Despite all this, I believed nothing could truly scare me, but I was dreadfully wrong.
 
-It was November 2022, around 2:30 AM, as I navigated the rain-drenched roads of Los Angeles. The downpour was relentless, an unusual occurrence in a city not known for storms or hurricanes. Visibility was near zero. I decided to stop at a kiosk for a quick taco. Oddly, they were open that night. While devouring my meal, an Uber request flashed on my screen, destination: the mountains of Glendale, under the name "Nats." 
+It was November 2022, around 2:30 AM, as I navigated the rain-drenched roads of Los Angeles. The downpour was relentless, an unusual occurrence in a city not known for storms or hurricanes. Visibility was near zero. I decided to stop at a kiosk for a quick taco. Oddly, they were open that night. While devouring my meal, an Uber request flashed on my screen, destination: the mountains of Glendale, under the name "Naats." 
 
 Considering the proximity to my home in Pasadena, I thought, 'Why not make this my last ride of the night?'
 
 To my surprise, the pickup was just a block away. Luck was on my side tonight. Devouring the taco, I sped to the pickup spot. There, I saw a tall man, dressed entirely in black, an umbrella shielding him from the relentless rain. His attire, a black suit, a black Trilby cap, and black leather shoes, hinted at a businessman or a tourist.
 
-I greeted him with a simple, "Hey, how are you, Nats?"
+I greeted him with a simple, "Hey, how are you, Naats?"
 
 "Enjoying my stay here," he replied, his voice a low, eerie whisper. I glanced at him in the rearview mirror, and it seemed like he was smiling, but the darkness obscured his features. I looked away.
 
@@ -60,7 +60,7 @@ I scanned the whole area, up and down. There was no land, just a precipice. The 
 
 My heart raced, and I hyperventilated, every hair on my body standing on end.
 
-I fled to my car, started the engine, and raced downhill. The world outside grew warmer as streetlights and people surrounded me. I checked the Uber app—now, the name was just a single letter, "S."
+I fled to my car, started the engine, and raced downhill. The world outside grew warmer as streetlights and people surrounded me. I checked the Uber app—now, the name was just three letter, "STN."
 
 It took me three agonizing months to return to Uber driving, never past 11 PM. I sought more hours as a per diem RN, avoiding nighttime shifts as much as possible. I couldn't shake the trauma. Was he real, or was he something supernatural? I'll never know. 
 
