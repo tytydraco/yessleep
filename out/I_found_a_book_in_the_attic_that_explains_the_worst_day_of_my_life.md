@@ -1,4 +1,4 @@
-As the sun set, I saw the first silhouettes across the field. My grandfather sat, smoking and reading, on the rocking chair in the back of the house. I ran to him, scared and uncertain.  
+As the sun set, I saw the first silhouettes across the field. My grandfather sat, smoking and reading, on the rocking chair in the back of the house. I ran to him, scared and uncertain.  
   
 “There’s people coming, grandpa,” I said. He flicked his cigarette on the ashtray, put down his book, and looked straight into my eyes.  
   

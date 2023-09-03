@@ -8,15 +8,15 @@ At the megastore, a single litre of synthetic milk (cows are banned or extinct, 
 
 \*\*\*
 
-Your social score is everything today. Your entire worth as a human is captured in that number. Those that fall below 8, vanish. Theories as to where they go are whispered in hushed and paranoid tones. Discussing it is taboo on MetaX, the only social media platform that exists. Strategies on how to improve your score abound and are easily the most discussed topic online, though bitter experience, raising your points was akin to blitzing a snap test in a subject you never studied. But losing points, now that's as easy as breathing.
+Your social score is everything today. Your entire worth as a human is captured in that number. Those that fall below 8, vanish. Theories as to where they go are whispered in hushed and paranoid tones. Discussing it is taboo on **Meta.X**, the only social media platform that exists. Strategies on how to improve your score abound and are easily the most discussed topic online, though from my bitter experience, raising your points was akin to blitzing a snap test in a subject you never studied. But losing points, now that's as easy as breathing.
 
-I had 9.2 and John, my brother, had 9.3. Clive, from next door showed me with mock rebellious bravado that he had only 8.1. That was a few weeks ago. I have not seen him since. I wonder how brave he feels now, or indeed where he is. This was the other eternal topic, where did the sub 8’s go. Nobody I know had ever witnessed any abductions, or arrests, but nobody dared to discuss this on MetaX.
+I had 9.2 and John, my brother, had 9.3. Clive, from next door showed me with mock rebellious bravado that he had only 8.1. That was a few weeks ago. I have not seen him since. I wonder how brave he feels now, or indeed where he is. This was the other eternal topic, where did the sub 8’s go. Nobody I know had ever witnessed any abductions, or arrests, but nobody dared to discuss this on **Meta.X**.
 
 \*\*\*
 
 Clive had a sister that I liked, but I was sure she didn't even know I existed, until today.
 
-I was coming back to our apartment with whatever I was allowed to buy the megamarket for us to eat, when she suddenly grabbed my arm in the crowd. What I remember was the look in her mesmerising blue eyes: manic fright, as a bizarre counterpoint was that pink tight cardigan she wore, with the top button undone, hugging her inviting breasts. I could not help but smile to myself for the sudden attention. She grabbed my hand and sharply led me to one side out of the crowd, behind a large dumpster. She pulled my head close to hers and in a raspy whisper said: “Clive, they took him!”
+I was coming back to our apartment with whatever I was allowed to buy at the megamarket for us to eat, when she suddenly grabbed my arm in the crowd. What I remember was the look in her mesmerising blue eyes: manic fright, as a bizarre counterpoint was that pink tight cardigan she wore, with the top button undone, hugging her inviting breasts. I could not help but smile to myself for the sudden attention. She grabbed my hand and sharply led me to one side out of the crowd, behind a large dumpster. She pulled my head close to hers and in a raspy whisper said: “Clive, they took him!”
 
 Before I could ask *where*, my smartphone chimed. I looked at it and saw the screen: bright red and in the middle -1 flashing in large bold yellow characters. My knees went weak! A -0.1 was chilling enough, and the rare -0.2, was always accompanied by a colourful story, but -1!
 
@@ -132,7 +132,7 @@ The inventor of this abomination must have had a macabre sense of humour, or was
 
 Few bothered with the work tables any more. The hymn of the droids as they carried out their grim work was heard more down here. The only highlight I can share is spotting Clive. I tried to engage him, but he looked all together disengaged. Sallow and gaunt, he was blindly shuffling about with his chin buried in his chest.
 
-I had to admit that I was not far behind him, but I am a stoic optimist by nature and was probably proving harder for this prison to break. I found stupid trivialities funny, and broke out in manic laughter at the slightest prompt. Others would look at me like I had succumbed to insanity. Perhase I have in my own way. One thing was clear: everyone had to dig deep into their souls to find a way to cope.
+I had to admit that I was not far behind him, but I am a stoic optimist by nature and was probably proving harder for this prison to break. I found stupid trivialities funny, and broke out in manic laughter at the slightest prompt. Others would look at me like I had succumbed to insanity. Perhaps I have in my own way. One thing was clear: everyone had to dig deep into their souls to find a way to cope.
 
 Staying near the edge was popular now. The natural light hardly filtered to the centre of the level any more. I was scared to even venture there fearing what I may find.  Around the edge, the air was somewhat more bearable, but the price was steep: being a witness to the stream of human tragedies. I watched as inmates would take their own lives over the edge. The regular monotony of it destroyed our souls. Some prayed beforehand, some just lept, while others hollered their epitaphs. Nobody tried to talk any of them out of it. We just watched like drugged spectators anaesthetised from the gruesome spectacle.
 
