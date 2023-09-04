@@ -214,7 +214,7 @@ Startled, we spun around, only to find ourselves face to face with two more of t
 
 Both of these creatures shared the same eerie base appearance, yet there were unsettling differences: The one on the left appeared unnaturally muscular, while the right one seemed adorned with a grotesque, flowery pattern.
 
-In a matter of seconds, I grabbed Olivia and lunged to the left as a deafening crash reverberated through the entire floor. The sudden burst of adrenaline gave me an unexpected sensation of agility. I felt lighter than a feather ever in that single moment.
+In a matter of seconds, I grabbed Olivia and lunged to the left as a deafening crash reverberated through the entire floor. The sudden burst of adrenaline gave me an unexpected sensation of agility. In that single moment, I felt lighter than a feather.
 
 That fleeting sensation came with a cost, as I soon realized with a searing pain piercing through me. My right arm was gone, torn away by the muscular monster as if it were nothing more than a piece of tender meat. The pain was so overwhelming that coherent thoughts eluded me.
 
