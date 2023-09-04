@@ -4,7 +4,7 @@ Growing up, our house was filled with warmth and laughter, thanks mostly to my m
 
 Finally, mustering the courage, I left my bed and slowly opened the door. The house was unsettlingly silent, as though the house itself was holding its breath. No sign of my mom.
 
-The memories of the earlier incidents clouded my thoughts, like the time I found a sewing needle in my omelet or the cold, emotionless gaze she held when she tried to drown me in the sink. These memories gnawed at my sanity. The memories stirred a fear within me, a dread that she might be lurking in some shadowy corner of the house. Without hesitation, I sprinted out the front door and got into my car.
+The memories of the earlier incidents clouded my thoughts, like the time I found a sewing needle in my pancakes or the cold, emotionless gaze she held when she tried to drown me in the sink. These memories gnawed at my sanity. The memories stirred a fear within me, a dread that she might be lurking in some shadowy corner of the house. Without hesitation, I sprinted out the front door and got into my car.
 
 I shifted to reverse and sped out of the driveway, not once looking back. As the house shrunk in the rearview mirror, a weight seemed to lift off my shoulders. I called a friend telling them I needed a place to crash to for the night, not taking the time to explain everything that happened. 
 
