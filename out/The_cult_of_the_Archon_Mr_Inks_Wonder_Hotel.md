@@ -36,7 +36,7 @@ Suddenly, I had realized that there was another one of his siblings. He has a si
 
 "What?! But aren't you going to help me?"
 
-"Listen here. If I give you weapons of my design, they'll know it quick and get us both in trouble. Not just us but your daughter too. You don't want to know what will happen if I did so. Don't worry, there'll be weapons hidden around the area." David got up and walked towards the door entrance with a sad smile on his face. A smile that indicates he had no choice to do something that can truly help. "Come with me, and I'll show you where to go."
+"Listen here. If I give you weapons of my design, they'll know it quick and get us both in trouble. Not just us but your daughter too. You don't want to know what will happen if I did so. Don't worry, there'll be weapons hidden around the area." David got up and walked towards the door entrance with a sad smile on his face. A smile that indicates he had no choice to do something that can truly help. "Come with me, It’s time you go out there and save your daughter. I’ll show you the way.”
 
 \-
 
