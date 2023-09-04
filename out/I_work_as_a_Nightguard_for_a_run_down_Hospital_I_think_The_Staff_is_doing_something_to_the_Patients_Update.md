@@ -1,6 +1,12 @@
 [Previous entry
 ](https://www.reddit.com/r/nosleep/comments/15zidns/i_work_as_a_nightguard_for_a_run_down_hospital_i/)
 
+
+
+[Next entry
+](https://www.reddit.com/r/nosleep/comments/169qxda/i_work_as_a_nightguard_for_a_run_down_hospital_i/)
+
+
 Hey, everyone. First of all, I want to thank all of you who took the time to read and respond to my last post. Your insights have been invaluable, and I really appreciate your support.
 
 
