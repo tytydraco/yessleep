@@ -246,6 +246,6 @@ Perhaps I was still in shock or maybe filled with rage. Probably both, since I a
 
 That’s when I had an epiphany if you will. That article I read earlier came to mind. If their influence extends to the internet, then I can use it to my advantage as well.  This is the second reason I chose to post this. If you’ve read this far, honestly thank you so much for dedicating your time of the day.
 
-That being said, I want one simple exercise for you to try out. If you can come back to this post again after a couple of  hours and still remember it like you read it the first time, well congratulations, you’re one of us. What you do with that information is truly up to you. I will consider posting more information regarding what we’ve discovered about them if I can successfully post this to begin with. Until then, long live the resistance. That sounded kinda cool right?
+That being said, I want one simple exercise for you to try out. If you can come back to this post again after a couple of  hours and still remember it like you read it the first time, well congratulations, you’re one of us. What you do with that information is truly up to you. I will consider posting more information regarding what we’ve discovered about them if I can successfully post this to begin with. Until then, long live the [resistance](https://www.reddit.com/r/nosleep/comments/168rpnr/the_pigs_among_us_when_the_mall_turns_deadly/). That sounded kinda cool right?
 
 &#x200B;
