@@ -270,7 +270,7 @@ As I looked at Olivia, my heart raced with fear and gratitude. “Olivia please 
 
 “You said we should live through this together, so that’s what we’re going to do. I’ll patch you up and I’ll go support him. I still have one grenade left after al-“
 
-Before she could finish, a vine snaked out from the smoke and pierced through her abdomen. She coughed up blood as she looked at me with fear on her face. Olivia coughed up blood, her eyes filled with fear as she looked at me. Even in her dire condition, she mustered a weak smile. The cruel vine then tossed her aside, and to our horror, the flowery monstrosity emerged relatively unscathed from the grenade blast.
+Before she could finish, a vine snaked out from the smoke and pierced through her abdomen. She coughed up blood as she looked at me with fear on her face. Even in her dire condition, she mustered a weak smile. The cruel vine then tossed her aside, and to our horror, the flowery monstrosity emerged relatively unscathed from the grenade blast.
 
 I let my rage overpower the pain and from the bag, I drew the shotgun. As the creature stepped closer, its mouth near my body, I put the shotgun in its mouth and pulled the trigger. Its brains splattered all over the ceiling, with green fluid coming out instead of normal blood.
 
