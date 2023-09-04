@@ -1,3 +1,5 @@
+Part 1- https://reddit.com/r/nosleep/s/Nx4MbTy0ek
+
 "What is going on?” he thinks to himself as he pushes himself up with both arms.
 
 The place is dead quiet. The only sound Joshua hears is the frequent buzzing of broken electrical lines and flickering lamp posts in broad daylight. The streets are deserted and even the houses and establishments look bleak. He roams around until the air smells of rotten corpses and he almost throws up.
@@ -31,7 +33,6 @@ He catches his breath as he hides in an abandoned building.  He sits and crawls 
 
 He takes his pants off and lays down with his back on the cold floor. He takes a series of deep breaths and though he doesn’t understand why, for some reason his brain tells him he can push the thing out of his stomach. He begins pushing, letting out breathless screams while he bites the ball of cloth in his mouth, his chin almost touching his chest. He keeps pushing harder until he can feel something coming out between his legs. He manages to sit up just to find a real baby’s head. He holds its head carefully, and with a one last forceful push, he is able to bring the baby completely out of him. Once the baby gives out a loud cry, he passes out and everything goes blank.
 
-Part 1- https://reddit.com/r/nosleep/s/Nx4MbTy0ek
-Part 2- https://reddit.com/r/nosleep/s/CvfJQktxwM
+
 Part 3- https://reddit.com/r/nosleep/s/6DtCUx7Gub
 Part 4- https://reddit.com/r/nosleep/s/W19FYUmJ4H
