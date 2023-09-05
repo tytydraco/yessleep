@@ -192,11 +192,11 @@ The stares got worse when I jumped up at my name being called.
 
 My therapist’s name was Dr. Oliver. 
 
-She seemed friendly enough, a petite woman around my mom’s age with a brunette bob who greeted me with a wide smile, spinning around on her chair like a toddler before her expression seemed to stiffen. Immediately, she seemed to pale, and jumped, wandereding over to the couch and fixing the pillows before pulling the wooden table back a little for extra room.  Dr. Oliver directed me to sit down before leaning back on her spinning chair, settling me with a smile. 
+She seemed friendly enough, a petite woman around my mom’s age with a brunette bob who greeted me with a wide smile, spinning around on her chair like a toddler, before her expression darkened. Immediately, her cheeks seemed to pale, and she jumped up, wandering over to the couch and fixing the pillows before pulling the wooden table back a little for extra room.  Dr. Oliver directed me to sit down before sitting back on her spinning chair, loudly clearing her throat.“Would you like an extra pillow?”
 
-“Would you like an extra pillow?”
+I caught her gaze dragging down my body, fully drinking me in. There was a question on her lips, though I wasn’t sure what it was. Instead of speaking when I declined, she pointed to the overflowing trash can next to the door. 
 
-I caught her gaze dragging down my body, fully drinking me in. There was a question on her lips, though I wasn’t sure what it was. Instead of speaking when I declined, she cleared her throat and pointed to the overflowing trash can next to the door. “Feel free to use it if you need to."
+“Feel free to use it if you need to."
 
 Before I could comment on her odd remark, Dr. Oliver steepled her fingers in her lap. “All right, Iris. What’s been going on?”
 
@@ -212,7 +212,7 @@ I pressed my clammy hands into my lap.
 
 “I suffer from narcolepsy,” I admitted. “But it feels different. I’m not just falling asleep at stupid times, I’m forgetting whole days.”
 
-She tilted her head. “Would you say the feeling is akin to not being in control of your body? This can also be called dissociating.”
+She hummed. “Mm, and would you say the feeling is akin to not being in control of your body and thoughts? This can also be called dissociating.”
 
 “Yes.”
 
