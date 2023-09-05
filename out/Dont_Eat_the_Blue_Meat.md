@@ -14,7 +14,7 @@ I was happy there. There is something amazing about doing something you’re goo
 
 We were planning for a particularly busy night. Dado was running back and forth like a madman, blaring like a siren. One of our deliveries had been stuck in customs for two days, and our reserves were running out. Add to that a particular set of high-end clients who were expected to show up, and you got a recipe for disaster.
 
-I was doing inventory with the pastry chef when Dado came in and took me by the arm. He gave he pastry chef a look that she knew all too well. She promptly left the room.
+I was doing inventory with the pastry chef when Dado came in and took me by the arm. He gave the pastry chef a look that she knew all too well. She promptly left the room.
 
 “Are you good?” Dado asked. “You good to work?”
 
@@ -36,7 +36,7 @@ He pressed a piece of paper to my chest and waited. I sighed and accepted it. He
 
 &#x200B;
 
-Most of their orders were from the menu, but there was a particular order that stood out to me. Amêijoas à Bulhão Pato. A style of Portuguese clam cooked with coriander, white wine, and drenched in garlic. It’s an acquired taste, but to a particular palate it can be divine. We had four orders and little time to make it happen. Dado was counting on me, so I got to work. It'd be done by the time they arrived.
+Most of their orders were from the menu, but there was a particular item that stood out to me. Amêijoas à Bulhão Pato. A style of Portuguese clam cooked with coriander, white wine, and drenched in garlic. It’s an acquired taste, but to a particular palate it can be divine. We had four orders and little time to make it happen. Dado was counting on me, so I got to work. It'd be done by the time they arrived.
 
 It took me a trip to the fish market and a call to a sommelier friend of mine, but I made it happen. Later that night, as the guests arrived, I had everything ready. The fish station helped me prepare everything, and I arranged the presentation myself. Before sending it out, Dado stopped to do quality control. He took one sip with his tasting spoon, frowned, and nodded.
 
@@ -454,7 +454,7 @@ I heard snapping joints and crackling bones as she grew in stature. From a measl
 
 “Eo!”
 
-Oil-slick and blackened blue, what remained of Octávia couldn’t form words. 
+Oil-slick and blackened blue, what remained of Octávia couldn’t form words.
 
 But it didn’t need to.
 
@@ -478,7 +478,7 @@ I made my way down the stairs. I hadn’t even realized I was screaming, but the
 
 &#x200B;
 
-It didn’t even try to get down the stairs; it flung itself forward. It haphazardly tumbled down, almost bowling me over as it crashed against the wall. I had to choose; front door, or kitchen. 
+It didn’t even try to get down the stairs; it flung itself forward. It haphazardly tumbled down, almost bowling me over as it crashed against the wall. I had to choose; front door, or kitchen.
 
 I chose the kitchen.
 
@@ -520,7 +520,7 @@ The fuckers even reminded me to cash my check.
 
 &#x200B;
 
-The family moved earlier this year, which is why I can finally share this with the world. I’ve moved since as well, and they won’t find me anytime soon. I just want you to be aware of the kind of people you’re dealing with. 
+The family moved earlier this year, which is why I can finally share this with the world. I’ve moved since as well, and they won’t find me anytime soon. I just want you to be aware of the kind of people you’re dealing with.
 
 There’s another level to their depravity, and I don’t know how to live with it. I don’t know what to make of it. I don’t know, and I don’t want to know. If there is anything that can be said that would make this feel normal, I don’t want anything to do with it.
 
