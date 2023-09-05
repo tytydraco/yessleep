@@ -162,4 +162,4 @@ Both of us recalled being carried inside a monstrous Victorian house with a batt
 
 The only problem was, we couldn’t help but notice that something about this place just wasn’t quite right…
 
-The smell of death was [suffocating.](https://www.reddit.com/u/Trash_Tia?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=1)
+The smell of [death](https://reddit.com/r/nosleep/s/RPlaz0BWls) was [suffocating.](https://www.reddit.com/u/Trash_Tia?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=1)

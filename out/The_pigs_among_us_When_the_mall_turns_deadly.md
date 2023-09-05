@@ -144,7 +144,7 @@ A serious look crossed his face. “The Mall. From what I saw,  it seems that th
 
 “Alright then, however there’s still an issue. Olivia and I can’t exactly fight, you know? I don’t want to hold you back when you’re in the middle of a fight.”
 
-I looked at Olivia and we both nodded. As we voiced our concerns, the tension faded from his face, and his features relaxed. “I had a feeling you would say that, Alex.” He opened his duffel bag, revealing the familiar sketchbook and axe, along with some medical supplies and... weapons. A shotgun, a pistol, and even some lethal grenades emerged from the depths of his bag.
+I looked at Olivia and we both nodded. As we voiced our concerns, the tension faded from his face, and his features relaxed. “I had a feeling you would say that, Alex.” He opened his duffel bag, revealing the familiar sketchbook and axe, along with some medical supplies and... weapons. A shotgun, a pistol, and even some grenades emerged from the depths of his bag.
 
 We were both speechless, I had expected him to be prepared but not to that extent. “Where did you even get all this?”
 
