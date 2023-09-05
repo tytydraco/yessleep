@@ -1,103 +1,85 @@
-My parents were not super well off and for a long time struggled to get ahead. My dad worked incredibly hard, stress and fights and all the shit that comes with money troubles, but he’d saved enough to put a deposit on a home. 
+When I was only six years old, I was diagnosed with schizophrenia, because of a voice that has haunted me for as long as I can remember. It was a low, malevolent voice, barely a whisper, that called my name in the dark, after I'd gone to bed. "Billyyyyy."
 
-I remember the first time I walked into that house. It was the day of the turn key and I was super excited to finally have a garden to play in. 
+At least, that's how it began.
 
-It was a two bedroom, with a study. Not very big. The whole house was painted shades of grey and black. From excitement I felt this sinking feeling as I looked around. I remember feeling this overwhelming sense of wrongness. To put it into words is impossible. That feeling traveled up and down my body in waves. A mix of unease and trepidation with absolutely no explanation. 
+My memory of the early years is hazy at best, but I know when I was very young, it didn't phase me at all. I thought it may have even been my mother, hushing me to sleep. Whenever I told her about it however, she always gave me this look; it was the same frown she made when I was being silly or I'd done something wrong. When I was four or five, I pieced it together and realised the voice wasn't normal at all. A little while later, I was diagnosed with schizophrenia and prescribed anti-psych meds.
 
-I tried to tell my dad and I remember him saying that it was just a big change and I’d get over it. I was a quiet kid, kept to myself and swallowed it down. 
+It was around this time I began to be afraid of the voice inside my head. It felt so real to me.
 
-11yo
-For my birthday that year my parents decided to get me a cat. They took me to a breeder and they chose one. (I don’t like cats, I’d been bitten and scratched before) but I said thank you and tried to loved it. 
+"Billyyyyy."
 
-Not that it ever loved any of us back. That cat hated being touched or even looked at. It didn’t hiss or scratch but gods it would just hide away all day and night, hard feat for an indoor cat.
+"Let me in, Billyyy."
 
-She lived in the laundry mostly. Which was where our toilet was as well. So to get to the toilet you’d have to sneak past her.
+"I'm hungry, Billyyyyy."
 
-I remember one night I woke up suddenly. When I opened my eyes in a panic it was pitch black. You could look back and say perhaps it was a moonless night, but it didn’t feel like that. It felt like the darkness had eyes. Like it was watching me. Covering me, running all over my skin in its thickness. 
+I would lay awake most nights, silently soaking the sheets in my tears, and sometimes my urine. If it got unbearable, I shouted for mum. She'd come thudding along the hall in her dressing gown and snap the lights on, cradling my weary head in her arms. She was all I had, after dad went away.
 
-Black so thick it made the hair on the back of my neck stand up on end. It made my mind race, my heart beat in my throat. 
+One reason I found it so hard to separate the voice from reality, is that I could locate the sound. "Billyyyy." It wasn't like it was coming from inside my head at all angles. If I stayed awake and just listened to the noise without focusing on the fear, which to be fair was difficult, I could at least clearly tell where it was coming from.
 
-Any trace of sleep gone I realized I probably woke up because of the overwhelming need to pee. With absolute dread I got up and walked the 15 steps to the bathroom. 
+It was just beyond my bedroom door.
 
-I would of got the belt if I’d woken my parents up by turning on the light and both were light sleepers. So I walked in that dark. I held onto the walls and put one foot in front of the other. Shivers ran up and down my arms. My breath felt heavy in front of my face even though it was warm inside.  
+I went through periods where I totally did believe in the voice, where I dreaded bedtime more than death itself. During such times I would steal a knife from the kitchen and hide it under my pillow, just in case the creature or whatever terrifying entity finally decided to break entry.
 
-I turn, knocked for the cat, and opened the laundry door only to find the cat upright on its bed absolutely fixated and hissing at the  window in the laundry door. 
+Or I would try talking to it. Ask it questions. What it was. Why it was tormenting me. I only realised when I was much older how insane I must have sounded to my mother listening in the other room.
 
-I think I was so stunned that this cat was hissing and angry, that I just froze. Dread swept over me like ice over my body. I went hot and cold all over before I could even tell you why.
+Oh, and just in case you're curious, it never answered me.
 
-I turned my head and in that large window was a dark shadow of a huge man with a top hat on. He was looking right at me. I knew he was. Through me. Over me. No features in that thick darkness but the outline of him was so very clear. This sensation of being bathed in ice down every root of hair from the top of my head to my toes. The cat was growling and hissing, looking at the same thing as me. 
+I also developed theories about what it could be. At first came the image of a gruff man with a snarling face. Later, inspired perhaps by horror fiction I'd consumed, a pale, slender, androgynous alien.
 
-I forgot to close the door or to breathe. I just ran into my room and hid under the bed. Rocking back and forth for hours until the sun came the hell up. Trying to breathe through the terror and fight for control over my thoughts. Trying to rationalize with myself. 
+I told my mother about the theories, but she always said not to dwell on it, since it only gave fuel to my condition. I would do it anyway. I couldn't help it. When you hear a voice almost every night, it has a habit of consuming a lot of your energy.
 
-I tried to tell my parents. I really tied to tell them and they didn’t believe me. They said I saw the shadow of the trees outside moving. That it was my imagination. 
+I would also discuss my thoughts with a psychiatrist, which I saw fortnightly - or weekly, in times where the condition was out of control. He would always remark how strange it was that my symptoms only presented themselves under very particular situations; when it was dark, after I'd gone to bed, only if I was alone, etc. Since, by the time I was eleven, I'd had multiple friends around and never once heard the voice those nights. And, of course, only ever at night, in bed.
 
-That night on I made sure to pee before bed. Double check the security door was locked. That the wooden door was locked. That the blinds in my room were down and that I had my lamp on. I slept with the light on from them on and even then I didn’t feel safe. 
+When he asked me why I thought that was, I couldn't really answer. "Well, unless..."
 
-12yo 
+"Go on..."
 
-My grandparents came to stay with us for the year from overseas. The house was small so they moved me from my room to the study. (I had no complaint I loved my grandparents so much.) 
+Sitting on my psychiatrist's couch at thirteen years old, a cold shiver snaked its way up my spinal cord and tickled the fear centre of my brain. "No, no. It's nothing." I said, staring at the table.
 
-The study was small. I slept on the pull out sofa. It touched the deck which had a computer on it. The window was narrow and in a corner but it was floor to ceiling. This room did not have curtains. My parents  also didn’t let me take my lamp as my grandparents needed it to read at night. I tried to ask for it a few times and was told to grow up. 
+"Go on. What is it?" My psychiatrist leaned a little closer.
 
-It started maybe the night I first slept there or that first week. I can’t be sure, that part is fuzzy so I won’t bullshit.
+"Well, I-I, I mean..." I could barely get the words out. "Unless it was my mother."  And then I added immediately after: "But there's no way." And then I said a second later. " I mean, why would she even do that?" I said, staring into my psychiatrist's soul for some reassurance.
 
- Id wake up for no apparent reason, in the middle of the night. Once, twice a week at first then it got to every night. My parents started getting angry with me over it. I was tired and the school was noticing. 
+My psychiatrist - his name was Tom - leaned back on his armchair and stroked his chin. His expression was solemn. Then, after two seconds of contemplation, he slowly leaned in so that his face was halfway across the table. "I'm going to tell you something I'm not sure you're ready to hear, Bill. But now is as good a time as any." As he continued, my heart began to race and I could feel sweat forming in my armpits. "I'm going to tell you now what I've suspected for the past couple of years, and I'm so sorry, but it's not going to be easy for you."
 
-Id say it was months that constant night waking happened without cause (though it could have been weeks) when one night it changed. I woke up to hear tapping on the window. It was so soft at first I thought I was dreaming. But every night it got a little louder. Very distinct. Sometimes there was long drawn out scratching. Sometimes breathing, heavy breathing, but no matter what there was always the tapping. 
+He reached his wrinkly hand over the table and squeezed my shoulder. "I don't think you have schizophrenia." I felt sick as he said those words.
 
- I didn’t look. I never looked. It seems my fear response it to freeze and hide  like a coward. But that tapping and those sounds were terrifying.  I would sit in that bed with my head under covers drenched in sweat, waiting for it to finish. Waiting for the noises to stop, the sickness of fear to leave my body. Id lose hours trying to gain control of myself. 
+"What the hell?" I said, on the verge of tears, absolutely disgusted.
 
-I wasn’t sleeping. I wasn’t eating.  My parents were enraged with my bullshit. They told me it was birds. The flowers outside the window hitting it in the wind. That I was making things up in my head. 
+"Bill, I've been in this business for over ten years - I've known you almost as long - and I've grown to respect you and what you've had to deal with. And I know it's unprofessional so forgive me for saying this, but I love you." He swallowed. "I've encountered many clients with your condition. And, while it isn't outside the realm of possibility that you are indeed suffering from some kind of illness, I believe there may be another explanation."
 
-By summer I was a mess. My grandparents even offered for me to sleep in bed with them. But my parents got angry, saying I wasn’t a baby and that was ridiculous. 
+"No." I kept repeating the word over and over again. "No, no, no." Drowning out the rest of his words, until I finally got up and left.
 
-It as a hot night. I’ll never forget it. It had been a scorcher if a day and we didn’t have aircon. Just a box in the living room. So my parents got the mattresses and put them on the living room floor for my grandparents and for them to sleep. 
+I remember being outraged for the rest of the week at the pure bile of this sick, misguided old man who I had once deeply respected and trusted. After I explained the experience to my mother, she moved me to another psychiatrist and tried to have Tom struck off. Unfortunately, there was no evidence of what he said to me.
 
-I got to sleep on the couch with them  and it was the first time in a very long time I got to Sleep in. It was such a heavy healing sleep. 
+I didn't hear the voice for almost a year after that. I began to feel much better - like a normal person. I slept much better. Days got sunnier. The dark got brighter. It were as if a weight had been lifted from my shoulders.
 
-When I woke up, I am sure it was afternoon. Maybe the one and only time I was ever allowed to sleep in like that since I was little, and my parents were acting so strange. 
+I remember that time so vividly. So filled with sunshine and laughter. Events flowing like a seamless stream. My mother's smile, and her wavy brown hair swaying in the breeze. Silly jokes with my best friend, and young love - that's another story altogether.
 
-They made me breakfast in silence and my grandparents didn’t say much. I ate in this weird silence too and the longer it went, the sicker I felt. Like I had done something really bad and I was about to get a beating. 
+But, of course, it had to return. I had a mental illness, after all. They don't just go away like a cut or a bruise. They're married to you for life. Something Tom clearly never understood despite his years of study in the field.
 
-But dad sat down at the table and started asking me questions. When did I start hearing the noises. What did the man I saw look like ect. 
+Soon enough things were back to normal. I would be laying awake, or almost asleep, when that soft, eerie whisper trickled its way under the door. "Billyyyyyy." And I was plunged back into my nightmares, into terror, isolation.
 
-I can not describe the relief I felt that finally I was being listened to. I went over all of it. Again. For the manyith time. The man in the window. The cat hissing. The tapping.the noises. Everything. I tried to be as honest as I could. 
+You might think that the rest of my life wouldn't have to suffer because of a single voice I heard at night, but you're wrong. Apart from the fact it tormented me for hours, stunted my sleep and filled me with mortal terror, it also served as a constant reminder that I was different - a freak. I was lonely with the voice, since I couldn't really talk about it much to anyone, except my mother, who while tried to understand could never truly connect with my suffering on a fundamental level.
 
-I know when I looked at my dad when I finished that he didn’t believe me. He said he heard the tapping at the windows last night, they all had. It had woken them all up. 
+I was lonely, afraid and depressed. I attempted suicide, twice. Once by cutting my arms in the shower and another by getting drunk, putting a plastic bag over my head and hanging my neck from the bedroom door handle with a belt. Both times failed because my mother walked in on me.
 
- My dad had gone outside to look, but no one was there. He said he’s thought about it logically and it must be one of the kids from school pulling a prank and he’d talk to the school. 
+Being cared for in the hospital was the lowest point in my life, but it brought me to a place of reckoning. Laying on the white bed with stitches in my arms, I told myself, "This time, I will do what I have never done. I'm going to confront this son of a bitch or die trying."
 
-That night, after a long hot day we got this beautiful summer rain. I sat in the garden and got soaked before my parents got home from work.  I sat in the garden and enjoyed that water hitting me, washing away all my problems for a minute. 
+A tiny part of me warned that my condition was taking ahold, but it was too powerful for me anyway. I had given up trying to control it.
 
-That night I was so exhausted that I just fell asleep watching tv. My parents moved me and groggy as I was I just feel flat on the sofa bed and passed out. 
+It was that same night in the hospital that I heard the voice again. The son of a bitch was behind the cubicle curtain. I could even see the fucker's silhouette. "Billyyyyyy." Its faint and raspy tone came through clearer than ever. "Time to extract your soul, Billyyyyy." Unfortunately, it walked away before I could pull back the curtain.
 
-They’d left my window open, my night light off. 
+When I was back at home a few nights later, I heard the bastard again. "Billyyyyy. I'm getting closer to opening this door, you know. I can't wait to rip you limb from limb. Billyyyyyyyyyy."
 
-That night I woke up to the sound of my name, my full fucking name being whispered to me. The darkness was thicker than I’d ever felt it before. The voice was inside and outside at the same time. Calling my name. Annunciating  each vowel. 
+I gently peeled the covers, snatched a screwdriver I kept under the mattress and tiptoed across my bedroom floorboards. In one fell swoop, I snapped the light switch, retracted my arm and swung the door open, full-force.
 
-I was frozen with fear. I held my hands to my ears. I squeezed my eyes closed so tight I felt my eyes would glue themselves shut. 
+I ferociously thrashed into the space beyond, but couldn't see anything as my eyes were still adjusting to the light. I knew I'd hit something though, because I'd felt it in a big way. Heard it - too.
 
-The voice got louder and louder. More demanding. Telling me to come to the window. Calling my name. That voice wasn’t man women or child. There is no describing it. But it knew I was awake. It knew because it became insistent that I come to the window. That I get up and come and look. 
+Finally, I was face-to-face with the creature that had tormented me my entire life.
 
-When it growled at me to come to the window, the voice angry and insistent something snapped inside of me. I felt like my heart would give out if I didn’t open my mouth and say something, do anything. So I screamed. 
+My mother was knelt down, her forehead impaled by the screwdriver I had flailed moments ago. Her motionless eyes, through streams of blood like thick syrup, stared back with cold malevolence.
 
-When I tell you I screamed, I mean I screamed so loud that my voice broke. I didn’t scream words or help. I just screamed this primal sound like some dying animal. 
+It was then I realised what Tom was trying to tell me. What I had suspected myself in flashing moments but dared never admit.
 
-My dad burst into my room and asked me what the fuck was going on.  I couldn’t talk. I couldn’t speak. I was just terrified beyond measure. My bed was so wet from sweat that it looked like I’d taken a shower and just lied down without drying. 
-
-I was allowed to sleep with my grandparents after that. And my parents got security lights and adt security that they armed every night. 
-They even got the priest to come and bless the house. 
-
-My parents installed security cameras around every corner outside. All of them capturing the windows and doors to the house. 
-
-I never heard about it again. All the noises stopped. The darkness gone. The feeling of being watched all the time disappeared too. And I forgot about it. Friends and life and fun taking over those memories. 
-
-I did ask my dad about it years ago.
-I think I’d had a bad dream. I must of been in my late teens. 
-
-He looked startled id brought it up. 
-
-He told me not to worry about it anymore. 
-But the look on his face was haunted. 
-
-Whatever actually happened, whatever he knew, he’s taken it to the grave.
+I wasn't sick. My mother was.
