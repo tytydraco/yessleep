@@ -95,4 +95,4 @@ I was driving back to my aunts place after picking up some of my stuff from my o
 
 When I turned back to look, it was still there but further back in the tree line. 
 
-This morning, the local mall was cordoned off. When I asked someone in the crowd what happened, they said someone found a human finger in one of the planters.
+This morning, the local mall was cordoned off. When [I asked someone in the crowd what happened, they said someone found a human finger in one of the planters.](https://reddit.com/r/nosleep/s/pXwEsRoHCC)
