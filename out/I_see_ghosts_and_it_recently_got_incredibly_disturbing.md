@@ -28,3 +28,5 @@ She told me I passed out in the cemetery and I was now on my way home.
 Since then, things have been so much worse. I hear more things I don’t think I should be hearing and I see more things I know I shouldn’t be seeing. And I think someone- no…something followed me home. 
 
 I think I can hear her now.
+
+[Part 2](https://reddit.com/r/nosleep/s/rwrI93IPK6)

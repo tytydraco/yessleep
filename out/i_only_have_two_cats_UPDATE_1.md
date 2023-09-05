@@ -168,4 +168,6 @@ His night ended shortly after as we called for a few minutes. He updated me on a
 
 Here is where I'll link to the next post. Please, if you've read this far, continue reading in the second update and hold all comments for the end of that post. I appreciate it, and I know John does too.
 
-Due to how this specific subreddit works, I'll be posting the update for this tomorrow. Please check back in then, and thank you for reading this far down.
+[https://www.reddit.com/r/nosleep/comments/16ad3y9/i\_only\_have\_two\_cats\_update\_2/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/16ad3y9/i_only_have_two_cats_update_2/?utm_source=share&utm_medium=web2x&context=3)
+
+&#x200B;
