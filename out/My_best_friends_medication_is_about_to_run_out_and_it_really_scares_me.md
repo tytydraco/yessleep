@@ -12,7 +12,7 @@ The feeling of freedom was immense as we drove along the southern roads, switchi
 
 After a wild weekend partying in Memphis, we slowly realized that both time and money were running out. I was supposed to start my job at my dad's company in a few weeks, and Linus was due to start at a retirement home around the same time.
 
-We looked at a map and decided to make one last trip with the Ranchero, heading down to New Orleans to experience the magic of Beale Street before heading home.
+We looked at a map and decided to make one last trip with the Ranchero, heading down to New Orleans to experience the magic of Bourbon Street before heading home.
 
 Getting out of Memphis proved more difficult than expected, the traffic jams made us both impatient and irritable, and sometime in the afternoon, we decided to take a detour southward – highway 49.
 
@@ -114,13 +114,13 @@ I then remembered the man with the black hair and beard.You see, I haven't told 
 
 When he handed me the pill bottle, he said in his clear, fluent Swedish, "He will need these. Give him one a month. I will grant your wish. As long as he lives, you will have what you desire. When he dies, his soul is mine, and our deal is over."
 
-I approached the glass doors, saw doctors moving back and forth inside. I entered. 
+I approached the glass doors, saw doctors moving back and forth inside. I entered.
 
 The room smelled of hand sanitizer and death. Then I saw the bed. I saw Linus.
 
 He had lost even more weight since I last saw him, his pale skin taut over protruding bones, his face hollow and chalk-white around his enormous eyes.
 
-Tubes were inserted into his thin blue veins, IV bags surrounded his bed. His mouth was open, revealing the few teeth he had left.His gaze met mine, and his lips formed a smile. I approached, genuinely moved by his reaction. 
+Tubes were inserted into his thin blue veins, IV bags surrounded his bed. His mouth was open, revealing the few teeth he had left.His gaze met mine, and his lips formed a smile. I approached, genuinely moved by his reaction.
 
 He had been sick and weak for a long time, but now my best friend looked like a corpse. With jerky movements, his chest rose and fell. I placed my hand on his cold, thin arm.
 
