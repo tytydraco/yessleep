@@ -146,4 +146,6 @@ I could distantly hear her anguished sobs, broken up by desperate prayers in Fre
 
 A heavy dread settled in my gut. Was Gabby still alive, or had I just discovered the last remnant of her existence?
 
+[Part 5](https://www.reddit.com/r/nosleep/comments/16bfscv/our_search_for_a_missing_teen_uncovered_the/)
+
 [X](https://www.reddit.com/r/PageTurner627Horror/)

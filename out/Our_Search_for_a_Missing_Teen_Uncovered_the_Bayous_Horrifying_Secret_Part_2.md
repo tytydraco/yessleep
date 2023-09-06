@@ -196,4 +196,6 @@ I reached into my pocket, pulling out the crumpled note I'd received earlier fro
 
 [Part 4](https://www.reddit.com/r/nosleep/comments/15pp6n5/our_search_for_a_missing_teen_uncovered_the/)
 
+[Part 5](https://www.reddit.com/r/nosleep/comments/16bfscv/our_search_for_a_missing_teen_uncovered_the/)
+
 [X](https://www.reddit.com/r/PageTurner627Horror/)
