@@ -226,7 +226,7 @@ She hummed in understanding.
 
 “That sounds quite distressing, Iris. I am sorry to hear that.” Dr. Oliver turned and typed something into her laptop before turning back to me. “Why don’t we try to go through your day?  We can start by attempting to find a routine in your life, and hopefully, we can fill in the blanks and find the cause of this suppression. Usually, we block out certain memories due to trauma, and that would explain why you have been blacking out and losing time.” 
 
-Her eyes started drifting down once again, lips curling into a sympathy smile, and shook my head. “I haven’t been through any trauma.” I said. "I really am fine."
+Her eyes started drifting down once again, lips curling into a sympathy smile, and I shook my head. “I haven’t been through any trauma.” I said. "I'm fine."
 
 “You may think that,” Dr Oliver said. “It is normal to blame the unnatural on things like stress or not getting enough sleep. I have students coming in thinking they are disassociating when in reality, they are drinking heavily throughout the night and the alcohol is affecting them. However, what you are describing sounds like you have suppressed memories that have deeply affected your mental state,” her expression darkened. 
 
@@ -252,7 +252,7 @@ I could tell she was trying to ease me into the conversation, and it was working
 
 I felt the knot in my gut loosen and allowed myself to breathe. 
 
-“Scott Westerfield."
+“Scott Westerfeld."
 
 She smiled like she knew who that was before steering the subject back to delving into my mind, quickly scrawling something else down in shorthand. The scratching of her pen on the paper made me feel oddly comforted. “Do you take any other classes?" 
 
@@ -378,9 +378,9 @@ I leaned back, the taste of watermelon tainting my teeth and the back of my thro
 
 The world seemed to be more black and white than color, and the light fixture above me felt like it was scalding my face. This time I wasn’t wearing shoes, and my hair felt greasy and wrong, like it hadn’t been washed in a while. 
 
-Except I had washed it. I had memories of showering that same day. When I inhaled strands of my hair, though, I only smelled something rotten and off, like I had dripped my head inside trash. I was running my fingers through it when I glimpsed my own hands, my own wrists, where laceration marks were indented into my skin. Initially, I thought I was seeing things. But.. no. 
+Except I had washed it. I had memories of showering that same day. When I inhaled strands of my hair, though, I only smelled something rotten and off, like I had dipped my head inside trash. I was running my fingers through it when I glimpsed my own hands, my own wrists, where laceration marks were indented into my skin. Initially, I thought I was seeing things. But.. no. 
 
-I was running the tips of my fingers over raw red marks slicing into my flesh. When I tried to get up, panic striking my chest, I couldn’t. 
+I was running the tips of my fingers over raw red marks slicing into my flesh. When I tried to get up, panic striking my chest, I couldn’t move. 
 
 “No, Iris."
 
@@ -422,23 +422,23 @@ My therapist’s voice interrupted me, but I shook my head because I was getting
 
 She seemed shaken, and I noticed her reaching for her phone, and then second-guessing herself, pretending to smile.
 
-Was she scared of me?
+*Was she scared of me?*
 
 “Very well.” She said in a low hum, and I leaned back and closed my eyes, willing myself to fall deeper.
 
-It was after reality came crashing down on me that I started to see everything for what it truly was. I was inside a facility, a labyrinth of bleached white corridors and doors that wouldn’t open no matter what I did. This time, I was standing in a bathroom stall. I wore bloodstained shorts and a t-shirt from my latest check-up. In front of me was Rowan, with a freshly shaved head, all of those pretty curls cruelly sheared away. 
+It was after reality came crashing down on me that I started to see everything for what it truly was. I was inside a facility, a labyrinth of bleached white corridors and doors that wouldn’t open no matter what I did. This time, I was standing in a bathroom stall. I wore bloodstained shorts and a t-shirt from my latest check-up. In front of me was Rowan, with a freshly shaved head, all of his curls cruelly sheared away. 
 
 I poked at the bandage wrapped around his skull, and he shooed my hand away with a scowl. “I’m okay,” he said, even when I could feel him trembling against me, see old red crusted under his nose. I could see where he had fought violently, ugly red streaks binding his flesh. “There’s a guard on duty tonight,” he said. “He rings his wife every night and leaves his post for exactly twelve minutes.” His breath shuddered. “I should know, I counted.” 
 
-Rowan heaved out a breath. “So, we’re getting out tonight.” He grasped hold of my hands, squeezing them harshly enough for me to find his gaze. “Before they…. you know," Rowan prodded at his shaved head. "I won't let her do this to me. She's a psychotic bitch who--" 
+Rowan heaved out a sigh. “So, we’re getting out tonight.” He grasped hold of my hands, squeezing them harshly enough for me to find his gaze. “Before they…. you know," Rowan prodded at his shaved head. "I won't let her do this to me. She's a psychotic bitch who--" 
 
-His voice collapsed into white noise when the memory overlapped with another, this one much darker. I didn’t know how much time had passed. Enough for Rowan’s hair to grow back to its usual mop of mousy brown curls. 
+His voice collapsed into white noise when the memory overlapped with another, this one much darker. I didn’t know how much time had passed. Enough for Rowan’s hair to grow back to its usual mop of mousy brown hair. 
 
-I was standing in a line, with him next to me. This time the light was a sickly golden spurt from a bulb above us. 
+I was standing in a line, with him next to me. This time the light was a mellow golden spurt from a bulb above us. 
 
 We were standing in the concrete tunnel, and I remember the splintered rock spiking into my back. A gunshot startled me, but I didn’t move, pressing my lips together. 
 
-Then another—and another. 
+Then another—and **another**. 
 
 I sensed the shadows next to me dropping to the ground in rapidly stemming red until there were five of us left. Dr. Oak’s face was a monster caught in the light, pinched eyes and a scowl twisted on her lips. She took a step towards me, shoving the barrel of her handheld into the flesh of my forehead before moving to Rowan, and sliding the gun down his cheek. “You should think yourselves as lucky,” she said, her voice booming. “I don’t accept defects."
 
@@ -450,7 +450,7 @@ It didn’t even look like a brain; not the one I had always had in my head.
 
 This thing was a bulging pulpy mess of veins and grey matter. Dr. Oak held it up, tracing the thing with the tip of her finger. “This is not what I want,” she said. “Do you see this, here?” she stabbed at the girl’s brain, and I was half aware that I had just thrown up all over myself. I barely felt it, only following her pointer finger, swallowing another mouthful of vomit. There were black streaks spiderwebbing through pinkish matter, tendrils of pooling darkness enveloping what had been healthy pink tissue.
 
-“This is poison.” Dr Oak spat, dropping the thing on the ground and straightening up. “It is a failure of what should have been a pyrokinetic.”
+“This is poison.” Dr. Oak spat, dropping the thing on the ground and straightening up. “It is a failure of what should have been a pyrokinetic.”
 
 She stabbed at the other bodies, her lip curling. “A shapeshifter.” Dr. Oak pointed to the one furthest away. I could see pieces of his skull clinging to his sweater. “Psychokinesis.” She situated herself in front of Rowan. 
 
@@ -522,7 +522,7 @@ When freezing cold air slammed into me, I didn’t feel it.
 
 There was a sleek black car in pursuit of us. Green Hoodie was struggling to stay upright, throwing his arms out, his panicked yelling to the others in the front clanging in my head.
 
-"Drive slower! I can't reach–" He slammed into the side, hissing in pain. 
+"Drive slower! I can't reach–" The van door swung outwards with him still clinging on. 
 
 But I could barely register his yells, or the people who were after us. 
 
