@@ -10,7 +10,7 @@ The restlessness of the bayou night was palpable. Despite the pressing need to r
 
 We began the painstaking process of consolidating the evidence we had gathered so far. We worked relentlessly, fueled by Therese's anguish and the ticking clock.
 
-Drawing upon my NOPD experience and master's in forensic psychology, I began to create a comprehensive criminal profile. The piles of evidence seemed to stare back at me, challenging me to make sense of them. Each piece, from the haunting Polaroid of Claire to the matching lockets, was a testament to Lupin's twisted psyche.
+Drawing upon my NOPD experience and master's in forensic psychology, I began to create a comprehensive criminal profile. The piles of evidence seemed to stare back at me, challenging me to make sense of them. Each piece, from the haunting Polaroid of Claire to the locket, was a testament to Lupin's twisted psyche.
 
 Several factors pointed towards Lupin being a native of the region, perhaps even having a deep-rooted connection to the bayou itself. His intimate knowledge of the terrain and ability to disappear into it were evidence of this.
 
@@ -124,8 +124,6 @@ My fingers tightened around the trigger of my AR, locking eyes with this monstro
 
 The bullets struck the beast, but instead of falling, he seemed only to wince, as if we were no more than gnats causing a brief irritation. He lunged, and in a blur of speed and ferocity that defied logic, claws slashed through the air.
 
-The claws descended with a speed and force that seemed to defy the laws of physics, raking across my armor and cutting through the material like butter.
-
 The claws descended with a speed and force that seemed to defy the laws of physics, raking across my armor and cutting through the material like butter. I moved out of the way quickly enough to prevent the claws from slashing into my flesh.
 
 Ash yelled, "Reine! Get down!" shoving me aside with a force that sent me sprawling into the mud, knocking my night vision goggles off.
@@ -146,7 +144,7 @@ My thoughts were a jumble of fear and revulsion as I lay helplessly beneath Lupi
 
 “J'aime une belle brune,” (I love a beautiful brunette,) He whispered disgustingly into my ear.
 
-I was suddenly aware of his hands tearing at my clothing, his rasping claws stripping me bare, groping belly. In his haste, his claws pricked my skin, sending ripples of pain coursing through me. He seemed to be savoring every moment. The knowledge that this creature meant to do me harm—to corrupt and take pleasure in my suffering before inevitably snuffing out my life—filled me to the brim with an all-consuming rage.
+I was suddenly aware of his hands tearing at my clothing, his rasping claws stripping me bare, groping my belly. In his haste, his claws pricked my skin, sending ripples of pain coursing through me. He seemed to be savoring every moment. The knowledge that this creature meant to do me harm—to corrupt and take pleasure in my suffering before inevitably snuffing out my life—filled me to the brim with an all-consuming rage.
 
 With every muscle in my body tensed, my fingers scrabbled across the ground, desperately seeking something—anything—that could turn the tide of this nightmare. Then I felt it—the cylindrical shape of the flashbang grenade still attached to my shredded tactical vest. For a moment, time seemed to freeze. My dislocated shoulder screamed in agony as I stretched my arm to its limits to grasp the flashbang.
 
