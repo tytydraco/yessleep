@@ -236,13 +236,13 @@ Her eyes started drifting down once again, lips curling into a sympathy smile, a
 
 “Your brain has shut down the possibility of trauma and is acting like nothing has happened. However, your body still feels it, and is still reacting to it even now.” Before I could protest, she leaned forward. “Iris, I’m going to ask you some questions—and some of them may trigger certain emotions and memories,” She studied me before retracting back in her chair. “If you would prefer for me to not proceed, I can make you another appointment and we can talk about it another time. In this case, I would suggest against that if this is affecting your daily life.”
 
-I found myself nodding, swallowing sour bile creeping up my throat. “I’m okay,” I whispered. “I’m fine with answering questions.”
+I found myself nodding, swallowing sour vomit creeping up my throat. “I’m okay,” I whispered. “I’m fine with answering questions.”
 
 Her eyes flicked down once again. “Iris, I have to ask, do you have anyone I can call if you…” Her lips twisted, and she trailed off.
 
 “If I what?”
 
-“Never mind. Just let me know if you feel nauseous at all.”
+“Never mind. Just let me know if you feel nauseous."
 
 “I’m okay.”
 
