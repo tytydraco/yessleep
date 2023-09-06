@@ -148,7 +148,7 @@ I was suddenly aware of his hands tearing at my clothing, his rasping claws stri
 
 With every muscle in my body tensed, my fingers scrabbled across the ground, desperately seeking something—anything—that could turn the tide of this nightmare. Then I felt it—the cylindrical shape of the flashbang grenade still attached to my shredded tactical vest. For a moment, time seemed to freeze. My dislocated shoulder screamed in agony as I stretched my arm to its limits to grasp the flashbang.
 
-I knew the risks; detonating a flashbang at such close range could cause permanent hearing loss, maybe even temporary blindness for me. But for Lupin, with his heightened senses, the impact would be devastating, possibly lethal.
+I knew the risks; detonating a flashbang at such close range could cause temporary blindness, maybe even permanent hearing loss for me. But for Lupin, with his heightened senses, the impact would be devastating, possibly lethal.
 
 Lupin was so preoccupied with his loathsome acts that he didn't notice as I slid the device into the waistband of his ragged, swamp-soaked trousers. Our eyes met, and a savage grin spread across my face.
 
