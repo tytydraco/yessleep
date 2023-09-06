@@ -52,6 +52,9 @@ We burst out into the night, the facility looming ominously behind us. We run un
 She mutters something and turns to face me. I recoil. Her eyes are pitch black, devoid of life. "You need to get help, Sarah," I say, but her response is garbled, unintelligible.
 
 My stomach knots as I back away, leaving behind the thing that used to be Sarah. My phone is dead when I try to call 911. I run to the hotel, rush into the elevator, and make it to my room. I strip off my clothes, wanting to burn them and jump into the shower, scrubbing the black blood off me. Wrapping a towel around myself, I finally start to feel clean.
+
 But then I heard it—a voice in my head. I try to suppress it, convince myself that I just need rest and to go home.
 
-Stepping out of the shower, I pause at the sink, taking a deep breath. I wipe the fog from the mirror and look into my own eyes, expecting to find some semblance of the person I used to be. Instead, all I see is DARKNESS.
+Stepping out of the shower, I pause at the sink, taking a deep breath. I wipe the fog from the mirror and look into my own eyes. For a brief second, they flash to a pitch black void before returning to normal. I reel back, horrified.
+
+Was it just a trick of the light, or is the darkness now inside me too?
