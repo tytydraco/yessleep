@@ -262,7 +262,9 @@ It was like a scene from the Andy Griffith show on pause. Only if Andy and Barne
 
 I certainly hope someone's hearing this now.
 
-At this point it's hard to imagine there's anyone out there at all. But if there is, tell my family I love them and I'm sorry. I'm so fucking sorry.
+At this point it's hard to imagine there's anyone out there at all. But if there is, this story needs to get out. Tell the police, tell the internet, please... just get the word out so no one ever ends up in this God forsaken place again.
+
+And most of all, please... tell my family I love them and I'm sorry. I'm so fucking sorry.
 
 Richie and I decided to hold out in the church tonight. I don't know if I ever really believed in God, and now maybe less than ever, but it seems like if there was ever a time to pray, it would be now.
 
