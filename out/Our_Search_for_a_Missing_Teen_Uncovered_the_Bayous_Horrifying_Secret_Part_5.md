@@ -66,11 +66,17 @@ As Ash tightened the straps on his tactical vest, I moved towards the table that
 
 Picking up the firearm, I felt a surge of conflicting emotions. In my hands, the gun weighed not just in pounds but also in memories—haunting echoes of my past, where the line between justice and violence seemed to blur more often than I'd like to admit.
 
-Closing my eyes momentarily, I could see each of the victims’ faces, forever frozen in time. My fingers involuntarily squeezed the rifle harder. I could feel my pulse quicken, the familiar burn of tears threatening to spill. What consumed me now, even more than the desire to find Gabby, was a fiery, unyielding bloodlust. The rawness of that emotion was almost overpowering. The desire for vengeance burned in my veins, a yearning that I hadn't known I was capable of feeling.—Delacroix’s hideout fell within Vermilion Parish, a region of the bayou that was particularly isolated and difficult to navigate. It was as if the land itself had conspired to shield Lupin's dark activities from the prying eyes of justice. Getting there would be a challenge.
+Closing my eyes momentarily, I could see each of the victims’ faces, forever frozen in time. My fingers involuntarily squeezed the rifle harder. I could feel my pulse quicken, the familiar burn of tears threatening to spill. What consumed me now, even more than the desire to find Gabby, was a fiery, unyielding bloodlust. The rawness of that emotion was almost overpowering. The desire for vengeance burned in my veins, a yearning that I hadn't known I was capable of feeling.
+
+—
+
+Delacroix’s hideout fell within Vermilion Parish, a region of the bayou that was particularly isolated and difficult to navigate. It was as if the land itself had conspired to shield Lupin's dark activities from the prying eyes of justice. Getting there would be a challenge.
 
 We rented an airboat from a local outfitter who, despite asking no questions, clearly sensed the urgency in our demeanor.
 
-Navigating through the bayou was like threading a needle with a blindfold on, if the eye of the needle was shifting, floating on murky water, and guarded by gnarled trees that reached out like wraiths.As the airboat hummed softly through the bayou, Ash retrieved the drone from its case. A compact machine equipped with the latest in infrared technology, the drone was designed to pick up heat signatures even in the most challenging environments.
+Navigating through the bayou was like threading a needle with a blindfold on, if the eye of the needle was shifting, floating on murky water, and guarded by gnarled trees that reached out like wraiths.
+
+As the airboat hummed softly through the bayou, Ash retrieved the drone from its case. A compact machine equipped with the latest in infrared technology, the drone was designed to pick up heat signatures even in the most challenging environments.
 
 Taking a moment to calibrate, Ash sent the drone skyward. Its whirring blades were soon muffled by the thick canopy overhead. We both watched intently as the drone relayed a live feed to Ash's tablet.
 
@@ -140,7 +146,7 @@ My thoughts were a jumble of fear and revulsion as I lay helplessly beneath Lupi
 
 “J'aime une belle brune,” (I love a beautiful brunette,) He whispered disgustingly into my ear.
 
-I was suddenly aware of his hands tearing at my clothing, his rasping claws stripping me bare. In his haste, his claws pricked my skin, sending ripples of pain coursing through my body. He seemed to be savoring every moment. The knowledge that this creature meant to do me harm—to corrupt and take pleasure in my suffering before inevitably snuffing out my life—filled me to the brim with an all-consuming rage.
+I was suddenly aware of his hands tearing at my clothing, his rasping claws stripping me bare, groping belly. In his haste, his claws pricked my skin, sending ripples of pain coursing through me. He seemed to be savoring every moment. The knowledge that this creature meant to do me harm—to corrupt and take pleasure in my suffering before inevitably snuffing out my life—filled me to the brim with an all-consuming rage.
 
 With every muscle in my body tensed, my fingers scrabbled across the ground, desperately seeking something—anything—that could turn the tide of this nightmare. Then I felt it—the cylindrical shape of the flashbang grenade still attached to my shredded tactical vest. For a moment, time seemed to freeze. My dislocated shoulder screamed in agony as I stretched my arm to its limits to grasp the flashbang.
 

@@ -126,9 +126,13 @@ It felt like even my own body was rejecting me after that first leap, and my min
 
 I could still hear his thoughts like they were attached to me. 
 
-*Holy shit, did that girl come back from the dead?* I noticed he inched away from me, lips curling, before holding the door open for me with a patronizing smile. It looked like he had no does what had happened, despite his mind clearly trying to shove me out. I had no idea who he was, and somehow this guy felt like part of me, his body and thoughts now mine. Just like the woman, however, that feeling faded when I was halfway across campus, and the invisible string binding us together was severed. 
+*Holy shit, did that girl come back from the dead?* 
 
-I felt the jolt, his mind pulling free, dull pain creeping across the back of my head. Like I was losing part of myself. The boy, though, was relieved. I could sense the weight that was me slowly retract from his brain, his mind calming down, from what had been my invasion. 
+I noticed he inched away from me, lips curling, before holding the door open for me with a patronizing smile. It looked like he had no idea what had happened, despite his mind clearly trying to shove me out. This boy was a stranger, and somehow he felt like part of me, his body and thoughts now mine. Just like the woman, however, that feeling faded when I was halfway across campus, and the invisible string binding us together was severed. 
+
+I felt the jolt, his mind pulling free, dull pain creeping across the back of my head. Like I was losing part of myself. 
+
+The boy, though, was relieved. I could sense the weight that was me slowly retract from his brain, his mind calming down, from what had been my invasion. 
 
 I quickly realized after my first jump, and then an experimental one, that staying in someone’s body for too long did damage to my own, and a minute and a half was my endurance point. 
 
@@ -230,7 +234,7 @@ Her eyes started drifting down once again, lips curling into a sympathy smile, a
 
 “You may think that,” Dr Oliver said. “It is normal to blame the unnatural on things like stress or not getting enough sleep. I have students coming in thinking they are disassociating when in reality, they are drinking heavily throughout the night and the alcohol is affecting them. However, what you are describing sounds like you have suppressed memories that have deeply affected your mental state,” her expression darkened. 
 
-“Your brain has shut down the possibility of trauma and is acting like nothing has happened. However, your body still feels it, and is still reacting to it even now.” Before I could protest, she leaned forward. “Iris, I’m going to ask you some questions—and some of them may trigger certain emotions and memories,” She studied me before retracting back in her chair. “If you would prefer for me to not proceed, I can make you another appointment and we can talk about it another time. However, I would suggest against that if this is affecting your daily life.”
+“Your brain has shut down the possibility of trauma and is acting like nothing has happened. However, your body still feels it, and is still reacting to it even now.” Before I could protest, she leaned forward. “Iris, I’m going to ask you some questions—and some of them may trigger certain emotions and memories,” She studied me before retracting back in her chair. “If you would prefer for me to not proceed, I can make you another appointment and we can talk about it another time. In this case, I would suggest against that if this is affecting your daily life.”
 
 I found myself nodding, swallowing sour bile creeping up my throat. “I’m okay,” I whispered. “I’m fine with answering questions.”
 
@@ -258,7 +262,7 @@ She smiled like she knew who that was before steering the subject back to delvin
 
 I had to think about that.
 
-“No,” I said before it hit me, my stomach lurching. It was like opening old wounds, my body going through a visceral reaction. 
+“No,” I said, before it hit me, my stomach lurching. It was like opening old wounds, my body going through a visceral reaction. 
 
 I did take another class. 
 
@@ -276,7 +280,7 @@ Strangely, I could.
 
 “It was a class that… taught us to open our minds,” I said, the words drawn from my lips before I could swallow them.
 
-I closed my eyes, and followed my own voice, deep into the recesses of my mind—just like Dr. Oliver told me. I was sitting in a brightly lit classroom—no, a lecture hall. There were seven or eight of us, but their faces were lost in shadow. I only saw shapes, shadowy silhouettes sitting around me. In my hand was a small plastic cup filled with an odd pink mixture filled to the brim.
+I closed my eyes, and followed my own voice, deep into the recesses of my mind—just like Dr. Oliver told me. I was sitting in a brightly lit classroom—no, a lecture hall. There were seven or eight of us, but their faces were lost in shadow. I only saw shapes, shadowy silhouettes sitting around me. In my hand was a small plastic cup with an odd pink mixture filled to the brim.
 
 “In front of you is a cocktail that will allow you to delve inside your own subconscious brain,” The voice in front of me was a woman with hair like liquid gold, a mesmerising smile I felt drawn to. 
 
@@ -516,13 +520,15 @@ Answering gunshots, however, made him jump up, his eyes widening. “Fuck.” He
 
 "Just get down!" 
 
-I didn’t understand what he meant, until something seemed to snap inside my head, and my perception shifted, thd barrier inside my mind crumbling. I was aware of the guy lurching toward the shutters and pulling them down. 
+I didn’t understand what he meant, until something seemed to snap inside my head, and my perception shifted, the barrier inside my mind crumbling. I was aware of the guy lurching toward the shutters and pulling them down. 
 
-When freezing cold air slammed into me, I didn’t feel it.
+When cutting night air slammed into me, I didn’t feel it.
 
 There was a sleek black car in pursuit of us. Green Hoodie was struggling to stay upright, throwing his arms out, his panicked yelling to the others in the front clanging in my head.
 
 "Drive slower! I can't reach–" The van door swung outwards with him still clinging on. 
+
+"--It!" 
 
 But I could barely register his yells, or the people who were after us. 
 
