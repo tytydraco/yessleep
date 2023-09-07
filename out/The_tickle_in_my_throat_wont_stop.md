@@ -49,3 +49,5 @@ I passed out after that, feeling nothing, thinking nothing and seeing nothing.
 
 I woke up, yawning and stretching, I felt my warm covers and the bit of fluffy pressure next to me, I wondered what I'd do today, and as I looked around, I saw the beaming sunlight coming through the cracks of my curtains. I look at the green numbers; *8:57am;* I smile until it faded away again, I reached up and checked my throat, nothing wet, no holes of where the spider had exited and more importantly, *no tickle in my throat.* I sighed in relief as I sat up, Midnight meowed, showing me that she was hungry, I chuckled and sat up in bed.  
 I looked around and smiled wider, and after over a week of agony... *peace.*
+
+**(REPOST)**
