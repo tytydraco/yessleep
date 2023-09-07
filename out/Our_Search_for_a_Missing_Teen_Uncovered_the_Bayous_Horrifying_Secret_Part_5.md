@@ -16,7 +16,7 @@ Several factors pointed towards Lupin being a native of the region, perhaps even
 
 His methods had always been sophisticated, hinting at an intimate knowledge of human anatomy. His proficiency in dispatching his victims was almost surgical. The manner in which he eluded capture showcased a mind that reveled in the macabre, tormenting his victims and their families long after their deaths. This was not just about killing; it was a game, one he enjoyed immensely.
 
-Not only did he have a way of making the murders look accidental or like suicides, but he also seemed to have a clear preference for victims—young brunette women of Cajun descent.
+Not only did he have a way of making the murders look accidental or like suicides, but he also seemed to have a clear preference for victims—young brunettes of Cajun descent.
 
 He was intelligent and adept in both physical pursuits and intellectual challenges. The nature of the crimes suggested a familiarity with medicine. Piecing this together with the fact that most of his victims were pregnant teens led me to a chilling hypothesis: Lupin was luring these girls under the guise of providing medical aid, most likely abortions, only to turn their desperate circumstances into a twisted game.
 
