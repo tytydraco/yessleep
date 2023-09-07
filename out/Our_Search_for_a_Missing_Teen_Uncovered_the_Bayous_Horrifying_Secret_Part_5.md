@@ -144,7 +144,7 @@ My thoughts were a jumble of fear and revulsion as I lay helplessly beneath Lupi
 
 “J'aime une belle brune,” (I love a beautiful brunette,) He whispered disgustingly into my ear.
 
-I was suddenly aware of his hands tearing at my clothing, his rasping claws stripping me bare, groping my belly. In his haste, his claws pricked my skin, sending ripples of pain coursing through me. He seemed to be savoring every moment. The knowledge that this creature meant to do me harm—to corrupt and take pleasure in my suffering before inevitably snuffing out my life—filled me to the brim with an all-consuming rage.
+I was suddenly aware of his hands tearing at my clothing, his rasping claws stripping me bare, groping my body. In his haste, his claws pricked my skin, sending ripples of pain coursing through me. He seemed to be savoring every moment. The knowledge that this creature meant to do me harm—to corrupt and take pleasure in my suffering before inevitably snuffing out my life—filled me to the brim with an all-consuming rage.
 
 With every muscle in my body tensed, my fingers scrabbled across the ground, desperately seeking something—anything—that could turn the tide of this nightmare. Then I felt it—the cylindrical shape of the flashbang grenade still attached to my shredded tactical vest. For a moment, time seemed to freeze. My dislocated shoulder screamed in agony as I stretched my arm to its limits to grasp the flashbang.
 

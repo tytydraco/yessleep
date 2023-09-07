@@ -72,7 +72,7 @@ A few minutes later, after making sure I wouldn't be seen, I followed.
 
 It was darker down here. The emergency lights were off, and the only brightness flowed from the end of a long hall that had been partially excavated out of rock. Making my way through the hall, I noticed that the rough walls were covered in smears of blood. Handprints. Stickiness.
 
-I considered turning back, but I heard a scraping somewhere in the dying light behind me, and the fear of being found drove me forward even as the intensity of the oncoming light increased, and I approached the end of the hall, which ended in a vast underground chamber in the middle of which the Aztec, the boss and several guards stood at the rim of a large crater-like opening in the earth.
+I considered turning back, but I heard a scraping somewhere in the dying light behind me, and the fear of being found drove me forward even as the intensity of the oncoming light increased, and I approached the end of the hall, which culminated in a vast underground chamber in the middle of which the Aztec, the boss and several guards stood at the rim of a large crater-like opening in the earth.
 
 The Aztec had raised his arms.
 
@@ -112,7 +112,7 @@ The Aztec disappeared—chanting.
 
 The boss had taken off with the remaining guards, heading for the tunnel down which the cement trucks had gone.
 
-As for me, I hugged the side of cavernous fucking hall, not caring about the blood falling down the sides. Not caring that the hall itself was becoming softer and warmer. Not noticing that everything was beginning to pulse—light from no source, to flicker: on and off, on and off…
+As for me, I hugged the side of the cavernous fucking hall, not caring about the blood falling down the sides. Not caring that the hall itself was becoming softer and warmer. Not noticing that everything was beginning to pulse—light from no source, to flicker: on and off, on and off…
 
 Mictlantecuhtli irrupted out of the opening, landing with a sickening splash just behind the fleeing boss and guards.
 
