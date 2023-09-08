@@ -126,6 +126,13 @@ I shook my head, grasping for words. “I’m – I’m sorry, but I’ve got no
 
 “Is that so?” the second cop asked, leaning closer still. “If that’s the case, how come the only words he’s spoken since the attack were [your name](https://www.facebook.com/P-F-McGrail-181784199029462/)?”
 
+-----
+
+[Well that went poorly](https://redd.it/16d9kug)
+
+
+-----------
+
 [BD](https://www.reddit.com/r/ByfelsDisciple/)
 
 
