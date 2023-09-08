@@ -1,5 +1,3 @@
-[Part 1.](https://www.reddit.com/r/nosleep/comments/165f6ho/the_pigs_among_us/)
-
 I couldn’t tell what was going on. Around me lay a sprawling landscape of hundreds of lifeless bodies, stretching as far as the eye could see. Their faces grotesquely contorted beyond recognition, with empty, soulless voids where their eyes once were. Their limbs appeared twisted and mangled, painting a grim portrait of a world gone horribly wrong.
 
 As I gazed up at the sky, a chilling eclipse was in progress, casting an eerie darkness over the macabre scene. The oppressive silence was only broken by the haunting sobs of someone kneeling beside me. My heart ached for that person, overwhelmed with an intense desire that they wouldn't endure the weight of this harrowing ordeal in solitude.
@@ -306,4 +304,6 @@ I suddenly felt a wave of seething energy fill my body, and as I raised the pist
 
 Everything faded to black, and I sent a desperate plea to anyone or anything that would listen: Take me back dammit. Let this work as it did before. When I suddenly opened my eyes to a familiar voice.
 
-“This is so boring! Can't I just break something? Maybe that will lure it out.”
+“This is so boring! Can't I just break something? Maybe that will lure [it](https://www.reddit.com/r/nosleep/comments/16dj1zm/the_pigs_among_us_eternal_consequences/) out.”
+
+[Part 1.](https://www.reddit.com/r/nosleep/comments/165f6ho/the_pigs_among_us/)
