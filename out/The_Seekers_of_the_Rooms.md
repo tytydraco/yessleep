@@ -8,7 +8,7 @@ He led me through to a narrow tunnel where people were laying in various stages 
 
 I gave him something of a smile and thanked him before moving past to the door at the end of the hall and opened it. 
 
-The rusted door shrieked in protest as I opened it. The room was oddly well lit with tube lights overhead, flickering in a hypnotic pattern. The floor was covered in faded yellow carpet, the walls had faded and stained wallpaper of a similar color to the carpet. Against the opposite wall was another door with a lit exit sign over it. 
+The rusted door shrieked in protest as I opened it. The room was oddly well lit with tube lights overhead, flickering in a hypnotic pattern. The floor was covered in yellow short carpet, the walls had faded and stained wallpaper of a similar color to the carpet. Against the opposite wall was another door with a lit exit sign over it. 
 
 Sitting on the floor was a slim, filthy man with wild hair who looked like he was in the middle of prayer. I was about to back away when he looked up at me, wild green eyes staring. 
 
@@ -67,5 +67,3 @@ I squinted at it, struggling to make sense of it. “Why? Why did she want it?�
 “I don’t understand. If you’d found the room, wouldn’t you be in there?”
 
 “I hadn’t found the room again. But I found where it once was. There’s residue there, of sort. She wanted to see it.” He looked up at me. “She went alone but if you want, I can take you and show you what I mean.”
-
-To be continued.
