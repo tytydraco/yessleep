@@ -1,4 +1,4 @@
-Hello, darlings (and darklings) from your favorite Vampire, Helena the Clown. I promised you new stories last time I posted, so let's get going, shall we? (Fort part 1, in [here](https://www.reddit.com/r/nosleep/comments/168t716/their_eyes_get_blurry_at_first_part_1/) .)
+Hello, darlings (and darklings) from your favorite Vampire, Helena the Clown. I promised you new stories last time I posted, so let's get going, shall we? (Check [Part 1](https://www.reddit.com/r/nosleep/comments/168t716/their_eyes_get_blurry_at_first_part_1/) .)
 
 &#x200B;
 
@@ -254,4 +254,4 @@ There were not any permanent injuries, except for burn marks at the temples. I w
 
 &#x200B;
 
-This concludes the second story of Odette. I have another one for you, soon.
+This concludes the second story of Odette. I have another one for you, soon. Update: [Part 3](https://www.reddit.com/r/nosleep/comments/16d4c96/their_eyes_get_blurry_at_first_part_3/)
