@@ -127,4 +127,6 @@ A half beat of silence. Then, another voice. This one soft, hazy, almost inaudib
 
 The Stick Man. That was the entity the dogman had mentioned-- the being it said had likely killed my father, and was going to kill Harriet. "You!" I shouted, splashing toward the lighthouse wildly. "What are you doing here?"
 
-"I'm here for the same reason you are," it said. "I'm here to kill your [sister."](https://www.reddit.com/r/TalesFromTheCryptid)
+"I'm here for the same reason you are," it said. "I'm here to kill your [sister."](https://www.reddit.com/r/nosleep/comments/16dmjkk/i_inherited_a_lighthouse_in_the_woods_theres_a/)
+
+[X](https://www.reddit.com/r/TalesFromTheCryptid)
