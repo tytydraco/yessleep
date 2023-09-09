@@ -90,7 +90,7 @@ I was also wearing a formal polish black suit, with a sunflower in my breast poc
 
 Then, there was *this* vision. Before me was her own husband opening a portal from the ceiling. The bright heavenly portal shines on him like curtains of god. My sister lay on the ground with the expression of fear. "Iris?!" Her husband turned to face me with the look of excitement. "Oh! Hey there kid. Don't worry about us, we were just busy on something." He said with a wicked smile on his face.
 
-I turned my head to see Iris looking at me with defeat. I looked back at her husband, to find him holding some sort of dagger. His arm is carved with some sort of sigil as blood drips down to his fingers. "What did you do to her?!" I nearly yelled at the top of my lungs. "Huh. Oh, I just had to give sense to her. Just that she uh...." At the corner of my eye, I saw Iris holding something bright in her hand. No, I wasn't an object. It was..."She's stressed. That's why she-" Iris leapt at him, cutting his sentence. In just a quick motion, she grabbed his face with hooked fingers. It was some sort of bright light that glowed on her palms. His scream was muffled, mixed with sizzling light as her palm burned his face.
+I turned my head to see Iris looking at me with defeat. I looked back at her husband, to find him holding some sort of dagger. His arm is carved with some sort of sigil as blood drips down to his fingers. "What did you do to her?!" I nearly yelled at the top of my lungs. "Huh. Oh, I just had to give sense to her. Just that she uh...." At the corner of my eye, I saw Iris holding something bright in her hand. No, It wasn't an object. It was..."She's stressed. That's why she-" Iris leapt at him, cutting his sentence. In just a quick motion, she grabbed his face with hooked fingers. It was some sort of bright light that glowed on her palms. His scream was muffled, mixed with sizzling light as her palm burned his face.
 
 I was still frozen in place when his whole body fell limply to the ground. His face was burnt to a fucking crisp, but instead of a human proportion, it was something alien. The muscles of his face are hollow like the depths of Sheol. My stomach churned as I tried to speak. "Iris! What.... What..."
 
@@ -125,5 +125,3 @@ My cold dead eyes. I'm dead this whole entire time.
 &#x200B;
 
 Part 2
-
-&#x200B;

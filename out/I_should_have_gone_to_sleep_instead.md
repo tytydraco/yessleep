@@ -69,3 +69,5 @@ I could hear the two men shouting at me, I’m not sure what they were saying. T
 I’m not worried about predators. It’s the early 2000’s, bears aren’t around here and neither are mountain lions. I fear only the two souls crashing through the field behind me. 
 
 Part 2 is coming! I should have it up sometime tomorrow. This encounter still haunts me almost 20 years later
+
+EDIT: something came up and I’m sorry I didn’t get part 2 out yet. Give me a couple of days to get my life in order. Thanks for the upvotes!

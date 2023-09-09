@@ -189,3 +189,7 @@ The corpses emerging from the church split off in groups, going in different dir
 Freddy climbed out, grumbling and wiping himself off. Betty gave him the cop’s mace canister, and I started walking towards the source of the eerie, black light, hoping to find answers.
 
 Though this happened three months ago, I still question my decision that day. For that was the moment when I sealed our fates. The moment I set my mind towards walking towards the Black Sun, I ensured we would see Hell itself.
+
+
+Part 3
+https://www.reddit.com/r/nosleep/comments/16e4l1k/we_found_a_town_abandoned_in_the_mountains/
