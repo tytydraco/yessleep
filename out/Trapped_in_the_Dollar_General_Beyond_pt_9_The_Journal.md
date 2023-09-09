@@ -148,3 +148,5 @@ I don’t know what to do, but as I sit here writing this, I feel my eyes gettin
 It's been a long…well not Day but it's been long enough.
 
 I’ll update soon.
+
+pt 10- https://www.reddit.com/r/nosleep/comments/16dr7a4/trapped_in_the_dollar_general_beyond_pt_10/?utm_source=share&utm_medium=web2x&context=3
