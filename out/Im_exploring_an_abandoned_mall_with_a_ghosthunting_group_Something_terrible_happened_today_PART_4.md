@@ -1,4 +1,4 @@
-Twenty two days. We were doing relatively well. We were collecting a bunch of food from abandoned Targets and even a few meat markets, although the latter's pretty risky.
+[Twenty two days.](https://www.reddit.com/r/nosleep/comments/160akeo/im_exploring_an_abandoned_mall_with_a/) We were doing relatively well. We were collecting a bunch of food from abandoned Targets and even a few meat markets, although the latter's pretty risky.
 
 **SAM:** Oh, there's a meat market in here.
 

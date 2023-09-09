@@ -328,4 +328,4 @@ That was the last rule in the rulebook.
 
 &#x200B;
 
-So many questions and so little answers. Why did Tom leave the notebook there? What happened to him? How did he go insane and then go back to being normal again? Why doesn't he want us to save the man with the blue rose tattoo? How did he get out? And more importantly, how will we survive here without any food left?
+So many questions and so little answers. Why did Tom leave the notebook there? What happened to him? How did he go insane and then go back to being normal again? Why doesn't he want us to save the man with the blue rose tattoo? How did he get out? And more importantly, [how will we survive here without any food left?](https://www.reddit.com/r/nosleep/comments/16ebnot/im_exploring_an_abandoned_mall_with_a/)
