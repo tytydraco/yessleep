@@ -229,3 +229,7 @@ The Duke felt like knowing something, he refused to talk, pretending to know not
 &#x200B;
 
 Odette went silent and gave one final sigh, lost in her memories. At least she appeared to be disconnected from her fear of the present. There is more she told me, but that is a story for another day.
+
+&#x200B;
+
+Update: [Part 2](https://www.reddit.com/r/nosleep/comments/16aghl4/their_eyes_get_blurry_at_first_part_2/)
