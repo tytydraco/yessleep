@@ -46,7 +46,7 @@ The sensations, the feelin’s- it was all far, far too real. The scratchy rug u
 
 I stared up at the thing, and it looked down at me with its rolling storm cloud face and gapin’ white eyes. Then it started movin’.
 
-It floated down the stairs, into the living room, all the way up to the front door. As it - **WE** - passed *through* the door, and I felt the warm summer sun wash over me, that’s where the panic re-emerged. I started askin’ the thing where it was takin’ me, pleadin’ with it. It didn’t say nothin’. Got as far as the front lawn before I’d had enough. Did the only thing I could think of. 
+It floated down the stairs, into the living room, all the way up to the front door. As it - **WE** - passed *through* the door, and I felt the warm summer sun wash over me, that’s where the panic re-emerged. I started wonderin’ where the thing was takin’ me, glancing’ back and forth between its shiftin’ face and the road ahead. Whole time, it didn’t say nothin’. Got as far as the front lawn before I’d had enough. Did the only thing I could think of. 
 
 I closed my eyes real tight, real hard, and opened ‘em. 
 
