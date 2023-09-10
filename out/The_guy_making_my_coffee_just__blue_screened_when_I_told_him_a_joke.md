@@ -38,7 +38,7 @@ The way he moved was clumsy, like he was drunk.
 
 "I shouldn't be here." his trembling hands went to his apron, trying and failing to tug it off. 
 
-"Fuck!" His trembling hands struggled with the knot 
+"Fuck!" The boy's fingers struggled with the knot. 
 
 "I… I shouldn't be here." He staggered back, his hand tearing at his hair, muttering the same thing over and over again. I asked what he meant, and the guy, Taz, from his name tag, looked me directly in the eye. 
 
@@ -50,7 +50,7 @@ His words were tightening my chest.
 
 "I'm dead!" He hissed out, like I was stupid. 
 
-"I was in a car wreck with my friends last month.   I was in the back, and everything went dark. I was planning on quitting this stupid job, but I died before I could." His slightly hysterical eyes found mine. "Can you help me?" Taz whimpered, his eyes lighting up. "It's got to be 2009 at least, right? It feels like at least a year has gone by. They should let me go now." His lips formed a smile smile. "I can join mom."
+"I was in a car wreck with my friends last month.   I was in the back, and everything went dark. I was planning on quitting this stupid job, but I died before I could." His slightly hysterical eyes found mine. "Can you help me?" Taz whimpered, his eyes lighting up. "It's got to be 2009 at least, right? It feels like at least a year has gone by. They should let me go now." His lips quirked. "I can join mom."
 
 "Taz." a voice from the back growled, and the boy stiffened up. "Get back to work." 
 
@@ -60,11 +60,13 @@ His words were tightening my chest.
 
 Taz didn't reply. I caught his hand creeping across the counter, fingers wrapping around a splinter of broken coffee cup. I knew what he was going to do. 
 
-I could sense it in the way the tendons in his wrists convulsed. He was going to slit his throat right in front of me. I watched him bring the splintered piece up to the flesh of his neck, and purposely stabbing it in. Not enough to draw blood, but enough to force him to continue. The blade kept going, and I found myself paralysed. With no other customers, it was just me watching this. I waited for him to slice open his neck, and finally end it. But the guy wasn't moving, his fingers wrapped around the blade. 
+I could sense it in the way the tendons in his wrists convulsed. He was going to slit his throat right in front of me. I watched him bring the splintered piece up to the flesh of his neck, and purposely stabbing it in. Not enough to draw blood, but enough to force himself to continue. The blade kept going, and I found myself paralysed. With no other customers, it was just me watching this. I waited for him to slice open his neck, and finally end it. But the guy wasn't moving, his fingers cinched around the blade. 
 
-When it sliced through his skin, reddish black globules pooled down his fingers. "I said," The voice said in a grumble, and Taz's body jolted once again. Blood ran from his nose in a reddish paste, the stitches in his head springing apart. This was not blood--or it was, but this was ancient. This was supposed to come from a fucking corpse. The blade slipped from his fingers, and he straightened up, like his puppet strings were being violently tugged. 
+When it sliced through his skin, reddish black globules pooled down his fingers, sliding in thick rivulets, almost like jelly. 
 
-The boss scoffed, and I saw the last slithers of desperation fade from the boy's eyes, replaced with an almost inhuman like glitter. "Get back to work, Taz. I don't pay you to stand around talking."
+"I said," The voice said in a grumble, and Taz's body jolted once again. Blood ran from his nose in a reddish paste, the stitches in his head springing apart, his whole body seeming to fall apart. I could see that his eyes weren't fully lodged into his skull, skin paper thin. 
+
+This was not blood I was seeing--or it was, but it was ancient. This was supposed to come from a fucking corpse. The blade slipped from his fingers, and he straightened up, like his puppet strings were being violently tugged. The boss scoffed, and I saw the last slithers of desperation fade from the boy's eyes, replaced with an almost inhuman like glitter. "Get back to work, Taz. I don't pay you to stand around talking."
 
 Taz looked confused for a moment, before he responded in a breath. "Yes." 
 
@@ -82,11 +84,13 @@ I stepped back and turned away from him. And I kept walking until I was out of t
 
 This time, a smiling brunette. 
 
-When her eyes caught mine, she inclined her head, the sound of her neck snapping, sending shivers down my spine. "Are you okay there?" She spoke to me directly and I nodded shakily. When she turned around, I saw the bullet wound in her head, a cavernous hole that looked too fresh, like it was recent. I glimpsed splinters of bone sticking to her hair like cats teeth. I think she noticed, and shot me a smile, fixing her bright green hat over dark red curls. The boss came to the front, finally, a fifty something guy with a face full of wrinkles and too wide smile. 
+When her eyes caught mine, she inclined her head, the sound of her neck snapping, sending shivers down my spine. "Are you okay there?" She spoke to me directly and I nodded shakily. 
+
+When she turned around, I saw the bullet wound in her head, a cavernous hole that looked too fresh, like it was recent. I glimpsed splinters of bone sticking to her hair like cats teeth. I think she noticed, and shot me a smile, fixing her bright green hat over dark red curls. The boss came to the front, finally, a fifty something guy year old guy with a face full of wrinkles and too wide smile. 
 
 His sweat stained shirt told me everything I needed to know. 
 
-"Do you need anything else? Expect the best from our favorite employee! Since 2006!" The boss slapped Taz's shoulder, laughing heartily, and the boy didn't move. But I did see his head slightly dislodge from his neck, his body going limp once again. Taz's eyes briefly found me. But he didn't cry out for help, only smiling with his boss, joining in the fake laughing. 
+"Do you need anything else?" It's like he was challenging me to question the state of his workers. "Expect the best from our favorite employee! Since 2006!" The boss slapped Taz's shoulder, laughing heartily, and the boy didn't move. But I did see his head slightly dislodge from his neck, his body going limp once again. Taz's eyes briefly found me. But he didn't cry out for help, only smiling with his boss, joining in the fake laughing. 
 
 When another customer came in, he waved cheerily. 
 
