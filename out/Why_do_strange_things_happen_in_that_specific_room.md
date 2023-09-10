@@ -1,0 +1,21 @@
+Before I begin there are two things I need to make clear. Firstly, my mum ISN'T a superstitious person nor a believer of the paranormal, like me. Secondly, the house that these occurrences happened in, my nan's house, is no longer available to me because my nan passed away a few months ago and since then the house is now being inhabited by new residents.
+
+So me and my mum were talking about a podcast I'm listening to on Spotify right now. After I finished talking, she said that she wanted to tell me a story that she was actually surprised she hadn't told me until now. I listened and this is what she told me:
+
+This happened before I was born and my mum was still together with my dad. FYI, the nan in this situation is my nan on my dad's side. Anyway, at the peak of their relationship, dad would invite mum over to my nan's to sleep over. She's done this plenty of times so this night was no different than any other. They settled into bed and went to sleep. Mum said she didn't know why she woke up. She didn't need the toilet. She didn't need a glass of water. She just woke up. After a few seconds, she noticed something in the corner of her eye. She turned to look at it, sitting up in the bed, and what she saw was the large, black silhouette of a person standing at the foot of the bed, just staring at her. According to her, this person then spoke in a deep man's voice and said, "Who are you?"
+
+Mum then let out a surprised yelp that woke my dad up. He sat up too and asked mum what was wrong. She looked to dad for comfort and was just about to tell him what just happened when she noticed that the black silhouette was gone. Not wanting to worry my dad, mum said that she just had a nightmare and they went back to sleep. 
+
+Now, despite convincing my dad that she just had a nightmare and nothing else, mum told me that she KNEW that she was awake. She KNEW what she saw and she KNEW what she heard. Like I said at the beginning of this post, my mum isn't a superstitious person nor a believer in the paranormal so to hear a story like this from her both interested me and excited me. It doesn't end here though.
+
+This next part happened months after this night spooky experience happened to my mum. Apparently, she, my dad and my nan were just talking with a bunch of dad's work mates in a pub one summer's day when dad said something that got mum's attention that reminded her of that night. He said that as much as he loved growing up in my nan's old house, sleeping was a nightmare because between the ages of 5 - 10 my dad suffered from sleep paralysis every once in a while. What accompanied this experiences was him seeing the silhouette of a tall, dark man standing at the foot of his bed, just staring at him. Nan confirmed this to be true as well.
+
+This got my mum thinking. Stupidly (I said) mum didn't talk to dad or nan about her experience with the tall dark silhouetted man. But she DID recognise that there was a difference between my dad's many experiences seeing him and my mum's one experience seeing him. He talked to her. 
+
+Now, it's been two days since mum told me this story and what inspired me to write this post was something I thought of a few minutes ago and asked mum about. Like her, I went to sleep over at my nan's house A LOT when I was a kid. I remembered the first night I slept over there distinctly because of something that happened to ME. I got into bed and fell asleep. I woke up to a whisper in my ear, "I can see you..." 
+
+In fear, I bolted out of bed and woke up my nan, saying that I didn't want to go back in that room and that I wanted to sleep with her. Every sleepover after that, I slept with my nan in her bed and rarely even went in that room unless it was during the day and I wanted to get a toy from there. I just had a bad feeling and when I have a bad feeling, I trust my gut and avoid whatever it is that's bad. 
+
+My mum doesn't know what any of this means, I haven't asked my dad about this yet, I don't even know if I will, and I can't ask my nan about it. If any of you guys have any idea what happened and why it happened in that room specifically, I'm open to knowledge and advice on the matter.
+
+Thanks for reading.
