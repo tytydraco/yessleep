@@ -28,7 +28,8 @@ The entrance looked like a .JPEG of a door that was copy-pasted onto a smooth wa
 
 **CAM:** Not a good sign. Don't think we wanna trust this guy anymore, dudes.
 
-**HAILEY:** You know what? Fuck it.Hailey took a few steps forward and tried to open the door.
+**HAILEY:** You know what? Fuck it.
+Hailey took a few steps forward and tried to open the door.
 
 She stuck her hand out and it clipped through the door, just like Sam did through a cracked tile.
 
@@ -36,7 +37,9 @@ She stuck her hand out and it clipped through the door, just like Sam did throug
 
 **HAILEY:** We can't get out of here anyway, so who gives a shit?
 
-**SAM:** I guess you're right.Jack, Hailey, Sam, Avery and I decided to head into the meat market together.The inside of the market looked like an ordinary meat market, but something was clearly off.Everything looked oddly... flat and unnaturally smooth.Even the gaps between the floor tiles were fake.I felt like I was in a plastic dollhouse.
+**SAM:** I guess you're right.
+
+Jack, Hailey, Sam, Avery and I decided to head into the meat market together.The inside of the market looked like an ordinary meat market, but something was clearly off.Everything looked oddly... flat and unnaturally smooth.Even the gaps between the floor tiles were fake.I felt like I was in a plastic dollhouse.
 
 **SAM:** ...You know what? I changed my mind. I'm just gonna... go for a minute, if that's not an issue with anyo-
 
