@@ -50,7 +50,7 @@ It floated down the stairs, into the living room, all the way up to the front do
 
 I closed my eyes real tight, real hard, and opened ‘em. 
 
-In a snap, I was back in the hallway. Back outside the bathroom door and waitin’ for mama. I looked around frantically, touched the floor below me in fear. I looked down the hall, expecting to see that roiling mist man standin’ where he was, basked open and wantin’ to take me for another ride. All I saw down the long upstairs hallway was the door to the master bedroom at the very end. 
+In a snap, I was back in the hallway. Back outside the bathroom door and waitin’ for mama. I looked around frantically, touched the floor below me in fear. I looked down the hall, expecting to see that roiling mist man standin’ where he was, basket open and wantin’ to take me for another ride. All I saw down the long upstairs hallway was the door to the master bedroom at the very end. 
 
 The bathroom door swung open, and mama sauntered out, steadyin’ herself against the wall as she did so. She looked down at me, slurrin’ her words ever so slightly. “Good girrrl, letsh get some dinner.” I didn’t bother tellin’ her what’d happened. Mama wouldn’t wanna hear it. 
 
@@ -58,7 +58,7 @@ Daddy came home later that week and I was so enthralled I didn’t think about m
 
 A’course , daddy left again. Way he always did. And it was just me and her. 
 
-There I was, outside that bathroom door again, mama inside drinkin’ her brain cells away. I got bored and curious and I thought of my baker ride and wondered how far the mist man would carry me if I let him. 
+There I was, outside that bathroom door again, mama inside drinkin’ her brain cells away. I got bored and curious and I thought of my basket ride and wondered how far the mist man would carry me if I let him. 
 
 So I closed my eyes tight as possible, and that familiar feeling of a wave passed over me again. I was there, in the other place, and so was it. 
 
