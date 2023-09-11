@@ -1,3 +1,10 @@
+Hello, I am Detective Anderson with the unit of the unexplainable. Me and my unit were called in to investigate an occurrence of strange happenings around this one particular villiage. More specifically its that anyone who lives in this particular house always seem to die the same way. 
+
+I was taking a look over through the rooms trying to find anything odd or strange the police may have missed and I ended up finding this poorly scribbled letter just wedged under a desk. The letter read....:
+
+(Start of letter)
+Hello, my name is not important. I've been working hard to find the energy to write this letter and hope it finds its way to you. If you found this you have either moved in or you are in some kind of law enforcement. Please beleive me when I explain everything that's happened. Here's how it all went down.
+
 It had been such a long day at work, a 15 hour shift that had felt like 24. I was so tired, all I wanted to do was watch my TV and fall asleep to the back ground noise and so that's what I did.
 
 I flopped all my weight onto the sofa beneath me and grabbed at the remote, pressed the on button and closed my eyes.
@@ -47,3 +54,11 @@ The man huffed at me, clearly loosing patience and it made me panic, I scrambled
 Tears pricked at my eyes as the man reached into the inside pocket of his coat and pulled out a gun, I closed my eyes and was just relieved that I wouldn't have to feel any pain from this. 
 
 The man said in a hushed tone "Trevor, just eat" before he pulled the trigger. Since then I have been trapped in this house as a spirit. Forced to stare at the door the new renters still haven't seemed to notice, it's always open. Sometimes I think I can see a pair of red glowing eyes staring back.
+
+I've been working towards focusing my energy in order to manipulate things in your realm. 
+(End of letter)
+
+Ever since reading this letter I've been unable to sleep. Obviously it's hard to convince the others in my unit that this is the real deal, the reason we are a unit in the first place. Our head detective told me he'd think about investigating it further but his tone didn't make me feel hopeful.
+
+I'll do my best to keep you updated,
+Detective Anderson.
