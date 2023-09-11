@@ -148,4 +148,6 @@ A heavy dread settled in my gut. Was Gabby still alive, or had I just discovered
 
 [Part 5](https://www.reddit.com/r/nosleep/comments/16bfscv/our_search_for_a_missing_teen_uncovered_the/)
 
+[Part 6](https://www.reddit.com/r/nosleep/comments/16fmh6t/our_search_for_a_missing_teen_uncovered_the/)
+
 [X](https://www.reddit.com/r/PageTurner627Horror/)

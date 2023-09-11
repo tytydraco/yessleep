@@ -132,7 +132,7 @@ Ash moved like lightning, his shotgun roaring again, aiming for Lupin's head. "G
 
 Lupin swiveled, his attention drawn by the new threat. The beast lunged at Ash, the two colliding in a whirl of movement too quick to follow with my naked eyes. I heard Ash shout, a primal sound filled with rage and fear, as Lupin's claws found their mark.
 
-Ash screamed out, a sound of raw agony that pierced my soul. Lupin's claws sank deep into Ash's side, lifting him off the ground as if he were nothing more than a rag doll. With a snarl that echoed in the still night, the Lupin flung him. Ash's body arced through the air before crashing into the marsh with a sickening thud. 
+Ash screamed out, a sound of raw agony that pierced my soul. Lupin's claws sank deep into Ash's side, lifting him off the ground as if he were nothing more than a rag doll. With a snarl that echoed in the still night, the Lupin flung him. Ash's body arced through the air before crashing into the marsh with a sickening thud.
 
 Ash disappeared into the murky water, submerged in a tangle of reeds and shadows. No sound came; no bubbles broke the surface. The marsh seemed to claim him, leaving only ripples that faded into a haunting stillness.
 
@@ -163,5 +163,7 @@ The stun grenade detonated with a deafening roar, a supernova in the dark swamp.
 The world disintegrated into a swirling vortex of blinding light and sound, and then I felt myself sinking, sinking, sinking—into the abyss.
 
 Then everything went black.
+
+[Part 6](https://www.reddit.com/r/nosleep/comments/16fmh6t/our_search_for_a_missing_teen_uncovered_the/)
 
 [X](https://www.reddit.com/r/PageTurner627Horror/)
