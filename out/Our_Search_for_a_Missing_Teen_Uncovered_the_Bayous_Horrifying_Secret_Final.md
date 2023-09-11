@@ -120,7 +120,7 @@ Seizing the opportunity, I lunged forward, plunging the shard of glass into Lupi
 
 "Run, Gabby, run!" I yelled, grabbing her hand and making a break for it.
 
-As my fingers wrapped around Gabby's wrist, I yanked open the creaking door and burst into the shadowy bayou beyond. Branches snapped under our frantic footsteps as we plunged deeper into the swamp, each desperate stride propelled by pure adrenaline. My lungs burned, and the throbbing pain from my injuries was now a far-off drumbeat compared to the pounding of my heart.
+I yanked open the creaking door and burst into the shadowy bayou beyond. Branches snapped under our frantic footsteps as we plunged deeper into the swamp, each desperate stride propelled by pure adrenaline. My lungs burned, and the throbbing pain from my injuries was now a far-off drumbeat compared to the pounding of my heart.
 
 "Come on, keep going!" I shouted, more to encourage myself than her. Behind us, a guttural roar shattered the quiet of the night—Lupin was giving chase. And he was fast. Unnaturally fast. The sound of pounding paws and the splashing of water grew steadily closer.
 
