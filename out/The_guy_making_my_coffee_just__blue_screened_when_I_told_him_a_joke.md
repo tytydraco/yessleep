@@ -42,7 +42,9 @@ The way he moved was clumsy, like he was drunk.
 
 "I… I shouldn't be here." He staggered back, his hand tearing at his hair, muttering the same thing over and over again. I asked what he meant, and the guy, Taz, from his name tag, looked me directly in the eye. 
 
-"I died last month," He hissed out in a whine, and shivers slowly crept their way down my spine when I noticed the ugly rugged stitches clumsily holding his brain inside his skull. "It was a car crash. I was brain dead, and then I was talking to mom. She died when I was a baby, and I thought I'd made it to her." I caught frustrated tears in his eyes. "But my contract doesn't end until 2009, so I think..." his expression twisted, and he ran hand through his hair, pulling off his cap. "I think they're keeping me here until it finishes." Taz groaned. "I knew their policy was fucked up, but this is a whole other level..."
+"I died last month," He hissed out in a whine, and shivers slowly crept their way down my spine when I noticed the ugly rugged stitches clumsily holding his brain inside his skull. "It was a car crash. I was brain dead, and then I was talking to mom. She died when I was a baby, and I thought I'd made it to her." I caught frustrated tears in his eyes. "But my contract doesn't end until 2009, so I think..." his expression twisted, and he ran a hand through his hair, pulling off his cap. "I think they're keeping me here until it finishes." 
+
+Taz groaned. "I knew their policy was fucked up, but this is a whole other level..."
 
 His words were tightening my chest. 
 
@@ -50,7 +52,9 @@ His words were tightening my chest.
 
 "I'm dead!" He hissed out, like I was stupid. 
 
-"I was in a car wreck with my friends last month.   I was in the back, and everything went dark. I was planning on quitting this stupid job, but I died before I could." His slightly hysterical eyes found mine. "Can you help me?" Taz whimpered, his eyes lighting up. "It's got to be 2009 at least, right? It feels like at least a year has gone by. They should let me go now." His lips quirked. "I can join mom."
+"I was in a car wreck with my friends last month.   I was in the back, and everything went dark. I was planning on quitting this stupid job, but I died before I could." His slightly hysterical eyes found mine. "Can you help me?" Taz whimpered, his eyes lighting up. "It's got to be 2009 at least, right? It feels like at least a year has gone by. They should let me go now." 
+
+His lips quirked. "I can join mom."
 
 "Taz." a voice from the back growled, and the boy stiffened up. "Get back to work." 
 
@@ -86,13 +90,13 @@ This time, a smiling brunette.
 
 When her eyes caught mine, she inclined her head, the sound of her neck snapping, sending shivers down my spine. "Are you okay there?" She spoke to me directly and I nodded shakily. 
 
-When she turned around, I saw the bullet wound in her head, a cavernous hole that looked too fresh, like it was recent. I glimpsed splinters of bone sticking to her hair like cats teeth. I think she noticed, and shot me a smile, fixing her bright green hat over dark red curls. The boss came to the front, finally, a fifty something guy year old guy with a face full of wrinkles and too wide smile. 
+When she turned around, I saw the bullet wound in her head, a cavernous hole that looked too fresh, like it was recent. I glimpsed splinters of bone sticking to her hair like cats teeth. I think she noticed, and shot me a smile, fixing her bright green hat over dark red curls. The boss came to the front, finally, a fifty something year old guy with a face full of wrinkles and too wide smile. His sweat stained shirt told me everything I needed to know. 
 
-His sweat stained shirt told me everything I needed to know. 
+"Do you need anything else?" It's like he was challenging me to question the state of his workers. 
 
-"Do you need anything else?" It's like he was challenging me to question the state of his workers. "Expect the best from our favorite employee! Since 2006!" The boss slapped Taz's shoulder, laughing heartily, and the boy didn't move. But I did see his head slightly dislodge from his neck, his body going limp once again. Taz's eyes briefly found me. But he didn't cry out for help, only smiling with his boss, joining in the fake laughing. 
+"Expect the best from our favorite employee! Since 2006!" 
 
-When another customer came in, he waved cheerily. 
+The boss slapped Taz's shoulder, laughing heartily, and the boy didn't move. But I did see his head slightly dislodge from his neck, his body going limp once again. Taz's eyes briefly found me. But he didn't cry out for help, only smiling with his boss, joining in the fake laughing. When another customer came in, he waved cheerily. 
 
 "Welcome!" 
 
