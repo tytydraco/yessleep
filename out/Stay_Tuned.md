@@ -2,13 +2,13 @@ I had been driving for hours. Only trees and the road accented with the occasion
 
 It was raining heavily and was nearly noon. I knew I had to stop somewhere for gas eventually. I had been keeping an eye out for a road sign but there hadn't been one. The winding road was lulling me. I needed to stay focused.
 
-I tried scanning the radio. No luck. Only weak signals playing 70s rock and 'adult contemporary' (whatever that meant). I switched to AM. At first there was nothing but talk radio. One covering the mundane topics of a small town. "Who was running for town council" "The farmers market" "The fifth annual dog walker parade" I changed channels. "Hi, thanks for calling Confessions with Clarice, you're on the air". I turned it again immediately.
+I tried scanning the radio. No luck. Only weak signals playing 70s rock and 'adult contemporary' (whatever that meant). I switched to AM. At first there was nothing but talk shows. One covering the mundane topics of a small town. "Who was running for town council" "The farmers market" "The fifth annual dog walker parade" I changed channels. "Hi, thanks for calling Confessions with Clarice, you're on the air". I turned it again immediately.
 
 Then I heard it, something had caught my ear. A static fluttering with the occasional high pitched blip. I listened closely, perplexed. Was it a signal of some sort? It lasted only about twenty seconds. Then I heard the sound of a record being set and the unmistakable grit of vinyl. The quality was poor, it must have been an antique recording. Simply the wavering twang of an acoustic guitar and the hiss of white noise. The vocals started.
 
 "Oh come around old Bessie, but you don't leave poor old me, oh come around old Bessie, why don't you leave me be?".
 
-The music stopped suddenly and the static fluttering started again. It was on a loop. The voice was strained and melancholic. "What the..." I said aloud. Why would somebody put such a strange song on a loop? Something about it was just unsettling. Admittedly, I was being unreasonable. It was only an old time song. But what was it? An art piece? A code? Did the locals know? I would have to ask when I got into town.
+The music stopped suddenly and the static fluttering started again. It was on a loop. The voice was strained and melancholic. "What the..." I said aloud. Why would somebody put such a strange song on a loop? Something about it was just unsettling. Admittedly, I was being unreasonable. It was only an old time song. But what was it? A code? Did the locals know? I would have to ask when I got into town.
 
 I switched it off. 'Fine. I don't need to listen to anything'. While still unnerved about the strange song, a gas station appear as I rounded the corner. I slowed and turned off the roadway. The place was nestled into the thick of the surrounding woods. There hadn't been a sign. The place looked in order for the most part. I parked in the stall, filled up, and made my way to the front.
 
@@ -28,7 +28,7 @@ The room was in disrepair but I had seen worse. The faucet was leaking and there
 
 Still nobody.
 
-I approached the counter, then I head it. Like air escaping balloon. A shrill, high pitched squeal. It was coming from the other side of the counter. It continued but more faintly. I slowly made my way around the counter. Newspapers were in piles on the floor.
+As I approached the counter, there was an odd sound. Like air escaping balloon. A shrill, high pitched squeal. It was coming from the other side of the counter. It continued but more faintly. I slowly made my way around the counter. Newspapers were in piles on the floor.
 
 October 1998 "Local man dies in rock climbing accident, authorities say no foul play suspected"
 
@@ -90,7 +90,7 @@ He looked at me confused. "It was on AM radio, 91 something?"
 
 "I think it was 91.3? I don't know" He scrolled to 91.3.
 
-K-shhhh.... Nothing. Had it stopped?
+'Kshhhh' it hissed.... Nothing. Had it stopped?
 
 The hairs on my neck stood up. What was going on? This entire situation was off.
 
@@ -172,7 +172,7 @@ The cabin had cedar plank siding and red aluminum roofing. It looked somewhat mo
 
 I lit the gas burner and coated the dutch oven with olive oil. I seared the lamb while I chopped the aromatics and then added them to the pan. To be honest, the music wasn't bad, cheesy sure, but not bad. I poured myself a glass of wine. I didn't usually drink but it seemed appropriate. The kitchen had a lovely aroma, and I had a slight buzz from the wine. The stress from early had completely evaporated.
 
-At least, that as until it happened again... 
+At least, that was until it happened again... 
 
 It was only an hour or so after I settled in. The radio. I heard it again, that unmistakable flicker. It cut off the of the dreamy warmth of the 80s piano and replaced it with what now seemed like nails on a chalkboard. I cringed. My entire body seized for a moment. 'What. The. Fuck' I said aloud...I slowly walked over to the radio still chattering static clicks and pops. I turned the dial... nothing. Every channel was dead; it just kept playing the static.
 
