@@ -10,7 +10,9 @@
 
 **SOPHIA:** I've played enough horror games to know that THAT is not a good place to be. Not like this place is either, but you get the point.
 
-**CAM:** Yeah, man. That shit looks like an unloaded area in a PS2 game. Hell no.He was right. It *did* look like an unloaded area.
+**CAM:** Yeah, man. That shit looks like an unloaded area in a PS2 game. Hell no.
+
+He was right. It *did* look like an unloaded area.
 
 The entrance looked like a .JPEG of a door that was copy-pasted onto a smooth wall. It looked sketchy as hell, but we were desperate.
 
@@ -20,15 +22,18 @@ The entrance looked like a .JPEG of a door that was copy-pasted onto a smooth wa
 
 **JACK:** Frankly, I'm sick of it, Sophie. Feels like I'm gonna vomit if I eat another bowl of it.
 
-**DAN:** I get what you mean, Jack. I wanna say "Feels like I'm in the receipt pit all over again, am I right? Hahaha!" but I have this little thing called self-preservation and it \*really\* doesn't want me to go on a suicide mission for raw steak, you get me?
+**DAN:** I get what you mean, Jack. I wanna say "Feels like I'm in the receipt pit all over again, am I right? Hahaha!" but I have this little thing called self-preservation and it really doesn't want me to go on a suicide mission for raw steak, you get me?
 
-**JACK:** Yeah, I got it. I'm still cravin' a steak though. We have a buncha A1 sauce too.We recieved a text message.
+**JACK:** Yeah, I got it. I'm still cravin' a steak though. We have a buncha A1 sauce too.
+
+We recieved a text message.
 
 "*Do it, it's worth it. ;)*"
 
 **CAM:** Not a good sign. Don't think we wanna trust this guy anymore, dudes.
 
 **HAILEY:** You know what? Fuck it.
+
 Hailey took a few steps forward and tried to open the door.
 
 She stuck her hand out and it clipped through the door, just like Sam did through a cracked tile.
@@ -39,7 +44,13 @@ She stuck her hand out and it clipped through the door, just like Sam did throug
 
 **SAM:** I guess you're right.
 
-Jack, Hailey, Sam, Avery and I decided to head into the meat market together.The inside of the market looked like an ordinary meat market, but something was clearly off.Everything looked oddly... flat and unnaturally smooth.Even the gaps between the floor tiles were fake.I felt like I was in a plastic dollhouse.
+Jack, Hailey, Sam, Avery and I decided to head into the meat market together.
+
+The inside of the market looked like an ordinary meat market, but something was clearly off.
+
+Everything looked oddly... flat and unnaturally smooth.
+
+Even the gaps between the floor tiles were fake.I felt like I was in a plastic dollhouse.
 
 **SAM:** ...You know what? I changed my mind. I'm just gonna... go for a minute, if that's not an issue with anyo-
 
@@ -55,7 +66,11 @@ I heard Dan mumbling to himself through the wall.
 
 **ME:** A butcher!
 
-**SAM:** That can't be good.A thick drop of saliva drips down from the ceiling.**???????:** Ahh.... Fresh meat...
+**SAM:** That can't be good.
+
+A thick drop of saliva dripped down from the ceiling.
+
+**???????:** Ahh.... Fresh meat...
 
 **JACK:** What in the living hell is that!?
 
@@ -63,9 +78,21 @@ Jack pointed upwards.
 
 There was a young-looking man wearing a butcher's uniform crawling on the ceiling, facing directly towards us. He had several arms and legs, almost like a spider. His joints were twisted at impossible angles. They looked broken beyond repair. He was grinning, salivating in anticipation for his next meal. He was ecstatic.
 
-**HAILEY:** Wh-What do you want, you... uh... asshole... spider... monster... thing?Hailey was clearly as horrified as everyone else was.
+**HAILEY:** Wh-What do you want, you... uh... asshole... spider... monster... thing?
 
-**BUTCHER:** I have not eaten.... in decades... I shall... gnaw... on your... rotting bones...He took deep breaths after every couple of words.  His voice was raspy and deep. I could feel myself unwillingly hyperventilating.A platform emerged from the pit.It was identical to the floor in the mall, except every other tile was missing in a chessboard pattern.The meat that was on front display started moving.It reassembled itself into a gigantic pile of red raw flesh and it began slowly moving towards us.Human guts, hearts, kidneys and livers were bulging out of the mass, skinless faces silently screaming in agony plastered all across an amalgamation of red raw meat.
+Hailey was clearly as horrified as everyone else was.
+
+**BUTCHER:** I have not eaten.... in decades... I shall... gnaw... on your... rotting bones...
+He took deep breaths after every couple of words.  His voice was raspy and deep.
+ I could feel myself unwillingly hyperventilating.
+
+A platform emerged from the pit.
+
+It was identical to the floor in the mall, except every other tile was missing in a chessboard pattern.
+
+The meat that was on front display started moving.It reassembled itself into a gigantic pile of red raw flesh and it began slowly moving towards us.
+
+Human guts, hearts, kidneys and livers were bulging out of the mass, skinless faces silently screaming in agony plastered all across an amalgamation of red raw meat.
 
 **BUTCHER:** Run, run, run! Hahahahaha.....
 
@@ -107,9 +134,13 @@ Sam smiled, his face covered in red.
 
 **JACK:** Fair 'nough. That was... somethin' else.
 
-**ME:** There was... so much blood...I wanted to throw up, but I held it in.
+**ME:** There was... so much blood...
 
-**AVERY:** We should-Avery coughed out, you guessed it, congealed blood.
+I wanted to throw up, but I held it in.
+
+**AVERY:** We should-
+
+Avery coughed out, you guessed it, congealed blood.
 
 **AVERY:** We should just stick to the Targets, honestly. That was genuinely scarring.
 
@@ -119,7 +150,9 @@ Sam smiled, his face covered in red.
 
 **DAN:** Let's just... move on from that, shall we?
 
-We decided to set up shelter further away, next to one of the Targets.We received another text message from Tom.
+We decided to set up shelter further away, next to one of the Targets.
+
+We received another text message from Tom.
 
 "*RULE 17:  Fire doesn't emit smoke in the mall. Feel free to make a cozy campfire ;)*"
 
@@ -137,7 +170,13 @@ We decided to set up shelter further away, next to one of the Targets.We receive
 
 **HAILEY:** Honestly, I could not care less. I just wanna have a break from... everything that's happened.
 
-**SOPHIA:** Yeah, that- that'd be nice.We were all silent for a moment. It felt peaceful, for once.
+**SOPHIA:** Yeah, that- that'd be nice.
+
+We were all silent for a moment. It felt peaceful, for once.
+
+We decided to set up a campfire, as Tom had suggested.
+
+And he was right; the fire didn't emit smoke, but it did eminate an unusual amount of light.
 
 **ME:** How did it come to this? All this ghost-hunting nonsense?
 
@@ -201,7 +240,9 @@ Sam looked panicked, his breaths quick and sharp.
 
 **DAN:** You think I remember *anything about these things?!* I was in a pocket dimension for 20 years, for Christ's sake!
 
-**CUSTOMER:** You have something. I. Need. Something. I. Have. You.Its words sounded spliced, inhuman. There was something terribly wrong with it, I just couldn't quite figure it out.
+**CUSTOMER:** You have something. I. Need. Something. I. Have. You.
+
+Its words sounded spliced, inhuman. There was something terribly wrong with it, I just couldn't quite figure it out.
 
 The Customer grabbed Hailey, holding onto her ramen packet with inhuman force, breaking her fingers with a sickening crunch.
 

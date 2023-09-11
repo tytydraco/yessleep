@@ -12,7 +12,7 @@ His short, black hair was starting to show the first signs of silver around the 
 
 "Find anything interesting?" His voice, calm and soothing, broke the silence.
 
-"Just the usual," I replied, rubbing my temples to ward off the encroaching headache. "Cheating spouses, insurance scams... you know, the glamorous life of a PI."
+"Just the usual," I replied, rubbing my temples to ward off the encroaching headache. "Cheating spouses, insurance scams... you know, the glamorous life of a Private I."
 
 He chuckled, a low, warm rumble that echoed in our small, hole-in-the-wall office. "Hey, did you forget about last week? We rescued Mrs. Dorsey's cat. What was his name... Sir Fluffington? We’re heroes!"
 
@@ -78,7 +78,7 @@ This was followed by what sounded like a desperate struggle, fabric tearing and 
 
 Then... silence. A chilling, absolute silence that left an echo of dread in its wake.
 
-The room fell silent, the eerie voicemail echoing in our minds. The very air around us seemed to grow colder, and a sense of unease settled over us.
+The eerie voicemail echoed in our minds. The very air around us seemed to grow colder, and a sense of unease settled over us.
 
 Ash finally broke the silence, he asked, “Mrs. LeBlanc, did this call come from Gabrielle's phone?”
 
@@ -174,9 +174,9 @@ The house was simple and homely, filled with photographs and mementos of happier
 
 Therese led us to the living room. She motioned for us to take a seat on the cozy, sun-bleached couch and poured us each a cup of strong, bitter coffee.
 
-The smell of the brew brought back distant memories of my own mother's kitchen, and I shook them away with a sip. Business, Reine. Stay focused.
-
 Therese handed us the cups, cradling her own close to her chest. The steam danced up in front of her face, momentarily hiding the lines of worry etched deeply into her features.
+
+The smell of the brew brought back distant memories of my own mother's kitchen, and I shook them away with a sip. Business, Reine. Stay focused.
 
 She took a deep breath and reached for a photo album resting on a side table. The album, well-worn and creased around the edges from years of use, held a lifetime of memories. She carefully opened it and began guiding us through the pages, narrating each chapter of Gabrielle's life.
 
@@ -275,5 +275,9 @@ We sat there in silence for a moment, taking in the horrifying revelation. The s
 [Part 3](https://www.reddit.com/r/nosleep/comments/15hzso1/our_search_for_a_missing_teen_uncovered_the/)
 
 [Part 4](https://www.reddit.com/r/nosleep/comments/15pp6n5/our_search_for_a_missing_teen_uncovered_the/)
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/16bfscv/our_search_for_a_missing_teen_uncovered_the/)
+
+[Part 6](https://www.reddit.com/r/nosleep/comments/16fmh6t/our_search_for_a_missing_teen_uncovered_the/)
 
 [X](https://www.reddit.com/r/PageTurner627Horror/)
