@@ -72,7 +72,7 @@ After a few minutes, Gabby pulled away and wiped her eyes, sniffling. "We need t
 
 "It's no use," Gabby called out. "The door is locked from the outside."
 
-Thinking on my feet, I rammed my elbow into the window of the cabins. Glass shattered, scattering shards everywhere.
+Thinking on my feet, I rammed my elbow into the window of the cabin. Glass shattered, scattering shards everywhere.
 
 I quickly picked up a shard as the door creaked open. "Gabby, get behind me," I whispered, positioning myself between her and the entrance.
 
@@ -234,7 +234,7 @@ And yet, as I emerged from the shadows of the swamp, I felt the dawn of a new da
 
 —
 
-I found Ash and Gabby on the edge of the swamp, the headlights of the airboat illuminating their anxious faces as they saw me emerge from the darkness. Gabby rushed into my arms, tears streaming down her face.
+I found Ash and Gabby on the edge of the swamp, the floodlights of the airboat illuminating their anxious faces as they saw me emerge from the darkness. Gabby rushed into my arms, tears streaming down her face.
 
 "Is it over?" she whispered, her voice tinged with hope and fear.
 
