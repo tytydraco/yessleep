@@ -166,7 +166,7 @@ His one remaining eye fixed on me, flickering with an emotion I couldn't easily 
 
 "Why would you ask such a thing?" His voice was raspy, strained.
 
-"Answer me," I demanded, driving the heel of my boot into his open wound where his arm used to be. A scream of agony erupted from his throat, filling the swamp with the sound of his suffering.
+"Answer me," I demanded, driving the heel of my boot into the open wound where his arm used to be. A scream of agony erupted from his throat, filling the swamp with the sound of his suffering.
 
 For a moment, I was sickened by the satisfaction that washed over me, a cruel pleasure in knowing that he could feel pain, that he wasn't invincible.
 
@@ -184,7 +184,7 @@ For a moment, the air hung heavy between us. Lupin’s eye flickered, and I saw 
 
 "But not enough to save her from you," I retorted, my resolve unwavering.
 
-A pained growl escaped his lips. "No, not enough. The monster in me... it's insatiable. It takes and takes, leaving nothing but death in its wake. Claire was no different."
+A pained growl escaped his lips. "No, not enough. The monster in me... it's insatiable. It takes and takes, leaving nothing but death in its wake. She was no different."
 
 “Do you know who I am? Who I am really?” I asked, my voice dripping with a venomous calm that seemed to cut through the murky air.
 
@@ -246,14 +246,16 @@ We drove Gabby back to her home, where her mother, Therese, was waiting. The mom
 
 As we left Therese's home, I felt an odd mixture of relief and emptiness. Lupin was gone, and Gabby was safe, but the road ahead still seemed uncertain.
 
-Returning to New Orleans, I resumed my relatively mundane life as a private eye. The days consisted of trailing cheating spouses, conducting background checks, and occasionally finding missing pets—tasks that seemed trivial compared to the recent events in the bayou. Yet, the regularity, the humdrum routine, became a comforting balm to my frayed nerves.
+—
 
-Our physical wounds eventually healed. Ash, my one constant, knew my traumas better than anyone else. He never pressed for details, never pushed me into reliving the dark moments that haunted my dreams. His love and understanding were an unspoken promise, a sanctuary where I could escape the horrors that my past and my profession sometimes conjured.
+Returning to New Orleans, I resumed my relatively mundane life as a private eye. The days now consist of trailing cheating spouses, conducting background checks, and occasionally finding missing pets—tasks that seem trivial compared to the recent events in the bayou. Yet, the regularity, the humdrum routine, is a comforting balm to my frayed nerves.
 
-Late at night, when sleep evaded me and the faces of the lost wandered through my thoughts, Ash would pull me close. We would lay there in the darkness, two souls finding solace in the simple act of being together, of being alive. "You okay?" he would often whisper.
+Our physical wounds eventually healed, but the emotional ones still feel raw. Ash, my one constant, knows my traumas better than anyone else. He never presses for details, never pushes me into reliving the dark moments that haunted my dreams. His love and understanding are an unspoken promise, a sanctuary where I can escape the horrors that my past and my profession sometimes conjured.
 
-"Yeah," I'd answer, though 'okay' was a relative term. How could I ever be entirely okay when I'd stared into the heart of darkness and felt it gaze back, scrutinizing my very soul?
+Late at night, when sleep evades me and the faces of the lost wander through my thoughts, Ash will pull me close. We'll lay there in the darkness, two souls finding solace in the simple act of being together, of being alive. "You okay?" he'll often whisper.
 
-As I sit in my small office, writing this, a new day dawning beyond the window pane, I feel a delicate equilibrium settle over me. It’s as though I’ve walked through a storm and emerged on the other side, battered but not broken.
+"Yeah," I'll answer, though 'okay' is a relative term.
+
+How can I ever be entirely okay when I've stared into the heart of darkness and felt it gaze back, scrutinizing my very soul?
 
 [X](https://www.reddit.com/r/PageTurner627Horror/)
