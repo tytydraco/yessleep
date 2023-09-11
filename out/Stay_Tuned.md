@@ -206,11 +206,11 @@ I was making a big deal out of nothing because I hadn't been away from the city 
 
 My eyes jolted open.
 
-I was wide awake even though I was just asleep. I looked at the clock. It was 1:30. It was so early... why did I wake up? But like my waking was some sort of premonition, the alarm on the clock radio across the room started beeping. It was so loud. Why did they make them so loud... and why was it set to one in the morning. I would mention it to Dana.
+I was wide awake even though I was just asleep. I looked at the clock. It was 1:30. It was so early... why did I wake up? But like my waking was some sort of premonition, the alarm on the clock radio across the room started beeping. It was so loud. Why did they make them so loud... and why was it set to one in the morning? I would mention it to Dana.
 
 But, in reality I knew, I could sense it, something was wrong. Then it started.
  
-The beeping stopped and the radio switched over to static; the same sound as before. I was so done with this. I walked over to the radio and ripped it out of the wall. I went over to the window and turned the key lock and pushed... but, but It wouldn't budge. 
+The beeping stopped and the radio switched over to static, the same sound as before. I was so done with this. I walked over to the radio and ripped it out of the wall. I went over to the window and turned the latch and pushed... but, but It wouldn't budge. 
 
 I could not conceive of what was happening. I pushed and pushed but the window would not move. The anger I had when I decided I was going to throw the radio out the window had dissolved into fear. I started to feel light-headed, I needed air. 
 
