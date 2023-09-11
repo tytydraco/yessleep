@@ -72,7 +72,9 @@ After a few minutes, Gabby pulled away and wiped her eyes, sniffling. "We need t
 
 "It's no use," Gabby called out. "The door is locked from the outside."
 
-I was about to suggest breaking a window when the door creaked open. "Gabby, get behind me," I whispered, positioning myself between her and the entrance.
+Thinking on my feet, I rammed my elbow into the window of the cabins. Glass shattered, scattering shards everywhere.
+
+I quickly picked up a shard as the door creaked open. "Gabby, get behind me," I whispered, positioning myself between her and the entrance.
 
 In stepped Lupin. His face was a grotesque amalgamation of man and beast, teeth bared, eyes blazing with a kind of unhinged fury. He looked like he was in agony. The smell of burnt fur and skin and gunpowder was overpowering.
 
@@ -84,7 +86,7 @@ As Lupin stepped further into the dim light, the play of shadows on his face hig
 
 "Do you find my new form unbecoming, mon cœur?" he asked, a sneer tugging at the corner of his mouth.
 
-"You looked better in the before photos," I retorted, keeping my eyes locked on his as I subtly reached down for a piece of shattered glass lying on the floor. If he lunged, I wanted to be ready.
+"You looked better in the before photos," I retorted, keeping my eyes locked on his.
 
 "You survived my embrace," Lupin said, his voice a coarse blend of human and animalistic tones. "I’m impressed."
 
@@ -92,7 +94,7 @@ As Lupin stepped further into the dim light, the play of shadows on his face hig
 
 Lupin snorted, a sound that was more animal than man. "I'd be careful, ma chérie. I'm not in the mood for games."
 
-"Who's playing?" My eyes darted around the room, taking note of the exits, the furniture, any potential weapon or obstacle.
+"Who's playing?" My eyes darted around the room, taking note of the exits, the furniture, any potential weapon or obstacle.l
 
 I locked eyes with Lupin, maintaining a steady gaze. "You look like you've seen better days, Lupin. Or should I call you by your given name, Rainier Delacroix?"
 
@@ -178,7 +180,7 @@ The flicker in his eye changed, darkening as he processed the name. "Claire," he
 
 My trigger finger twitched; every fiber of my being screamed to end him right then.
 
-"What happened to Claire?" My voice hardened as I spoke her name, the shotgun feeling heavier in my hands.
+"What happened to her?" My voice hardened, the shotgun feeling heavier in my hands.
 
 For a moment, the air hung heavy between us. Lupin’s eye flickered, and I saw something in him break. "Claire," he breathed, the word carrying a torrent of unspoken sorrow and shame. "She... she fought. She had fire."
 

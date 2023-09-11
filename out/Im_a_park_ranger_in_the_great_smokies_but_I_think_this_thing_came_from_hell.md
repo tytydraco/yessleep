@@ -1,139 +1,104 @@
-(Part 1 of 2)  
-I’ve lived in East Tennessee for most of my life. Growing up I’d hear old wives' tales and urban legends about strange creatures that roamed the forest. For the longest time, I thought what every other kid thought, that they were stories told to scare kids away from dangerous places so they wouldn’t fall into a ravine or get lost in the massive wilderness.   
-I never thought any of it was more than made-up stories. That’s not to say I didn’t spend my share of time with covers pulled tightly over my head when the wind blew branches against my window that happened to face the woods.  
-As I grew older I found myself gravitating toward the stories of strange creatures in the woods. That curiosity is what started me to investigate such things in my spare time.   
-People around here seem to be obsessed with Bigfoot. As if he’s some local celebrity. They tend to ignore or downplay other cryptids. I don’t know why. With the hundreds of thousands of acres of unexplored and barely explored forest, it seems there’s lots of space for anything that feels like making its home there could be left in relative peace.   
-Me, I’m more of a fan of Dogman, unofficially of course. You see, once I graduated high school, my only goal was to become a park ranger. Where else could you go to work and be surrounded by such glorious nature… even at its most dangerous.  
-There are literally dozens of stories I could tell, but the one that sticks with me is the hikers from a couple of years ago…  
-I remember it was early October. I always make the hike up to Clingerman’s Dome several times during Autumn. Gazing out over the canvas of trees spouting a myriad of colors, looking every bit like nature’s fireworks show reinforced that I made the right career choice.   
-I was on patrol when a call came in to go to the cabins near Fontana Lake. I got the address and headed south, crossing into North Carolina. When I got there I was met by a woman who said her husband, son, and brother-in-law had gone to the lake fishing and hadn’t come back.  
-I got the information I needed about their general description, names, and description of the truck and boat, then headed out to search for them. She said they were heading up to Wolf Creek.   
-I called it in and told the station I would be driving down to Flat Branch to see if they went in the river there.   
-It was a decent drive to get there but then it was a decent drive to get pretty much anywhere out in the backwoods of the smoky mountains.  
-When I got there I found three trucks parked off to the side. Two of them had empty boat trailers. I checked the description the wife had given me and it matched one of the trucks. I had a beginning point for my search.   
-I walked up to the water and looked both ways, hoping to luck out and find them coming in from a hard day’s fishing.  
-No such luck.   
-There was a house nearby so I walked over and asked if they had seen my quarry. The man said he had been out fishing himself yesterday and recalled seeing a boat like the one I described with two men and a boy in it. I asked him which direction they were going and he said west.  
-I asked if he had a boat and could take me up to Wolf Creek. The man’s demeanor changed from friendly to deadly quiet. He agreed to take me across the river, but not all the way to Wolf Creek. I accepted what I could get. After a quick jog back to my truck to get my backpack, he ferried me across and quickly left.  
-It was a mile or so to the rural campsite I suspected they had camped at. I started walking along the edge of the river, keeping an eye out for them. It wasn’t long until I spotted a boat sitting on the shore.  
-I approached the boat and it seemed to be the right one. Everything about this missing person’s report seemed like just someone who stayed out later than planned. It was a little too easy. I would be very happy to find them sitting by a campfire about to pack up and go home.  
-It didn’t take long to hike to the campsite, but when I got there things stopped being easy.  
-There were only two tents set up, but they both looked like someone or something had torn into them. I checked inside each one and found sleeping bags and general camp equipment strewn about. I did my best not to disturb anything.  
-When I came to the second tent, I found something more disturbing. This tent was also in disarray, but as I looked I saw distinct drops of red. There was a notebook sitting near one of the sleeping bags. I picked it up and paged through it.  
-\*\*\*  
-October third.  
-We headed out for our annual fishing trip this morning. Mom wasn’t too happy, but we told her we’d be back tomorrow. The drive to the boat launch was kinda long, but we filled the time talking about all the fish we were gonna catch and generally telling stories about the area.   
-Dad tried to scare me with a story about a cryptid that lives in the area, but I knew he was just yanking my chain.   
-We got to the boat launch and headed out into the water without too much of a hitch. Uncle Roger nearly fell in trying to get the boat undone. He didn’t find it nearly as funny as Dad and I did.   
-Once we were out on the lake and had our lines in the water, he seemed to settle in and enjoy himself. After a few beers, he was laughing about it with us.  
-We caught a couple of fish but they were too small and we had to throw them back. Dad said he’d heard about a good spot up by Wolf Creek. We had better luck when we got there.  
-Uncle Roger caught three largemouth bass and I caught two. Dad had a big one on his line, but it got loose before we could net it.  
-It was starting to get dark, so Dad said we should go to one of the rural campsites.   
-We pulled the boat up to shore and tied it to a large tree, then took our gear and hiked to the campsite. There wasn’t anyone else there, which Dad said was odd, because the site is normally full.   
-We unpacked and set up our tents, and Dad got a fire going while Uncle Roger cleaned the fish.  
-We ate and laughed and talked until it was dark and we turned in for the evening. Dad said there was a better fishing spot further west and he wanted to go there early in the morning before we headed back to the cabin.  
-\*\*\*  
-It’s the middle of the night and Dad is playing a joke on me. I woke up for some reason and he wasn’t in the tent. I could hear rustling outside along with something pawing the ground and snorting.   
-I knew it was Dad trying to scare me. He and Uncle Roger had been telling cryptid stories while we ate supper. I told them they weren’t gonna scare me like they did last year. They just looked at each other and smiled. I knew they would have something up their sleeves.  
-I didn’t bother to turn the light on or go out and check. I knew they would just run away and hide, pretending to be a creature I had scared off. Then in the morning, they would ask each other if they heard the commotion, hoping to scare me.  
-I wasn’t falling for it. One thing you learn from having a prankster for a dad is not to believe anything you see, or in this case, hear.  
-I rolled over and tried to go back to sleep, but Dad was making it tough. He was stomping and growling around so loud trying to get my attention, but I wasn’t having it.  
-When I got up in the morning and went outside, the camp had been destroyed.   
-Uncle Roger asked if I had heard anything last night and I played along saying I’d heard some creature outside our tent but I was too scared to go out and check.  
-He made a good show of searching for Dad and seeming genuinely concerned.   
-I was just waiting for Dad to get tired of the game and come back to the campsite. As the morning wore on, Uncle Roger started talking about going to look for him. I wanted to tell him I hadn’t fallen for their little prank but didn’t want to spoil their fun.  
-When noon rolled around and Dad wasn’t back, I started to get worried. Maybe he had fallen and hit his head on a rock or something. Uncle Roger was beside himself. He told me he would’ve already gone looking for Dad, but didn’t want to leave me alone at the camp.  
-\*\*\*  
-We decided to go look for him. Uncle Roger found what looked like a scuffle and we headed off in that direction. He told me to stay right with him as we struggled through the forest looking for any sign of Dad.  
-I was starting to doubt that this was a prank.   
-I was getting worried about Dad.  
-The further we went the more I realized how wrong I’d been. I wanted Dad to jump out and scare me just so I’d know he was ok.   
-We walked around for hours, searching for him, but we couldn’t find him. I was beyond worried now and I could tell Uncle Roger was too, but he didn’t let on. He just kept saying Dad was probably already back at the campsite now.  
-When the sun started sinking low in the sky, we gave up our search and headed back. Twice, we lost our way and had to double back to get to the site. There weren’t many trails out here, at least not that people had made.  
-When we got back to the site, I ran to our tent, hoping he would be there, but he wasn’t.  
-We ate a quick supper and turned in for the night. Uncle Roger promised me he would wake me up when Dad came back.   
-\*\*\*  
-October fourth  
-Uncle Roger never woke me.  
-Dad didn’t come back.  
-I said we should call for help but he told me dad had the only phone. We were trying to decide what to do when we heard a rustling in the woods and the birds went silent. We looked around for the source of the noise, and unfortunately, we found it.   
-There was a thing coming toward us. It stood on its back hind legs and its body made these loud cracking sounds like its bones were snapping into or out of place echoing all around us. This thing was huge....   
-I literally froze. My body refused to move as this horror came toward us.   
-Uncle Roger grabbed me and yanked me over behind his tent. We tried to hide, but this thing saw us and let out a massive roar.   
-We were so close I could see blood on its claws and teeth. I prayed it wasn’t dads.  
-“Wh… what do we do?” I said.  
-He put his finger up to his lips. It looked over at us and then went into my tent like it was searching for something.  
-“Come on,” Uncle Roger said.  
-We snuck away from the monster as quietly as possible. We slipped down the bank of the creek and walked downstream in the water.   
-“Where are we going?” I whispered.  
-“There’s a bridge downstream. If we’re quiet enough and that thing loses our scent, we could hide under it and hope it goes away.”  
-I focused on walking as quietly as I could through the water. The sound of the creek was loud, so I was hopeful it wouldn’t see or hear us.   
-It seemed like forever until we reached the bridge. It was a small, wooden bridge that spanned the creek allowing hikers to pass over. There wasn’t a lot of cover. We tried to wedge ourselves into the shadows at the furthest end of it.   
-Time slowed to a standstill as I sat there on the uncomfortable rocks, shivering. Neither of us had our jackets on, and the sun had gone down, taking the warm air with it.  
-I started to doze when I felt a nudge. I looked up and Uncle Roger was motioning me to be quiet. I was about to ask why when I heard the creak of a board on the bridge right above my head.   
-It wasn’t a steady walk of a hiker going down the trail, it was a slow, deliberate step on someone sneaking… or hunting.  
-I listened in mortal terror as the boards slowly gave way to the weight of whatever was on it… one… slow… step… at… a… time.   
-As if I wasn’t cold enough, my teeth began to chatter with fear. It couldn’t have been very loud. Uncle Roger barely heard it and went into silent convulsions motioning me to stop.  
-I bit my tongue to keep the noise down and continued to listen. Only there was nothing to listen to. Whatever was on the bridge had stopped moving. It was as if it was listening to be sure it had heard something.   
-I strained my ears to listen for any movement. When I did, I heard sniffing. The thing was trying to catch our scent.   
-For the first time, I noticed there was a slight breeze blowing. It was blowing in the same direction the water flowed, but I had no idea which side of the bridge the creature was on. The wind could be our savior or our doom.  
-Another slow footstep sounded like a bomb going off as the board creaked beneath it. For the briefest of moments, it seemed like it was moving away toward the far end of the bridge.  
-I hoped and prayed that was the case as another footstep sounded, then another. I breathed a silent sigh of relief as I heard it step off the edge of the bridge and onto the trail.  
-My relief was short-lived though as I saw a face peek around the corner and peer under the bridge.   
-I froze in terror as this thing that looked like a giant monstrous dog walking on its hind legs, snuck around the corner of the bridge and dipped its feet into the water.   
-It sniffed the air and poked its snout into the shadows under the far side of the bridge. Coming up empty, it turned its focus to the side of the bridge where we were hiding.   
-Daylight had faded to dusk. There was precious little light to see by. That was our only saving grace, the shadows were darker here, making us nearly invisible. But that was rapidly ending as the beast approached.   
-My mind was vapor locked. I had no clue what to do. Running would just give us away more quickly. It was looking like our only choice was to die.  
-At that moment I was one hundred percent sure of what had happened to Dad. Hot tears streamed down my cheeks at the thought of my father being torn apart by this monster.   
-As I prepared to die, I felt Uncle Roger lean over a little closer. He was right in front of me and it was hard to see the monster. I saw his hand move down toward the ground and pick up a stone the size of his fist.  
-I knew right away what was happening. He was trying to shield me. He would offer himself as a sacrifice to protect me.  
-My tears redoubled making it hard to see.  
-The monster was almost on us. It hadn’t acted like it knew we were there, but at this point, it didn’t matter. A few more steps and all doubt would be removed.  
-I saw it reach out with its terrible claws that nearly touched Uncle Roger’s nose.   
-This was it.  
-Suddenly it stopped. It lifted its head and sniffed the air. I saw the hair on its back, bristle, then in a heartbeat, it disappeared.  
-Uncle Roger slowly stood and looked around. I tried to do the same, but my legs didn’t want to cooperate. I dislodged some stones as I stood, making a little noise and causing Uncle Roger to hiss at me.  
-We stood silently waiting for that thing to come jumping out at us from whatever hiding place it was in.   
-After a few minutes, I began to hope that we were ok.  
-Uncle Roger led the way back to our camp. He said we should change into dry clothes and get a little rest.  
-It felt so good to be warm again. I snuggled up in my sleeping bag and wrote this message so that if we don’t make it, someone would know what happened.  
-I hope my dad was as lucky as we were.  
-\*\*\*  
-I read through the entire message, then went back and re-read the description of the creature. If it was what I thought it was, it was amazing they were still alive. Knowing what I was tracking put me on guard and made me wonder if I was being hunted right now. If it had intentionally left things lay so it could ensnare another victim.  
-I didn’t have much hope of finding them, but I would look anyway.   
-I started with the tracks in the camp, specifically the ones around the tents. It seemed like the boy and his uncle had gone towards the creek. The creature’s tracks went that way too. It followed them to the creek where its tracks seemed to wander around as if it had lost its prey. I saw where they went into the water to throw off its scent. Smart move.  
-I followed the meandering tracks until they came to a small bridge that forded the creek. The tracks went over the bridge, then through the creek underneath it. That didn’t make sense unless they were hiding in the shadows.   
-The creature’s tracks made a sudden turn and went toward the trail then up a hill, almost like something spooked it. If it was what I thought, I couldn’t imagine anything spooking it.  
-I followed the creature tracks up over the hill, then they doubled back and followed the creek from the top of the ridge. I noticed there was a good view of the creek. It didn’t make sense to be going this way until I found myself back in the camp. It had put them right back in its sights.  
-I was confused for a while. I couldn’t find a second set of tracks where they left the second time. If the creature had slaughtered them at the campsite there would be a lot more blood, but there wasn’t.  
-In fact, I couldn’t find any proof they’d come back.   
-Then it hit me. I went back and looked at the tracks again. There were a few here and there that were doubled. The boy and his uncle must’ve come back here after the bridge, then left again the same way as before. The disturbing thing was I still hadn’t seen any tracks of the father.   
-I circled around the camp slowly, looking for anything I might’ve missed.  
-Eventually, I found a set of adult tracks leaving a tent and going to the edge of the trees. They stopped facing a tree. There was a dark spot on the bark a couple of feet up. This had the earmarks of a late-night bathroom break. But the confusing thing was the tracks never returned. Like he had stopped there to relieve himself and then just disappeared.  
-I searched all around the tree when I made a startling discovery. There were flecks of blood farther up on the bark. I circled out further from the tree and found my terrible discovery. Tracks of the creature with drops of blood beside it.  
-My marrow turned to ice at the implication. I followed my new trail hoping I wouldn’t find what my mind was telling me I would.  
-I tried to report to the station on my radio, but strangely all I got in response was static. I knew there were areas out here that didn’t get good reception, but I didn’t think this was one of them, right near a posted campsite, just off a trail.  
-I decided I would try again later. I adjusted my backpack and started off after my prey. As a precaution, I pulled out my sidearm and made sure it was loaded. It seemed like a silly thing to do, but when dealing with a dangerous alpha predator, it’s best to make sure you’re ready to shoot.  
-My hand shook a little when I put my gun back in its holster. I knew this was dangerous. I knew it would be just as easy to go back to the station and let search and rescue take care of it. But I also knew that there was a man who was in the clutches of a deadly creature and he was losing blood. I didn’t have time to waste.  
-I followed the tracks as best I could through the brush and fallen trees. I would lose the trail sometimes only to pick it up again when I found a few more drops of blood.   
-The tracks ran along the base of the hill heading west until it came to a stop. It was right in front of a mountain. I looked all around but the trail had disappeared. Finally, in desperation, I looked up and noticed a cave partway up the mountain.  
-I thought about going up there but was unsure. That could be the home of this creature, or it could be the home of a dozen other animals, none of which would appreciate me storming into their living room unannounced.  
-After another thorough look around the area, I decided it was likely where my prey had gone. Clouds had been rolling in all day and now decided they were done playing nice. The rain began slowly enough but was soon coming down in sheets. The cave was looking better as I covered my eyes and tried to see where I was going.  
-It was raining so hard I couldn’t see the cave anymore. I just kept pressing forward in what I hoped was a straight line, over fallen trees, through brush and rapidly rising streams. I finally looked up and saw I was at the base of the mountain. My direction was off by a little bit and I had ended up a few dozen yards to the right of it, but it was no matter.  
-I started climbing the mountain, being extra careful of my footing, especially in this torrential downpour.   
-After a few slips, including one that had me nearly tumbling off the mountain, I made it to the mouth of the cave. I slipped inside and enjoyed a moment without water dumping on me. I looked down and the water dripping off of me made a little puddle like I had brought my own rain cloud into the cave with me.  
-I shook off as much water as I could as quietly as possible. The rain pouring down outside made loud splashes inside the cave. It would’ve been difficult to hear anything else, but I still wanted to be sure.   
-I unbuckled and sat the backpack down just inside the mouth of the cave. The rain had made it gain extra weight and I didn’t know if I would have to move fast.   
-I opened my pack and got out my bottle of water and drank. It had been a while since I had drank anything and I chugged half of it down. I closed it and saved the other half for if I got out of here alive.  
-With that happy thought rattling around in my brain, I stowed the water bottle back in my pack and pulled out a small flashlight. I turned it on while pointing it at the floor. The bright beam illuminated the cave.   
-It was large as caves go. I could stand up in it and not reach the ceiling. There were many boulders and stones, it wasn’t a smooth floor. The walls were rough, there weren’t any cave drawings in here.  
-I walked slowly, each step felt like I was closer to my doom.   
-I pulled out my gun and held it tightly, the sense of foreboding thick in the air. Two thoughts impressed themselves on me.   
-Firing a gun in here would probably deafen me. And the stench was horrific. It smelled like an open sewer in the middle of August.  
-As I crept deeper into the cave, the sounds of the rain diminished, replaced by an eerie silence. I could hear the step of my feet, my breathing, and my heart pounding.  
-As I was seriously considering turning around and leaving, when I saw something ahead of me move.   
-It was big. At least as big as me. I dove against the wall for some cover, forgetting that I was holding a bright light in my hand so it didn’t matter if I tried to hide as long as the light was on. I pointed it at the floor but didn’t turn it off.   
-I heard a shuffling sound getting closer. I was tempted to turn off the light but giving the edge to this creature was not a good idea. It already had the home-field advantage.   
-I heard it sniffing, but I couldn’t see it yet. I decided to find out more by bringing my light up and shining it deeper into the cave.  
-I got the shock of my life when my light landed on the creature and it was only a few steps away.   
-It was big, at least six feet tall, and looked like a dog, with a long snout, only its body seemed elongated. It stood on its hind legs and had hands attached to muscular arms. Overall it looked like a nightmare.   
+(Part 2 of 2)
+
+It recoiled from the light and let out a growl. It was all I could do to keep from soiling myself. Without thinking I pointed my gun and fired. The sound was deafening. My ears instantly started ringing. The creature roared at me then turned and ran deeper into the cave.  
+It had roared a mere few feet from me, yet I barely heard it. I stumbled and had to take a minute to steady myself. Then I started following it deeper into the cave. To this day I really don’t know why other than needing to know if the hiker was alive.  
+I looked at the ground to see if there was any blood but there wasn’t. I must’ve just startled it with the shot. That wasn’t great news. I’d hoped I would’ve hit it and it was wounded. Just scared meant it would be ready to fight when I saw it again. After all, I’m sure to the creature I was the invader and it was defending its home.   
+I continued farther into the cave, shining my light and watching for any sudden movement. I had no idea where it was or if it was setting a trap for me.  
+I felt a whiff of air and jumped back a split second before the claws sliced the air where my face would’ve been.  
+I rolled and came up shooting, holding my light beside the gun to illuminate my target. I fired over and over, pointing and shooting without having the time to aim. I watched as it ducked every shot and ran with inhuman speed. Just before it disappeared from sight, I saw it skip a step as I fired my last shot. My hopes soared that I had hit it at least once.   
+I ejected the magazine and put a fresh one in, reminding myself that I only had one more and chastising myself for not being more careful with my limited ammo.   
+I justified it by telling myself there’s no use dying with a full magazine.   
+I followed once again, nearly jumping for joy when I came to the spot where it had disappeared and saw a spot of fresh blood on the ground. I was hoping for more, but as I went, the drops were every few feet. Even though it didn’t seem like much, at the speed it was running I was sure it had sprung a major leak.  
+I followed the trail deeper into the cave. There was a chill in the air that made me shudder. My mind told me it felt like a tomb… my tomb. I shook off those thoughts and continued until the blood stopped.  
+I shone my light on the small puddle and the ground beyond where there was no blood.  
+My mind screamed at me that it was a trap. I shone my light all around, even on the ceiling, but I couldn’t see it. I started backing out the same way I’d come in, my eyes darting all around in search of my prey.   
+It hit me like a bulldozer going sixty miles an hour. It had come out of nowhere and rammed me in the back. I sprawled out on the floor, rolling to a stop. My flashlight lay a few feet away and I had no idea where the gun was.   
+The wind was knocked out of me. I tried to breathe but couldn’t. I just lay there gasping for air. It slowly circled around me, growling and bristling. I knew it was going for the kill. I screamed at my brain to move but my body refused to cooperate. I tried to focus on my breathing and regain mobility as it circled closer.   
+I could see its breath chugging out of its mouth like a steam engine. I knew it was time. My arm was the first to recover. I slowly moved it toward the flashlight. It stopped circling just as I got a grip on the light.   
+I saw the creature hunching to lunge at me. I clicked the light to strobe and aimed it at the creature’s face. It screamed and clawed at the air as if it could fight off the light.  
+I rose to my knees, keeping the light on it. When it turned away, I shone it around desperately searching for my gun. I found it a few yards away and tried to run for it, but my body hadn’t fully recovered and I fell flat on my face.  
+My life in the balance, I didn’t bother with the pain of my freshly broken nose, I crawled toward the gun with every ounce of energy in me.   
+It seemed like an eternity until I put my hand on the grip and brought it to bear on the creature. It had recovered and was running at me full speed. I shone the strobe at it again and it veered away from the light.   
+I stood and aimed at it, squeezing the trigger. I saw the satisfying impact of the bullet in its side and squeezed the trigger again making another hole on the far side of its chest.   
+I squeezed over and over, hitting it each time and watching it reel from the impact, but it stayed on its feet. It growled and charged as my slide locked back showing an empty chamber.   
+I shone the strobe in its eyes once more but this time it just ran off to the other side of the room. I used the distraction to eject my magazine and load in the last full one.   
+I released the slide and started firing immediately, hitting it in the hind quarter and leg, but not stopping it. I stopped shooting and forced myself to concentrate. I aimed carefully as it ran toward me and at the right moment I squeezed the trigger.  
+It went down hard, squealing like a stuck pig.  
+It thrashed and clawed at its face, tumbling over itself. Blood flew everywhere from its many gunshot wounds, but it still continued flailing about and squealing in pain.   
+After a few minutes of this, it finally settled down and was still enough for me to see my handiwork. I had shot it in the eye. There was nothing left there but a bloody hole.   
+I didn’t dare approach it. I stood at a respectful distance and watched, my gun ready if it tried to make a move.   
+Its squeals became moans, finally turning into a heavy sigh and then it was still.  
+I shone the light on it, feeling cautiously optimistic that this thing was no longer a threat. And then I remembered what I was doing here in the first place. I tried to get my bearings and proceeded further into the cave. My main thought was not only finding the hiker alive but also hoping and praying there wasn’t another one of those creatures here. I didn’t have another fight like that in me.  
+The path curved downwards until it came to a large open area. I shone the light around looking for anything. Off in the far corner, there was a flash of red as I panned through. I approached it cautiously and found it was a jacket. Inside the jacket was a piece of meat that used to be a human being.   
+His throat had been ripped out and his legs were gone. All that was left of them were some bones. The thing must’ve been working its way up, saving the arms and torso for later. The man’s face was a frozen scream. I can’t even imagine the horror of being dragged away from your loved ones only to be murdered and eaten in some cold, dark cave. I wasn’t even sure if he was dead when the thing ripped his legs off.   
+I had to stop focusing on such things and decide what to do. If I left the remains here there was no doubt some other animal would come by and finish off what the creature had started. I needed to try to get him to his family for closure and a proper burial.  
+I bent down, trying to figure out how to carry him. A fireman’s carry was out. There were no legs for counterbalance. In the end, I picked him up by his arms and flung them over my shoulder, holding onto them and turning his body into some macabre backpack.  
+I started back out of the cave, hoping I’d be able to carry him all the way back to the campsite and finally back to my truck.   
+As I trudged back through the cave, I came to the section where our fight had taken place. Shell casings and blood were strewn about the ground. I wondered to myself how I had avoided getting hit by a stray ricochet when I looked over to where the creature lay. Only it wasn’t there. I shone my light all around frantically whipping around, but it was gone.   
+I found the spot where it had laid still and I thought it had died. There was a large pool of blood there, but no body. I pulled my gun out of my holster, ejected the magazine, and checked to see how many rounds I had left. There were only two. I hoped wherever that thing was that it was no longer in the mood for hunting… or revenge.  
+In the end, I decided there was nothing I could do. If the thing attacked me, I was defenseless, carrying literal dead weight on my back.   
+I holstered the gun and hitched up my human backpack, then shone the light toward the mouth of the cave and kept walking. My hearing was just starting to return to normal, although I was sure I would have some permanent hearing loss. I could hear the shuffling of my feet as I staggered toward the cave opening.   
+When I got there I found a world transformed. Daylight was just starting to peek its way around the dark. However, the rain had created a massive fog bank. I couldn’t see anything down in the valley I’d come from. It was a sea of fog. Only the peaks of the mountains escaped its suffocating blanket.   
+I looked over and saw my backpack patiently waiting for my return. I lay my burden down and got the water bottle out, glad that I had saved the last drink for now. As I sat on the edge of the cave precipice, I looked down and wondered how I was going to get the body down there without falling to my own death.   
+For an instant, it was tempting to throw it down and find it at the bottom once I climbed down. But I thought this fellow had been through enough and didn’t need the indignity of becoming a human frisbee. I dug through my backpack and found some bungee cords. I bungeed him to my back and carefully started my descent, leaving my faithful backpack to watch me desert it. I wished I could take it with me but there was no way I could carry both.  
+As I climbed down there were a few times I lost footing and nearly took the short and deadly route down. Fortunately, I made it to the bottom in one piece. Instead of celebrating though, I discovered a new problem. The fog was so thick I could barely see my hand in front of my face. I had no idea how I was going to find my way out of there.  
+I decided to go straight away from the mountain and hope the fog cleared as I went.   
+The rain had turned the forest into a marshland. The ground was soft and the streams had overgrown their banks. I found myself wading through knee-deep water on more than one occasion.   
+As I trudged along, hoping I had enough energy to get back without collapsing from exhaustion, two thoughts chased each other around my mind. Where were the other hikers, and where was the creature?  
+I hadn’t seen any other remains in the cave. If it had killed them, it hadn’t had time to take them back to the cave yet. Perhaps my pursuit had forced it to retreat to its cave before it could properly retrieve its other bounty.   
+I had kept my ears open for any sounds of it following me. The most disconcerting thing was the lack of forest noises. The animals and birds were strangely silent. Usually, that meant there was a predator nearby. In this ungodly fog perhaps they were just sleeping waiting for it to clear.   
+That sounded good. It gave me the false illusion that I wasn’t in mortal danger from a wounded alpha predator bent on revenge.   
+But I couldn’t focus on that or worry would drain my resolve to get us both out of there.   
+I took a break from trudging and tried to get my bearings. I checked my watch and I had been walking for over an hour. It was late morning and the sun should’ve been high in the sky. But the oppressive fog continued to smother it.  
+I looked around, but there was nothing to see except the dingy grey curtain of hopelessness. I was about to collapse and give up when I heard it. The faint sound of hope. I could hear the creek running.   
+As hope rose, it was suddenly dashed. I heard the sound of a footstep behind me. I whipped around so fast that my macabre backpack nearly made me lose my balance.  
+I couldn’t see anything through the fog. But that didn’t mean it wasn’t there.   
+With a renewed surge of determination, along with a strong desire to elude whatever was pursuing me, I set out toward the sound of the creek.   
+It was still slow going, but I found fearing for my life was a great motivator. I had no doubt whatsoever that the footsteps behind me were those of the creature bent on revenge.  
+After what seemed like an eternity I gazed at the most awesome sight I’d seen all day, Wolf Creek in all its six-foot wide, overflowing banks glory. I followed it until I came across Lakeshore trail and the journey became much easier. The fog was even beginning to lift, which was a blessing but also a curse.   
+I could finally see far enough behind me to confirm that the creature was indeed following me. I’d wondered the entire time why it hadn’t overtaken me, but now that I caught sight of it, I understood.   
+It was grotesque. It looked like it came straight from hell. Its one eye socket was leaking gore and the many bullet wounds covered it in blood. There were places where I could see internal organs trying to escape the body and its right leg had a bullet wound. It limped severely. As I watched it I wondered how it had made it this far. But then I looked into its remaining eye and saw intense rage burning. I knew I would die a horribly grotesque death if I slowed enough for it to catch up.  
+We continued this slow O.J. pursuit of death until I reached the banks where Wolf Creek opened up into the lake.   
+My energy was nearly gone. At one point I considered dropping my human backpack in hopes that it would feed on it instead of me. But then I would’ve failed. I came here to find this hiker and bring him back. The thought lit a fire deep within me.   
+I came to the edge of the lake, with the creature a mere few yards behind me. I glanced around, hoping to see a boat I could flag down, but no such luck. With no other choice, I waded into the water. It was cold but instead of refreshing me, it chilled me and sapped my little remaining strength.   
+The creature entered the water behind me and seemed to be gaining.   
+It got deeper to the point where I was no longer able to walk and had to start swimming. The far side of the lake looked like it was miles away, even though I knew it was much less than that.   
+I swam for all I was worth, knowing at any moment I would be pulled under by the creature. My passenger strapped to my back wasn’t helping either. The literal definition of ‘dead weight’ every minute I had to fight off the urge to dump him.   
+When I reached the other side I was exhausted. I lay there on the shore, waiting for the creature to disembowel me, but unable to move to defend myself in any way.   
+With great effort, I turned to look back and see when my doom would come.  
+To my great surprise, I saw it staring at me from the far beach. I guess it couldn’t swim.   
+I chuckled to myself as I lay there gathering strength for the continued journey back to the truck.   
+Eventually, I got there. As I opened the door, for a fleeting moment I considered putting the hiker in the passenger’s seat. But then I looked at the wet, gore-soaked torso and reconsidered, gently laying him in the truck bed.   
+The drive back was long and I continually had to shake myself to stay awake. But eventually, I made it to the cabin. I stumbled up to the door and knocked once.  
+“Oh my God!” the woman said when she saw me. “Are you alright?”  
+I hung my head. “No, but I will be after around three days of sleep. Unfortunately, I have bad news for you. I found your husband, but not your son or brother-in-law.”  
+A man and a boy came out of the cabin and stared at me. I instantly knew who they were and grabbed them both in a huge hug.  
+“I’m so glad you made it out,” I said fighting back tears.  
+“Umm… thanks,” the man said pulling out of my hug. “Who are you again?”  
+“He’s the ranger that came to look for all three of you,” she said.  
+“I don’t understand, your tracks were confusing,” I said. “I followed them down to the bridge, but then they went back up to the campsite.”  
+“We got some rest,” the boy said. “Then Uncle Roger came and said we were going. We left everything and slipped away to the boat. Rowed across the river and left.”  
+I smiled.   
+“I’m very glad you did.”  
+He looked at me with expectant eyes.  
+“You said you found my dad?”  
+My face fell.  
+“I did, but it was too late.”  
+“So, he’s… ?”  
+I nodded somberly.  
+“Where is he?”  
+“He’s in my truck, but you don’t want to see that.”  
+Before I could say another word, he ran to the truck and looked in the passenger’s seat. A look of confusion fell over his eyes as he saw no one there. And then he slowly looked toward the bed of the truck. He stepped back and looked over the side into the bed. He instantly dissolved into tears and slid down the side of the truck sobbing.  
+“I’m so sorry,” I said to the woman and man.  
+She grabbed me and gave me a hug.   
+“Don’t be,” she said. “Without you, we wouldn’t have known for weeks, months, maybe even years what had happened. We would go on looking with false hope. You’ve given us a chance for closure and to properly grieve.”  
+She released me and I wiped my eyes.   
+I looked at the man and walked down to the truck. He followed and we gently removed the body and laid him on the couch, then covered him with a blanket.  
+The boy followed us back to the cabin, but wouldn’t look at me or anyone else. He sat in a chair and stared at the blanket covering his father’s body.  
+I knew I had done all I could, so I excused myself and started toward the door. I paused and said to the boy, “I promise I’ll make sure that thing never hurts anyone again.”  
+He looked up at me, eyes full of tears, and said, “How will that help my dad?”  
+His mother opened her mouth but I held a hand up to silence her. I knew the boy was just hurting. I left without another word.   
+On the drive back, I called the station and told them everything that had happened then told them I was going home and calling off for the following day.  
+After getting home and stumbling into a shower and collapsing in bed, there was only one thought on my mind.   
+I would return to Wolf Creek very soon with more and bigger guns. I would end that monster if it was the last thing I did.  
+But that is another story…  
