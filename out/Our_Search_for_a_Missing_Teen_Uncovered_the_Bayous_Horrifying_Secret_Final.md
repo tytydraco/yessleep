@@ -256,8 +256,8 @@ Our physical wounds eventually healed, but the emotional ones still feel raw. As
 
 Late at night, when sleep evades me and the faces of the lost wander through my thoughts, Ash will pull me close. We'll lay there in the darkness, two souls finding solace in the simple act of being together, of being alive. "You okay?" he'll often whisper.
 
-"Yeah," I'll answer, though 'okay' is a relative term.
+"Yeah," I'll answer, though 'okay' is a relative term. How can I ever be entirely okay?
 
-How can I ever be entirely okay when I've stared into the heart of darkness and felt it gaze back, scrutinizing my very soul?
+In the stillness of the night, as I drift between the waking world and the realm of dreams, a low growl resonates in the depths of my soul—a haunting echo that wasn't there before, a primal urge that taunts me from the shadows of my own mind.
 
 [X](https://www.reddit.com/r/PageTurner627Horror/)
