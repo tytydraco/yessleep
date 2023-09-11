@@ -166,7 +166,9 @@ His one remaining eye fixed on me, flickering with an emotion I couldn't easily 
 
 "Why would you ask such a thing?" His voice was raspy, strained.
 
-"Do you?" I insisted, tightening my grip on the shotgun.
+"Answer me," I demanded, driving the heel of my boot into his open wound where his arm used to be. A scream of agony erupted from his throat, filling the swamp with the sound of his suffering.
+
+For a moment, I was sickened by the satisfaction that washed over me, a cruel pleasure in knowing that he could feel pain, that he wasn't invincible.
 
 His lips curled into a snarl, but the sound that came out was more a whimper than a growl. "Yes," he finally admitted. "I remember them all. Their faces haunt my dreams, their screams serenade my nightmares.
 
@@ -244,13 +246,13 @@ We drove Gabby back to her home, where her mother, Therese, was waiting. The mom
 
 As we left Therese's home, I felt an odd mixture of relief and emptiness. Lupin was gone, and Gabby was safe, but the road ahead still seemed uncertain.
 
-Returning to New Orleans, I resumed my relatively mundane life as a private eye. The days consisted of trailing cheating spouses, conducting background checks, and occasionally finding missing persons—tasks that seemed trivial compared to the recent events in the bayou. Yet, the regularity, the humdrum routine, became a comforting balm to my frayed nerves.
+Returning to New Orleans, I resumed my relatively mundane life as a private eye. The days consisted of trailing cheating spouses, conducting background checks, and occasionally finding missing pets—tasks that seemed trivial compared to the recent events in the bayou. Yet, the regularity, the humdrum routine, became a comforting balm to my frayed nerves.
 
 Our physical wounds eventually healed. Ash, my one constant, knew my traumas better than anyone else. He never pressed for details, never pushed me into reliving the dark moments that haunted my dreams. His love and understanding were an unspoken promise, a sanctuary where I could escape the horrors that my past and my profession sometimes conjured.
 
 Late at night, when sleep evaded me and the faces of the lost wandered through my thoughts, Ash would pull me close. We would lay there in the darkness, two souls finding solace in the simple act of being together, of being alive. "You okay?" he would often whisper.
 
-"Yeah," I'd answer, though 'okay' was a relative term. How could I ever be entirely okay when I'd stared into the abyss and felt it gaze back, scrutinizing my very soul?
+"Yeah," I'd answer, though 'okay' was a relative term. How could I ever be entirely okay when I'd stared into the heart of darkness and felt it gaze back, scrutinizing my very soul?
 
 As I sit in my small office, writing this, a new day dawning beyond the window pane, I feel a delicate equilibrium settle over me. It’s as though I’ve walked through a storm and emerged on the other side, battered but not broken.
 
