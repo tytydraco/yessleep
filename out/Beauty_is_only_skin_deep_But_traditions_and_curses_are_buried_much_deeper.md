@@ -4,7 +4,7 @@ On the dot.
 
 No more, no less.
 
-All of the women in my family on my mother’s side always had long, beautiful hair and youthful features. With platinum blonde hair, icy blue eyes and skin the color of porcelain, we always stuck out in a crowd. Even my great grandmother was beautiful, her skin soft and smooth. Wrinkles were never something that any of us had, but when I was young, I never gave it much thought. Ignorance was bliss after all, and for the longest time… I was blissfully ignorant.
+All of the women in my family on my mother’s side always had long, beautiful, platinum hair and youthful features. Pair that with icy blue eyes and skin the color of porcelain, and we always stuck out in a crowd. Even my great grandmother was beautiful, her skin soft and smooth. Wrinkles were never something that any of us had, but when I was young, I never gave it much thought. Ignorance was bliss after all, and for the longest time… I was blissfully ignorant.
 
 All of that had changed one Saturday morning. Every day before I could run off outside and play with my brother, my mom insisted that she brush my hair. It was almost like a ritual of sorts. It had to be done all in one sitting, and she could not stop once she started.
 
