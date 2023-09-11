@@ -1,0 +1,14 @@
+The hotel is located in a small town with the only noticeable thing is a gas station that’s just odd at the other side of town, there’s nothing too noticeably odd about the hotel from first glance but I promise you this is just the beginning of many stories, the guy at the gas station told me I should write them down to not forget so this is entry #1:
+
+The Hotel was mostly empty today besides a few new faces and 2 of the usuals, the new faces I tend to leave alone well simply because I’m not entirely sure they’re real, they can walk and talk like us but again it’s a small town in the middle of nowhere which begs the question why are there always new faces? Hell how does this hotel even keep business it just doesn’t make sense to me and where are their cars? They didn’t just walk here yet my beat up Chevy is the only car besides that red mustang in our lot and I don’t think the cars ever moved but it has to have? there isn’t a spec of dust or dirt anywhere on it or near it it’s just odd, and the 2 locals well 3 i guess (I’ll explain) that came in today, one is a “man” in room 7 who definitely isn’t human I mean he has the basic necessities to look human but they’re just off the way his skin hangs, or the length of his unusually long fingers and he has no hair I mean nothing, no arm,head,or leg hair; he always wears khaki shorts with a polo and I would say he’s mid 20s from the way he speaks but like I said his skin hangs so much it’s hard to tell.
+
+Then there’s Liu, Liu is normal ish for the most part he’s quick to anger it seems but he’s never been violent to me so as long as he pays and doesn’t hurt another customer I guess I can’t complain, but then there’s his brother I don’t know his name yet but he could use some serious plastic surgery, his face is just scared more than what would seem possible to survive but who knows if any of the customers
+Are truly alive. Lou’s brother is usual quiet but he always seems to leave late at night and comes back to immediately wash his black hoodie that’s it, it all I ever see him wash and I don’t know the point of washing just a hoodie everyday but hey it keeps money in my pockets since the washers have a $5 fee.
+I got to go now there’s a new customer coming in, he’s walking like a turtle hell he’s been walking as long as it’s taken me to write this much but I’ll try to remember to update this see y’all soon - Rob
+
+
+
+
+
+
+(I hope y’all like this first entry, long time reader and I’ve always wanted to write my own and thought why not try it, obviously there’s references to other of the nosleep/creepypasta stories I’ve listened too especially the gas station story’s ((recommend highly)) and really thought it would be interesting to try to combine the universes with a seemingly “normal hotel” open to suggestions and questions always and fare warning I’m pretty busy but will try to update the story as much as I can)

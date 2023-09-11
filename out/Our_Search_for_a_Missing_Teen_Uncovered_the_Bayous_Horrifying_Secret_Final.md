@@ -18,7 +18,7 @@ I opened my mouth to respond, but my stomach churned violently. Gabby seemed to 
 
 Setting the bucket aside, I couldn't help but notice the stench that now mingled with the overpowering odors of the hut. It was then that I realized what the bucket had been used for. Gabby had been in captivity for weeks.
 
-"Is Ash okay?" I asked Gabby, a sense of urgency hardening the edges of my voice.
+"Is Ash... Is my partner okay?" I asked Gabby, a sense of urgency hardening the edges of my voice.
 
 Her eyes met mine, and the grimness in her tone didn't need to be spoken. "I don't know," she said, "It was too dark. I couldn't see well."
 

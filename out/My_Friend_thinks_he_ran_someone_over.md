@@ -40,7 +40,7 @@ He walked to the rear of his car once the grave had been dug, and opened the tru
 
 He began to cover the body with soil, and I helped him.
 
-It was a silent ride home, and nothing of merit happened, it was just silence, once I was home I slipped into bed. The next morning I had barely remembered what happened, even now I’m not able to remember every single detail, but I know now that I’ll be seeing him abit differently now. I mean, if he believed it was some girl he’d opt to hide the body rather than call the police.
+It was a silent ride home, and nothing of merit happened, it was just silence; Though I was scared that he had some unresolved issues, and that it could lead to me being buried in the woods next. Once I was home I slipped into bed. The next morning I had barely remembered what happened, even now I’m not able to remember every single detail, but I know now that I’ll be seeing him abit differently now. I mean, if he believed it was some girl he’d opt to hide the body rather than call the police.
 
 Update:
 
