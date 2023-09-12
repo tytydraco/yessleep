@@ -276,6 +276,8 @@ I need to find out what that creature did to her first.
 
 And I hate this, but I think it means I need to talk to Grayson again. [\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
 
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/16ggqv2/how_to_survive_college_we_all_need_a_little_chaos/)
+
 [Read the current draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 
 [Visit the college's website.](https://alderrayne.com/)
