@@ -84,7 +84,7 @@ He grimaced, and it was hard to tell where the man ended and the werewolf began.
 
 As Lupin stepped further into the dim light, the play of shadows on his face highlighted the grotesque blend of human and monster. Yet, for all his terrifying aspects, there was a haunting sadness in his eyes. I instinctively recoiled in fright.
 
-"Do you find my new form unbecoming, mon cœur?" he asked, a sneer tugging at the corner of his mouth.
+"Do you find my true form unbecoming, mon cœur?" he asked, a sneer tugging at the corner of his mouth.
 
 "You looked better in the before photos," I retorted, keeping my eyes locked on his.
 
@@ -94,7 +94,7 @@ As Lupin stepped further into the dim light, the play of shadows on his face hig
 
 Lupin snorted, a sound that was more animal than man. "I'd be careful, ma chérie. I'm not in the mood for games."
 
-"Who's playing?" My eyes darted around the room, taking note of the exits, the furniture, any potential weapon or obstacle.l
+"Who's playing?" My eyes darted around the room, taking note of the exits, the furniture, any potential weapon or obstacle.
 
 I locked eyes with Lupin, maintaining a steady gaze. "You look like you've seen better days, Lupin. Or should I call you by your given name, Rainier Delacroix?"
 
