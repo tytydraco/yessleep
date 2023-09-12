@@ -224,7 +224,7 @@ The shotgun roared, its deafening blast reverberating through the bayou like the
 
 I stood there, the smoke from the weapon dissipating into the humid night, my body trembling from the aftershock of what I'd just done. I felt hollow, like a vessel that had been emptied and yet was still laden with an invisible weight. But as I stared at the lifeless form before me, I felt something else too—relief. And in that relief, I found a glimmer of the peace I'd been seeking for so long.
 
-I paused at the edge of the murky water where Lupin's body lay. With a grim sense of finality, I used the butt of the shotgun to push his lifeless form further into the muck. The swamp was known to keep secrets well; it would claim him, enveloping him in its fetid embrace until he was swallowed whole, leaving no trace. I was certain no one would ever find him, and if the bayou chose to keep this secret, who was I to argue?
+With a grim sense of finality, I used the butt of the shotgun to push his lifeless form further into the muck. The swamp was known to keep secrets well; it would claim him, enveloping him in its fetid embrace until he was swallowed whole, leaving no trace. I was certain no one would ever find him, and if the bayou chose to keep this secret, who was I to argue?
 
 I turned away, taking a deep breath as I prepared to retrace my steps back through the bayou. Ash and Gabby were waiting, and there was a lot to explain, but for the first time in years, I felt ready to face the future, no matter how uncertain it was.
 
@@ -246,11 +246,9 @@ We drove Gabby back to her home, where her mother, Therese, was waiting. The mom
 
 "You don't have to," I replied softly, then added, "Just take care of her."
 
-As we left Therese's home, I felt an odd mixture of relief and emptiness. Lupin was gone, and Gabby was safe, but the road ahead still seemed uncertain.
-
 —
 
-Returning to New Orleans, I resumed my relatively mundane life as a private eye. The days now consist of trailing cheating spouses, conducting background checks, and occasionally finding missing pets—tasks that seem trivial compared to the recent events in the bayou. Yet, the regularity, the humdrum routine, is a comforting balm to my frayed nerves.
+Returning to New Orleans, I resumed my relatively mundane life as a private eye. The days now consist of trailing cheating spouses, conducting background checks, and occasionally finding a missing pet—tasks that seem trivial compared to the recent events in the bayou. Yet, the regularity, the humdrum routine, is a comforting balm to my frayed nerves.
 
 Our physical wounds eventually healed, but the emotional ones still feel raw. Ash, my one constant, knows my traumas better than anyone else. He never presses for details, never pushes me into reliving the dark moments that haunted my dreams. His love and understanding are an unspoken promise, a sanctuary where I can escape the horrors that my past and my profession sometimes conjured.
 
