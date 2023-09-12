@@ -84,7 +84,7 @@ Ash noticed my distress. "Reine, what is it?" he asked, concern evident in his e
 
 Without uttering a word, I bolted from the room, the shock in Asher's voice as he called out to me.
 
-Outside, the night air hit my face, but it did little to quench the growing panic. I fumbled for my keys and unlocked the SUV, rummaging through the boxes of cold cases I had brought along. I needed to confirm what I was feeling, what I was thinking. With trembling hands, I pulled out a dusty, worn-out folder labeled "Claire LeJeune."
+Outside, the night air hit my face, but it did little to quench the growing panic. I fumbled for my keys and unlocked the SUV, rummaging through the boxes of cold cases I had brought along. I needed to confirm what I was thinking, what I was feeling. With trembling hands, I pulled out a dusty, worn-out folder labeled "Claire LeJeune."
 
 This was a case that had haunted my dreams and waking moments for over ten years. Claire was a vivacious 16-year-old from my hometown of Pierre Part. The memories of her disappearance were etched into my mind, her face forever frozen in time as the girl with bright eyes and a future full of potential.
 
