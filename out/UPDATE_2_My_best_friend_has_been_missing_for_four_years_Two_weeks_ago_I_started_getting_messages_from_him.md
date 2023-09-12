@@ -1,0 +1,33 @@
+\[[Part One Here](https://www.reddit.com/r/nosleep/comments/8n38wg/my_best_friend_has_been_missing_for_four_years/)\]
+
+\[[Part Two Here](https://www.reddit.com/r/nosleep/comments/8nwbca/update_my_best_friend_has_been_missing_for_four/)\]
+
+Apologies that I went MIA for a few days. Things got pretty fucking weird. Let me get into it.
+
+I took all your advice and told Si about his dad. He was pretty annoyed that I didn't tell him straight away, but he understood I didn't do it out of malice. He did say that his dad not being around any more, and this thing no longer having a host body that it's attached to, meant that he wasn't as safe here as he thought \- and neither was I, now that I know about it. We needed to make an escape plan and bounce around a few different places for a while, just so it couldn't pinpoint our location. I was okay with that \- like I said in the first post, my parents and I lived pretty nomadically until I was seven. I can deal with moving around a whole bunch.
+
+A lot of you asked for clarification on what the Thing that is attached to Si's family is and I'm truly sorry to disappoint but I don't know. Si doesn't seem to be overly sure either \- he only knows what he read in his mother's diaries and the few details she explained to him when they met. She'd been unwilling to talk about it outside of that one explanation and Si doesn't recall ever actually seeing it or even hearing it himself. We've speculated on what it might be \- the closest we've gotten is some kind of demonic entity. According to Si, his mum told him that the Thing can't really do a whole bunch of damage by itself \- it needs a host body to manipulate, either physically or mentally, into doing its ungodly bidding. The problem is that most people are powerless to resist it. It takes over every sense in your body, every thought in your brain. It consumes you, and it's almost impossible to tell it no.
+
+Speaking of Si's mother, I met her for the first time ever. It was his idea \- I won't give away her exact location, but she's in a place that is very remote and incredibly difficult to get to. He said we could be safe with her for a few days, until we figured out what else we were going to do. She didn't seem to be too happy about it \- like I said, she'd been unwilling to discuss this Thing with him. She, understandably, didn't want or need it dragged back into her life. But when Si and I explained that his father was dead and the thing was now roaming free, looking for a new host, she allowed us to stay until we got something sorted. It's where we're at now.
+
+Si's mother is...strange.
+
+He definitely gets his beauty from her. She's got those same big green eyes and that same glossy midnight hair. She's tall and narrow\-built and pale like he is too. Their similarities seem to begin and end there. Si has always been pretty easy\-going, relatively cheerful despite his borderline hellish home life and always had a warm smile and a kind word for everyone. She's cold and hard, with a near\-permanent frown etched into her otherwise pretty face. She made it pretty apparent that we're welcome for a maximum of a week when we arrived and seemed very cold and standoffish with both of us, but especially with Si. Honestly, my heart broke for him \- he'd spent all these years thinking she was dead and, when he finally did meet her, she doesn't seem to want much to do with him. He didn't seem overly bothered, to be honest. I guess it's a case of not being able to miss what you never had.
+
+Anyway, her steely demeanour isn't what makes her so weird. That's pretty unpleasant, certainly, but not all that bizarre. What makes me say she's weird is an interaction I had with her in the early hours of this morning.
+
+Si hasn't been sleeping too well \- he stays up all night planning our next moves, crashes out for a couple hours in the afternoon, fuels up on strong black coffee and repeats. Last night, I guess it all caught up with him, though, because when I woke up to go pee at around 3AM, he was passed out at the desk in the room that we've been sharing. I was absolutely bursting to use the bathroom, so I elected to go take a piss first and wake him up and put him to bed upon my return. When I got back, however, I found his mother standing outside the door to the room, smoking a cigarette and looking at her son with a softness I hadn't yet seen on her face. She even smiled at me as I approached.
+
+"He talks about you a lot, you know. In his sleep, and that. You mean a lot to him, Peregrine."
+
+She said it softly, without really looking me in the eye. Looking back, it was a little unsettling but at the time I just smiled back at her.
+
+"He means a lot to me, too. He means everything to me."
+
+We both watched him sleep in silence for a moment \- less than a moment, honestly. It can't have been more than five seconds. Then, I went to step into the room and to bid her goodnight, but she stopped me by putting a hand on my arm.
+
+"I hope you won't allow him to be harmed, Peregrine. These things can be troublesome, and he's a smart boy but he doesn't know everything. Sometimes, things aren't as they seem. You need to be cautious. And don't trust anybody. For the love of god. Nobody. People can be such horrible liars."
+
+On paper \- or, I guess, on screen \- that sounds fine, I know. Just a mother looking out for her son, issuing a warning to his companion to try and keep him safe. But she had this weird look on her face when she said it. She was almost... smiling. She looked me in the eye for the first time when she told me people are liars and for a split second there was this... dead coldness that chilled me to my core. But then she got that soft, motherly look back and told me that she knew I'd be good for him before bidding me a good night and leaving.
+
+We're leaving here in about four hours \- Si's found a place for us to go to, to which we'll travel under nightfall, just in case. I haven't mentioned the exchange to Si because I don't really know if it's even worth mentioning. Maybe I imagined the weird look on her face \- a trick of the light or something. I'm fairly sure I didn't make up the weird monotonous way she said it, but like I've mentioned she *is* a particularly cold woman. Monotony isn't exactly out of character. Still, it unsettled me all the same. I guess this post was just to update you all on what's happening, letting you know I'm still alive right now and that Si seems to be fleshing out some kind of plan to get rid of the Thing he came back to get rid of. I'll let you all know if anything else happens. Thank you.
