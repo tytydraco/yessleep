@@ -1,3 +1,5 @@
+[Part 2](https://reddit.com/u/Australiens_exist/s/TsSvAWDD2a)
+
 This story will be long and I apologise in advance, you're welcome to skip to the end to get the crux of it all. I know what it is, ive read nosleep enough, the one thing all the stories leave out though is what to do when you find yourself a target of one. Maybe someone can help, at this point I don't even know if I'd have the energy to fight it anyway. Regardless, I'll begin.
 
 It started 3 months ago. I'm a night shift worker, standard in these stories I know, whatever pays the bills I guess. I was on my way home, less than 100 metres from my driveway when something darted across the road in front of my car, the front corner of my passenger side smashing into it.
