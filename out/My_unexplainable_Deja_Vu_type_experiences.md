@@ -1,0 +1,21 @@
+I'll begin with some context, since I can remember, I've had what I can only describe as some sort of strong Deja Vu. I first noticed it around age 9. I was sitting at my grandparents house, watching tv. The news was on, I was about to switch the channel. The news was covering a recent event regarding a museum, a new exhibit, maybe. I sat there, with this unexplainable feeling, like I knew what I was seeing, not like I understood it, like I knew it. The way you know a person, or your family home, or the tv show you grew up with. This sort of thing continued until I was 16.
+
+  
+It became far more frequent as I got older, or maybe I just noticed it more often. It was in odd things, old articles about places I never saw, people who died a long time ago, events I hadn't witnessed. As I got older, I just attributed to some sort of mental phenomena, something just sort of, off, about me. Around the time I turned 16, it grew quiet. It was still there, but not as pronounced. I thought it was going away. It wasn't.
+
+  
+I told my parents about it once, when I was 14. They told me it was probably an overactive imagination, something that would resolve as I got older, nothing to worry about. One occurrence of this was particularly strange. I was at school, and late to class. I was running down the hallway and tripped over a schoolbag someone left at the side of the hallway. I got up, picked up my things and then I saw him. One of the school's janitors. An old man, mopping the floor. I knew him, I knew him very well. He saw me staring at him, and gave me a sideways look, a very curious, almost amused look. He continued mopping.
+
+  
+I though of that man several times over the next few years. I knew him, I knew him from somewhere. I couldn't get rid of the feeling that he knew me.
+
+  
+After high school, I went on to a university near where I grew up. The events stopped, and I began to forget about them. My second year of uni, I saw him again. It shook me, I remembered all the times I felt an odd familiarity to something I shouldn't. I knew him, I still knew him.
+
+  
+He was sitting at a café near campus, drinking coffee, writing in a notepad. I decided to speak with him. I had to. I knew him. I walked inside, sat down at a table adjacent to his, and glanced over without turning toward him. He was staring right at me. Smiling, he looked happy. I turned toward him, and opened my mouth to speak. "Do I know-?" he cut me off mid sentence, he spoke in an amused tone "Yes, you know me." "How?" he asked, in a tone of a colleague asking how you got an answer to an ever so burning question. "How, what?" I asked. "How the hell do you remember?" he leaned in "I mean, I've tried everything, but not once have I remembered a single damn thing." I was astounded, what was he talking about? "You remember me, and I know you remember more, I could see it, as you grew up." "What are you talking about?" my voice was shaky. "Oh, so maybe not so much as I thought. Nothing about the last bout then?" he raised an eyebrow. Who the hell is this man, what is he on about "I don't know what your talking about, where do I know you from?" he smiled again "You know me from, well, everywhere, at least for the last few." 
+
+He finished off his coffee, then brought his notebook to the edge of the table. "See, this here, will tell me everything I need to know, as long as I can remember where I leave it. I mean, A hundred years of knowledge is very useful when you recycle." I was confused at every sentence this man said. "Oh, right, you don't remember. Well, why do you think it is, that you find all these things familiar?" he smiled as if he was about to give the punchline to a joke. "You were there! Each thing you recall vaguely. Why you remember anything is beyond me, but I hope I figure it out, soon. Can't have more than a decade left in this one" he held out his arms as if gesturing to his old figure. He stood, and walked to the café door, and turned to me before he left. "See you next time,  friend."
+
+  
+See, I remember it all now. I can barely think most of the time. Can you imagine it? Thousands of years of memories, human experiences, pain, sorrow, joy. All packed into the brain of one human. I hope my next recycle is soon, just after I finish my notebook.

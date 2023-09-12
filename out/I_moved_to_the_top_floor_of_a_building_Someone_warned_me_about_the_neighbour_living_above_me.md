@@ -14,9 +14,9 @@ I had two more days off that I justified at work as what was needed to fully mov
   
 With that explanation, I shrugged it off and went about my day. The house was quiet throughout the day, and I spent most of the day putting things away and getting everything ready for some visitors. When I checked my mail for the first official address change letter from the bank, I found the lady downstairs. This time, she stopped me and looked me in the eye with a suspicious look and told me I better not be planning anything, because the man from upstairs would not like it and I didn’t want him to come tell me himself.  
   
-I shrugged it off again, feeling a slight chill running up my spine, but too worried about having everything ready. If I was careful enough, we wouldn’t disturb the lady too much, and I wasn’t planning on going past 3AM anyway. We’d be fine.  
+I shrugged it off again, feeling a slight chill running up down my spine, but too worried about having everything ready. If I was careful enough, we wouldn’t disturb the lady too much, and I wasn’t planning on going past 3AM anyway. We’d be fine.  
   
-That night, I had about 6 people in. It’s a studio, so even with 6 people it felt super cramped and uncomfortable. What saved it was that I met Lewis. He was a good looking, polite guy, my friend’s colleague, and she had insisted he was perfect for me, so we invited him along. I must say, I was agreeing with her. He had a charm about him that got me thinking about logistics if he were to move into about 1 hour of conversation. I had to push the thought away to preserve the independent part in me as much as I could, but at least I got his number.  
+That night, I had about 6 people in. It’s a studio, so even with 6 people it felt super cramped and uncomfortable. What saved it was that I met Lewis. He was a good looking, polite guy, my friend’s colleague, and she had insisted he was perfect for me, so we invited him along. I must say, I was agreeing with her. He had a charm about him that, about 1 hour into the conversation, got me thinking about logistics if he were to move in. I had to push the thought away to preserve the independent part in me as much as I could, but at least I got his number.  
   
 It was about 1AM, when the woman from downstairs came to knock at my door and asked me once more about the man upstairs who would be very upset if I kept the party going. At this point, I was slightly altered by the drinks we had, and I just told her sure, I would be careful, and slammed the door in her face to go back and keep my conversation with Lewis going.  
   
@@ -52,11 +52,11 @@ As my text was going out, I thought I heard the same knocking again coming from�
   
 My breath stopped, froze in my throat, as for a second, the pattern in the mirror looked like a human face.  
   
-As I took one step behind to look at it again in a better light, a hand broke through the mirror and shot straight towards my neck. I spit out the foam in my mouth to give space for coughing, as I panicked and went into shock.  
+As I took one step back to look at it again in a better light, a hand broke through the mirror and shot straight towards my neck. I spit out the foam in my mouth to give space for coughing, as I panicked and went into shock.  
   
 Out of the mirror, now with a completely dirty and disgusting look to him, Lewis had just broken into my house through the mirror and I had no idea of what was next.  
   
-I fell to the floor, his hand squeezing tighter as dropped on top of me with a manic smile slashing through his face. He squeezed so hard that as he brought his face closer to mine, full of glass cuts, I thought my neck was about to break.  
+I fell to the floor, his hand squeezing tighter as he dropped on top of me with a manic smile slashing through his face. He squeezed so hard that as he brought his face closer to mine, full of glass cuts, I thought my neck was about to break.  
   
 “No noise in the building, bitch!” -  he hissed next to my ear. - “ You were told not to make noise late at night. I don’t like noise!”  
   
@@ -68,7 +68,7 @@ I started coughing, feeling my side bruise when he threw me to the floor into th
   
 When I finally got some clarity in my head again, just before he grabbed me by the hair, all I thought was this was not the way I was going. He lifted me up and punched me in the face hard enough to completely knock my loose teeth off, but when he did, I punched back. Accidentally, I hit his chin, which broke my middle finger, but dazed him enough for me to slip away and launch myself out of the window into the fire stairs.  
   
-I took the first steps down until I heard him screaming my name from the apartment. I could feel myself losing control of my voice due to the amount of adrenaline and panic surging through me, and all I could do was scream uncontrollably almost to the point of almost ripping my vocal chords as I stumbled down the metal stairs. I ran to the nearest coffee shop, listening to his footsteps running after me and catching up, and only stopped once I was inside and huddled behind the counter with all the staff and customers asking me what was going on and if I was ok.  
+I took the first steps down until I heard him screaming my name from the apartment. I could feel myself losing control of my voice due to the amount of adrenaline and panic surging through me, and all I could do was scream uncontrollably almost to the point of ripping my vocal chords as I stumbled down the metal stairs. I ran to the nearest coffee shop, listening to his footsteps running after me and catching up, and only stopped once I was inside and huddled behind the counter with all the staff and customers asking me what was going on and if I was ok.  
   
 Through my blood and pain, I could see he wasn’t among the people approaching me, and when I realised that and my system recognized I was safe, I passed out.  
   
@@ -78,4 +78,4 @@ The reason why the real estate agent was trying to sell the house so quickly, wa
   
 I think the lady from the ground floor could see Lewis through her mirror as a threat whenever she made any noise at night, and she wanted to warn me about him but couldn’t because of her frail brain. He was upstairs from her and me at the same time, being able to crawl in between all the apartments.   
   
-I’m not sure how he managed to convince my friend to invite him to the party, but he also convinced me he was a great guy, husband material, so who am I to question that. All I know now, is that I need to move somewhere else because he was never caught and I’m afraid he might come back to break more than my teeth and my nose. I just hope the next victim isn’t you instead of me.  
+I’m not sure how he managed to convince my friend to invite him to the party, but he also convinced me he was a great guy, husband material, so who am I to question that. All I know now, is that I need to move somewhere else because he was never caught and I’m afraid he might come back to break more than my teeth and my nose. I just hope the next victim isn’t you instead of me.
