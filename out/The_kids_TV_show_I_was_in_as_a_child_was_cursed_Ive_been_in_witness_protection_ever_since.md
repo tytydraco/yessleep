@@ -374,13 +374,13 @@ In the late 1500s, our town begged him to save their dying women, and he did, in
 
 When I pledged myself to him at the age of eight years old, I did not tie my fate to becoming his meal. Instead, I am to become his right hand, or I guess, part of his “pirate crew”—and starry eyes will be the first sign that he’s pulling me over to his side. Every day since being brought here, they check my eyes three times a day. Robbie escaped five years ago, and his giving in stopped the endless earthquakes. 
 
-But his sacrifice didn't stop the daily executions which show up on the TV screens. For every day we are not handed over to him, another innocent town's person's head is  severed from their body. Last week, Evangeline didn’t turn up to class (where we learn about Nibaru and his effects on us). Water, moonlight, and the sea are three main instigators in capturing us, so we drink water blindfolded, and there are no windows inside this facility. 
+But his sacrifice didn't stop the daily executions which show up on the TV screens. For every day we are not handed over to him, another innocent town's person's head is  severed from their body. Last week, Evangeline didn’t turn up to class (where we learn about Nibiru and his effects on us). Water, moonlight, and the sea are three main instigators in capturing us, so we drink water blindfolded, and there are no windows inside this facility. 
 
 The sea is blocked out, mostly through headphones we have to wear at all times. So it gets lonely. 
 
 Evangeline locked herself in her room and refused to come out. 
 
-When orderlies dragged her out, kicking and screaming, I saw Evangaline’s eyes.
+When orderlies dragged her out, kicking and screaming, I saw Evangeline’s eyes.
 
 Stars.
 
