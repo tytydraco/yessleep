@@ -1,4 +1,4 @@
-[Part 2](https://reddit.com/u/Australiens_exist/s/TsSvAWDD2a)
+[Part 2](https://reddit.com/r/nosleep/s/US39dvkBiG)
 
 This story will be long and I apologise in advance, you're welcome to skip to the end to get the crux of it all. I know what it is, ive read nosleep enough, the one thing all the stories leave out though is what to do when you find yourself a target of one. Maybe someone can help, at this point I don't even know if I'd have the energy to fight it anyway. Regardless, I'll begin.
 
