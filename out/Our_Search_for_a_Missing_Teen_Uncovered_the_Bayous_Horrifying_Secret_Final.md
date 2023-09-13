@@ -86,7 +86,7 @@ As Lupin stepped further into the dim light, the play of shadows on his face hig
 
 "Do you find my true form unbecoming, mon cœur?" he asked, a sneer tugging at the corner of his mouth.
 
-"You looked better in the before photos," I retorted, keeping my eyes locked on his.
+"You looked better in the profile picture," I retorted, keeping my eyes locked on his.
 
 "You survived my embrace," Lupin said, his voice a coarse blend of human and animalistic tones. "I’m impressed."
 
