@@ -1,0 +1,23 @@
+I moved into an apartment complex on the outskirts of Bangalore last year. It was a sparse area, The only structures present were the apartment complex, a small cigarette shop, and a huge, sprawling but abandoned and derelict engineering college.   
+I didn't think much of the engineering college since it was common for colleges to be abandoned in this part due to the lack of student enrollment. It was built in an unremarkable and plain style, like that of government buildings. 
+
+As much as I hate it, I am a habitual smoker and soon became a friend of the shopkeeper at the cigarette shop adjacent to my apartment. I eventually asked him about the abandoned college, and why it was abandoned. He was visibly shaken by my question and tried to change the topic, but I persisted.  
+I deeply regret asking him that question 
+
+The reason why this college was shut down was due to the various dead bodies of female students found in the college. apparently, the Dean of the institute invited the female students to his office and on the pretext of improving their GPA, raped them. He did this to various female students until one day, one of them threatened to go to the police. He became paranoid and killed the 5 female students he raped and then killed himself, exactly 31 years before I moved in. 
+
+Ever since I learned about this scandal, I have been having dreams of being in various spots in the college courtyard. All of these spots were visible from my balcony. Weirdly, I couldn't move in these dreams. it was as if I were glued to that spot. I could only look around myself at a 180-degree angle.  
+In all my dreams, the court appeared dark, only faintly illuminated by what I discerned as the moonlight.   
+I really dreaded having these dreams and I tried everything. I tried to listen to music as I slept, and I tried taking sleeping pills, hoping that it would make me sleep so hard that I couldn't dream. I even tried sleeping in parts, 3 hours at a time hoping that I couldn't dream in such a short period, but I dreamt of being in the courtyard every time I slept.   
+I kept having these dreams, regularly for 2 months. Until something horrible happened. 
+
+It was a stormy September night, and the visibility was really low. All I could see from my balcony window were raindrops, illuminated by the lights of my own apartment. Until weirdly, the lights in the college turned on. it emitted a bright yellow glow, of incandescent light bulbs. I was surprised that those lights were still working and that the college still had a mainline connection. I presumed that the current college owner must have hired someone to fix up the place, but in my subconscious, I knew something was very wrong. 
+
+I dreaded going to sleep that night, more than usual. eventually, I downed 2 sleeping pills and fell asleep.  
+I again dreamt of being in the courtyard, but this time the courtyard was illuminated brightly by the light bulbs. weirdly in this dream, I could move about freely, in all three dimensions. I could feel the presence of others, but couldn't see them. I felt as though I was standing in a bustling college, but couldn't see or hear the students.   
+for some reason I moved towards the entrance of the college, eventually entering the main building itself. I had never even stepped foot inside the college, let alone be in it, so it was very weird that I was dreaming of places that I have never been in. again for some reason I could sense that i was inside a busy place but without hearing or seeing people. It was as if my eyes were seeing people before my brains could register it and my ears were hearing sounds before my brain could process it. It was a really spooky and terrible feeling. I wanted to wake up so bad. 
+
+As soon i wished to wake up , I woke up, soaking wet and sat upright in my bed. this REALLY spooked me out. i began pacing around my room and looked out of the window. The storm still raged on, but the lights in the college was turned off. It was 3 in the morning, and i had NO wish to sleep again, so i browsed a bit about the college on my laptop.   
+a couple of old News media link came up, of archived news paper from that day 31 years ago. the article featured a few photos of the college interior , where I "dreamed" of being in, and it exactly matched how I dreamt it. 
+
+this is where I am now. I have hired a Sadhu to explain what is going on. I have no idea what will happen in the future. 
