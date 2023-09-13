@@ -1,6 +1,6 @@
 Sitting in the police station, I feel a sense of both dread and relief. 
 
-See, me and my friends (including my boyfriend) had been missing for over four months.
+Apparently, me and my friends (including my boyfriend) had been missing for over four months.
 
 It seemed like just yesterday I was on my friend's boat partying up and having a good time.
 
@@ -14,15 +14,15 @@ Now, they were all gone and it was a hard pill to swallow, knowing your friends 
 
 It was April of this year and we were on spring break.
 
-My boyfriend's best friend, Mark, owned a yacht.
+My boyfriend's best friend, Mark, owned a boat.
 
 It was to be a 2-week trip...
 
 Anyway, Mark, the owner of the boat was also an urban explorer/ghost hunter.
 
-He knew about this island that used to be a T.B. Hospital that was also rumored to be haunted.
+He knew about this island that used to be a T.B. Hospital and also, rumored to be haunted.
 
-In fact, it's said to be so haunted that It's prohibited except with special permission.
+In fact, it's said to be so haunted that It's prohibited to the except with special permission.
 
 During its heyday, Mark's great-grandfather had donated large amounts of money to the hospital so, he was able to obtain a permit to visit the island.
 

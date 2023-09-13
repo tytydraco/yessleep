@@ -284,9 +284,11 @@ I screamed, but I couldn’t move, I couldn’t open my mouth, my lips gaping, g
 
 “Hungry.”
 
-“Eat, Nibiru,” the voice made me jump. 
+“Eat, Nibiru,” the mayor's voice made me jump. 
 
-It was human, and real—nothing like what was suffocating my skull. Nibiru. The name sent shivers sliding down my spine. The pirate king. But he wasn’t real, right? I knew he wasn’t real.  “As you can see, we are keeping our side of the bargain,” his voice shook. “Our ancestors were… cruel to you in the past. But please. Have mercy on them.” He caught himself. “That is until they are ready, of course. You said you would leave the other children alone.”
+It was human, and real—nothing like what was suffocating my skull. Nibiru. The name sent shivers sliding down my spine. The pirate king. But he wasn’t real, right? I knew he wasn’t real.  “As you can see, we are keeping our side of the bargain,” his voice shook. “Our ancestors were… cruel to you in the past. But please. Have mercy on them.” 
+
+He caught himself. “That is until they are ready, of course. You said you would leave the other children alone.”
 
 *“Mercy.”*
 
@@ -296,7 +298,7 @@ I could taste blood in the back of my mouth and pooling down my chin when the pr
 
 The thing laughed, and I felt every hitch of its breath shake the ground beneath us, bringing the light fixtures crashing to the ground.
 
-Mayor Wethers bowed his head, and just like that, the thing was slipping from my head. I saw its movement in the way the candles flickered, flames dancing from side to side. The sound of chewing brought me back to fruition piece by piece. I could breathe again. I could blink my eyes, and still pressed against the ground, I could see Mia’s head trembling under the weight of the thing hovering over it. The force did not waste time. It wouldn’t let me see it. When I tried to, it was back inside my head.
+Mayor Wethers bowed his head, and just like that, the thing was slipping from mine. I saw its movement in the way the candles flickered, flames dancing from side to side. The sound of chewing brought me back to fruition piece by piece. I could breathe again. I could blink my eyes, and still pressed against the ground, I could see Mia’s head trembling under the weight of the thing hovering over it. The force did not waste time. It wouldn’t let me see it. When I tried to, it was back inside my head.
 
 “Not yet,” it said again, before returning to its meal.
 
@@ -328,7 +330,7 @@ It’s going to be okay!
 
 He forced me to look at him, and I did, blinking back tears.
 
- I could still feel her.*
+ I could still feel her.
 
 She was all over me, painting me, staining me.
 
@@ -340,9 +342,9 @@ Without mom, it wasn't. 
 
 I was alone with nobody but the other kids, and a town that wanted me dead. 
 
-The world seemed to move without me. I was standing outside the studio, and then I was in the back of an ambulance, a warm blanket thrown over me. Evangeline and Robbie were sitting opposite me, wide-eyed and staring into an oblivion only they could see. We didn’t make it to the emergency room. 
+The world seemed to move without me. I was standing outside the studio, and then I was in the back of an ambulance, a warm blanket thrown over me. 
 
-Sound came rushing back to me when I was standing on a white corridor, and Luke’s yell came from behind me. “I’m fine!” There were three people in white crowding him, one of them a man who was forcefully holding his eyes open and shining a bright light in his face. He snarled at them. “I told you I’m fine!”
+Evangeline and Robbie were sitting opposite me, wide-eyed and staring into an oblivion only they could see. Sound came rushing back to me when I was standing on a white corridor, and Luke’s yell came from behind me. “I’m fine!” There were three people in white crowding him, one of them a man who was forcefully holding his eyes open and shining a bright light in his face. He snarled at them. “I told you I’m fine!”
 
 The same people looked into my eyes the following day when I had stopped screaming and trying to tear off my own skin.
 
