@@ -46,7 +46,7 @@ Robert: No way!
 
 Person at the other side of the door: I heard there's a random prize giveaway organized by the Coca Cola company going on recently, seems like they picked you as the winner, it's your lucky day, sir!
 
-Robert (to self): Was about time Coke rewarded me for drinking their bottled cancer for ages!
+Robert (whispers to self): Was about time Coke rewarded me for drinking their bottled cancer for ages!
 
 Robert: You sure I don't even have to pay for the delivery fees?
 
@@ -71,3 +71,5 @@ Robert (YELLING) I'M CALLING THE POLICE!
 Robert (while looking at the clock): Thanks buddy, I owe you one! 
 
 *TIME ON THE CLOCK: 2:53 AM*
+
+*TAPE ENDS*
