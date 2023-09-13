@@ -1,4 +1,4 @@
-Sitting in the police station, I felt a sense of both dread and relief. 
+Sitting in the police station, I feel a sense of both dread and relief. 
 
 See, me and my friends (including my boyfriend) had been missing for over four months.
 
@@ -102,9 +102,9 @@ One by one, my friends were being dragged into the darkness of the hospital by s
 
 I ran but before I could escape, I fell.
 
-As I was trying to get back up, I caught a glimpse of the caretaker.
+As I was trying to get back up, I caught a glimpse of the caretaker's face.
 
-He picked me up and then carried me to Mark's boat. 
+He picked me up and then carried me over to Mark's boat. 
 
 I could hear my friends screaming just before the caretaker untied the boat.
 
