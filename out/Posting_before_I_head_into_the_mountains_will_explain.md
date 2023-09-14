@@ -122,6 +122,6 @@ Another photo of the fake me... but he was, he was on the ground beside Charlie.
 
 I'm really scared now but I can't stay here. I have to go out to the woods. I'll leave the climbing gear behind, it'll be fine... I just have to get out of town.
 
-This is just a prank right? I just won't climb to be safe.
+This is a prank right? I just won't climb to be safe.
 
 This can't be happening.
