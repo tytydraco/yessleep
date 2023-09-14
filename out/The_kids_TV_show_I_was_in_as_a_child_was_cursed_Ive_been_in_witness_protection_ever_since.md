@@ -416,13 +416,15 @@ The ground shook, and I grasped onto my bedsheets, holding on for dear life. Luk
 
 The alarms went off this morning. 
 
-I knew it was Luke escaping. It's been quiet ever since he left. Nobody has come to check my eyes. The hallways are empty. 
+I knew it was Luke escaping. It's been quiet ever since he left. Nobody has come to check my eyes. 
 
-There was another execution this morning. 
+The hallways are empty. 
+
+There was another execution. 
 
 This time it was Evangeline doing the honors, dressed in the filthy rags of her old costume, her pirate hat nestled on her head. I turned it off when she started screaming with laughter, throwing the severed head into a crowd of horrified looking faces. I saw my cousins among them, glaring at the camera as if looking directly at me. 
 
-When the crowd parted down the middle for a newly converted Luke wearing his costume, his pirate hat perfectly sitting on his head of curls, the stars in his eyes lighting up the dim morning, I destroyed my TV. 
+When the crowd parted down the middle for a newly converted Luke wearing his costume, his pirate hat perfectly sitting on his head of curls, and the manic stars in his eyes lighting up the dim morning, I destroyed my TV. 
 
 Maybe the bastard was right. 
 

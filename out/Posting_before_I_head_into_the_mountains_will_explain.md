@@ -40,7 +40,7 @@ I felt like an idiot for even having to type it out.
 
 Once again his response was instant. I almost spit out my drink.
 
-The first message had no text, it was only an image... an image of Charlie. My dog. But... but it wasn't Charlie, something about the dog in the photo was strange. If any random person saw the photos they would think, 100% that it was the same dog, but there was something wrong, something about the dogs eyes.
+The first message had no text, it was only an image... an image of Charlie, my dog. But... but it wasn't Charlie, something about the dog in the photo was strange. If any random person saw the photos they would think, 100% that it was the same dog, but there was something wrong, something about the dogs eyes.
 
 The dog had lifeless eyes, like there was nothing behind them. Completely dead.
 
@@ -58,17 +58,17 @@ Then I checked my second notification and felt a surge of nausea well up.
 
 It was the exact same video I was listening to...
 
-My hand were literally shaking as I typed 'That's... that's the one. The exact playlist..."
+My hands were literally shaking as I typed 'That's... that's the one. The exact playlist..."
 
 A notification popped up again only this time it took a minute or so.
 
-"Woah spooky. This is r/Glitch_in_the_Matrix material."
+"Spooky. This is r/Glitch_in_the_Matrix material."
 
 It was a random user.
 
 I started to type "Honestly I'm a little freaked out..." but I decided I wasn't going to say anything.
 
-I clicked off the page and started browsing some other posts. If this was bothering me I should just ignore it, it was obviously just one of those super unlikely coincides. Like that woman who met her identical twin overseas in a restaurant, or the guy who went on vacation to some random place and saw his missing neighbour. Something like that I thought.
+I clicked off the page and started browsing some other posts. If this was bothering me I should just ignore it, it was obviously just one of those super unlikely coincidences. Like that woman who met her identical twin overseas in a restaurant, or the guy who went on vacation to some random place and saw his missing neighbour. Something like that I thought.
 
 I should have let it go but as you can tell from reading this, I clicked back on the comment chain.
 
@@ -90,7 +90,7 @@ Same rain jacket on my coat stand, same pair of runners, same hair cut, same hei
 
 *It was me.*
 
-"What is this some elaborate prank. Who are you? Why are you doing this!"
+"What is this some elaborate prank. Who are you? Why are you doing this!?"
 
 I slammed my hands on the table in front me in anger.
 
@@ -106,7 +106,7 @@ Now I'm here writing this to you guys. I think I need to get out of the house. I
 
 They'd probably think I was trolling them taking pictures of myself...
 
-I gotta get out of here. There are some trails deeper in the mountains that I've always wanted to take, maybe this an excuse to? I'll bring my climbing gear and tbh I think I need to borrow a gun. I know it's crazy but the vibe for this is just way way off.
+I gotta get out of here. There are some trails deeper in the mountains that I've always wanted to take, maybe this is an excuse to? I'll bring my climbing gear and tbh I think I need to borrow a gun. I know it's crazy but the vibe for this is just way way off.
 
 I'm just threw up and am sweating right now. What am I supposed to do?
 
@@ -120,7 +120,7 @@ All it said was... 'DON'T GO' repeatedly... like a hundred times,
 
 Another photo of the fake me... but he was, he was on the ground beside Charlie. I couldn't see the face. It looked like he fell... he was... dead.
 
-I really scared now but I can't stay here. I have to go out to the woods. I'll leave the climbing gear behind, it'll be fine... I just have to get out of town.
+I'm really scared now but I can't stay here. I have to go out to the woods. I'll leave the climbing gear behind, it'll be fine... I just have to get out of town.
 
 This is just a prank right? I just won't climb to be safe.
 
