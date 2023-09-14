@@ -6,7 +6,7 @@ Yesterday I was on a random subreddit. It was just a mundane daily discussion th
 
 I wrote:
 
-"Getting ready for camping these weekend. Sitting here with a warm cup of coffee and listening to some tunes. Favourite slippers and dog is resting by the fireplace. Life is good."
+"Getting ready for camping this weekend. Sitting here with a warm cup of coffee and listening to some tunes. Favourite slippers and dog is resting by the fireplace. Life is good."
 
 I got a few responses telling me to have a good trip and to stay safe. On the account I posted I really don't share too much information. I always make a point to keep things private. I'm posting on a throwaway now but I don't think it'll help.
 

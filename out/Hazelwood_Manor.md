@@ -1,0 +1,31 @@
+June 3rd, 1990
+
+I was a very young boy at the time, barely being able to pronounce most words. My father was a plumber, and did not gain much money at the time. He was also a single father, as my mother disappeared only a few months after I was born. My father would tell me stories of this one house across the street.
+
+It was a mansion, with white walls and a black roof, and windows that always reflected the curious look of people who walked by. It almost seemed from another period of time, like those huge castles in fantasy movies. My father told me the people in that house were strange folk, almost never coming out of their bedrooms unless it was to inform my father of the broken pipe in their bathroom.
+
+My father always went there, however, as they would pay him a decent amount of money, about 50-100 bucks every time he went there, as opposed to his usual pay, which consisted of 10 bucks. He was very creeped out by it though, not just because of the general appearance of the mansion, but because he heard rats through the walls, there was a room of unsettling sculptures, etc.
+
+April 2nd, 1995
+
+The years went by, I was 8 years old. My father had gotten through a hard time, and so did I. My grandmother died, my father was diagnosed with tuberculosis, and he was wasting all of his money on alcohol to "enjoy his life while it lasted". I rarely ate food due to the fact we were extremely short on money. The only times I ate was merely a moldy piece of bread.
+
+I decided to start delivering packages to people, a small business which I was accepted into due to my hard situation. I gained a decent amount of money, and was pretty happy, until one day, I had to deliver a package to the mansion across the street, AKA the **Hazelwood Manor.**
+
+As I knocked on the door, I realized no one was home. Me, being a little kid, naturally got curious, left the package at the front door, and broke into the house. It was extremely dark, with only a few candles lightning the room I was in. I could hear noises through the walls, and every room seemed part of a huge maze. As I continued to walk through the manor, I noticed a room that was pitch black,, and emitted a horrible stench. I grabbed a candle from the living room, and lit up the room, only to find piles of meat which was rotten and had dried up blood covering it. 
+
+I got out of the room as fast as possible, already having a panic attack. As I ran to the front door, I heard it open. It was a woman with pale skin and a white dress, who I assumed was the housekeeper. I  hid under a bed which also emitted a rotten stench. As the woman walked into the kitchen, I saw something truly horrifying, which left me paralized. It was a creature, not even remotely human, and was completely white. It dragged itself across the floor, with arms so long they appeared to be tentacles, and legs which may have been even longer. It appeared to walk around the house on all fours, as it was too tall when standing normally. It had 1 eye, and that was its only facial feature. When it left, I ran as fast as I could, as I could hear a loud scream from behind, and the creature chasing me at full speed.
+
+I looked back once I exited the manor, when I realized there was silence, and the creature looked at me through a window, until it left. I was trembling, my legs could barely move, I was covered in sweat, and I was about to start tearing up. I went ahead and tried to tell the police about what I saw, but they just seemed to not care. 
+
+January 19th, 1999
+
+One day, I came home after I finished my shift, only to find several bottles of alcohol, blood, and the TV smashed. I panicked, as I realized my father had gone missing. I began tearing up as I contacted the police to help me find him. After carefully looking at low- quality footage from a CCTV camera, we saw that he ran at full speed towards the Hazelwood Manor, so we inmediately headed towards there. As they started exploring and taking the housekeeper outside, I quickly realized most of them had probably gotten lost due to the fact that the mansion was pitch black and seemed like an endless maze.
+
+I entered the mansion, only to get lost as well. However, just as I was finding a room with many lights, I saw, by far, the most traumatizing thing of my life. A huge snake-like creature dragged the mutilated and dismembered corpses of 5 officers. I looked at it with terror, as the creature turned to face me. I ran as fast as I could, as the snake chased me while slithering through the roof with the bloody corpses of the officers. In  repeated occasions, it tried to attack me with the bodies, making them kick me and try to knock me down.
+
+I managed to find a room which I inmediately locked, and gave a huge sigh of relief as the snake stopped giving chase. However, this relief would not last for long, as I realized I was in the room of sculptures. It looked like any other room, with the basic furniture, except there were poorly-made statues with most of them having severe damage. I blinked for half a second, when I realized they turned to face me. As I blinked the second time, they seemed to move, even by a little. However, I did not realize this, as their movements were subtle and they always maintained the same position, however, they were in a different place. By the time I figured it out, they were basically infront of me, so I exited the room very carefully, making sure not to blink. However, when I did, they began giving chase, no longer affected by whether I blinked or not.
+
+I ran as fast as I could, being already exhausted from running from the snake. So, I grabbed a rusty hammer from the ground, and with all the courage in me, started smashing them, as they were made from porcelain. They eventually overwhelmed me, but a police officer managed to stop them. He was bleeding profusely, and could barely walk, but he helped me get out of the building. We did not spot any more creatures along the way, but we were both heavily traumatized by the horrors inside.
+
+&#x200B;
