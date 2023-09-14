@@ -248,7 +248,7 @@ We drove Gabby back to her home, where her mother, Therese, was waiting. The mom
 
 —
 
-Returning to New Orleans, I resumed my relatively mundane life as a private eye. The days now consist of trailing cheating spouses, conducting background checks, and occasionally finding a missing pet—tasks that seem trivial compared to the recent events in the bayou. Yet, the regularity, the humdrum routine, is a comforting balm to my frayed nerves.
+Returning to New Orleans, I resumed my relatively mundane life as a private eye. The days now consist of trailing cheating spouses, conducting background checks, and occasionally finding missing pets—tasks that seem trivial compared to the recent events in the bayou. Yet, the regularity, the humdrum routine, is a comforting balm to my frayed nerves.
 
 Our physical wounds eventually healed, but the emotional ones still feel raw. Ash, my one constant, knows my traumas better than anyone else. He never presses for details, never pushes me into reliving the dark moments that haunted my dreams. His love and understanding are an unspoken promise, a sanctuary where I can escape the horrors that my past and my profession sometimes conjured.
 
