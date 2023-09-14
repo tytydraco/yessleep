@@ -26,13 +26,13 @@ When I got to the shore where the men were making a commotion, I saw then what I
 
 You may now know them as 'Airships'. To modern sensibilities this would have been like seeing UFOs... Be 'ware, that these were not blimps or planes, rather more akin to what you see depicted now in 'fictional' media.
 
-It was a procession that I will never be able to forget. The first ship was entirely gold. At the bow stood a man in an ornate garb (or what I thought was at the time) waving to us with a beaming smile. Some of my fellow Aegeans cheered. It was truly a spectacle. Beside that man was a woman, but she was not able to hide her (quickly to be revealed) disdain, unlike her companion.
+It was a procession that I will never be able to forget. The first ship was entirely gold. At the bow stood a man (or what I thought was at the time) in ornate garb waving to us with a beaming smile. Some of my fellow Aegeans cheered. It was truly a spectacle. Beside that man was a woman, but she was not able to hide her (quickly to be revealed) disdain, unlike her companion.
 
 There were several of such ships that flew in tow. A ship which seemed to be perpetually aflame crimson and purple. One that was entirely platinum and cobalt, sparks of electricity jumping from a floating orb at it center, evidently a generator for the ships power. A stern and muscled man sat on a throne overlooking the rest of the fleet.
 
-Finally were the men in sets of completely silver armour flying, propelled by winged boots, their leader with staff in hand. The ships were en route to the palace.
+Finally were the soldiers in sets of completely silver armour flying, propelled by winged boots, their leader with staff in hand. The ships were en route to the palace.
 
-Many of the men found the spectacle amusing and began to chatter excitedly. Some, like myself were not, for we knew "Those who come for peace, don't flaunt weapons of war".
+Many of the people found the spectacle amusing and began to chatter excitedly. Some, like myself were not, for we knew "Those who come for peace, don't flaunt weapons of war".
 
 I got to the palace just in time to confirm my fears.
 
@@ -56,7 +56,7 @@ I got to the palace just in time to confirm my fears.
 
 "Betrayer..." the King said as blood spattered from his mouth.
 
-At this the Silver clad man raised his hand and clenched his fist and a loud sound was emitted from the golden ship. At that the archers aboard began to release their arrows on the people. The bloodshed was unlike any battle known to us. It was a slaughter. I looked up to the man and woman on the golden ship as the arrows flew. They were laughing. Laughing like it was the funniest thing they had ever seen.
+At this the Silver clad captain raised his hand and clenched his fist and a loud sound was emitted from the golden ship. At that the archers aboard began to release their arrows on the people. The bloodshed was unlike any battle known to us. It was a slaughter. I looked up to the man and woman on the golden ship as the arrows flew. They were laughing. Laughing like it was the funniest thing they had ever seen.
 
 I detested them.
 
@@ -86,7 +86,7 @@ As for the how I'm writing this to you, that, I can not fully answer. What I rec
 
 I was able to sneak aboard a ship as a stowaway and return to the capital. The entire place was filled with slaves working for who knows what ends. I made it back to my home. I knew I wouldn't find Hildeklauss but, nonetheless, it was still crushing.
 
-What happened then though I can only describe as fate. The man who had been placed in my home happened to work one the private estates of the Atlantean known as 'Chronos'. We decided on a plan. The next evening I would confront Chronos and find out what the Atlanteans were planning.
+What happened then though I can only describe as fate. The slave who had been placed in my home happened to work one the private estates of the Atlantean known as 'Chronos'. We decided on a plan. The next evening I would confront Chronos and find out what the Atlanteans were planning.
 
 The last thing I remember was sneaking into his room. I lunged at him, somehow I surprised him. The look on his face was uncanny, as if he had never been surprised about anything. My blade pierced him and he winced in pain. I think catching him off guard is the reason I was sent to this time. In his pain I believe he reacted without thinking and somehow sent me to 2023.
 
