@@ -1,0 +1,23 @@
+The night was cold and dark as death itself when the Titanic set sail on its maiden voyage. When i first heard about the Titanic beeing build, i saved up money to be able to attend its first trip. I was young, and i knew that something like this happens only once in your life. After 26 Months of building, it was announced that the Titanic will set sail on April 10th in 1912. When i went on board, i was so excited to be one of the first People beeing on this Ship. 
+
+Its size was enormous, bigger than any Ship that had ever been build at that Time. It was like  village on the Sea. Everybody said she was unsinkable, or so they thought. I spent the next 4 Days drinking, exploring the Ship an talking to the other Passengers. Everybody seemed delighted about the Service of the ship. That all changed when it became dark.
+
+I was on the foredeck looking into the darkness of the sea. Then i noticed something. A faint glow, deep down in the dark. It was a light blue light, it looked cold as ice. They were enourmus. From my Perspective they looked small, but because of the Size of the ship, i determined that it had a diameter of at least 3 meters. The longer i looked at it, the more i noticed that i started to feel cold. This was odd, since i had a Jacket on. Then i saw 2 other orbs appear to the left and right of the first orb. For about 10 seconds, they just stood still. Then, they startet to glow stronger and stronger and vanised completely. I was processing what just happened when the whole ship startet to shake, and i heard  screeching of metal.
+
+As i looked to the front of the ship, i saw a giant iceberg. The iceberg was so high, i could see the top of it from the deck. I was horrified as i realised that the ship could start to sink. I looked to the lifeboats and saw a bunch of crewman preparing them for departure. While the deck slowly began to fill with Passengers, i saw the musicians with them, entertaining them with music and trying to distract them from the danger. I later found out that none of them survived.
+
+While the lifeboats were lowered into the dark of the ocean, some passengers refuse to leave the ship, statig that it is unsinkable. If only they had known what this acceptance would cost them. The Crew said that only Women and Children are allowed to get on the Lifeboats first, which angered a lot of the single male passengers. During this Time, i noticed that the iceberg had began to grow bigger. I thought i was hallucinating until i heard a loud roar and the ship started to shift with the foredeck towards the surface of the Water. I panicked and jumped in the nearest Lifeboat, which was Lifeboat 15. When the boat was in the water and drifting away from the Titanic, I heard another roar and saw a large maw, ragged with long sharp teeth come out of the darkness of the sea and tear off a large chunk of the foredeck, almost taking the front chimney with it, before it vanished into the dark. All around us we heard screams, cries for help and the moaning of the sinking ship, all illuminated by a red glow of an emergency rocket fired by one of the crew members of the Titanic.
+
+While the ship was slowly sinking into the dark depths of the North Atlantc ocean, the giant monster that destroyed our ship re-surcaed fully. It was as long as the Ship and had cold, blue skin, with its back covered in ice. Its skin was covered in barnacles and scars from countless encounters with other ships over the centuries. Its Eyes, large and unblinking, glowed with an eerie blue light, fixated on the Titanic.
+
+As the ships rear was swallowed by the dark, cold Water, it let out a final roar and decended into the dark depths of the Sea. As it became quiet around us, we were left with a haunting truth. The Titanic had not met its fate at the hands of an ordinary iceberg, but by the malevolent will of a monstrous sea creature that had lurked in the depths for centuries, a creature thad had chosen that night to rise from the abyss and claim the ill-fated ship as its own.
+
+The Titanic\`s sinking became a legend, a tragedy of unspeakable horror that left a scar on the collective memory of the world. And deep beneath the waves, the creature returned to its waterly lair, its monstrous appetite sated for now, but always lurking, waiting for the next ship to cross its path in the dark, frigid waters of the North Atlantic. 
+
+I tried to find it. Countless times. But i think it knew that i was searching for it. It almost seemed like it was mocking me for my inability to find it. I am an Old Man now. I wasted my life to find this thing and i never did.
+
+&#x200B;
+
+&#x200B;
+
+&#x200B;
