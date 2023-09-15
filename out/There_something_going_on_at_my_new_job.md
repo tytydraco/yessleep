@@ -1,6 +1,4 @@
-There something going on at my new job...
-
-All of this started last month. I had been out of work for a while and my Uncle told me a friend of his was looking for people for his company. I don't have much experience so basically I was going to take the job regardless, but when I asked him what they do he told me he didn't know. He said they were in 'manufacturing' and were doing really well; it would simple work.
+All of this started last month. I had been out of work for a while and my Uncle told me a friend of his was looking for people for his company. I don't have much experience so basically I was going to take the job regardless. He said they were in 'manufacturing' and were doing really well; it would be simple work.
 
 My uncle told me it was a casual company and the boss was a really nice guy. I didn't need to do a formal interview. All I had to do was introduce myself and explain my situation.
 
@@ -106,7 +104,7 @@ Everyone looked up from their work, nearly all of them smiling.
 
 Everyone seemed genuinely happy. Everyone other than two guys in the back row. Something about their 'grins' seemed forced. Maybe they were having a bad day... that sense something was weird crept up again but I pushed it away.Dharbinder lead me out of the building and wished me well and said she would see me tomorrow.
 
-I don't know if was reading too much into it, but it seemed like as soon as she was finished with the 'formality' of politeness, a switch happened. I barely could tell because as soon as she said goodbye she turned around sharply and I swear all the emotion she had a second prior was gone completely. The door snapped shut behind her.
+I don't know if was reading too much into it, but it seemed like as soon as she was finished with the 'formality' of politeness, she changed. I barely could tell because as soon as she said goodbye she turned around sharply and I swear all the emotion she had a second prior was gone completely. The door snapped shut behind her.
 
 As soon as I got home I called my uncle and told him what had happened. He was happy for me. I asked him how well he knew Blane and he told me they had met a few times at various parties and events but they weren't that close. He didn't seem surprised when I told him that Blaine apparently had been friends with the Governor.
 
@@ -120,7 +118,7 @@ I got to work early to orient myself. I saw no one until I got to the shipping d
 
 "Hello Dharbinder..."
 
-"Oh hello OP" she said snapping herself out of here train of thought.
+"Oh hello OP" she said snapping herself out of her trance.
 
 "Is everything alright?" I said
 
@@ -174,7 +172,7 @@ Thirty dollars an hour to put a sticker on a box?
 
 A few weeks went by without much happening. Occasionally they would have me inspect some of the items prior to packaging for QC. There were just small plastic disks... apparently they were used as industrial washers for machinery or something. It still seemed hard to believe that such a simple thing would create this much business.
 
-I tried to get to know some of my co-workers but if they weren't being addressed by one of the office staff they were awfully quiet. Maybe they were getting paid well too I thought. They also at lunch at a different time so I really never had a chance to talk with them. All day long I tried to keep busy sweeping and organizing documents but I could only do that so much.
+I tried to get to know some of my co-workers but if they weren't being addressed by one of the office staff they were awfully quiet. Maybe they were getting paid well too I thought. They also ate lunch at a different time so I really never had a chance to talk with them. All day long I tried to keep busy sweeping and organizing documents but I could only do that so much.
 
 One day I walked over to one of the men I had seen on the first day at the back of the shop. I was inspecting some of the product he had made and they were slightly off.
 
@@ -258,7 +256,7 @@ Blane looked me over, like he was assessing if what I told was true.
 
 "Right... great. Good. Good. It's uh... These are prototype washer the R&D team just designed for a very important contract. It has to be perfect." I could sense he was relieved. Like his anxiety had been switched off. He started grinning in a guise of confidence, his forehead damp with sweat.
 
-He grabbed my shoulder. "OP, buddy, just take it easy alright. I don't need you to go above and beyond... just do your assigned tasks. "Easy right?" he started laughing loudly, his grip on my shoulder tighter probably then he thought.
+He grabbed my shoulder. "OP, buddy, just take it easy alright. I don't need you to go above and beyond... just do your assigned tasks. Easy right?" he started laughing loudly, his grip on my shoulder tighter probably then he thought.
 
 The workers around us noticed and started to laugh along with Blane even though they had no idea what was funny. Dharbinder was laughing now as well.
 
@@ -274,10 +272,90 @@ Dharbinder gave me an eerie knowing grin, her eyes squinting at me.
 
 When I just about to leave I saw an armoured truck pull up to one of the bay doors. It was painted black. They must have been the courier for the shipment... An armoured truck and armed guards?
 
-Something about this doesn't sit right at all, and why would Blane lie about the vials?
+Something about this doesn't sit right at all, and why would Blane lie about the vials? It's like they know. Maybe they all know? Dharbinder and Thang-Hui definitely. 
 
-It's like they know. Maybe they all know? Dharbinder and Thang-Hui definitely. What is in these vials and what is with all the secrecy? Honestly if it wasn't for the money I would quit, but how can I turn down thirty dollars an hour for putting a label on a few boxes?
+What is in these vials and what is with all the secrecy? Honestly if it wasn't for the money I would quit, but how can I turn down thirty dollars an hour for putting a label on a few boxes?
 
-There has to be a logical explanation. I'll check out the 'second shop' and update if anything else happens.
+There was a logical explanation. I was going to find out what it was.
+***
+For the next week the only thing on my mind was the vials. I had to find an opportunity to get to the second factory. A few days later an opportunity presented itself. Blane had taken the day off and wouldn't be in the shop. I knew it was then or never. But how?
 
-Maybe I just need to lighten up? Laugh a little.
+"Thang..." I said. The scene I had been mulling over in my mind all morning finally playing out.
+
+"There is a special shipment going out today... I uh... I need to speak with them in the second factory." it sounded better in my head when I was thinking about what I would say this morning.
+
+He looked at me an eyebrow raised high. Even though the other workers around me were saying nothing, their silence became even more punctuated as they listened in.
+
+"Second factory? No. No need. Why you go?" he said.
+
+"Yes, well, umm... Blane is away today but he told me it was very important. Dharbinder is busy as well." he knew it was bullshit.
+
+"I need the code to the door Thang."
+
+He looked down at the floor weighing his thoughts carefully. Like this was something he had thought about many times before. The second factory... 'Doesn't matter, just do job, just work'. He looked at me intensely, then he turned opening a drawer removing a small pouch. He carefully opened the pouch and removed a card, staring at it before he finally passed it to me.
+
+***Jaques LePont - Genetics. Primary Clearance***
+
+A clearance card... he must have found the card somehow. How long had he had this? Had he ever been? Did this James still work here?
+  
+"I don't know..." he stopped. "Be careful" was all he said.
+
+I grabbed the key and ran to the door. The key card reader lights blipped. What would I say when they saw me? Surely they wouldn't believe me. The door opened and I looked down the stairs.
+
+There wasn't a sound.
+ 
+When I got to the bottom I was extremely confused. There was nothing other than a large empty room. Unused space? Why? I walked forward through a series of interconnected empty rooms. Where was this second factory? This made no sense. I felt like I could get lost down here. I had already made my way down two other sets of stairs.
+
+Finally something. A large steel door with a sign above it "Genetics & Bio-Devolpment". There were filing cabinets in this room. I tried a few of them but they were all locked. Suddenly I heard the steel doors open. I ducked, looking out from behind a potted plant. It was the men in the suits with the containers. What I heard next was chilling.
+
+"NO! PLEASE NO!" A loud terrified yell came from the doors. The men who were en-route to an elevator door across the room turned and looked where they had just come from. Suddenly I saw the most grotesque looking man I had ever seen dash from the doors. His skin was the texture and color of a dried cranberry and his eyes were completely white.
+
+An alarm sounded. Armed men ran out into the room. The humanoid figure shrieked like a wyvern, the sound inhuman. Suddenly his flesh started to rip and expand. The whites of his eye became black and scales grew instantaneously from his back and on his chest.
+
+**"CODE RED. CODE RED."**
+
+The men began to fire their assault riffles. The creature charged towards them and began to pummel one of the men. The man kicked the horrific figure off of him. It was weak from barrage of ammunition it took moments earlier. Suddenly a team rushed out and began disinfecting the area. They put the figure in a bag and dragged it away. The steel doors shut behind them. The men with the carts carried onward to the elevator as if nothing had happened.
+
+I tried to control my breathing, nearly hyperventilating. As soon as the elevator closed I booked it. I had never ran so fast in my life. The slew of empty rooms now seeming like a maze. I had to get out. I just had to keep going. I finally reached the doors to the first factory.
+
+I pushed the doors open tears streaming from eyes. What had I just witnessed. I avoided eye contact with everyone and speed walked towards the exit. Just then the doors to the office flung open. It was Blane... Blane and my uncle. It felt like the wind had been knocked out of me.
+
+"OP!" My uncle said happy to see me. "Hope you don't mind I stopped by."
+
+"Uncle... I.. I..." my face still damp with tears. My uncle and Blane looked at me concerned.
+
+"OP are you crying?" my uncle said.
+
+"No." I said wiping my face. "I just... I had something in my eye. I'm fine"
+
+Blane looked towards the doors of the second factory suspiciously and then back to me.
+
+"Blane was just showing me some prototypes of things he's been working on"
+
+Suddenly I had an awful realization. My uncle... my uncle was a biologist.
+
+I never knew what he did for work, other than that. He was a biologist. My stomach sank.
+
+"OP, I'm taking you out for lunch after this. Of course Blane gave the okay" he said smiling.
+
+Blane still suspicious looked at me wearily. "Right... that's fine."
+
+The two of them walked away towards the doors of the second factory.
+
+I was going to run, but now... how would I explain it to my Uncle? Was he involved? Why was he even here!? I leaned against some racking feeling like I was about to pass out.
+
+A hand on my shoulder. It was Thang. He looked at me expectantly, like he was trying to read what I had seen. My eyes were red from the tears. He stared a moment and nodded understanding that whatever it was I had seen down there was not something to be brought to the surface.
+
+"Hmm..." he paused and spoke "Doesn't matter. Just do job. Just work. Don't worry" 
+
+He turned and walked away.
+
+I saw Blane gesturing comically to the workers before he entered the doors to the second factory with my uncle. They all began to laugh.
+
+I couldn't run. I couldn't leave. My uncle was involved.
+  
+Part of me knew, I couldn't even quit.
+  
+It's a good job. I thought. Easy work, good pay. I looked up to my coworkers.
+  
+Maybe I just need to lighten up... laugh a little.
