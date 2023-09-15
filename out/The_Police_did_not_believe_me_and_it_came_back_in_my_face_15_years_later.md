@@ -1,10 +1,7 @@
 Today, on the 14th of September 2023,  i saw the "thing" that scared me the most as kid. Nobody knew who he was and where he came from. I was the only one to realize who he was.  
 
 
-When i was 5, i lived in a small town in between two major cities. It was a simple town but a nice one. A big park, a small mall with all the basic shops and a small primary school. I used to go to that school until the 3rd grade. The event of this story takes place two years before that.  
-
-
-unfortunately, this story is real and left me marked for life. Just typing this makes me anxious.  
+When i was 5, i lived in a small town in between two major cities. It was a simple town but a nice one. A big park, a small mall with all the basic shops and a small primary school. I used to go to that school until the 3rd grade. The event of this story takes place two years before that.
 
 
 When i got into the first grade, my parents decided to call my best friend's mother. The goal of the call was for me and my friend (lets call her A) to walk together to school since we both lived close to the school (less than a kilometer). Keep in mind that we were both 5 years old. We first walked the path with our parents for the first week. Everything went smooth and we both loved walking with our parents and having fun.  
@@ -55,4 +52,4 @@ When i got home, I called my mom and told her everything. She then told me somet
 
 As of now, I'm home and safe. I don't know what to do if he comes again but one thing is for sure. I won't sleep tonight.
 
-peace out 
+peace out
