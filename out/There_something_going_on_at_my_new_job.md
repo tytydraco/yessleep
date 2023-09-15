@@ -1,10 +1,10 @@
-All of this started last month. I had been out of work for a while and my Uncle told me a friend of his was looking for people for his company. I don't have much experience so basically I was going to take the job regardless. He said they were in 'manufacturing' and were doing really well; it would be simple work.
+All of this started last month. I had been out of work for a while and my uncle told me a friend of his was looking for people for his company. I don't have much experience so basically I was going to take the job regardless. He said they were in 'manufacturing' and were doing really well; it would be simple work.
 
 My uncle told me it was a casual company and the boss was a really nice guy. I didn't need to do a formal interview. All I had to do was introduce myself and explain my situation.
 
-It was only 20 minutes away. It was in the industrial complex near downtown. "Techline Industries" the sign on the front of the building said in bold letters. "Generic Name" I thought and made my way to the entrance building.
+It was only 20 minutes away. It was in the industrial complex near downtown. "Techline Industries" the sign on the front of the building said in bold letters. "Generic Name" I thought and made my way to the entrance of the building.
 
-"Hello!" said the woman in reception with a beaming smile as I walked through the doors.
+"Hello!" said the woman in reception beaming as I walked through the doors.
 
 "Hi. I'm here for a meeting with Blane" I said unsure of myself. I started to feel stupid. My uncle assured me that the position was casual and that Blaine was a personal friend so there was no need to dress up for the meeting but everyone in the office was wearing very nice clothes. The receptionist had a designer coat and handbag hanging behind her. Did they pay that well?
 
@@ -14,7 +14,7 @@ It was only 20 minutes away. It was in the industrial complex near downtown. "Te
 
 "Oh hi, Blane." She said "He's the boss" and started laughing like what she had said was some form of humor. The other office workers laughed along with her quietly. 'Okay...' I thought, must be some inside joke.
 
-This was my Uncle's friend Blane.
+This was my uncle's friend Blane.
 
 "Hello Sir" I said as I grabbed his hand. His grip was like a vice and my arm felt like a wet noodle as he shook it back and forth.
 
@@ -34,13 +34,13 @@ It sounded like an important position. I didn't have much experience, was he rea
 
 "With these numbers we need all the help we can get" he said again prompting laughter from around the room.
 
-Blane led me to his office. An assortment of novelties decorated the sleek decor; a signed football, awards and plaques for various things, a very expensive framed guitar, and a bunch of photographs with important people. I saw one of my Uncle and Blane among a group of other men in suits at what appeared to be some sort of event or gala. Beside that was a photo of Blane and what looked like the Governor fishing.
+Blane led me to his office. An assortment of novelties decorated the sleek decor; a signed football, awards and plaques for various things, a very expensive framed guitar, and a bunch of photographs with important people. I saw one of my uncle and Blane among a group of other men in suits at what appeared to be some sort of event or gala. Beside that was a photo of Blane and what looked like the Governor fishing.
 
 "Is that..." I said without thinking.
 
 "Oh that, that's me and Richard. Biggest fish I ever caught that day... he's doing well for himself"
 
-First name basis with the Governor? I knew my Uncle was friends with some powerful people but this surprised me.
+First name basis with the Governor? I knew my uncle was friends with some powerful people but this surprised me.
 
 We talked for about ten minutes, or I should say he talked, mostly about himself. Every time I tried to focus the conversation on the position he would almost brush it off as if it wasn't important and continue talking about the novelties around his office. Finally he trailed off, seemingly lost in his own thoughts.
 
@@ -74,7 +74,7 @@ This, this was a fresh start.
 
 Blocked? It was only fifteen minutes ago...
 
-We made our down a short flight of stairs and into the factory. Large tables filled with cardboard boxes. A worker to a table each. I couldn't see what they were doing exactly. It looked as if they would pour a bunch of packing peanuts into a box and then place a single small item, taping it up.
+We made our way down a short flight of stairs and into the factory. Large tables filled with cardboard boxes. A worker to a table each. I couldn't see what they were doing exactly. It looked as if they would pour a bunch of packing peanuts into a box and then place a single small item, taping it up.
 
 The people were extremely focused on their tasks. It was almost robotic. As we walked along I still could not make sense of what they were actually doing. It looked like they were manufacturing small plastic disks. One to a box I thought? What a waste.
 
@@ -106,7 +106,7 @@ They seemed genuinely happy, other than two guys in the back row. Something abou
 
 I don't know if was reading too much into it, but it seemed like as soon as she was finished with the 'formality' of politeness, she changed. I barely could tell because as soon as she said goodbye she turned around sharply and I swear all the emotion she had a second prior was gone completely. The door snapped shut behind her.
 
-As soon as I got home I called my uncle and told him what had happened. He was happy for me. I asked him how well he knew Blane and he told me they had met a few times at various parties and events but they weren't that close. He didn't seem surprised when I told him that Blaine apparently had been friends with the Governor.
+As soon as I got home I called my uncle and told him what had happened. He was happy for me. I asked him how well he knew Blane and he told me they had met a few times at various parties and events but they weren't *that* close. He didn't seem surprised when I told him that Blaine apparently had been friends with the Governor.
 
 I wasn't going to say anything but I mentioned to him the 'weird' vibe I got from the place.
 
@@ -120,7 +120,7 @@ I got to work early to orient myself. I saw no one until I got to the shipping d
 
 "Oh hello..." she said snapping herself out of her trance.
 
-"Is everything alright?" I said
+"Is everything alright?"
 
 She chuckled smugly to herself and then said enthusiastically...
 
@@ -152,7 +152,7 @@ She clicked on the option that said 'express'.
 
 "It will always be this option. Yes?" I nodded again baffled by the program.
 
-She clicked on a button at the bottom of page that said confirm shipment.
+She clicked on a button at the bottom of the page that said confirm shipment.
 
 A loading icon appeared and a label popped out of the printer.
 
@@ -164,13 +164,13 @@ A loading icon appeared and a label popped out of the printer.
 
 "Now... get to work!" she said in a mock yell and started laughing as she walked away.
 
-I smiled and forced myself to laugh along "Okay thanks, Jesminder..." still stunned at the simplicity of the job.
+I smiled and forced myself to laugh along "Okay thanks Jesminder..." still stunned at the simplicity of the job.
 
 Thirty dollars an hour to put a sticker on a box?
 
 ***
 
-A few weeks went by without much happening. Occasionally they would have me inspect some of the items prior to packaging for QC. There were just small plastic disks... apparently they were used as industrial washers for machinery or something. It still seemed hard to believe that such a simple thing would create this much business.
+A few weeks went by without much happening. Occasionally they would have me inspect some of the items prior to packaging for QC. They were just small plastic disks... apparently they were used as industrial washers for machinery or something. It still seemed hard to believe that such a simple thing would create this much business.
 
 I tried to get to know some of my co-workers, but if they weren't being addressed by one of the office staff they were awfully quiet. Maybe they were getting paid well too I thought. They also ate lunch at a different time so I really never had a chance to talk with them. All day long I tried to keep busy sweeping and organizing documents but I could only do that so much.
 
@@ -212,7 +212,7 @@ I watched the men set the shipment in one of the homes and return to their table
 
 C3
 
-I walked over looking around making sure no one was watching. Blane had returned to the office. The pallet looked like all the rest; it wasn't wrapped though. I assumed the pick up would secure the shipment. One of the boxes wasn't taped shut. There was no reason I couldn't tape it up for them, it's not like I was doing anything.
+I walked over looking around making sure no one was looking. Blane had returned to the office. The pallet was like all the rest; it wasn't wrapped though. I assumed the pick up would secure the shipment. One of the boxes wasn't taped shut. There was no reason I couldn't tape it up for them, it's not like I was doing anything.
 
 I lifted the box and made my way to my desk, and that's when it happened.
 
@@ -224,15 +224,15 @@ Small suspended vials of different coloured liquid; green, yellow, and red...
 
 Was it blood? No.
 
-It wasn't blood I told myself. It was hydraulic oil or something? Green and yellow blood? No.
+It wasn't blood I told myself. It was hydraulic oil or something. Green and yellow blood? No.
 
-But then what was it? I looked at one of the vials closely. "BIO-Z 245R".
+I looked at one of the vials closely. "BIO-Z 245R".
 
 "What the..." I said stunned. BIO-Z? This wasn't a pharmaceutical company. Why were we sending this out? Was Blane shipping it for someone? But the men in the suits? The second factory. I started to panic, this was really bizarre.
 
 "Don't mess this opportunity up.' I heard my uncles voice echoing in my head.
 
-Why did the vials have a bio hazard symbol? The pallet and container were unmarked? Even if it was private courier, it could be unsafe. What was it that was in these vials? *Was it oil*...? I quickly put the vials I removed back into their floating cages and taped the box shut. I wanted the box back on the pallet and fast.
+Why did the vials have a bio hazard symbol? The pallet and container were unmarked? Even if it was private courier, it could be unsafe. What was it that was in these vials? I quickly put the ones I removed back into their floating cages and taped the box shut. I wanted the box back on the pallet and fast.
 
 I was halfway there when the office door flung open. It was Blane and Jesminder. Blane looked up at me and then towards C3. The blood drained from his face. He started speed walking towards me. I couldn't feel my legs, I was shook.
 
@@ -284,7 +284,7 @@ For the next week the only thing on my mind was the vials. I had to find an oppo
 
 "There is a special shipment going out today... I uh... I need to speak with them in the second factory." it sounded better in my head when I was thinking about what I would say this morning.
 
-He looked at me an eyebrow raised high. Even though the other workers around me were saying nothing, their silence became even more punctuated as they listened in.
+He looked at me an eyebrow raised high. Even though the other workers around us were saying nothing, their silence became even more punctuated as they listened in.
 
 "Second factory? No. No need. Why you go?" he said.
 
@@ -306,9 +306,9 @@ There wasn't a sound.
  
 When I got to the bottom I was extremely confused. There was nothing other than a large empty room. Unused space? Why? I walked forward through a series of interconnected empty rooms. Where was this second factory? This made no sense. I felt like I could get lost down here. I had already made my way down two other sets of stairs.
 
-Finally something. Large steel double doors with a sign above "Genetics & Bio-Devolpment". There were filing cabinets in this room. I tried a few of them but they were all locked. Suddenly I heard the steel doors open. I ducked, looking out from behind a potted plant. It was the men in the suits with the containers. What I heard next was chilling.
+Finally something. Large steel double doors with a sign above "Genetics & Bio-Development". There were filing cabinets in this room. I tried a few of them but they were all locked. Suddenly I heard the doors open. I ducked, looking out from behind a potted plant. It was the men in the suits with the containers. What I heard next was chilling.
 
-"NO! PLEASE NO!" A loud terrified yell came from the other room. The men who were en-route to an elevator across the room turned and looked where they had just come from. Suddenly I saw the most grotesque looking man I had ever seen dash from the doors. His skin was the texture and color of a dried cranberry and his eyes were completely white.
+"NO! PLEASE NO!" A loud terrified yell came from the other room. The men who were en-route to an elevator across the room turned and looked where they had just come from. Suddenly I saw the most grotesque looking man I had ever seen dash out from the lab. His skin was the texture and color of a dried cranberry and his eyes were completely white.
 
 An alarm sounded. Armed men ran out into the room. The humanoid figure shrieked like a wyvern, the sound inhuman. Suddenly his flesh started to rip and expand. The whites of his eye became black and scales grew instantaneously from his back and on his chest.
 
@@ -319,7 +319,7 @@ The men began to fire their assault riffles. The creature charged towards them a
 
 I tried to control my breathing, nearly hyperventilating. As soon as the elevator closed I booked it. I had never ran so fast in my life. The slew of empty rooms now seeming like a maze. I had to get out. All I had to do was keep going. Finally I reached the doors to the first factory.
 
-I pushed them open tears streaming from eyes. What had I just witnessed. I avoided eye contact with everyone and speed walked towards the exit. I was almost outside when I saw them. It was Blane... Blane and my uncle. It felt like the wind had been knocked out of me.
+I pushed them open tears streaming from eyes. What had I just witnessed? I avoided eye contact with everyone and speed walked towards the exit. I was almost outside when I saw them. It was Blane... Blane and my uncle. It felt like the wind had been knocked out of me.
 
 "Look who it is!" My uncle said happy to see me. "Hope you don't mind I stopped by."
 
@@ -329,9 +329,9 @@ I pushed them open tears streaming from eyes. What had I just witnessed. I avoid
 
 "No." I said wiping my face. "I just... I had something in my eye. I'm fine"
 
-Blane looked towards the doors of the second factory suspiciously and then back to me.
+Blane looked towards the entrance of the second factory suspiciously and then back to me.
 
-"Blane was just showing me some prototypes of things he's been working on"
+"Blane is showing me some prototypes of things he's been working on"
 
 Suddenly I had a terrible realization. My uncle... my uncle was a biologist.
 
