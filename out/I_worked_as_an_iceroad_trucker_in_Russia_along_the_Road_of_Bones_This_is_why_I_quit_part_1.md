@@ -34,7 +34,7 @@ The man just kept staring, however, even as I got near. I was about to ask if he
 
 “Yakov, my name is Nikolai. Yes, I am a truck driver. Why do you not just ask me for a ride?”
 
-“Because I want you to prepare yourself,” he said cryptically, and then he would say nothing else on the subject, but simply told me he would come back once my cargo was loaded. I smiled and shook his hand, but as I walked away, I felt him staring at my back. Goosebumps rose on my arms and legs, even in the sun, and I wondered whether I had made the right call.
+“Because I want you to prepare yourself,” he said cryptically, and then he would say nothing else on the subject, but simply told me he would come back once my cargo was loaded. I smiled and shook his hand, but as I walked away, I felt him staring at my back. Goosebumps rose on my arms and legs, and I wondered whether I had made the right call.
 
 \*\*\*
 
