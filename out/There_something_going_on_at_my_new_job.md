@@ -10,7 +10,7 @@ It was only 20 minutes away. It was in the industrial complex near downtown. "Te
 
 'Oh you must be the new...'
 
-'Thanks Darla, I'll take it from here' said a large muscular man in a dress shirt wearing what must have been a very expensive watch. His dark hair was slicked back. He gave me a large grin and walked over, putting his hand out to shake.
+'Thanks Jane, I'll take it from here' said a large muscular man in a dress shirt wearing what must have been a very expensive watch. His dark hair was slicked back. He gave me a large grin and walked over, putting his hand out to shake.
 
 "Oh hi, Blane." She said "He's the boss" and started laughing like what she had said was some form of humor. The other office workers laughed along with her quietly. 'Okay...' I thought, must be some inside joke.
 
@@ -292,7 +292,7 @@ He looked at me an eyebrow raised high. Even though the other workers around me 
 
 "I need the code to the door Thang."
 
-He looked down at the floor weighing his thoughts carefully. Like this was something he had thought about many times before. 'The second factory...' He looked at me intensely, then he turned opening a drawer removing a small pouch. He carefully opened the pouch and removed a card, staring at it before he finally passed it to me.
+He looked down at the floor like was weighing something carefully. This was something he had thought about many times before. 'The second factory...' He looked at me intensely, then he turned opening a drawer removing a small pouch. He carefully opened the pouch and removed a card, staring at it before he finally passed it to me.
 
 ***Jaques LePont - Genetics. Primary Clearance***
 
@@ -314,7 +314,7 @@ An alarm sounded. Armed men ran out into the room. The humanoid figure shrieked 
 
 **"CODE RED. CODE RED."**
 
-The men began to fire their assault riffles. The creature charged towards them and began to pummel one of the men. The man kicked the horrific figure off of him. It was limp from barrage of ammunition it took moments earlier. Suddenly a team rushed out and began disinfecting the area. They put the figure in a bag and dragged it away. The steel doors shut behind them. The men with the carts carried onward to the elevator as if nothing had happened.
+The men began to fire their assault riffles. The creature charged towards them and began to pummel one of the men. The man kicked the horrific figure off of him. It was limp from the barrage of bullets it had just taken. Suddenly a team rushed out and began disinfecting the area. They put the figure in a bag and dragged it away. The steel doors shut behind them. The men with the carts carried onward to the elevator as if nothing had happened.
 
 I tried to control my breathing, nearly hyperventilating. As soon as the elevator closed I booked it. I had never ran so fast in my life. The slew of empty rooms now seeming like a maze. I had to get out. I just had to keep going. I finally reached the doors to the first factory.
 
