@@ -1,89 +1,171 @@
-***Entry Two*** 
-
-&#x200B;
-
-It’s been about thirty hours since I wrote that introduction. Please excuse the odd writing style, but without sunlight the word ‘days’ ceases to be applicable. Either way, I’ve managed to get some sleep since my ordeal in the forests. It’s been traumatic, to say the least.
-
-Allow me to recant the whole encounter, from where I left off last time.
-
-Leaving my home with all my supplies in a single backpack, I couldn’t help but notice the attention I was drawing. Those that were left – few though they were – were staring at me. I caught some of their gazes and saw a mixture of anger and sympathy. They regarded me still as a holy man, and perhaps my departure was some kind of betrayal to them. Regardless, they knew the news had spread. They knew who I had lost, and the lengths I would go to get him back.
-
-I reached the edge of the forest, approaching it not from my garden but from its former official entrance. A man named Robert had once been its formal caretaker, his family having owned the land since the nineties. Robert still lived in a tiny hut on the forest’s path, now fortified with barbed wire and spiked fencing. As I passed, the man himself emerged from within and stood to block my path. His rifle was aimed in my general direction as a warning. He knew better than anyone else what that forest did to people.
-
-“Don’t make me kill you to save you.” His voice trembled ever so slightly, and I saw his hands were shaking.
-
-I said nothing to him. As I walked past, he kept his gun aimed at my back. I could tell he was trying to pull the trigger, but something in him was stopping it before it was too late. He had it in him to kill me, but he chose not to. I’m thankful for that.
-
-The torchlights from the streets began to shrink as I made my way into the forest. I lit one of my own and illuminated the maze ahead of me, stewing in the silence for a few moments. I remembered this place before the eclipse. Taking only a few steps would disturb the wildlife. Every corner hid a rabbit, in every treetop a bluebird or starling, and sometimes you’d glimpse the orange flash of a fox or hear the gentle trot of a deer. Hours of fun were spent in this place, exploring and outrunning the darkness. It was a more innocent time.
-
-Change came swiftly upon the end’s hour.
-
-My steps provided a steady drumbeat, the pounding heartbeat in my head the only other sound to accompany my walk. Nature died long ago, it would seem. A part of me hoped that the end of humanity would not mean the end of the world, and that our natural extinction would prove beneficial to the Earth. All our toxic endeavours would be wiped away and our beautiful planet – humbly reminding its hosts that it did not belong to them – would thrive once more.
-
-Nothing remained on the path. I hoped for a skeleton, or a severed wing – anything to show me there was still hope. There was no sign of any life, no prints in the dirt, no rustling in the bushes, and no gentle flap on the wind. There were, however, deep gouges in the trunks of several trees. The part of me that likes to deny told me they were just the work of a bear, or maybe Robert’s handiwork from years prior. I was being idiotic. No bears lived in these woods, and no knife could make such marks, with such primal savagery.
-
-It is said in some Christian circles that demons are not the work of Satan but the work of man. They are icons of our sin, twisted to fit a more animalistic image so that we may look away from our faults and scorn them. It is as if they are living monsters. I had always believed the Devil was an allegory for humanity’s evil, a scapegoat for all our terrible deeds. I still believe that. Whatever happened to the world was not the work of God or His adversaries, but of a far greater horror. It is something I chose to hide from and ignore for most of my life, believing for a few scant years that my faith could save me from it.
-
-It is the unknown and the unknowable.
-
-I couldn’t tell you for how long I had been walking before I saw it. It felt like days. The complete silence and isolation caused time to crawl, and for all I know I could’ve been lost in that place for a year or a minute. Eventually, however, I stopped suddenly in my tracks at the sight of something ahead of me. At first, I believed it to be a long-awaited animal carcass, the gleaming white bone shining in the torchlight. As I approached, however, its features became clearer to me.
-
-Its surface was ivory in colour, but it was not the marrow I hoped for, to quell my fear of loneliness. God help me… it was a rabbit plushy, the same one I bought for my son at the town fair when he was a baby. Its marble black eyes reflected the blaze of my torch, and its floppy ears were crusted with dirt. I felt a lump grow in my throat, stinging tears growing in my eyes. I pressed the toy to my chest and sobbed quietly. On my knees in that terrible place, a piece of my son held close to me, I was overtaken by a concoction of misery, fear, horror and deep rage. My son is so innocent, so wonderful; it breaks my mind to think of how he must be feeling.
-
-I grit my teeth and steeled my resolve. Demon or not, the diseased bastards that stole him from me would pay in blood. An eye for an eye, a tooth for a tooth, their lives for my son. I placed the plushy in my backpack, and I intend to provide it for my lost boy when I find him. As I rose to my feet, I felt a rush of wind and heard a skittering in the woods. Whatever lurked within was close. It could sense me, I’m sure, if it hadn’t already been watching. 
-
-Naturally, I had no true plan. The forest leads to the world beyond, and any clue as to my son’s whereabouts would count as progress. Should I come across monsters and devils, however, I was dead in the water. I approached a wooden gate at the deepest part of the forest, fencing on either side of it stretching across in either direction. Carved into the top plank was a phrase or sentence I could not translate, the words appearing to be written in Latin. 
-
-This is usually the part in any good horror story where the protagonist reads the sentence aloud and inadvertently summons Satan or one of his associates. Generally speaking, if you happen upon Latin sentences inscribed by knife or claw into a place they shouldn’t be, it is advised that you run for your damn life. I won’t bother telling you what the words said, partly because I doubt I could ever transcribe them, but mainly because I wish not to curse myself. Sufficed to say, it unsettled me.
-
-Roaming deeper into the woods, my fear only intensified. I was unsure of what I should be more frightened: being alone, or sharing the forest with another occupant. My footsteps would occasionally be met with the sound of rustling nearby, or the gentle stomp of something heavy upon the ground, or a distant and incomprehensible shriek. Dread pervaded through everything, and the searing warmth of my torch was fighting a losing battle against the dark’s chill. I knew something was coming. Something was in this place, another life that stalked and watched me as I searched for the way to the other side. 
-
-And then I saw footprints.
-
-In truth, it would be a disservice to their horror to call them that. The marks were not of the usual boot or five-toed foot, instead they were cloven and curved, with stumpy points jutting out at random edges and ending in tiny barbs. It was getting harder and harder to ignore the reality of my situation, that I was preoccupying the forest not with a human being but with a hellion presence that sought my agonised, nightmarish end.  
-
-Steadying my hands, I drew the rifle upon my back and flicked off its safety. My community had been stockpiling weapons for weeks on end, right before the murders started, and for the first time in my life I thanked my father’s overbearing love of firearms. Without him, I’d have had to learn quickly. As soon as the gun was in my hands, I felt a rush of adrenaline course through me. Death was coming to meet me, head on, and its scythe could only be stopped by my hands. That felt like rather the novelty, in the moment. 
-
-In the distance, I saw a flicker of light. Another traveller, perhaps? The rival torch filled me with hope and dread in equal measure, but I decided not to take the risk. I ducked behind a tree and kept my gaze away from whatever it was, breathing through my nose and keeping my mouth shut. It turned out my instincts were correct, when I began to hear a disquieting noise. It sounded almost like suckling, like a pig on the teat of its mother. As I pressed my back against the tree, the noise became louder and harsher, accompanied by the tell-tale *swoosh* of fire. 
-
-I extinguished my own torch beneath my boot, hoping the presence would neglect to notice. Frantic thoughts raced through my mind. That writing on the gate, was it the work of this *thing*? No, no, it was human hands who carved the cursed phrase, and the gouges on the trees were done by the creature. I admit it was fear that pushed me to this conclusion; I refused to entertain the idea that monsters had evolved. If my theory was correct, however, it raised another question: had I wandered into a conflict between man and beast?
-
-All thoughts were drowned out as the suckling came closer. The noise was terrible, like the hiss of a serpent accompanying the wet squelches of an insect. I dared not imagine its source. The crucifix-headed horror that murdered my friend was but an introduction to the world’s new occupants, I think. My hands shook violently around my rifle, my eyes fixed on the forest ahead. Whatever was stalking me was close. I could feel the heat of the flames, I could see it approaching in my periphery. Was there a plan, if it came around the corner? Does anyone know what to do when the horrors rear their head?
-
-A long, shining blade curled around the trunk just above my head. I barely saw it, concentrating solely on holding in my panicked breaths and keeping still. I heard the metal scratch the bark, chipping away at the wood to carve something into its surface. My theory was at least half true – this was the beast that had made those gouges. I slowly glanced upwards, my finger squarely on the rifle’s trigger.
-
-The blade was curved like a scythe, portions of it rusted and coated in dried blood, while the tip was shiny chrome and glinting in the torchlight. Had this monster learned how to use human-made tools? I thought perhaps it was an intelligent thing, before I noticed at the base of the blade was a fleshy stump that connected the two, dark red lattices of flesh snaking from a crimson bone and into the weapon. It was not using the blade – the blade was an extension of the monster, a part of its natural body. After two more slices, the limb retracted and the sickly suckling began to move past me. I struggled not to scream as I bore witness to the creature’s whole form.
-
-It moved not on legs but on some slimy mass like a slug, leaving a vomit-coloured trail of slime in its wake. It smelled like vomit too, causing me to gag quietly as I held in my horror. Open sores leaked pus, its sloping body marked by burns and scars that pulsated with red light from beneath. The scythe-ended arm was only one of several bladed limbs, the others resembling medieval torture devices and antiquated weapons like axes and maces. In one of its spindly limbs it held a torch aloft, lighting its path. I should not have continued to look… I should have ran. I should’ve just ran…
-
-Around its stumpy neck – like the stem of a flower, it jutted upwards from the mass beneath – was what I can only describe as a horrific necklace of severed heads, bundles of exposed nerves threaded through the ears to connect them together. I counted a dozen on just one side. The eyes and several of the facial features had been crudely removed, leaving the heads almost unrecognisable as human. The expressions were indescribably horrific, twisted in complete, pure agony. This monster was no mindless animal hunting for survival – it was a butcher collecting trophies.
-
-Upon the neck was a wide, flat block of stone, carved like the pillars of a Greek temple. Its structure was deliberate and meticulous, not the random work of nature but the design of a living thing. The stone sunk into the flesh – another extension of the creature itself. The stone was the creature’s head, it seemed, almost resembling the letter T in its shape. Or perhaps a crucifix.
-
-The bible talks of demons as hooved, horned goblins with serpentine eyes and forked tongues. It tells us that they operate as keepers of the Devil’s will, enacting his great and terrible plan across the world. It tells us they whisper into the hearts and minds of good people to turn them against God, and that when a sinner reaches Hell, demons will torment him for eternity. I can now say for certain that no prophet, writer of scripture or disciple has ever seen a demon – a real one – for if they had, their faith in God would surely break at the sight.
-
-In a split second of pure disgust and fright, I moved from behind the tree and aimed my rifle at the horror’s back, firing a shot into its mass. The bullet pierced its flesh, spraying a thick tar into the air and across its body. There was no screech of pain, almost no acknowledgement of the wound at all. It stopped suddenly, however, and began to twist itself around to face me. Its stumpy neck cracked and strained but still it turned, its faceless stone head meeting my gaze. I felt an overwhelming amount of hatred emanating from it, palpably, like I could hear its innermost thoughts.
-
-I fired another shot into its bulk as it began to edge forward, one it ignored completely. That was all the confirmation I needed; I had to get out of there. I holstered my rifle and began to run, hoping desperately that I could escape the forest without drawing the ire of its monstrous occupant. As I sprinted through the quickly-lengthening grass, I began to notice bloodied carcasses hanging from nearby trees, and others nailed upside down to the bark. All were missing their heads.
-
-Had the abomination cut them all down? I turned back to see its torchlight far in the distance, and I breathed a momentary sigh of relief. The path ahead wound onwards towards the hills beyond. I had made it, and I was safe. Well, I thought so, until I heard a metallic scraping to my left.
-
-My head turned slowly in its direction, and I beheld a tall, multi-armed figure with dark blue, bulging skin and a stone crucifix for a head. My eyes widened in horror and I instinctively reached for my rifle. Its arms ended in scissor-like blades, the lower half of a person’s body still clinging to the bloodied metal. The demon was not alone. Others just like it swarmed the forest. I looked to my right and saw a beast of insectoid nature, its back opening to reveal veined wings filled with sticky tendons that plucked and pulled like a puppet’s strings.
-
-I considered, for a brief moment, aiming the rifle’s barrel at my chin, but the image of my son snuffed the idea out before it had a chance to form. The crucifix-headed beasts began emerging from every dark corner of the forest, wicked torchlight brightening their terrible visage. I had but one chance to escape, spying the end of the trees down a long, winding dirt path. My hope was that these butchers were confined to the forest, unable to leave its embrace and left with only the influence to lure travellers within. My friend had been careless, strayed too close to the woods, and he only escaped torture rather than death. Perhaps he was the luckiest of them all.
-
-Without another moment’s hesitation, I sprinted with all my might down the path and towards the end of the woods, my eyes locked onto the promised land beyond. This was only the first of many horrors; I could not fail now, not when I had only just begun. The ground beneath was uneven, and the fear of falling caught me for a second, but I pressed on. Injuries be damned, I had to escape. 
-
-The demons began their pursuit of me, scuttling and crawling and buzzing their way in my direction, faceless faces fixed upon my mortal frame. Death would be a welcome embrace compared to their tortures, innumerable and indescribable in their agonies. I was close, so close indeed to the end of the path, and I was but one footstep from the end when I was thrown onto my back by the force of something ahead of me. 
-
-A branch had jumped from seemingly nowhere and struck me in the chest, taking me off my feet in an instant. I was winded and confused, my breath ragged in my lungs as I struggled to get back up. I noticed that the branch was connected to a crude but functional rope and pulley system, rigged up in one of the nearby trees. I looked down at my feet and saw a tiny wire stretched between the base of said tree and another on the opposite side. It was almost invisible in the dark, especially so when my focus was on the escape. 
-
-Terror gripped me as I realised not only might I have failed, but that someone had created this trap solely to keep fleeing victims from their freedom. It could not have been the work of the butchers, their scythe-ended arms too cumbersome to fit such a device. I did not doubt that it was the one who inscribed Latin on the gate, the unseen survivor who evaded the demons and chose to feed their fellow human to the darkness. Whoever they were… I despised them.
-
-The monsters were closing in, and I had but one chance to escape. The trap had been clever but was clearly meant for slow or injured prey. I was neither. I scrambled to my feet and dove out of the forest and into the grass beyond just as my pursuers caught up to me. The tip of a blade caught the edge of my boot and sliced the leather, but I was unharmed. I looked back to see a multitude of stone crosses lunging at me, manically, but their bodies were kept within the woods by some unknown force. They could not step past the boundary.
-
-I breathed heavily and slowly stood to my feet. In amongst their hateful gazes I fancied I saw the centipede-like beast that murdered my friend, but I pushed away the thought. Revenge could wait. I kept close to the path and began to stumble away, finding shelter close by, which is where I currently reside.
-
-For the moment, I am safe. I’m resting, awaiting the moment I can resume my journey. Those butchers have me worried as to what horrors I will face ahead. If they were but the beginning, how bad will it get? Worse than that, however, are the questions I’ve been pondering ever since I left the forest. Who set those traps? Who inscribed those cursed words on the gate? What could drive a person to such… monstrosity?
-
-I fear the world outside is stranger than I imagined.
+“Lukas. He’s- he’s dead.” Ellie said, a clear terror in her voice, while I stood in the middle of my Penn State Dorm at 7 am , almost dropping the phone.  
+  
+I stood there for a while, silent for seconds without a word, processing what had happened to my best friend.  
+  
+“Lukas is dead?” I said, still struggling through the weight of what I just heard.   
+  
+“He was found dead in an alleyway, murdered .. ”   
+  
+“M-Murdered?” I felt shock and horror before my blood began to boil as rage flooded my body. “Who is the bastard that killed him!?”   
+  
+“That’s what I came to talk to you about.”  
+  
+“They found him?”  
+  
+“No, they didn’t find the culprit, but I.”   
+  
+“You know who it is? Then what the hell are you calling me for?! Your dad’s a cop, tell him and the police!”  
+  
+“They would put me in a hospital if I told them!  I don’t even know if I’m insane or wha!”  
+  
+“What can’t you tell them but you can tell me?!”  
+  
+“Andrew the way Lukas died,  do you have the stomach?”   
+  
+I was taken aback by the question, immediately horrified by its implications. Had Lukas’s murder been a grizzly ordeal? But what does Ellie know about the murder that makes her think she knows who did it? Why the hell was she not telling the police? What is this about her being crazy?   Is she connected with the murder somehow?   
+  
+  
+  
+  
+“Go ahead and tell me the details. I can handle it.” I said, with some false confidence admittedly. I’m not a squeamish person but like everyone else, there’s only a certain level of gore I can handle, especially if it was someone close to me like Lukas.  
+  
+“He,” Ellie hesitated to speak for a moment, almost as if speaking  further would cause her to puke out the food in her stomach. “He was burned, burned badly. But not burned in any conventional way. My dad was… he was the one who found him. From what he was willing to tell me, it looked like he was burned from the inside out like the fire had started from his internal organs, and then spread to his entire body. His eyes look like they bursted like balloons and if it wasn’t for the Driver license, they wouldn’t have been able to identify him.”  
+  
+I dropped my phone to the ground barely able to maintain my composure as memories flashing back to that day hit me.  
+  
+It was July 6th, the summer before my  senior year of university began,  and I was invited to hang out with Lukas and some of his friends at one of their houses. Now what enticed me to go to this was Ellie Bryne. When I saw her dark green eyes, rich brown hair, and a slender yet curvaceous body, I had a crush on her. When I got the chance to potentially make a move on her  I took it. A little while later,  I was sitting on the couch at that friend's house, and I was lucky to be sat right next to her.  
+  
+The group of people I was with, around 9 including myself, were sharing our own personal scary stories. Most of them were dumb stories about alleged encounters with ghosts or the supernatural. Mine personally was a made up encounter with the Moth Man. However Ellie's story stood out from the rest. I’m going to try to tell the story word to word from her own mouth.  
+  
+“I uh, well my family has a bit of legend they passed down for generations.”  
+  
+“A  legend?” Erica, one of the girls in the group, asked.  
+  
+“Well yeah.”  
+  
+“Well, do you feel like telling us?” I asked   
+  
+“Uhm, my mom doesn’t approve of me sharing it outside the family.”  
+  
+“Oh come on sweetheart, it’s not like they're going to know.” Lukas said.  
+  
+“I’m not sure, I mean the last time I tried sharing it with people outside my family was when I was 14 with a group of friends at my house, she slapped me hard multiple times for it.”  
+  
+I was hooked in, more so because I was genuinely intrigued by her story than the fact I was head over heels with her.  
+  
+“Well come on Ellie! Don’t be such a bore.” Samantha, a petite Goth chick who Ellie was close friends with, said.  
+  
+“Besides, why was your mom so particular about it?” I asked.  
+  
+She looked away for a second, a little hesitant about it.  
+  
+“She never gave me a proper answer. More like the whole ‘Very bad things will happen if you tell people about this.’ “  
+  
+“So what’s the story?” Samatha asked. “It’s not like she’s around to stop you.”  
+  
+Ellie thought about it for what felt like minutes before beginning with   
+  
+“Are any of you well versed in history, specifically British and Irish history?”  
+  
+“What part of that history specifically?” I asked. I consider myself pretty well versed in history especially European and American history so I thought I would know what she was talking about.  
+  
+“Around the time of the Protestant reformation.”  
+  
+“Oh yeah I know about that. Isn’t that when there were religious conflicts between the Irish Catholics and English protestants?”  
+  
+“Yeah, it was around the beginning  of the 17th century.The English were in the habit of seizing the land of Catholic Irishmen and replacing them with Protestant Englishmen. One of these pieces of land was a decently sized village, around 150-220  people with the local pastor of the village being a man named Sean Cormac. He led around 50 of his congregation in peaceful prayer and protest against the English and those.” Ellie stopped herself, clearly wanting to curse but not doing so.    
+  
+Something I found unusual was how she was telling this story more as if it was actual history. If I were to compare it would be what I would imagine a Native American would tell about the suffering their tribe went through due to westward expansion.   
+  
+  
+“They butchered the innocent men, women, and children and proceeded to burn the village to the ground.They tied up Sean Cormac to a stake preparing to burn him. He  swore his spirit would return from the grave and cast righteous judgment on the Englishmen as they laughed at him and his screams of agony echoed throughout the hills of Ireland. The Englishmen who butchered the village people seized the land and began to settle there. The men settled first, wanting to establish themselves, before they brought their wives and children. Around a year and a half in, as they were in the midst of building their various estates, they were not heard from for a period of six months as if they completely disappeared off the earth. When the English sent a surveyor to discover what happened and they saw a ghastly sight before them.”  
+  
+Ellie took a moment to pause. I think she was thinking of how to describe the scene in the most vivid and gorey details possible.  
+  
+“They found several of the men burned alive. But it was like they weren’t burned in the normal way, it was like someone had burned them from the inside out. Some of the men had their eyes popped out, some had their reproductive organs burned off.”  
+  
+“He burned off their dicks?!” George, a complete pothead said.  
+  
+ Ellie gave him a death stare before continuing with. “The estates the men built were also reduced to mere ashes. A few attempts were made to settle the village again and again but almost always either ending in the same result, or some other unspeakable tragedy. Eventually the land was deemed too dangerous to settle and the area was abandoned.”  
+  
+I was at the time, very unnerved by the story. It felt much more authentic than the nonsense my friends guzzled out of their months. Perhaps it was because of the historical elements, the feeling that there was something more to it or perhaps a combination of both. But there was something about the story that still puzzled me though.  
+  
+“If that’s the story, why was your mom so adamant on you not telling anyone outside your family?”  I asked.  
+  
+“Well because that’s not the entire story.”  
+  
+“So what’s the rest of it?” George asked.  
+  
+“The spirit of Cormac didn’t target only the Englishmen and it didn’t stay where he was burned at the stake. He roamed the countryside, punishing people for sinning with no sense of discrimination. Man or woman, English or Irish, Protestant or Catholic, it didn’t matter. All that mattered was you committed some sin in his eyes worthy of him bringing the fires of hell to you. He became so feared throughout much of Ireland that he’d called the Hellwalker.”   
+  
+   
+“Is this Hellwalker guy still around haunting Ireland?” I asked.  
+  
+“Well, as the story goes into my family, one of my ancestors sealed him away.”   
+  
+“Hold on, sealing, like magic?” Miguel, a fellow track runner along Lukas asked.  
+  
+“I don’t know, my mom never went into much detail about that other than the pure silver cross around my necklace is supposedly where the spirit of Cormac lays dormant.”   
+  
+“Really? Your cross?” Samatha said, a devious smile forming on her face.”  
+  
+  
+“Why does your mom get so angry when you tell this story?” Adrian, a shorter, kinda nerdy kid who was Samantha's twin brother,  asked, “After all, it’s probably just a tall tale parents tell their children so they don’t go out at night or break rules.”  
+  
+“Because well, my mom is a firm believer in it.”  
+  
+“No way!” Samatha started giggling, “Your mom actually is that superstitious? What, does she also believe in Freddy Kruger?”   
+  
+I started seeing some others in our group and started to chuckle a little bit, much to Ellie's embarrassment.  
+  
+“Well, I, I um.”  
+  
+“Oh come on Ellie baby, you don’t actually believe in that story do you?”  
+  
+“What? No no, it’s just a story that’s…”  
+  
+“With how defensive you’re getting it seems like you believe it.” Ellie looked away in what I can only describe as a mixture of embarrassment and deep thought before meekly saying no.   
+  
+  
+“You know I have a fun idea, I know this girl who’s very into mystical stuff like rituals and stuff like that. I remember having a lot of fun doing some rituals and having the living shit scare out of us. How about we summon this Hellwalker of yours?”   
+  
+Ellie looked at Samantha, her face a mixture of surprise, confusion, and perhaps anger. “Wha, why would anyone want to do that?”  
+  
+  
+“Well then, come on, don’t be boring. ”  
+  
+“Hey, if she doesn’t want to do it, then don’t pressure-” I said, partly because I wanted to impress Ellie.  
+  
+“I’ll do it.” Ellie said.  
+  
+“I thought you were the devout Catholic girl? Whatever happened to that?” Samatha teased with Ellie not responding at all.  
+  
+Nothing of note happened after that other than I got Ellie's phone number. I went home not really paying no particular mind to Ellie's story at the time other than thinking it was a good horror story.   
+  
+Now, as I snapped back to the present, standing there as the realization hit me after connecting the dots with how Lukas was murdered, and Ellie's story.   
+  
+I quickly picked up  my phone off the ground, grateful that it didn’t suffer any damage, and said to Ellie “Don’t tell me that,”  
+  
+Ellie started to cry over the phone. “I thought it would just be stupid dare! I just didn’t want them thinking I was boring so I did what they wanted!”  
+  
+I asked  Ellie to calm down and collect herself to which it took her around 2 minutes to do so and explain what exactly went down.  
+  
+“It was at Samatha’s dorm, and she had that friend she mentioned over. I took off my Silver cross and they did some-something and, and suddenly the power went out for what felt like two minutes.”  
+  
+“Hold on, was it around 3 weeks ago?” I asked, remembering the time where the power went out for around 4-5 minutes.  
+  
+“Yes.” Ellie stuttered.  
+  
+My mind at the time was running every rational explanation through my head.   
+  
+“These were all just coincidences, the power went out because of issues with the generator, whoever murder Lukas was just some deranged serial killer with a taste for burning people to death. There is no Hellwalker, THERE IS NO HELL WALKER!”   
+  
+Yet the more I thought about it, the more I realized that the chance that these were just coincidences was improbable.  
+  
+“Please Ellie, tell me that story was just a scary story and nothing more.”  
+  
+“I, I’m so sorry.” Ellie broke down in tears before hanging up the call.  
+  
+I stood there, paralyzed, unable to move a muscle. My mind felt like it was tearing itself apart with the rational side in a brutal battle with the primitive, survival side telling me that I’m going to die. The adrenaline ran through my veins as I started panting heavily. I haven’t been a believer in God or religion since I was in high school and I have always been a skeptic about these things. However, one singular thought kept running on my head on repeat that I sincerely hope is just a delusion.   
+  
+He is here and he is coming for us all.  

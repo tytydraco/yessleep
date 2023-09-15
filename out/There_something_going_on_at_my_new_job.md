@@ -341,7 +341,7 @@ I never knew what he did for work, other than that. He was a biologist. My stoma
 
 Blane still suspicious looked at me wearily. "Right... that's fine."
 
-The two of them were walking towards the second factory.
+The two of them walked towards the second factory.
 
 I was going to run, but now... how would I explain it to my uncle? Was he involved? Why was he even here!? I leaned against some racking feeling like I was about to pass out.
 
@@ -355,6 +355,6 @@ I saw Blane gesturing comically to the workers before he entered the doors to th
 
 I couldn't run. I couldn't leave. My uncle was involved. Part of me knew, I couldn't even quit.
   
-It's a good job. I thought. Easy work, good pay. I looked up to my coworkers.
+It's a good job, I thought. Easy work, good pay. I looked up to my coworkers.
   
 Maybe I only need to lighten up... laugh a little.
