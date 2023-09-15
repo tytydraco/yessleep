@@ -58,7 +58,7 @@ What was the catch? This didn't make any sense? Did my uncle blackmail him? I st
 
 "I'll... I'll take it" I said trying to sound confident as to not betray my complete shock at my luck.
 
-"Great!" he said smiling. "I'll see you tomorrow then. I have to attend to something but I'll have Dharbinder walk you out"
+"Great!" he said smiling. "I'll see you tomorrow then. I have to attend to something but I'll have Jesminder walk you out"
 
 I did my best to hide my glee. I had finally caught a break. With this kind of money I could start saving. I could get a proper car. Maybe move out of my run down apartment.
 
@@ -78,7 +78,7 @@ We made our down a short flight of stairs and into the factory. Large tables fil
 
 The people were extremely focused on their tasks. It was almost robotic. As we walked along I still could not make sense of what they were actually doing. It looked like they were manufacturing small plastic disks. One to a box I thought? What a waste.
 
-"What is it that we make here Dharbinder?" she paused and for a second I could swear I saw her cringe. Any sense of that was gone as she looked at me with a beaming smile.
+"What is it that we make here Jesminder?" she paused and for a second I could swear I saw her cringe. Any sense of that was gone as she looked at me with a beaming smile.
 
 "My dear" she said in her lilting accent. "There is no need to worry. You will learn the job soon enough" the last sentence said pointedly but veiled in the politeness of her sing-songy cadence.
 
@@ -86,7 +86,7 @@ I didn't press it any further. I didn't want to mess this up.
 
 Almost as if to distract from the tension from a moment ago she called out. "Hello everyone!"
 
-"Hello Dharbinder! Hi Dharbinder" the workers called out happily as if woken from a daze.
+"Hello Jesminder! Hi Jesminder" the workers called out happily as if woken from a daze.
 
 "Remember everyone, tomorrow is pizza lunch!"
 
@@ -102,7 +102,7 @@ Everyone looked up from their work, nearly all of them smiling.
 
 'Hi! Hey!' I heard them call out similar to how they had before.
 
-Everyone seemed genuinely happy. Everyone other than two guys in the back row. Something about their 'grins' seemed forced. Maybe they were having a bad day... that sense something was weird crept up again but I pushed it away. Dharbinder lead me out of the building and wished me well and said she would see me tomorrow.
+Everyone seemed genuinely happy. Everyone other than two guys in the back row. Something about their 'grins' seemed forced. Maybe they were having a bad day... that sense something was weird crept up again but I pushed it away. Jesminder led me out of the building and wished me well and said she would see me tomorrow.
 
 I don't know if was reading too much into it, but it seemed like as soon as she was finished with the 'formality' of politeness, she changed. I barely could tell because as soon as she said goodbye she turned around sharply and I swear all the emotion she had a second prior was gone completely. The door snapped shut behind her.
 
@@ -114,9 +114,9 @@ I wasn't going to say anything but I mentioned to him the 'weird' vibe I got fro
 
 ***
 
-I got to work early to orient myself. I saw no one until I got to the shipping department. Dharbinder was standing at a table hands down flat and staring off into the distance.
+I got to work early to orient myself. I saw no one until I got to the shipping department. Jesminder was standing at a table hands down flat and staring off into the distance.
 
-"Hello Dharbinder..."
+"Hello Jesminder..."
 
 "Oh hello..." she said snapping herself out of her trance.
 
@@ -164,7 +164,7 @@ A loading icon appeared on the screen and a label popped out of the printer.
 
 "Now... get to work!" she said in a mock yell and started laughing as she walked away.
 
-I smiled and forced myself to laugh along "Okay thanks, Dharbinder..." still stunned at the simplicity of the job.
+I smiled and forced myself to laugh along "Okay thanks, Jesminder..." still stunned at the simplicity of the job.
 
 Thirty dollars an hour to put a sticker on a box?
 
@@ -234,7 +234,7 @@ But then what was it? I looked at one of the vials closely. "BIO-Z 245R".
 
 Why did the vials have a bio hazard symbol? The pallet and container were unmarked? Even if it was private courier, it could be unsafe. What was it that was in these vials? Was it oil...? I quickly put the vials I removed back into their floating cages and taped the box shut. I wanted the box back on the pallet and fast.
 
-I was halfway there when the office door flung open. It was Blane and Dharbinder. Blane looked up at me and then towards C3. The blood drained from his face. He started speed walking towards me. I couldn't feel my legs, I was shook.
+I was halfway there when the office door flung open. It was Blane and Jesminder. Blane looked up at me and then towards C3. The blood drained from his face. He started speed walking towards me. I couldn't feel my legs, I was shook.
 
 "Hey!" he said his voice booming, trying to contain himself.
 
@@ -258,7 +258,7 @@ Blane looked me over, like he was assessing if what I told him was true.
 
 He grabbed my shoulder. "Buddy, just take it easy alright. I don't need you to go above and beyond... just do your assigned tasks. Easy right?" he started laughing loudly, his grip on my shoulder tighter probably then he thought.
 
-The workers around us noticed and started to laugh along with Blane even though they had no idea what was funny. Dharbinder was laughing now as well.
+The workers around us noticed and started to laugh along with Blane even though they had no idea what was funny. Jesminder was laughing now as well.
 
 "Ha.. ha.. ha.." I tried my best to fit in. The atmosphere was painfully fake. I looked up and saw Thang-Hui at the back of the shop.
 
@@ -266,13 +266,13 @@ He wasn't laughing.
 
 Blane walked off toward the doors to the 'second shop'.
 
-Dharbinder gave me an eerie knowing grin, her eyes squinting at me.
+Jesminder gave me an eerie knowing grin, her eyes squinting at me.
 
 "Done for the day?" she said. I hadn't noticed the time but she was right. It was time to go. I couldn't say a word, I just mumbled something and walked as fast as I could to my car. I don't even think I signed out.
 
 When I just about to leave I saw an armoured truck pull up to one of the bay doors. It was painted black. They must have been the courier for the shipment... An armoured truck and armed guards?
 
-Something about this doesn't sit right at all, and why would Blane lie about the vials? It's like they know. Maybe they all know? Dharbinder and Thang-Hui definitely. 
+Something about this doesn't sit right at all, and why would Blane lie about the vials? It's like they know. Maybe they all know? Jesminder and Thang-Hui definitely. 
 
 What is in these vials and what is with all the secrecy? Honestly if it wasn't for the money I would quit, but how can I turn down thirty dollars an hour for putting a label on a few boxes?
 
@@ -288,7 +288,7 @@ He looked at me an eyebrow raised high. Even though the other workers around me 
 
 "Second factory? No. No need. Why you go?" he said.
 
-"Yes, well, umm... Blane is away today but he told me it was very important. Dharbinder is busy as well." he knew it was bullshit.
+"Yes, well, umm... Blane is away today but he told me it was very important. Jesminder is busy as well." he knew it was bullshit.
 
 "I need the code to the door Thang."
 
