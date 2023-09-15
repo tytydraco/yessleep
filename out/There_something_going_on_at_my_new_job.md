@@ -206,7 +206,7 @@ He had just noticed I was standing there.
 
 "Alright Blane..." I said trying to hide how strange I thought the situation seemed.
 
-I don't know why it was normal... I had only started there a few months ago. It's not like I knew everything about the company. But the fact that I had never seen the men in the full body suits or even knew there was another department weeks later set off a tiny alarm in my mind. Memories of all the weirdness from the weeks prior returning to me.
+I don't know why it seemed abnormal... I had only started there a few months ago. It's not like I knew everything about the company. But the fact that I had never seen the men in the full body suits or even knew there was another department weeks later set off a tiny alarm in my mind. Memories of all the weirdness from the weeks prior returning to me.
 
 I watched the men set the shipment in one of the homes and return to their tables.
 
@@ -232,7 +232,7 @@ But then what was it? I looked at one of the vials closely. "BIO-Z 245R".
 
 "Don't mess this opportunity up.' I heard my uncles voice echoing in my head.
 
-Why did the vials have a bio hazard symbol? The pallet and container were unmarked? Even if it was private courier, it could be unsafe. What was that was in these vials? It's just oil... I quickly put the vials I removed back into their floating cages and taped the box shut. I wanted the box back on the pallet and fast.
+Why did the vials have a bio hazard symbol? The pallet and container were unmarked? Even if it was private courier, it could be unsafe. What was it that was in these vials? It's just oil... I quickly put the vials I removed back into their floating cages and taped the box shut. I wanted the box back on the pallet and fast.
 
 I was halfway there when the office door flew open. It was Blane and Dharbinder. Blane looked up at me and then towards C3. The blood drained from his face. He started speed walking towards me. I couldn't feel my legs, I was shook.
 
@@ -246,7 +246,7 @@ He was almost shouting but I could tell he was trying to contain his anger to ap
 
 "So I thought I would pack it up up" I could barely speak.
 
-Blane looked me over, like he was assessing if what I told was true.
+Blane looked me over, like he was assessing if what I told him was true.
 
 "Did you look inside the container?" he said
 
@@ -254,7 +254,7 @@ Blane looked me over, like he was assessing if what I told was true.
 
 "Right..." he said assuredly, seeming to believe me.
 
-"Right... great. Good. Good. It's uh... These are prototype washer the R&D team just designed for a very important contract. It has to be perfect." I could sense he was relieved. Like his anxiety had been switched off. He started grinning in a guise of confidence, his forehead damp with sweat.
+"Right... great. Good. Good. It's uh... These are a prototype washer the R&D team just designed for a very important contract. It has to be perfect." I could sense he was relieved. Like his anxiety had been switched off. He started grinning in a guise of confidence, his forehead damp with sweat.
 
 He grabbed my shoulder. "OP, buddy, just take it easy alright. I don't need you to go above and beyond... just do your assigned tasks. Easy right?" he started laughing loudly, his grip on my shoulder tighter probably then he thought.
 
@@ -292,7 +292,7 @@ He looked at me an eyebrow raised high. Even though the other workers around me 
 
 "I need the code to the door Thang."
 
-He looked down at the floor weighing his thoughts carefully. Like this was something he had thought about many times before. The second factory... 'Doesn't matter, just do job, just work'. He looked at me intensely, then he turned opening a drawer removing a small pouch. He carefully opened the pouch and removed a card, staring at it before he finally passed it to me.
+He looked down at the floor weighing his thoughts carefully. Like this was something he had thought about many times before. 'The second factory...' He looked at me intensely, then he turned opening a drawer removing a small pouch. He carefully opened the pouch and removed a card, staring at it before he finally passed it to me.
 
 ***Jaques LePont - Genetics. Primary Clearance***
 
