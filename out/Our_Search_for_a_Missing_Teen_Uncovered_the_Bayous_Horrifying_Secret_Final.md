@@ -188,7 +188,7 @@ For a moment, the air hung heavy between us. Lupin’s eye flickered, and I saw 
 
 A pained growl escaped his lips. "No, not enough. The monster in me... it's insatiable. It takes and takes, leaving nothing but death in its wake. She was no different."
 
-“Do you know who I am? Who I am really?” I asked, my voice dripping with a venomous calm that seemed to cut through the murky air.
+“Do you know who I am? Who I really am?” I asked, my voice dripping with a venomous calm that seemed to cut through the murky air.
 
 For a moment, his eye widened, as if something crucial had just clicked into place. But then, he shook his head, the motion sluggish and impaired from his injuries. "No, should I?" He snarled.
 
