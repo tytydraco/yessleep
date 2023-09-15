@@ -100,9 +100,9 @@ Something about it seemed... off. I ignored the feeling and smiled at the worker
 
 Everyone looked up from their work, nearly all of them smiling.
 
-'Hi OP, Hey OP' I heard them call out similar to how they had before.
+'Hi! Hey!' I heard them call out similar to how they had before.
 
-Everyone seemed genuinely happy. Everyone other than two guys in the back row. Something about their 'grins' seemed forced. Maybe they were having a bad day... that sense something was weird crept up again but I pushed it away.Dharbinder lead me out of the building and wished me well and said she would see me tomorrow.
+Everyone seemed genuinely happy. Everyone other than two guys in the back row. Something about their 'grins' seemed forced. Maybe they were having a bad day... that sense something was weird crept up again but I pushed it away. Dharbinder lead me out of the building and wished me well and said she would see me tomorrow.
 
 I don't know if was reading too much into it, but it seemed like as soon as she was finished with the 'formality' of politeness, she changed. I barely could tell because as soon as she said goodbye she turned around sharply and I swear all the emotion she had a second prior was gone completely. The door snapped shut behind her.
 
@@ -118,7 +118,7 @@ I got to work early to orient myself. I saw no one until I got to the shipping d
 
 "Hello Dharbinder..."
 
-"Oh hello OP" she said snapping herself out of her trance.
+"Oh hello..." she said snapping herself out of her trance.
 
 "Is everything alright?" I said
 
@@ -140,7 +140,7 @@ She chuckled smugly to herself and then said enthusiastically...
 
 EasyShip Pro appeared on the screen. The program looked incredibly simple, almost like what you would imagine a 'shipping simulator' would be like in a video game. Completely bare bones.
 
-She clicked on Outbound. "Watch closely" she said as she begun clicking on the fields on the screen. There were only a few.
+She clicked on 'Outbound'. "Watch closely" she said as she begun clicking on the fields on the screen. There were only a few.
 
 Field 1: Shipment Number
 
@@ -152,7 +152,7 @@ She clicked on the option that said 'express'.
 
 "It will always be this option. Yes?' I nodded again baffled by the program.
 
-She clicked on a the button at the bottom of the screen that said confirm shipment.
+She clicked on a button at the bottom of the screen that said confirm shipment.
 
 A loading icon appeared on the screen and a label popped out of the printer.
 
@@ -172,7 +172,7 @@ Thirty dollars an hour to put a sticker on a box?
 
 A few weeks went by without much happening. Occasionally they would have me inspect some of the items prior to packaging for QC. There were just small plastic disks... apparently they were used as industrial washers for machinery or something. It still seemed hard to believe that such a simple thing would create this much business.
 
-I tried to get to know some of my co-workers but if they weren't being addressed by one of the office staff they were awfully quiet. Maybe they were getting paid well too I thought. They also ate lunch at a different time so I really never had a chance to talk with them. All day long I tried to keep busy sweeping and organizing documents but I could only do that so much.
+I tried to get to know some of my co-workers, but if they weren't being addressed by one of the office staff they were awfully quiet. Maybe they were getting paid well too I thought. They also ate lunch at a different time so I really never had a chance to talk with them. All day long I tried to keep busy sweeping and organizing documents but I could only do that so much.
 
 One day I walked over to one of the men I had seen on the first day at the back of the shop. I was inspecting some of the product he had made and they were slightly off.
 
@@ -180,7 +180,7 @@ One day I walked over to one of the men I had seen on the first day at the back 
 
 "OK. I'll fix. Put there, I'll fix okay." he spoke quickly like he'd rather say nothing at all.
 
-"Yeah for sure...' I said "Hey... can I ask how long you've been working here" I had been here almost a month and still knew next to nothing about anyone there.
+"Yeah for sure...' I said "Hey... can I ask how long you've been working here" I had been there almost a month and still knew next to nothing about anyone.
 
 "Doesn't matter. Twenty years... doesn't matter. I'll fix okay" he kept looking at his work. Maybe I was being the annoying new guy. I didn't want to piss off a senior worker.
 
@@ -190,7 +190,7 @@ Just then I saw a door behind him at the back of the room I had never noticed be
 
 The workers moved quickly and started loading metal containers that were in the bin into boxes.
 
-"What... where did they... is there another part to the shop" I said confused.
+"What... where did they... is there another part to the shop?" I said confused.
 
 "Downstairs. Second shop. Doesn't matter. Just do job. Just work. Don't worry." he said while he continued cleaning the washer. His eyes told me different.
 
@@ -200,25 +200,25 @@ He didn't look up from his task. I got the message so I left him alone. I walked
 
 "Check them over twice! We can't have any issues with these!" his voice projecting across the entire shop like a buzz saw.
 
-He had just noticed I was standing there.
+He noticed I was standing there.
 
-"OP you don't need to do anything with these. The customer is arranging for their own pick up and it should be here in less then an hour. You'll recognize them, they're good to go. In and out. Okay?" his tone was much more direct than usual.
+"You don't need to do anything with these. The customer is arranging for their own pick up and it should be here in less then an hour. You'll recognize them, they're good to go. In and out. Okay?" his tone was much more direct than usual.
 
 "Alright Blane..." I said trying to hide how strange I thought the situation seemed.
 
-I don't know why it seemed abnormal... I had only started there a few months ago. It's not like I knew everything about the company. But the fact that I had never seen the men in the full body suits or even knew there was another department weeks later set off a tiny alarm in my mind. Memories of all the weirdness from the weeks prior returning to me.
+I don't know why it seemed abnormal... I had only started there a few weeks ago. It's not like I knew everything about the company. But the fact that I had never seen the men in the full body suits or even knew there was another department set off a tiny alarm in my mind. Memories of all the weirdness from the weeks prior returning to me.
 
 I watched the men set the shipment in one of the homes and return to their tables.
 
 C3
 
-I walked over looking around making sure no one was watching. Blane had returned to the office. The pallet looked like all the rest; it wasn't wrapped though. I assumed the pick up would secure the shipment. One of the boxes wasn't taped shut. There was no reason I couldn't tape it up for them, it's not like I was doing anything else.
+I walked over looking around making sure no one was watching. Blane had returned to the office. The pallet looked like all the rest; it wasn't wrapped though. I assumed the pick up would secure the shipment. One of the boxes wasn't taped shut. There was no reason I couldn't tape it up for them, it's not like I was doing anything.
 
 I lifted the box and made my way to my desk, and that's when it happened.
 
 I tripped and the box hit the ground, the metal lid popping open.
 
-I got up and went to clean up the mess of spilled product. I don't think anyone had seen me thankfully because the packing area was separate from the shop. None of the contents had spilled but I was still able to see what was inside the crate...
+I got up and went to clean up the mess. I don't think anyone had seen me thankfully because the packing area was separate from the shop. None of the contents had spilled but I was still able to see what was inside the crate...
 
 Small suspended vials of different coloured liquid; green, yellow, and red...
 
@@ -232,11 +232,11 @@ But then what was it? I looked at one of the vials closely. "BIO-Z 245R".
 
 "Don't mess this opportunity up.' I heard my uncles voice echoing in my head.
 
-Why did the vials have a bio hazard symbol? The pallet and container were unmarked? Even if it was private courier, it could be unsafe. What was it that was in these vials? It's just oil... I quickly put the vials I removed back into their floating cages and taped the box shut. I wanted the box back on the pallet and fast.
+Why did the vials have a bio hazard symbol? The pallet and container were unmarked? Even if it was private courier, it could be unsafe. What was it that was in these vials? Was it oil...? I quickly put the vials I removed back into their floating cages and taped the box shut. I wanted the box back on the pallet and fast.
 
-I was halfway there when the office door flew open. It was Blane and Dharbinder. Blane looked up at me and then towards C3. The blood drained from his face. He started speed walking towards me. I couldn't feel my legs, I was shook.
+I was halfway there when the office door flung open. It was Blane and Dharbinder. Blane looked up at me and then towards C3. The blood drained from his face. He started speed walking towards me. I couldn't feel my legs, I was shook.
 
-"OP!" he said his voice booming, trying to contain himself.
+"Hey!" he said his voice booming, trying to contain himself.
 
 "What are you doing with that box?! I told you the customer had arranged the pick up!"
 
@@ -244,7 +244,7 @@ He was almost shouting but I could tell he was trying to contain his anger to ap
 
 "I... I... Sorry Blane.. I saw that it was untaped... untaped" I was stuttering
 
-"So I thought I would pack it up up" I could barely speak.
+"So I thought I would pack it up" I could barely speak.
 
 Blane looked me over, like he was assessing if what I told him was true.
 
@@ -256,7 +256,7 @@ Blane looked me over, like he was assessing if what I told him was true.
 
 "Right... great. Good. Good. It's uh... These are a prototype washer the R&D team just designed for a very important contract. It has to be perfect." I could sense he was relieved. Like his anxiety had been switched off. He started grinning in a guise of confidence, his forehead damp with sweat.
 
-He grabbed my shoulder. "OP, buddy, just take it easy alright. I don't need you to go above and beyond... just do your assigned tasks. Easy right?" he started laughing loudly, his grip on my shoulder tighter probably then he thought.
+He grabbed my shoulder. "Buddy, just take it easy alright. I don't need you to go above and beyond... just do your assigned tasks. Easy right?" he started laughing loudly, his grip on my shoulder tighter probably then he thought.
 
 The workers around us noticed and started to laugh along with Blane even though they had no idea what was funny. Dharbinder was laughing now as well.
 
@@ -268,7 +268,7 @@ Blane walked off toward the doors to the 'second shop'.
 
 Dharbinder gave me an eerie knowing grin, her eyes squinting at me.
 
-"Done for the day OP" she said. I hadn't notice the time but she was right. It was time to go. I couldn't say a word, I just mumbled something and walked as fast as I could to my car. I don't even think I signed out.
+"Done for the day?" she said. I hadn't noticed the time but she was right. It was time to go. I couldn't say a word, I just mumbled something and walked as fast as I could to my car. I don't even think I signed out.
 
 When I just about to leave I saw an armoured truck pull up to one of the bay doors. It was painted black. They must have been the courier for the shipment... An armoured truck and armed guards?
 
@@ -300,7 +300,7 @@ A clearance card... he must have found the card somehow. How long had he had thi
   
 "I don't know..." he stopped. "Be careful" was all he said.
 
-I grabbed the key and ran to the door. The key card reader lights blipped. What would I say when they saw me? Surely they wouldn't believe me. The door opened and I looked down the stairs.
+I grabbed the key and ran to the door. The key card reader lights blipped. What would I say when they saw me? Surely they wouldn't believe that same story. The door opened and I looked down the stairs.
 
 There wasn't a sound.
  
@@ -314,17 +314,17 @@ An alarm sounded. Armed men ran out into the room. The humanoid figure shrieked 
 
 **"CODE RED. CODE RED."**
 
-The men began to fire their assault riffles. The creature charged towards them and began to pummel one of the men. The man kicked the horrific figure off of him. It was weak from barrage of ammunition it took moments earlier. Suddenly a team rushed out and began disinfecting the area. They put the figure in a bag and dragged it away. The steel doors shut behind them. The men with the carts carried onward to the elevator as if nothing had happened.
+The men began to fire their assault riffles. The creature charged towards them and began to pummel one of the men. The man kicked the horrific figure off of him. It was limp from barrage of ammunition it took moments earlier. Suddenly a team rushed out and began disinfecting the area. They put the figure in a bag and dragged it away. The steel doors shut behind them. The men with the carts carried onward to the elevator as if nothing had happened.
 
 I tried to control my breathing, nearly hyperventilating. As soon as the elevator closed I booked it. I had never ran so fast in my life. The slew of empty rooms now seeming like a maze. I had to get out. I just had to keep going. I finally reached the doors to the first factory.
 
-I pushed the doors open tears streaming from eyes. What had I just witnessed. I avoided eye contact with everyone and speed walked towards the exit. Just then the doors to the office flung open. It was Blane... Blane and my uncle. It felt like the wind had been knocked out of me.
+I pushed the doors open tears streaming from eyes. What had I just witnessed. I avoided eye contact with everyone and speed walked towards the exit. Just then the doors to the office opened. It was Blane... Blane and my uncle. It felt like the wind had been knocked out of me.
 
-"OP!" My uncle said happy to see me. "Hope you don't mind I stopped by."
+"Look who it is!" My uncle said happy to see me. "Hope you don't mind I stopped by."
 
 "Uncle... I.. I..." my face still damp with tears. My uncle and Blane looked at me concerned.
 
-"OP are you crying?" my uncle said.
+"Are you crying?" my uncle said.
 
 "No." I said wiping my face. "I just... I had something in my eye. I'm fine"
 
@@ -332,17 +332,17 @@ Blane looked towards the doors of the second factory suspiciously and then back 
 
 "Blane was just showing me some prototypes of things he's been working on"
 
-Suddenly I had an awful realization. My uncle... my uncle was a biologist.
+Suddenly I had a terrible realization. My uncle... my uncle was a biologist.
 
 I never knew what he did for work, other than that. He was a biologist. My stomach sank.
 
-"OP, I'm taking you out for lunch after this. Of course Blane gave the okay" he said smiling.
+"I'm taking you out for lunch after this. Of course Blane gave the okay" he said smiling.
 
 Blane still suspicious looked at me wearily. "Right... that's fine."
 
 The two of them walked away towards the doors of the second factory.
 
-I was going to run, but now... how would I explain it to my Uncle? Was he involved? Why was he even here!? I leaned against some racking feeling like I was about to pass out.
+I was going to run, but now... how would I explain it to my uncle? Was he involved? Why was he even here!? I leaned against some racking feeling like I was about to pass out.
 
 A hand on my shoulder. It was Thang. He looked at me expectantly, like he was trying to read what I had seen. My eyes were red from the tears. He stared a moment and nodded understanding that whatever it was I had seen down there was not something to be brought to the surface.
 
@@ -352,9 +352,7 @@ He turned and walked away.
 
 I saw Blane gesturing comically to the workers before he entered the doors to the second factory with my uncle. They all began to laugh.
 
-I couldn't run. I couldn't leave. My uncle was involved.
-  
-Part of me knew, I couldn't even quit.
+I couldn't run. I couldn't leave. My uncle was involved. Part of me knew, I couldn't even quit.
   
 It's a good job. I thought. Easy work, good pay. I looked up to my coworkers.
   

@@ -1,3 +1,7 @@
+[Part (2)](https://reddit.com/r/Horror_Stories_by_MrM/s/3eACsyDwZa)
+
+
+
 How could you do this, Ethan? HOW?!! I LOVED YOU ETHAN!! I GAVE YOU ALL I HAD!!! AND IN THE END YOU DO THI-
 
 SHUT UPPP!!
