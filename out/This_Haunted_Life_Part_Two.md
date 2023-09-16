@@ -118,11 +118,11 @@ The sound of the water falls was soothing and we both just kind of stared at the
 
 I chuckled. "Hey I gotta go pee. I'll be back in a few." Diego nodded and I walked back inside.
 
-The bathrooms were down the hallway that led to the wine cellar. It was quiet back there and the noisey lounge became a background drone as my footsteps grew ouder. I found the men's room and did my thing and came back out into the hall where I noticed the door to the wine cellar was open. 
+The bathrooms were down the hallway that led to the wine cellar. It was quiet back there and the noisey lounge became a background drone as my footsteps grew louder. I found the men's room and did my thing and came back out into the hall where I noticed the door to the wine cellar was open. 
 
-I stepped towards it and cocked my head to try to see if anyone was there. I could see some dim light coming up from somewhere down there and then some movement. It wasn't the waiter, instead a small girl about 3 or 4 years of age  pushed the door a little more open so I could see her. he looked at me and smiled and then fell backwards right down the stairs.
+I stepped towards it and cocked my head to try to see if anyone was there. I could see some dim light coming up from somewhere down there and then some movement. It wasn't the waiter, instead a small girl about 3 or 4 years of age  pushed the door a little more open so I could see her. She looked at me and smiled and then fell backwards right down the stairs.
 
-I could hear her body banging on each wooden step as she fell. I was shocked and horrified. I quickly rushed to the door and opened it. Peering down I couldn't see the bottom through the darkness. "She must be there curled up at the foot of the stairs," I thought. I jogged down the steps to see if she was okay.
+I could hear her body banging on each wooden step as she fell. I was shocked and horrified. I quickly rushed to the door and opened it the rest of the way. Peering down I couldn't see the bottom through the darkness. "She must be there curled up at the foot of the stairs," I thought. I jogged down the steps to see if she was okay.
 
 When I arrived at the bottom there was no girl there at all. I felt some warm moisture on the floor with my hand and so I held it up where there was a bit more light to check it out and sure enough it was fresh blood. I called out to her but heard nothing. I slowly scanned the room thinking maybe she crawled away.
 
