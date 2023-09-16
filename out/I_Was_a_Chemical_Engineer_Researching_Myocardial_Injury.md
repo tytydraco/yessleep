@@ -69,4 +69,4 @@ The irony was that, for security reasons, nobody knows where our island resides.
 I post this here as more of a journal than anything else. We are on an unmarked island in the middle of nowhere, with a homicidal superhuman stalking the grounds. It is only a matter of time before Archie finds us.
 
   
-There are consequences to playing God. I pray for a miracle, but I will not hold me breath. It’s only a matter of time, now.  
+There are consequences to playing God. I pray for a miracle, but I will not hold my breath. It’s only a matter of time, now.
