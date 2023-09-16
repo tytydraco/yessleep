@@ -234,3 +234,5 @@ This brought a grin to her face, as she raised a single fist in the air, looking
 I smiled and shook my head. 
 
 As soon as we opened the library doors our unease struck us again, colder than the winter air. It had begun to snow lightly, the flakes falling redder than the sky. The darkness it added was unwelcome, but the low moaning and whispering in the air was worse. We stopped every few steps and held our breath, unsure if the siren’s song came from the wind or the shadows. Each building we passed had an ominous look, with the tendril-like roots stretching upward at the base of their foundations, while the street lights barely kept the shadows restrained in the alleys. Shuffling across the small intersection, we spotted the clinic. Its sign was on, but the light coming from inside didn’t tell us whether it was open or not.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/16kei96/if_you_come_across_a_red_hornflower_it_may/)
