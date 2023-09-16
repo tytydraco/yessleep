@@ -88,6 +88,12 @@ She drew a deep breath.
 
 “He’s coming for you. The only option now is to take this knife to his house and [get him first](https://www.facebook.com/P-F-McGrail-181784199029462/).”
 
+--------
+
+[The dumbest thing I ever did]()
+
+-----------
+
 [BD](https://www.reddit.com/r/ByfelsDisciple/)
 
 
