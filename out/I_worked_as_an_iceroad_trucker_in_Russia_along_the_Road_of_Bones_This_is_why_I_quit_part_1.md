@@ -103,3 +103,9 @@ And yet I told it anyway.
 “I ran towards my truck, and I heard footsteps behind me, at least two pairs and maybe more. I didn’t look back. I ran for my life and flung open the door. Just as I was closing it, a hand grabbed my leg. I shrieked, trying over and over again to close the door. I kept slamming against the thin, long white hand that had me. Eventually, it let go, and I started the truck and got out of there.
 
 “When I looked back, I saw dozens of pairs of black eyes, staring at me, unblinking.”
+
+&#x200B;
+
+Part 2
+
+https://www.reddit.com/r/nosleep/comments/16k0p69/i\_worked\_as\_an\_iceroad\_trucker\_in\_russia\_along/
