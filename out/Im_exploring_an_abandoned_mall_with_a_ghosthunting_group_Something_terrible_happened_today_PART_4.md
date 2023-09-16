@@ -260,7 +260,9 @@ It looked like she was just... removed out of existence. Like some higher power 
 
 Hailey's stuff was gone too. Any trace of her simply just didn't exist.
 
-Sam was devestated, so he tried recalling any past experiences they've had together.He couldn't even remember her face anymore.
+Sam was devestated, so he tried recalling any past experiences they've had together.
+
+He couldn't even remember her face anymore.
 
 We set up a memorial for Hailey with whatever we had. Packets of ramen, a leather jacket, plastic flowers, everything; anything we remembered about her.
 
