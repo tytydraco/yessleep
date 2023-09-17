@@ -1,0 +1,13 @@
+I live alone in a typical and normal suburban neighborhood. Every day that I'm not working I mostly just sit around and watch TV. I don't have many talents or hobbies that give me anything to do, so this is what I'm up to 24/7.  
+  
+One night, I'm surfing channels when I suddenly feel my stomach grumbling. "Ough, I'm famished! I need a bite to eat, and fast!" I think to myself. So I grab my nearest phone (which I have many of) and dial up the Domino's Pizza phone number.  
+"Hello, this is Domino's Pizza, uhhh... how can we serve you on this fine fine day?" The guy on the phone says to me with pretty noticeable voice cracks. Yiiikes.  
+"Yeah, can I grab a large, uhhh... pizza? With cheese?" I say to the phone man, giving my best performance. I need them on my good side!  
+"Yes." He says very quickly, this time with no voice cracks or anything.  
+He immediately hangs up on me after that, which isn't very normal at all! I call Domino's basically every day and they're usually very polite and offer me other things along with my pizza. I never really accept the offers, but it's weird that they've never done it this time. Do they just know what I always want nowadays? I don't know, I don't think too much about it.  
+About a half hour later, the pizza arrives. I get my blubbery, greasy self off the couch before walking over to the door and seeing Josh the delivery guy holding my order. He's usually the one they send to my house, and we've basically become friends.  
+  
+"Pizza Time!" (Spider-Man 2, anyone? Hah!) He exclaims to me with a smile on his face and a glint in his eye, handing me my large, cheesy, delectably delicious pizza with cheese. "Hey, thanks, Josh!" I reply to him with utmost gratitude, tipping my fedora (which I am wearing).  
+He's about to hop onto his standard-issue Domino's moped and drive away, but he turns back around very unnaturally, almost like his back is snapping, which freaks me out. After he does this, he tells me something which would change the course of my life forever. "Oh, by the way, you're not an individual." He then snaps back around the other way and drives off on his standard-issue Domino's moped.  
+  
+It's been 2 weeks since that happened. I haven't eaten, talked to anyone or went into work since then. I haven't even gotten up to use the bathroom. (Yeah, it's serious. And smelly!) The only thing I've thought about is what he said to me. What was the purpose of it? What was he trying to tell me? Am I really not an individual? Is my life meaningless? I don't know, and I don't want to find out. After I post this, I'm going to go to the kitchen and gouge my eyes out. Start a discussion in the comments about what you think his statement meant. Reddit, assemble! I'm out.

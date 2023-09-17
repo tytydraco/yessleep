@@ -101,7 +101,7 @@ By the end of the night I had the numbers of a bunch of people and artists that 
 
 The next few weeks went by in a blur. Scott was seemingly more distant and more bitter as I hadn't spent any time with him. He was constantly petty and annoying. I could tell he must have felt left out, but it's not like I had thrown him under the bus... at least not yet
 
-The single I recorded with CJ was doing really well. I spoke to one of the A&Rs who said he had heard the track and they were prepared to make an offer. I was absolutely elated. I thought of calling my mom but thought it could wait. I had been sort of avoiding her, still bitter she had lied to me all that time.
+The single I recorded with CJ was doing really well. I spoke to one of the A&Rs who said he had heard the track and they were prepared to make an offer. I was absolutely elated. I thought of calling my mom but decided it could wait. I had been sort of avoiding her, still bitter she had lied to me all that time.
 
 Instead I got a call from my cousin.
 
