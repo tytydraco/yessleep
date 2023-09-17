@@ -4,7 +4,7 @@ Last night I joined the Illuminati.
 
 Yes that Illuminati. 
 
-To the skeptics all I can say is this is much much more than a 'conspiracy theory', you can choose to believe my account which I will now tell you or not. It makes no difference to me. I have much greater worries now, we all do...
+To the skeptics all I can say is this is much much more than a 'conspiracy theory', you can choose to believe my account which I will now tell you or not. It makes no difference to me. I have much greater worries now...
 
 I don't really know how to start, mostly due to the shock but also my intense shame. As I said the police are involved, including but not limited to other prominent members of government, businessmen, and celebrities. I know it sounds batshit insane, but I'm speaking from firsthand experience. This isn't something I read about in some 'echo chamber', this is reality.
 
@@ -18,13 +18,13 @@ My mom came down the stairs.
 
 "Honey... what's wrong" she said putting her hand on my back.
 
-"Mom, I'm ruined. My music, it's terrible... I'm never going to make it"
+"Mom, I'm a wreck. My music, it's terrible... I'm never going to make it"
 
 "Listen..." she said looking at me with concern.
 
 "Everything will be fine. You'll figure something out. So what if music doesn't work out? I'll support you in whatever you do?" she said with a soft smile.
 
-"Mom, I have to do music. You don't understand. It's my life!" I was broken at the realization it would never really work out. None of the small accolades mattered, a couple million views, a song on the radio, none of it would amount to the level of superstardom I had always dreamed of.
+"Mom, I have to do music. You don't understand. It's my life!" I was broken at the realization. None of the small accolades mattered, a couple million views, a song on the radio, none of it would amount to the level of superstardom I had always dreamed of.
 
 "I..." my mom paused and stood up, her hand on her chin. She paced back and forth as if thinking deeply. Then she spoke.
 
@@ -43,7 +43,7 @@ Memories returned to me; Christmases and birthdays. Somehow Mom always able to g
 
 I was spoiled and hadn't even noticed... that's where the money came from. How wealthy were these people? Were they that bad that mom had lied to me my entire life just to keep me from them? This whole family I knew nothing about? I wasn't mad, I wasn't upset, I was just numb.
 
-"I'm sorry dear" she said earnestly "The reason... the reason I'm telling you is because... your Uncle. I think your Uncle can help you." she said it quickly like thought of it disturbed her.
+"I'm sorry dear" she said earnestly "The reason... the reason I'm telling you is because... your uncle. I think your uncle can help you." she said it quickly like thought of it disturbed her.
 
 ***
 
@@ -59,7 +59,7 @@ I told him what I wanted to achieve with music and how hard I had worked for yea
 
 He said he was certain he could help me achieve my goals. He lamented about how my mother had distanced herself from the family, and was glad that he was finally able to meet me. I thanked him for having me, and to my surprise he had his pilot helicopter me back to the city that evening.
 
-It was unreal. I had heard of rags to riches, but his was like something out of a novel. Of course, my own bank account didn't reflect the wealth that I just been surrounded by but my Uncle assured me that I would be taken care of in time. He *knew* my music would take off. To me it sounded less like he believed in the music (*which he had hardly heard*) and was speaking it as if it was a simple matter of fact.
+It was unreal. I had heard of rags to riches, but his was like something out of a movie. Of course, my own bank account didn't reflect the wealth that I just been surrounded by but my uncle assured me that I would be taken care of in time. He *knew* my music would take off. To me it sounded less like he believed in the music (*which he had hardly heard*) and was speaking it as if it was a simple matter of fact.
 
 ***
 
@@ -69,7 +69,7 @@ Several of my songs and socials really started blowing up. Back home I was a lit
 
 *If I told you guys who I really was... well some of you might even be fans of my songs.*
 
-My manager though... he was seriously starting to annoy me. I guess he realized that I didn't need too much of his help. I kept him around because we had known each other for a while but he always complained and brought the mood down.
+My manager though... he was seriously starting to annoy me. I guess he realized that I didn't need too much of his help. I kept him around because we had known each other forever but he always complained and brought the mood down.
 
 We were in the studio with one of our favourite artists. The whole time I was starstruck, we were totally vibing and had tons of ideas flowing. For some reason Scott, my manager got really pissed off. He was happy to be there at first but I guess he started to feel left out. The artist who we were working with suggested something and suddenly Scott blurted out...
 
@@ -91,11 +91,11 @@ I felt bad because Scott had been there from the beginning, but there was no way
 
 We eventually finished the song and recorded it the same night. It was a hit, we both knew it.
 
-That night I went out with the artist (actually from this point I'll just call him CJ), that night I went out and partied with CJ. We went a few clubs and I met a bunch of people. All night CJ was telling them how 'heat' the record was and how 'I was up next'.
+That night I went out with the artist (*actually from this point I'll just call him CJ*), that night I went out and partied with CJ. We went a few clubs and I met a bunch of people. All night CJ was telling them how 'heat' the record was and how 'I was up next'.
 
 'Word?' some of them said.
 
-By the end of the night I had the numbers of a bunch of people and artists that wanted to collab. I told some I was in town visiting my uncle who some of them recognized. They seemed to change once I told them... the guys were friendlier and a few of the girls asked if I wanted to hang out. I can't remember much after that.
+By the end of the night I had the numbers of a bunch of people and artists that wanted to collab. I told them I was in town visiting my uncle, who some of them recognized. They seemed to change once I told them... the guys were friendlier and a few of the girls asked if I wanted to hang out. I can't remember much after that.
 
 ***
 
@@ -147,9 +147,9 @@ Scott was distant as usual, at least until Friday rolled around. He seemed more 
 
 I dapped Scott up as he left and started getting ready. My cousin told me I didn't need to dress up, it wasn't black tie. I was still feeling uneasy about this. I decided to text my mom.
 
-"Hey mom, love you. Call you sometime this week."
+*"Hey mom, love you. Call you sometime this week."*
 
-Once again transport was arranged for me. I had never been into cars for some reason but I recognized this one from some music video. The driver opened the door for me and I sat down. I was silent the entire drive. I don't think the driver cared.
+Once again transport was arranged for me. I had never been into cars, but I recognized this one from some music video. The driver opened the door for me and I sat down. I was silent the entire drive. I don't think the driver cared.
 
 "We are here Sir" he said.
 
@@ -239,15 +239,17 @@ She threw her staff down and whipped the crown on her head to the ground. The ho
 
 "What on earth" a voice shouted...
 
-People began to run and topple over each other. Trees boomed as they hit the ground.I looked around for CJ or any of my family members but they were gone. I started to run as fast as I could. A few trees almost fell on me and I think they hit a few others. 
+People began to run and topple over each other. Trees boomed as they hit the ground. I looked around for CJ or any of my family members but they were gone. I started to run as fast as I could. A few trees almost fell on me and I think they hit a few others. 
 
 (*If you notice a few high profile deaths in a few days due to mysterious circumstances... you now know what happened.*)
 
-I made it to the road. The car was gone. Expensive cars speeding and nearly crashing away from the scene.
+I made it to the road. The driver was gone. Expensive cars speeding and nearly crashing away from the scene.
 
 ***
 
-A car pulled up beside me. "Get in!" it was my cousin.
+A car pulled up beside me. "Get in!"
+ 
+It was my cousin.
 
 "What the f- just happened" I said as I jumped in.
 
@@ -293,7 +295,7 @@ I couldn't pick it up...
 
 I sat down in the diner and ordered a coffee. Hands shaking, the waitress looking at me wearily. I sat in the corner and told her I would just like to be left to myself for a while. She seemed to understand. I called a ride and made my way home.
 
-When I saw Scott's things, I felt sick... he was gone... he was gone and I was responsible. It hit me like a ton of bricks.
+When I saw Scott's things, I threw up... he was gone... he was gone and I was responsible. It hit me like a ton of bricks.
 
 I was guilty. I was a killer. I was "IN DANGER OF DESTRUCTION"...
 
@@ -357,7 +359,7 @@ She thought for a moment "I never expected you would get along that well with my
 
 "Goodbye Son" she said without an ounce of warmth and hung up.
 
-"M... m... mom? Mom!" I said into the phone, the call already ended.
+"M... m... mom? Mom!" I said into the phone, call already ended.
 
 I don't think It's ever going to be the same again...
 
