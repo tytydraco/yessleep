@@ -6,6 +6,14 @@ The Sisters of Perdition
 
 &#x200B;
 
+Part 2
+
+&#x200B;
+
+https://www.reddit.com/r/booktopia/comments/16ko4js/the\_sons\_of\_perdition\_part\_2/
+
+&#x200B;
+
 &#x200B;
 
 I work at a construction company and we are renovating this old monastery into a library. The last of the monks decided to sell the building for money and the state of Tennessee bought it to make it a heritage site. There is still going to be a library and in addition to adding a bunch of books they are keeping all the ones that were originally here. While renovating the building we found a secret room! And guess what was in it? More books! I even found a journal from David Rockefeller. After reading it I found this part particularly fascinating and wanted to share it.
