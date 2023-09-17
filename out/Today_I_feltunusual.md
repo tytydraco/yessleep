@@ -1,4 +1,4 @@
-Today, I woke up feeling unusual. It was a workday, and I followed my routine by cracking my right hand's knuckles, then my left hand's, but something didn't feel quite right. I did it a couple more times until I felt better.
+Today, I woke up feeling different. It was a workday, and I followed my routine by cracking my right hand's knuckles, then my left hand's, but something didn't feel quite right. I did it a couple more times until I felt better.
 
 In the shower, I accidentally bumped my right shoulder against the glass door. I tried to balance it by bumping my left shoulder against the wall, but it only made me feel worse. I ended up banging both sides of my shoulders against the surroundings until I felt some relief.
 
@@ -8,19 +8,19 @@ Now it was time for my tongue. I try to maintain the brush's position on the cen
 
 My hand is not quite as precise as a surgeon's one. And deviate I did. I tried to fix it the usual way but something about today was... off. I brushed my tongue for so so long I almost gagged.
 
-My mouth is clean now. better get dressed and head out.
+My mouth is clean now. Better get dressed and head out.
 
 On my way to the train station, I noticed people with their brains floating above them, tethered to their heads by a thin string. I tried not to focus on it, but today, it bothered me more than usual.
 
-"Nothing unusual about this" I repeat to myself. I see this all the time.
+"Nothing new about this" I repeat to myself. I see this all the time. 
 
-But I feel it much more today. If the strings connecting their brains to their heads interfere with any surroundings, then they would disconnect and their brains would fly away I am can't let that happen.
+But I feel it much more today. If the strings connecting their brains to their heads interfere with any surroundings, then they would disconnect and their brains would fly away, and I can't let that happen.
 
 Sometimes my eyes emit a laser that shoots out and hits anything I look at.
 
 Today the laser was more vivid than ever. I worried my laser eyes would sever those fragile connections.
 
-"I have to look away" I said to my self. and so I did. I closed my eyes. 
+"I have to look away" I said to my self. And so I did. I closed my eyes. 
 
 That's better. 
 
@@ -46,15 +46,15 @@ And so I urgently began doing so. I focused all my energy into it. I tried to fo
 
 I squeezed it so hard into her until it felt just right.
 
-I stand up. But then it sinks in. I must've killed this woman. she isn't moving.
+I stand up. But then it sinks in. I must've killed this woman. She isn't moving.
 
-I begin to panic. my compulsions feed on my fears and escalate. I run away trying to avoid any people. I cannot hurt another human. I'm a good person. 
+I begin to panic. My compulsions feed on my fears and escalate. I run away trying to avoid any people. I cannot hurt another human. I'm a good person. 
 
 I take a right turn. It's another area in the station. 
 
-I cannot control my self at this point. I must take a left. Then again right then left. right then left.
+I cannot control my self at this point. I must take a left. Then again right then left. Right then left.
 
-I reach an unfamiliar train stop. the train is coming, it's on the right side of me. 
+I reach an unfamiliar train stop. The train is coming, it's on the right side of me. 
 
 On the left is a group of people.
 
@@ -62,7 +62,7 @@ Mothers. Fathers. Children.
 
 I cannot let myself hurt them.
 
-My lasers are going crazy and bouncing off of every object in the area like a light reflects off a mirror.
+My lasers are going crazy and bouncing off of every object in the area like light reflecting off a mirror.
 
 All their innocent brains are floating away.
 
