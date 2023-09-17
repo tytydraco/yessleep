@@ -14,7 +14,7 @@ That night as I rolled onto my side of the bed I asked something out loud; “Wh
 
 “I’m Buster, your loyal dog.” It said while my face was away from its muzzle. I was frozen in fear. I felt a human hand grab my side. “And I won’t leave you anytime soon.”
 
-My breathing got fast and my heart raced, I finally unfroze after a few minutes of its hand on me. I rolled out of bed and faced whoever was inside the corpse of my dog, and I was met with a slim shadowy figure. It looked uncanny but still somewhat human. Its torso protruded from my dog's stomach, Buster's rotten corpse was made more apparent as I saw his ribs pushed apart to make way for whoever this was. It smiled at me, just like any person was. It tried reaching its hand out to me, its brown eyes staring at me as if it wanted to live inside of me next.
+My breathing got fast and my heart raced, I finally unfroze after a few minutes of its hand on me. I rolled out of bed and faced whoever was inside the corpse of my dog, and I was met with a slim shadowy figure. It looked uncanny but still somewhat human. Its torso protruded from my dog's stomach, Buster's rotten corpse was made more apparent as I saw his ribs pushed apart to make way for whoever this was. It smiled at me, just like any person would. It tried reaching its hand out to me, its brown eyes staring at me as if it wanted to live inside of me next.
 
 “Get out of my house!!!” I screamed at it. “You’re not my dog!”
 
