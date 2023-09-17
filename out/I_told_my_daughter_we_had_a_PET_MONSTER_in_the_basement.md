@@ -24,7 +24,7 @@ She happily nodded her head up and down; she had the hugest smile that I had eve
 
 As the weeks passed I didn’t even give much thought at what I told her I figured she would forget about it, but I would catch her every once awhile just staring at the basement door, I wanted to tell her the truth but seeing how enthralled she was with this imaginary monster made me hesitate from the idea of breaking that dream for her.
 
-As time went on I started to notice a weird smell coming from the basement, it was a fowl scent as if perhaps a critter died in the wall; but every time I would go down there to acquire the source of the smell I could never find it. My daughter always at the top of the stairs would tell me its because of Harry,
+As time went on I started to notice a weird smell coming from the basement, it was a foul scent as if perhaps a critter died in the wall; but every time I would go down there to acquire the source of the smell I could never find it. My daughter always at the top of the stairs would tell me its because of Harry,
 
 “Who?” I remember asking.
 
@@ -32,7 +32,7 @@ As time went on I started to notice a weird smell coming from the basement, it w
 
 I wasn’t too sure if was cute that she gave her imaginary monster a name or was it getting out of hand. The smell grew worse with each passing day and I was determined to find the root cause, I was ready to demolish the walls and find that dead creature that was inundating my house in its horrid stench, but my wife reminded me of our yearly camping trip, I was a bit perturbed knowing the smell would only grow worse but I didn’t want to disappointment my family and we went on our little getaway.
 
-Returning home I had completely forgotten about the smell, that was until I stepped inside the house, the stench had grown worse and I vividly could tell it was coming from the basement. I told my family to wait outside as I headed towards the basement door, I cautiously opened it and the fowl smell hit me like a bag of bricks I nearly fainted; it was terrible I felt myself begin to gag. It was as if dozens of animals had died down there and their rotting corpses drenched the air with their stench. I turned on the light to the basement but the bulb didn’t illuminate
+Returning home I had completely forgotten about the smell, that was until I stepped inside the house, the stench had grown worse and I vividly could tell it was coming from the basement. I told my family to wait outside as I headed towards the basement door, I cautiously opened it and the foul smell hit me like a bag of bricks I nearly fainted; it was terrible I felt myself begin to gag. It was as if dozens of animals had died down there and their rotting corpses drenched the air with their stench. I turned on the light to the basement but the bulb didn’t illuminate
 
 “Perfect” I told myself.
 
