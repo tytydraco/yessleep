@@ -1,31 +1,17 @@
-The nightmare 
-There’s 5 rules to the nightmare.
+ My name is Zoe. Have you ever had a dream that felt so real that it was unnerving? If so, have you ever had it come true? I hadn't until one fateful night. This started when I was still a sophomore. I lived in a very small town so it wasn't uncommon for a random person to stop you on the street for some reason. I had woken up for school rather early from a nightmare I had that night. Now, normally, the nightmares I have are random and make no sense, but this one was different. This one was down right terrifying. 
 
-1.) You can’t fall asleep after midnight. If you’re not asleep by midnight you must stay awake til the sun comes up.
+ It started when me and my friends, Kai and Sage, stopped at our local coffee shop before we headed to school. It was a brisk autumn morning when, as we were leaving with our coffee in hand, this creepy old man stopped us and asked us for directions to the "cabin in the woods." We said we didn't know of any cabin in the woods, he then smiled and said "You will soon" then I woke up. Sweat pouring down my face, borderline hyperventilating. Checking the time; it was 3:00 am, I should have gone back to sleep but I couldn't. Not after a dream like that. At school that day, I couldn't even look my friends in the eyes without almost cowering in fear. 
 
-2.) You must cast a protection spell on your room every night before you sleep.
+A couple of weeks went by and I had forgotten about the dream completely, that is, until my friends and I were at that coffee shop. As we walk in, we notice that we are the only ones there. We think nothing of it as it is six in the morning. We go up, order as normal, and as we are about to leave, Sage says "I feel funny." before collapsing on the floor. I scream for somebody to help but the realization comes that we are no longer in the coffee shop. I hear a loud bang, then Kai falls to his knees, screaming out in pain.
 
-3.) You must always keep a line of salt across the back door of your house.
+I look down at him and see blood trickling down the side of his face, his normally bright blue eyes have gone navy with pain. As I am watching him, I feel a sharp poke in my arm, then stinging, burning. It felt like my skin was on fire. I knew I was going to pass out, but just before I did, I heard a sinister cackle from in front of me. As I look up, I see the old man from my nightmare staring right back down at me. Then the world fades away... I wake up to the sound of screaming, looking around me all I see is darkness. 
 
-4.) You must sage your house every new moon.
+There is a very faint light coming from a window on the other side of the room. I try to get up and run, but as I come to find out, I am tied to a wall. I yell my friends names before breaking down crying, screaming in pure agony. The old man comes up to me saying that there is no use in screaming because no one will hear me. My breath hitches and I can feel the lump in the back of my throat as I ask him "What do you want with us..?" he says in return "To be a family" I nod as my mind starts racing trying to think of a way out of this. I ask where my friends are and his face drops down to mine, and he whispers. "Those weak little fools couldn't handle being in my family." I swallow hard so I don't cry again. 
 
-5.) If you realize you’re in the nightmare you must run as fast as you can to the hollow tree and climb inside. I hope you’ve been practicing your lucid dreaming skills.
+He unties me from the wall, warning me not to try to run. We walk to the dining room where he sits me down in a chair, tying me to it. He then goes behind me putting an old tee shirt over the chest area of my dress, then puts a bottle of what I thought was milk up to my lips before saying, "Drink up Anya It's dinner time." I do as I am told, gagging slightly as I swallow the rotten tasting, jelly feeling liquid. When the bottle is empty my stomach feels like it is being eaten from the inside out. He turned around to grab something as as he did, I threw up the contents of my stomach all down his back and onto the floor behind him. 
 
+For years, I dealt with him tying me up and feeding me these horrible things. Even though, I wanted to give up, I still had hope that I would get away from this sick bastard. After what felt like decades he finally trusted me enough to drive him to the nearby store for his medicine. My mind is racing, my knees are weak, my palms clammy with sweat as I death grip the steering wheel. As we are driving, I see a police officer - a state trooper and without thinking I speed up and crash into a nearby phone pole. The old man gets flung out of the windshield as our truck flips a few times. 
 
-Welcome to the nightmare club. Once you’ve been welcomed you can never leave. So glad you came…..
+I must have hit my head really hard because I woke up in the hospital with cops and nurses all around me. As I tell them what has been my life for the past few years, I feel myself start to cry. I must have cried for hours because it was dark by the time I stopped. They called my parents and after two months in the hospital I finally got released. 
 
-
-First order of business have you been practicing your lucid dreaming skills like the dream teacher told you last week? The beast is getting stronger and will reach its peak for this cycle on 12/22/2022 so I sure hope you’ve been doing your homework. Or did you zone out in class again? 
-
-
-Let me refresh you. Every night before you sleep you need to say out loud 3 times “I will remember my dreams.” Upon waking you must write down what happened. This was the first thing taught in the dreamers course for conquering the nightmare so I hope you remember. We learned a few months ago that every 4th dream you have will give you 1 small key component to defeating the beast when the time comes so I hope you’ve been paying attention to your dreams. We’re counting on you for your 8 keys. We will need all 88 keys to put the beast to rest. It will be semi problematic if it were to kill you in the nightmare before we got those keys. I trust you’ve been closely following the rules though since your reading this now. Either way I’m sure you could be replaced with a new member in no time. After all the welcome can’t be opt out of.
-
-
-This week we covered the keys for the 5th raven-warrior, that’s you in case you weren’t paying attention. You’ll need to gather a small pocket watch, an intact bloomed dandelion head, a black widow, 44 connected links of a rusty chain, a red handled dagger, the nutty wizards left shoe, and 12 rose thorns. You’ll be keeping the dagger for battle. The rest will be for the potion creation in class on 12/2. I highly recommend attending class that day if you wish to survive. 
-I’ll list the other raven-warriors keys in good time for the others who haven’t taken good notes. 
-Oh also before I go we had to update the protection spell for rule number 2 as it appears the nightmare broke through last night and killed one of our ravens.
-
-
-The updated protection spell is as follows. Recite out loud; Salt of earth guard this home while I’m here or when I roam. In my dreams I may be far but to my body will come no harm. Then turn 3 circles clockwise. 
-
-Sweet dreams.
+This was 3 years ago on this very day. I found out soon after going home that the old man had been pronounced dead.. I wish that he would have lived the rest of his life behind bars but, I'll never have to see his face again and that alone satisfies me enough. I still think back on it and how lucky I was and still am to be alive. Folks, always be cautious with who tries to engage you. You never know who or what that person will take from you.
