@@ -18,9 +18,9 @@ While conditions seemed bad right now, with the truck stuck like it was, I gave 
 
 “Calm down,” I said. “You have to lead us back towards the hut. You probably won’t have to go in. We just need to get your sister and come back, then we can leave. What’s your name?”
 
-“Arina,” she said.
+“Irina,” she said.
 
-“That’s a very pretty name,” Yakov said. “My name is Yakov, and this is Nikolai. We’re the good guys. We can fight off that witch and bring your sister home. If we do nothing, your sister will die. You know that.” Arina nodded, wiping her eyes. Bundled up in her layers of clothing with a fur jacket on the outside, she looked almost like a little eskimo sitting here in my truck. I repressed the crazy urge to laugh at the image, remembering what was happening.
+“That’s a very pretty name,” Yakov said. “My name is Yakov, and this is Nikolai. We’re the good guys. We can fight off that witch and bring your sister home. If we do nothing, your sister will die. You know that.” Irina nodded, wiping her eyes. Bundled up in her layers of clothing with a fur jacket on the outside, she looked almost like a little eskimo sitting here in my truck. I repressed the crazy urge to laugh at the image, remembering what was happening.
 
 “Let’s do this,” I said, getting out of the truck. I grabbed more ammo from the glovebox, and saw Yakov grabbing some bullets from the satchel of random goods he carried around with him in a leather skin. He left the rest of his possessions in the truck, folding the leather carefully back over them and tying it with a cord.
 
