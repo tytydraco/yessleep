@@ -104,7 +104,7 @@ I threw a cushion at him, and, being him, he hurled one back with maximum veloci
 
 Damn. He could really pull off a performance. 
 
-Jonas offered her a small smile, and then shot me a *be nice* look, to which I returned a, *Me? When have I not been nice?* one back. He rolled his eyes and turned back to his laptop. Wrong angle. Hannah's curious eyes were on him, while mine were waiting for her to see it. I blocked it out most of the time, but when we had guests, or when he was turned a certain way, you could  totally see it if you were looking for it. 
+Jonas offered her a nod, and then shot me a *be nice* look, to which I returned a, *Me? When have I not been nice?* one back. He rolled his eyes and turned back to his laptop. Wrong angle. Hannah's curious eyes were on him, while mine were waiting for her to see it. I blocked it out most of the time, but when we had guests, or when he was turned a certain way, you could  totally see it if you were looking for it. 
 
 Jonas shooed us away with a promise to cook dinner, and went back to typing. Jonas's Macbook was still broken, a splintered spider web of glass and plastic staring back at him. 
 
