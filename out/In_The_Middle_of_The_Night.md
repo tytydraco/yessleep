@@ -1,0 +1,13 @@
+I can hear my baby sister crying. 
+
+It’s early; my room is still dark once I open my eyes, pulling my blanket closer to myself. Even though my windows are closed, the January chill has a way of seeping in and numbing my body. I rub my eyes, letting out a large yawn, wincing at the sound of my sister’s wails. 
+
+‘What’s happened this time?’, I wonder, a bit annoyed. Ever since Mommy and Daddy brought her home, we’ve been living with the constant crying and screaming. I’m sure I didn’t cry that much when I was a baby, no matter how many times Mommy laughs and tells me otherwise. She’s stopped crying; I guess someone’s in her room. I want to go back to sleep, but my tummy gurgles. If I’m quiet, maybe I can sneak past her room and get a cookie!
+
+I leave my room, being careful to tiptoe the whole way to the kitchen and into the pantry. Biting into my scrumptious cookies (I took 3; Mommy won’t mind that much, right?), I make my way back to my cozy bed. As I begin to cross my sister's room, I hear something odd. Giggling. "What's making her laugh?", I mumble under my breath, and open the door just a crack, sneaking a little peek. Mommy or Daddy are definitely inside, making silly faces at her (how that amuses her, I will never know). But I am wrong. So very wrong.
+
+My sister is standing up in her crib, bouncing up and down. Upon hearing the door creak open, she turns to look at me and gurgles in pleasure. But I'm not looking at her. I'm staring at the tall figure next to her crib, casting a shadow on her. It's a man, thin as a skeleton, with flowy clothes on. He's just staring at my sister, the night light illuminating his one hand resting casually on the wooden frame. However, his grip strengthens when I take a step into the room, mouth open in confusion. "Who is this man, and how is he taller than Daddy"? I thought my Daddy was the tallest man in the world, but this stranger makes him look so small. As this thought crosses my mind, I can hear my parents calling out to me, panic in their voices. 
+
+Suddenly, it seems like the world outside wakes up. A billion bright lights turn on, blinding me and my sister, as we wince. My sister starts to cry again, startled by the sudden brightness and our parents yells. I want to comfort her, pick her up and make her laugh again,  but I can't peel my eyes off the scary man. He turns to face me, and I stare into his eyes. But his eyes... " WHY ARE THEY ALL BLACK?" is the only thing sprinting through my terrified mind. I realize with dawning horror that this is no man after all, this figure isn't even human. In the distance, I can hear sirens.
+
+I open my mouth and let out a scream.
