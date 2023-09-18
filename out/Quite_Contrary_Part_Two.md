@@ -1,8 +1,12 @@
+Part 1 : [https://www.reddit.com/r/nosleep/comments/15e5rzc/quite\_contrary/](https://www.reddit.com/r/nosleep/comments/15e5rzc/quite_contrary/)
+
 I have finally moved into my eternal torment, but I will not stand by and let this continue if I can help it. If there are solutions to this problem in this world, then perhaps it will truly end with me. I adored my grandma, but I can't help but feel bitter against her for leaving me to handle everything on my own.
 
   
-I at least got one of the things I've been waiting for, which is where this whole thing started. The head maid of the ancient country Victorian mansion gave me the first journal of many that would follow.  
-They don't have dates, but they do suggest what was agreed upon. Please pardon me, as I can't seem to grasp all that is written down at first, but I will write out every detail.
+I at least got one of the things I've been waiting for, which is where this whole thing started. The head maid of the ancient country Victorian mansion gave me the first journal of many that would follow.
+
+  
+They don't have dates, but they do suggest what was agreed upon. Please pardon me as I can't seem to grasp all that is written down at first, but I will write out every detail.
 
   
 …
@@ -11,7 +15,7 @@ They don't have dates, but they do suggest what was agreed upon. Please pardon m
 The First Journal;
 
   
-I am grateful for the presents I received from Papa on my eleventh birthday, but I was unable to get them before he died since he died last spring, and my birthday is in the summer. As I write this, my granny gave me this journal, but what papa gave me was genuinely lovely.
+I am grateful for the presents I received from Papa on my eleventh birthday, but I was unable to get them before he died since he died last spring, and my birthday is in the summer. As I write this, my grandmother gave me this journal, but what Papa gave me was genuinely lovely.
 
   
 Papa had given me a huge, lovely picture of a lady who resembled me but was older, tending to her garden, with Papa in the background gazing over her. Another porcelain doll that arrived with the artwork is another likeness of myself, even clothed in my favorite yellow garment with a magnificent bow that binds her lovely red tresses back. My papa's handwriting was scribbled on the bottom of her foot, Mary. Both the woman in the artwork and the doll have my name.
@@ -68,10 +72,10 @@ I'm not sure what it is, but it has something to do with that artwork! It needs 
 My Mary Doll, whom I adore, was smashed this morning while she was sleeping on my bed with me. I was in bed reading since I wasn't feeling well that day, and Doll Mary was on my pillow near me when she cracked. As a chunk slices my arm, I scream in shock and anguish.
 
   
-I don’t know why, but I looked up at the painting, and Mary’s eyes were looking down at me. I screamed and ran out of my room to my father's study, refusing to go back into that room again, Father and Mother did agree to allow me to stay with them in their room for a little while as they believed I was still upset about Ms. Amy, but it didn’t last long as Father did eventually kick me out of their room, leaving me alone to go back to mine.
+I don’t know why, but when I looked up at the painting, Mary’s eyes were looking down at me. I screamed and ran out of my room to my father's study, refusing to go back into that room again,  Father and Mother did agree to allow me to stay with them in their room for a little while as they believed I was still upset about Ms. Amy, but it didn’t last long as Father did eventually kick me out of their room, leaving me alone to go back to mine.
 
   
-That same week, I decided to gather all of my dolls and lock them up in trunks to be put up in the attic. Another Maid did put Mary back together, and she went with the rest, along with any other toys I had. I didn’t want the Painting of Mary to destroy anything else or take anyone else that I loved.
+That same week, I decided to gather all of my dolls and lock them up in trunks to be put up in the attic. Another Maid did put Mary back together and she went with the rest along with any other toys I had. I didn’t want the Painting of Mary to destroy anything else or take anyone else that I love.
 
   
 End of the first few entries.
@@ -83,10 +87,10 @@ End of the first few entries.
 That is all I got through for now, and I must say I am even more confused. Is this painting a replica of my great-great-great-grandmother's? So then it was made for her, and it must have already been cursed when her own grandfather gave it to her, or whoever did give it to her, as her grandfather was already dead before she received this gift.
 
   
-Honestly, I am a bit disappointed in myself, as I thought there would be more answers or even a climatic event that caused all of this, but my great-grandmother Mary said it began almost as soon as she reserved it. Could it have been her grandfather who cursed us all?
+Honestly, I am a bit disappointed in myself, as I thought there would be more answers or even a climatic event that caused all of this, but my Great-grandmother Mary said it began almost as soon as she reserved it. Could it have been her grandfather who cursed us all?
 
   
-Wait, no, that isn’t right, as it seems he was close to great-grandmother Mary, so perhaps it’s the person who painted the painting that was going to be given to Grandmother Mary. This would be a problem as they would be dead if that is the case, and these events happened 100 years ago, so I have no way of finding out who Mary’s grandfather ordered this painting from. Maybe it’s a witch, or perhaps a voodiest?
+Wait, no, that isn’t right, as it seems he was close to Great-grandmother Mary, so perhaps it’s the person who painted the painting that was going to be given to Grandmother Mary. This would be a problem as they would be dead if that is the case, and these events happened 100 years ago, so I have no way of finding out who Mary’s grandfather ordered this painting from. Maybe it’s a witch, or perhaps a voodiest?
 
   
 Trust me when I say that when you see things that I have seen, you will believe in anything to make what you’ve seen make more sense for your brain to be able to digest it all.
