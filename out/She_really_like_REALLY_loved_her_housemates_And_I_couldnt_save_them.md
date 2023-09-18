@@ -170,7 +170,7 @@ My own thoughts began to drift back, seeping into fruition.
 
 I showed her the bathroom next. 
 
-Which was sparkling clean, obviously. It had taken me 4 days to fully dismember JJ's body, and I was still finding smears of red. Our bathroom was still pretty, a large tub and shower, and a toilet in the corner. Above the toilet kid, were the vomit stains after I'd taken the first slice. It wasn't pretty. 
+Which was sparkling clean, obviously. It had taken me 4 days to fully dismember JJ's body, and I was still finding smears of red. Our bathroom was still pretty, a large tub and shower, and a toilet in the corner. Above the lid, were the vomit stains after I'd taken the first slice. It wasn't pretty. 
 
 Cutting through a human body was bad enough, and the head? It took me sawing to finally get the damn thing off. 
 
