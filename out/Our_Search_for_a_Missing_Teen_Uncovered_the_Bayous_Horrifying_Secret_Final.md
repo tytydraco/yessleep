@@ -12,7 +12,7 @@ Groggy and disoriented, I slowly regained consciousness. My ears were ringing, a
 
 Gradually, shapes started to form in the haze before my eyes. Gabby's face, gaunt and hollow, materialized in front of me.
 
-"Are you okay?" she whispered, her voice tinged with worry. It took me a moment to realize she was speaking; my ears still felt like they were stuffed with cotton.
+"Are you okay?" she whispered, her voice was shaded with worry. It took me a moment to realize she was speaking; my ears still felt like they were stuffed with cotton.
 
 I opened my mouth to respond, but my stomach churned violently. Gabby seemed to anticipate this, swiftly handing me a bucket. I barely had time to lean over before I vomited, my insides twisting painfully.
 
@@ -192,7 +192,7 @@ A pained growl escaped his lips. "No, not enough. The monster in me... it's insa
 
 For a moment, his eye widened, as if something crucial had just clicked into place. But then, he shook his head, the motion sluggish and impaired from his injuries. "No, should I?" He snarled.
 
-I felt a wry smile stretch across my lips as I tightened my grip on my weapon. "My name is Reine LeJeune,” I declared, using my maiden name. “Claire LeJeune was my sister.”
+I felt a wry smile stretch across my lips. "My name is Reine LeJeune,” I declared, using my maiden name. “Claire LeJeune was my sister.”
 
 As the weight of my words settled in the murky air, I saw Lupin's eyes widen ever so slightly, realization dawning on him like the morning sun over a bloodstained horizon.
 
@@ -202,7 +202,7 @@ As the weight of my words settled in the murky air, I saw Lupin's eyes widen eve
 
 Lupin's gaze wavered, a mixture of fear and remorse seeping into his eyes. For a moment, he appeared more human than monster, and I wondered whether this sliver of humanity that seemed to surface was genuine.
 
-"I am many things," he rasped, his voice broken, "but there is a part of me, a part buried so deep inside, that remembers what it is to be human. I can never undo what I've done to Claire, to you, to all those I've... taken."
+"I am many things," he rasped, his voice broken, "but there is a part of me, a part buried so deep inside, that remembers what it is to be human. A part that is disgusted by what I've done..."
 
 He paused, his eye locking onto mine as though searching for some kind of absolution. It was the same look I'd seen on countless criminals. The look of someone who knew they were caught, who knew they were facing a reckoning they couldn't escape.
 
@@ -212,7 +212,7 @@ This was a being whose essence was split between man and monster, a creature of 
 
 The shotgun felt heavy in my hands, its cold steel seeming to absorb the ambient moonlight. I lifted it, leveling the barrel at Lupin's head. My finger caressed the trigger, hesitant but determined. This was it. My moment of catharsis, my moment of justice for Claire, for all the faces and names he claimed to remember in his tortured dreams.
 
-"Do it," he rasped, a bitter smile curling his lips. "End it. End me. This existence is a curse, an unending nightmare. Maybe, just maybe, in death I'll find peace. And maybe you will too."
+"Do it," he rasped, a bitter smile curling his lips. "End it. End me. Maybe, just maybe, in death I'll find peace. And maybe you will too."
 
 A heavy silence hung in the air, one that seemed to drown out the sounds of the bayou, the rustling leaves, and the distant cries of creatures unknown. My thoughts flashed to Claire, to her laughter and joy, to the life she could have lived.
 

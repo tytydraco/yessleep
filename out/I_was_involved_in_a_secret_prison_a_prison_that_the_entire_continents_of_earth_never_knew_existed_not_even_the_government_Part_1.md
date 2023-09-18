@@ -48,7 +48,7 @@ There's this one teen, who told them he had nothing to do with the supernatural.
 
 \-
 
-I was sitting on my chair, listening to [goofy music](https://www.youtube.com/watch?v=irQNALota_g) on loop. The walls were as gloomy as the dead, and so is the ceiling. But with the music beating my brain with its country tone, I quickly went daydreaming. I picture myself driving along a highway at the ocean side. The dawning sun shunned the ocean's surface, cooking it into a wonderful hue. By tipping the top of my dusk sunglasses, I look at my reflection, seeing a bright smile on my face as the wind brushes my face and brown hair.
+I was sitting on my chair, listening to music on loop. The walls were as gloomy as the dead, and so is the ceiling. But with the music beating my brain with its country tone, I quickly went daydreaming. I picture myself driving along a highway at the ocean side. The dawning sun shunned the ocean's surface, cooking it into a wonderful hue. By tipping the top of my dusk sunglasses, I look at my reflection, seeing a bright smile on my face as the wind brushes my face and brown hair.
 
 Even though at the reflection of my mind I might look peaceful, that was just a mask. Behind it, I wished hard for someone to accept me. No, not just acceptance. I wanted to feel human, but somehow, god doesn't seem to give me that chance. Instead, everyone sees me as something to put all their pain, regrets, and hatred on me; to cope with themselves.
 
