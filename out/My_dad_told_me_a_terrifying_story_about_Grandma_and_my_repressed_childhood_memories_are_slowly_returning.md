@@ -1,6 +1,6 @@
 I’ve not seen my grandma since 2009. She had a catastrophic argument with my dad, but he used to be elusive about what actually transpired between them. Grandma moved away a few months later – I only know that because I remember cycling past her house and seeing it for sale. I was always certain she told my dad her new address, but he always refused my requests to visit her.
 
-Once, I did a little detective work and opened a letter addressed to my dad. I recognised Grandma’s handwriting from birthday cards I’d received over the years. Dad scolded me for rummaging through his post, of course. He got all of his mail delivered to a separate PO box after that – stopping me from intercepting any more letters.
+Once, I did a little detective work and opened a letter addressed to my dad. I recognised Grandma’s handwriting from birthday cards I’d received over the years. Dad scolded me for rummaging through his post, of course. He got all of his mail delivered to a separate PO Box after that – stopping me from intercepting any more letters.
 
 *Dear John,*
 
@@ -108,6 +108,6 @@ It wasn’t *both* grandparents who invited my friends and gave us sweets.
 
 It was Grandad.
 
-[X](https://www.reddit.com/r/nosleep)
+[X](https://www.reddit.com/r/dominiceagle)
 
 **EDIT:** How do I tell my dad? I can’t just leave things like this.
