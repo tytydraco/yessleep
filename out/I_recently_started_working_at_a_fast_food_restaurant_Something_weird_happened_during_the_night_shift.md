@@ -1,4 +1,4 @@
-My unemployment ran out recently, thus forcing me off my ass and back into the real world. 
+My unemployment ran out recently, thus forcing me off my ass and back into the real world.
 
 Ugh.
 
@@ -8,15 +8,15 @@ As quickly as I dove back in, I'd given up on the search entirely.
 
 Or so I thought.
 
-The funny part is I didn't even go to Happy Burger looking for a job. I was just depressed and craving a meaty, juicy burger. And that's exactly what I got. 
+The funny part is I didn't even go to Happy Burger looking for a job. I was just depressed and craving a meaty, juicy burger. And that's exactly what I got.
 
 I ordered the #2 Combo Meal. Double cheeseburger, complete with the special (and very secret) "Happy Sauce," fries, and a soda - which I upgraded to a chocolate milkshake. Because why not?
 
-I absolutely devoured the food. Afterwards, I sat comatose in my booth, slumped over and *almost* regretting the binge. 
+I absolutely devoured the food. Afterwards, I sat comatose in my booth, slumped over and *almost* regretting the binge.
 
 That's when I saw the HELP WANTED sign in the window.
 
-I'd never worked at a fast food restaurant before and knew little to nothing about frying food or working a register, but I really needed the money and also figured I could get some free meals out of it. 
+I'd never worked at a fast food restaurant before and knew little to nothing about frying food or working a register, but I really needed the money and also figured I could get some free meals out of it.
 
 *It'll just be temporary*, I thought. *Fuck it.*
 
@@ -26,17 +26,17 @@ I filled out an application and much to my shock, I was standing at the register
 
 \*\*\*
 
-The job was simple enough, though I quickly learned that simple jobs tend to be boring as all hell. Nevertheless, I was employed and that's all that mattered. 
+The job was simple enough, though I quickly learned that simple jobs tend to be boring as all hell. Nevertheless, I was employed and that's all that mattered.
 
 Towards the end of my first shift, the manager, Rick, called me into the back office. Rick was a really short dude who had a blonde mustache and wore cowboy boots all the time. Don't ask me why.
 
-The first thing I noticed when I headed in there was that Rick had a weird look on his face. Almost like he was paranoid or something. 
+The first thing I noticed when I headed in there was that Rick had a weird look on his face. Almost like he was paranoid or something.
 
-*Maybe he's stoned too*, I thought to myself. 
+*Maybe he's stoned too*, I thought to myself.
 
 Oh yeah, I forgot to mention that I got stoned before work. Sue me.
 
-"Matt, right?" Rick finally said, looking up at me. 
+"Matt, right?" Rick finally said, looking up at me.
 
 "Yes sir," I responded. "Did I... do something wrong?"
 
@@ -52,19 +52,19 @@ If I'd known what I know now, I would've told him to fuck off right then and the
 
 As I walked back out the door, I had the sudden urge to ask him something. I guess I was still curious as to why Rick seemed so frazzled about getting a simple shift covered.
 
-"Did the other guy just quit or something?" 
+"Did the other guy just quit or something?"
 
-He stared at me for a moment, dead-eyed. 
+He stared at me for a moment, dead-eyed.
 
 "What?"
 
 "The other night shift worker," I said. "Did he leave you high and dry?"
 
-"Oh," said Rick. "Yeah. Exactly. You're not a quitter, are you?" 
+"Oh," said Rick. "Yeah. Exactly. You're not a quitter, are you?"
 
 "No, sir."
 
-Rick smiled a weird, forced smile. His behavior was... odd, to say the least, but I didn't think much of it. 
+Rick smiled a weird, forced smile. His behavior was... odd, to say the least, but I didn't think much of it.
 
 I should've been paying closer attention.
 
@@ -82,13 +82,13 @@ That's where we first bonded and shit.
 
 "I'll see if I can think something up," he said, grinning.
 
-Anyway, we spent the first part of that night just talking. 
+Anyway, we spent the first part of that night just talking.
 
 "So... the manager doesn't come in at night? What about the fry cook?" I asked.
 
 "Nope. Just us. Budget cuts, man. But don't worry about it. I'll teach you how to work the fryer. It's easy as shit."
 
-*We're never going to have to work the fryer at this rate*, I thought to myself, staring out at the empty restaurant. 
+*We're never going to have to work the fryer at this rate*, I thought to myself, staring out at the empty restaurant.
 
 \*\*\*
 
@@ -110,7 +110,7 @@ It was the sound of one of the chairs in the restaurant being dragged across the
 
 *But there was no one there.*
 
-I walked back to the register. Eyed the restaurant again. The booths were empty. Tables wiped down. Everything in its right place. 
+I walked back to the register. Eyed the restaurant again. The booths were empty. Tables wiped down. Everything in its right place.
 
 "Hello?" I called out.
 
@@ -134,7 +134,7 @@ I couldn't fully make out the image in the dark, but I saw enough to know that i
 
 *"Shit!"* I screamed as I involuntarily jumped.
 
-Ever since I was a kid, I've always *hated* clowns. They absolutely terrify me. Luckily, I'd gone years without seeing one. 
+Ever since I was a kid, I've always *hated* clowns. They absolutely terrify me. Luckily, I'd gone years without seeing one.
 
 Until now.
 
@@ -148,7 +148,7 @@ I slowly made my way around the register and carefully crept up to the window.
 
 I stood right at the glass and looked around the empty parking lot.
 
-Nothing. 
+Nothing.
 
 Not a sign of movement or life.
 
@@ -172,11 +172,11 @@ For a moment, I couldn't speak. I kept glancing out the window, expecting the cl
 
 "Yeah? What was it?"
 
-I considered telling the truth, but then I realized how insane it would sound, especially coming from a person currently stoned. 
+I considered telling the truth, but then I realized how insane it would sound, especially coming from a person currently stoned.
 
 "It was... a clown," I finally admitted.
 
-I expected Pitty to laugh at me. But he didn't. 
+I expected Pitty to laugh at me. But he didn't.
 
 "Wait. Are you serious?"
 
@@ -212,9 +212,9 @@ Pitty opened his mouth, but then stopped himself. It was like there was somethin
 
 "Okay, look... Jorge did some research and found out Happy Burger had a mascot back in the day. A clown. I think his name was... well, *Happy*. But they discontinued him. He also found some old commercial on a VHS tape from the 80s. And he kept saying the clown he was seeing was definitely Happy the clown. But I... didn't really buy into any of it."
 
-My heart started thumping even harder. 
+My heart started thumping even harder.
 
-*Shit. Fuck. Shit.* 
+*Shit. Fuck. Shit.*
 
 "Why did they discontinue him?" I finally asked.
 
@@ -230,7 +230,7 @@ This felt... *wrong*. But I couldn't exactly explain how I knew that. It was jus
 
 Pitty headed back to the register and started cleaning up for the night, while I looked back to the parking lot.
 
-Empty and still and dark and silent. 
+Empty and still and dark and silent.
 
 I couldn't get that white painted face out of my head.
 
@@ -238,4 +238,54 @@ Just... smiling at me in the window.
 
 I shivered.
 
-There was no way I was going to be able to sleep that night.
+I knew there was no way I was going to be able to sleep that night.
+
+\*\*\*
+
+I was home and in bed by 1:30, tossing and turning. 
+
+*Maybe I should just quit tomorrow morning*, I thought to myself. 
+
+I briefly imagined a scenario in which I went into Rick's office and told him I was out, just like Jorge. He'd probably be disappointed, but would quickly go on to hire the next sucker into working the next shift in a heartbeat.  
+
+Then Happy would be someone else's problem. 
+
+The next time I checked the clock, it was 3:45. I sighed. Still wide awake. Heart fluttering.
+
+*You're overreacting*, I told myself. *You need this job until you find something else*. 
+
+And that was that–
+
+Until it wasn't.
+
+The first thing I thought was that my television was glitching out in the other room, because just then, I heard someone *laughing* in my apartment.
+
+It was a maniacal, crazed cackle. As if someone had just heard the funniest joke of all time. 
+
+I hopped out of bed and stumbled into the living room, only to find the TV *wasn't* on.
+
+The laughing had stopped, the room now dead silent.
+
+*Jesus, I'm still stoned*, I told myself. *And delusional.*
+
+I took two steps back towards my bedroom, passing by my TV and that's when I saw something in the reflection of the black mirror. 
+
+It was Happy again. 
+
+Standing *right* behind me. 
+
+White face and wide grin.
+
+I immediately whipped back around–
+
+But there was nothing there. 
+
+I was alone in the dark. 
+
+I *ran* back to my room, slammed the door shut and locked it. Then, I climbed back into bed and waited for morning to come. 
+
+You know how they say not to "bring your work home with you?"
+
+Yeah.
+
+Fuck. 
