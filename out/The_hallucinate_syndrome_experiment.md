@@ -1,12 +1,9 @@
 Flipping through the pages, I felt a chill creep up my spine. The notebook contained a detailed account of a horrific experiment conducted in 1978. It spoke of trapping individuals in isolated rooms, exposing them to hallucinogenic gas, and paying them $100 for every hour they endured. The experiment was known as 'The Halluse Syndrome', and the experimenters were Leo, Mark, Alex and Jonathan - all scientists with a dark fascination."
-Jonas continued, his voice shaking as he recounted the disturbing details he found in the notebook”
+and i will now explain in detail excatly whats written in the notebook”
 
 :log 1:
 
 "Before we started the experiment, Alex got over his nerves. He wanted me to rethink. He thought it was a ”harmfull” experience. But i just told him: "You're just weak. Go do something useful. Or I'll put you in there with them!"
-
-As Jonas read Leo's words, he felt an eerie familiarity with them, as if Leo remembers these events in vivid detail. As Jonas köpt reading,
-Leo continued in the notebook,
 
 :log 2:
 
@@ -55,6 +52,6 @@ Only 2 of the 3 last people survived. The 2 WHO survived threw themself out. Whi
 
 
 
-As I continued to read this harrowing account, my heart sank and my mind struggled to comprehend the depth of human suffering described in the notebook. The last pages of the notebook were blank, leaving the ultimate fate of the unfortunate participants shrouded in darkness. I couldn't help but wonder if anyone had survived this horrible experiment or if it had consumed them completely.
+thats in detail everything thats been written in the notebook.  I continued to read this harrowing account, my heart sank and my mind struggled to comprehend the depth of human suffering described in the notebook. The last pages of the notebook were blank, leaving the ultimate fate of the unfortunate participants shrouded in darkness. I couldn't help but wonder if anyone had survived this horrible experiment or if it had consumed them completely.
 With a heavy sigh I closed the notebook, its cover creaking softly as if echoing the silent screams of those who had endured 'The Halluse Syndrome'. The laboratory around me remained desolate, a haunting reminder of the horrors that had unfolded within its walls.
 I knew this ominous tale would stay with me, a terrifying reminder of the darkness that could inhabit the human mind and the depths to which individuals could be pushed in the name of scientific curiosity. As I left the abandoned lab, I couldn't shake the feeling that some secrets were better buried, hidden in the shadows of history, never to be unearthed again
