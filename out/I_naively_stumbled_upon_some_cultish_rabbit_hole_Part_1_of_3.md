@@ -52,7 +52,7 @@ We conversed about the city for a time, about dumb construction popping up every
 
 I walked up the stairs into the gleam of the night, three blocks from my residence. I walked through the somewhat lit neighbourhood to my somewhat decent apartment on the corner of a somewhat busy intersection, and could see my window from the other sidewalk. I notice the light’s on. Had I left it like that? It wouldn’t have been like me.
 
-Cross the road, head inside, up the stairs, down the hallway, rustle for my keys.. what’s that sound? I hear from the interior of my apartment a very distinct ride cymbal, a very distinct brass section, and even the slightest hints of Charles Mingus’ double bass. Unlocking my door and stepping inside, I come to find the record player is on, and spinning on it is a copy of *The Black Saint and the Sinner Lady*. 
+Cross the road, head inside, up the stairs, down the hallway, rustle for my keys.. what’s that sound? I hear from the interior of my apartment a very distinct ride cymbal, a very distinct brass section, and even the slightest hints of Charles Mingus’ double bass. Unlocking my door and stepping inside, I come to find the record player is on, and spinning on it is a copy of *The Black Saint and the Sinner Lady*.
 
 I’m moved. I quickly shut and locked the door, then took the needle off of the LP, then turned off the amplifier. I’m shaking. I say in a slightly hushed voice:
 
@@ -136,4 +136,4 @@ After letting my tears flow for around five minutes, I got up and walked back to
 
 A phone number.
 
-Link to Part 2 will be put here soon.
+Part 2 of this story [here](https://www.reddit.com/r/nosleep/comments/16mbx0q/i_naively_stumbled_upon_some_cultish_rabbit_hole/). 
