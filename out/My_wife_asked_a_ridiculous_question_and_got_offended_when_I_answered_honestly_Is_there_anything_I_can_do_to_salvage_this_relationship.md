@@ -8,7 +8,7 @@ When she asked why, he patted her head and said, “Don’t take it personally h
 
 So, you can understand where her toxic obsession sprung from. Not that I’m excusing what she did, just making the point that although her skin may have cleared up, those self-esteem issues most definitely did not.
 
-It’s funny, in a grim sort of way. Because between her long, golden curls and piercing brown eyes, you could count the number of times Hannah needed to buy her own drinks on one hand. Don’t get me wrong, she wasn’t vapid or shallow or self-absorbed—she had a master’s in chemical engineering for Pete’s sake—it’s just her fixation with ALWAYS being the centre of attention could get a little…corrosive.
+It’s funny, in a grim sort of way. Because between her long, golden curls and piercing brown eyes, you could count the number of times Hannah needed to buy her own drinks on one hand. And her fixation with ALWAYS being the centre of attention could get a little…corrosive.
 
 Like one time, at a gala dinner, the senior partners at my firm practically started a Battle Royale craning to get a closer look at my Cesare Attolini suit and new Yacht-Master Rolex—the one with the bidirectional rotatable bezel and black dial.
 
@@ -40,7 +40,7 @@ Over the next few days, I’d catch her watching me whenever she thought I wasn�
 
 Meanwhile, I refused to believe the obvious truth: that I was terrified of my own wife. I mean, it sounded ridiculous, and if my buddies caught me tiptoeing past the master bedroom or jumping at my own reflection, they’d have said, ‘You can bench 220 but you’re terrified of your missus? Puh-lease’.
 
-So, rather than go stay at a hotel, I marched into our room one night, bouquet of roses in hand, and announced to Hannah that I couldn’t hold a candle to her. I said every time the human beam of sunlight I was privileged enough to call my wife and I stood next to each other, I looked so ugly by comparison on-lookers wondered whether my parents might have been related. 
+So, rather than go stay at a hotel, I marched into our room one night, bouquet of roses in hand, and announced to Hannah that I couldn’t hold a candle to her. I said every time the human beam of sunlight I was privileged enough to call my wife and I stood next to each other, I looked so ugly by comparison on-lookers wondered whether my parents might have been related.
 
 Hannah gave me a long, hard stare before pulling back the bedsheets.
 
@@ -64,7 +64,7 @@ The world appeared as blobs of swirling colour, and the front of my nightshirt k
 
 It occurred to me that Hannah was probably watching this with great amusement, delighted by her husband’s disfigurement. What I didn’t realize at the time was that she’d *also* snapped photos to WhatsApp to our closest friends.
 
-In the morning, they’d wake up, open pictures of me wrestling my shirt over my head—accompanied by the caption *my ugly man’s got that beach bod—*and chuckle at what they believed was my ‘disgusting Halloween mask’.
+In the morning, they’d wake up, open pictures of me wrestling my shirt over my head—accompanied by the caption \*my ugly man’s got that beach bod—\*and chuckle at what they believed was my ‘disgusting Halloween mask’.
 
 Disoriented, still burning, I screamed for help through liquifying lips, again and again. There came no response.
 
@@ -88,7 +88,7 @@ She eased herself into a seat across my lap, one arm draped across the back of m
 
 The second I saw a flashing light, I sprung into action. Later, I was told in the action shot captured by the phone my face had the consistency of strawberry jelly, and where our cheeks touched melted skin stretched out like the warm cheese on a piece of garlic bread.
 
-Still blind, I lashed out, swiping at Hannah’s chest and arms. The phone went spinning out of her hand and she tried to run, but I cut off her escape, knowing if she slipped away I’d be left there to rot. 
+Still blind, I lashed out, swiping at Hannah’s chest and arms. The phone went spinning out of her hand and she tried to run, but I cut off her escape, knowing if she slipped away I’d be left there to rot.
 
 With every ounce of strength in my body I reigned down blows, hearing bones crunch and teeth shatter. My 'better' half fought back, swiping at me, tearing away chunks of flesh so large medics would later tell me huge portions of bone shone through.
 
