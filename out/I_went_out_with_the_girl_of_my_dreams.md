@@ -6,7 +6,7 @@ I stood in the frozen food isle looking to the front of the store. My jaw hangin
 
 "Are you alright? You were just staring into space" Dennis said raising an eyebrow.
 
-"Oh... oh.. yeah I was just looking, I was just looking because I thought someone was stealing" I said bumbling.
+"Oh... oh.. yeah I was looking, I was uh... looking up front, because I thought someone was stealing" I said bumbling.
 
 "Who? The guy in the red!?" Dennis said now scanning the front of the store.
 
@@ -22,9 +22,9 @@ I walked over trying to play it cool, doing my best cavalier nod in her directio
 
 "Hi!" she said with a big bright smile.
 
-Instantly my cool facade crumbled. She was just too gorgeous. She looked almost too perfect...
+Instantly my cool act crumbled. She was just too gorgeous. She looked almost *too* perfect...
 
-For the rest of the night I tried not to seem like an idiot. A few times I had to help her ring some things through her till and I think she was kind of impressed at my knowledge. I was getting more confident as the night went on.
+For the rest of the night I tried not to seem like an idiot. A few times I had to help her ring some things through and I think she was kind of suprised by my knowledge (in a good way). I was getting more confident as the night went on.
 
 "So anyways, I've been here a while, I basically know all the shelves by now."
 
@@ -43,24 +43,24 @@ She was way out of my league but I was going to shoot my shot. After work that n
 "Cindy... I was uh, wondering, would you like to go out sometime" I was so nervous.
 At first, I'm not sure if I caught her by surprise or something but she was just staring down at the ground in front of her into nothing. It felt like it lasted an entire minute. Finally she looked up at me as if she had registered what I had said, her face switching to that happy bright smile I had seen earlier.
 
-"Yeah... that would be like... totally cool" she said, her voice with the tell tale valley girl accent that made every sentence sound like a question.
+"Yeah... that would be like... totally cool" her voice with the tell tale valley girl accent that made every sentence sound like a question.
 "G-g-great. I'll see you tomorrow then!" I said nearly giddy.
 
 ***
 
 The next few months flew past. Cindy was amazing and I loved every second I spent with her. I took her to every hot spot in town I knew about. I kept telling her about how I was finally gonna land that job and one day I could take her anywhere in the world she wanted.
 
-At first I didn't notice, I mean I was just so happy to be with her. I really couldn't believe she was dating a guy like me and not flying around the world doing modelling gigs or something. I tend to talk a lot so I guess it was nice just to have a listening ear; she always seemed interested.
+At first I didn't notice, I mean I was just so happy to be with her. I really couldn't believe she was dating a guy like me and not flying around doing modelling gigs or something. I tend to talk a lot so I guess it was nice just to have a listening ear; she always seemed interested.
 
 After a few months I realized, Cindy didn't say much... much of anything really.
 
-To be honest and I know it's shallow, but I think I was just so stunned by her looks I hadn't noticed. She didn't have a blemish, it's like she had Instagram filters on... in real life. One day I tried to get her to open up.
+To be honest and I know it's shallow, but I think I was just so stunned by her looks I hadn't noticed. She didn't have a blemish. It was like she had filters on... in real life. One day I tried to get her to open up.
 
 "Hey Cindy..." I said bashfully.
 
-"We've been going for a while now and I realized that I talk too much about myself maybe... I mean, you don't really ever say anything... like anything at all." I realized how weird it was that we had been seeing each-other for months and I knew next to nothing about her.
+"We've been going for a while now and I think that I talk too much about myself maybe... I mean, you don't really ever say anything... like anything at all." I realized of how weird it was that we had been seeing each-other for months and she had hardly talked.
 
-"Oh.." she said sounding surprised. "Yeah... yeah I guess so!" at first spacey but then it was like she snapped out of it and was excited about the realization.
+"Oh.." she said sounding surprised. "Yeah... yeah I guess so!" at first spacey but then it was like she snapped out of it and was excited about it for some reason.
 
 "Well... I mean why don't you tell me... I don't know, like what are you into?" I said feeling kind of foolish. I really didn't know anything about her.
 
@@ -68,15 +68,15 @@ Of course I knew some things about her...
 
 I had met her family and been to her house, they all seemed friendly enough. I had been in her room briefly but only once or twice. She had some posters and books but not much else. A few porcelain dolls she called her 'friends' (*which I admit is kind of funny now*) and a vanity table where she would do her make up.
 
-There was a TV she liked that we watched together once, I didn't really follow the plot. I was too distracted by her. I kept glancing over and it seemed like she was enjoying it but her expression was kind of... idk, like monotone or something. 
+There was a TV show she liked that we watched together once, I didn't really follow the plot. I was too distracted by her. I kept glancing over and it seemed like she was enjoying it but her expression was kind of... idk, like monotone or something. 
 
 She just kept smiling at the screen with glassy eyes.
 
-Afterwards I asked her what she liked about the show and she only said...
+Afterwards I asked her what she liked about the show and all she said was...
 
 "I don't know, they're... they're all so nice. I just like it." her voice trailed off.
 
-We went roller skating a few times . We didn't talk much then either. I was infatuated with her though. Did I mention she was beautiful? She was like really really pretty.
+We went roller skating a few times. We didn't talk much then either. I was infatuated with her though. Did I mention she was beautiful? She was like really really pretty.
 
 I think she enjoyed it. I remember looking at her when we were out and she sort of had this vacant expression; at that time I figured she was enjoying herself.
 
@@ -121,7 +121,7 @@ The Cindy I knew was always smiling... how strange. I thought as I continued up 
 I could hear her now. She was in her room. She was humming quietly to herself. A thin ray of dim light emanated from the crack in the door. The wood floors creaking nearly imperceptibly as I made my way to the room. I rested my hand on the handle for a moment and slowly pushed it open.
 
 There she was, gorgeous as ever brushing her hair. The strands like silk and ivory waves as they fell gracefully through the comb. She still hadn't noticed.
-She was seated at her vanity, with her back to me. 
+She was seated at her vanity, her back to me. 
 
 The room was too dark for a proper reflection. I wanted to speak but I was almost enchanted. Suddenly she reached into a drawer in her desk and pulled out what looked like a key. I watched mesmerized.
 
@@ -138,11 +138,9 @@ Her head slowly rotated in my direction 180 degrees. There was no smile now, her
 
 "Cindy..." I said astonished.
 
-Suddenly like a switch I could see her start to try and form a smile, but something was wrong. I had interrupted her process... Her arm fell limp like a doll. Her expression became emotionless again, her right arm struggling to reach behind, finally turning the key.
+Suddenly like a switch I could see her start to try and form a smile, but something was wrong. I had interrupted her process... Her arm fell limp like a puppet. Her expression became emotionless again, her right arm struggling to reach behind, finally turning the key.
 
-She stood from her chair and walked slowly towards me.
-
-"You... were NOT supposed to see ME like this" her voice hard and harsh.
+She stood from her chair and walked slowly towards me. "You... were NOT supposed to see ME like this" her voice hard and harsh.
 
 I was too stunned to move.
 
@@ -152,7 +150,7 @@ I felt a strange sensation in my legs. I looked down at my feet and watched in a
 
 I was being petrified.
 
-The last thing I can recall as the solidification overtook my body was... in spite of the horror of the situation and the fact that I would soon be stone...
+The last thing I can recall thinking as the solidification overtook my body was... in spite of the horror of the situation and the fact that I would soon be stone...
 
 *Still.. so... pretty...*
 
@@ -170,12 +168,10 @@ Cindy... was gone.
 
 I've tried dating a few times since all of this happened. For some reason it just isn't the same. 
 
-I guess I'm not used to dating girls who talk so much.
-
-And even though some of them are very beautiful they just don't compare to Cindy...
+I guess I'm not used to dating girls who talk so much. And even though some of them are very beautiful they just don't compare to Cindy...
 
 I still have a photo of when we were together. I found a number for a local doll maker. I think I'm going to get him to go through with it... he said it was strange but he should be capable.
 
-A life sized porcelain doll of Cindy... it will never replace her... but we should get along fine...
+It will never replace her... the life sized doll of Cindy... but I think we will get along fine...
 
 *I do most of the talking anyways.*

@@ -242,17 +242,17 @@ I knew there was no way I was going to be able to sleep that night.
 
 \*\*\*
 
-I was home and in bed by 1:30, tossing and turning. 
+I was home and in bed by 1:30, tossing and turning.
 
-*Maybe I should just quit tomorrow morning*, I thought to myself. 
+*Maybe I should just quit tomorrow morning*, I thought to myself.
 
-I briefly imagined a scenario in which I went into Rick's office and told him I was out, just like Jorge. He'd probably be disappointed, but would quickly go on to hire the next sucker into working the next shift in a heartbeat.  
+I briefly imagined a scenario in which I went into Rick's office and told him I was out, just like Jorge. He'd probably be disappointed, but would quickly go on to hire the next sucker into working the next shift in a heartbeat.
 
-Then Happy would be someone else's problem. 
+Then Happy would be someone else's problem.
 
 The next time I checked the clock, it was 3:45. I sighed. Still wide awake. Heart fluttering.
 
-*You're overreacting*, I told myself. *You need this job until you find something else*. 
+*You're overreacting*, I told myself. *You need this job until you find something else*.
 
 And that was that–
 
@@ -260,7 +260,7 @@ Until it wasn't.
 
 The first thing I thought was that my television was glitching out in the other room, because just then, I heard someone *laughing* in my apartment.
 
-It was a maniacal, crazed cackle. As if someone had just heard the funniest joke of all time. 
+It was a maniacal, crazed cackle. As if someone had just heard the funniest joke of all time.
 
 I hopped out of bed and stumbled into the living room, only to find the TV *wasn't* on.
 
@@ -268,24 +268,24 @@ The laughing had stopped, the room now dead silent.
 
 *Jesus, I'm still stoned*, I told myself. *And delusional.*
 
-I took two steps back towards my bedroom, passing by my TV and that's when I saw something in the reflection of the black mirror. 
+I took two steps back towards my bedroom, passing by my TV and that's when I saw something in the reflection of the black mirror.
 
-It was Happy again. 
+It was Happy again.
 
-Standing *right* behind me. 
+Standing *right* behind me.
 
 White face and wide grin.
 
 I immediately whipped back around–
 
-But there was nothing there. 
+But there was nothing there.
 
-I was alone in the dark. 
+I was alone in the dark.
 
-I *ran* back to my room, slammed the door shut and locked it. Then, I climbed back into bed and waited for morning to come. 
+I *ran* back to my room, slammed the door shut and locked it. Then, I climbed back into bed and waited for morning to come.
 
 You know how they say not to "bring your work home with you?"
 
 Yeah.
 
-Fuck. 
+[Fuck.](https://www.reddit.com/r/nicolascurcio)
