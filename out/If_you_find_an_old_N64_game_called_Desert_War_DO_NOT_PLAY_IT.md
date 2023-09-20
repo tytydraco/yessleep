@@ -1,4 +1,4 @@
-Two days ago, a guy walked into my retro gaming shop, carrying a small cardboard box. “Got some of my brother’s Nintendo 64 games to sell,” he said.
+A guy walked into my retro gaming shop, carrying a small cardboard box. “Got some of my brother’s Nintendo 64 games to sell,” he said.
 
 “I’m excited to see them. Just got a quick question for you. I’m not accusing you of being a thief or anything, but for legal reasons, I’m required to ask—do you have your brother’s permission to sell his games?”
 
@@ -97,3 +97,7 @@ I shrugged. “Who knows? Maybe someone dumped him there recently.”
 “…we have also received an additional update from the sheriff’s office,” the reporter continued. “A distinctive hat has been found near the body. They are asking that if you have any information about the owner of this hat, to call their office at once.”
 
 A photo of a green hat, embroidered with stars and crescents, came on screen.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/16n9yud/if_you_find_an_old_n64_game_called_desert_war_do/)
+
+&#x200B;
