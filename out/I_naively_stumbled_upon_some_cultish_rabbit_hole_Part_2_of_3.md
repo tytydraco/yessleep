@@ -154,4 +154,6 @@ One may judge, yet I took a deep breath and accepted his offer.
 
 &#x200B;
 
-Part 3 will be posted soon. 
+Part 3 of this story [here](https://www.reddit.com/r/nosleep/comments/16nak3a/i_naively_stumbled_upon_some_cultish_rabbit_hole/?sort=new). 
+
+&#x200B;

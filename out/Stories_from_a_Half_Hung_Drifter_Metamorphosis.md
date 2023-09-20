@@ -57,3 +57,5 @@ I checked the closet to find the cocoon the note mentioned. At that point we dec
 First Post: [https://www.reddit.com/r/nosleep/comments/15lzlf4/stories\_from\_a\_half\_hung\_drifter/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/15lzlf4/stories_from_a_half_hung_drifter/?utm_source=share&utm_medium=web2x&context=3)
 
 Previous Post: [https://www.reddit.com/r/nosleep/comments/161wmns/stories\_from\_a\_half\_hung\_drifter/](https://www.reddit.com/r/nosleep/comments/161wmns/stories_from_a_half_hung_drifter/)
+
+Next Post: https://www.reddit.com/r/nosleep/comments/16n0gva/stories\_from\_a\_half\_hung\_drifter/
