@@ -72,7 +72,7 @@ That shrill, hateful shrieking from the woods had nearly reached me by this poin
 
 And then I saw the silhouette, breaking through the trees. At first, I thought it a polar bear, this looming shadow that snapped solid branches aside like they were twigs.
 
-But instead, I saw a woman standing over eight-feet-tall with mottled, gray skin and a wrinkled, gaunt face. One of her eyes looked pure white, as if covered in a cataract. Her other had a strikingly pure iris with a deep, large pupil staring out from the middle, roving over the landscape before focusing on me.
+But instead, I saw a woman standing over eight-feet-tall with mottled, gray skin and a wrinkled, gaunt face. One of her eyes looked pure white, as if covered in a cataract. Her other had a strikingly pure blue iris with a deep, large pupil staring out from the middle, roving over the landscape before focusing on me.
 
 Her nose stuck out like a beak, sharp and curving, a few inches long. On her neck, I saw a necklace, holding the fingers of children- dozens of them, some rotted to bones, others fresh and still dripping blood. She saw me, looked at the gun and then at my face, and smiled.
 

@@ -78,7 +78,7 @@ Afterwards I asked her what she liked about the show and all she said was...
 
 We went roller skating a few times. We didn't talk much then either. I was infatuated with her though. Did I mention she was beautiful? She was like really really pretty.
 
-I think she enjoyed it. I remember looking at her when we were out and she sort of had this vacant expression; at that time I figured she was enjoying herself.
+I think she had fun. I remember looking at her when we were out and she sort of had this vacant expression; at that time I figured she was focused on not falling.
 
 I snapped out of my recollection as she started to answer my question.
 
