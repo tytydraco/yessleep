@@ -4,7 +4,7 @@ I stood in the frozen food isle looking to the front of the store. My jaw hangin
 
 "Dennis!" I said ears flushing red with embarrassment as I bent over to clean up the mess I had just made. The clamor of the fall causing everyone around to look our way.
 
-"Are you alright? You were just staring into space" Dennis said raising an eyebrow.
+"Are you alright? You were staring out into space" Dennis said raising an eyebrow.
 
 "Oh... oh.. yeah I was looking, I was uh... looking up front, because I thought someone was stealing" I said bumbling.
 
@@ -22,9 +22,9 @@ I walked over trying to play it cool, doing my best cavalier nod in her directio
 
 "Hi!" she said with a big bright smile.
 
-Instantly my cool act crumbled. She was just too gorgeous. She looked almost *too* perfect...
+Instantly my cool act crumbled. She was gorgeous. She looked almost *too* perfect...
 
-For the rest of the night I tried not to seem like an idiot. A few times I had to help her ring some things through and I think she was kind of suprised by my knowledge (in a good way). I was getting more confident as the night went on.
+For the rest of the night I tried not to seem like an idiot. A few times I had to help her ring some things through and I think she was kind of surprised by my knowledge (in a good way). I was getting more confident as the night went on.
 
 "So anyways, I've been here a while, I basically know all the shelves by now."
 
@@ -41,7 +41,7 @@ Maybe it was in my head but she really seemed interested in everything I told he
 She was way out of my league but I was going to shoot my shot. After work that night as we were all leaving I pulled up beside her.
 
 "Cindy... I was uh, wondering, would you like to go out sometime" I was so nervous.
-I'm not sure if I caught her by surprise or something but she was just staring down at the ground in front of her into nothing. It felt like it lasted an entire minute. Finally she looked up at me as if she had registered what I had said, her face switching to that happy bright smile I had seen earlier.
+I'm not sure if I caught her by surprise or something but at first she stared down at the ground in front of her into nothing. It felt like it lasted an entire minute. Finally she looked up at me as if she had registered what I had said, her face switching to that happy bright smile I had seen earlier.
 
 "Yeah... that would be like... totally cool" her voice with the tell tale valley girl accent that made every sentence sound like a question.
 "G-g-great. I'll see you tomorrow then!" I said nearly giddy.
@@ -50,15 +50,15 @@ I'm not sure if I caught her by surprise or something but she was just staring d
 
 The next few months flew past. Cindy was amazing and I loved every second I spent with her. I took her to every hot spot in town I knew about. I kept telling her how I was finally gonna land that job one day so I could take her anywhere in the world she wanted.
 
-At first I didn't notice, I mean I was just so happy to be with her. I really couldn't believe she was dating a guy like me and not flying around doing modelling gigs or something. I tend to talk a lot so I guess it was nice just to have a listening ear; she always seemed interested.
+At first I didn't notice, I mean I was just so happy to be with her. I really couldn't believe she was dating a guy like me and not flying around doing modelling gigs or something. I tend to talk a lot so I guess it was nice to have a listening ear; she always seemed interested.
 
 After a few months I realized, Cindy didn't say much... much of anything really.
 
-To be honest and I know it's shallow, but I think I was just so stunned by her looks I hadn't noticed. She didn't have a blemish. It was like she had filters on... in real life. One day I tried to get her to open up.
+To be honest and I know it's shallow, but I think I was still so stunned by her looks I hadn't noticed. She didn't have a blemish. It was like she had filters on... in real life. One day I tried to get her to open up.
 
 "Hey Cindy..." I said bashfully.
 
-"We've been going for a while now and I think that I talk too much about myself maybe... I mean, you don't really ever say anything... like anything at all." I realized of how weird it was that we had been seeing each-other for months and she had hardly talked.
+"We've been going for a while now and I think that I talk too much about myself maybe... I mean, you don't really ever say anything... like anything at all." I realized how weird it was that we had been seeing each-other for months and she had hardly talked.
 
 "Oh.." she said sounding surprised. "Yeah... yeah I guess so!" at first spacey but then it was like she snapped out of it and was excited about it for some reason.
 
@@ -96,7 +96,7 @@ Her brow furrowed slightly and her mouth opened, almost reminding me of that mem
 
 "You know what" I said interjecting. "It's cool, it's totally cool. We can go to all of them." I said trying to make light of the awkwardness of her apparent mental meltdown.
 
-To be honest I was fine if the girl I was dating didn't have much in the 'brains' department, she had a good heart I thought. Plus, she was just so so unbelievably pretty.
+To be honest I was fine if the girl I was dating didn't have much in the 'brains' department, she had a good heart I thought. Plus, she was so so unbelievably pretty.
 
 ***
 
@@ -104,9 +104,9 @@ Friday evening rolled around and I had decided tonight I was going to surprise C
 
 I had mentioned my plan to her parents. They told me they would be out, but just to walk in; they were positive she would love it.
 
-I pulled up to the house as silently as I could. I would be sure not to scare her but didn't want her to know I was there. I texted her before I left and she said tonight she would just be relaxing and watching her show with her 'friends'.
+I pulled up to the house as silently as I could. I would be sure not to scare her but didn't want her to know I was there. I texted her before I left and she said all she had planned tonight was relaxing and watching her show with her 'friends'.
 
-As I walked up I noticed it was really quiet. It didn't look like any of the lights were on. I sent her another text, but she didn't respond. I walked up the porch with the surprise snacks and magazine in hand. I quietly opened the door and walked inside.
+I noticed it was really quiet. It didn't look like any of the lights were on. I sent her another text, but she didn't respond. I walked up the porch with the surprise snacks and magazine in hand, carefully opening the door as I walked inside.
 
 I had expected to hear the TV or the radio going, maybe Cindy in the kitchen cooking, or the shower running. Instead it was dead silent. Was she even home? Maybe this was a dumb idea I thought. The house was uncomfortably dim and looked almost foreign in the dark.
 
@@ -160,7 +160,7 @@ I drove to Cindy's house as soon as I was released. I don't know what I expected
 
 I checked my bank statement, it showed that I had been to the grocer that evening when I picked up the magazine. It was real.
 
-When I got to the house I saw it right away. The 'For Sale' sign; the house already sold. I knocked on the door regardless. There was no one... I looked inside the house. All the furniture was gone. All of the items.. gone. 
+When I got to the house I saw it right away. The 'For Sale' sign; the house already sold. I knocked on the door regardless. There was no one... I looked inside the house. All the furniture was gone. All of the items... gone. 
 
 Cindy... was gone.
 
@@ -168,9 +168,9 @@ Cindy... was gone.
 
 I've tried dating a few times since all of this happened. For some reason it just isn't the same. 
 
-I guess I'm not used to dating girls who talk so much, and even though some of them are very beautiful they just don't compare to Cindy...
+I guess I'm not used to dating girls who talk so much, and even though some of them are very beautiful they don't compare to Cindy...
 
-I still have a photo of when we were together. I found a number for a local porcelain doll maker. I think I'm going to get him to go through with it... he said it was strange but he should be capable.
+I still have a photo of when we were together. I found a number for a local porcelain doll maker. I think I'm going to get him to go through with it... He said it was strange but he should be capable. 
 
 It will never replace her... the life sized doll of Cindy... but I think we will get along fine...
 
