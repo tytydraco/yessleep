@@ -100,7 +100,7 @@ To be honest I was fine if the girl I was dating didn't have much in the 'brains
 
 ***
 
-Friday evening rolled around and I had decided tonight I was going to surprise Cindy. I had at least found out in the time we had been dating what some of her favourite snacks were. I stopped at the store and picked them up and a special edition magazine about that show she liked.
+Friday evening rolled around and I had decided I was going to surprise Cindy. I had at least found out in the time we had been dating what some of her favourite snacks were. I stopped at the store and picked them up and a special edition magazine about that show she liked.
 
 I had mentioned my plan to her parents. They told me they would be out, but just to walk in; they were positive she would love it.
 
@@ -146,7 +146,7 @@ I was too stunned to move.
 
 Then, she placed both her hands on her face behind her jaw. I heard the same click and pop as before and watched aghast, unable to move as she pulled the visage of her face from the frame. Like a wooden mask, a facade...
 
-I felt a strange sensation in my legs. I looked down at my feet and watched in amazement as they slowly became hard like stone. I looked back up to Cindy in unbelieving horror. Her perfect doll-like appearance gone... her features the same but her skin ghastly pale and eyes black with hate.
+I felt a strange sensation in my legs. I looked down at my feet and watched in amazement as they slowly became hard like stone. I looked back up to Cindy in unbelieving horror. Her perfect doll-like complexion gone... her features the same but her skin ghastly pale and eyes black with hate.
 
 I was being petrified.
 

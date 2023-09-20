@@ -103,3 +103,11 @@ As we walked forward, I heard the gate click closed behind us. I turned and look
 I saw, to my horror, that I would need a key to get out as well as in. Another skull, its mouth open and filled with a silver locking mechanism, stuck out on this side as well. The metal in its mouth made it look like it was choking, the eternally gaping mouth like it was screaming.
 
 I turned away, focusing on the task at hand, hoping I would survive the next few minutes.
+
+&#x200B;
+
+Part 4
+
+[https://www.reddit.com/r/nosleep/comments/16nl7hj/i\_worked\_as\_an\_iceroad\_trucker\_in\_russia\_along/](https://www.reddit.com/r/nosleep/comments/16nl7hj/i_worked_as_an_iceroad_trucker_in_russia_along/)
+
+&#x200B;

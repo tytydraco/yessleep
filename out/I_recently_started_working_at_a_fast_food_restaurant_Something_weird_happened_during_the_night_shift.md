@@ -289,3 +289,5 @@ You know how they say not to "bring your work home with you?"
 Yeah.
 
 [Fuck.](https://www.reddit.com/r/nicolascurcio)
+
+[Part Two](https://www.reddit.com/r/nosleep/comments/16nrk2v/i_recently_started_working_at_a_fast_food/)
