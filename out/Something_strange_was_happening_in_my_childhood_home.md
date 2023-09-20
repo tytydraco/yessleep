@@ -1,8 +1,4 @@
-Disclaimer: This was a long time ago, so my memories of the following events are somewhat cloudy and the story it’s mostly reconstructed based on what my family has told me. This story happened in Chile during the early 2000 's, and is a real story. I also apologize in advance on behalf of my grammar, for my first language is spanish.
-
-I don't know if you'll believe my words, but I say to you, this is a true story. 
-
-Some strange things happened in my childhood home. It wasn't a particularly old house, it was built in the mid 80's and as far as I know, no one had died there by the time these things started to happen. Nonetheless, it was in a very old part of town, in a part where very dark things happened in the times when Spain governed over our country. Just one block away from my house, there once was a former lake (that dried and was filled a long time ago) where the colonial authorities threw the bodies of a group of Senegalese slaves that were executed for trying to return to their homes. 
+ Some strange things happened in my childhood home. It wasn't a particularly old house, it was built in the mid 80's and as far as I know, no one had died there by the time these things started to happen. Nonetheless, it was in a very old part of town, in a part where very dark things happened in the times when Spain governed over our country. Just one block away from my house, there once was a former lake (that dried and was filled a long time ago) where the colonial authorities threw the bodies of a group of Senegalese slaves that were executed for trying to return to their homes. 
 
 I don't know if any of you believe in the spiritual sense of the word "energies", but I certainly do. And I believe this is a good explanation of the things that happened in my house.
 
