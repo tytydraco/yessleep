@@ -1,0 +1,37 @@
+Disclaimer: This was a long time ago, so my memories of the following events are somewhat cloudy and the story it’s mostly reconstructed based on what my family has told me. This story happened in Chile during the early 2000 's, and is a real story. I also apologize in advance on behalf of my grammar, for my first language is spanish.
+
+I don't know if you'll believe my words, but I say to you, this is a true story. 
+
+Some strange things happened in my childhood home. It wasn't a particularly old house, it was built in the mid 80's and as far as I know, no one had died there by the time these things started to happen. Nonetheless, it was in a very old part of town, in a part where very dark things happened in the times when Spain governed over our country. Just one block away from my house, there once was a former lake (that dried and was filled a long time ago) where the colonial authorities threw the bodies of a group of Senegalese slaves that were executed for trying to return to their homes. 
+
+I don't know if any of you believe in the spiritual sense of the word "energies", but I certainly do. And I believe this is a good explanation of the things that happened in my house.
+
+Some time before I was born, my parents were having dinner with my brother and older cousins, who at the time were living in our house because they were in a university in our city. All were having a good time making chatter during dinner, when suddenly they all heard the same thing: The strident cry of a baby coming from my brother’s bedroom. My mom recalls that it was loud and short, just one single cry that got everyone out of the loop. And as soon as it appeared, the sound was away. The weird thing is, there was no baby living in our neighborhood at the time. Our neighborhood consisted of twelve semi-detached houses, so it’s not a far shot to theorize that it could have been a baby that stayed the night in one of our neighbor's houses, but the walls were very well insulated. Also everyone remembers that the cry wasn’t muffled, it clearly sounded as if it was inside of our house. 
+
+Old TV's tended to turn off by themselves. Also things used to get lost pretty often and then they reappeared in the most obvious of places, usually in the places we had searched previously to the point of exhaustion. My brother blamed the gnomes. 
+
+A more shocking experience happened to me when I was about 7 or 9 years old. My brother threw a party in our house with a couple of friends from university. I was on our old family computer, probably playing Runescape, in the same room where the party was going on, and then I heard a woman screaming. It was a friend of my brother's former girlfriend (for anonymity’s sake let’s call her Carla). She stood below the arch that leads to the living room, just in front of the stairs, staring with horror and yelling at an empty space on the wall. She began to cry and Carla tried to calm her down, but it was in vain. She insisted on leaving, whatever she saw had disturbed her deeply. 
+
+My brother says that, once she was more calm, she claimed that she saw a man standing on the stairs, staring at her with wrath. It was wearing a long trench coat and a cowboy hat, and everyone seemed to ignore his presence. Everyone but her. The thing that scared the f out of her were his eyes; she claimed that she sensed some kind of ineffable anger in his gaze, and then she was too scared to be in that house. Understandably, she never came back to our house.
+
+But there is one thing, one particular encounter I remember the most, as it is the most unbelievable, unexplainable, illogical and baffling, not just of these stories I have told you, but of my entire life. 
+
+One night not so distant from the other story, my mom wasn’t at home for reasons I don’t remember anymore and my brother had just left for a party at Carla's house. I remember him wearing a black trenchcoat and a brown leather hat. 
+
+And so, my dad and I were home alone for the night. We were on the couch watching History Channel, as usual, in those years when it was still half about history and half about aliens, antiquities and trying to catch bigfoot only to find nothing at all. 
+
+All of a sudden, we heard the front door slam shut. We naturally turned our heads, and there he was… A man in a leather trench coat and leather hat; his clothing seemed anachronistic, out of his time. At the moment I couldn’t get a glance of his eyes as the rim of his cowboy-like hat was tilted down, but I remember he had a 3-day stubble beard and a sharp face complexión. He was dressed almost exactly like my brother and had the exact same beard style. I remember thinking "oh, my brother's home early".
+
+Also thinking he was my brother, my father tried to talk to him. But he went directly upstairs, ignoring us completely. In that moment I could get a glance of his eyes, they felt soulless, inhuman. I could not sense any evilness in his eyes, like Carla’s friend claimed it did. I remember how he stomped on the steps with haste, almost with anger. I also remember thinking that that man wasn’t my brother, his face was not similar at all…
+
+My dad, skeptic and stubborn as he was, still thinking it was my brother said to himself: “This f*cker came back home drunk again” or something along the line. 
+
+After pondering on the strangeness of the situation, my dad asked if I remembered hearing the door being opened, but can't recall if I did, and also I’d be lying if I said I remember what I answered. Probably I just shrugged. 
+
+My dad then tried to made me go upstairs to check on my brother’s bedroom, but I was scared sh*tless and refused to go there alone. Finally, we both went upstairs and we entered my brother’s bedroom. Behind the threshold there was nothing but darkness. The lights were off, the windows were closed shut, and there was no sign of anybody being there. My dad checked on the closets, checked on the windows and then checked on the other bedrooms. We were all alone, there was no trail of the hat man. He banished in thin air. 
+
+We went back downstairs to continue watching our show, trying to forget what just had happened. But it simply wasn’t possible. The absurdity of the situation didn’t make that possible. Shortly after, my brother came back home. My dad questioned him about the whole situation, asking him if he had jumped out of the window or something. My brother denied doing such a thing with an expression of bewilderment on his face. And that was that, we didn’t touch the matter and we moved on with our lives. Some days we would remember while watching a horror movie and say “hey, remember the hat man?”, and time passed and so on and so forth. At a time I even had forgotten the whole situation for years, and then, it simply went back to my head, I remembered the hat man just out of the blue.
+
+According to chilean rural folklore, the hat man is the angel of death, to some others he is the devil, and his presence is nothing but the promise of loss and misfortune. That makes sense, because my dad’s life was cut short by an anaphylactic shock when I was twelve years old. My life hasn’t been the same since his death, both economically and emotionally. After my dad’s passing, we eventually moved away from that house. 
+
+To this day I still wonder, will I see the Hat Man again?
