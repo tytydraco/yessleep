@@ -1,0 +1,27 @@
+Hi, I thought I’d share my story as I think I might not be the only one having these types of experiences. So I’m a single dad taking care of my infant daughter, she’s probably about three months old at the time of writing this. My wife died during childbirth and while I miss her everyday; taking care of my daughter helps me to move on.
+
+So being a single father I have to use every tool in my arsenal to take care of my daughter. I didn’t spare any expense as my job has afforded me that luxury. I’ve got baby monitors in her room, I read to her almost every night before bed and I’ve completely baby proofed the house even before she’s really explored it. Now I haven’t noticed much as far as paranormal activity is concerned, or maybe I’m just not that observant, but for the past few nights my baby monitor has picked up something abnormal.
+
+Now the monitor has a clean view of the room, almost 180 degrees. It’s got the closet, her changing table, my rocking chair and her crib as well as a window in shot. You’ve got that picture in your head right? Now I was looking back at the recordings that were made when it clocked movement and what I saw chilled me to the bone: It was a long slender human-like creature, its arms reached its calves or what I think was its calves. I used a rough estimate but I think it had to be at least 7 feet tall. It barely looked at the monitor but when it did I could see its mouth-less face with white pin sized glowing eyes, like that of a cat looking into a night vision camera. What looked like black mist was emitted from its body lightly but didn’t linger in the air.
+
+It walked out of the closet then hobbled over to my daughters crib, on the way it looked around. It wasn’t in a malicious way as if it was looking around to make sure it wasn’t caught; but as if it was curious about its surroundings. As it stood next to her crib it reached its hand out to touch my daughter's forehead. It stood there for a few minutes motionless, as if it was charging. It lingered there for an hour before finally removing its hand from her forehead, then it went back to the closet and seemingly left.
+
+Now this was a recording, it’s not like I could have gone to her room and stopped this… thing right there and now, but I grabbed the gun from my nightstand drawer and went to my daughters bedroom. I approached the closet and grabbed the door, I breathed in then out and whipped the door open. It rattled on its rails before revealing nothing but a normal closet. My daughter's clothes, her dresser, and boxes filled it. There was no room for anyone to be hiding in there, let alone living there.
+
+I stayed up all night, keeping an eye on the baby monitor. At about midnight the creature emerged from the closet. My eyes were glued to the monitor as he walked towards the crib, tonight though he stopped in front of the window and looked out. He put his hand on the glass and stood there for a few minutes before walking over to the crib, and once again he put his hand upon my daughter's forehead. I couldn’t move, I was scared. Who knew what he was doing to her. He stood there for an hour but was disrupted with her waking cries, he seemed to panic at first but recomposed himself and looked around until he met the lens of the camera with his white eyes. He approached, I was ready for the camera to be destroyed.
+
+But he didn’t do that, he bent down and grabbed a book then pulled the rocking chair closer to her crib. He sat down, opened it and put one hand onto her forehead as the other flipped the pages. “Was he reading to her?” I thought to myself, but he couldn’t be doing that. The monitor didn’t pick up any audio. Soon enough though her cries stopped and he got up and left through the closet.
+
+As soon as he left I ran to her room and silently looked her over, making sure she wasn’t harmed and thankfully she wasn’t. I ran to the closet and threw it open, almost ripping the doors off of its rails and once again it was only home to her clothes and toys.
+
+To be honest I think that whatever he is, he’s not malicious. Paranormal? Sure. But dangerous? I really doubt it. I’ll keep monitoring him but at the same time he put her back to sleep. I’ve left a note, hoping to communicate with him.
+
+“Thank you for putting her back to sleep, but what are you?” I had written upon it. I left a pen in her room and maybe, just maybe he’ll respond.
+
+Update: He responded through the note and despite the terrible handwriting I was able to read it. Here’s what he said:
+
+“Hello, my name as given is Mr. Dream Eater, I do not harm others, I simply like your dreams. Please do not be scared, I will leave if you want me to.”
+
+Honestly after reading this I am unsure of what to do, it seems like if I ask he’ll leave willingly but he also seems to be good with kids and I could really use the rest. Maybe I’ll let him stay for a little bit?
+
+Update 2: It seems like I found someone else with a similar experience on here: [https://www.reddit.com/r/nosleep/comments/16mq5jn/i\_put\_a\_camera\_up\_and\_caught\_what\_was\_haunting\_me/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/16mq5jn/i_put_a_camera_up_and_caught_what_was_haunting_me/?utm_source=share&utm_medium=web2x&context=3)
