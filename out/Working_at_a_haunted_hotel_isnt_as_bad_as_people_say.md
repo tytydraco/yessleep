@@ -1,93 +1,60 @@
-I mean, Yeah it's scary the first few times, but honestly, aren't all new jobs?
+[PART 1](https://www.reddit.com/r/nosleep/comments/1510lq9/working_at_a_haunted_hotel_isnt_as_bad_as_people/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=1)
 
-You don't know any of your coworkers yet, and you don't full know all the rules yet, so there's always this lingering fear of when you'll mess up and get fired
+The Harry Potter books, despite the massive plotholes, horrible world building and other things That rage on too long for me to mention, were a big part of my life growing up, however not because of the magic school and the whole chosen one cliché
 
-Believe me those fears came with me when I started, but as time went on, the only fears I have now are when literal demons check in for a vacation 
+I liked them because of the interactions with the ghosts, though limited to few interactions, I loved the idea of being able to communicate with those that came before us, and learn things about the past from those that experienced it first hand
 
-I guess I should give a bit of background before I start, huh? 
+Peeves was always my favorite, as when I was younger I was a jokester too, however I couldn't disappear at a whim, so getting caught one to many times distinguished that flame, but my love of Ghosts never really died out
 
-Last year, I got hired at a hotel somewhere in bumfuck Canada, which in itself is shocking because there's no place in Canada that's unknown... yet here I am I guess
+Which is probably the biggest reason for why I work at a haunted Hotel
 
-Don't get me wrong, I love the place, The Cobra chickens I could live without but everything else is great. However, the downside of the hotel I work at is that because of our location, we don't get human visitors
 
-Which brings me back to getting demons visiting us for vacations, before they're able to even book a room, the owner has a contract they need to sign, Basically saying that they can't do any... funny business, for lack of better words, So it's rather funny when you get the chance to see demons meeting up after centuries because Mammon and Beelzubub are still having their little feud over something so silly no one can remember 
+Now don't get me wrong, ghost aren't the only supernatural beings we get at the hotel, They just end up being the most common, turnsbout even in death, everyone needs a vacation 
 
-I don't think the owner is human, and if he is, he's really strong spiritually, I mean, Making contacts for demons, that they willingly follow? Probably not unheard of but definitely rare... However I've seen him with fire orange skin when a guest disobeys the rules so, He's definitely not fully a human. Plus, in my year of working here, I've never heard anyone say his name, So We all just called him The owner, he doesn't really seem to mind
+For some like Miss Sylvia, who might I add is very happy that so many people were happy to hear how well she's been, are permanent residents at the hotel, for Miss Sylvia's case it's because not only did she somehow wake up with a small fortune in ghostly money but she is still, at least in appearance, a 16 year old Girl, so it didn't take me and my other coworkers much to convince The Owner to let her stay. Me and Miss Sylvia actually have movie nights every Friday night, it's very fun
 
-When I was in high school I had a fun time where I hyperfixated on many old folktales of ghosts and other spirits, Both the harmful ones and the mischievous ones
+Now unfortunately the point of this update isn't to talk about how wonderful Miss Sylvia is, no, today I'm here to tell you a story about our resistant poltergeist, Dave
 
-Whenever someone asks what my weirdest flex is, I have to restrain myself from replying with a Selfie of Tekke-Tekke, A poor Japanese girl that was killed by a train, how I got that is a story for another time.
+Yes, he does go by Dave, however me and my coworkers call him Davey, due to him sharing a name with one of said coworkers
 
-I think my best introduction story should be my first time alone on the job. 
+Now, I'm using Harry Potter to explain this, like I did with the money, but Davey is like Peeves in the Harry Potter books, who unfortunately never got a movie version, which is a shame but I digress
 
-I had been working there for two weeks when the owner had came to me saying that Bekka, Yes her name was spelt like that, wasn't able to come in, so I'd be by myself
+Davey mostly does silly little April fools jokes, nothing too harmful, just a whoopee cushion here, a flower that sprays water there, maybe even one of those little hand devices that give one a little shock, he saves that one for me and my other coworkers
 
-The owner had expected me to be nervous, and was pleasantly surprised when I replied with enthusiasm, I had told him not to worry, and that seemed to please him, as he left, and disappeared into the night. A year later and none of us know if he even has a house to go to, or a life outside of running the hotel
+We can never figure out where he gets the items, and The Owner has tried many times confiscating them, but Davey seems to have an unlimited amount, which, as one would expect, ends up with all the workers making up absurd theories about how he got them, the most popular being he's somehow able to get into The Owners office to get the items back, which is the most realistic one, yet the most absurd
 
-After he had left, I stayed behind the desk mostly, looking through the check-ins of the day, and seeing if anyone was meant to check-in later that night, it was standard procedure, and I had finally managed to let the owner get us a computer, as the old ink pen and book wasn't helping anymore
+No one has gone into The Owners office without his permission and exit unscathed
 
-So there I sat, ready in case anyone showed up, or incase any guests need assistance, Not all ghosts are nocturnal when they're on vacation, but for the rest, old habits die hard
+The first time I met Davey, I was just starting to understand what the job offer meant by haunted Hotel
 
-Luckily there weren't many staying that night, looking back, that's probably why the owner left me there by myself after such a short time of me working there
+I had initially thought it was a normal hotel with a ghost story around it, but when the owner had let me in I never expected to be met face to face with a pluage doctor mask
 
-The first few hours went by smoothly, From 9 pm to midnight, Everything was going well, I had my extra coffee to give me the right amount of oomf to get me through the night, I had my phone, somehow connected to WiFi, which allowed me to watch shows and movies to pass the time, one earbud in so I could still hear everything, The owner knew night shift could be relatively boring, so this was allowed, as long as one earbud stayed out
+I believed that it was just a costume at first, and tried not to think of it too much, but as I made my way to The Owner's office and saw more and more supernatural entities, such as demons, Skeletons without the meat and spaghetti monster that is the human nervous system, and even a werewolf, I had slowly figured out what Haunted meant, and once being calm and collected I had turned into a mess or jitters and anxiety 
 
-When the clock hit midnight, that's when I heard the door open, I turned off my phone and looked to the door. There, Dripping wet, was a school girl, probably around 16, slowly walking to the desk
+That's when I heard it, a voice I didn't think I would end up remembering 
 
-As she walked I had plenty of time to look at her appearance, Her hair was long and damp, sticking to her face,  the skin I could see was blue, and she had water surrounding her, soaking her to the metaphorical bone, and dripping to the drowned, which quickly dried up. When she got to the desk I was At, I gave her a smile
+"Hey there, Kiddo, you seem tense," the voice had spoke, causing me to turn around sheepishly with a smile
 
-"Hello, How can I help you?" I asked, and She looked at me, moving some of her hair from her face and behind her ear, a brown bloodshot eye looking back at me
+"Oh, do I? I'm trying not to be, I have a job interview," However my voice trailed off slightly as I had turned around to see a ghost standing in front of me
 
-"May I please have a room for the night?" She croaked, the sound of water in her throat was clear, and with how wet she was, it was clear that she probably died not all that long ago, possibly a week ago at the least, A month at the most, but I smiled to her, getting the computer ready
+He was short, around 5'3 and that the body of The Penguin from DC comics, yet he seemed much to friendly to be the runner of a mob and one of gothems greatest criminals
 
-"Of course, May I have your name?" I asked, preparing to type and she seemed to look down
+"Ah so you're the new recruit everyones been buzzing about!" He exclaimed, a smile on his face, if it wasn't for his semi-translusent body, I bet the light from the ceiling would've sparkled off his teeth like you'd see in those old out of date ads, Or in Home alone with the gold tooth 
 
-"I don't remember my name," She spoke, her voice barely above a Whisper, and I frowned slightly
+"Hopefully not enough for this to become a beehive instead of a hotel," I joked, hoping that bad dad jokes would help calm my nerves, and the ghost man in front of me let out a laugh, one you'd expect Santa to make while his stomach became jelly
 
-"Oh, that's unfortunate to hear, Would you like me to help you try and remember it?" I asked looking to her, my offer seeming to shock hee, but I continued, "If not, I'd Be more than happy to help you make a new name for yourself, I need to put you in the database so someone doesn't get sent to your room in the morning" I explained and she looked about ready to cry
+"You're a hoot kid, I think you're gonna love working here," He said, holding his hand out, which I instinctively took to shake his hand, only to feel a small sharp ping in my hand, which caused the ghost to laugh some more before the door to the office opened
 
-"You're not just helping me because this is your job, right?" She asked, her voice shaking as it sounded like she was on the verge of tears, and I looked to her
+"Davey, I do hope you're not scaring away future employees again," a tall man had said, looking down at the ghost
 
-"Of course not, You seem like a very nice girl, and you look in dire need for some warmth," I said, internally wondering what happened to her to make her that Cautious of my intentions 
+"No sir, owner man, I think this one's a keeper," The ghost, Who's name I then learnt to be Davey, spoke, and I could feel him put his hands on my arms and give me a gentle affirming shake, like the ones dad's would give when they're child was nervous about hitting a baseball
 
-"Do you think you could put Sylvia in?" She asked, and I nodded
+"Well thank you for the feedback, Davey, but I now have to conduct an interview of my own," The owner had said, his hands now resting on my shoulder and gently guiding me into his office
 
-"Of course, Miss Sylvia, would you like me to put a last name there too?" I asked, typing the name into the computer as well as her condition, as the computer loaded the best room for her
+I appeared to have Been the only person that applied for the job and got a go ahead to The Owner about bringing me on the team, and now here I am, a yeah and 2 months later, still working at the same job, still mistaking Davey for the Penguin every now and then, and always careful about whats in his hand
 
-She shook her head that the thought of a surname and I smiled, "Not to worry, I won't put one down, Now, for a single night, it'll cost you about 50 knots, food is already included in the cost so you wont need to worry about that," I explained, waiting for the key card for the room to show up so I could give it to her
+Now that shall be all for today, I do apologize for such a late update, unfortunately Life got in the way with school starting up once more and having to take less hours at the hotel, which, surprisingly, hasn't changed my pay, but I am not complaining
 
-"May I ask how you'll be paying? It doesn't have to be now, but it will have to be tonight, I can get you to your room and you can come down to pay once you're settled," I say and she nods
+Hope everyone has a wonderful night, Miss Sylvia wishes everyone the best of dreams, filled with candy like SpongeBob dream in the sponge out of water movie
 
-"I think I can pay now," She saidthe sound of water in her voice having died down and she reached into her pocket and pulled out a baggie, placing it on the counter
-
-"I found it beside me when I had awoken, it's filled with this strange black balls," She said, and I took the bag, looking inside it
-
-It was hard to see, but when I took one of the balls out, I could tell they were ghost money. They weren't knots, but instead tauros, small shiney black beads, each Tauro costed as much as five knots, and telling from how much she had, the cost wouldn't make a dent in her savings
-
-For those of you that don't have experience with Ghost currency, think Harry Potter, Galleons and Tauros being the most, Sickles and Ringoes being the middle, while Knuts and Knots being the most commonly used. That was my way of keeping track of the money, every one is different
-
-I took five Tauros out of the bag and handed it back to her, putting the payment in, placing the beads into the register we hand, and Finally grabbing the key card to her room
-
-"Okay Sylvia, if you'll follow me now, I'll take you up to your room, alright?" I asked, looking to her and she nodded. I came out from behind the desk, putting up the sign that I would be right back, and lead Sylvia to the elevators. When I knew she was on, I swipped her room card onto the pad and we started moving
-
-"Make sure to keep your key card save, alright? It brings you directly to your room, and your room only," I explained as we moved, and she looked to me, having to continuesly move hair out of her face
-
-"You'll be perfectly safe in your room, however, if you need me at any time, there's a phone you can use to call me at the front desk, you tell me what you need and I'll be up as fast as I can," I say, and She nodded
-
-It didn't take long for the doors to open and her room to be in front of us, she seemed a bit hesitant, looking to me, then gave me a hug. I could hear her softly crying, despite being soaking wet, the only thing that left the wet stain was her tears as she thanked me, I patted her head while telling her 'you're welcome' over and over, Urging her into the room until she finally calmed down and went in, waving to me as the door closed.
-
-It didn't take too long for me to be back at my desk, and for the night to remain uneventful, Sylvia only called once to ask about being able to use the bed, which I told her that she could, She had paid for it, so she was more than welcome to use the bed, which seemed to make her happy as she thanked me and hung up, seeming to go to sleep, and by 5:45 am, the owner returned, tipping his hat to me
-
-"Slow night?" He asked, and I shook my head
-
-"We had one last minute check in, Her names Sylvia, I'd say around 16 years of age, possibly died by drowning, Pain with Tauros she said she woke up with," I explained, and the owner seemed to nod
-
-"I'll go check on her when she's awake, You may go home now," he said, and I thanked him, going ti the staff room and gathering my things, clocking out
-
-After that, Sylvia became a regular, The owner had hired her as the new baker, after the old one had gone missing. I didn't know much about it at the time, in fact even now I still don't know much, but I do now that Sylvia is doing mighty fine Here, and I'm very proud of her, we've practically became friends
-
-Two weeks marks the day she checked in, and everyone jokes about how she never checked out, changing their voices like one of those cheesy Campfire stories, which gave everyone a good laugh
-
-I have many other stories, and I'm sure to be getting more as I continue to work here, so I'm really looking forward to being able to share everything that happens, The owner gave me full permission, so I'm not breaking any rules by doing this
-
-Have a great night, y'all
+Goodnight everyone

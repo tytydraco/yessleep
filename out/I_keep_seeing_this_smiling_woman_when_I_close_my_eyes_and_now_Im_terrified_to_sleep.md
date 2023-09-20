@@ -69,3 +69,5 @@ Maybe it's the house and I should move out, it always kind of gave me the creeps
 If anyone has any advice on what I should do next or what you think is going on with me, it'd be greatly appreciated. 
 
 I've checked for carbon monoxide leaks and there is none!
+
+[Part 2](https://reddit.com/r/nosleep/s/Jh2mrFmjz8)
