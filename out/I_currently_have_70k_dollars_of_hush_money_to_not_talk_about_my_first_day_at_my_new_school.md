@@ -1,6 +1,6 @@
 Dalton Academy was… not like I had pictured it. 
 
-No sign of the outdoor swimming pool on the brochure or the supposed wellness centre, not to mention it resembled a prison. *Dalton Academy, the school that your child will not be able to stop talking about!* were the words printed all over the website. First thing's first, I'm not a child, I just turned nineteen, and Dalton is more of a college, or a high school for older kids. 
+No sign of the outdoor swimming pool on the brochure or the supposed wellness centre, not to mention it resembled a prison. *Dalton Academy, the school that your child will not be able to stop talking about!* were the words printed all over the website. But I'm not a child, I just turned nineteen, and Dalton is more of a college, or a high school for older kids, or more realistically, kids too stupid for college. 
 
 Admittedly, it did look appealing from the photos. But now I was looking at the thing in real life, a crumbling structure which looked ready to topple over– I realized the images I had seen were most likely taken a decade ago.
 
@@ -16,9 +16,9 @@ Very dystopian– or Mom was playing some kind of joke, which was bordering on c
 
 "Wait here," the driver told me in a gruff, to-the-point growl, which froze me in place. I think this was the moment I started wondering if my Mom had secretly wanted to send me to either juvie, or just straight up prison. 
 
-I want to preface this. I only punched a guy in the face and was suspended from my old college, so if this was what the punishment was for a simple right hook to the nose, then I dreaded to think what committing an actual crime would harbour. 
+I want to preface this. I only punched a guy in the face, which was self defence, and ignored by the dean. I was only suspended from community college, so if this was the punishment for a simple right hook to the nose, then I dreaded to think what committing an actual crime would harbor. 
 
-I nodded to the driver, my gaze travelling to the back seat, where I could have sworn the seats were… discoloured. 
+I nodded to the driver, my gaze travelling to the back seat, where I could have sworn the seats were… discolored. 
 
 They were supposed to be white, but something was ingrained into plush leather. I sat in the passenger seat on the journey to Dalton, so I never saw it. 
 
@@ -38,15 +38,17 @@ Nodding, I did my best to smile.
 
 "It's *Caines–*" I started to correct him, before the words were drawn from my lips, the cold sting of his palm slamming into my cheek. The sound made me cringe, skin against skin. It was a simple and yet terrifying gesture that reminded me I was not allowed to speak. Which was my sudden new reality. The force of the hit almost sent me stumbling  back, and I did sort of sway backwards on my heel, narrowly avoiding falling straight on my ass.
 
-Before I could formulate words in my mouth, the guy grabbed my shoulder and started dragging me, not inside the school's entrance, a set of automatic doors which was the only modern thing about the place, but across rough tarmac towards what looked like an abandoned football field that used to hold pep rallies and weekly games, now converted into what almost looked like a fire drill from first glance. There were four lines. A, B, C, and D. And the buzzing sound in my head collapsed into a low whine. I felt goosebumps across the bare flesh of my arms, my jacket suddenly having a mind of its own. 
+Before I could formulate words in my mouth, the guy grabbed my shoulder and started dragging me, not inside the school's entrance, a set of automatic doors which was the only modern thing about the place, but across rough tarmac towards what looked like an abandoned football field that used to hold pep rallies and weekly games. Now  converted into what almost looked like a fire drill from first glance. I kept going, unsure where I was going, of what the fuck was going on in front of me. 
 
-I can only describe it as the sensation of opening an oven and being blasted in the face with intense heat. 
+There were four lines. A, B, C, and D. The buzzing sound in my head collapsed into a low whine as I got closer, or more appropriately, I was shoved against my will. Goosebumps prickled across the bare flesh of my arms, my jacket suddenly having a mind of its own. 
+
+I can only describe it as the sensation of opening an oven too early and being blasted in the face with intense heat. 
 
 It wasn't quite heat that hung in the air, however. It was something I couldn't explain, a static buzz hanging above me and playing with my hair. Getting closer, it started to build in my throat like a thick paste, suffocating my lungs. 
 
-Stumbling forwards, the guard shoving me closer to the field, I started to realize what this sensation which was ripping me apart was. It was them. These kids, what looked like eighteen and nineteen year olds, were in the same position as me, their wrists cuffed in front of them, surrounded by a deluge of guard's treating them like… animals. 
+Stumbling forwards, the guard shoving me closer to the field, I started to realize what this sensation which was ripping me apart was. It was them. These kids, what looked like eighteen and nineteen year olds, that were in the same position as me, their wrists cuffed in front of them, surrounded by a deluge of guard's treating them like… animals. 
 
-The A's were the odd ones out. 
+The A's were the odd ones out I noticed. 
 
 While the other groups were filled with pushing and shoving and swearing at each other, attacking guard's and screaming, the A's stood silently– and bizarrely, were each wearing a pair of bright red rubber gloves. 
 
@@ -62,7 +64,7 @@ The gaping bullet wound in the middle of her and every other A's forehead, told 
 
 Dead, and yet somehow standing. 
 
-"I don't think…" the words *I don't think I'm supposed to be here* dried up in my throat when the cruel metal of the guard's gun stuck into my spine. There was nowhere to run. When I was shoved, unceremoniously, into the group of D students, it started to hit me that this was Real. So was that feeling, that weight in the air pushing into me, climbing into my lungs. 
+"I don't think…" the words *I don't think I'm supposed to be here* dried up in my throat when the cruel metal of the guard's gun stuck into my spine. There was nowhere to run. When I was shoved, unceremoniously, into the group of D students, it started to hit me that this was real. So was that feeling, that weight in the air pushing into me, climbing into my lungs. 
 
 I couldn't breathe, just standing near them. I had to turn my head and suck in precious gulps of oxygen from the open air behind me. One guy was kneeling on the ground, trying to bite through his cuffs, while a girl was rocking backwards and forwards, screaming into her lap her trembling fingers inched over her ears to block out the screams. "I'm not supposed to be here," I managed to get out in a breath, drinking in the other D's around me. When a gunshot rang out across the field, I grabbed the closest person to me, and shook him. Touching him, though, was a mistake. It felt like someone had stuck a metal rod into my skull and stirred my brain into soup. 
 
@@ -76,17 +78,19 @@ I searched for a lighter, but how could he cup fire in his hands without scaldin
 
 "Alright!" a guard boomed, situating himself in front of us. "We're going to start the induction process. If either of you have anything to offer us, you better talk fast." Immediately, the other A's stumbled into a clumsy looking line. I tried to raise my hands to tell them that I did not belong there, and if I did, there had been some fucked up kind of mistake– before I was being sandwiched between two other kids. 
 
-I was so close to them, the three of us pancaked together, a dull pain throbbed in the back of my head. This pressure is something I can't put into words. It fucked with my head, with my thoughts  fraying my vision. When I pressed my cuffed hands to my nose and lips, they came back glistening intense red. 
+I was so close to them, the three of us pancaked together, a dull pain throbbed in the back of my head. This pressure is something I can't put into words. It fucked with my head, with my thoughts, my vision fraying. I couldn't hear anything, only the buzzing rattling in my ears. When I pressed my cuffed hands to my nose and lips, they came back glistening intense red dripping from my fingers. These kids were going to kill me. 
 
-When my body swayed forwards, the pressure coming off the off the boy in front, only flung me back, and I wondered if my brain was going to explode if one of them shoved into me. Unfortunately for me, I had no idea what was going on, slowly suffocating between two equally powerful pressures. My ears popped, and I could hear nothing but my own shaky breaths as the line in front of me got shorter. 
+When my body swayed forwards, the pressure coming off the off the boy in front only flung me back. They were like magnets, retracting and repelling, and I wondered if my brain was going to explode if one of them stumbled into me. Unfortunately for me, I had no idea what was going on, slowly suffocating between two equally powerful pressures. 
+
+My ears popped, and I could hear nothing but my own shaky breaths as the line in front of me got shorter. 
 
 I started drifting back to fruition as I got closer to the front, my cloudy vision clearing a little. I didn't notice it until I stared down at the ground, and found myself standing in pooling crimson bleeding across dead grass. 
 
 It was thick and red, like the ground itself was wounded. I couldn't move. 
 
-Trapped between two powerful pressure's keeping me in place, all I could do was focus on keeping the perfect distance away from the both of them, the soles of my shoes turning the same shade as the grass. I didn't notice I was at the front of the line until the voice sliced into me, jerking my head up. 
+Trapped between two powerful walls of pressure keeping me in place, all I could do was focus on keeping the perfect distance away from the both of them. But I couldn't think. My brain was cotton candy. I turned my attention to my converse, the soles turning the same shade as the grass. I didn't notice I was at the front of the line until the voice sliced into me, jerking my head up. 
 
-"Nicholas Leviathan," the guard called out, and the guy in front of me stumbled forwards, relieving me only slightly from his pressure. The boy's head was bowed, but I could see his lips were moving, fingers tightening into fists. The guard's lips curved in amusement. 
+"Nicholas Leviathan," the guard called out, and the guy in front of me stumbled forwards, relieving me only slightly from his pressure. I sucked in a breath, my lungs filling with air once again. The boy's head was bowed, but I could see his lips were moving, fingers tightening into fists. The guard's lips curved in amusement. 
 
 "Stand down, Nicholas," he said, chuckling. "I know your father, and I don't think he'd want you to step out of line."
 
@@ -130,9 +134,9 @@ I was not the boy he was talking about, but I don't think he cared.
 
 The world seemed to stop and then start again, when the barrel of his hand-held protruded deeper into my flesh. 
 
-"Wait!" 
+*"Wait!"*
 
-The voice wasn't enough to bring me from my reverie. Because it could have been a trick. They wanted me to open my eyes and risk having hope, before tearing it away. But no. I knew that voice. When I risked prying open my eyes, a woman was stumbling across the field in heels, almost toppling over before righting herself. "Alex!" 
+The voice wasn't enough to bring me from my reverie. Because it could have been a trick. They wanted me to open my eyes and risk having hope, before tearing it away. But no. I knew who was yelling. When I risked prying open my eyes, a woman was stumbling across the field in heels, almost toppling over before righting herself. "Alex!" 
 
 Her voice was high, slightly hysterical, and relieved by her wide smile. Mrs. Caraval. I didn't think she held any kind of authority over these monsters, but she yanked me out of the line of kids, after a short hissing match with the guard, who's lip curled in disgust. 
 
@@ -174,13 +178,13 @@ I wanted to feel relief, but staring down at my shoes, the soles were still smea
 
 I lurched up to jump out of the car, vomit choking the back of my throat, when Mrs Caraval stopped me. She didn't open the door. "What is your email address, Alex?" she asked cheerfully. "or just give me your PayPal!" 
 
-I said my email in a daze, my lips barely moving, and she pulled out her phone, tapped the screen several times, and then shot me a wide smile. "There! That's 70k, kid! Don't spend it all at once!" When I could only stare at her blankly, she cleared her throat, tucking a stray hand of hair behind her ear. 
+I said my email in a daze, my lips barely moving, and she pulled out her phone, tapped the screen several times, and then shot me a wide smile. "There! That's 70k, kid! Don't spend it all at once!" When I could only stare at her blankly, she cleared her throat, tucking a stray strand of hair behind her ear. 
 
 "The school I sent you to was a… juvenile detention for, uh, let's call them, gifted individuals. There is no need to speak to anyone about this. I hope I am making myself very clear."
 
 When I couldn't reply, she gestured for me to get out– and when I did, her hand fell on my shoulder, fingernails digging into my skin. "The principal of Dalton Academy sends his regards," she said, her tone darkening. "Remember, sweetie, he knows exactly where you live! So, do us all a favor and keep your mouth shut, okay? 70k is a lot of cash!" 
 
-Before I could reply, her lips twisted into a grin. I stumbled out of the car, and she stuck head out of the window, sliding a pair of raybans over cutting eyes. "Have fun at your new school!" 
+Before I could reply, her lips twisted into a grin. I stumbled out of the car, and she stuck her head out of the window, sliding a pair of raybans over cutting eyes. "Have fun at your new school!" 
 
 I thought this woman was fucking with me, but yeah, I actually have 70k. 
 
