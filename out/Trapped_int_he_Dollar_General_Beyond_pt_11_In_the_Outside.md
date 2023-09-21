@@ -196,3 +196,5 @@ Looks like I'm going to be here for a while so I might as well get comfortable.
 
 
 Till next time.
+
+Pt 12- https://www.reddit.com/r/nosleep/comments/16osdli/trapped_in_the_dollar_general_beyond_pt_12/?utm_source=share&utm_medium=web2x&context=3
