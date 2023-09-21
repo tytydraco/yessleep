@@ -12,7 +12,7 @@ The pain was gone, and it didn’t really hit me until I was video-chatting with
 
 I paused, my gaze flicking to my reflection in the camera. I wasn’t a fan of looking at myself. When I video chat, I minimize the screen and scroll through Instagram, or search for a YouTube video to watch on mute while Robbie talks about moon landing conspiracies. 
 
-I didn’t mean to look at myself. I had trained my eyes not to look too hard at  through a camera because all of my flaws were present—and Mom always had something to say if I did not look perfect. I have a makeup routine, as well as two skincare rituals before I go to bed and wake up. But it’s not enough. I don’t look as cute as I did as a little kid. I’m a lot rounder in the face, and apparently, I’ve been putting on weight in my cheeks. 
+I didn’t mean to look at myself. I had trained my eyes not to look too hard  through a camera because all of my flaws were present—and Mom always had something to say if I did not look perfect. I have a makeup routine, as well as two skincare rituals before I go to bed and wake up. But it’s not enough. I don’t look as cute as I did as a little kid. I’m a lot rounder in the face, and apparently, I’ve been putting on weight in my cheeks. 
 
 Mom has been using filters on my face since I was a little kid, and now I can’t take my real reflection seriously. 
 
@@ -46,7 +46,7 @@ I searched for any hint that I had been hit, pressing my fingers over my eye and
 
 Mom has a lot of influence with both her job and her Tik-Tok account, so most of my life since I started middle school has been documented on her channel.
 
-Currently, she’s private, so her channel is not visible.
+**Currently, she’s private, so her channel is not visible.**
 
 Maybe that’s a good thing, though.
 
@@ -292,7 +292,7 @@ I could hear my brother 's sobbing.
 
 I could sense her shaky breath tickling the back of my neck.
 
-Ben's sobbing grew louder in my ear, reverberating from the walls. 
+Ben's cries grew louder in my ear, reverberating from the walls. 
 
 I was frozen.
 
@@ -380,13 +380,13 @@ No, not an It.
 
 He.
 
-He was screaming, his cries muffling.
+He was screaming. 
 
 “Mom.” I managed to whisper. I tried to pull away but her arms were suddenly locked around me, suffocating my breath. “Who is that on the couch?”
 
 "What?" Ben surprised me with a whimper, his voice shaking. "What do you mean?" 
 
-Mom’s hug tightened.
+Mom’s hug around us tightened.
 
 *Tighter.*
 
