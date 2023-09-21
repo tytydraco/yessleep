@@ -1,6 +1,8 @@
-[Part One](https://www.reddit.com/r/nosleep/comments/16m8jeh/i_recently_started_working_at_a_fast_food/)
+[Part 2](https://www.reddit.com/r/nosleep/comments/16m8jeh/i_recently_started_working_at_a_fast_food/)
 
-The next morning I looked like total *shit* \- which made sense since I hadn't slept a wink. I'd sent Pitty a text (he gave me his number back during our first smoke sesh) around 6:00 am saying *call me when you're up.*
+The next morning I looked like total *shit* \- which made sense since I hadn't slept a wink. I'd sent Pitty a text (he gave me his number back during our first smoke sesh) around 6:00am.
+
+*"Call me when you're up."*
 
 It was now 9:09 and he still hadn't rung. So I tried his cell.
 
@@ -34,7 +36,7 @@ And he hung up.
 
 \*\*\*
 
-Even though my shift wasn't until 8pm that night, I decided to pay Happy Burger a visit later that morning once they were open for breakfast (apparently their egg burritos were absolutely terrible, by the way). 
+Even though my shift wasn't until 8 that night, I decided to pay Happy Burger a visit later that morning once they were open for breakfast (apparently their egg burritos were absolutely terrible, by the way).
 
 When I entered through the back office, Rick was hunched over at his desk and staring out into space like a zombie. Apparently I wasn't the only one who wasn't sleeping. I knocked on the door to emphasize my arrival and he snapped out of his stupor.
 
@@ -42,7 +44,7 @@ When I entered through the back office, Rick was hunched over at his desk and st
 
 "Hey, Rick. Yeah, I know, but uh, do you think I could talk to you for a sec?"
 
-He nodded while I took a moment to strategize. Obviously, I couldn't just come right out and tell the guy I saw that some weird, demon-mascot-clown in his restaurant followed me home and terrorized me last night.
+He nodded while I took a moment to strategize. Obviously, I couldn't just come right out and tell my boss that some weird, demon-mascot-clown in his restaurant followed me home and terrorized me last night.
 
 No, I had to think smarter.
 
@@ -52,7 +54,7 @@ No, I had to think smarter.
 
 Rick was going to know I was lying. He stared at me, hard, for a long while. He seemed... *angered* by my question.
 
-"That's confidential, employer-privileged information, Matt."
+"That's confidential, employer-privileged information."
 
 "Right. I know. It's just–"
 
@@ -76,9 +78,9 @@ That night, I stayed quiet during my dreaded shift and let Pitty do most of the 
 
 Gym rats, man.
 
-After that guy ate half our supply of cooked meat, I headed to the walk-in freezer in the back to grab some more frozen patties. 
+After that guy ate half our supply of cooked meat, I headed to the walk-in freezer in the back to grab some more frozen patties.
 
-When I opened it up, cold air flowed out like fog. That was creepy. I left the door propped open while I walked inside, but that's when–
+When I opened it up, cold air flowed out like fog. I left the door propped open while I walked inside, and that's when–
 
 "No! Shit!"
 
@@ -94,19 +96,17 @@ And that's when it started.
 
 First, the lights inside the freezer started flickering.
 
-On and off.
-
-On and off.
+Off and on.
 
 Then, I heard that awful sound again.
 
 Hysterical laughing.
 
-It simultaneously sounded like it was *in* my ear - but also... all around me, *everywhere*.
+It simultaneously sounded like Happy was *in* my ear - but also... all around me, *everywhere*.
 
-"PITTY! OPEN THE DOOR!" I screamed. 
+"PITTY! OPEN THE DOOR!" I screamed.
 
-*Shit,* I thought to myself. *What if he's taking a dump again?*
+*Shit,* I realied. *What if he's taking a dump again?*
 
 Not soon after that thought went through my brain, I felt something behind me.
 
@@ -114,19 +114,21 @@ Almost like... a presence, if you wanna call it that.
 
 I didn't want to turn around.
 
-I was scared shitless. 
+I was scared shitless.
 
-Finally, the flickering lights went out completely, leaving me alone in the cold, dark room.
+Finally, the lights went out completely, leaving me alone in the cold, dark room.
 
-At first, all I could hear was the sound of my own voice, hyperventilating in the dark.
+At first, all I could hear was the sound of my own voice, hyperventilating.
 
-Then, I heard his voice.
+Then, I heard him.
 
-*"How can I make you happy, Matt?"* 
+*"How can I make you happy, Matt?"*
 
 A shiver ran down my spine.
 
 It was that fucking clown.
+
+I whipped around, but it was still too dark to see anything.
 
 "Fuck you! Leave me alone!" is all I could scream.
 
@@ -136,7 +138,7 @@ A shadowy figure was crawling towards me on all fours.
 
 "Please! Stop!"
 
-It got closer and closer, until that recognizable face came into view.
+It got closer and closer until that recognizable face came into view.
 
 White paint. Black eyes. Red, rubber nose. And curly hair, dyed a sickly shade of green, like vomit.
 
@@ -158,7 +160,7 @@ Of course, Happy was gone. And I looked fucking insane.
 
 "Matt? Are you okay, man?"
 
-At first, I couldn't speak. I was still in shock. 
+At first, I couldn't speak. I was still in shock.
 
 "No," I finally said. "I'm not."
 
@@ -166,7 +168,7 @@ At first, I couldn't speak. I was still in shock.
 
 "Bro, you seriously need to calm down," Pitty told me at the register. "Why don't you take one of my gummies and–"
 
-"I don't want your fucking pot!" I yelled at him. "Can't you see there's something seriously wrong here?!"
+"I don't want your fucking gummies!" I yelled at him. "Can't you see there's something seriously wrong here?!"
 
 "Look, I'm not saying I don't believe you, it's just... hard when I haven't seen it myself, you know?"
 
@@ -174,7 +176,7 @@ I breathed. Tried to think. It made me angry that he didn't understand how truly
 
 "Listen," I started. "Something... is happening. It got to Jorge and now it wants me. When was the last time you talked to him?"
 
-"Well... I dunno. He stopped responding to my texts after he quit. Like, ghosted."
+"Well, I dunno. He stopped responding to my texts after he quit. Like, ghosted."
 
 "Do you have his address?"
 
@@ -192,7 +194,7 @@ I drove across town, no music on the radio, no podcast, nothing. Sometimes, shit
 
 My GPS told me that I was approximately five minutes away from Jorge's place when I noticed the car behind me had been following for some time now.
 
-Of course, my paranoid ass got suspicious. But then I figured I was just on edge still from the freezer incident. 
+Of course, my paranoid ass got suspicious. But then I figured I was just on edge still from the freezer incident.
 
 However, my worst fears were confirmed when the car ended up following me all the way to the address - a shit ass apartment building across town.
 
@@ -206,13 +208,13 @@ And as the dude headed towards me in the dark, I realized... it was my boss.
 
 "Matt!"
 
-Rick stormed across the pavement, headed straight for me.
+Rick stormed across the pavement and headed straight for me.
 
 "Rick? What the hell are you doing here?"
 
 He got right in my face and pointed a finger. "Don't worry about *me.* You're the one trying to stalk my ex-employee."
 
-"What? No, I just... Sorry, back up. Why did you follow me in the middle of the night just to–"
+"What? No, I just– Sorry, back up. Why did you follow me in the middle of the night–"
 
 "If you don't leave here right now, you'll lose a lot more than just this job. I promise you that." Rick gripped my arm tightly as he said this, looking into my eyes.
 
@@ -220,9 +222,9 @@ He got right in my face and pointed a finger. "Don't worry about *me.* You're th
 
 He let me go. "Of course not."
 
-I can't exactly explain it, but in that moment, a few things became clear to me. The first was that Rick was capable of doing very bad things. The second was that he was willing to do so because *he* was terrified of Happy, too. Just like me. 
+I can't exactly explain it, but in that moment, a few things became clear to me. The first was that Rick was capable of doing very bad things. The second was that he was willing to do so because *he* was terrified of Happy, too. Just like me.
 
-"Also, you left work in the middle of your shift, Matt." He gestured at my uniform. "Give me one good reason why I shouldn't fire you right now."
+"You're on the clock, Matt" he gestured at my uniform. "Give me one good reason why I shouldn't fire you right now."
 
 *Because I'm barely making my rent and I literally need this job to survive,* I thought to myself.
 
@@ -232,6 +234,6 @@ I can't exactly explain it, but in that moment, a few things became clear to me.
 
 Rick stood there and watched me as I got back in my car and drove back to the restaurant.
 
-I was now more confused and scared than ever, but I knew one thing for sure: Rick *really* didn't want me to talk to Jorge.
+I was now more confused and scared than ever, but I knew one thing for sure: this guy *really* didn't want me to talk to Jorge.
 
 [I decided that it was now more crucial than ever for us to meet.](https://www.reddit.com/user/NicolasCurcio/)
