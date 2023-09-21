@@ -1,4 +1,4 @@
-**Part I** \- [Part II](https://www.reddit.com/r/nosleep/comments/16mxfrh/my_dad_told_me_a_terrifying_story_about_grandma/)
+**Part I** \- [Part II](https://www.reddit.com/r/nosleep/comments/16mxfrh/my_dad_told_me_a_terrifying_story_about_grandma/) \- [Part III](https://www.reddit.com/r/nosleep/comments/16o07a7/my_dad_told_me_a_terrifying_story_about_grandma/)
 
 I’ve not seen my grandma since 2009. She had a catastrophic argument with my dad, but he used to be elusive about what actually transpired between them. Grandma moved away a few months later – I only know that because I remember cycling past her house and seeing it for sale. I was always certain she told my dad her new address, but he always refused my requests to visit her.
 

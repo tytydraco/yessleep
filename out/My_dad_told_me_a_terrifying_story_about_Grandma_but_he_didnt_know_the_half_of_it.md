@@ -1,4 +1,4 @@
-[Part I](https://www.reddit.com/r/nosleep/comments/16m1cro/my_dad_told_me_a_terrifying_story_about_grandma/) \- **Part II**
+[Part I](https://www.reddit.com/r/nosleep/comments/16m1cro/my_dad_told_me_a_terrifying_story_about_grandma/) \- **Part II** \- [Part III](https://www.reddit.com/r/nosleep/comments/16o07a7/my_dad_told_me_a_terrifying_story_about_grandma/)
 
 Following the advice of u/BathshebaDarkstone1, I chose not to tell my father what I inferred from his story. But I do have to get to the bottom of this.
 
@@ -131,6 +131,8 @@ He watched me sleep.
 I thought I had an empty stomach, but I surprised myself, unleashing another horror-driven stream of bile across the floor. But I collected myself and returned my gaze to the inside of the wardrobe. *At least they’re all photos of me*, I thought. Maybe he hasn’t taken any other victims. But they weren’t all photos of me. On the inside of the other door, there was another collection of candid shots.
 
 Pictures of my mother.
+
+[UPDATE](https://www.reddit.com/r/nosleep/comments/16o07a7/my_dad_told_me_a_terrifying_story_about_grandma/)
 
 [X](https://www.reddit.com/r/dominiceagle)
 
