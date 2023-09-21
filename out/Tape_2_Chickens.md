@@ -3,7 +3,7 @@
 
 *A farmer approaches his chicken coop, the chicken coop itself looks like a small house, a tiny painting on the wall that looks like a rooster with a smile, two windows with bars and a metal door are all the noticable features of the chicken coop from the outside.*
 
-*As the farmer gets closer, he notices the door popped out of it's frame and upon closer inspections look like a professional boxer gave the door a few good hits.* 
+*As the farmer gets closer, he notices the door popped out of it's frame and upon closer inspection, it looks like a professional boxer gave the door a few good hits.* 
 
 Farmer: Shit!
 
@@ -13,7 +13,7 @@ Farmer (On the phone): Hey! I know you're busy and all, but I really need your h
 
 *The farmer finishes his phone call, seemingly satisfied with how it went.*
 
-*While he waits for the replacement door, he tries to find out what took one of his chickens, he stares at the chickens walking on the sawdust bedding, he tries to find any sign if struggle, blood or flesh, unfortunately he only sees the usual, noisy chickens walking on the sawdust bedding without a care in the world.*
+*While he waits for the replacement door, he tries to find out what took one of his chickens, he stares at the chickens walking on the sawdust bedding, he tries to find any sign of struggle, blood or flesh, unfortunately he only sees the usual, noisy chickens walking on the sawdust bedding without a care in the world.*
 
 *20 Minutes pass.*
 
