@@ -77,3 +77,7 @@ I couldn’t move.
 “Go to your fucking room Jeremy!”
 
 I snapped out of it, but before I did, I could see the child’s lips moving, he was looking directly at me. “Go back in the water” he whispered. Then he stopped. I forced myself to walk and went back into my room. That night, I had to find a way to the ocean.
+
+&#x200B;
+
+part 3: https://www.reddit.com/r/nosleep/comments/16o4o4r/my\_parents\_told\_me\_not\_to\_follow\_the\_light\_in\_the/?utm\_source=share&utm\_medium=web2x&context=3
