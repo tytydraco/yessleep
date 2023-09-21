@@ -1,0 +1,17 @@
+Recently I found myself in a state of desperation, forced to return to my childhood home after losing my apartment due to some bad financial decisions. It was meant to be a temporary arrangement, a few days until I got back on my feet. Little did I know, those nights would become a haunting experience I would never forget.
+
+During the day, my mother seemed like her usual self. Warm and caring, she went about her daily routine, offering me comfort in a time of need. But as the sun dipped below the horizon and darkness enveloped the house, an eerie transformation took place.
+
+It was around 3 or 4 am every night when I would abruptly awaken, my senses alert to the strange happenings within the house. I would find my mother engaged in odd activities, muttering to herself as she obsessively cleaned every surface. Her eyes held a distant, vacant stare that sent shivers down my spine. Other nights, she would wander aimlessly through the dimly lit corridors, her footsteps echoing like whispers in the night.
+
+Yet, the most chilling encounter occurred one fateful night. Stirred from my sleep at the usual hour, I peeled my eyes open to witness a sight that would forever haunt me. There, outside my window, stood my mother, staring at me with a grin so wide and unsettling that it seemed to stretch the limits of her face. Her hands pressed against the glass, leaving smudges as a testament to her presence. I called out to her, my voice trembling, but she remained motionless, unresponsive to my pleas.
+
+Fear gripped me like a vice, and in a desperate attempt to escape the escalating terror, I decided to leave the house and go for a drive. The night air provided a temporary respite, offering a fleeting distraction from the horrors that unfolded within those familiar walls.
+
+Eventually, I returned home, exhausted and hoping that the light of day would dispel the shadows of the night. As I stepped through the threshold, a profound silence greeted me. It was then that I discovered my mother, peacefully nestled in her bed, seemingly undisturbed. Confusion mingled with the lingering unease, leaving me to question my own sanity.
+
+Morning arrived, and with it, the need to confront my mother about the night's events. I cautiously broached the subject, hoping for answers. But to my astonishment, she appeared genuinely perplexed, her eyes filled with genuine concern. She had no recollection of standing outside my window or anything that transpired during those haunting hours.
+
+Her innocence seemed undeniable, yet the chilling memories refused to fade. I attempted to convince myself that it was just a bizarre sleepwalking habit, a manifestation of her subconscious mind. But the uneasy feeling persisted, gnawing at the edges of my sanity. The line between reality and nightmare had blurred, leaving me trapped in a sinister dance with the unknown.
+
+With each passing night, I found myself dreading the hour when darkness reigned supreme. The veil of normalcy my mother wore during the day became a façade that concealed a deeper, unsettling truth. And as the days turned into weeks, I questioned whether I could ever find solace within those walls again or if I would forever be trapped in a twisted labyrinth of fear and uncertainty.
