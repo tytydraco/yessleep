@@ -208,17 +208,21 @@ Mine. 
 
 It was an exact replica of my little self. Its smile was the same, with wide eyes and waving arms. It wore the same bright red boots, dirt cakes between Its nails. I watched the replica climb onto the wall before pushing me forward, and my original self burst into a reddish mist before even hitting the ground. 
 
-The tape flickered, colors bleeding into the film. It was red, like blood.  In a cut, I saw the replica jump off of the wall and run forward toward the camera to wipe away the red smear on the lens.  The tape did not end there. It switched to an older version of me. This time I was in middle school. I remembered the exact classroom. I remembered the faces of the kids around me. Robbie sitting at the front throwing pens at the wall, and Britney doodling in her textbook. I was sitting with my head buried in a dog-eared copy of Percy Jackson. *Where was the camera?* I thought, my gut twisting into knots. 
+The tape flickered, an array of color bleeding into the film, staining the footage. It was red, like it was bleeding. 
+
+In a cut, I saw the replica jump off of the wall and run forward toward the camera to wipe away the red smear on the lens.  
+
+The tape didn't stop. It switched to an older version of me. This time I was in middle school. I remembered the exact classroom. I remembered the faces of the kids around me. Robbie sitting at the front throwing pens at the wall, and Britney doodling in her textbook. I was sitting with my head buried in a dog-eared copy of Percy Jackson. *Where was the camera?* I thought, my gut twisting into knots. 
 
 I didn’t remember Mom filming this. 
 
-The tape flashed blue once again, and I blinked rapidly before it switched back to my middle school classroom. There was no sound again. I saw it once more, a bleeding black shadow creeping through my classroom door, and then growing a head and torso, arms and legs. This time it embodied my twelve-year-old self, right down to the scratch on my knee I remembered getting during recess. This time the replica was not smiling. She strode over to my desk, grabbed me by my hair, and pulled me to my feet. She shoved me violently, and I stumbled back, once again exploding into a darker red, which splattered on my desk. 
+The tape flashed blue once again, and I blinked rapidly before it switched back to my middle school classroom. There was no sound. I saw it once more, a bleeding dark shadow creeping through my classroom door, and then growing a head and torso, arms and legs. This time it embodied my twelve-year-old self, right down to the scratch on my knee I remembered getting during recess. This time the replica was not smiling. She strode over to my desk, grabbed me by my hair, and pulled me to my feet. She shoved me violently, and I stumbled back, once again exploding into a darker red, which splattered on my desk. 
 
 The replica calmly took my seat and used the cuffs of her sweater to wipe away the mess my original had made. 
 
-I thought the tape ended, but it kept going. 
+The footage kept going, switching between snapshots of random footage. 
 
-It switched to my high school changing rooms, and something sour crept its way up my throat.
+Then it flashed to my high school changing rooms, and something sour crept its way up my throat.
 
 **4 hours ago.**
 
@@ -270,7 +274,7 @@ No. 
 
 *Thousands.*
 
-But I let my gaze flick to my skin, where my name has been printed on my flesh in blocky black letters.
+But I let my gaze flick to my skin, where my name has been printed on my flesh in blocky letters.
 
 It had always been there, a stray thought that was not mine entered my mind.
 
@@ -300,11 +304,13 @@ Couldn't turn around.
 
 *“You broke character.”*
 
-Two sets of slimy hands were on my back. I remember the feeling of them shoving me violently. I didn’t remember stumbling or falling.
+Two sets of slimy hands were on my back. I remember the feeling of them shoving me violently. I didn’t remember stumbling or falling. Just their hands. 
 
-Just darkness.
+And Ben's sobs, his heaving breaths on my back. 
 
-It came fast, enveloping me, before spitting me back out again. I woke inside my room, blinking rapidly at the stars on my ceiling. I slid back to consciousness with that same clawing, monstrous screech in the back of my throat. It wasn’t mine. But it felt like mine. It felt like a scream I had been holding in and pushing down for years. 
+Darkness.
+
+It came fast, enveloping me, before spitting me back out again. I woke inside my room, blinking rapidly at the stars on my ceiling. I had slid back to consciousness with that same clawing, monstrous screech in the back of my throat. It wasn’t mine. But it felt like mine. It felt like a scream I had been holding in and pushing down for years. 
 
 The window was dark. Night. How many hours had passed me by? 
 
@@ -358,7 +364,7 @@ Just like me. 
 
 I didn’t want to hug this woman who both felt like my mother and also didn’t. I wanted to get away from her. I started to say my brother’s name in a choked hiss when the replica standing in the doorway slowly raised his finger to curled lips.
 
-I could see black ink printed on the inside of his wrist.
+I could see ink printed on the inside of his wrist.
 
 *Ben. (V. 1,674.)*
 

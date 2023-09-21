@@ -12,13 +12,13 @@ I stared at it my mouth open, my brow furrowing in confusion.
 
 A troll, this early in the morning?
 
-"Har-har that's hilarious. Glad you liked it I guess?" I pressed send.
+"Har-har that's hilarious." I pressed send.
 
 The response was not what I expected.
 
 "Read this carefully. You have made a grave mistake revealing such intimate secrets of the order. For this they will expect payment."
 
-I felt a sudden flash of anxiety. This troll wasn't very funny. The Illuminati? It was a joke? A conspiracy theory like the Knights Templar and Area 51.
+I felt a sudden flash of anxiety. This troll wasn't very funny. The Illuminati? It was a joke... a conspiracy theory like the Knights Templar and Area 51.
 
 'You are living at 8868 Haberdash Lane, Bingleton"
 
@@ -26,7 +26,7 @@ I froze.
 
 "If you want to continue to live you will read to this message very carefully. In five minutes two men in suits will knock on your door. DO NOT answer it. You must sneak out the back through your neighbours garden. The 406 bus will be leaving then, get on it."
 
-I looked at when the message was sent. Four minutes ago...
+I checked when the message was sent. Four minutes ago...
 
 I looked out my front window in horror. Two men in suits were approaching the door. I jumped up from my desk and grabbed my phone, making my way out the back. I could hear them pounding the knocker as I hopped the fence.
 
@@ -90,7 +90,7 @@ This was it... they were going to shoot me. I was going to die here on this hill
 
 "It's a d-decoy. Open it! You'll see. Open it."
 
-The men looked at each other eye brows raised. One raised his sunglasses and rested them on his forehead. He pulled a switchblade from a pocket and flipped it open.
+The men looked at each other eyebrows raised. One raised his sunglasses and rested them on his forehead. He pulled a switchblade from a pocket and flipped it open.
 
 "Don't move" he ordered.
 
@@ -106,7 +106,7 @@ I watched as the man clicked the latch and popped the lid open. The men gasped a
 
 The last thing I saw before the light became unbearable was the box and the men floating mid air. Even with my eyes closed all I could see was white. I heard them scream but it was like their voices were being sucked into a black hole. The electromagnetic sound was almost unbearable. Then it stopped.
 
-I heard something fall to the ground. I cautiously opened my eyes half afraid I would experience whatever the men just did. They were gone. The box lay on the ground. I picked it up cautiously, careful not to open it.
+I heard something fall to the ground. I fearfully half-opened my eyes worried I would experience whatever the men just did. They were gone. The box lay on the ground. I picked it up cautiously, careful not to open it.
 
 I don't know what compelled me to do it. Fear? Worry? I made my way to the cliff overlooking the sea and hurled that box into the depths, I prayed something so dangerous was never to be found again. My phone rang as I walked up to the cottage. It was the voice.
 

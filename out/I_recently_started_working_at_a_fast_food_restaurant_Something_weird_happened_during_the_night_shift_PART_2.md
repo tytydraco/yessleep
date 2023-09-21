@@ -1,4 +1,4 @@
-[Part 2](https://www.reddit.com/r/nosleep/comments/16m8jeh/i_recently_started_working_at_a_fast_food/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/16m8jeh/i_recently_started_working_at_a_fast_food/)
 
 The next morning I looked like total *shit* \- which made sense since I hadn't slept a wink. I'd sent Pitty a text (he gave me his number back during our first smoke sesh) around 6:00am.
 
@@ -237,3 +237,5 @@ Rick stood there and watched me as I got back in my car and drove back to the re
 I was now more confused and scared than ever, but I knew one thing for sure: this guy *really* didn't want me to talk to Jorge.
 
 [I decided that it was now more crucial than ever for us to meet.](https://www.reddit.com/user/NicolasCurcio/)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/16or1x2/i_recently_started_working_at_a_fast_food/)

@@ -24,7 +24,7 @@ There's this ringing in my ears that's almost deafening, and it gets louder the 
 
 I don't know what it will do to me, but I'm afraid it might kill me, or potentially do even worse. 
 I'm too young to die, I haven't even fully gotten started on my life yet. 
-I'm scared, but I know there's nothing I can do against some sort of giant, shadow, creature. 
+I'm scared, but I know there's nothing I can do against some sort of giant shadow creature. 
 
 I can feel tears pouring down my cheeks as I write this, but I hadn't even known I was crying. 
 I guess terror will do that to a guy. 
