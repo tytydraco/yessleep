@@ -132,7 +132,7 @@ So, at any chance he could get, Ben liked to remind us he wasn’t the cardboard
 
 “Close your mouth!” Allie groaned. But she was smiling, relieved the three of us were off camera. She picked up her book and motioned throwing it at his head.
 
-“I will throw it at you,” she narrowed her eyes with a playful smile. “Close your mouth. Heathen.”
+“I will throw it at you,” she narrowed her eyes with a playful smile. “Close your mouth. Psycho.”
 
 “I dare you to try,” Ben shot her another chocolaty grin. “You know what happens if we get a bruise—and this face has to stay perfect.”
 
@@ -212,7 +212,7 @@ The tape flickered, an array of color bleeding into the film, staining the foota
 
 In a cut, I saw the replica jump off of the wall and run forward toward the camera to wipe away the red smear on the lens.  
 
-The tape didn't stop. It switched to an older version of me. This time I was in middle school. I remembered the exact classroom. I remembered the faces of the kids around me. Robbie sitting at the front throwing pens at the wall, and Britney doodling in her textbook. I was sitting with my head buried in a dog-eared copy of Percy Jackson. *Where was the camera?* I thought, my gut twisting into knots. 
+The tape didn't stop. It switched to an older version of me. This time I was in middle school. I remembered the exact classroom. I remembered the faces of the kids around me. Robbie sitting at the front throwing pens at the wall, and Britney doodling in her textbook. I was sitting with my head buried in an old  copy of Percy Jackson. *Where was the camera?* I thought, my gut twisting into knots. 
 
 I didn’t remember Mom filming this. 
 
@@ -442,7 +442,7 @@ Something twisted in my gut. 
 
 My brother shot me a look, and whatever he was about to say was cut off when Allie shoved past us. “Move aside, slow pokes. Jeez, I’m not getting any younger!”
 
-When she was bumbling down the stairs, Ben moved closer to me. “You know what,” he rolled his eyes. “Last night, you were fucking peeking behind my door. I told you to fuck off, but you didn’t move, Zoey.” He shuddered. 
+When she was bumbling down the stairs, Ben moved closer to me. “You know what,” he rolled his eyes. “Last night, you were fucking peeking behind my door. I told you to leave, but you didn’t move, Zoey.” He shuddered. 
 
 “Dude, it was like you were possessed. You stood there for hours. I just shut the door on your face."
 
@@ -450,7 +450,7 @@ When she was bumbling down the stairs, Ben moved closer to me. “You know what,
 
 The word hung in the air when we descended the stairs and entered the kitchen. Mom was already filming herself making breakfast, while Allie had slumped down at the table and pulled out her book. 
 
-I started forward to take my usual seat, but something froze me in place. There was another teenager sitting at the table. The guy was a sleepy-looking brunette stirring his cereal into a soup, leaning his chin on his fist, eyes half lidded, lips parted into a small smile. When he caught my eye, his mouth formed a scowl. The boy leaned back. “I’m not moving,” the boy grumbled. He turned to Mom. “Zoey always sits here. It’s the best seat, and I have back problems." He narrowed his eyes on me. "I'm taking *medication*. 
+I started forward to take my usual seat, but something froze me in place. There was another teenager sitting at the table. The guy was a sleepy-looking brunette stirring his cereal into a soup, leaning his chin on his fist, eyes half lidded, lips parted into a small smile. When he caught my eye, his mouth formed a scowl. The boy leaned back. “I’m not moving,” the boy grumbled. He turned to Mom. “Zoey always sits here. It’s the best seat, and I have back problems." He narrowed his eyes on me. "I'm taking *medication*".
 
 “Zoey,” Mom murmured, her focus on frying eggs. “Can you let your brother use that seat this morning?”
 
