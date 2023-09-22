@@ -1,6 +1,4 @@
-Mirror Me  
-  
-Have you ever taken a deep stare into your reflection? Stared at it until your vision began to grow dark and blurry. Swirling shadows invading your mind, your reflections face changing, warping, growing unfamiliar. It's scary, staring at yourself for too long. Your face growing black, growing darker, turning into something else. But that’s what I did. That’s how it all began.  
+Have you ever taken a deep stare into your reflection? Stared at it until your vision began to grow dark and blurry. Swirling shadows invading your mind, your reflections face changing, warping, growing unfamiliar. It's scary, staring at yourself for too long. Your face growing black, growing darker, turning into something else. But that’s what I did. That’s how it all began.  
   
 I stared deep into my reflection, inspecting every aspect of it, peering into its mirrored world. I lifted my hand slowly, watching my reflection follow my lead in perfect sync. I closed one eye, then another and he did the same, my gaze analyzing every movement for any noticeable difference.  
   
@@ -95,4 +93,9 @@ Tears began to roll down my cheeks as I realized that he did not know the son he
   
 I had to make it out, I had to show him that that was an imposter. I continued to draw the circle, wincing at the pain when my dad burst into the room again, holding a hammer.  
   
-My eyes widened. “Don’t!” I screamed as he ran towards me, lifting his hammer. I glanced at my reflection one last time, watching him wave goodbye to me with a smile curled on his lips as my dad swung at the mirror and I shattered. Shattering into millions of pieces.  
+My eyes widened. “Don’t!” I screamed as he ran towards me, lifting his hammer. I glanced at my reflection one last time, watching him wave goodbye to me with a smile curled on his lips as my dad swung at the mirror and it shattered.   
+  
+  
+I don’t even know how long it's been. It feels like days, maybe even months, that I had been trapped in here. Sitting alone in my room, unable to leave it. It’s like the room is the only thing that exists in this place. When I open the door, there's nothing but an endless void, when I open the window, it's the same. Now that the mirror is gone I can’t even peer through into my own world. I am completely alone.  
+  
+Everything here still works though. The lights still switch on, the electricity still works, and so does the computer. I don’t know if I have signal though, it says the wifi is on but I don’t know if it’ll connect to the outside world. I’m typing this out to tell you what happened. To hope that somehow my family realizes that the man from the mirror is not me. And to warn you, please, be wary of your reflection and for the love of God do not let it out.  
