@@ -269,3 +269,9 @@ I'm willing to bet whatever made the people in my town disappear is also respons
 &#x200B;
 
 I do have some knives on me so I'm not entirely defenseless. Wish me luck I can last long enough for [help](https://www.reddit.com/r/StoriesFromRose/) to [arrive.](https://www.threads.net/@rose_black2222)
+
+&#x200B;
+
+&#x200B;
+
+Update: At least now I have some [company.](https://www.reddit.com/r/nosleep/comments/16pkqv8/records_from_a_research_assistant_the_mission_in/)

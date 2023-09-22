@@ -857,3 +857,7 @@ This is where I have to leave things off.  I probably won’t be posting for a w
 &#x200B;
 
 This is [Zane,](https://www.reddit.com/r/StoriesFromRose/) logging [off.](https://www.threads.net/@rose_black2222)
+
+&#x200B;
+
+[https://www.reddit.com/r/nosleep/comments/16pkqv8/records\_from\_a\_research\_assistant\_the\_mission\_in/](https://www.reddit.com/r/nosleep/comments/16pkqv8/records_from_a_research_assistant_the_mission_in/) (Hopefully we figure this out soon. I don't like our chances with those things out there)
