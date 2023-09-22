@@ -53,3 +53,7 @@ Before I could ask any questions, her mouth opened and a serpent wriggled out of
 “Grab it by the head, and bite it!” Peter yelled.
 
 The serpent came at me at me again, and I grabbed it in the middle, it whipped around to bite me, and I bit onto its neck as hard as I could, I dug my teeth in, it tasted like rubber and metal. Its head fell to the ground, and I started spitting. The girl was lying on the floor, the current picked up, and her body slid across the sand, I watched it until it was out of sight. These had better be the best damn brownies I’d had in my long nine years.
+
+&#x200B;
+
+part 4: https://www.reddit.com/r/nosleep/comments/16p0idp/my\_parents\_told\_me\_not\_to\_follow\_the\_light\_in\_the/?utm\_source=share&utm\_medium=web2x&context=3

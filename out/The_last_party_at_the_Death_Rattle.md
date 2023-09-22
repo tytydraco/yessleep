@@ -4,7 +4,7 @@ It was tucked away behind a thicket of trees on a hillside far away from any hom
 
 I went to the club with a couple friends in late October. It was me, Sam, and Theo – a couple old buddies from high school – and Sam’s new girlfriend, Rachel. I’d been there a few times with Theo and some friends from San Jose State. Sam and Rachel had never been, and they were real eager to check it out.
 
-It wasn’t my favorite spot since I really hated driving down that windy road at night. I knew a guy from State who hit an oncoming car late at night, and apparently a friend-of-a-friend went off a road and died after hitting a deer.
+It wasn’t my favorite spot since I really hated driving down that winding road at night. I knew a guy from State who hit an oncoming car late at night, and apparently a friend-of-a-friend went off a road and died after hitting a deer.
 
 Normally I’d refuse to go, but Theo said he’d drive and promised me he wouldn’t have a sip of alcohol.  So, I agreed.
 
