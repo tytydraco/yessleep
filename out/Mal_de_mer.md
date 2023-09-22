@@ -14,7 +14,9 @@ It soon all slipped away from me, and by the time i was 16 i barely knew the lyr
 
 &#x200B;
 
-Of course my parents still never agreed with my love of the salty breeze, and would still joke about it, had they been with me on that day they would probably have made me put it back.Back at home a gentle cleaning brought it up nicely, and i tried it on, much to my luck it fit perfectly, almost like it was made for me, yet my parents didn't really approve of it, there wasn't much they could do.I liked wearing that jumper, a lot, especially to the seaside, the sound of the flap falling home whenever i put it on never ceased to satisfy me, it was amazing.
+Of course my parents still never agreed with my love of the salty breeze, and would still joke about it, had they been with me on that day they would probably have made me put it back.
+
+Back at home a gentle cleaning brought it up nicely, and i tried it on, much to my luck it fit perfectly, almost like it was made for me, yet my parents didn't really approve of it, there wasn't much they could do.I liked wearing that jumper, a lot, especially to the seaside, the sound of the flap falling home whenever i put it on never ceased to satisfy me, it was amazing.
 
 Under that flap was actually still the name of a sailor, my endless research found that he was among the dead on a warship that sank during WWII, it was a strange thing, but one i assumed was either a hoax by a later owner, or from someone with a similar name, after all, they were a radio man, and this one was electricians mate, i didn't even think that radio men got cracker jacks.
 

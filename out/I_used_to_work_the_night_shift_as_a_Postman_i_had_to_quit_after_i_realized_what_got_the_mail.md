@@ -1,0 +1,23 @@
+As stated i used to work the night shift as a Postman. I never liked this job much but it was better then being unemployed. I was a 20 year old student so money was something that i needed alot. The post office that i worked for is in a small town in sweden, not alot of people live there and at night there is almost no one outside. This is how IT have been able to keep it a secret for so long. Until i realized what got the mail.   
+  
+So this began one night when my night shift was about to start. It was the first time that i was going to drive this district by myself. I was tired and feelt like i needed a cup of coffee. The coffee machine was broken as usual. I got all of the mail wich mostly consisted of letters packed in envelopes or packages that i was supposed to deliver. I put them and some news papers in my post car. I drove away at 1 am. That’s when i started hearing a sound. It was a soft buzzing and It was realy annoying, but it was not so bad that i could go home.    
+  
+When i got to my first stop i got out of my post car and went to the mail box with the mail. It was very dark outside so i was depending on the streetlights to see anything. I had put the mail in the mail box and started walkning back to my post car when i heard a noice. It sounded like something slammed behind me. I turned around and nothing was there. I was a little spooked so i looked at the houses around me but i saw nothing unusual. I went back to my post car and drove away to my next stop.   
+  
+I had stopped my post car and was going in to a apartment building to deliver the mail. At this point the buzzing had been increasing and was now really irritating. This was the only apartment building on my district and i always found it creepy. The lights almost never worked, there were always wierd sounds and it often feelt like someone was watching. All of these things were going on this night to. I left the mail in the holders next to the apartment doors. I walked down the stairs to the door to go outside but as soon as i opened the door i stopped. I heard all of the doors where i left the mail open and slammed shut. I was horrified and shocked and wondered what was going on. I turned around and saw that all the mail was gone. I hurried out, jumped in my post car and drove off.   
+  
+I was driving extra fast and tried to hurry as much as possible. Everytime i left mail at a mail box or at a door i heard slamming sound every time i turned my back or left it. After i was done and all the mail was delivered the buzzing sound had increased so much that i could not hear anything else. But i started to hear something else within the buzzing. I heard a voice. I could not fully hear what the voice was saying.    
+  
+ I did not want to hear it. I put on the radio and was going to turn up the volume when i suddenly heard that the voice was in the radio to.    
+  
+I turned off the car and jumped out. I fell to my knees and covered my ears hoping to get the voice out. It did not go away. I got up and started walking towards the center of the town. When i was walking people started coming out from all of the buildings where i left the mail. They were walking in the same direction as me. I could not think clearly because of the sound in my head. But i saw one of their face.    
+  
+He had blank eyes and he was holding the mail that i had delivered. He was whispering the same whispers that were going on in my head. I could se that hundreds of people stood in the center of the town. I was almost there to. All of them had hoods over their heads. Their whispering had become a chanting that merged whit what was now chanting in my head.    
+  
+I wanted to hide or run away but i could not. I was drawn towards them. Not them. But what was there.    
+  
+I was now one in their crowd. The ground started to cracking and the crowd formed a big circle  in the middle. somthing came out of the ground within the circle. I can only describe it as the head of a being with many eyes and mouths. Thousands of them. The people started to feed it the mail.    
+  
+The voice that was chanting in my head was now very clear. It said “Feed me and my whispers shall guide you to never ending knowledge, Starve me and my whispers shall guide you to madness”.   
+  
+I never worked there again. The worst thing is that i still can hear it’s whispers. It used to say to me that i had chosen and that there were always going to be somebody else to feed it. I can feel the madness that it promised me. It only whispers lies now. It keeps the knowledge that it gets from the mail for it self. 
