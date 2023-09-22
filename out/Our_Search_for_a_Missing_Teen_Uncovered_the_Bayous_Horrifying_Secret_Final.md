@@ -206,9 +206,9 @@ Lupin's gaze wavered, a mixture of fear and remorse seeping into his eyes. For a
 
 He paused, his eye locking onto mine as though searching for some kind of absolution. It was the same look I'd seen on countless criminals. The look of someone who knew they were caught, who knew they were facing a reckoning they couldn't escape.
 
-As a former cop, my duty seemed clear: arrest him, bring him in, and let justice be served. But the justice system was far from perfect, and the thought of this monster being acquitted on a technicality or escaping to kill again was a risk I wasn't willing to take. Even if we could hold him, what prison could contain a werewolf?
+As a former cop, my duty seemed clear: arrest him, bring him in, and let justice be served. But the justice system was far from perfect. This was a being whose essence was split between man and monster, a creature of the night that reveled in the hunt and the kill. What kind of trial could accommodate such a dichotomy? What jury could ever understand the complexity of a life torn between humanity and primal urge?
 
-This was a being whose essence was split between man and monster, a creature of the night that reveled in the hunt and the kill. What kind of trial could accommodate such a dichotomy? What jury could ever understand the complexity of a life torn between humanity and primal urge?
+The thought of this monster being acquitted on a technicality or escaping to kill again was a risk I wasn't willing to take. Even if we could hold him, what prison could contain a werewolf?
 
 The shotgun felt heavy in my hands, its cold steel seeming to absorb the ambient moonlight. I lifted it, leveling the barrel at Lupin's head. My finger caressed the trigger, hesitant but determined. This was it. My moment of catharsis, my moment of justice for Claire, for all the faces and names he claimed to remember in his tortured dreams.
 
