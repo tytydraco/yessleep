@@ -1,13 +1,3 @@
-I'm sitting down and writing this story now because the weight of my past still haunts my dreams, and I need an outlet to confront the darkness that lingers from my days as an altar boy. As I type these words, I'm an atheist, a far cry from the faithful child I once was.
-  
-Writing this seems like a therapy of sorts, a way to purge the demons that cling to the corners of my mind. You see, I was an altar boy, and the memories of those days are a heavy chain around my soul. But my reasons for sharing this story extend beyond personal catharsis. 
- 
-I want the world to know my story, in the hopes that it might serve as a warning or offer solace to others who've walked a similar path. I've shed my belief in the divine, but some events from my past remain unexplained, continuing to haunt my thoughts.  
-
-Stepping into that dimly lit church for the first time, the scent of incense heavy in the air, I was just an innocent, impressionable child who believed in the stories they told me. I believed in a benevolent God watching over us. But my belief shattered, piece by piece, as I was initiated into a world of strange rules and rituals that extended far beyond the altar.  
-
-As I write now, the tension of those memories hangs in the air, the fear and unease etched into my heart. I may have lost faith in a higher power, but I know that something dark and inexplicable touched my life during those years. So, despite the anxiety and pain that may come from it, I share my story, knowing that there's no turning back once I begin.  
-
 When I was just eight years old, my life took a dark and unexpected turn. My mother, a devout Catholic, who had taken me to church regularly, had been committed to the nearby Evergreen Mental Health Center after a harrowing incident. It was a foggy November evening, and I can still vividly recall the chilling screams that pierced through the walls of our home. 
 
 Shadows danced wildly in our living room as I huddled in a corner, my heart pounding. My mother's eyes had been wide with terror, her voice trembling as she muttered something about "the eyes in the darkness." It was a nightmarish episode that defied explanation, leaving her committed for her own safety, or so they said.  
