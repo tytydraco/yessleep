@@ -1,185 +1,93 @@
-So, I have a choice to make here. I can either go upstairs, give in to my fear and let my paranoia consume me, or stay strong because this is the real world. The *real* world.  I have to admit, I'm almost at the point of going up there. Almost. If for no other reason than to be sure. You be the judge. 
-
-I'll explain, just how it happened. Stick with me. Let me know what you'd do.
-
-‘Goodnight, munchkin,’ I whispered, taking a risk and kissing Emma’s forehead. I knew that in a few years, maybe even sooner, my little girl wouldn’t want her mum to tuck her in anymore. She wouldn’t want kisses. Wouldn’t want stories. Before long, she wouldn’t even want to let me in the room. If she was going to be anything like me as a teenager, then access to Emma’s room, like access to her life, would be strictly controlled.
-
+I was gasping for air, a cold sweat forming on my forehead as I pushed through the rusty, seemingly forgotten door of apartment 614. I had to find out what was happening. It was the rumbling from behind the walls, the whispers of distraught residents, the mysteries of the towering Oakhaven Apartments that led me here. But this... this was beyond anything I'd imagined.  
   
-But for now she's five. And getting her to sleep is hard, especially when the sun was still stubbornly shining outside. I hate the sun sometimes. Mostly around the time I hear the words ‘but Daddy, it’s still daytime!’
-
+Rewinding to just two weeks prior, I had moved into Oakhaven, lured by the cheap rent and its proximity to downtown. The age-old brick exterior, with ivy creeping up its face, should've been the first warning sign. But like so many, I ignored the omens and listened to my wallet.  
   
-I guess parenthood does strange things to your mind, especially when you’re a working Dad with a wife on night-shift and the joys of bedtime are all yours. Every. Day.
-
+Late one evening, as I settled into my new apartment on the sixth floor, Ms. Gertrude from 615 knocked, her frail hands trembling.  
   
-My heart sank as Emma squirmed and opened those eyes that moments before had seemed safely closed. At the sight of those pretty blues, peering out from a smiling face framed by blonde hair, I managed to smile back despite the nagging disappointment and the inward groan at the thought of yet more child-talk when all I really wanted was to flake out on the sofa with a bottle – no – a crate of beer and some kind of violent, mindless, X-rated action film.
-
+"Have you heard them?" she whispered, eyes darting left and right. "The...noises? Especially from that apartment?"  
   
-‘Night Daddy,’ the little girl said sleepily, and I dared to hope she might drift off again for a moment. But the look in those pretty eyes changed suddenly and Emma sat up in bed, looking towards the wardrobe door.
-
+I hadn't, but it didn't take long. That night, as the clock's hands crawled past midnight, a low, haunting hum began to emanate from apartment 614, right next to mine. At first, I chalked it up to faulty plumbing or maybe an old refrigerator. But soon, even the walls seemed to pulsate with a rhythm of their own, a heart beating too loud in the silence.  
   
-‘The door, Daddy,’ she said, a tremor of fear in her voice. I gave the wardrobe a cursory glance, the promise of a relaxing evening rapidly crumbling around me. ‘It’s closed honey,’ I said, trying to keep up the gentle, reassuring bed-time tone.
-
+In the following days, I overheard hushed conversations between neighbors, talking about "the previous resident of 614" and "those haunting hours."  
   
-‘It needs to be open.’
-
+Curiosity piqued, I reached out to a couple of longer-term residents. Their stories sent shivers down my spine. It was said that many years ago, a man named Albert resided in 614. A recluse, he was rarely seen but often heard — peculiar chants and murmurs accompanied by strange symbols painted on his walls.  
   
-I blinked, wondering if I’d misheard. Since when did children want doors kept open? Wasn’t the idea to keep the monsters out?
-
+One night, his chants grew more violent, escalating to a full-blown outburst. The morning after, no one saw him again. The apartment was locked from the inside, and despite multiple attempts, the door couldn't be breached. Over time, it was left alone, a sealed crypt of secrets, but the disturbances continued.  
   
-‘Why honey?’
-
+Determined to uncover the truth, I began researching about Albert. Old newspapers revealed that he was once a renowned archaeologist, with a particular interest in ancient cults. His last expedition was to a remote temple in South America, after which he returned a changed man.  
   
-‘So the fingers can’t come underneath.’
-
+Mid-research, I was jolted by an intense, rhythmic pounding. The noise wasn't coming from any apartment but rather beneath the building itself. The basement. Perhaps that was the key. But there was one problem — residents were strictly forbidden from entering it.  
   
-This was a new one on me, and having accepted that my evening duty was not yet over, I decided to find out more.
-
+A plan began to form in my mind.  
   
-‘Fingers, honey? What fingers?’
-
+That night, armed with a flashlight, I made my way to the basement. To my surprise, the door was slightly ajar. The underground space was vast and lined with old wooden beams and brick walls. Cobwebs hung like drapes from the ceiling, and a damp, putrid smell filled the air.  
   
-‘Under the door. They reach like this –’ Emma held up her little hands and wiggled her fingers – ‘and they get closer and closer every night. But they don’t come when the door’s open.’
-
+My light caught something on the far wall — symbols. The same symbols Albert reportedly painted in 614. Underneath them, a passage leading further down.  
   
-Something about this was disturbing even to me. Kids had imaginations, sure, but there was something unusually creepy about the idea of fingers reaching under a door. Something a lot creepier than the usual monsters under the bed and darker than any nightmare I myself had ever had.
-
+As I hesitated, a whisper echoed through the space, drawing me in. "Discover... Uncover...". I was in too deep to turn back now.  
   
-‘They reach closer each night?’ I asked, against my better judgment. It wouldn’t be a good idea to let these thoughts get any clearer in Emma’s head. My little girl nodded solemnly, her eyes steady and wide. There was no mischief or twinkle of imagination in those blue orbs. She was clearly quite scared of this horrible idea she’d had; I made a mental note to investigate any of Emma’s books and cartoons for anything resembling a creepy door or a long-fingered animal or creature. Such an offender would be made to quietly disappear.
-
+Following the passage, I came upon a door. Pushing it open, my eyes met a sight that would haunt my dreams forever.  
   
-‘Last night they reached my bed,’ she said quietly, imploringly, staring at me. In my mind, though I tried to quash the image, I saw long, thin, pale fingers tipped with black nails stretching all the way from the wardrobe to the edges of the duvet, wriggling and reaching with desperate hunger…  
-I shuddered. I’d be lucky if I didn’t have nightmares after this.
-
+The room was vast, and at its center stood an ornate stone altar, encrusted with dark stains that told tales of rituals long past. Candle holders, formed in the shape of writhing serpents, adorned its corners, their wicks long extinguished. The walls were adorned with more of those cryptic symbols, but now intertwined with disturbing sketches of disfigured humans in states of anguish and despair.  
   
-‘Maybe we could put something next to the wardrobe so they can’t get out?’ I said, trying to be practical about it. I knew there was no point insisting that the fingers didn’t exist because my apparently deeply disturbed child clearly believed they did and would continue to do so no matter what I said. Doing something so they weren’t a problem anymore would make more sense to Emma, and might convince her she was safe.
-
+As the shock subsided, a shuffling sound reached my ears, originating from the shadows in the corner of the room. I reluctantly aimed my flashlight, and the beam unveiled a hunched figure, scribbling fervently on the floor.  
   
-Emma shook her head, her golden locks tumbling around her little face. ‘They’re shadow fingers. They go over everything.’
-
+His back to me, I could see his skeletal frame, clothes tattered and hair a wild mess. The realization hit like a punch to the gut. It was Albert.  
   
-Ok so they were shadow fingers. What stops shadows? Light. A small price to pay for a peaceful evening.
-
+He stopped abruptly, his head tilting ever so slightly as if sensing my presence. Then, with a chilling slowness, he turned to face me. His eyes were not those of a sane man but of someone lost to a dark abyss.  
   
-‘We could leave the light on?’ I suggested, forcing more light and cheer into my tone than I felt. I was still pretty disturbed by my child’s apparent horror-movie of a mind.
-
+"You shouldn't be here," he rasped, voice filled with a mix of warning and despair.  
   
-‘I can’t sleep if the light’s on, Daddy,’ Emma said in that serious, don’t-be-so-silly tone young children sometimes use to the delight of adults, who usually find it adorable when it *isn’t* bedtime.  
-I sighed.
-
+Trying to muster any courage, I replied, "I had to know the truth, Albert. About the noises, the symbols, about you."  
   
-‘Ok honey let’s open the door.’
-
+He let out a heart-wrenching sigh. "They called to me from the temple... The old gods, forgotten by time. They promised knowledge and power, but they take more than they give."  
   
-Standing up, I navigated past the scattered toys and colouring books, ignoring the snap and crunch of unseen pencils under my feet. I’d clean it later, I told myself cynically knowing full well I wouldn’t have the time.
-
+The room grew colder. The shadows seemed to stretch and twist, reaching out for me. Panic surged through my veins. I had to get out, but Albert's story, his warning, kept me rooted.  
   
-The wardrobe door, covered as it was in stickers of pigs and princesses, made a sticky crinkling sound as it opened. I shoved a toy monkey who happened to be by my foot into position to hold it open. The monkey didn’t object, though he fell forward on his face as though mortified at getting door-duty. I spared him a half-smile.
-
+"They're bound to this place now, through me. Through my foolishness." He gestured to the symbols around us. "I tried to contain them, to lock them here with these wards, but they demand more. They thirst."  
   
-Too bad kiddo, tonight isn’t going how either of us planned.
-
+His hollow gaze met mine, filled with both torment and a plea for understanding. "Each night, they try to break free. Each night, I hold them back. But it weakens me."  
   
-I turned to smile broadly at Emma, realising just how tired I was. Emma was watching me carefully, and nodded when she saw the door wouldn’t close.
-
+I knew then that the disturbances, the haunting hums, the chilling vibes of Oakhaven weren't just remnants of Albert's dark past but an ongoing battle between him and these ancient deities.  
   
-‘Goodnight honey,’ I said, making for the bedroom door and the promise of escape.
-
+Suddenly, a deafening roar erupted from the very walls, making the room tremble. Albert's face contorted in pain as he clutched his head. "They're coming!" he shrieked.  
   
-‘Daddy wait!’
-
+A blinding light emanated from the altar, illuminating grotesque, shadowy figures emerging from the walls, their distorted forms menacing and horrifying. The room was filling with them, and their intent was clear.  
   
-‘What?’
-
+I had to act. Recalling the symbols I'd seen both in Albert's apartment and the basement walls, I frantically began drawing them around us with the chalk Albert had dropped.  
   
-‘The other doors.’ Emma was staring, wide-eyed at me. She looked terrified. I glanced around the room, wondering what other doors she could possibly mean –
-
+As the last symbol connected, a barrier seemed to form, and the figures were pushed back, their twisted faces filled with rage.  
   
-Then it hit me. Doors on the piggy bank. Doors on the Wendy house. Doors on the toy oven.
-
+"They can't be held for long," Albert gasped. "You need to leave. Warn the residents. And whatever you do, never let anyone enter this place again."  
   
-Doors *everywhere*.
-
+His words were a stark contrast to the sense of impending doom that filled the room. But I knew he was right. Without another word, I turned and raced back the way I came, the haunting cries of the old gods echoing behind me.  
   
-‘Emma, now come on,’ I said, allowing a note of no-nonsense to creep into my voice, ‘you said the fingers come from the wardrobe –’
-
+The hallways of Oakhaven felt longer and more twisted than ever. Each step echoed with urgency, but also with the weight of the knowledge I now bore. The silence of the night was pierced by the distant and haunting hum emanating from the depths below, growing in intensity.  
   
-Emma flinched at the mention of the fingers, and I gave myself a mental kick. Crossing the room to the little girl, I wrapped her in a hug and whispered soothingly to her. Emma was crying softly. After a few minutes, I let her go and brushed the hair out of Emma’s eyes.
-
+I emerged from the basement, locking the door behind me. There was no time to lose.  
   
-‘Is it all the doors, baby?’ I asked softly, resigned to the fact that I would have to patrol the whole room and open every door that could be opened. Emma sniffed and nodded, holding her duvet up to her nose.
-
+Mrs. Gertrude, awakened by the noise, met me in the hallway, her eyes widened in a mix of confusion and fear. "What happened? What did you find?"  
   
-And so, one by one, I walked the room opening all the doors I could find. Barbie’s house. The little toy car. The plastic tree in which lived Mr Owl behind what I supposed might pass as a door. Finally, I thought I must have gotten them all. I stood back, placing the tiny fire-engine with all its open doors on the table. I surveyed my work, strangely pleased with myself. It had actually been an interesting exercise; who knew how many doors there were in a single room? Perhaps it would have a deep and meaningful philosophical explanation, but if it did I honestly didn’t care. Right now, there was to be beer in a glass and explosions on TV. A reward for good work.
-
+"Gather everyone," I panted, "Meet in the lobby. NOW."  
   
-‘You think we got them all honey?’
-
+People filled the lobby in varying states of sleepiness, confusion, and concern. The building's murmurs, paired with Albert's harrowing revelations, had everyone on edge. Faces looked to me expectantly, some with skepticism, some with dawning realization.  
   
-Emma nodded happily from the bed, and flopped down onto her pillows. She pulled the duvet up to her neck and smiled adorably. I gave her a kiss and watched those pretty eyes close. Within moments, she was asleep.
-
+"I know it's hard to believe," I began, "but Oakhaven is more than just a building. It's a prison - a seal holding back ancient, malevolent beings. We must evacuate and ensure no one ever enters the basement again."  
   
-Carefully, quietly, I made my way out of the room and headed downstairs.
-
+Murmurs spread throughout the crowd. Some nodded, having experienced enough to believe. Others were skeptical, thinking it a prank or delusion.  
   
-It wasn’t until I’d cracked open my first beverage of the evening and settled on the sofa, remote in hand, that it occurred to me that I’d closed Emma’s bedroom door. It was an automatic thing; I always closed the door. Sound carries in our house and I didn’t want to disturb the child’s sleep. Besides, Mel would be home soon and I needed to know we could talk without being overheard.
-
+But as if on cue, a resounding crash echoed from the basement door, followed by an otherworldly growl that silenced any doubters. The building quaked, lights flickering, as shadowy tendrils began seeping through the floor, the very fabric of Oakhaven under attack.  
   
-And yet, the thought of those fingers. Where on earth had that horrible idea come from? I was half-tempted to go upstairs and check on Emma, but that was a ridiculous overreaction surely?
-
+"We need to leave NOW!" I shouted. Panic set in, residents scrambling for the exits.  
   
-Taking a slurp of the beer, I placed the glass on the coffee table and clicked the TV on with the remote. The picture swam into life. I started hunting through the old blu-rays we still haven't gotten rid of, as a news report played behind me on the TV.
-
+As we made our way out, a memory flashed in my mind: a tome in Albert's research about symbols of protection. With a piece of chalk — salvaged from the basement — I began drawing one of the symbols on the main entrance, hoping to buy us more time.  
   
-‘…bringing the total number missing to four in just two weeks,’ a female journalist was saying. ‘Police say there is nothing material to connect the incidents, but the ages of the victims and the peculiar timing leads this reporter to conclude there might be more to this than we have yet seen.’
-
+Outside, we watched in horrified awe as Oakhaven's facade distorted, windows shattering and walls warping. The building seemed to be imploding, drawn in by the dark force within.  
   
-I ignored the news, idly picking out something featuring an absurdly muscle-bound man holding a laughably enormous gun. One of Mel's. She doesn't care for the stories but she does love a grim hero. I flipped it over to read the back. Behind me, the news continued. A man’s voice, presumably in the newsroom, was talking to the reporter.
-
+Moments felt like hours, but eventually, the chaos subsided. Oakhaven stood, though forever changed — its windows dark, its structure twisted, an eternal testament to the battle waged within.  
   
-‘Do we know anything about the kidnappers yet Maya, have there been any demands?’
-
+Word spread about the horrors of Oakhaven, and it was soon cordoned off. Authorities dismissed the event as a minor earthquake, but we knew better. We formed a pact, each resident vowing to guard the secret, ensuring no one would ever attempt to uncover the darkness sealed within.  
   
-‘Tom, all we know is that the girls were taken from their beds in the middle of the night, and that entry doesn’t seem to have been forced. There were no smashed windows, no broken doors –’
-
+Life moved on, but memories lingered. Every time I'd pass the now-abandoned Oakhaven, a cold shiver would run down my spine, remembering the night we faced the unfathomable.  
   
-At the word ‘doors’, I froze.
-
-  
-‘– and nothing to explain the fact that these children have simply vanished. If there is a connection, and if there are kidnappers out there, then so far they have made no effort to contact the authorities with any ransom demands. I spoke with Mrs Traves earlier today, whose daughter Mildred was gone from her bed this morning.’
-
-  
-I watched with dawning horror as the image switched to a distraught looking woman in her early thirties, sobbing and shaking as she explained how her daughter had disappeared.
-
-  
-‘She was just gone!’ the woman wailed, ‘There was no sign of her. I thought maybe she’d gotten out of the house, but then I saw her dolly in the wardrobe. She doesn’t go anywhere without her dolly –’ the woman collapsed into hysterical tears as ice closed over my heart.
-
-  
-In the wardrobe. The dolly was in the *wardrobe*.
-
-  
-Reason warred with panic as I half rose to my feet, then sat back again, staring in disbelief at the TV. Emma had been talking about nightmares, that’s all. A stupid, childish fantasy created from half understood sights and sounds from the world around her. These kids on the news…that was something else. Something real. And yet…girls. Taken from their beds. 
-
-  
-And nothing left of that child on the news except her dolly, found where it shouldn’t have been. Where the girl would not have left it. Where long, shadowy fingers had dragged her from her bed…
-
-  
-I launched to my feet and lurched in the direction of the door, knocking over the glass in my sudden instinctive terror. The TV remote flew from my hand and cracked against the wall; I barely noticed it as I pounded up the stairs towards the closed door of Emma’s room.
-
-  
-I managed to catch myself before I started shouting, hesitating there on the other side of the door. My fingers lightly brushed the handle, as if with a mind of their own.
-
-&#x200B;
-
-I told myself I was being stupid. Told myself to write this before I did anything else. A way to get my thoughts straight. But it hasn't helped.
-
-  
-I'm going back up there. As for you, if you have kids, turn on the [news.](http://sdjackson.blogspot.com/2022/04/my-stuff-publications-and-stories.html)
-
-&#x200B;
-
-&#x200B;
-
-&#x200B;
-
-  
-   
+While most of us relocated and tried to forget, one thing remained clear: some doors, no matter how enticing the mysteries behind them, are meant to remain closed.

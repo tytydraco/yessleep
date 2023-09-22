@@ -464,7 +464,7 @@ Mom didn’t turn around. 
 
 **Who?**
 
-Ben jumped into a seat opposite the new guy and immediately leaned over, poking the guy in the chest. “You abandoned me last night,” he said. I searched for questioning in his eyes, but he was was smiling, drinking in this boy like he had always been here. “What happened to staying up all night and speed-running classic Sonic?”
+Ben jumped into a seat opposite the new guy and immediately leaned over, poking the guy in the chest. “You abandoned me last night,” he said. I searched for questioning in his eyes, but he was smiling, drinking in this boy like he had always been here. “What happened to staying up all night and speed-running classic Sonic?”
 
 The guy didn’t look up from his cereal. “I fell asleep.”
 
