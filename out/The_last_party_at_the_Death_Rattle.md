@@ -24,7 +24,7 @@ It was a strange thing to behold. There were groups at the end of the room, lyin
 
 Sam and Rachel laughed with each other when they saw it. They wanted to go to the back of the room. I tried to hide my irritation since I was wearing dark clothes and didn’t want to get them dirty, but I didn’t want to bum anyone out so I went along with it. We got our drinks and crawled to the back of the room where we proceeded to… well, lay there and chat and drink. The music was vibrating the floor, but it’s not like we could dance or anything.
 
-We hung there for a while until a guy came up and made small talk. He was a big, bald dude dressed up like the genie from Aladin. He was asking us if we were having a good time and everything, so I figured he worked there. We humored him a bit and chatted somewhat awkwardly.
+We hung there for a while until a guy came up and made small talk. He was a big, bald dude dressed up like the genie from Aladdin. He was asking us if we were having a good time and everything, so I figured he worked there. We humored him a bit and chatted somewhat awkwardly.
 
 In a lull in the conversation, he said out of nowhere:
 
@@ -34,7 +34,7 @@ We all looked at each other and one of us said, “No. Why?”
 
 “Oh, man,” he replied. “That’s where the real party’s at. They’ve got a blacklight set up and everything.”
 
-Me and my friends looked at each other with short of a shrugging “Sure, why not?” expression. I thought it seemed kinda weird considering the closed door, but Rachel said something like:
+Me and my friends looked at each other with sort of a shrugging “Sure, why not?” expression. I thought it seemed kinda weird considering the closed door, but Rachel said something like:
 
 “Let’s go check it out.”
 
@@ -56,7 +56,7 @@ Just a rusty bathtub bolted to the floor, a single lightbulb hanging above it, a
 
 “I’m not fuckin’ opening it,” I said.
 
-“Yeah,” Theo said. “This is a fuckin’ serial killer dungeon. Let’s get out of here.
+“Yeah,” Theo said. “This is a fuckin’ serial killer dungeon. Let’s get out of here.”
 
 “I’ll open it,” Sam said. “I’m not scared.”
 
@@ -68,7 +68,7 @@ Sam went across the room toward the door. Meanwhile the rest of us were anxiousl
 
 Then Sam tugged on the door, and it ripped open.
 
-None of us agreed on what happened next. We all saw Sam pull open the door, and we felt air rush out, and we all felt a strange energy push us against us like something had been released from the room. The others said they heard someone scream from the inside, but I didn’t hear anything.
+None of us agreed on what happened next. We all saw Sam pull open the door, and we felt air rush out, and we all felt a strange energy push against us like something had been released from the room. The others said they heard someone scream from the inside, but I didn’t hear anything.
 
 As soon as the door flung open, there was a loud bang coming from inside, like something had been propped against the door. Sam slammed the door shut and we all sprinted up the stairs and out of the room.
 
