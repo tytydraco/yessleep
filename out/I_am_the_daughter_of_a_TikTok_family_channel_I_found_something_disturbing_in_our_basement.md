@@ -18,7 +18,7 @@ Mom has been using filters on my face since I was a little kid, and now I can’
 
 “What?” I frowned at my pale face and slightly half-lidded eyes from a sleepless night. In the camera, I looked the same as I always did; light brown hair pulled into a ponytail and minimal makeup. 
 
-I winced at the state of my hair. I forgot to brush it after practice, so it was a mess in my face. Mom usually filmed my siblings and I coming home from school and made it clear we couldn’t look a mess. We had tookk picture perfect for the camera. I made a mental note to fix myself up. I didn’t understand what Robbie was talking about until I found myself gingerly prodding under my right eye before the thought slammed into me, something ice cold crept its way down my spine. I had a bruise, I thought dizzily. 
+I winced at the state of my hair. I forgot to brush it after practice, so it was a mess in my face. Mom usually filmed my siblings and I coming home from school and made it clear we couldn’t look a mess. We had to look picture perfect for the camera. I made a mental note to fix myself up. I didn’t understand what Robbie was talking about until I found myself gingerly prodding under my right eye before the thought slammed into me, something ice cold crept its way down my spine. I had a bruise, I thought dizzily. 
 
 Coming to an abrupt stop on the sidewalk, the sound of traffic flying by collapsed into a buzzing white noise in my head.
 
