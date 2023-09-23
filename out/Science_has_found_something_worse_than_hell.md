@@ -12,7 +12,7 @@ the lab published their papers, people were very confused, some tried debunking 
 
 in search for an answer they frantically tried to mock up an infrared camera, because normal photons and light would dissipate before they could be recorded, infrared signals were the only things that worked.
 
-they recorded the new frequency and found a very grainy image, due to the fluctuation in temperature. they took several pictures and averaged them together, there was always a spot, slightly brighter in the image that was shaped like a person.
+they recorded the new frequency and found a very grainy image, due to the fluctuation in temperature. they took several pictures and averaged them together, there was always a spot, slightly brighter in the image that was shaped like a person, floating in mid air.
 
 some quotes from the researchers:
 
