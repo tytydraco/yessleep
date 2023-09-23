@@ -1,6 +1,6 @@
 [Part 2](https://reddit.com/r/nosleep/s/ZjdaGfpKo5)
 
-*A man enters a meat market, he looks around for a bit, then he grabs two packets of ground meat and then goes to the checkout counter.*
+*A man enters a meat market, he looks around for a bit, then he grabs two packets of ground meat, he goes to the checkout counter with the packets in hand.*
 
 *At the checkout counter he meets the shop owner.*
 
@@ -74,7 +74,7 @@ Man (To himself): Jesus, this is so damn good!
 
 *After about ten seconds, the creature stops vomiting and wipes it's mouth with it's apron.*
 
-*The owner lunges at the vomit and eats it while grunting like a pig, after just a minute he devours all of it. Not even a moment later, the owner's body swells up, he looks like his weight doubled.
+*The owner lunges at the vomit and eats it while grunting like a pig, after just a minute he devours all of it. Not even a moment later, the owner's body swells up, he looks like his weight doubled.*
 
 *The creature takes something from the table, it looks like a bag of some sort, then it throws it right next to the owner.*
 
@@ -98,7 +98,7 @@ Creature: Looks like you already ate it, good!
 
 Creature: Since you're here, there's no need for this one.
 
-*The creature averts his gaze, it looks at the owner and with one quick move, it slices his neck.*
+*The creature averts it's gaze, it looks at the owner and with one quick move, it slices his throat.*
 
 *The owner audibly chokes in his own blood.*
 
