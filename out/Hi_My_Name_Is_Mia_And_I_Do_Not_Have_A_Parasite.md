@@ -1,7 +1,7 @@
 A few days ago, I remember getting a letter in the post. Unfortunately, I don't really remember much else, not until I regained consciousness about an hour ago, and what has happened since, is all I can remember, but even that is starting to slip, so I best get it down quick...
 
 
-"Do you recognise this, Mia?" Asked Detective Walker. "Do you know who wrote this? ...Helloo?... Mia?..." He clicked his fingers infront of my face, but all I could do was stare at him and think about was the constant, intense itching, that was slowly sending me crazy.
+"Do you recognise this, Mia?" Asked Detective Walker. "Do you know who wrote this? ...Helloo?... Mia?..." He clicked his fingers infront of my face, but all I could do was stare at him and think about the constant, intense itching, that was slowly sending me crazy.
 
 
 I could hear the Detective speaking quite clearly, and I could see the letter he was frantically waving infront of me, but the dribble on my chin and the continuous blank stare, said it all. Even if I could reply, I would have no idea what to tell him. The Detective loudly huffed and placed his hands on his hips in pure annoyance, then passed the crumpled up letter over to the doctor.
