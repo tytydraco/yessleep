@@ -16,7 +16,7 @@ I looked away from the trance she had me in, pulling out another cigarette from 
 
 &#x200B;
 
-With a countdown from five in my head, I lunged up and speed-walked to the door before my mind changed or came up with another excuse. 
+With a countdown from five in my head, I lunged up and speed-walked to the door before my mind changed or came up with another excuse.
 
 &#x200B;
 
@@ -62,9 +62,7 @@ When her thin eyebrows shot up in confusion, I snapped out of it, rubbing my eye
 
 &#x200B;
 
- 
-
-“You look like you’re holding up well,” I stuttered. 
+“You look like you’re holding up well,” I stuttered.
 
 &#x200B;
 
@@ -154,7 +152,7 @@ I leaned towards the edge of the table and called out, “Hey waiter! Can you br
 
 &#x200B;
 
-“Oh wow, still? After what? Four years?” I knew the exact amount of years. 
+“Oh wow, still? After what? Four years?” I knew the exact amount of years.
 
 &#x200B;
 
@@ -352,7 +350,7 @@ I thought back to all the times she would look at me from the shadowed corners o
 
 &#x200B;
 
-Looking at Mia through my watery tear-filled vision, she looked just like Luna. 
+Looking at Mia through my watery tear-filled vision, she looked just like Luna.
 
 &#x200B;
 
@@ -382,7 +380,19 @@ I paused by the door, the red exit sign casting a sizzling glow on my face. I sa
 
 &#x200B;
 
-I opened the door, the cold air rushing to get inside. The way the cold slashed at my face with a whistling sound felt deserved. I shut the door behind me, letting the gloomy night consume me. On the metal bench across the street, Luna glared at me. Her legs dangled, swinging impatiently. She was waiting for me.
+I opened the door, the cold air rushing to get inside. The way the cold slashed at my face with a whistling sound felt deserved. I shut the door behind me, letting the gloomy night consume me.
+
+&#x200B;
+
+&#x200B;
+
+The wind carried echoes of child-like giggles. I nearly fainted. My heart sunk to my toes. Those were Luna's giggles. *What was she doing outside?* I thought, *She never leaves home.*
+
+&#x200B;
+
+&#x200B;
+
+As I scanned the empty streets for the source of the sound, movement from across the street caught my eye. Sitting on the metal bench, Luna glared at me. Her legs dangled, swinging impatiently. She was waiting for me.
 
 &#x200B;
 
@@ -394,6 +404,6 @@ Her doll-like eyes glanced at the fogged up window. I followed her gaze. Mia’s
 
 &#x200B;
 
-The daughter I yearned for or the woman who I once loved, it was an easy choice at the time. I crossed the street and pulled out another cigarette to suppress my logical thoughts. Luna giggled and hopped off the bench. She skipped away from me, but I knew where she was heading—to hide in the shadows of my apartment. 
+The daughter I yearned for or the woman who I once loved, it was an easy choice at the time. I crossed the street and pulled out another cigarette to suppress my logical thoughts. Luna giggled and hopped off the bench. She skipped away from me, but I knew where she was heading—to hide in the shadows of my apartment.
 
 &#x200B;
