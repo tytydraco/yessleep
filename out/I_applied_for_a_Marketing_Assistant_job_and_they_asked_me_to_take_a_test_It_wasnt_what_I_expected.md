@@ -362,4 +362,4 @@ Hrm. Well. *At least they liked my resume, I guess.*
 
 Anywho… back to the grind. These bills aren’t going to pay for themselves, unfortunately!
 
-If anyone reading has any job leads I should look into, let a girl know. I’m motivated, I’m a hard worker, and I suppose I can now say that [I work pretty well under pressure.](https://www.reddit.com/user/WorldAwayTweedy)
+If anyone reading has any job leads I should look into, let a girl know. I’m motivated, I’m a hard worker, and I suppose I can now say that I work pretty well under pressure.
