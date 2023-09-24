@@ -70,6 +70,6 @@ If you do end up reading this Devin I want you to do something for me please. Th
 
 *p.p.s. Once you post your diary and this letter online, you can rest Devin. You shouldn't have much time left... just close your eyes, you won't feel a thing.*
 
-***Love you Always,***
+***Love you always,***
 
 **'Big Sister'**
