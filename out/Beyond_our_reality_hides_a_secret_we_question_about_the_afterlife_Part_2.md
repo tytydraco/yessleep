@@ -2,7 +2,7 @@ I pushed the door open to see dad still laying on his bed, looking outside of th
 
 "Judith, my girl, where have you've been? It looks like you've went out."
 
-"Oh, yeah I was just walking around the hospital." I replied, protecting him from the truth of the event. I know many others lie to others to protect them or just to get away with something just for themselves. But there are lies that tell people that they don't want to ruin such a moment like this. 
+"Oh, yeah I was just walking around the hospital." I replied, protecting him from the truth of the event. I know many others lie to others to protect them or just to get away with something just for themselves. But there are lies that tell people that they don't want to ruin such a moment like this.
 
 The sun rises very smoothly behind the clouds. It was beautiful, reminds me of the time when I was just a young kid. When mom is still here and we would eat pancakes in the middle of sunrise. Birds flew upwards in midair. The lovely grass flows with the wind. "Isn't it beautiful. Watching the sunrise in the early morning." Said my dad who's hand lays on the bed's fences.
 
@@ -248,7 +248,7 @@ When I turn around, she was there in front of me that I jumped in fright with go
 
 She laughed like a witch. Could she be a witch in disguise? After what I've been through I think I might be right. That which grew chills all over my skin. "Don't be shy. I understand not everyone believes such spiritual things happen. If I was you, I'm certain I'll tell a disguised story," I stared at her, dumbfounded.
 
-"I have something for you to do that I can pay a high salary for your father's cancer treatment." I begin to concern deeply about this old lady. Her voice is hypnotizing mind that I couldn't leave without a genuine kind goodbye. But she's trapping me here, preventing me from leaving. The offer she is giving me is tempting; that I can still continue to give my dad more time to live. "Really? Then, what kind of job is it?"
+"I have something for you to do that I can pay a high salary for your father's cancer treatment." I begin to concern deeply about this old lady. Her voice is hypnotizing my mind that I couldn't leave without a genuine kind goodbye. But she's trapping me here, preventing me from leaving. The offer she is giving me is tempting; that I can still continue to give my dad more time to live. "Really? Then, what kind of job is it?"
 
 She made a short wicked smile as she begins to tell me. "This is a job fit for you and your friend. Your job will be to exterminate the source that's causing problems to the society: towns, villages, countries, cities, and natural environments.
 
