@@ -1015,3 +1015,9 @@ I responded with a nod, then left. I have to say the food was phenomenal and the
 &#x200B;
 
 This is [Zane,](https://www.reddit.com/r/StoriesFromRose/) logging [out.](https://www.threads.net/@rose_black2222)
+
+&#x200B;
+
+[https://www.reddit.com/r/nosleep/comments/15zz8ql/the\_cursed\_contest\_tapes\_part\_5/](https://www.reddit.com/r/nosleep/comments/15zz8ql/the_cursed_contest_tapes_part_5/) (Why am I the only one who understands how dangerous it is?"
+
+&#x200B;
