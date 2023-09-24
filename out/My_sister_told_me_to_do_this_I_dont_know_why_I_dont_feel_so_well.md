@@ -48,7 +48,7 @@ This morning when I was walking into the kitchen I hurt my leg. It just sort of 
 
 I remember when I was really little I found a frog on its belly. It wasn't moving and it's leg was missing. I asked Dad what was wrong with it. He said nothing, it was just sleeping. He said the frog was going to be fine, but for some reason I think he was lying. I think what happened to that frog is going to happen to me. I don't think it's gonna be fine.
 
-**September 23**
+**September 24**
 
 My eyeball fell out last night. Thankfully I was able to put it back in. I've just been sitting in the kitchen watching the rain. I think I'm going to look in the cellar. My family always said it was off limits, but it doesn't matter, I don't think they're coming back.
 
