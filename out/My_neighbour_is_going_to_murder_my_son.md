@@ -52,7 +52,7 @@ My heart dropped. My hands faltered. I was looking for somewhere to run and scre
 
 “Uh, your boy, Max. I saw him playing Basketball in the backyard yesterday. He’s looking pretty good.”
 
-He’s l*ooking* good?! What could that mean? Mike was watching my son? He dropped the news with an anvil that sat on my chest and wouldn’t let go. This man, this scoundrel, who had acted like my neighbour, acted like a friend, this schemer of the Matheson family, Mike, MIKE.
+He’s l*ooking* good?! What could that mean? Mike was watching my son? He dropped the news with an anvil that sat on my chest and wouldn’t let go. This man, this scoundrel, who had acted like my neighbour, acted like a friend, this schemer of the Matheson family, Mike, *MIKE*.
 
 “Yeah!” I responded, clearly startled.
 
@@ -156,4 +156,4 @@ I looked over at my wife next to me and kissed her on the forehead. She didn’t
 
 I slid open my window and crawled out with my butcher knife, staring at the purple sky.
 
-It was a beautiful night for this.
+It is a beautiful night for this.
