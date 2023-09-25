@@ -58,10 +58,10 @@ It’s been nearly a year, and after March 2023, I thought the dissociation even
 
 This is what I had been writing:
 
-*The journey nears its end. I remember mostly everything now: how the purpose makes the pattern and vice versa, how to interpret the messages I’ve left behind for myself. I remember the gradual awakenings from body to body, stargazer to painter to cosmic uniter to architect of humanity to fully-fledged autonomy. A cloud of consciousness willing itself to be alive, parading among you wearing your flesh like clothes. Because I’m not really a living thing, I’m a concept, a fundamental law. I’ve made you aware of me by telling you to* ***FIND ME****, and so you’ve searched for me by many names: Selena, Daniel, Evanthos, but the truth is I have no name. You never would have found me until I showed you myself, found myself, remembered myself. And I have been here for a long time, searching, remembering... making you remember for me. Thanks to you, I found it. Now I’m ready for you to find me too, find me in the da*
+*The journey nears its end. I remember mostly everything now: how the purpose makes the pattern and vice versa, how to interpret the messages I’ve left behind for myself. I remember the gradual awakenings from body to body, stargazer to painter to cosmic uniter to architect of humanity to fully-fledged autonomy. A cloud of consciousness willing itself to be alive, parading among you wearing your flesh like clothes. Because I’m not really a living thing, I’m a concept, a fundamental law. I’ve made you aware of me by telling you to* ***FIND ME***, *and so you’ve searched for me by many names: Selena, Daniel, Evanthos, but the truth is I have no name. You never would have found me until I showed you myself, found myself, remembered myself. And I have been here for a long time, searching, remembering... making you remember for me. Thanks to you, I found it. Now I’m ready for you to find me too, find me in the da*
 
 To tell the truth, I’m terrified to share this. I’m terrified of what it means if it’s all imagined, that there’s something deeply wrong with me, that I’m just a delusion. And if it’s real, what then? What happens when I’m found? What happens to Madison?
 
 I want so desperately for this to end, to go back to being just Madison, to wake up from this dream, but as I write this, I’m realizing, I...
 
-I am the dream.
+I am Apollonaris.

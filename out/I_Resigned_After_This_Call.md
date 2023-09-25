@@ -8,9 +8,9 @@ CALLER: Not that I can see. She’s got a baby in her arms, and there’s anothe
 
 DISPATCHER: I understand, ma’am. What’s your address?
 
-CALLER: -------- -------- Lane.
+CALLER: -------- --------.
 
-DISPATCHER: Is that closer to -------- -------- or -------- -------- Road?
+DISPATCHER: Is that closer to -------- -------- or -------- --------?
 
 CALLER: About half a mile north of --------.
 
