@@ -1,0 +1,23 @@
+I've been gone for almost a month this time. It doesn't feel like that but I guess things have been moving fast. If you haven't read the last part, [it's here.](https://www.reddit.com/r/nosleep/comments/167vyz1/i_was_attacked_by_something_a_few_weeks_ago_part_5/) If you haven't read any of this, [here's the beginning.](https://www.reddit.com/r/nosleep/comments/15rcc8e/i_was_attacked_by_something_a_few_weeks_ago/)
+
+Okay, so last time I mentioned gaining a lot of information. I'll talk about that in this part and try to include whatever's happened lately that is relevant to the things I learned. Honestly not much has happened outside of the meetings we have.. even if there are a few less people now.
+
+Let's start with a quick update. The meetings with Tengu happen two times a week now. Usually on Saturdays and Tuesdays. Bake and I have been talking a lot more lately and we've thrown around the idea of trying to escape.. I don't really know if I want to leave though. Yeren and Lilly have been more distant since the time I saved them. Nem will come talk with me when she's not busy. Don woke up. He stands outside of Lil' Crocs room most days now. Hades hasn't been around in weeks.
+
+After I could leave my room again without being dragged out Bake told me a lot of things about this place and what it is. The people here aren't normal, if you couldn't guess that already. We've all been forced to interact with creatures. Some from folklore, some from mythology. I guess after learning that all of their nicknames make more sense now. They call me Fin now.
+
+The thing that attacked me was a combination of every creature they've found put into a perfect body. They call it Infinity. It escaped one day after killing over thirty of the guards in lab coats and two other patients here. Bake's the only one who knows about it because he was there when it got out.
+
+The doors in the room that I was in each relate to the creatures they still have captured. The rest are dead or escaped. Apparently there was a werewolf, his partner acted as the leader of the group and was planning a way out with Bake. He was one of the ones that tried to stop me- I mean, Infinity.. It's getting harder differentiating what I'm feeling from what it's feeling. 
+
+As we learn more about our respective creature we gain more access to their powers. Bake is a Japanese yokai, he's been here a long time and can summon weird looking fish and birds that will fight with him or just hang around. Nem is the Griffin from Greek mythology, she has great eyesight and wisdom and can even fly to a degree. Yeren is a.. Yeren, haha. Basically the chinese bigfoot. Lilly is a succubus. Vet was a vetala. Don is a Ibong Adarna, from Philippines  stories. I'm sure you can guess what Hades is.
+
+In the middle of Bake giving me all of this information guards came in to stop us. We forgot to block the cameras and they could read my lips whenever I'd get confused and ask for more information. They tried to shoot Don. Vet and Hades jumped in the way and both got hurt. I ran up and grabbed Vet and pulled him back while Hades beat down two guards by themselves. By the end of it Hades was in shackles being dragged away smiling at me with an eerily familiar smile the whole time.
+
+Vet laid in my lap staring up at me then gave me a light smile before saying his final words, "You're going to do a lot for this place." The light that was barely there to begin with faded away and he bled out in my lap. 
+
+No one got him from the room for hours. Bake and I finished talking and both made sure to be more careful. We got away with it for now but I have no clue if they're going to do anything about it in the future. Tengu hasn't mentioned anything to me at all yet, but I don't know if he truly knows about it. There are other masked people that sit and watch sometimes but he's the only one that ever actually does the torture.
+
+Bake wants to release all of the creatures and try to escape with them. We're planning how to do that. Obviously it would involve me freeing them since I'm the only person that still has access to the doors. I just need to overpower Tengu. I still don't know when or how I'll be able to do that.
+
+That's about all the updates I have for today, like I said not much has happened. I'm scared of the fact I still can't decide if I want to leave. This place is starting to feel like a second home. Don stopped me in the hallway when I walked past him. He told me I still have a lot of bad left to see. I'll post another update if anything new happens.
