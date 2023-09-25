@@ -1,6 +1,6 @@
 The only thing my ten year old daughter, Isobel, requested for her birthday was a hamster.
 
-Her best friend Miranda had gotten one only a couple months beforehand, and now it was all that she could talk about. Dad, look! She would exclaim, as she shoved her phone into my face. *Look at Miranda's hamster eating lettuce! OH. MY. GOD. How cute is she?!*
+Her best friend Miranda had gotten one only a couple months beforehand, and now it was all that she could talk about. *Dad, look!* She would exclaim, as she shoved her phone into my face. *Look at Miranda's hamster eating lettuce! OH. MY. GOD. How cute is she?!*
 
 It was a picture. Of a hamster. I didn't see the appeal. But it was all she wanted to say, hamster-this, hamster-that. Finally, and after much deliberation with my wife, Ella, we decided to acquiesce to her wishes. After all, a hamster as a first pet wasn't such a bad idea. It would teach her responsibility, and all those other desirable quality traits google would tell me about.
 
