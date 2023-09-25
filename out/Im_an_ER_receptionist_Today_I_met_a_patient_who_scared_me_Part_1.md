@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/16ry6np/im_an_er_receptionist_today_i_met_a_patient_who/)
+
 I love working in healthcare. But I also hate working in healthcare. And that only makes sense if you have worked in healthcare. You know, all these moments of gratitude and being able to help less fortunate humans. But then there’s these super entitled rude patients who think it’s cool to yell at you and verbally abuse you. "How much longer is the wait? Why is this taking so goddamn long? And why did the person whose arm got cut off go in before me who just has a sore throat?" And very often, people will flip tables and kick over chairs in the waiting area out of frustration about the long wait times. Or come into the emergency room for things they could see their GP for. And then yellingly complain about the long wait times. My mom thinks my job is turning me into a grouchy negative person who hates everything. "Melissa, that job is not for you. I don’t know why you took it." Did I tell you that my name is Melissa? Well, now you know. Whatever, I’m going off topic.
 
 Today I started my morning shift in the ER like I do every day. I was in a blah mood. Not really feeling anything. I just got settled at my desk, fixed myself a coffee and started my desk computer when my coworker Jason walked in. "Heyyyyy Melissa! Good to see you. How’s it going?"
@@ -18,15 +20,15 @@ Suddenly he stared at me with a blank, zoned-out stare. Like a killer in a horro
 
 “Melissa. Please. I tell you, you’re just seeing things. You probably just need a break, or a day off. Yeah. Go home, go to sleep, and get some rest. Tomorrow the world will be pretty again.”
 
-“Jason, I am not dumb. I’ve been doing this job for months. I know exactly when something is not right.” 
+“Jason, I am not dumb. I’ve been doing this job for months. I know exactly when something is not right.”
 
-Jason put his hand on my forehead, but I dodged my head away. “Jason, what’s this about? I don’t have a fever!” 
+Jason put his hand on my forehead, but I dodged my head away. “Jason, what’s this about? I don’t have a fever!”
 
 He looked really concerned now and his voice sounded very soft, as opposed to his usual quirky, grinny and energetic behavior. “yeeeh, you should probably rest for the day. Ok? I’ll take over the reception for you. Yeeeah. it's all going to be fiiiiiiiiine."
 
 “And stop talking to me like I’m some three day old newborn on rittalin!”
 
-“Look. I’m trying to help. Has it ever occurred to you that the man knew your name because of your nametag?” 
+“Look. I’m trying to help. Has it ever occurred to you that the man knew your name because of your nametag?”
 
 Of course. I should have thought about that. But then again, that voice of the man sounded so evil and serious. I just CAN’T overlook that. That's not just an average psychosis patient. I've never seen this man in my life, And why would he threaten me like that? And how on earth did he know about Travis? I just hope Travis is alive somewhere. All I know is he jumped out of his office window at work and ran towards the ocean and was never seen or heard from again. Jason continued. "That was an ordinary innocent old man who had a bad reaction to his meds. No more and no less. Now, forget it.He did nothing to you and he will not. " and then he got up and went back into the hospital lobby.
 
