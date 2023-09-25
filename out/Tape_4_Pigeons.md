@@ -83,6 +83,7 @@ Man: That's what you get, bloody bastard!
 *The man looks like he's badly hurt, he doesn't seem to be able to get up and his speech has been reduced to pained moaning.*
 
 *The disturbing creature approaches the crippled man, as the man slowly loses conciousness, the creature looks him in the eyes for one final time.*
+
 *TAPE ENDS.*
 
 *Just like I did last time, I quickly swap the tape with the next one.*
