@@ -17,3 +17,5 @@ At 12:34 am, the intruder passed again in front of the black room, and that time
 This time, I avoided complaining to my employer and submitted what I would call a 'clean' report. To safely work, I plan on equipping myself with a few useful things before going back there. Guys, you know my schedule, I work during two consecutive days before a pause. On each day off, I plan on updating you guys on the events of the two previous nights. But for the rest of this beautiful Saturday, and tomorrow Sunday, let me enjoy the company of my wife and kids, the reason why I have to do this job.
 
 On Monday the 18th and Tuesday the 19th, I will be clocking in at 7 pm. According to the app, in the area where my workplace is situated, there will be loadshedding on Wednesday the 20th from 12:00 am to 01:00 am. I will spend that hour in the black room. Wish me luck.
+
+[Part 2](https://reddit.com/r/nosleep/s/5bGLd0zh7s)
