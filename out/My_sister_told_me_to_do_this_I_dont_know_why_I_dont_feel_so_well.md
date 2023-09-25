@@ -66,9 +66,9 @@ You, my special Devin are a clone! I know that you don't know what that means, w
 
 If you do end up reading this Devin I want you to do something for me please. The others disagree but I no longer care for their opinion. I want the world to know... In spite of our failings we have wrought the fire from Prometheus hands and created something truly marvelous!
 
-*p.s. I've drawn a picture with instructions explaining what I need you to do.*
+*p.s. I've drawn a picture with instructions explaining how to do what I need you to do.*
 
-*p.p.s. Once you post your diary and this letter online, you can rest Devin. You shouldn't have much time left... just close your eyes, you won't feel a thing.*
+*p.p.s. Once you've uploaded your diary and this letter, take a rest Devin. You shouldn't have too much time left anyways...*
 
 ***Love you always,***
 
