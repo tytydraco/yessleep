@@ -139,3 +139,5 @@ Isobel had disappeared as well, just like Ella had. But this time around, it was
 I thought about. . .disposing of him. But I couldn’t bring myself to do it. It wasn’t his fault anyways. He was just a hamster. For reasons I still don’t know, Isobel and Ella did what they did of their own accord. One look at his cute little face told me all I needed to know. *How could a little meat potato even begin do something like this?* I would keep him, I decided.
 
 *Plus, look how hungry he looks.* I thought as I emptied the eighth can of vegetables that I had given him that day into his cage.
+
+[x](https://www.reddit.com/r/ineedabettersub/)
