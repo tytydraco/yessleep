@@ -36,7 +36,7 @@ But still, an address was an address. And in my line of work, you take notes lik
 
 Nothing came to me. It looked like the address was just that, an address. And so I coordinated with my supervisor to lead a team that evening down at Baker St, to see if we could find anything down there. I was secretly hoping that we wouldn't, and that this was just a wild goose chase. As I was terrified of what I would find down there, if that was not the case.
 
-Later that evening, I showed up at 12 Baker Street with three of the finest men I knew. Thompson, a mountain of a man, who I knew firsthand could keep a level-head in any situation. Ramirez, not physically impressive as Thompson, but he had the brains to make up for it, his quick wit was known to save many a cop from danger. And Eddison, an analyst both in the field and out, he somehow finds a way to keep one eye on every detail.
+Later that evening, I showed up at 12 Baker Street with three of the finest men I knew. Thompson, a mountain of a man, who I knew firsthand could keep a level-head in any situation. Ramirez, not as physically impressive as Thompson, but he had the brains to make up for it, his quick wit was known to save many a cop from danger. And Eddison, an analyst both in the field and out, he somehow finds a way to keep one eye on every detail.
 
 I picked the best of the best to deal with the worst of the worst.
 
@@ -66,17 +66,19 @@ As they moved forward, their blood fell to the ground, spilling in all direction
 
 I kept my gaze focused towards the person, towards *him* as closer inspection revealed. "I don't know. Another animal themed abomination, by the looks of it."
 
-I stood my ground and watched, unsure of what to do, as he heaved his neck and the rest of his body towards us. They made eye contact with me and moved their mouth as if to speak, but all that came out were more ghastly groans. I understood what he was trying to say anyways, his mouth shaped like  a circle, and opening and closing, enunciating a one syllable word.
+I stood my ground and watched, unsure of what to do, as he heaved his neck and the rest of his body towards us. He made eye contact with me and moved his mouth as if to speak, but all that came out were more ghastly groans. I understood what he was trying to say anyways, his mouth opening and closing in a circle-like shape, enunciating a one syllable word.
 
 *Help.*
 
 I stepped back, out of fear more than anything else. I knew that this . . . thing couldn't necessarily do anything to harm me, but in the back of my mind alarm bells were going off. *This is unnatural. People shouldn't look like that. You need to leave. Now.*
 
-I could sense my team behind me tensing up and shuffling backwards, probably going through the same thought process as I was. Fear is the primary motivator in a person, after all.
+I could sense my team behind me tensing up and shuffling backwards, probably going through the same thought process as I was. 
 
 The person continued to crawl forward, further extending the trail of blood behind him, his movements more slow and haggard. His life essence seemed to be dripping away from him, and it was obvious I was watching the final moments of someone tortured to the point of death, once again.
 
-A voice began to speak. It emanated from above us, broken and distorted, probably coming from some sort of P.A system. It was calm and somewhat cheerful in the way it spoke, as if everything going on was just a normal occurrence.
+A voice began to speak. 
+
+It emanated from above us, broken and distorted, probably coming from some sort of P.A system. It was calm and somewhat cheerful in the way it spoke, as if everything going on was just a normal occurrence.
 
 *Welcome, all visitors, to the newest attraction to the human zoo. A lovely giraffe, created by slowly tearing apart pieces of his neck, and replacing it with larger, more appropriate pieces of human flesh.*
 
@@ -84,9 +86,9 @@ I winced. That did not sound pretty.
 
 *A slow process, yes. But look at the end result! Isn't he beautiful? Undoubtedly, much better than his original form, wouldn't you agree, Jonathan?*
 
-I looked up, almost instinctively. That was my name. 
+I looked up, almost instinctively. That was my name.
 
-*Anyways, I just wanted to say a big thank you for volunteering a rather fine subject to add to my collection. I just know you'll enjoy the wonderful things I have in store for you!* 
+*Anyways, I just wanted to say a big thank you for volunteering a rather fine subject to add to my collection. I just know you'll enjoy the wonderful things I have in store for you!*
 
 The voice stopped speaking, and I became aware of two things at once.
 
@@ -94,15 +96,15 @@ A sharp, loud noise of metal striking metal, that was over just as it began, cam
 
 And to my left, Thompson's leg seemed to jerk backwards, causing him to keel over and fall on top of himself, blood spurting from an area just above his knee. A bullet wound.
 
-I did the one thing anyone faced with an unseen gunman in a room would do. Duck and dive for cover. Fear is a primary motivator, after all. And I was scared shitless. I found myself behind a stack of boxes, which to my best guess, was blocking the gunner's line of view. I stood still, chest heaving from adrenaline and fear, and assessed the situation. 
+I did the one thing anyone faced with an unseen gunman in a room would do. Duck and dive for cover. Fear is a primary motivator, after all. And I was scared shitless. I found myself behind a stack of boxes, which to my best guess, was blocking the gunner's line of view. I stood still, chest heaving from adrenaline and fear, and assessed the situation.
 
-Thompson was lying on the ground, unmoving. He must of hit his head on the way down. Eddison was directly to my right, having chosen the same pile of boxes to hide behind as me. Ramirez was unaccounted for, and we had a gunman on the loose. It wasn't looking good.
+Thompson was lying on the ground, unmoving. He must have hit his head on the way down. Eddison was directly to my right, having chosen the same pile of boxes to hide behind as me. Ramirez was unaccounted for, and we had a gunman on the loose. It wasn't looking good.
 
 And then the overhead light turned off.
 
 Nothing makes your heart beat faster than the panic of suddenly being thrust into darkness. I heard the patter of footsteps ahead of me, close to where Thompson lay. It could have been Ramirez, looking to help him. Or the gunner, looking to finish the job. I hoped it was Ramirez.
 
-I heard more footsteps. Heavier. Louder. More than one person. I contemplated making a dash for Thompson, grabbing him and getting the hell out of there. But he was too heavy for that. I turned to Eddison, to see if he had any idea what to do, when the light turned back on. I looked at my surroundings. 
+I heard more footsteps. Heavier. Louder. More than one person. I contemplated making a dash for Thompson, grabbing him and getting the hell out of there. But he was too heavy for that. I turned to Eddison, to see if he had any idea what to do, when the light turned back on. I looked at my surroundings.
 
 The giraffe-man was on the floor, unmoving. Dead, or close to it.
 
