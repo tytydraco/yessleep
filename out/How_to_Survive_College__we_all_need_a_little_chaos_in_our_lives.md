@@ -192,6 +192,8 @@ Cassie didn’t say anything.  She turned around in her chair so that her back w
 
 I hope I did the right thing.[\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
 
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/16saedq/how_to_survive_college_thrift_stores_have/)
+
 [Read the current draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 
 [Visit the college's website.](https://alderrayne.com/)
