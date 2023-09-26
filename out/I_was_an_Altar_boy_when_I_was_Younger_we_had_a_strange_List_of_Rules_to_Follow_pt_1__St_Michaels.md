@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/16s72ge/i_was_an_altar_boy_when_i_was_younger_we_had_a/)
+
 When I was just eight years old, my life took a dark and unexpected turn. My mother, a devout Catholic, who had taken me to church regularly, had been committed to the nearby Evergreen Mental Health Center after a harrowing incident. It was a foggy November evening, and I can still vividly recall the chilling screams that pierced through the walls of our home. 
 
 Shadows danced wildly in our living room as I huddled in a corner, my heart pounding. My mother's eyes had been wide with terror, her voice trembling as she muttered something about "the eyes in the darkness." It was a nightmarish episode that defied explanation, leaving her committed for her own safety, or so they said.  
