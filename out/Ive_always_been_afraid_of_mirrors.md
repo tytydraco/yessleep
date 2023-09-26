@@ -4,17 +4,17 @@ I avoided looking at mirrors most of my life. My mom took down all the ones she 
 
 Of course, it affected my social life. If anyone tried playing Bloody Mary at a sleepover, I had to call my mom to come get me. So that didn’t make me popular, but I probably wouldn’t have been anyway. I couldn’t pluck my eyebrows, and going to the salon was a nightmare—sitting in front of those big mirrors made me sweat like a dog, so my mom always cut my hair at home, in the kitchen. People never complimented my haircut, but at least she kept it out of my eyes. 
 
-When I moved out, I spent days hunting at Goodwill, picking out the dullest, least-shiny appliances I could. I worked from home, where I kept my own mirrors covered constantly, and I never opened my blinds. The only time I glimpsed my reflection was at other peoples’ houses, or at restaurants or bars. Clearly, I didn’t get out much, and when I did have to use the bathroom in public places, I took deep breaths, averted my eyes, and counted down the seconds until I could dry my hands and get the fuck out. I could have used more therapy, obviously—but what, am I rich or something? 
+When I moved out, I spent days hunting at Goodwill, picking out the dullest, least-shiny appliances I could. I worked from home, where I kept my own mirrors covered constantly, and I never opened my blinds. The only time I glimpsed my reflection was at other peoples’ houses, or at restaurants. Clearly, I didn’t get out much, and when I did have to use the bathroom in public places, I took deep breaths, averted my eyes, and counted down the seconds until I could dry my hands and get the fuck out. I could have used more therapy, obviously—but what, am I rich or something? 
 
 It’s not so bad to let a phobia run your life. I just don’t make a big deal out of it. Really, it only became a problem when my mom died. Lots of things became a problem then. How was I supposed to live in a world where my mom was dead? Also, who was going to cut my hair now?
 
 My mom didn’t have a lot, and what little she had was inarguably mine, so I hired a probate attorney with the promise of a pittance from her estate. Even though there was no contest, it took forever to wrap things up, and talk to the banks, and work it out with the mortgage people. The house sat empty for a long time, until I was ready to hold her wake. 
 
-The wake was small and casual. My mom was never fussy, so we ordered pizza, sat around talking, and I got gravely wasted off boxed wine. Her old shift supervisor put me to bed that night, tucking the blankets around my shoulders while I sobbed. I woke up with a pillow snugly tucked against my back, keeping me from rolling over, badly nauseated. 
+The wake was small and casual. My mom was never fussy, so we ordered pizza, sat around talking, and I got gravely wasted off boxed wine. Her old shift supervisor put me to bed that night, tucking the blankets around my shoulders while I sobbed. I woke up badly nauseated, with a pillow snugly tucked against my back, keeping me from rolling over. That was nice of them.  
 
 I opened my eyes and saw something shifting in the shadows of the room. 
 
-I remembered how this worked, of course. Like I was a kid again, I held completely, utterly still. I didn’t even breathe, which was a mistake. I held my breath so long that I involuntarily inhaled with a tiny hiss. I waited, and waited, then peeked out through slitted eyes. They had put me to bed in my mom’s old room, probably thinking it was mine now, and her old vanity mirror pointed right at me. I couldn’t make out my reflection, but I’d seen something moving. I could hear it still, a faint rustling, like an animal in the walls. That happened at night, in this house. 
+I remembered how this worked, of course. Like I was a kid again, I held completely, utterly still. I didn’t even breathe, which was a mistake. I held my breath so long that I involuntarily inhaled with a tiny hiss. I waited, and waited, head swimming and stomach churning, then peeked out through slitted eyes. They had put me to bed in my mom’s old room, probably thinking it was mine now, and her old vanity mirror pointed right at me. I couldn’t make out my reflection, but I’d seen something moving. I could hear it still, a faint rustling, like an animal in the walls. That happened at night, in this house. 
 
 I stayed there for a long time, until my rippling gut let me know I couldn’t wait much longer. I threw off the blankets and dashed down the hall, into the bathroom, kneeling over the toilet just in time. The vomit burned through my throat, and my stomach cramped from convulsions, and I was crying as my uncut hair dipped into the toilet water. My mother was dead, and there was no one in the world who loved me now. Who cared if I died? 
 
@@ -48,7 +48,7 @@ Sonja, my mom’s old shift supervisor, had to use the bathroom while she was th
 
 “Just a little,” said Sonja, and sniffled. “She said sometimes she’d have these dreams, and that she wouldn’t see her reflection. They only started when you guys moved here. Sorry, baby, I know this probably didn’t help. I just think you have the right to know. This house don’t feel right, not to me. Please be safe.” 
 
-I thanked her for telling me and stood there for a long time after she left, feeling lost. My mom had never even hinted that she had a thing about mirrors. She made a point of loving them in front of me, always checking her reflection in car windows and shopfronts. It had never occurred to me she was might have been trying to set an example. 
+I thanked her for telling me and stood there for a long time after she left, feeling lost. My mom had never even hinted that she had a thing about mirrors. She made a point of loving them in front of me, always checking her reflection in car windows and shopfronts. It had never occurred to me she might have been trying to set an example. 
 
 Sonja said the nightmares only started after we moved into this house. I’d been so little when we moved here; I wouldn’t have known. I did know there was something wrong with our house. We didn’t talk about it. Sometimes we heard scratching in the walls, or sobbing. Things moved around at night. Sometimes you couldn’t see your reflection in the mirror. 
 
@@ -62,15 +62,17 @@ The mirror shattered, but it didn’t. A few pieces fell to the sink, but I stil
 
 It didn’t make any sense. I couldn’t breathe. I threw the cutting board again, and there was a bigger shattering sound, a crumpling, and I heard the mirror shards falling to the floor on the other side of the wall. 
 
-I peeked though. It was so dark I pulled out my phone flashlight. On the other side of the mirror was a little room. It looked just like my bathroom. It had the same wallpaper, the same towel hanger we hardly used, the same doorstop on the wall. 
+I peeked though. It was dark on the other side. If I let myself think, I'd run screaming. So I pulled out my phone flashlight to get a better look. Peering through, I saw a little room on the other side of the mirror. It looked just like my bathroom. It had the same wallpaper, the same towel hanger we hardly used, the same doorstop on the wall. 
 
-I used shampoo bottles to knock out the rest of the glass shards. I clambered onto the sink and climbed through. There was glass sliding under my slippers, and I felt pricking at the bottoms of my feet, but I ignored it. On the other side of the small room, where I couldn't have seen from the mirror, there was a little nest made out of what looked like old blankets. I recognized some—the Scooby-Doo blanket we thought I’d left in McDonald’s, the quilt my grandma had made for my mom when I was born. They were soiled, blackened and dirty. Next to it, a toilet, and a sink. There was a door that didn’t open, to my relief, no matter how hard I tugged. 
+I used shampoo bottles to knock out the rest of the glass shards. I kept a large shard clutched in my hand carefully, as a weapon, and then I clambered onto the sink and climbed through. There was broken glass sliding under my slippers, and I felt it pricking the bottoms of my feet. I turned around, inspecting. 
+
+On the other side of the small room, where I couldn't have seen from the mirror, there was a little nest made out of what looked like old blankets. I recognized some—the Scooby-Doo blanket we thought I’d left in McDonald’s, the quilt my grandma had made for my mom when I was born. She'd blamed me for losing it. They were soiled, blackened and dirty. They smelled. There was a toilet and a sink, which didn't work. There was a door that didn’t open, to my relief, no matter how hard I tugged. 
 
 I turned to look at the hole I’d climbed through. There was a wire bent above the mirror. I reached up, and realized it was attached to a wooden square, which had been the frame for the mirror before I’d shattered it. It was removable from this side. I took it down. There were still shards embedded at the top of the hole, on the side where my bathroom was. I saw that they were only glass, perfectly see-through. Not a mirror. 
 
 There had never been a mirror in our bathroom. There was a glass window, and the mirror someone hung up against it, facing outwards, and which they took down sometimes, at night. 
 
-I climbed out as fast as I could and called the police. They came several hours later, skeptical at my claim I’d found a hidden room in my bathroom. They went into the hole and came back out, delighted. 
+What if it came back and saw I'd found its spot? I climbed out as fast as I could, splitting open my forearms in the process. I barricaded the bathroom door before calling the police. The dispatcher was skeptical about my story; maybe that's why it took the cops hours to show up. I paced the living room the whole time I waited, picking at my new scabs, flinching at every sound. They showed up, greeted me without interest, went into the batheoom and came back out, delighted. 
 
 “This is a weird one,” one commented to me. “Listen. Whoever’s been livin there is long gone. You said the house been unoccupied? How long?” 
 

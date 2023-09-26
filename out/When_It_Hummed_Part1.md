@@ -44,3 +44,5 @@ I picked up my stuff and prepared to leave. Some disappointing murmurs came from
 It was staring straight at me. 
 
 And the humming began.
+
+[Part.2](https://reddit.com/r/nosleep/s/ubHTrDJQxI)
