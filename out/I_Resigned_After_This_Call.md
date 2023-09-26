@@ -36,7 +36,7 @@ CALLER: They’re playing catch! Holy fucking shit! What the - I mean - got to b
 
 DISPATCHER: Jessica, I need you to take some deep breaths for me. Are you there, ma’am? The women are playing catch with something?
 
-CALLER: WITH THE BABY! THEY'RE PLAYING CATCH WITH THE BABY! And there’s something attached to it, a rope or something… Holy shit! I think that’s the umbilical cord.
+CALLER: WITH THE BABY! THEY'RE PLAYING CATCH WITH THE BABY! And there’s something attached to it, a rope or something… Oh, please no! I think that’s the umbilical cord.
 
 DISPATCHER: They’re throwing the *baby*?
 

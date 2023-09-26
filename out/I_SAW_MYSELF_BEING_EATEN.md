@@ -1,0 +1,13 @@
+Well, I was returning from work as my health was quite upset, and my friend came to pick me up we both went in his car to his home we both played COD and had snacks and we watched a web series suddenly he injected me an unknown thing in neck nerve C3.
+
+&#x200B;
+
+This resulted in me being unconscious and conscious about my surroundings he started to peel off the skin from my stomach with a sharp scalpel, and he started cutting each part of my body wrapped my legs with steel cable, and carried me to a nearby forest (not a dense), and dropped me there. As I rolled downhill some thorns attached to my body. After some time, dogs started eating me, and blood started leaving my body, I could able to feel each part of my body and how it had been eaten by dogs, liver kidney heart eyeballs, two dogs started to play tug of war with my small intestine, all things were eaten up by dogs n scattred around. I could feel everything but I could not do anything. They started to drag my body in each direction possible body after some time my body became two-part red ants gathered to eat I could feel how tiny bites of ants were on my both bodies but still could not do anything dogs started to eat me more intensely. He came again and shooed away the dogs, he took another lower part of my body connected it to my upper part, and stapled and he poured hot wax on it. 
+
+&#x200B;
+
+He sat near me and started eating Pringles, later with the sharp tool he stroked my head again, and my skull split out again he bought another guy's skull attached to my body, and sealed it with wax. He attached a hot rod to my both hands and my legs were tied with steel wire before. He took back me to his home and said "Sorry homie I broke your trust, im extremely sorry hope I can find you in a good life now have a nice journey" he dressed me up and put a hat on me and he drew something on my face later he took a selfie with me I realised that he drew a smile on my mouth part. And packed me in a big bag and carried me to another farmhouse. He took bamboo and attached one to my hands and another vertically to my body. He made me a scarecrow I wasn't alone in that field there were many scarecrows like me he sprayed various perfumes on me put a scary mask on me and said "Buddy this is my favorite mask of all time we both been friends since childhood so I'm honoring you with this mask I really miss you. 
+
+&#x200B;
+
+By the way, no one will be able to identify whose body is this in autopsy coz all organs are damaged and fingerprints are erased usually I used to wear gloves but I wanted to enjoy your body with my hands so I didn't wear them today". My body was completely wrapped in wax.
