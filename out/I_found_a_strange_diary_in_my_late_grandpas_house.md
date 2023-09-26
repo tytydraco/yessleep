@@ -23,7 +23,7 @@ I've explored the entire apartment, but there wasn't any trace of someone..or so
 
 Miraculously, I found a phone! But, when I tried to call 999, nothing happened. Theres no signal. I'm trapped here with no way out.
 
-Diary Entry 5 - May 20th, 1999
+Diary Entry 5 - March 20th, 1999
 It's been 5 whole days ever since this fucking nightmare started. The solitude is so unbearable. Is this hell? I don't know where I am, how I even got here or why my world seems so strange and replaced with this hell of a nightmare. 
 
 I've knocked on Mr.Norman's door countless of times trying to find at least one person, but no answers. I did the same with Mrs.Delilah's door, but theres nothing. I'm truly beginning to believe I'm alone in this hell.
