@@ -1,5 +1,3 @@
-**The last party at the Death Rattle**
-
 Read [Part One](https://www.reddit.com/r/nosleep/comments/16oy5cw/the_last_party_at_the_death_rattle/)
 
 ---
