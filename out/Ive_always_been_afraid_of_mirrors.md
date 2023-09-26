@@ -1,4 +1,4 @@
-I’ve always been afraid of mirrors. Ever since I was little, I had these terrible nightmares. I'd be walking around my house at night, cold and sleepy, and I’d get this urge, and I’d go into the bathroom, peek into the mirror, and there would be nothing there. All I saw was an empty bathroom, with nothing looking back at me. It was like I wasn’t even real. Or worse: there would be a face looking back at me, but it wasn’t my face. 
+I’ve always been afraid of mirrors. Ever since I was little, I've had these terrible nightmares. I'd be walking around my house at night, cold and sleepy, and I’d get this urge, and I’d go into the bathroom, peek into the mirror, and there would be nothing there. All I saw was an empty bathroom, with nothing looking back at me. It was like I wasn’t even real. Or worse: there would be a face looking back at me, but it wasn’t my face. 
 
 I avoided looking at mirrors most of my life. My mom took down all the ones she could, but some were necessary, like the ones in the bathroom, or at the vanity where she put on her makeup. I used to watch her get ready there, sitting half-dressed at the little desk, staring right in the mirror, daring to close her eyes and put stuff on her eyelids. It would creep me the hell out. When I had to wash my hands in the bathroom, I’d do it from the side, so the mirror couldn’t see me. Sometimes I taped paper over the mirrors, but it annoyed her if I did that too much, so I only did when she was out. 
 
@@ -22,7 +22,7 @@ I flushed the toilet and clumsily patted the ends of my hair with toilet paper. 
 
 It wasn’t me. I knew what I looked like from pictures. This face had pale-white skin, roughly-shorn hair, and a cold, hard stare. This face hated me. This face had always hated me. It pressed up against the mirror from the wrong side, its wet rotten teeth clacking against the surface, its white fuzzy tongue slathering all over the mirror. It wanted me. It wanted out. 
 
-I tried to scream, but nothing came out; my throat was still weak from the vomit. I fled the bathroom and bolted down the hall, running so fast I pitched forward
+I tried to scream, but nothing came out; my throat was still weak from the vomit. I fled the bathroom and bolted down the hall, running so fast I pitched forward and
 
 …
 
@@ -30,7 +30,7 @@ One of my mom's friends had stayed over to make sure I made it through the night
 
 “You’re okay, honey,” said my mom’s old coworker, a smoker with stained fingers and sweet eyes. “We’ll help you.” 
 
-“I can’t take your help,” I lied. Though my mom wouldn’t have liked it, I took the envelope of cash they handed me at the end of my stay without further protest. It didn’t cover the whole bill, but a good enough chunk that I stopped thinking about killing myself for practical reasons, and got left with just the emotional ones. 
+“I can’t take your help,” I lied. Though my mom wouldn’t have liked it, I took the envelope of cash she handed me at the end of my stay without further protest. It didn’t cover the whole bill, but a good enough chunk that I stopped thinking about killing myself for practical reasons, and got left with just the emotional ones. 
 
 I stayed out of my mom’s house for as long as I could. I couldn’t bear to go back there, where I’d seen the thing in the mirror. I knew I’d just been drunk, hysterical, having a nightmare, an episode of sleep paralysis, hallucinating from grief (one or maybe all of these things) but the thought of going back made me want to die. But the lease on my apartment was ending, the few friends I had were distancing themselves, and my mom’s friends had done enough for me already. So I went home.
 
@@ -66,7 +66,7 @@ I peeked though. It was so dark I pulled out my phone flashlight. On the other s
 
 I used shampoo bottles to knock out the rest of the glass shards. I clambered onto the sink and climbed through. There was glass sliding under my slippers, and I felt pricking at the bottoms of my feet, but I ignored it. On the other side of the small room, where I couldn't have seen from the mirror, there was a little nest made out of what looked like old blankets. I recognized some—the Scooby-Doo blanket we thought I’d left in McDonald’s, the quilt my grandma had made for my mom when I was born. They were soiled, blackened and dirty. Next to it, a toilet, and a sink. There was a door that didn’t open, to my relief, no matter how hard I tugged. 
 
-I turned to look at the hole I’d climbed through. There was a wire bent above the mirror. I reached up, and realized it was attached to a wooden square, which had been the frame for the mirror before I’d shattered it. It was removable from this side. I took it down. There were still mirror shards embedded at the top of the hole, on the side where my bathroom was. I saw that they were only glass, see-through, not a mirror. 
+I turned to look at the hole I’d climbed through. There was a wire bent above the mirror. I reached up, and realized it was attached to a wooden square, which had been the frame for the mirror before I’d shattered it. It was removable from this side. I took it down. There were still shards embedded at the top of the hole, on the side where my bathroom was. I saw that they were only glass, perfectly see-through. Not a mirror. 
 
 There had never been a mirror in our bathroom. There was a glass window, and the mirror someone hung up against it, facing outwards, and which they took down sometimes, at night. 
 
@@ -76,7 +76,7 @@ I climbed out as fast as I could and called the police. They came several hours 
 
 “Um,” I said. “A few months. Since my mom died.” 
 
-“Sorry to hear that,” he said, perfunctorily. “Listen. Oh man. I’m guessin they’ve been eatin your food, living off you like a vermin or somethin. Can you imagine?” 
+“Sorry to hear that,” he said, perfunctorily. “Listen. Oh man. I’m guessin they’ve been eatin your food, living off you like some kinda critter. Can you imagine?” 
 
 “Um,” I said. 
 
