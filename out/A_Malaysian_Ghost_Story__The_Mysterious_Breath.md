@@ -1,6 +1,6 @@
 With Halloween around the corner, I thought what a better time to share a few personal experiences on here. So here goes...
 
-This incident goes a long way back to the 1990s. I was 16 years old then. Interestingly enough, it occurred in what seemed to be the most unlikely of places... in a church somewhere in Petaling Jaya!
+This incident goes a long way back to the early 90s. I was 16 years old then. Interestingly enough, it occurred in what seemed to be the most unlikely of places... in a church somewhere in Petaling Jaya!
 
 I had attended one of those teen church camps which usually lasted for 3 days or so. There had been a couple of activities arranged leading up to the last day, where we all had different tasks assigned. Me, I was responsible for controlling the light switches, and had a set of cues to follow for the night event.
 
@@ -8,7 +8,7 @@ The catch was this. I was to do it from a small room behind the church which hou
 
 Anyway, to make a long story short, things didn't go as planned. You know how it is with generation clashes. Some holier-than-thou prick in his mid-20s decided to take it upon himself to play with the switches in the main hall as he saw fit without informing me (and people wonder why I have problems with authority figures!). Little did they know there was a very, VERY ANGRY person in that room then. ME! And then it happened.
 
-A heavy kind of breathing. It didn't hit me at first. I had attributed it to the speaker having some breathing problems since his speech was pretty much amplified thanks to the amplifiers around the hall. It continued for awhile, and when it didn't go away, I went to the window and pricked my ear to the nearest speaker. Still, I couldn't figure out the source of the breathing. It was puzzling. Since the speech was pretty loud, and I was getting really bothered by the breathing, I decided to exit the room to the small verandah outside. Halfway to the door, I got creeped out.
+A heavy kind of breathing. It didn't hit me at first. I had attributed it to the speaker on stage having some breathing problems since his speech was pretty much amplified thanks to the amplifiers around the hall. It continued for awhile, and when it didn't go away, I went to the window and pricked my ear to the nearest sound system in the room. Still, I couldn't figure out the source of the breathing. It was puzzling. Since the speech was pretty loud, and I was getting really bothered by the breathing, I decided to exit the room to the small verandah outside. Halfway to the door, I got creeped out.
 
 Anyone knows that anytime you move further away from a noise source, the noise starts to fade out. Not this breathing! It stuck at the same decibel. And what's worse, this time it felt more like as if someone was next to me breathing heavily into my ear, but there was no one visible around. When the realization hit me that something was seriously out of place, I started to shake. I couldn't move. Here was this heavy breathing next to me, and I had a million things bombarding my mind on what to do. By instinct, I mumbled a prayer, and it was only then the heavy breathing stopped. A sense of relief overwhelmed me as I made my final steps to the door and into the verandah, but it was too much. I practically broke down by the stairs.
 

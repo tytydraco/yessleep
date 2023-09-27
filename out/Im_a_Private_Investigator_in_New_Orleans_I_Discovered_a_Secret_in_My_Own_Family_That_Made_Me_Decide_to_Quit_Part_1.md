@@ -178,7 +178,7 @@ The kids jump onto me with squeals of delight, wrapping their little arms around
 
 “We want to be like you and Mợ Reine when we grow up!” Mia says, echoing her brother’s enthusiasm.
 
-I look over at Reine, who smirks, a glint of amusement in her eyes. We had agree a long time ago that the real stories from our line of work aren't suitable for little ears. But it’s Tet, and I don’t want to let the kids down.
+I look over at Reine, who smirks, a glint of amusement in her eyes. We agreed a long time ago that the real stories from our line of work aren't suitable for little ears. But it’s Tet, and I don’t want to let the kids down.
 
 “Alright,” I start. “This is the story of brave Detective Theo and his brilliant younger sister, Detective Mia.”
 
@@ -192,7 +192,7 @@ Theo's eyes are wide, and he whispers to Mia, "That's like New Orleans!" Mia nod
 
 "Like bullies!" Mia interjects with a frown.
 
-"Exactly like bullies, Mia," Reine affirms with a gentle smile. "But our private eyes were very courageous and very smart."
+"Exactly like bullies, Mia," Reine affirms with a gentle smile. "But our private eyes knew that they should always stand up to bullies."
 
 Theo whispers something into Mia's ear, and she giggles, covering her mouth with her hand.
 
