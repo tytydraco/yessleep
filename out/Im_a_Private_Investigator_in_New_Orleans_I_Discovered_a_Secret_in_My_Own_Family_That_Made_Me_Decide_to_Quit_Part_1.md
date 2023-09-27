@@ -216,7 +216,7 @@ Reine nods. "Inside the warehouse, Theo and Mia found all sorts of evidence that
 
 Mia claps her hands in delight. "Yay for Detective Theo and Detective Mia!"
 
-"And do you know what happened next? The shopkeepers were so grateful to the brave detectives that they threw a big party in their honor. They even gave them a special reward." Reine winks at me, her face bright with amusement, the tension from before seeming to melt. 
+"And do you know what happened next? The shopkeepers were so grateful to the brave detectives that they threw a big party in their honor. They even gave them a special reward." Reine winks at me, her face bright with amusement, the tension from before seeming to melt.
 
 I pull out two small red envelopes from my pocket. "Here's your reward, brave detectives," I say, handing one envelope to each child.
 
@@ -310,7 +310,7 @@ The mass seems to shimmer and undulate, as if it's not completely of this dimens
 
 Whispers echo around the room, not from the people present but from the entity itself. It speaks in a multitude of voices, a cacophonous symphony of tones and pitches, the language indescribable and unlike anything of this earth. The voices grow louder, building to a deafening crescendo before everything suddenly goes quiet.
 
-The abrupt silence is stifling. The [creature](https://www.youtube.com/watch?v=VLE0P3hr8ZY&t=8484s), a maelstrom of shadows and whispers, speaks. The voice is a myriad of tones intertwined, reverberating in chilling harmony, like the sound of an ancient, cosmic bell. "The spheres align. Three days. The passageway will unfurl," it intones.
+The abrupt silence is stifling. The [creature](https://www.youtube.com/watch?v=VLE0P3hr8ZY&t=8484s), a maelstrom of shadows and whispers, speaks again, this time in English. The voice is a myriad of tones intertwined, reverberating in chilling harmony, like the sound of an ancient, cosmic bell. "The spheres align. Three days. The passageway will unfurl," it intones.
 
 Then, as if sensing an outside presence, the entity starts to turn slowly, its amorphous form constantly shifting as if trying to find a face within its depths. Just as it seems to lock onto the camera's location, the video ends abruptly, the screen going black.
 
