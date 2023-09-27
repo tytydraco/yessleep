@@ -95,8 +95,7 @@ After a few hesitant seconds, I turned my gaze towards him, and he smiled. "You'
 
 "Nothing can make a prison cell comfortable."
 
-
-"You’re not a prisoner, you’re our guest! Cassiopia just didn’t want you getting lost or going to places you shouldn’t be. This place is pretty big. And none of our rooms have windows because we're underground."
+"This isn't a cell, it's a guest room! Cassiopeia just wanted to keep the door locked because she didn’t want you getting lost or going to places you shouldn’t be. This place is pretty big. And all rooms here lack windows, not just yours, because we're underground."
 
 
 I stared at him, startled. "Underground?"
@@ -505,7 +504,7 @@ My terrified eyes darted around as I clawed helplessly at the air, and I gasped 
 I flinched as gunshots pierced the air, and rocks and dust flew as Jin pivoted and jumped upright. Claude ran over to us, and they shoved me down into a crouch as they stood on either side of me, protecting me as they pulled out their guns. Ducking low, I patted my chest with trembling hands. No blood. Not even a rip. The pain was immense but without this armor I'd have been dead. 
 
 
-Figures in dark gray fatigues, thick black vest, crossbows, and helmets descended upon us, and I cowered into myself as they let out chilling roars. Three zooming, dark blurs knocked them down, and my eyes nearly popped out of their sockets when they slowed down and I realized they were Callan, Hawk, and another of Mika’s goons.
+Figures in dark gray fatigues, thick black vests, crossbows, and helmets descended upon us, and I cowered into myself as they let out chilling roars. Three zooming, dark blurs knocked them down, and my eyes nearly popped out of their sockets when they slowed down and I realized they were Callan, Hawk, and another of Mika’s goons.
 
 
 Bullets ricocheted and arrows flew, and I ducked my head and squeezed my eyes shut, my manic heart thudding in my chest. A second later, I no longer felt Claude to my right, and I gasped as something grabbed my ankles and pulled me away. I clawed at the black dirt as I screamed for help, but that did nothing as I was flipped over to face my attacker.
