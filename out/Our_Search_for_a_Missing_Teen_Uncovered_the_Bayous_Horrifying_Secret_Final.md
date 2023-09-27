@@ -258,4 +258,6 @@ Late at night, when sleep evades me and the faces of the lost wander through my 
 
 In the stillness of the night, as I drift between the waking world and the realm of dreams, a low growl resonates from the depths of my soul—a haunting echo that wasn't there before, a primal urge that calls me to the bayou.
 
+—Reine
+
 [X](https://www.reddit.com/r/PageTurner627Horror/)

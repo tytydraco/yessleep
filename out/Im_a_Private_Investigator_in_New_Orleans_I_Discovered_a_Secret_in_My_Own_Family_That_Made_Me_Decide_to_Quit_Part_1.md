@@ -6,7 +6,7 @@ As a private eye, I welcome a day off like this. No cases, no mysteries. Just a 
 
 The text I received earlier in the day still looms over me. "We need to talk." That's all the message says. No follow-up text, no response to my requests for elaboration. Nothing good ever starts with those four words.
 
-Sitting next to me, Reine nervously checks herself in the sun visor mirror for what seems like the hundredth time. Her brunette locks cascade down her back in soft waves, contrasting with her porcelain skin. Her gray eyes, deep and enigmatic, dart from the mirror to the scenery outside and back again. Her red lips purse in anxiety.
+Sitting next to me, Reine, my wife and crime-solving partner, nervously checks herself in the sun visor mirror for what seems like the hundredth time. Her brunette locks cascade down her back in soft waves, contrasting with her porcelain skin. Her gray eyes, deep and enigmatic, dart from the mirror to the scenery outside and back again. Her red lips purse in anxiety.
 
 After a decade of marriage, you'd think she'd be accustomed to these visits. Yet she looks more terrified now than she did facing [the Beast of the Bayou](https://www.reddit.com/r/nosleep/comments/1581vef/our_search_for_a_missing_teen_uncovered_the/) last summer.
 
@@ -102,13 +102,15 @@ I mumble, "I wanted to give them $20 each, but some people believe in spoiling t
 
 Reine and I lock eyes. For a moment, all the heated words and unspoken issues between us hang in the air. But as Amber looks between us, curiously, we reach an unspoken truce. For her sake, and for the sake of the day, we let it all slide into the background.
 
-Rather than dredging up further drama, Reine and I spend the rest of the ride giving Amber a crash course in Vietnamese language and culture.—
+Rather than dredging up further drama, Reine and I spend the rest of the ride giving Amber a crash course in Vietnamese language and culture.
+
+—
 
 The entrance to my parents' house always brings a rush of nostalgia. The familiar scent of jasmine and the faded walls painted in a pale blue hue transport me back to a simpler time. Reine and I exchange a quick glance, our previous argument momentarily shelved. For the next few hours we are a happy couple. In my line of work, you get really good at pretending.
 
 Stepping out of the car, the sounds of laughter and the faint murmur of voices reach our ears. It seems the entire extended family has already gathered. I straighten my jacket while Reine adjusts her dress, making sure everything is in place.
 
-As we near the entrance, the door swings open to reveal my mother, a small, plump woman with graying hair pulled back in a tight bun. Her face lights up with a bright smile as she sees us. "Ah, Ash! Reine! You came," she exclaims, her Vietnamese accent shades her English.
+As we near the entrance, the door swings open to reveal my mother, a small, plump woman with graying hair pulled back in a tight bun. Her face lights up with a bright smile as she sees us. "Ah, Asher! Reine! You came," she exclaims, her Vietnamese accent shades her English.
 
 My father, a tall, grizzled man with hands roughened from years in the fishing industry on the Gulf, appears behind her, a wide smile on his face. "Chào mừng!" (Welcome!) he booms, pulling me into a bear hug.
 
@@ -226,7 +228,15 @@ I also deliberately left out the grizzly part of the story where we’d abducted
 
 I gently touch her arm. “So, how are you holding up?” I ask in a soft voice, leaning closer so as to keep the conversation private amidst the bustle of the celebration.
 
-She offers a small, tight-lipped smile, a reflexive gesture that doesn’t reach her eyes. “Oh, you know, I’m doing...” Her voice trails off, her gaze drifting to where her kids had disappeared. “I’m managing.”—
+She offers a small, tight-lipped smile, a reflexive gesture that doesn’t reach her eyes. “Oh, you know, I’m doing...” Her voice trails off, her gaze drifting to where her kids had disappeared. “I’m managing.”
+
+"Do you want to talk about it?" I ask gently.
+
+"Not right now," she murmurs, her gaze distant.
+
+“Not right now,” she replies, her voice a whispered sigh.
+
+—
 
 After dinner, with stomachs filled and hearts warmed by food and familial laughter, Reine and I make our way to the kitchen to help clean up. The counters are littered with dirty dishes, remnants of the sumptuous feast we all enjoyed. The sink’s faucet runs in a steady stream as we rinse and stack the dishes for washing, working in comfortable silence as the sounds of the celebration continue in the other rooms.
 

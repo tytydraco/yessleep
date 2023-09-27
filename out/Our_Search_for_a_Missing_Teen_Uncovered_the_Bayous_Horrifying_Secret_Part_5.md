@@ -82,7 +82,11 @@ Taking a moment to calibrate, Ash sent the drone skyward. Its whirring blades we
 
 As it hovered above the Blood Moon Pond, the screen displayed a complex network of waterways leading to a hidden clearing, seemingly obscured from view by deliberately placed vegetation. Central to this clearing was a series ramshackle structures made of wood and moss, half submerged in water, closed off by a fence.
 
-"Look at that," Ash's voice held a note of trepidation as a faint heat signature appeared on the screen. It was huddled and stationary, likely restrained—my gut told me it was Gabby.—Ash wasted no time in formulating a tactical approach. His fingers danced over the drone controls, carefully mapping out the compound's layout and noting potential points of entry and escape routes. He assessed the landscape's topography, identifying vantage points and possible ambush locations.
+"Look at that," Ash's voice held a note of trepidation as a faint heat signature appeared on the screen. It was huddled and stationary, likely restrained—my gut told me it was Gabby.
+
+—
+
+Ash wasted no time in formulating a tactical approach. His fingers danced over the drone controls, carefully mapping out the compound's layout and noting potential points of entry and escape routes. He assessed the landscape's topography, identifying vantage points and possible ambush locations.
 
 With the drone hovering at a safe distance, Ash pointed out the dense clusters of reeds and marshland to the compound's west. This natural barrier would mask our approach, allowing us to get close without detection. He also identified a small clearing to the east, which could serve as an emergency extraction point if things went south.
 
