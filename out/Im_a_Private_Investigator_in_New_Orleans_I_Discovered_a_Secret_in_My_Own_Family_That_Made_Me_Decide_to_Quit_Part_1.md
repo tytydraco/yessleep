@@ -74,7 +74,9 @@ Amber raises an eyebrow but decides not to push further. "So," she begins, tryin
 
 Seeing an opportunity to lighten the mood, I chime in with a smirk, “You know, our previous secretary made the same mistake. Brought a turkey and everything. We never saw her again after that Tet dinner. What was her name? Gail? It’s still our most mysterious [cold](https://www.reddit.com/r/nosleep/comments/14c93t1/im_an_arctic_researcher_we_accidentally_released/) case.”
 
-Amber’s face pales, but before she can react, Reine rolls her eyes and playfully swats at me. "Don't listen to him. He’s just messing with you. Gail moved to California to be closer to her grandkids.”I could see the relief wash over Amber’s face.
+Amber’s face pales, but before she can react, Reine rolls her eyes and playfully swats at me. "Don't listen to him. He’s just messing with you. Gail moved to California to be closer to her grandkids.”
+
+I could see the relief wash over Amber’s face.
 
 Reine smiles at her, "If it puts your mind at ease, I made a traditional Cajun Mardi Gras dish – chicken and sausage gumbo. It's a bit spicy, but I think everyone will love it."
 
@@ -118,7 +120,9 @@ My father, a tall, grizzled man with hands roughened from years in the fishing i
 
 Reine steps forward with a shy smile. "Chúc Mừng Năm Mới, ba má," (Happy New Year, mom and dad,) she says, her accent thick, but her effort brings a broad smile to my mother’s face.
 
-My mom says warmly, "Rất giỏi! Chúc Mừng Năm Mới, cưng!" (Very good! Happy New Year, dear!)Dad comments, "Better every year. Soon, we won't know you're not Vietnamese."
+My mom says warmly, "Rất giỏi! Chúc Mừng Năm Mới, cưng!" (Very good! Happy New Year, dear!)
+
+Dad comments, "Better every year. Soon, we won't know you're not Vietnamese."
 
 My mom’s face tightens, a glare flashed at him for his potentially insensitive remark.
 
@@ -136,7 +140,7 @@ I scan the room. The familiar hum of conversation and the warm amber light embra
 
 On the other side, my younger cousins chatter excitedly in English, their eyes glued to a smartphone as they share the latest online sensation.
 
-My gaze drifts to the walls adorned with family photographs, moments of joy and milestones frozen in time, interspersed with my stern Marine portraits.
+My gaze drifts to the walls adorned with family photographs, moments of joy and milestones frozen in time, interspersed with stern portraits of me as a Marine.
 
 I'm drawn to the corner of the living room where the family altar stands. The soft glow of candles illuminates photographs of ancestors, their faces forever frozen in time. My eyes rest on the  picture of my bà ngoại (grandma) Kim, the woman who helped raise me.
 
@@ -328,7 +332,7 @@ I grit my teeth, clenching my fists. "Why do you still care? After everything?"
 
 Her eyes glisten, and she looks away for a moment before meeting my gaze. "He might have hurt me, but he's still the father of my children. I have to know he's safe. For the kids."
 
-The memories flood back in a tidal wave. The last time I saw fear like this in Kira’s eyes was years ago during her college days. She'd come home with a black eye, attempting to hide it behind oversized sunglasses and hastily applied makeup. I remember the white-hot rage that had boiled within me. We didn’t need words; I knew exactly who had done it. That evening, her then-boyfriend learned the hard way that no one hurt my little sister and got away with it.
+The memories flood back in a tidal wave. The last time I saw anything close to the fear I see in Kira’s eyes right now was years ago during her college days. She'd come home with a black eye, attempting to hide it behind oversized sunglasses and hastily applied makeup. I remember the white-hot rage that had boiled within me. We didn’t need words; I knew exactly who had done it. That evening, her then-boyfriend learned the hard way that no one hurt my little sister and got away with it.
 
 Taking a deep breath, I meet Kira's gaze, the weight of the situation settling in. “Okay,” I relent. “I’ll help. But we do this carefully and intelligently.”
 
@@ -336,7 +340,7 @@ She grips my arm, her touch filled with gratitude and desperation. “Thank you,
 
 “Why not? Is it because she’s not Viet?” I ask, my voice tinged with a hint of irritation. The question instantly sets a spark in Kira’s eyes.
 
-“Don’t you dare ask that!” she retorts, offended. “I love Reine like a sister. It’s not about that. I just... I can’t have anyone know, not even mom and dad. Please, this stays between us.”
+“How dare you ask me that?” she retorts, offended. “I love Reine like a sister. It’s not about that. I just... I can’t have anyone know, not even mom and dad. Please, this stays between us.”
 
 I nod, keeping the storm of thoughts at bay for a moment as I agree to Kira's condition. My heart thuds against my chest, mirroring the pounding rhythm of a war drum. We're interrupted by a sudden rustling and a beam of light illuminating the hedges, turning the leaves a vivid, almost otherworldly green.
 
