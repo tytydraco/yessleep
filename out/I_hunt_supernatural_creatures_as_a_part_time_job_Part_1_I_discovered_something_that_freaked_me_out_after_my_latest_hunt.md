@@ -1,4 +1,4 @@
-I parked my Gray Mazda CX-30 on the grass near the treeline, and loaded a silver bullet clip into my Taurus 45, and multiple silver laced shotgun shells into my sawed off. I opened the trunk of my car, and took out an ornate silver dagger where the blade had the outline of  black a dragon engraved on it, and a saber that had a similar engraving as well. I took out a flashlight, and closed the truck door. I then sheathed my saber and dagger and entered the forest line in the middle of the knight.
+I parked my Gray Mazda CX-30 on the grass near the treeline, and loaded a silver bullet clip into my Taurus 45, and multiple silver laced shotgun shells into my sawed off. I opened the trunk of my car, and took out an ornate silver dagger where the blade had the outline of  black  dragon engraved on it, and a saber that had a similar engraving as well. I took out a flashlight, and closed the truck door. I then sheathed my saber and dagger and entered the forest line in the middle of the knight.
 
 “Should be 5 miles up from here.”
 
@@ -94,7 +94,7 @@ My granddad came from the storage closet, and restocked some of the selves. He t
 
 “Come here and take a seat son.” He said as I then sat on the counter. I pulled out the vampire tooth I had served and I placed it on the table. 
 
-“Good work as always, kid.” He said, a pride filled smile forming on my face.
+“Good work as always, kid.” He said, a pride filled smile forming on his face.
 
 My granddad took the vampire fang and told me that I can expect my payment of 3,000$ next week. He noticed the look on my face.
 

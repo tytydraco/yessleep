@@ -1,0 +1,35 @@
+The following is a chapter from a historical novella that chronicles real world events. It is the result of nearly 4 years of research and hard work. Some of the names have been changed
+
+[Chapter 1: The Farm](https://www.reddit.com/r/nosleep/comments/16sze74/fiddler_on_the_mountain_part_1_1937/)
+
+**Chapter 2: The Station**
+
+Local legends say that Gare got its name from a misunderstanding between the town’s official founder, Noah Meyer and the local Sioux. Before the creation of the settlement fleeing slaves from the United States of America (USA) would cross into Canada several kilometers from modern Gare. This route was part of the Underground Railroad run by a Creole man, Augustine Dubois. Whom many now claim is the real founder of Gare
+
+Dubois had been born into slavery in 1796, New Orleans USA. He was the third of his family to be born into slavery but also the first. For the slave master, Francis Dubois was his father. However this didn’t make Augustine’s life easier, in fact the opposite. For when he was a boy the other children hated him for looking like the man who beat their fathers and took their mothers. When he was older Francis would beat his son mercilessly for resembling him. But Augustine was a resourceful and intelligent boy. He taught himself how to read at great risk. For it was a capital offence for a slave to read
+
+At the age of fifteen in 1811, Augustine Dubois attempted his first escape. Unfortunately he was captured and paid for the failure with his left leg. Later Augustine would write of the experience;
+
+*“The slave catchers found me hiding in the corn. They beat me for several hours before returning me to the Dubois Plantation. Upon arrival I was displayed in wooden stocks for all to see for three days. However my agony did not produce the desired dread in the slaves. So my father had my leg publically removed. Those that attempted to look away where beaten; those that cried where beaten. I screamed until I lost consciousness”* ***Augustine Dubois Memoirs 1871***
+
+Between 1811 and 1813 Augustine was imprisoned at Dubois Plantation. However the experience only flamed the fires of freedom that burned within him. Upon his release into slavery he began to plot a revolt. During his imprisonment he had gained the sympathy of many of his fellow slaves. When they looked at him they no longer saw their oppressor but one of their own. Over the following three years Augustine would cultivate a small group of loyal followers and on the night of the 11th of March 1817 they would attack
+
+*“We waited until it was midnight. We killed the overseers in their beds. Some ask me if I regret what happened to my family; to them I retort, what family? Fancies Dubois? Or the countless brothers and sisters that died in bondage? I may have started the revolt but it was the Dubois’* *cruelty and indifference that fuelled it. That tightened the rope round their necks and left them to bake in the sun”* ***Augustine Dubois  Memoirs 1871***
+
+In the aftermath of the revolt Augustine found himself the leader of eleven armed free men protecting twenty six women and children. They were surrounded by thousands of enemies and 1,600.2 miles from the Canadian border. But Augustine Dubois was cunning. He knew that if they attempted to run inland they would be dead within a fortnight. But in the water they had a chance. He ordered the free people to gather all the valuables they could find and they marched towards the sea
+
+Augustine dressed himself in his father’s best clothes and jewelry. Not out of vanity or pride, but because for the first time in his life his complexion would be an advantage. He would play the part of a high yellow plantation owner moving to Santo Domingo. His plan being the group would use his family wealth to buy passage to the island but mutiny and sail to the free nation of Haiti
+
+The journey to the port was uneventful. The group moved at night and avoided populated areas as much as possible. In truth it was by the grace of God that they safety traveled to the port; for unbeknownst to them rivalries from across the world would assist their escape. On March 17th 1817 a dispute erupted between the crews of the Hamilton; a British ship and a French vessel called the Pacifique. The Hamilton had flew the Union Jack and, below it, a small vane which bore some resemblance to the tri-color flag as an insult. The argument would escalate into the New Orleans riots of 18th March 1817
+
+It was during this chaos that Augustine Dubois and the freemen arrived. On any other day they would have been immediately discovered and arrested. But in the commotion they found a British ship, the Stallion that was attempting to flee the violence. The captain Paul Davies recounts the events in his ship log:
+
+*“The mob was searching for any British vessel to scuttle. We had decided to depart as soon as possible out of fear. When a Mr Dubois arrived at the dock. He was accompanied by a retinue of slaves; including women and children. He claimed that he needed passage to Santo Domingo. I was tempted to refuse him but he offered to pay twice the price. We loaded him and his property as fast as possible and departed New Orleans”* ***Captain Paul Davies, the Stallion 18th of March 1817***
+
+The journey to Santo Domingo was peaceful but as the Stallion approached the Island, Augustine and his men attacked. The freemen easily took the ship and with the assistance of a hostage Paul Davies sailed for Port-au-Prince. There Augustine was welcomed as a hero and stayed for several years. Meeting and marrying his wife, Analisa Gomez. Taking her last name and becoming the Augustine Gomez but sometimes he would still use the name Dubois. In 1831 Augustine took what wealth he had made as a trader in Haiti and his stolen ship up North to Port de Quebec. He explains his decision in his memoirs:
+
+“*I was free, my children and their children would be free. But what of my brothers and sisters that suffered in the land of my birth. I could not in good conscious live knowing I could be of some assistance to their plight. I had been in contact with a colony, Wilberforce established by free men in Ontario. They offered to assist me in establishing my own in the west focused on assisting our siblings gain freedom”* ***Augustine Dubois Memoirs 1871***
+
+Under an agreement with both the European and Indigenous leaders Augustine created the colony of Gare, French for train station. As in his vision it would be the last stop on the Underground Railroad. In 1874 a group of Mennonites migrated to the region from Germany lead by Noah Meyer. When the Mennonites arrived they knew little of the Sioux or Augustine Dubois. So when Meyer asked the Sioux what was the name of the region was they assumed he was looking for the colony of Gare. Meyer hearing their response assumed this was the traditional name of the area and so the town of Gare was built a few kilometers from the colony of Gare
+
+&#x200B;
