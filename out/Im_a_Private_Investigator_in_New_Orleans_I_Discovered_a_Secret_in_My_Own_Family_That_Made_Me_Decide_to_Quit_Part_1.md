@@ -70,7 +70,9 @@ Reine and I trip over each [other](https://www.youtube.com/watch?v=MGd1F6Ay8ho) 
 
 "Absolutely," Reine adds, her tone just a tad too sweet.
 
-Amber raises an eyebrow but decides not to push further. "So," she begins, trying to change the topic, "Tet is like Vietnamese Thanksgiving, right? Because I brought a casserole.”Reine laughs softly, "Not exactly, chère. It’s more like New Year’s. It's a time for family and to celebrate fresh starts."
+Amber raises an eyebrow but decides not to push further. "So," she begins, trying to change the topic, "Tet is like Vietnamese Thanksgiving, right? Because I brought a casserole."
+
+Reine laughs softly, "Not exactly, chère. It’s more like New Year’s. It's a time for family and to celebrate fresh starts."
 
 Seeing an opportunity to lighten the mood, I chime in with a smirk, “You know, our previous secretary made the same mistake. Brought a turkey and everything. We never saw her again after that Tet dinner. What was her name? Gail? It’s still our most mysterious [cold](https://www.reddit.com/r/nosleep/comments/14c93t1/im_an_arctic_researcher_we_accidentally_released/) case.”
 
@@ -214,7 +216,7 @@ Reine nods. "Inside the warehouse, Theo and Mia found all sorts of evidence that
 
 Mia claps her hands in delight. "Yay for Detective Theo and Detective Mia!"
 
-Reine winks at me, her face bright with amusement, the tension from before seeming to melt. "And do you know what happened next? The shopkeepers were so grateful to the brave detectives that they threw a big party in their honor. They even gave them a special reward."
+"And do you know what happened next? The shopkeepers were so grateful to the brave detectives that they threw a big party in their honor. They even gave them a special reward." Reine winks at me, her face bright with amusement, the tension from before seeming to melt. 
 
 I pull out two small red envelopes from my pocket. "Here's your reward, brave detectives," I say, handing one envelope to each child.
 
@@ -241,8 +243,6 @@ I gently touch her arm. “So, how are you holding up?” I ask in a soft voice,
 She offers a small, tight-lipped smile, a reflexive gesture that doesn’t reach her eyes. “Oh, you know, I’m doing...” Her voice trails off, her gaze drifting to where her kids had disappeared. “I’m managing.”
 
 "Do you want to talk about it?" I ask gently.
-
-"Not right now," she murmurs, her gaze distant.
 
 “Not right now,” she replies, her voice a whispered sigh.
 
@@ -354,7 +354,7 @@ Reine eyes us skeptically but shakes her head with a playful smile. "Well, I jus
 
 I take the mic from Reine, my hand brushing against hers. Her skin is warm and comforting, a stark contrast to the [chill](https://www.youtube.com/watch?v=baUKK0y48QE&t=2990s) that has settled deep within my bones. “You set the bar so high,” I tease with a forced laugh, trying to make light of the situation. “I don’t know how I can compete with the Cajun Queen.”
 
-Reine laughs. “Oh, just wait till you see my moonwalk,” she teases, her eyes twinkling.
+Reine laughs. “Oh, just wait till you see me moonwalk,” she teases, her eyes twinkling.
 
 As we walk back towards the laughter and light of the living room, Kira's gaze finds mine, a silent plea reflected in her eyes, reinforcing the pact of secrecy between us. I give her a subtle nod, a promise shrouded in dread and uncertainty.
 
