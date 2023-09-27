@@ -130,7 +130,7 @@ Mom reaches up to embrace her warmly. She then pulls back to inspect Reine, eyes
 
 “Oh, this is Amber, by the way, our secretary at the agency,” I introduce Amber, breaking back into English. She waves shyly, a small “Chào” (Hello) escaping her lips.
 
-While Amber distracts my parents, I slip into the living room. An aromatic blend of my mother's cooking and the incense from the altar dedicated to deceased relatives greets us, intertwining the essences of life and death in a poignant embrace.
+While Amber distracts my parents, I slip into the living room.
 
 I scan the room. The familiar hum of conversation and the warm amber light embrace me. Older relatives sit on one side, their conversations a flowing river of lyrical Vietnamese. Their laughter, accompanying a game of Tien Len, merges with the gentle clink of teacups.
 
@@ -138,7 +138,13 @@ On the other side, my younger cousins chatter excitedly in English, their eyes g
 
 My gaze drifts to the walls adorned with family photographs, moments of joy and milestones frozen in time, interspersed with my stern Marine portraits.
 
-I catch sight of my younger sister, Kira, in the adjoining room. She’s chasing after her two young children, a look of frantic merriment on her face. But amidst the giggles and playful shrieks of the kids, I notice the strain in her eyes, a shadow of sadness and uncertainty that she’s doing her best to hide.
+I'm drawn to the corner of the living room where the family altar stands. The soft glow of candles illuminates photographs of ancestors, their faces forever frozen in time. My eyes rest on the  picture of my bà ngoại (grandma) Kim, the woman who helped raise me.
+
+I take a joss stick, igniting it from the altar's candle. The fragrant smoke slowly curls upwards, filling the air with a comforting, woody aroma. It mingles seamlessly with the savory scent of my mom's cooking wafting from the kitchen.
+
+Bowing slightly, I say a silent prayer, thanking bà ngoại for her love and guidance.
+
+Continuing my search, I catch sight of my younger sister, Kira, in the adjoining room. She’s chasing after her two young children, a look of frantic merriment on her face. But amidst the giggles and playful shrieks of the kids, I notice the strain in her eyes, a shadow of sadness and uncertainty that she’s doing her best to hide.
 
 The absence of Xuân, her husband, hangs in the air like a heavy, unspoken word. It’s her first Tết since their separation, and the pain is still fresh, a wound yet to heal.
 
