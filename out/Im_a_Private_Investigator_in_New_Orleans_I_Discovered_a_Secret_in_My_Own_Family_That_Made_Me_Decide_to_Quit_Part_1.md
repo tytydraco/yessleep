@@ -104,7 +104,7 @@ Amber catches on to the tension, and with a puzzled expression, she looks from m
 
 I mumble, "I wanted to give them $20 each, but some people believe in spoiling them."
 
-Reine and I lock eyes. For a moment, all the heated words and unspoken issues between us hang in the air. But as Amber looks between us, curiously, we reach an unspoken truce. For her sake, and for the sake of the day, we let it all slide into the background.
+Reine and I lock eyes. For a moment, all the heated words and unspoken issues between us hang in the air. But as Amber looks between us, curiously, we reach an silent truce. For her sake, and for the sake of the day, we let it all slide into the background.
 
 Rather than dredging up further drama, Reine and I spend the rest of the ride giving Amber a crash course in Vietnamese language and culture.
 
@@ -178,7 +178,7 @@ The kids jump onto me with squeals of delight, wrapping their little arms around
 
 “We want to be like you and Mợ Reine when we grow up!” Mia says, echoing her brother’s enthusiasm.
 
-I look over at Reine, who smirks, a glint of amusement in her eyes. We share an unspoken understanding; the real stories of our line of work aren't suitable for little ears. But it’s Tet, and I don’t want to let the kids down.
+I look over at Reine, who smirks, a glint of amusement in her eyes. We had agree a long time ago that the real stories from our line of work aren't suitable for little ears. But it’s Tet, and I don’t want to let the kids down.
 
 “Alright,” I start. “This is the story of brave Detective Theo and his brilliant younger sister, Detective Mia.”
 
