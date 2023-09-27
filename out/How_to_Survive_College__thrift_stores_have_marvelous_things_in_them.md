@@ -182,6 +182,8 @@ Plan C it was.  My least favorite plan, because it was the last one on our list.
 
 I turned and ran.  Into the gray world, to seek the highest hill. [\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
 
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/16t8klz/how_to_survive_college_the_rains_wrath/)
+
 [Read the current draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/t34mbv/how_to_survive_college/)
 
 [Visit the college's website.](https://alderrayne.com/)
