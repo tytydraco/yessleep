@@ -130,7 +130,7 @@ My mom’s face tightens, a glare flashed at him for his potentially insensitive
 
 Reine lets out a light, good-natured laugh, brushing off the comment with grace. "One day, perhaps. But until then, I'll keep practicing."
 
-Mom reaches up to embrace her warmly. She then pulls back to inspect Reine, eyes full of warmth.
+Mom reaches up to embrace Reine warmly. She then pulls back to inspect her, eyes full of warmth.
 
 “You look beautiful, con,” she says, using the Vietnamese word for daughter, as though to reassure her of her place in the family.
 
@@ -236,7 +236,7 @@ I offer a modest shrug, feeling the warmth of her words. “They're great kids, 
 
 If she only knew. The tale I'd spun for the kids was a sanitized version of the gritty reality. There really was a protection racket. The Viper was no fictional bully, but Vincent "The Viper" Marcello, a feared Mafia capo. Reine and I had infiltrated his compound, swiping a hard drive teeming with evidence of his dirty dealings, including evidence linking him to least three murders.
 
-I also deliberately left out the grizzly part of the story where we’d abducted one of Marcello's thugs and pistol whipped him with the gun he used to threaten the shopkeepers until he gave away his boss’s hideout.
+I also deliberately left out the grizzly part of the story where we abducted one of Marcello's thugs and pistol whipped him with the gun he'd used to threaten the shopkeepers until he gave away his boss’s hideout.
 
 I gently touch her arm. “So, how are you holding up?” I ask in a soft voice, leaning closer so as to keep the conversation private amidst the bustle of the celebration.
 
