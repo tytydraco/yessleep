@@ -8,7 +8,7 @@ That was enough for me. My wife was home with Oliver, who was scheduled to wake 
 
 That’s when I saw the scratches in the ground.
 
-They were deep and long, like someone had taken a scythe to Bob’s yard. Periodic slashes almost looked like footsteps as they led to his fence.
+They were deep and long, like someone had taken a scythe to Fred's yard. Periodic slashes almost looked like footsteps as they led to his fence.
 
 The same fence that separated his yard from mine.
 
