@@ -1,0 +1,14 @@
+As a kid, I grew up hearing multiple versions of the same warning: "stay off the back roads at dusk.", and I had a hard time understanding why. Oh sure, there were stories of bad, bad things happening on those roads, but I always figured it was the old folks, trying to mess with us kids. I didn't understand it, but I obeyed regardless. 
+
+From 8 to 10 years old, I'd roam all over the woods and old streets in my area, during the day. my siblings and I were always told to be home before dark, and if we'd be late, NEVER to go into the backroads, not even to shortcut. As soon as I hit 14 and up, I started staying out late, hanging out with friends and the like. Up until one night, I was leaving a friend's house to come home, and it was around 9:30, 10PM. I didn't realize how late the hour had gotten.
+
+Naturally, I began to head home, rapidly once I became aware of how deserted the street was in either direction, how virtually every single window and home was dark. it should be noted, that most of the backroads here are lined with homes that've been abandoned since the 90's, and some of these roads have not a single functioning streetlamp. (In this case, the street I was on had 2 functional lamps. one at the start, and one and the end of the street. the one that was in the middle, had long since burnt out.)  
+
+Almost halfway down the street, I had the distinct urge to look behind me. when I did, I almost screamed from surprise and not a small amount of fear. there, under the street lamp at the far end of the road, was.. someone. it was too far to tell male or female. they were swaying back and forth, listlessly. Arms by their side, head down, hair covering any features I might have seen otherwise. the kind of posture you'd see on someone slouched while standing. 
+
+It wasn't so much their posture, nor the swaying that bothered me, but how they seemed to notice when I'd spotted them. they stopped swaying. just.. stopped. like a puppet that suddenly lost its strings. To this day, I don't know if it was a trick of the light, or if I really saw it, but I briefly saw what looked like a glint of silver. just barely. but that was all it took to make me speed up again. more so when I looked back and they were gone. 
+
+I bolted then, as far and fast as I could from that road. when I got home I was happy to survive. happy to escape what I felt was just a bad place. later that night, I woke to the sounds of screams in the distance, coming from the backroads behind my house. they didn't last long. the next morning, I heard rumors of what had been found on those roads. needless to say... I never went near them, ever again. if it was sundown before I'd get home, I'd simply stay the night with a friend.
+
+Even as I share this, I can't help but shudder, as I imagine what might've happened had I not decided to leave the area when I did...  
+  
