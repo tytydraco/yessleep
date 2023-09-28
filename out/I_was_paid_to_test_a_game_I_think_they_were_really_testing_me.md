@@ -48,23 +48,23 @@ The group excitedly poured into the gaming lounge when the doors opened. A few w
 
 Zane walked in with a smile "Hey everybody! Easy now, there will be time enough for competition later..." gesturing to those who had been arguing.
 
-'Today each of you will be testing the core feature of the game... generative combat!" a murmur formed around the room evidently wondering what he meant by *generative* combat. He picked up on it and explained that today we would be testing the games single player mode. He said the game was able to generate new levels every time we played. To be honest most of the group was skeptical; we had seen other games with procedural generated quests.
+'Today each of you will be testing the core feature of the game... generative combat!" a murmur formed around the room evidently wondering what he meant by *generative* combat. He picked up on it and explained that today we would be testing the games single player mode. He said the game was able to generate new levels every time we played. To be honest most of the group was skeptical; we had seen other games with procedurally generated quests.
 
 After Zane was done his spiel I clicked on the single player icon. The game spared no time in getting to the point.
 
 OBJECTIVE: ELIMINATE BELLIGERENTS: USE OF FORCE IS AUTHORIZED
 
-I chuckled at how serious games took themselves nowadays. Although we had seen the multiplayer maps yesterday I stared at the screen in wonder looking over the detailed intricacies of the image on the screen. This game was truly photo realistic. Of course there were the typical special effects and filters that made the game 'pop' but after I went into the settings and removed most of the enhancements it really did look lifelike.
+I chuckled at how serious games took themselves nowadays. Although we had seen the multiplayer maps yesterday I stared at the screen in wonder looking over the detailed intricacies of the image on the display. This game was truly photo realistic. Of course there were the typical special effects and filters that made the game 'pop' but after I went into the settings and removed most of the enhancements it really did look lifelike.
 
-Immediately I was impressed, everything seemed so fluid. The game had dropped me in the middle of nowhere. A flashing blip in the distance, displaying 'TARGETS' in red. It was in first person but everything felt so natural. It seemed like whatever I conceived of doing the game would let me do. I couldn't believe how seamless the parkour animations where when I climbed a tree outside of the village. I scouted the area, there was no one around other than a few NPCs around a fire. It didn't seem like they had any pattern at all, I thought it must have been the new AI tools allowing so many animations.
+Immediately I was impressed, everything seemed so fluid. The game had dropped me in the middle of nowhere. A flashing blip in the distance,'TARGETS' in bold red. It was in first person but everything felt so natural. It seemed like whatever I conceived of doing the game would let me do. I couldn't believe how seamless the parkour animations were when I climbed a tree outside of the village. I scouted the area, there was no one other than a few NPCs around a fire. It didn't seem like they had any pattern at all, I thought it must have been the new AI tools allowing so many animations.
 
-I wasn't really feeling like a 'try hard' at the moment and really wanted to see what the game was made of. I decided I would forgo the objective and just wander around. When I began to walk towards the hills in the distance the game began to coach me back to the objective.
+I wasn't really feeling like a 'try hard' at the moment and wanted to see what the game was made of. I decided to forgo the objective and just wander around. When I began to walk towards the hills in the distance the game began to coach me back to the objective.
 
 *LEAVING MISSION AREA, LEAVING MISSION AREA...*
 
 **Lame.**
 
-Eventually my character turned around automatically refacing the objective markers. I reluctantly walked towards the men around the fire. I didn't recognize where the game was supposed to be taking place. They wore generic looking middle eastern garb and spoke a language I had never heard. Suddenly the men stood up in shock and pointed to my character. What they were saying was unintelligible to me, but suddenly the game translated it to English. I remembered seeing a similar mechanic in some older game.
+Eventually my character turned around automatically refacing toward the objective markers. I reluctantly walked towards the men around the fire. I didn't recognize where the game was supposed to be taking place. They wore generic looking middle eastern garb and spoke a language I had never heard. Suddenly the men stood up in shock and pointed to my character. What they were saying was unintelligible to me, but suddenly the game translated it to English. I remembered seeing a similar mechanic in some older game.
 
 "*Tie him up! Tie the bastard up!"*
 
@@ -80,13 +80,13 @@ The men seemed panicked. I was really impressed by the voice acting. I wondered 
 
 **CRITICAL CRITICAL CRITICAL**
 
-I began to laugh at how ridiculous it was. I looked around the room at the other players who all seemed deeply immersed in their missions. I was surprised to see that everyone's level looked completely different. How many assets were in this game? The game-over appeared, only this one was unique. A stern looking woman in a ponytail and glasses scorned me from a secondary window in the corner of the screen.
+I began to laugh at how ridiculous it was. I looked around the room at the other players who all seemed deeply immersed in their missions. I was surprised to see that everyone's level looked completely different. How many assets were in this game? Game-over appeared, only this one was unique. A stern looking woman in a ponytail and glasses scorned me from a secondary window in the corner of the screen.
 
 "*Come on try harder! He got away!"* the second screen faded. I hated when games did this.
 
-I had heard of developers using frustration in the equation when trying to find that perfect addicting game loop formula, but it still peeved me off.
+I had heard of developers using frustration in the equation when trying to find that perfect addictive game loop formula, but it still peeved me off.
 
-Just then Zane walked over. "Hey buddy. Come on now, were not paying to make footage for a youtube gag video. I want you to actually *play* the game." he sounded a little passive aggressive.
+Just then Zane walked over. "Hey buddy. Come on now, were not paying you to make footage for a gag video. I want you to actually *play* the game." he sounded a little passive aggressive.
 
 "DIE DIRTBAG!" I heard one of the guys yell from across the room. Apparently he was enjoying it. I saw another laughing his head off.
 
@@ -104,9 +104,11 @@ For every few fun missions where I was able to just go in and fight a bunch of e
 
 After lunch Zane unveiled a leader board and said whoever was on the top it at the end of the day would get a thousand dollar bonus. I was impressed but I basically knew that wasn't ever going to be me. As fun as the game could be, the play style just wasn't really my thing. A few of the competitive players took it really seriously though. It was like they became completely focused on topping the board.
 
-It wasn't just the stealth missions that bothered me. For one, every mission my character changed. It was fine but had the devs never heard of customization? I also started to find the UI and 'mission companion' to be really annoying. It was like they were chastising me if I didn't play the game exactly how it wanted. I talked to the others about it but they all seemed to be enjoying it. What really bothered me though, and I wouldn't tell the gang this, but the game felt *too* realistic. I mean I had grew up with tons of violent games but this one was different. Not only were the graphics crazy good, the animation and dialogue were also so realistic.
+It wasn't just the stealth missions that bothered me. For one, every mission it seemed like the movement and aiming settings changed slightly. It was fine but had the devs never heard of customization? I also started to find the UI and voice 'companion' really annoying. It was like they would reprimand me if I didn't play the game exactly how it wanted. I talked to the others about it but they all seemed to be enjoying it. 
 
-One mission I was in some small village in Africa or something. I had to shoot through a bunch of soldiers but when I got to the target his dialogue really got to me. I mean, I get being accurate to life but this just felt unnecessary. I was about to complete the mission when the character model spread his arms in the air and said 'WAIT!'. He looked at me dead in the eyes and I swear it was the realest expression I had ever seen... and I don't just mean in a game. He was sobbing and his voice was hoarse, suddenly he said 'I have a son! Please'. To be honest it freaked me out; I just wanted to be done with the mission.
+What really bothered me though, and I didn't tell them then, but the game felt *too* realistic. I mean I had grew up with tons of violent games but this one was different. Not only were the graphics crazy good, the animation and dialogue were also so realistic.
+
+One mission I was in some small village in Africa or something. I had to shoot through a bunch of soldiers but when I got to the target his dialogue really got to me. I mean, I get being accurate to life but this just felt unnecessary. I was about to complete the mission when the character model spread his arms in the air and said 'WAIT!'. He looked at me dead in the eyes and I swear it was the realest expression I had ever seen... and I don't just mean in a game. He was sobbing and his voice was hoarse, suddenly he said *'I have a son! Please'*. To be honest it freaked me out. I just wanted to be done with the mission.
 
 I stared at the screen for like twenty seconds while the NPC just sat there crying. It was uncanny valley territory. Suddenly he got up to run. I didn't want to hear Zane complain about me 'not playing properly' so I shot him as he was jumping out a window... The thing that really messed me up though was when he started to cry out a name "My boy... *Abimbola**, **ABIMBOLA!" **he was shouting. I recoiled at the screen, did they have to make it this graphic? I would definitely bring this up to Zane.*
 
@@ -118,29 +120,31 @@ I watched as my name moved up the leader board to second place. Hmm.... maybe I 
 
 ***
 
-For the next week all of us played the game with fervor. I had become used to some of the quirks and was actually getting quite good at it. As I played different weapons were unlocked and I never saw the same mission. I mean of course some of them were very similar but they all were somewhat unique. We played battle royale most of the time but we would play at least one single player mission at the end of each day.
+For the next week all of us played the game with fervor. I adapted to some of the quirks and was actually getting quite good at it. As I played different weapons were unlocked and I never saw the same mission. I mean of course some of them were very similar but they all were somewhat unique. We played battle royale most of the time but we would complete at least a few solo missions a day.
 
 I rarely saw Zane and when I did he was generally on his phone talking in a hushed voice. I figured he must have been busy as the game was probably nearing release.
 
-*At least all of this what I had thought... until...*
+*At least all of this is what I had thought... until...*
 
-That day was different. After we finished playing the royale mode I loaded up the single player. The game said it was a harder difficulty level then usual. I had to infiltrate a compound and take out their leader. It didn't seem to difficult; I weaved through the corridors stealthily dragging bodies away from detection. 
+That day was different. After we finished playing the royale mode I loaded up the single player. The game said it was a harder difficulty level then usual. I had to infiltrate a compound and take out their leader. It didn't seem too difficult; I weaved through the corridors stealthily dragging bodies away from detection. 
 
 Finally I reached the objective, some type of boardroom or office. My character slowly opened the door... then something happened I hadn't seen before.
 
-Someone had slipped behind my character and tied me up. I watched as my player was bound to a chair. Then a strict looking woman in a beret walked in to the room gesturing to the door. It looked incredible, I couldn't believe that it was in game and not cinematic. She leaned in close to the camera and I almost crapped my pants.
+Someone had slipped behind my character and tied me up. I watched as my player was bound to a chair. Then a strict looking woman in a beret walked in to the room gesturing to the door. They slammed it shut. I couldn't believe that what I was seeing was in game and not cinematic. She leaned in to the camera...
 
 "Listen to me closely. Yes, you... you spineless coward. You killed a lot of my men back there. Do they at least pay you well?" she spit on the character with vitriol...
 
-It had been a few days but I remember the oddly realistic mission from a few days ago.
+I recalled the oddly realistic mission from a few days ago.
 
 "We've got five minutes. Five!? Do you hear me. We were able to hack into your connection remotely. Apparently your boss doesn't trust you enough to run a mission alone. How does that make you feel? Watching your every move. You must be real loyal..."
 
-The dialogue was going on for quite a while. I figured it was a scripted mission but was starting to get confused. I looked around the room, everyone else was focused on their screens, blasting away. Zane was nowhere to be seen.
+The dialogue was going on for quite a while. I figured it was a scripted mission but was starting to get confused. I looked around the lounge, the others completely focused, blasting away. 
+
+Zane was nowhere to be seen.
 
 "SAY SOMETHING!" She yelled tossing a cabinet over in anger.
 
-I stared stunned at the screen. Was there a dialogue option in the game?
+I stared stunned at the screen. Was there a dialogue option?
 
 "Boss I don't think they are fitted with two way communication." a second voice said from across the room.
 
