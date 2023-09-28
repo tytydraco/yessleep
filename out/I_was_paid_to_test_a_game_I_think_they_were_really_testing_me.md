@@ -106,7 +106,7 @@ After lunch Zane unveiled a leader board and said whoever was on the top it at t
 
 It wasn't just the stealth missions that bothered me. For one, every mission it seemed like the movement and aiming settings changed slightly. It was fine but had the devs never heard of customization? I also started to find the UI and voice 'companion' really annoying. It was like they would reprimand me if I didn't play the game exactly how it wanted. I talked to the others about it but they all seemed to be enjoying it. 
 
-What really bothered me though, and I didn't tell them then, but the game felt *too* realistic. I mean I had grew up with tons of violent games but this one was different. Not only were the graphics crazy good, the animation and dialogue were also so realistic.
+What really bothered me though, and I didn't tell them then, but the game felt *too* realistic. I mean I had grown up with tons of violent games but this one was different. Not only were the graphics crazy good, the animation and dialogue were also so realistic.
 
 One mission I was in some small village in Africa or something. I had to shoot through a bunch of soldiers but when I got to the target his dialogue really got to me. I mean, I get being accurate to life but this just felt unnecessary. I was about to complete the mission when the character model spread his arms in the air and said 'WAIT!'. He looked at me dead in the eyes and I swear it was the realest expression I had ever seen... and I don't just mean in a game. He was sobbing and his voice was hoarse, suddenly he said *'I have a son! Please'*. To be honest it freaked me out. I just wanted to be done with the mission.
 
@@ -224,7 +224,7 @@ I still haven't spent a dollar of it.
 
 Most of the time I just stare out the window thinking about what I've done. Did any of them realize what we did? We were all cold blooded killers now... they weren't the least bit aware...
 
-Or were they? Their laughs haunting me, remembering as they tormented '*NPC*s', hysterical as they danced on the bodies, and worse... I can barely bring myself to remember. They must have known... they must have...
+Or were they? Their laughs haunting me, remembering as they tormented '*NPC*s', hysterical as they danced on the bodies and worse... I can barely bring myself to remember. They must have known... they must have...
 
 I've tried to sleep but I can't, every night all I can see is the face of the man in the African village crying out the name of his son....
 
