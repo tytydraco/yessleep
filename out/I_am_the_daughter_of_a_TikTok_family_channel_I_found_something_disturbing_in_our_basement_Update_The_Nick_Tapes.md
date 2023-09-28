@@ -1,6 +1,6 @@
 I need to preface this by saying I am currently Zoey [(V. 1,792).](https://reddit.com/r/nosleep/s/HFIxkEmjy2)
 
-I have been copied multiple times since my last post. It is currently 08/26/23.
+I have been copied multiple times since my last post. It is currently 09/26/23.
 
 I watched a lot of footage and I have little time, so I will be uploading in two parts. Today I will be uploading Nick’s tapes, and tomorrow will be Ben’s. 
 
