@@ -38,7 +38,7 @@ And I mean every step. 
 
 It reached a point when my brother convinced Allie to fake being well enough to go to school to escape Mom’s camera. Ben greeted me on the way downstairs, smiling through a mouthful of toothpaste. His long-sleeved shirt was hiding his wrist, so I couldn’t see a number. It was frustrating that I couldn’t talk to him about the night before, because he had forgotten our mother had fucking killed him. I was still trying to understand the sudden appearance of his replica wearing his features. 
 
-I could still remember the sight of it, a hollowed-out version of Ben with wide, maniacal eyes and a grinning mouth, a head of half-shaved hair, and blood staining that particular jacket. His smile wasn’t human. But I knew somehow that thing I was still him. Just like the shadow girl wearing my face who replaced me at cheer practice the day before had somehow been me. The only thing I could discern from that version of him was the jacket. I had never seen him wear it. Ben’s expression was already alight with mischief. 
+I could still remember the sight of it, a hollowed-out version of Ben with wide, maniacal eyes and a grinning mouth, a head of half-shaved hair, and blood staining that particular jacket. His smile wasn’t human. But I knew somehow that thing was still him. Just like the shadow girl wearing my face who replaced me at cheer practice the day before had somehow been me. The only thing I could discern from that version of him was the jacket. I had never seen him wear it. Ben’s expression was already alight with mischief. 
 
 He hung upside down from the staircase railing. “Yo, so do you have severe memory loss, or..?”
 
