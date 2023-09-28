@@ -8,7 +8,7 @@ Unfortunately for me, I was not, one of those people. Although I had a small fol
 
 That's why it was such a big deal when we got the offers.
 
-At first I thought it was a prank. The email said I had been hand picked to participate in the testing of a new game "Battle Guardian". I had never heard of the developer, but in the e-mail they mentioned how they had secured a sizable amount of funding from various investors who believed in the project.
+I thought maybe it was a prank. The email said I had been hand picked to participate in the testing of a new game "Battle Guardian". I had never heard of the developer, but in the e-mail they mentioned how they had secured a sizable amount of funding from various investors who believed in the project.
 
 At first I thought the whole thing sounded kind of... well, *trash*. The developer said that Battle Guardian was the most intricate combat game ever. I was going to delete the email and forget about it, that was, until I saw the compensation.
 
@@ -22,7 +22,7 @@ I signed onto discord and joined one of the servers for high level comp players.
 
 For some reason the developer insisted we had to meet and play the game in person. I was only a couple of hours away from LA, where the office was, but they literally flew people out to test this game. Clearly money wasn't an object and I guess having some of the worlds best players to test your new game was an investment in quality.
 
-The building was kind of inconspicuous and not really what I expected. They didn't even have a logo on the front. I saw a few of the guys I knew from streaming and we talked for a bit, all of us wondering what the deal was with this new game. A man with matted hair and eyes wired greeted is with a big smile.
+The building was kind of inconspicuous and not really what I expected. They didn't even have a logo on the front. I saw a few of the guys I knew from streaming and we talked for a bit, all of us wondering what the deal was with this new game. A man with matted hair and eyes wired greeted us with a smile.
 
 "Hey guys, good to meet you. I'm Zane. Welcome, welcome!" he walked around shaking hands and patting backs. He wore a casual Hawaiian shirt and skate shorts. He looked like a stereotypical game dev, one who had been up for one too many nights running solely off of cappuccinos and energy shots. He showed us to the testing room.
 
@@ -46,9 +46,9 @@ At the end of that first day the group was ecstatic. We had played for hours, al
 
 The group excitedly poured into the gaming lounge when the doors opened. A few were trash talking each other, boasting about how well they would do that day.
 
-Zane walked in with a smile "Hey everybody! Easy now, there will be time enough for competition later..." gesturing to those who had been arguing.
+Zane walked in cheerily "Hey everybody! Easy now, there will be time enough for competition later..." gesturing to those who had been arguing.
 
-'Today each of you will be testing the core feature of the game... generative combat!" a murmur formed around the room evidently wondering what he meant by *generative* combat. He picked up on it and explained that today we would be testing the games single player mode. He said the game was able to generate new levels every time we played. To be honest most of the group was skeptical; we had seen other games with procedurally generated quests.
+'Today each of you will be testing the core feature of the game... generative combat!" a murmur formed around the room evidently wondering what he meant by *generative* combat. He picked up on it and explained that today we would be testing the games single player mode. He said the game was able to generate new levels every time we played. It was clear most of the group was skeptical; we had seen other games with procedurally generated quests.
 
 After Zane was done his spiel I clicked on the single player icon. The game spared no time in getting to the point.
 
@@ -110,7 +110,7 @@ What really bothered me though, and I didn't tell them then, but the game felt *
 
 One mission I was in some small village in Africa or something. I had to shoot through a bunch of soldiers but when I got to the target his dialogue really got to me. I mean, I get being accurate to life but this just felt unnecessary. I was about to complete the mission when the character model spread his arms in the air and said 'WAIT!'. He looked at me dead in the eyes and I swear it was the realest expression I had ever seen... and I don't just mean in a game. He was sobbing and his voice was hoarse, suddenly he said *'I have a son! Please'*. To be honest it freaked me out. I just wanted to be done with the mission.
 
-I stared at the screen for like twenty seconds while the NPC just sat there crying. It was uncanny valley territory. Suddenly he got up to run. I didn't want to hear Zane complain about me 'not playing properly' so I shot him as he was jumping out a window... The thing that really messed me up though was when he started to cry out a name "My boy... *Abimbola**, **ABIMBOLA!" **he was shouting. I recoiled at the screen, did they have to make it this graphic? I would definitely bring this up to Zane.*
+I stared at the screen for like twenty seconds while the NPC just sat there crying. It was uncanny valley territory. Suddenly he got up to run. I didn't want to hear Zane complain about me 'not playing properly' so I shot him as he was jumping out a window... The thing that really messed me up though was when he started to cry out a name "My boy... *Abimbola*, *ABIMBOLA!"* he was shouting. I recoiled at the screen, did they have to make it this graphic? I would definitely bring this up to Zane.*
 
 MISSION PASSED appeared on screen in big bold gold letters with a tally of my score.
 
