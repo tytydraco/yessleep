@@ -1,4 +1,4 @@
- Have you ever thought "Dreams are not real!" if you had said anything as such i would have said you were right... Until that is,  October 5th 2002. That is when i think the dreams first started, but it might have been a month or two before that, well i am not sure. but i don't think you really care about that kinda information to be honest i don't think you will believe me but i don't care i need to put this somewhere because i feel like this is one of my last chances too do so.
+Have you ever thought "Dreams are not real!" if you had said anything as such i would have said you were right... Until that is,  October 5th 2002. That is when i think the dreams first started, but it might have been a month or two before that, well i am not sure. but i don't think you really care about that kinda information to be honest i don't think you will believe me but i don't care i need to put this somewhere because i feel like this is one of my last chances too do so.
 
 October 5th 2002.
 
@@ -22,21 +22,16 @@ We got the stuff we needed like bread milk washing up liquid and tablets dishwas
 
 i took one step over to the man which reveled an ear to ear smile with teeth like knifes but that wasn't the worst part. There was so much blood like he teeth were red no white to be scene. i took 2 steps back he took one forward and the smile was no longer  able to be scene i sat down and asked him, "why are you here? who are you?" i heard the sound of glass smashing and heard a cackle then was woken up.
 
-October 7th 2002  
-"What are you doing jack? it is 25 past 8! you normal wake up at 7!." What are you on about only then did i think oh no SCHOOL and then i rushed to get dressed and then went to school.  like most of the time nothing really happened, didn't learn much and then went home did my homework and such and just went to sleep.
+October 7th 2002"What are you doing jack? it is 25 past 8! you normal wake up at 7!." What are you on about only then did i think oh no SCHOOL and then i rushed to get dressed and then went to school.  like most of the time nothing really happened, didn't learn much and then went home did my homework and such and just went to sleep.
 
-  
 There it was again by now i didn't care  i just waited about 20 minutes past so i thought i am not sure how long it was though because it was a dream. Then an annoyed sound came and it tossed something at me... it was OWW!! aH A kNiFe!?! it was such a sharp pain i started to cry pulled out the knife it was blindingly pain full and went to throw the knife and then stopped it saw its face and its smile was bigger and looked like it wanted me to do just that, to throw the knife at it but a gut feeling came saying no i can't i blacked out and woke up
 
-  
-October 8th 2002  
-i was in the hospital and they looked at me and then they were just bringing me in to get my arm patched up and i saw them all they all looked funny in my eyes the pain in my arm i couldn't feel it then they said "soon this pain will be gone don't worry."
+October 8th 2002i was in the hospital and they looked at me and then they were just bringing me in to get my arm patched up and i saw them all they all looked funny in my eyes the pain in my arm i couldn't feel it then they said "soon this pain will be gone don't worry."
 
-  
 i was back. BACK IN THIS GOD DAMNED PLACE I SHOUTED, it was there, again. This time i was in this place and for some reason it was a bit lighter in this place but not by much, still almost pitch black and still couldn't taste smell or touch anything nor could i see the creature any better then last time. though this time it felt so scary and lonely i never felt like this in this room and so even though that thing was still there i asked are you lonely? then it talked "yOu tHiNK i hAvE hUmAn emotions?" "only pleasure, rage, annoyance and -\]\[;'=';\\'./.;\[\[;'\[\\\\\\" What i said" it said it wouldn't repeat itself and then we just talked and i came too
 
-October 9th 2002 
+October 9th 2002
 
-The doctors asked me about my wounds and i just said that i didn't know they told me my parents said the same but what could we say no one would trust a kid and the hell did my parents know they were confused and scared for my health because for the past 4 days i was getting wounded they set up cameras in my room and then i just sleep in the hospital until i was discharged   nothing strange happened there in fact nothing happen for a long time we thought it was over
+The doctors asked me about my wounds and i just said that i didn't know they told me my parents said the same but what could we say no one would trust a kid and the hell would my parents know they were confused and scared for my health because for the past 4 days i was getting wounded they set up cameras in my room and then i just sleep in the hospital until i was discharged   nothing strange happened there in fact nothing happen for a long time we thought it was over
 
 june 10th 2006

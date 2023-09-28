@@ -36,7 +36,7 @@ It would be a good question—and I would answer I knew this because their heads
 
 Their heads twisted to reveal empty eye sockets, the blood crusted and dried where the eyeballs had been removed. It was the eeriest moment of my life, facing off against these … demons are the best way I can describe them.
 
-Whatever possessed the scientists was aware of our presence. To the naked eye, the laboratory looked no different than on any other day, but soul inside you could feel the thick smog of levitating evil.
+Whatever possessed the scientists was aware of our presence. To the naked eye, the laboratory looked no different than on any other day, but the soul inside you could feel the thick smog of levitating evil.
 
 In a synchronized motion, the scientists grinned, as if a puppet master had pulled their strings. My jaw fell open, and to this day, hearing the *cling!* of the elevator doors closing was akin to being pulled out of a frozen lake just before you are about to drown.
 
