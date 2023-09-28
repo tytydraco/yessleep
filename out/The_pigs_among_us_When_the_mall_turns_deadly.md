@@ -282,7 +282,7 @@ I tried to smile however I had already pushed past my limits. I could only move 
 
 Do you know why I’m happy? It’s because this time I didn’t just stand there. At the very least, I finally did something useful right? Despite what happened, I was so happy when we talked 2 days ago. I haven’t had a proper chat with someone in months.”
 
-Her breaths gradually grew shallower. “Ah, I never did thank you did I? For saving my life, twice now.
+Her breaths gradually grew shallower. “Ah, I never did thank you did I? For saving my life, twice now."
 
 Don’t say that, please don’t say that. I looked her in the eyes, but the words wouldn’t come out of my mouth. I think she understood me as she continued. “Thank you.. for…saving my life…..” She closed her eyes and stopped breathing. Tears were rolling down my face, making my already blurry vision even worse. Why was this happening? Why…
 
