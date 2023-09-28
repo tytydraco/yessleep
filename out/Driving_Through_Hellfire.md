@@ -8,7 +8,7 @@ So, what I'm about to tell you, as crazy as it may seem, is a completely true st
 
 So, here goes...
 
-To set the scene - I live in a very rural place, in a small town that has maybe a few thousand residents, but we're all so spaced out and hidden in the hills, you'd never know that many people live here.  
+To set the scene - I live in a very rural place, in a small town that has maybe a few thousand residents, but we're all so spaced out and hidden in the hills, you'd never know that many people live here, unless there was a Fourth of July carnival or some kind of festival.  
  
 My town isn't anything fancy. We don't have the most up-to-date stores and all that, but, for the most part, we're all happy and thankful for what we do have.  
 
@@ -22,7 +22,7 @@ This Spring day was just like any other day. I got up, got ready for school, and
  
 I rush home, as always, even though I know the only thing that I'm rushing towards is a mountain of homework. It's like my mind plays tricks on me, making me think that simply being out of school and at home is a relaxing reward for getting through the day, although there wasn't any actual relaxing; it was just more stress in a comfortable environment.   
 
-I hussle through the multiple pages, completing every problem with a bit of skepticism, questioning my intelligence. But nonetheless, I talked myself up and got through it.   
+I hussle through the multiple pages, completing every problem with a bit of skepticism, questioning my intelligence. But nonetheless, I talk myself up and get through it.   
 
 Before I know it, the clock reads 8:00 PM. Time to eat and shower and then I can rest for the first time today.   
 
@@ -30,7 +30,7 @@ I complete these remaining two tasks and gleefully skip to my bedroom. I slip on
 
 I'm one of those people that are woken up VERY easily. I'm not kidding, a mouse could fart and it'd wake me up. So when I felt my eyelids trying to shut, I took full advantage. I tuck myself in, get comfortable, and go straight to sleep.   
 
-Now, these next events are questionable, to say the least. I still, to this day, have no idea why God showed me what he did...I've even questioned if it was God that showed me this... or if this was the work of the Devil...
+Now, these next events are questionable, to say the least. I still, to this day, have no idea why God showed me what he did... I've even questioned if it was God that showed me this... or if this was the work of the Devil...
    
 The very second my eyelids shut, I'm no longer asleep in my cozy bed...   
 
@@ -40,29 +40,41 @@ The heat instantly sends my mind into a frenzy. Intrusive thoughts race through 
 
 I frantically look around the black interior of the truck, trying to find the door handle to get out, but there isn't one. Thats when I notice that, not only am I in the passenger seat, but the truck is moving!  
 
-I glance over to the driver's seat to see a large, black, blurry figure that looks like the outline of a person. It's like these black pixels that are constantly moving, yet making sure to keep the outline visible.   
+I glance over to the driver's seat to see a large, black, blurry figure that looks like the outline of a person. It's like these black pixels that are constantly moving, yet making sure to keep the outline visible....and it is driving this truck! 
 
-And it is driving this truck! As I'm staring at this black outline with total bewilderment, something even more terrifying catches my attention.  
+I couldnt focus on anything more than the entity itself, at this point. The dark particles erratically swirled all through this outline of a person, imitating normal human movements as one would do when driving. I could see the black pixels wrap around the steering wheel, as the wheel would move whatever direction the entity willed it to. 
 
-We're in the old hollow that I grew up in as a child. The same little red house my neighbor and I played at daily, the same tire swing my cousin and I spent many evenings on, the same blacktop that was eaten away with more pot-holes than you can count. It was all there! All the things I grew to love and cherish... BUT EVERYTHING WAS ON FIRE!!  
+Complete dread coats every limb of my body as I try to focus on these particles, but I just couldn't. No matter how hard I tried, this thing remained so blurry, all I could see was the scattered outline of a person that was a little bigger than me. 
 
-The trees were glowing bright yellow, so bright, it was like you could sense the vibration of the intense flames just by looking at them. The grass was swaying with vibrant colors of yellow and orange, as the fire consumed every inch of this world. The road was even engulfed in these extraordinary flames,  like we were magically driving on molten lava, yet I could still feel every pot-hole the truck went over.   
+As I stare at the outline with intense bewilderment, I'm met with sudden feelings of nostalgia and grief, but I no longer feel fear, at least not for the entity. 
 
-Tears fill my eyes and just for a moment, I forget that my body feels like it's burning. But then I hear the screams... Screams that were coming from the fire. These high-pitched screams were cries of agony and despair. You don't ever forget screams like this. Screams that make your blood curdle and your stomach turn. Screams that are so prominent, it's like you can feel their pain.
+Before I can even question why I'm experiencing these emotions, they were viciously ripped away in a matter of miliseconds. My mind is yet again forced to focus on the overwhelming heat that was continuing to seep through the black truck. 
+
+I can feel the gallons of sweat that have combined with the fabric seat, gushing as I move my burning body.
+
+The heat is so intense, I'm barely able to hold my head up to look out of the scorched windows...
+
+We're in the old hollow that I grew up in as a child. The same little red house my neighbor and I played at daily, the same tire swing my cousin and I spent many evenings on, the same blacktop road that was eaten away with more pot-holes than you can count. It was all there! All the things I grew to love and cherish... BUT EVERYTHING WAS ON FIRE!!  
+
+The trees were glowing bright yellow, so bright, it was like you could sense the vibration of the intense flames just by looking at them. The grass was swaying with vibrant colors of yellow and orange, as the fire consumed every inch of this world. The sky was overtaken by huge, dark clouds of black smoke that never seemed to let up. The road was even engulfed in these extraordinary flames, like we were magically driving on molten lava, yet I could still feel every pot-hole the truck drove over.   
+
+Tears fill my eyes and just for a moment, I forget that my body feels like it's in the middle of being cremated. But then I hear the screams... Screams that were coming from the fire. These high-pitched screams were cries of agony and despair. You don't ever forget screams like this. Screams that make your blood curdle and your stomach turn. Screams that are so prominent, it's like you can feel their pain.
     
 My body tightens uncontrollably, and I'm met with an immense feeling of sorrow. I can no longer talk or move, I'm frozen in place. I'm forced to witness the best memories of my childhood and the people I love, burn to ash in this world made of fire.  
  
-This black figure continues to drive us further in my old hollow that is now immersed in blazing flames and cries of torment. This continues for what seems like forever.   
+The black figure continues to drive us further into my old hollow that is now immersed in blazing flames and cries of torment, as I'm melted to the seat, unable to move or scream. 
+
+This continues for what seems like forever.   
 
 "How do I get out?! GET ME OUT!" These were the only thoughts I could muster.   
 
-The black figure suddenly turns to me and I'm jolted awake!  
+The black figure suddenly turns to me, as if recognizing my presence for the first time, and... I'm jolted awake!  
 
 I wake up, drenched in sweat, as if I had just come out of a sauna. Considering the A/C was set to 68° and I had my fan on, per usual, I knew the sweat had to be from the flames of my dream.   
 
 I start hysterically crying and run straight to my Mother's bedroom. Now, keep in mind, I'm a teenager. Running to my Mother's bedroom because of a bad dream is something I haven't done since I was a very young child.   
 
-I frantically wake her up, and try to relive this nightmare i narrowly escaped, just long enough to explain why I was so utterly terrified. As I open my mouth, my words seemed to melt together, as if I were babbling like a baby, not making any sense.   
+I frantically wake her up, and try to relive this nightmare I narrowly escaped, just long enough to explain why I was so utterly terrified. As I open my mouth, my words seemed to melt together, as if I were babbling like a baby, not making any sense.   
 
 Without full comprehension of why her daughter was crying uncontrollably, Mom instantly wrapped her loving arms around me and started praying in that same sweet tone she used when I got hurt as a small child. After a few minutes of consoling, I realize that I'm safe now, and that brings just enough comfort so I can force back my tears and random babbling.   
 
@@ -70,7 +82,9 @@ Thinking that the unnerving night was nearing its end was a soothing feeling tha
 
 Fast forward to two days later...  
  
-Again, normal day to me. But at least on this day, I have a hair appointment to look forward to. It feels nice to have a tiny bit of excitement for more than just going home after school.   
+Again, normal day to me. At least on this day, I have a hair appointment to look forward to. It feels nice to have a tiny bit of excitement for more than just going home after school. 
+
+Besides, this is a positive distraction from the nightmare that tormented me just two nights ago. "It was just a bad dream, you're okay now." I tell myself, ignoring the obvious denial I'm in.
 
 I get to the salon, which so happens to be owned by my cousin, Laura (like I said, small town). I happily strut in the salon and sit down, smiling ear to ear, simply happy to have a minuscule change of scenery. 
   
@@ -78,7 +92,7 @@ Laura and I start off with the normal, nice formalities, "How are you?", ""How's
 
 Silence freshens the air for all of three seconds before she sighs and says "Did you hear about Ben?"   
 
-Ben is our cousin, as well. I grew up with him and his sister when I was a child. Back then, our whole neighborhood was very well-connected and close, so everyone knew everyone, and we all cared for one another.   
+Ben is our cousin, as well. I grew up with him and his sister when I was a child. Back then, our whole neighborhood was very well-connected and close, we all cared for one another and we acted like one big, happy family.   
 
 I hadn't seen Ben in many years, though. We moved out of that neighborhood when I was in the 5th grade and Ben and I lost touch.   
 
@@ -88,22 +102,28 @@ But that nostalgia was quickly interrupted when Laura hands me photos of what lo
 
 But as I continue to stare at the photos with immense disbelief, I can't shake the feeling that I KNOW this truck! I know that black interior, I know the entire inside of this vehicle, yet I know I never actually rode in a black S10...  
 
-"THE NIGHTMARE!" I thought as my eyes widen and my breath shortened. THAT'S how I know this truck!! This was the truck that black figure trapped me in while we drove through Hellfire!  
+"THE NIGHTMARE!" I thought as my eyes widen and my breath shortened. THAT is how I know this truck!! This was the truck that black figure trapped me in while we drove through Hellfire!  
 
 I had no idea that Ben had a black S10. Again, I hadn't talked to him in years...  
 
 Turns out, Ben had been out partying for his 21st birthday. He had also been drinking alcohol. (I mean who wouldn't drink on their 21st birthday?)  
 
-The mistake he made was driving home after he was drinking. He wrecked and passed away in the same hollow that black figure drove me through... The same hollow where all of our childhood memories were made... The same hollow that was eaten by flames two nights ago...   
+The mistake he made was driving home after he was drinking. He wrecked and passed away in the same hollow that black entity drove me through... The same hollow where all of our childhood memories were made... The same hollow that was eaten by flames two nights ago...   
 
-The same night I had this nightmare... is the same night Ben passed away. 
+The very night I was forced to witness this nightmare... is the same night Ben passed away... 
   
-The outline of a person that was driving us through my old hollow was Ben. The last spot in my hollow that I had seen before I was startled awake was the place where Ben had died...  
+After years of racking my brain, the only plausable explanation I can come up with is that this was some sort of message, although I'm still not sure what that message was. I believe the outline of a person that was driving us was Ben...
 
-I still have so many questions...  
+The last spot in my childhood hollow that I had seen before I was startled awake...was the place where Ben had died...  
+
+It's almost like I was in the truck with him when he was driving that night. I was vigorously flung back to reality once he wrecked and died. Maybe that's why he couldn't sense my presence until the very end.
+
+I just don't understand it...and I'm not sure I ever will. 
+
+I still have so many questions... Questions that eat away at my soul, deepening the voids that the mysterious flames coercively tore open. 
 
 "Should I have focused harder on my nightmare?... Why was I the one that experienced this?... Why me?... What should I have done differently?..." 
  
-And the question that still fills my soul with peril....  
+And the question that still fills my very soul with peril....  
  
 "Could I have saved his life?"
