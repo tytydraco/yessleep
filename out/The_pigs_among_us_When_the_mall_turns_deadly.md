@@ -136,7 +136,7 @@ There was still something I needed to clarify. “So, wait, that monster had a w
 
 “Pigs replace humans, Alex. As far as I can tell they only target humans and even after they replace one, they still continue to hunt like predators. Although I don’t fully understand it myself. After all, they could just distort reality. Why bother mimicking humans? Maybe they liked humans after all?”
 
-Olivia interrupted him and asked. “What’s our next move?
+Olivia interrupted him and asked. “What’s our next move?"
 
 A serious look crossed his face. “The Mall. From what I saw,  it seems that the police have been receiving an increasing number of missing person reports. As you may have guessed, a group of these missing individuals were last seen at the mall and have yet to be found. I had planned to investigate the mall eventually, but Mr. Cameron took priority due to his proximity.”
 

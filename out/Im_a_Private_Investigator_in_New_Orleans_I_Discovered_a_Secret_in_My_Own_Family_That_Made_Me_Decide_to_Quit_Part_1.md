@@ -318,9 +318,9 @@ I stare at the phone in my hands, my heart racing and my mind struggling to proc
 
 "That's all I could capture without being seen," she whispers, her voice quivering with terror. "I left as quickly and quietly as I could."
 
-I replay the video, hoping to catch some indication that what I've just witnessed was some kind of elaborate trick or hoax. With each playback, I try to dissect every frame, every pixel, looking for a flaw or telltale sign of practical effects or CGI. But nothing seems amiss.
+I replay the video, hoping to catch some indication that what I've just witnessed was some kind of elaborate trick or hoax. With each playback, I try to dissect every frame, every pixel, looking for a flaw or telltale sign of special effects or CGI. But nothing seems amiss.
 
-"It's probably just some kind of art project, or... special effects, you know? Maybe augmented reality or something," I say, attempting to sound more convinced than I feel.
+"It's probably just some kind of art project, or... practical effects, you know? Maybe augmented reality or something," I say, attempting to sound more convinced than I feel.
 
 Kira's eyes plead with me, her expression fraught with worry. "You know that isn't true, Ash. I've never seen anything like that. There was something… malevolent about it."
 
