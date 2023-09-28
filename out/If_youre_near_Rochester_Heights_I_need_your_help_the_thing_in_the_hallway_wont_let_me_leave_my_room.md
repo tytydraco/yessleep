@@ -60,4 +60,6 @@ I thanked God that I hadn’t locked my door as I threw it open and turned to sl
 
 It’s been hours since but the sun has not risen. I tried sleeping in the bathtub, I couldn’t stand the proximity of my bed to Joanne’s and Carter's. But when I stepped in I remembered that half the tub couldn’t support my weight as water damage had left it half sunk into the floor. So I went back to the living room and saw my laptop still sitting there with this webpage open. Please if anyone can help me or has any ideas, nows the fucking time. I don’t know how much longer I have left, just now I decided to peer out my window and was greeted by stygian darkness but what really scares me is the few breaks in it. Occasionally lighting flashes across the sky and illuminates the world below, a lifeless sand sea. Lighting cut through in brilliant flashes, stained by black and white patterning like TV [static.](https://www.reddit.com/r/grimoireofmadness/)
 
+[2](https://www.reddit.com/r/nosleep/comments/16tmu7o/im_still_trapped_in_rochester_heights_and_things/) [3](https://www.reddit.com/r/nosleep/comments/16ujgi6/the_shadow_of_rochester_heights_still_looms/)
+
 [TW](https://twitter.com/SantiagoDelMar3)

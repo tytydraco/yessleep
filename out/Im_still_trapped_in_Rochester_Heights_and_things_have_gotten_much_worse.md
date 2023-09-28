@@ -54,4 +54,6 @@ I slunk back into my hiding spot and waited for it to be over, waited for them t
 
 What I did know is that Harold had a role to play in this in some way or another and that his room was just a floor above. If there’s any chance of escape or answers, it would be there. If you don’t hear back from me, I’m dead. I’m certain that there’s no way anyone from outside this hell can help, even then I still ask that you’ll wish me luck. I certainly know I’ll [need it.](https://www.reddit.com/r/grimoireofmadness/)
 
+[3](https://www.reddit.com/r/nosleep/comments/16ujgi6/the_shadow_of_rochester_heights_still_looms/)
+
 [TW](https://twitter.com/SantiagoDelMar3)
