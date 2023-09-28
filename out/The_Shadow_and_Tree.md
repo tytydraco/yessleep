@@ -1,0 +1,17 @@
+The day started alright. The school was okay. The teachers were questionable. With how they teach and how they act. Some were strict which tells me that their household was most likely strict as well. Some teachers were chill which tells me their household was less strict. When lunch was happening I would be at the liberty to read books like Captain Underpants, A Walk of Shadows, IT, 1984, Percy Jackson, The Dark Tower 1: The Gunslinger , and stuff like that. I was feeling sleepy and fell asleep. I dreamed of a shadow person in the distance of the void. It was long, tall, and eating something of flesh. Flesh of an animal? I couldn’t tell you for the life of me.
+
+I stared at it. For god only knows how long. Then suddenly the damn thing charged at me. As fast as a sports car at max speed It got to my face. I woke up feeling my body temperature rise in which sweat started to form on my skin which had a gross smell to it. Not that I didn’t shower, I did a lot and the smell still lingers. It was 1 minute until math class so I booked my ass over there.
+
+Later that day I went to the dump with my dad to drop off cardboard and glass. He would always tell me “You can’t recycle plastic because not all of it can be used again and will be sent to the landfills and oceans where sea animals will eat or get stuck in them and we end up eating them” he would say. And I would take him at his word.
+
+He and I went to get dinner at Subway and had Italian bread with turkey, cheese, bacon, and ham with a pack of cookies, Dr. peppers, and sometimes a monster if I got really good grades. And so I went to bed.
+
+I awake to a shadow person in my room; playing with cards. The shadow person looked odd, not really because it was a shadow but because the shadow wasn’t on the wall. They are on the same playing field as people of this realm. My room has toys scattered around, from Nerf guns to Barbie playhouses filled with army men and Ken dolls doing kung fu. The floor was made of carpet and was stained with apple juice in some areas and some weird brown liquid here or there.
+
+The shadow had eyes sockets with no eyes or it looked like there weren’t any eyes. And then I saw the white in the eyes looking right at me. Don’t hug me I’m scared. Suddenly I was sent into the void where I could feel my brain invert, my eyes going inside out. My stomach inverted feeling the acid flowing out of my being. Every bone, every cell, every organ was inverted, everything backward. I was thrown back into my room. And I died almost the second I was back in there. 
+
+And then something odd happened. I started to regenerate? My bones, flesh, and skin came out new but then I realized that I made a new body and the old one was on the carpet. I fucking reponed the fuck. I could feel something new, I could go into the void and so I did. Just to see a Lovecraft-type god just looking at me, not knowing what to do due to them seeing something like this before. It attacked me though.
+
+Another odd thing happened, I shocked them with lighting without thinking about it. They flunk back 20 yards into the void. I could see their organs and so I went for it. They screamed. As I ripped their heart out and inverted it. Killing them. I went back into my room from the void and went to sleep.
+
+The next morning I went outside to touch grass and listened, then I heard it, a voice from beyond the void. A dark voice. A being that controls all, The Tree of Creation.

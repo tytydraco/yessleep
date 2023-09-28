@@ -14,9 +14,9 @@ At first I thought the whole thing sounded kind of... well, *trash*. The develop
 
 Thirty thousand; *with opportunities for bonuses.*
 
-My live stream had long since fizzled out, but even when I had been pulling in hundreds of viewers a day I only made a couple thousand. Plus, the winnings from the tournament I won last year were already wearing thin. This was a no brainier.
+My live stream had long since fizzled out, but even when I had been pulling in hundreds of viewers a day I only made a couple thousand. Plus, the winnings from the tournament I won last year were already wearing thin. This was a no brainer.
 
-I signed onto discord and joined one of the servers for high level comp players. Before I could even ask, I had my answer... people were already talking about the mysterious offer. After way too much digital chest pounding and trash talking we found out that around twenty of us in had been invited. Of course all of us were high level players but it didn't seem like there was any rhyme or reason to the selection. Some of the rich players who had made it big from BaseKnight weren't interested, but others said they would participate just to see what the game was about.
+I signed onto discord and joined one of the servers for high level comp players. Before I could even ask, I had my answer... people were already talking about the mysterious offer. After way too much digital chest pounding and trash talking we found out that around twenty of us had been invited. Of course all of us were high level players but it didn't seem like there was any rhyme or reason to the selection. Some of the rich players who had made it big from BaseKnight weren't interested, but others said they would participate just to see what the game was about.
 
 ***
 
@@ -28,11 +28,11 @@ The building was kind of inconspicuous and not really what I expected. They didn
 
 Immediately the group sounded their amazement. The room looked less like and office building and more like a world class lounge. There was even a small cafeteria we were told was complimentary. Large spacious desks with premium equipment were placed around the room. Zane told us his primary focus was to make sure we felt right at home. After we had all settled down Zane directed our focus to a large screen with what was presumably the Battle Guardian menu.
 
-*"This, ladies and gentlemen, is* ***Battle Guardian!***" he proclaimed proudly as the the game demo began to play.
+*"This, ladies and gentlemen, is* ***Battle Guardian!***" he proclaimed proudly as the game demo began to play.
 
 If the group was impressed by the room, our astonishment at the game itself was double.
 
-"*What? Is this the new 'Unreal Engine' it looks like real life!"*
+"*What?! Is this the new 'Unreal Engine' it looks like real life!"*
 
 "*The detail in the map is c-razy, this must have taken years..."*
 
@@ -44,7 +44,7 @@ At the end of that first day the group was ecstatic. We had played for hours, al
 
 ***
 
-The group excitedly poured into the gaming lounge when the doors opened. A few were trash talking each other, boasting about how well they would do today.
+The group excitedly poured into the gaming lounge when the doors opened. A few were trash talking each other, boasting about how well they would do that day.
 
 Zane walked in with a smile "Hey everybody! Easy now, there will be time enough for competition later..." gesturing to those who had been arguing.
 
@@ -64,7 +64,7 @@ I wasn't really feeling like a 'try hard' at the moment and wanted to see what t
 
 **Lame.**
 
-Eventually my character turned around automatically refacing toward the objective markers. I reluctantly walked towards the men around the fire. I didn't recognize where the game was supposed to be taking place. They wore generic looking middle eastern garb and spoke a language I had never heard. Suddenly the men stood up in shock and pointed to my character. What they were saying was unintelligible to me, but suddenly the game translated it to English. I remembered seeing a similar mechanic in some older game.
+Eventually my character turned around automatically refacing toward the objective markers. I reluctantly walked towards the men around the fire. I didn't recognize where the game was supposed to be taking place. They wore generic looking middle eastern garb and spoke a language I had never heard. Suddenly the men stood up in shock and pointed to my character. What they were saying was unintelligible to me, but suddenly the game translated into English. I remembered seeing a similar mechanic in some older game.
 
 "*Tie him up! Tie the bastard up!"*
 
@@ -112,7 +112,7 @@ One mission I was in some small village in Africa or something. I had to shoot t
 
 I stared at the screen for like twenty seconds while the NPC just sat there crying. It was uncanny valley territory. Suddenly he got up to run. I didn't want to hear Zane complain about me 'not playing properly' so I shot him as he was jumping out a window... The thing that really messed me up though was when he started to cry out a name "My boy... *Abimbola**, **ABIMBOLA!" **he was shouting. I recoiled at the screen, did they have to make it this graphic? I would definitely bring this up to Zane.*
 
-MISSION PASSED appeared on screen in big bold gold letters with a tally of my mission score.
+MISSION PASSED appeared on screen in big bold gold letters with a tally of my score.
 
 A+
 
@@ -120,7 +120,7 @@ I watched as my name moved up the leader board to second place. Hmm.... maybe I 
 
 ***
 
-For the next week all of us played the game with fervor. I adapted to some of the quirks and was actually getting quite good at it. As I played different weapons were unlocked and I never saw the same mission. I mean of course some of them were very similar but they all were somewhat unique. We played battle royale most of the time but we would complete at least a few solo missions a day.
+For the next week all of us played with fervor. I adapted to some of the quirks and was actually getting quite good. As I played different weapons were unlocked and I never saw the same mission. I mean of course some of them were very similar but they all were somewhat unique. We played battle royale most of the time but we would complete at least a few solo missions a day.
 
 I rarely saw Zane and when I did he was generally on his phone talking in a hushed voice. I figured he must have been busy as the game was probably nearing release.
 
@@ -136,7 +136,7 @@ Someone had slipped behind my character and tied me up. I watched as my player w
 
 I recalled the oddly realistic mission from a few days ago.
 
-"We've got five minutes. Five!? Do you hear me. We were able to hack into your connection remotely. Apparently your boss doesn't trust you enough to run a mission alone. How does that make you feel? Watching your every move. You must be real loyal..."
+"We've got five minutes. Five!? Do you hear me. We were able to hack into your connection remotely. Apparently they don't trust you enough to run a mission alone. How does that make you feel? Watching your every move. You must be real loyal..."
 
 The dialogue was going on for quite a while. I figured it was a scripted mission but was starting to get confused. I looked around the lounge, the others completely focused, blasting away. 
 
@@ -156,9 +156,9 @@ I stared at the screen in disbelief. Was I supposed to move the camera around? I
 
 I was dumbfounded. Was this mission for real? This made no sense... killing machines? We're we playing as some kind of mech or something? My thoughts chugged along struggling to connect. If someone was looking me in the eyes right then they would have heard the old 'dial up tone' as they peered into my blank stare.
 
-Suddenly it was like a train hit me.
+It was like a train hit me.
 
-"Is this who you work for!" she was holding up a picture of Zane.
+"Is this who you work for?!" she was holding up a picture of Zane.
 
 I knew it then, I couldn't actually understand it conceptually but somehow I knew it. This game... it wasn't a game! These *were* real people... I thought of the man calling out the name of his son. I couldn't breathe, my ears started ringing, I could hardly see through the water pooling in my eyes.
 
@@ -166,7 +166,7 @@ I started to shake the mouse violently up and down.
 
 "It's Zane..." she said bitterly.
 
-"Innocent peoples live are at stake here! Do you have no remorse!?"
+"Innocent peoples lives are at stake here! Do you have no remorse!?"
 
 Again I shook the mouse rapidly.
 
@@ -182,15 +182,15 @@ I shook the mouse left and right.
 
 I continued.
 
-"This isn't gonna work..." she said and suddenly cut 'my' hand loose.
+"This isn't gonna work..." she said and suddenly cut *'my'* hand loose.
 
 "I'm going to give you this gun and we're going to leave the room. You are going to spell out for me where you are with bullets. Got it? Try anything and I will find you and gut you."
 
-I nodded, scanning the room around me. Nobody aware of the fact I was a crying wreck in the corner of the room.
+I nodded, scanning the room around me. Nobody aware of the fact I was a crying wreck in the corner of the lounge.
 
-I looked up the coordinates of the warehouse online and shot them into the wall like I had done in countless games before, only this time lives at stake.
+I looked up the coordinates of where I was online and sprayed them into the wall. Writing like I had done in countless games before, only this time, lives at stake.
 
-*LONGITUDE* XX *LATITUDE* XX
+***LONGITUDE XX LATITUDE XX***
 
 I closed the program.
 
@@ -200,32 +200,34 @@ Zane entered the room looking directly at me and walked over. "Done for the day?
 
 Suddenly Zane got a call. His brow furrowed as he put his ear the phone.
 
-"EVERYONE WE GOTTA PACK IT UP!" He yelled more loudly and more strictly then we had ever heard. "NOW!"
+"EVERYONE WE GOTTA PACK IT UP!" He yelled more ferociously then we had ever heard. "NOW!"
 
 Everyone eventually snapped out of it and made their way out of the building confused.
 
-Zane said we were done for the day and everyone stared at him confused. After insisting, they all got into their cars and drove off. I faked walking off and hid behind some bushes across the street. I watched as Zane and Co loaded everything into black trucks. If I wasn't scared out of my wits I would have said it was impressive. They peeled off in less then five minutes.
+Zane said we were done for the day and everyone stared at him bewildered. After insisting, they all got into their cars and drove off. I faked walking off and hid behind some bushes across the street. 
+
+I watched as Zane and Co loaded everything into black trucks. If I wasn't scared out of my wits I would have said it was impressive. They peeled off in less then five minutes.
 
 I sat there on the side walk coping with everything that had just happened.
 
-Suddenly several vehicles skidded into the parking lot. Men in balaclavas armed with assault rifles rushed the building. They didn't look like any agency I had ever seen but they were gone almost as soon as they had got there. 
+From out of nowhere several vehicles skidded into the parking lot. Black clade figures in balaclavas armed with assault rifles rushed the building. They didn't look like any agency I had ever seen but they were gone almost as soon as they had arrived. 
 
 Zane was gone.
 
 ***
 
-Everyone was pretty shocked when the realized the devs had disappeared. They complained on discord for weeks about how it was the best game they had ever played and they couldn't wait for the release date.
+Everyone was pretty shocked when they realized the devs had disappeared. They complained on discord for weeks about how it was the best game they had ever played and that they couldn't wait for the release date.
 
-Some wondered if the company had gone bankrupt but all of us got our checks deposited.
+Some wondered if the company had gone bankrupt, but we all had our checks deposited.
 
 I still haven't spent a dollar of it.
 
-Most of the time I just stare out the window thinking about what I had done. Did any of them realize what we did? We were all cold blooded killers now... they weren't the least bit aware...
+Most of the time I just stare out the window thinking about what I've done. Did any of them realize what we did? We were all cold blooded killers now... they weren't the least bit aware...
 
 Or were they? Their laughs haunting me, remembering as they tormented '*NPC*s', hysterical as they danced on the bodies, and worse... I can barely bring myself to remember. They must have known... they must have...
 
-I tried to sleep but I couldn't, every night all I could see was the face of the man in the African village crying out the name of his son....
+I've tried to sleep but I can't, every night all I can see is the face of the man in the African village crying out the name of his son....
 
 *'Abimbola, Abimbola...'*
 
-I don't play games any more.
+I don't play games anymore.

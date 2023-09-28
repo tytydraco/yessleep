@@ -454,6 +454,6 @@ As before, reading my old posts brought back my emotions, and after I called my 
 
 [Part 1](https://www.reddit.com/r/nosleep/comments/16s85s5/i_see_corpses_glow/) - [Part 2](https://www.reddit.com/r/nosleep/comments/16t66yn/i_see_corpses_glow_and_i_wish_i_didnt/)
 
-}-----
+\-----
 
 [SR](https://www.reddit.com/r/Skittishreflections)
