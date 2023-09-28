@@ -62,7 +62,7 @@ I wasn't really feeling like a 'try hard' at the moment and wanted to see what t
 
 *LEAVING MISSION AREA, LEAVING MISSION AREA...*
 
-**Lame.**
+***Lame.***
 
 Eventually my character turned around automatically refacing toward the objective markers. I reluctantly walked towards the men around the fire. I didn't recognize where the game was supposed to be taking place. They wore generic looking middle eastern garb and spoke a language I had never heard. Suddenly the men stood up in shock and pointed to my character. What they were saying was unintelligible to me, but suddenly the game translated into English. I remembered seeing a similar mechanic in some older game.
 
@@ -110,7 +110,7 @@ What really bothered me though, and I didn't tell them then, but the game felt *
 
 One mission I was in some small village in Africa or something. I had to shoot through a bunch of soldiers but when I got to the target his dialogue really got to me. I mean, I get being accurate to life but this just felt unnecessary. I was about to complete the mission when the character model spread his arms in the air and said 'WAIT!'. He looked at me dead in the eyes and I swear it was the realest expression I had ever seen... and I don't just mean in a game. He was sobbing and his voice was hoarse, suddenly he said *'I have a son! Please'*. To be honest it freaked me out. I just wanted to be done with the mission.
 
-I stared at the screen for like twenty seconds while the NPC just sat there crying. It was uncanny valley territory. Suddenly he got up to run. I didn't want to hear Zane complain about me 'not playing properly' so I shot him as he was jumping out a window... The thing that really messed me up though was when he started to cry out a name "My boy... *Abimbola*, *ABIMBOLA!"* he was shouting. I recoiled at the screen, did they have to make it this graphic? I would definitely bring this up to Zane.*
+I stared at the screen for like twenty seconds while the NPC just sat there crying. It was uncanny valley territory. Suddenly he got up to run. I didn't want to hear Zane complain about me 'not playing properly' so I shot him as he was jumping out a window... The thing that really messed me up though was when he started to cry out a name "My boy... *Abimbola*, *ABIMBOLA!"* he was shouting. I recoiled at the screen, did they have to make it this graphic? I would definitely bring this up to Zane.
 
 MISSION PASSED appeared on screen in big bold gold letters with a tally of my score.
 
