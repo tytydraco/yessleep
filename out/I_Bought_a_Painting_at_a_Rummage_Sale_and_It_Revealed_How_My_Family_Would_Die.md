@@ -1,4 +1,4 @@
-The painting had caught my eye at the sweltering summer-day rummage sale. Amidst the jumbled collection of old furniture, tarnished silverware, and stacks of faded books, it hung on the wall, drawing me in like a moth to a flame.
+[The painting](https://imgur.com/a/OR6fRhN) had caught my eye at the sweltering summer-day rummage sale. Amidst the jumbled collection of old furniture, tarnished silverware, and stacks of faded books, it hung on the wall, drawing me in like a moth to a flame.
 
 “Hey, take a look at this,” I called to my friend, Sarah, who had accompanied me on this treasure hunt.
 
