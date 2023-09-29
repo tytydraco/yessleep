@@ -46,7 +46,7 @@ Before leaving the office, I take a few extra precautions. I put my phone on air
 
 The drive is nerve-wracking, my mind oscillating between worries about Xuan and guilt about deceiving Reine. I try to focus on the investigation at hand. My first stop is Xuan’s apartment.
 
-As I park my car a block away from Xuan’s Uptown apartment complex, my burner phone buzzes with a new text message. It’s from Kira. I had given her this number just in case we need to keep in contact.
+As I park my car a block away from Xuan’s Uptown apartment complex, my burner phone buzzes with a new text message. It’s from Kira. I gave her this number just in case we need to keep in contact.
 
 "Stay safe, anh."
 
