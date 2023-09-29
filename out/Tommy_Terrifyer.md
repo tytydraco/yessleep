@@ -1,5 +1,5 @@
 
-My husband, Thomas, is a writer of short horror and I'm very proud of him. He crafts these unique little stories about horrific situations and people really seem to like them. I won't name-drop here, but you may have read some of his work if you've been in the community for a while. He writes a lot and his stories have been read by a lot of different narrators, but recently things have changed.
+My husband, Thomas, is a writer of short horror and I'm very proud of him. He crafts these unique little stories about horrific situations and people really seem to like them. He writes a lot and his stories have been read by a lot of different narrators, but recently things have changed.
 
 
 He's been thinking of narrating his own stories for years, but he just never thought he was up to the task. His voice won't play well with the audience. No one will want to hear someone read their own stories. His stories aren't very good, even though he makes money writing them. He has a thousand and one excuses, but finally, I told him to just try it out and keep his expectations realistic.
