@@ -6,9 +6,9 @@ The morning sun filters through the shutters of our office in the French Quarter
 
 Yet, that normalcy is tainted with tension. Reine and I had a spat this morning over how she rearranged the office supplies. A silly thing, really. Something about her needing the space on the desk for "personal matters" which she didn't clarify. But these days, it feels like those little annoyances are the only constants in our relationship. The lighthearted teasing and warmth we shared last night at the Tet dinner feels like a distant dream. The return to our day-to-day life brings the same petty, inconsequential bullshit arguments back on the menu. A heavy sigh escapes my lips. Is this the new norm?
 
-The desktop pings, bringing me back to the present. The background report I requested on Xuan is in. A quick skim reveals no major red flags. He's an accomplished quantum physicist, respected in his field, and a prominent lecturer at Tulane. No arrest record. All things that I know already.
+The desktop pings, bringing me back to the present. The background report I requested on Xuan is in. A quick skim reveals no major red flags. Most details about his life I know already. He's an accomplished quantum physicist, respected in his field, and a prominent lecturer at Tulane. No arrest record. Another detail surfaces that tugs at a personal chord within me; Xuan came to America as a refugee at the tender age of six. His family were boat people, escaping the aftermath of the Vietnam War. My own parents were boat people. I've grown up listening to their stories, feeling their silent pain. The horrors Xuan must have witnessed, I can't even begin to imagine. What that does to a person's soul...
 
-But there’s a detail that catches my eye: he’s a member of some sort of academic organization, full of leading scientists and engineers. 'Nexus Consortium.’ The name sounds innocuous enough, but my gut tells me it's worth digging deeper.
+One random detail does catches my eye though: he’s a member of some sort of academic organization, full of leading scientists and engineers. 'Nexus Consortium.’ The name sounds innocuous enough, but my gut tells me it's worth digging deeper.
 
 I shut down the computer. And just as I'm getting up, Reine looks over, her eyebrow raised in that inquisitive manner I've grown fond of. "Where are you off to in such a hurry?"
 
