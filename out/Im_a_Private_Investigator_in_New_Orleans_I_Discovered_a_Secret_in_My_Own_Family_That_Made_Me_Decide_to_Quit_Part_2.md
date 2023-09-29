@@ -4,7 +4,7 @@
 
 The morning sun filters through the shutters of our office in the French Quarter, casting long, dappled shadows on the worn wooden floor. The faint hum of jazz from a nearby club and the distant chatter of tourists lend a semblance of normalcy to the room.
 
-Yet, that normalcy is tainted with tension. Reine and I had a spat this morning over how she rearranged the office supplies. A silly thing, really. Something about her needing the space on the desk for "personal matters" which she didn't clarify. But these days, it feels like those little annoyances are the only constants in our relationship. The lighthearted teasing and warmth we shared last night at the Tet dinner feels like a distant dream. The return to our day-to-day life brings the same petty, inconsequential bullshit arguments back on the menu. A heavy sigh escapes my lips. Is this the new norm?
+Yet, that normalcy is tainted with tension. Reine and I had a spat this morning over how she rearranged the office supplies. Something about her needing the space on the desk for "personal matters" which she didn't clarify. But these days, it feels like those little annoyances are the only constants in our relationship. The lighthearted teasing and warmth we shared last night at the Tet dinner feels like a distant dream. The return to our day-to-day life brings the same petty, inconsequential bullshit arguments back on the menu. A heavy sigh escapes my lips. Is this the new norm?
 
 The desktop pings, bringing me back to the present. The background report I requested on Xuan is in. A quick skim reveals no major red flags. Most details about his life I know already. He's an accomplished quantum physicist, respected in his field, and a prominent lecturer at Tulane. No arrest record. Another detail surfaces that tugs at a personal chord within me; Xuan came to America as a refugee at the tender age of six. His family were boat people, escaping the aftermath of the Vietnam War. My own parents were boat people. I've grown up listening to their stories, feeling their silent pain. The horrors Xuan must have witnessed, I can't even begin to imagine. What that does to a person's soul...
 
@@ -60,7 +60,7 @@ Throughout the day, I shadow Xuan from one location to another, always maintaini
 
 While Xuan is in a diner grabbing lunch, I take the opportunity to make some notes on the day’s observations. Distracted, I barely register the soft knocking on my car window until it becomes more insistent. Startled, I look up, my heart sinking when I see Reine's face, her eyes flashing with a mix of confusion and anger.
 
-“What the hell, Ash? What are you doing here?” she demands. The urgency in her voice is sharp, unyielding.
+"Espèce d'enculé!" (You fucking asshole!) she spits, her voice is sharp, unyielding. She only brings out the R-rated French when she's really mad.
 
 My mind races, scrambling to assemble a plausible excuse. “I, uh...” I stutter, failing to form a coherent sentence.
 
@@ -68,13 +68,9 @@ She opens the car door, her eyes scanning the dashboard cluttered with notes and
 
 “How did you—” I begin to ask.
 
-“The burner phone, Ash,” she interrupts, exasperation tinting her voice. “You left the box in your trash bin. I checked with Amber. You’re not working on the Landry case. Also you left your email logged in. I saw background check you requested on Xuan. ”
+“The burner phone, Ash,” she interrupts, exasperation tinting her voice. “You left the box in your trash bin. I checked with Amber. You’re not working on the Landry case. Also you left your email logged in. I saw the background check you requested on Xuan. ”
 
 My face flushes with a mix of embarrassment and frustration. I was careless, made rookie mistakes. The first was believing that I could outwit a former NOPD detective who knows me better than anyone.
-
-“Reine, I—”
-
-“I thought you might be having an affair,” she cut me off, her voice dripping with bitterness. “But this… This is clearly something entirely different.”
 
 She slides into the passenger seat, her presence filling the confined space, making it feel even smaller. The weight of her disappointment anchors me to the seat, a visceral reminder of the rift between us. My initial instinct is to salvage the situation with more lies, but the look in her eyes stops me. She deserves the truth.
 
@@ -152,7 +148,7 @@ Just then, the scene inside the diner blurs for a split second as if distorted b
 
 The world snaps back to normal as swiftly as it changed, leaving me gasping for breath, gripping the car's interior for support.
 
-Reine’s face is white as a sheet. “Did you see that, Ash?” I feel her hand clutch mine, her grip tight with fear and anticipation.
+Reine’s face is white as a sheet. “Did you see that?” I feel her hand clutch mine, her grip tight with fear and anticipation.
 
 “You saw that too?” I reply, my heart pounding against my chest like a frantic drum.
 
