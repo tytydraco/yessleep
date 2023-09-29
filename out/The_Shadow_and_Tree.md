@@ -14,4 +14,4 @@ And then something odd happened. I started to regenerate? My bones, flesh, and s
 
 Another odd thing happened, I shocked them with lighting without thinking about it. They flunk back 20 yards into the void. I could see their organs and so I went for it. They screamed. As I ripped their heart out and inverted it. Killing them. I went back into my room from the void and went to sleep.
 
-The next morning I went outside to touch grass and listened, then I heard it, a voice from beyond the void. A dark voice. A being that controls all, The Tree of Creation. They are evil; and they are Destiny.
+The next morning I went outside to touch grass and listened, then I heard it, a voice from beyond the void. A dark voice. A being that controls all, The Tree of Creation. They are evil; they are Destiny.

@@ -138,3 +138,5 @@ I'll update you next time, my friends on the other side.
 Until then, keep your eyes peeled for strange bathrooms in stranger retail chains.
 
 See ya.
+
+Pt 13- https://www.reddit.com/r/nosleep/comments/16uwvkp/trapped_in_the_dollar_general_beyond_pt_13_the/?utm_source=share&utm_medium=web2x&context=3

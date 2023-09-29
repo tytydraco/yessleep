@@ -1,0 +1,15 @@
+I have always suffered from the most horrific lucid nightmares. Whenever I wake up in a cold sweat from a particularly terrifying nightmare that shook me from my peaceful sleep, I sit up and take several deep breaths, trying to calm myself down. Oftentimes in these moments, it feels as if my heart is about to explode out of my chest it’s beating so fast. It’s not odd for my eyes to water and my hands to shake as well. 
+
+
+The worst part about having a lucid nightmare is that you are very aware that you are in one. Oftentimes, you have full control over your own body and all 5 senses. Things don’t have to make sense in this nightmare world, I myself have had times where I’ll scale a wall, walk on water or even fly to try and escape a situation. Sounds fun right? Think again. Because even though the laws of reality may not always apply to me, it doesn’t apply to anything else either. Which can lead to some terrible situations. 
+
+Throughout my life, I have spent hours researching different wants to differentiate nightmares from real life or even episodes of sleep paralysis. Whenever I find myself to be in this state, I always do several tests. I pinch my nose to see if I can still breathe through it, if I can’t I know I’m awake. I push my finger into my palm, if it goes through I know that I’m indeed still in the nightmare. Perhaps the simplest test of all, I look at the tattoo I have on my hand, if I can’t make it out or it looks different, I know with absolute certainty that I’m still asleep. I perform this quick and thorough post-nightmare checklist every single time with nothing but my ragged breathing as the soundtrack for my near breakdown. It feels as if nothing can calm me in this moment.
+
+
+Then, only seconds after I perform my waking ritual as if on cue, I feel her warm arms wrap around me in a loving embrace. She takes my hand in hers and kisses me gently on my neck. Her other hand slowly rubs my arm, comforting me further. I can smell her sweet scent as the feeling of her sensitive touch causes goosebumps to form on my arm. 
+
+
+She rests her head against mine, and I can feel her long hair on my neck and shoulders. It’s equally as comforting. Her soft skin feels so delicate and wonderful, and I can feel the love she has for me radiating off of her. Chasing away any darkness, demons, or reality-bending ghouls that may still reside in my head. 
+
+
+Anytime I am woken by a night terror, it's the same routine. As the panic sets in, she's right there with her calming presence. It’s nice, right? Having someone who holds such a deep love for you that they are there at a moment's notice to comfort you, even in the middle of the night? I suppose it is. Some would say that I’m a very lucky person. However, theres only one problem with this whole situation…I live alone.
