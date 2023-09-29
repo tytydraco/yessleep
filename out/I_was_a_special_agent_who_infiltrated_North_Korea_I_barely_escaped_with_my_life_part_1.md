@@ -191,3 +191,11 @@ Before I knew what was happening, I saw Agent Hudson take out his tranquilizer g
 “Oh,” she said, falling. Agent Hudson scooped her up in his arms as the knocks came from the front door- loud and insistent. Soldiers yelled in North Korean, stating that enemy agents had infiltrated the area and a search was underway. Agent Hudson ran to the bedroom, throwing the woman down on the threadbare mattress. I heard crashing from the front and back of the house, and heavy boots began to thud on the wooden floors. Without thinking, Agent Hudson and I took refuge in a closet in the bedroom, shutting the door quietly behind us though leaving a slit to see outside.
 
 And we waited for the men to come in and discover us with guns drawn and take us to the torture chamber.
+
+&#x200B;
+
+Part 2
+
+[https://www.reddit.com/r/nosleep/comments/16v9aan/i\_was\_a\_special\_agent\_who\_infiltrated\_north\_korea/](https://www.reddit.com/r/nosleep/comments/16v9aan/i_was_a_special_agent_who_infiltrated_north_korea/)
+
+&#x200B;
