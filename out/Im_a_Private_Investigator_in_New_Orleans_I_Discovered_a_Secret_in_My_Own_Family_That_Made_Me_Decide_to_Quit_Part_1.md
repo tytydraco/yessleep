@@ -8,7 +8,7 @@ The text I received earlier in the day still looms over me. "We need to talk." T
 
 Sitting next to me, Reine, my wife and crime-solving partner, nervously checks herself in the sun visor mirror for what seems like the hundredth time. Her brunette locks cascade down her back in soft waves, contrasting with her porcelain skin. Her gray eyes, deep and enigmatic, dart from the mirror to the scenery outside and back again. Her red lips purse in anxiety.
 
-After a decade of marriage, you'd think she'd be accustomed to these visits. Yet she looks more terrified now than she did facing [the Beast of the Bayou](https://www.reddit.com/r/nosleep/comments/1581vef/our_search_for_a_missing_teen_uncovered_the/) last summer.
+After a decade of marriage, you'd think she'd be accustomed to these visits. Yet she looks more terrified now than she did facing the [Beast](https://www.reddit.com/r/nosleep/comments/1581vef/our_search_for_a_missing_teen_uncovered_the/) of the Bayou last summer.
 
 "Can you give it a rest? You look fine," I snap, more harshly than I intend to.
 
@@ -310,7 +310,7 @@ The mass seems to shimmer and undulate, as if it's not completely of this dimens
 
 Whispers echo around the room, not from the people present but from the entity itself. It speaks in a multitude of voices, a cacophonous symphony of tones and pitches, the language indescribable and unlike anything of this earth. The voices grow louder, building to a deafening crescendo before everything suddenly goes quiet.
 
-The abrupt silence is stifling. The [creature](https://www.youtube.com/watch?v=VLE0P3hr8ZY&t=8484s), a maelstrom of shadows and whispers, speaks again, this time in English. The voice is a myriad of tones intertwined, reverberating in chilling harmony, like the sound of an ancient, cosmic bell. "The spheres align. Three days. The passageway will unfurl," it intones.
+The abrupt silence is stifling. The creature, a maelstrom of shadows and whispers, speaks again, this time in English. The voice is a myriad of tones intertwined, reverberating in chilling harmony, like the sound of an ancient, cosmic bell. "The spheres align. Three days. The passageway will unfurl," it intones.
 
 Then, as if sensing an outside presence, the entity starts to turn slowly, its amorphous form constantly shifting as if trying to find a face within its depths. Just as it seems to lock onto the camera's location, the video ends abruptly, the screen going black.
 
@@ -352,10 +352,12 @@ We stand, realizing that the childhood nook doesn't conceal us like it used to. 
 
 Reine eyes us skeptically but shakes her head with a playful smile. "Well, I just did a rendition of 'Billie Jean.' Let’s just say MJ is probably turning in his grave," she says, brandishing a microphone like a trophy. "Your turn to suffer, my love."
 
-I take the mic from Reine, my hand brushing against hers. Her skin is warm and comforting, a stark contrast to the [chill](https://www.youtube.com/watch?v=baUKK0y48QE&t=2990s) that has settled deep within my bones. “You set the bar so high,” I tease with a forced laugh, trying to make light of the situation. “I don’t know how I can compete with the Cajun Queen.”
+I take the mic from Reine, my hand brushing against hers. Her skin is warm and comforting, a stark contrast to the chill that has settled deep within my bones. “You set the bar so high,” I tease with a forced laugh, trying to make light of the situation. “I don’t know how I can compete with the Cajun Queen.”
 
 Reine laughs. “Oh, just wait till you see me moonwalk,” she teases, her eyes twinkling.
 
 As we walk back towards the laughter and light of the living room, Kira's gaze finds mine, a silent plea reflected in her eyes, reinforcing the pact of secrecy between us. I give her a subtle nod, a promise shrouded in dread and uncertainty.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/16unbjt/im_a_private_investigator_in_new_orleans_i/)
 
 [X](https://www.reddit.com/r/PageTurner627Horror/)

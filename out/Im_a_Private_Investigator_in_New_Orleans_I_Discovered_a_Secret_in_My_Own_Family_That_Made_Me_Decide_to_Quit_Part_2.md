@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/PageTurner627Horror/comments/16us6lf/im_a_private_investigator_in_new_orleans_i/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/16texdg/im_a_private_investigator_in_new_orleans_i/)
 
 **The Stakeout**
 
@@ -159,3 +159,5 @@ Reine’s face is white as a sheet. “Did you see that, Ash?” I feel her hand
 The silence in the car is heavy as we watch Xuan and Lockhart leave the diner. They go their separate ways, a casual observer would think nothing of the meeting.
 
 But we know differently. We stumbled into a web far more intricate and dangerous than we could ever imagined. There's no turning back now.
+
+[X](https://www.reddit.com/r/PageTurner627Horror/)
