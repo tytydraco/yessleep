@@ -1,4 +1,4 @@
-I work law enforcement and this report came across my desk today. This is only the first half of the report, and I am working on locating the second part, but in the interim, I feel the need to share this information with the public. If any of you are acquainted with individuals who have been impacted by the following situation, I implore you to contemplate submitting an anonymous tip if you possess any relevant information.
+I work law enforcement and this report came across my desk today. I feel the need to share this information with the public. Here is the second part of the report: [https://www.reddit.com/r/nosleep/comments/16vdarl/im\_going\_to\_lose\_my\_job\_for\_showing\_you\_this/](https://www.reddit.com/r/nosleep/comments/16vdarl/im_going_to_lose_my_job_for_showing_you_this/)
 
 Case File: #2023-109  
 Date: September 25, 2023
