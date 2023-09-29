@@ -115,7 +115,7 @@ The cold water interrupted my scream, and I coughed and sputtered after I splash
 
 I looked up, and I froze in shock. The bird had a woman’s face. A beautiful woman, if it wasn’t for her red eyes and small, pointy teeth.
 
-I heard Desmod and I looked down in relief, seeing him, Mika, and Mikasa's team bobbing in the water alongside two dead sirens.
+I heard Desmod and I looked down in relief, seeing him, Mika, and Mika's team bobbing in the water alongside two dead sirens.
 
 “Mika, when did the Uster Clan start giving recruits helicopter tours?” the siren asked.
 
