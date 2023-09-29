@@ -629,7 +629,7 @@ But before I closed my eyes, I reached for my phone, and rereading my previous p
 
 I called my parents and friends, but yet again I couldn’t tell them anything. I was trapped. I was helpless.
 
-[Part 1](https://www.reddit.com/r/SkittishReflections/comments/16sacp0/i_see_corpses_glow/?utm_source=share&utm_medium=web2x&context=3) - **Part 2** - [Part 3](https://www.reddit.com/r/nosleep/comments/16u2kp1/i_see_corpses_glow_and_im_sick_of_it/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/16s85s5/i_see_corpses_glow/) - **Part 2** - [Part 3](https://www.reddit.com/r/nosleep/comments/16u2kp1/i_see_corpses_glow_and_im_sick_of_it/) - [Part 4](https://www.reddit.com/r/nosleep/comments/16uymin/i_see_corpses_glow_and_now_i_know_why/)
 
 \-----
 
