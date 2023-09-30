@@ -877,3 +877,7 @@ We’ve been stuck here for almost a month now. I swear I find myself reaching f
 &#x200B;
 
 Oh well, we are still alive so at least there’s that. In the meantime, I’ll be uploading this from my own phone as soon as we have a connection. Hopefully, we find out what’s going on. This is [Zane,](https://www.reddit.com/r/StoriesFromRose/) logging [out.](https://www.threads.net/@rose_black2222)
+
+&#x200B;
+
+[https://www.reddit.com/r/nosleep/comments/16w0tca/records\_from\_a\_research\_assitant\_the\_game\_in\_the/](https://www.reddit.com/r/nosleep/comments/16w0tca/records_from_a_research_assitant_the_game_in_the/) (Why is it fascinated with me?)
