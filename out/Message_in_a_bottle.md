@@ -16,7 +16,7 @@ Just then, my experience was ransacked with mental data, all of which I could co
 
 In that instant, I remembered everything... Who I was... Where I'm from... The horrors that I left...
 
-Currently, the year is 2019. My name is Arthur Hewitt Saiz II. I was born 23 years from now, on March 24th, 2043. Growing up, everything was changing, rapidly. I was one of the few of my generation born without an implant. Every one of my friends had one. If they tried to be sneaky, their parents would usually be able to catch them. A few of them knew how to wirelessly hack them, make the tracker follow a designated path, unsuspicious to their parents. A feat seemingly genius to today's standard, but not much different, I suppose, than 'jailbreaking' a smartphone.
+Currently, the year is 2023. My name is Arthur Hewitt Saiz II. I was born 21 years from now, on March 24th, 2044. Growing up, everything was changing, rapidly. I was one of the few of my generation born without an implant. Every one of my friends had one. If they tried to be sneaky, their parents would usually be able to catch them. A few of them knew how to wirelessly hack them, make the tracker follow a designated path, unsuspicious to their parents. A feat seemingly genius to today's standard, but not much different, I suppose, than 'jailbreaking' a smartphone.
 
 I never understood why they ever called them "smart" anything. This time was good for one thing, though. Around the turn of the 22nd century, due to the technological advancements of the prior century, technologies like direct brain-internet interfaces, the evolved internet of things, full-sensory media and social media, along with many more I'd spend hours describing, humanity will become more connected than anyone of you could possibly imagine. The closest descriptor I could use would be 'Hivemind', but even that fails to emphasize the magnitude of such interconnectedness.
 
@@ -42,7 +42,7 @@ The hivemind-like nature of humanity, just like all else, is a double-edged swor
 
 The more we progressed, the less we fed our ego and the more we fed our love, at least that's what it seemed.
 
-Here, in 2019, as I've scoured the internet, over the last painstakingly slow 81 minutes, I have discovered a few things that our (future) history has taught differently, but I digress. One aspect that seems quite controversial today are "NSFW" videos, not pornography, but gore, mutilation, etc. Your society seems to have so much negativity toward these videos, but by the end of the century, you will realize that these are a natural part of the expansion.
+Here, in 2023, as I've scoured the internet, over the last painstakingly slow 81 minutes, I have discovered a few things that our (future) history has taught differently, but I digress. One aspect that seems quite controversial today are "NSFW" videos, not pornography, but gore, mutilation, etc. Your society seems to have so much negativity toward these videos, but by the end of the century, you will realize that these are a natural part of the expansion.
 
 A quote, not yet spoken by The Great (Even greater than he is today) Elon Musk reads, "When many become one, the whispers between them become indistinguishable from the thoughts of God." Though, he admitted, in an interview, that he was told that quote by Jeff Martin. He is currently living but now is before his time of greatness.
 
