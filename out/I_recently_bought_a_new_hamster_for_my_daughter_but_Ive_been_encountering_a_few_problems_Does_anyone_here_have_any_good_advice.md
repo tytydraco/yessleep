@@ -28,7 +28,7 @@ The only strange thing I had found that morning was that the carpeted floor arou
 
 The police weren’t too much of a help. Ella was a thinking adult, after all. There was no sign of any struggle, and people are allowed to leave. I tried to break the news gently to Isobel over lunch that her mother had disappeared. But she seemed disinterested, indifferent almost.
 
-She seemed to be more focused on Mr Fuzzycheeks as she ate. Looking over from his cage to her plate of food. SHe swallowed a forkful of rice before looking up to me and asking, “Have you fed Mr Fuzzycheeks today? He looks hungry.”
+She seemed to be more focused on Mr Fuzzycheeks as she ate. Looking over from his cage to her plate of food. She swallowed a forkful of rice before looking up to me and asking, “Have you fed Mr Fuzzycheeks today? He looks hungry.”
 
 I stared at her, fork midway to mouth, as I tried to process what she had just said, ‘I. . .uhh, of course I have, sweetie. What makes you think I haven’t?”
 

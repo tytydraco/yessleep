@@ -191,5 +191,3 @@ Looking up I saw a kind of man, but tree-like, with four branch-like arms and th
 The music now had gone cacophonous, and the horns blared a terrible sound, overwhelming with sorrow.
 
 “The plum runs red and is almost dry.” He said in a soft whisper. “And the earth drinks up its life.”
-
-\- End Part 1 -
