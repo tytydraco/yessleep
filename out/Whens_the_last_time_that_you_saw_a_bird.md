@@ -50,7 +50,7 @@ We stepped into the elevator, and Jennifer pressed “4.”
 
 “I know that this might be a little scary for you, Kyle, but try to breathe through it,” she reassured me as the elevator began ascending. My heartbeat quickened, becoming a wild, tribal tattoo that boomed all the way from my shaking fingertips to my suddenly dizzy temples.
 
-*What the hell was going on?* The elevator stopped on the fourth floor, a sharp *ding* notifying us that the doors were preparing to open. From behind them, I heard another siren, *wahh-wahh-wahh*. It had to be outside, of course, but how the hell could the sound still be so loud in here?
+*What the hell was going on?* The elevator stopped on the fourth floor, a clarion *ding* notifying us that the doors were preparing to open. From behind them, I heard another siren, *wahh-wahh-wahh*. It had to be outside, of course, but how the hell could the sound still be so loud in here?
 
 “I’ve um, I’m not sure –”
 
