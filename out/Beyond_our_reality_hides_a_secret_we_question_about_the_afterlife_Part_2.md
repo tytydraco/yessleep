@@ -266,4 +266,4 @@ I stare at the old lady and gave her my answer. "I'm in." Then we both shake han
 
 [Part 1](https://www.reddit.com/r/nosleep/comments/149piw7/something_fell_from_the_sky_it_wasnt_a_meteorite/?utm_source=share&utm_medium=web2x&context=3)
 
-Part 3
+[Part 3](https://www.reddit.com/r/nosleep/comments/16ti26u/my_job_is_to_eliminate_the_cause_of_paranormal/?utm_source=share&utm_medium=web2x&context=3)
