@@ -2,9 +2,7 @@
 
 &#x200B;
 
-All this time, all this goddamn time, it was responsible for this. It was the one who…I’m getting ahead of myself. I’ll pick up where I left off last. It was a gruelingly slow process, but we finally
-
-managed to repair that phone I found.
+All this time, all this goddamn time, it was responsible for this. It was the one who…I’m getting ahead of myself. I’ll pick up where I left off last. It was a gruelingly slow process, but we finally managed to repair that phone I found.
 
 &#x200B;
 
