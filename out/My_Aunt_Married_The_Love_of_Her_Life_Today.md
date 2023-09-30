@@ -70,3 +70,7 @@ Everyone's eyes locked on me, a cold silence filling the garden. I choked on my 
 The silence shattered, erupting with screams, the ground shook as terrified people fled the scene. I was overwhelmed by the chaos, frozen to my stance as the area emptied itself of life. 
 
 Eventually after a few moments of sheer terror, I gathered the strength to move. I began to flee, making my way down the middle of the isles, only to hear the clacking of heels behind me. I turned, a quick flash of silver greeted my gaise, crimson taking its place.
+
+ I felt my blood vessels tearing apart one by one. My left eye was pulled free from its socket, The eyeball crucified upon the edge of the blade. The beautiful bride stood over me with a hateful look in her eyes, her virgin white gown now stained with my blood. 
+
+“I won’t let you ruin my happy ending.”
