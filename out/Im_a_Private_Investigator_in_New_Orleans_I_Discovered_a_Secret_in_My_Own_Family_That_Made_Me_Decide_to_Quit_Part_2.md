@@ -6,7 +6,7 @@ The morning sun filters through the shutters of our office in the French Quarter
 
 Yet, that normalcy is tainted with tension. Reine and I had a spat this morning over how she rearranged the office supplies. Something about her needing the space on the desk for "personal matters" which she didn't clarify. But these days, it feels like those little annoyances are the only constants in our relationship. The lighthearted teasing and warmth we shared last night at the Tet dinner feels like a distant dream. The return to our day-to-day life brings the same petty, inconsequential bullshit arguments back on the menu. A heavy sigh escapes my lips. Is this the new norm?
 
-The desktop pings, bringing me back to the present. The background report I requested on Xuan is in. A quick skim reveals no major red flags. Mostly details about his life I know already. He's an accomplished quantum physicist, respected in his field, and a prominent lecturer at Tulane. No arrest record. 
+The desktop pings, bringing me back to the present. The background report I requested on Xuan is in. A quick skim reveals no major red flags. Mostly details about his life I know already. He's an accomplished quantum physicist, respected in his field, and a prominent lecturer at Tulane. No arrest record.
 
 Another detail surfaces that tugs at a personal chord within me; Xuan came to America as a refugee at the tender age of six. His family were boat people, escaping the aftermath of the Vietnam War. My own parents were boat people. I've grown up listening to their stories, feeling their silent pain. The horrors Xuan must have witnessed, I can't even begin to imagine. What that does to a person's soul...
 
@@ -24,7 +24,7 @@ A thoughtful expression crosses her face. "Oh, right," she murmurs, her gaze dri
 
 Guilt gnaws at me. I hate lying to her, especially when it feels like the walls between us are growing taller every day. "Hey," I begin, my voice softer, "sorry about earlier. About the whole desk thing."
 
-She offers me a small smile, her hazel eyes locking onto mine, "It's okay. I overreacted. I just...I've been [craving](https://www.reddit.com/r/nosleep/comments/1581vef/our_search_for_a_missing_teen_uncovered_the/) space lately. That and some weird food combos."
+She offers me a small smile, her gray eyes locking onto mine, "It's okay. I overreacted. I just...I've been needing space lately."
 
 I chuckle, "You always have your quirks."
 
