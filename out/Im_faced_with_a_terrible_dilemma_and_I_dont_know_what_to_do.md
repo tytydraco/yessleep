@@ -1,0 +1,67 @@
+
+My sixteen-year-old daughter was abducted three days ago. She is in the company of a man so dangerous, so evil, that extreme caution is advised. Do not approach him under any circumstances. Should you encounter him, call the authorities… then run for your life!
+
+It all started on a trip to the Midwest. Jessica, my only child, was desperate to see where her late Mom had been raised. Jess was only three years old when my dear wife, Lisa, was killed in a hit-and-run. Her only memories of her mom were home movies of happier times. 
+ 
+Jess never failed to shed a tear when she watched her doting mom bouncing her on her knee singing her favorite song ‘Frosty the Snowman.’ Watching herself giggling, seeing the love her mom had for her tore her up. It got so bad that I forbade her to watch them as she invariably got angry and was becoming increasingly jealous of her friends who all had loving relationships with their moms.
+ 
+Things had deteriorated to the point that Jess had become something of a social outcast. She was no longer invited to sleepovers or parties, or other fun stuff teenagers do. This led to her becoming even more resentful and alienated. I noticed a few cuts on her arms and legs and suspected she was self-harming. I was at my wits’ end. My beloved daughter was desperately unhappy, and her self-esteem was at an all-time low. I realized she needed a distraction. She needed someone or something that would love her unconditionally!
+ 
+We took a trip to our local animal shelter. I’d heard they had an adorable golden Labrador puppy called ‘Goldie’ that I knew Jess would instantly fall in love with. Sure enough, she melted as soon as she set eyes on the little scamp. He wagged his tail and licked her face like it was a lollipop. “He’s gorgeous!” Jess cried. “Can we keep him, Dad? Please, Dad!” She pleaded. I was about to nod “yes” when something caught Jess’ attention. 
+ 
+In the next pen, a full-grown German shepherd lay in the corner. It looked sad and lonely. Its tail did not wag. Its food was untouched. “That’s Max,” said the kind old lady who was showing us around. “What’s wrong with him? Is he sick?” Jess asked. “No, dear, his owner died and I’m afraid he still hasn’t gotten over it,” she said. My heart sank. I never realized until that moment that even animals could be affected by grief and loss. I kneeled by his side and called him a “good boy” as I stroked him. He did not respond. His eyes were empty and sad.
+  
+Jess strolled over to him, flashed him her amazing smile, and soothed him with her gentle voice. Once again, he did not respond. Jess suddenly lay down next to him. She put her arm around him. Whispered in his ear as she snuggled up to him. Max wagged his tail. It was only the one time. Blink and you would have missed it. “Oh my!” Cried the old lady. “He’s never done that before,” she said with a warm smile.
+ 
+Jess stood up with a tear in her eye. No words were needed. I knew she had made her choice. I felt sorry for ‘Goldie’ but just as we were leaving, I heard a little girl shriek with excitement as her mom said, “We’ll take him.” I guess sometimes things happen for a reason.
+ 
+Jess spent every waking hour with Max. She would brush him and talk to him constantly. Take him for long walks. Over the next few months, Jess and Max became inseparable. They were like two kindred spirits each recognising the sense of pain and loss in each other. Max was now a part of our little family.
+ 
+Jess had been good for Max. But Max has been good for Jess too. Her grades were up. She had reconciled with her friends. She was back to being the girl we all knew and loved.
+ 
+The trip to the Midwest was to allow Jess to learn more about her late mom’s roots, but also a reward for her good behavior. We’d spent the day visiting some of Lisa’s family. A cousin of hers told us how Lisa had saved a toddler from drowning when she was barely six years old. An elderly aunt recalled the time Lisa went ‘trick or treating’ and ate so much candy she made herself sick.  I could see the joy their recollections brought Jess and I knew I'd made the right choice coming out here.
+ 
+We were both exhausted by the time we returned to our accommodation. Our beds were waiting but first, we had to take Max for his evening walk. We strolled in the moonlight as we chatted about our day. Jess confided that “she felt closer than ever to her mom.” She gave me a big hug and told me she loved me. I glanced heavenwards and whispered thank you as I held her in my arms. I was so thankful to have my beloved daughter back.
+ 
+As we continued our walk a man in dark clothing with cold, lifeless eyes suddenly emerged from the shadows, startling both Jess and me. His pale complexion was a sharp contrast with his jet-black hair. He had a strange look about him. It was like he was empty inside. Almost as if he had no soul. “Nice night for a walk,” he said in a raspy voice. I had barely opened my mouth to respond when Max suddenly became anxious. “What’s wrong with your dog” asked the stranger. I shrugged my shoulders, “he’s not normally like this” I retorted.
+  
+Max was becoming increasingly agitated. He was growling, baring his teeth. He started straining at his leash. The stranger seemed unfazed. His gaze was fixed solely on Jess. He looked at her the way a kid looks at ice cream when they’re about to devour it. “Dad let’s go,” Jess urged. I managed to pull Max away from the creep. “Be seeing you”, he said as he made his way toward a black SUV with tinted windows.
+  
+If only I’d known then what I know now about Max, things may have turned out differently.  I would not have continued with our walk. Truth be told, Jess and I would have hightailed it out of there. Instead, I simply shrugged off our strange encounter with the creepy guy. After all, I had met more than my fair share of weirdos and oddballs over the years. I figured this guy was no different.
+ 
+We continued our moonlight stroll when a sudden sense of dread came over me. I could hear a car moving ever so slowly behind us. I knew instinctively that we were being followed.  More than a decade serving in the Marine Corps had honed my survival instincts to their maximum. Jess sensed my concern. “Dad, what’s wrong?” She pleaded. “Nothing, honey” I replied with a reassuring smile. 
+ 
+I quickly spun to face the encroaching vehicle. It was a black SUV! I stared it down as I reached inside my jacket ready to whip out a gun I did not have. The bluff worked and the SUV took off at speed. “Best be heading back” I uttered. Jess nodded, “Okay.” I was annoyed with myself. I had allowed us to wander too far from our accommodation into an unlit area neither of us was familiar with. Still, I was reassured that we had Max with us. I knew he would protect Jess with his life.
+  
+We headed back to our motel when the black SUV suddenly emerged from the shadows and came hurtling towards us. The tires screeched, and the brakes squealed as it came to a halt directly in front of us, blocking our path. I immediately placed a protective arm across Jess. 
+ 
+The same creepy guy we had encountered earlier emerged from the vehicle. The moonlight cast a silvery hue over him. “Told you I’d be seeing you,” he said with a hint of menace. I looked deep into his cold, lifeless eyes, “what do you want?” I demanded. His gaze remained fixed on Jess as he smirked “Isn’t it obvious?” My stomach churned. I knew at once the implication of his words. I moved a step closer then hissed “Over my dead body.” He grinned.
+  
+Max growled. He pulled at his leash. He sensed Jess was in danger and was ready to defend her at all costs. I stared at the silhouette of this unwelcome figure who stood before us. I knew something was off, but I couldn’t quite put my finger on it. Then it hit me like a wrecking ball to the stomach. I could see our reflections against the metallic finish of the SUV but not his. 
+  
+Just as I was trying to process this stunning revelation, Max pulled free of my grasp and lunged at him. He sank his teeth into the man’s forearm. The man did not wince or make the slightest sound. I watched in disbelief as my eyes registered the dark, tar-like liquid that seeped from his wound. He swatted Max away like he was a fly. Max wailed as he landed on the ground with a heavy thud. Jess called out to him, “Max!” she cried as she hurried over to him. I could see that the poor dog had had the wind knocked out of him, but my attention was drawn to the stranger’s bright yellow eyes glowing in the dark. He smiled at my reaction revealing two large fangs protruding from his upper lip.
+ 
+I stepped back in horror. I realized I was looking at a real-life vampire!  I’d always told myself things like “werewolves, demons, and vampires weren’t real”. Ten years in the military seeing what man was capable of doing to his fellow man had shown me who the real monsters were, I didn’t see the need for fictional ones.
+ 
+The ungodly creature took a step towards Jess. I yelled, “Run!” at Jess then stepped in front of it so she could make good her escape. I was prepared to die to save my precious daughter, but so too was Max, he lunged at the abomination sinking his teeth into its stomach, tearing its flesh open. Crimson seeped through its clothing. I didn't understand at first why this was actual blood rather than the disgusting tar-like liquid from its other wound, but then it suddenly hit me. It was not the creature’s blood. It was whatever or whomever it had fed on earlier. 
+ 
+My sense of horror heightened as the creature suddenly grabbed Max by his collar and swung him like a lasso before letting go. Max soared several feet before landing on his back with a sickening crunch. He immediately let out a desperate howl of pain. I raced over to him. I was terrified that he had broken his back. Max did not move for several seconds then got to his feet and licked my face. I was so relieved that he was not seriously hurt that I don’t mind admitting I shed a tear.
+ 
+As I wiped my eyes my concern for Jess became uppermost in my mind once more. I peered through the murky gloom hoping to catch a glimpse of her when suddenly my attention was drawn to the sound of the SUV speeding off into the night. My heart sank. I knew instinctively that Jess was not safe. She had been stolen in the dead of night by the monster who had been so craven in his desire for her.
+
+I tried to keep my immense panic under control as I remembered the crimson seeping from the creature's stomach wound. I reasoned that it had most likely satiated its blood lust for now and that Jess was hopefully not in any immediate danger.  
+In the three days since Jess was abducted, I have uncovered a great deal of information. It seems Max was an ex-police dog. He worked as a “cadaver dog” and was described as the “best-of-the-best with a phenomenal sense of smell. His handler had been gunned down by a crackhead while buying some snacks for his pregnant wife during a holdup at a liquor store. His death had sent Max into a deep depression, and he was deemed no longer suitable for service. 
+ 
+Had I known about Max’s unique ability I might have reacted differently when he became so agitated at the first sighting of Jess’ abductor. Max could smell death and sensed the creature standing before us was not human. I tell myself that they’re called “the undead” for a reason and that I could not have known the danger Jess was in. But deep down I know I should have done more. I dread to think what she has become. I pray that when we find her, she will be the old Jess we both love. But deep down I fear the worst. 
+
+I have also discovered that the monster who seized Jess has been going from town to town throughout the Midwest preying on the locals and turning them into vampires like himself. It seems that he plans to infect the entire country with his unique brand of evilness. 
+I have sworn to spend the rest of my life hunting him down and will not stop until I have destroyed him.  
+During the daytime, he rests in a casket that is ferried from town to town in a hearse driven by one of his loyal subjects. So far, he has remained undetected as most people naturally avert their eyes at such a morbid sight. After all, who amongst us wants to be reminded of their mortality? Now that I know his secret it is only a matter of time before I despatch him to the gates of hell.
+
+Meanwhile, Max has been pining for Jess day and night. We’ve spent every waking hour looking for her. His paws have been bleeding from the constant searching but he refused to give up. Thanks to Max’s unique ability to sniff out the ‘undead’ we have uncovered a nest of vampires hidden inside a labyrinth of tunnels beneath an old mining town. They have been feeding off the unsuspecting townsfolk.
+
+Fortunately, I have managed to lay my hands on a flame thrower through an old army contact. I plan to wait until dawn and then unleash hell on them.
+
+I’m terrified that if Jess is amongst them I will not be able to do what needs to be done. She is all that I have left. The thought of hurting my beloved daughter traumatizes me and makes me sick to my stomach. Yet, at the same time, I cannot help but remember how upset Jess was at the loss of her mother. The last thing she would want is to be responsible for inflicting such pain and grief on someone else through her vampiric urges.
+
+Dawn is moments away. I’m about to enter the tunnel… please pray for me so that I make the right choice.
