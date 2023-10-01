@@ -52,9 +52,9 @@ I snort. "This is rich coming from you of all people, Reine," I say tersely. "Be
 
 Reine’s voice lowers, her anger dissolving into vulnerability. "Ash, I’m just saying… maybe we both need to think more about... about consequences, about the future... about...”
 
-As the SUV pulls up to a quaint apartment complex, the vibrant figure of our secretary Amber appears at the door. Her eyes widen slightly at the sight of the vehicle, and she hurriedly makes her way, carrying a carefully wrapped dish.
+As the SUV pulls up to a quaint apartment complex, the vibrant figure of our secretary Abby appears at the door. Her eyes widen slightly at the sight of the vehicle, and she hurriedly makes her way, carrying a carefully wrapped dish.
 
-I can see something deeper in Reine's eyes, a tremble in her voice, something she’s hesitating to say. But my own frustration blinds me to her subtle attempt to change the conversation's direction. The apartment complex looms larger as we pull into the parking lot, and the sight of Amber, hurrying toward us distracts me further.
+I can see something deeper in Reine's eyes, a tremble in her voice, something she’s hesitating to say. But my own frustration blinds me to her subtle attempt to change the conversation's direction. The apartment complex looms larger as we pull into the parking lot, and the sight of Abby, hurrying toward us distracts me further.
 
 "Can we please talk about this later?" I beg her, not wanting to cause a scene.
 
@@ -70,27 +70,27 @@ Reine and I trip over each [other](https://www.youtube.com/watch?v=MGd1F6Ay8ho) 
 
 "Absolutely," Reine adds, her tone just a tad too sweet.
 
-Amber raises an eyebrow but decides not to push further. "So," she begins, trying to change the topic, "Tet is like Vietnamese Thanksgiving, right? Because I brought a casserole."
+Abby raises an eyebrow but decides not to push further. "So," she begins, trying to change the topic, "Tet is like Vietnamese Thanksgiving, right? Because I brought a casserole."
 
 Reine laughs softly, "Not exactly, chère. It’s more like New Year’s. It's a time for family and to celebrate fresh starts."
 
-Seeing an opportunity to lighten the mood, I chime in with a smirk, “You know, our previous secretary made the same mistake. Brought a turkey and everything. We never saw her again after that Tet dinner. What was her name? Gail? It’s still our most mysterious [cold](https://www.reddit.com/r/nosleep/comments/14c93t1/im_an_arctic_researcher_we_accidentally_released/) case.”
+Seeing an opportunity to lighten the mood, I chime in with a smirk, “You know, our previous secretary made the same mistake. Brought a turkey and everything. We never saw her again after that Tet dinner. What was her name? Louise? It’s still our most mysterious [cold](https://www.reddit.com/r/nosleep/comments/14c93t1/im_an_arctic_researcher_we_accidentally_released/) case.”
 
-Amber’s face pales, but before she can react, Reine rolls her eyes and playfully swats at me. "Don't listen to him. He’s just messing with you. Gail moved to California to be closer to her grandkids.”
+Abby’s face pales, but before she can react, Reine rolls her eyes and playfully swats at me. "Don't listen to him. He’s just messing with you. Louise moved to California to be closer to her grandkids.”
 
-I could see the relief wash over Amber’s face.
+I could see the relief wash over Abby’s face.
 
 Reine smiles at her, "If it puts your mind at ease, I made a traditional Cajun Mardi Gras dish – chicken and sausage gumbo. It's a bit spicy, but I think everyone will love it."
 
-Amber's eyes light up, "That sounds amazing!”
+Abby's eyes light up, "That sounds amazing!”
 
 Reine grins, then turns her attention back to me. "Ash, did you remember to bring the lì xì for Theo and Mia?"
 
-Amber, looking confused, chimes in, "Li xi? What's that?"
+Abby, looking confused, chimes in, "Li xi? What's that?"
 
 Reine explains, "It's a Tet tradition. Elders give red envelopes with money inside to younger family members. It's meant to bring luck and prosperity for the new year."
 
-Amber nods, understanding. "Oh, so like a new year present.”
+Abby nods, understanding. "Oh, so like a new year present.”
 
 Reine nods, then eyes me with a pointed look.
 
@@ -100,13 +100,13 @@ I sigh, rubbing my temples, "Yes, I did."
 
 She gives me an approving smile, "Great. I just want to be a good aunt, you know? They're growing up so fast."
 
-Amber catches on to the tension, and with a puzzled expression, she looks from me to Reine. "Fifty dollars seems generous."
+Abby catches on to the tension, and with a puzzled expression, she looks from me to Reine. "Fifty dollars seems generous."
 
 I mumble, "I wanted to give them $20 each, but some people believe in spoiling them."
 
-Reine and I lock eyes. For a moment, all the heated words and unspoken issues between us hang in the air. But as Amber looks between us, curiously, we reach an silent truce. For her sake, and for the sake of the day, we let it all slide into the background.
+Reine and I lock eyes. For a moment, all the heated words and unspoken issues between us hang in the air. But as Abby looks between us, curiously, we reach an silent truce. For her sake, and for the sake of the day, we let it all slide into the background.
 
-Rather than dredging up further drama, Reine and I spend the rest of the ride giving Amber a crash course in Vietnamese language and culture.
+Rather than dredging up further drama, Reine and I spend the rest of the ride giving Abby a crash course in Vietnamese language and culture.
 
 —
 
@@ -134,9 +134,9 @@ Mom reaches up to embrace Reine warmly. She then pulls back to inspect her, eyes
 
 “You look beautiful, con,” she says, using the Vietnamese word for daughter, as though to reassure her of her place in the family.
 
-“Oh, this is Amber, by the way, our secretary at the agency,” I introduce Amber, breaking back into English. She waves shyly, a small “Chào” (Hello) escaping her lips.
+“Oh, this is Abby, by the way, our secretary at the agency,” I introduce Abby, breaking back into English. She waves shyly, a small “Chào” (Hello) escaping her lips.
 
-While Amber distracts my parents, I slip into the living room.
+While Abby distracts my parents, I slip into the living room.
 
 I scan the room. The familiar hum of conversation and the warm amber light embrace me. Older relatives sit on one side, their conversations a flowing river of lyrical Vietnamese. Their laughter, accompanying a game of Tien Len, merges with the gentle clink of teacups.
 
@@ -256,7 +256,7 @@ Reine's eyebrows shoot up in surprise, a light laugh escaping her lips. “Oh, I
 
 Kira smiles, drying her hands on a dish towel. “They have English songs too, you know.”
 
-“You can keep Amber company,” I say, nodding toward the living room where I see Amber, who's had one too many beers, flirting unabashedly with my cousin Dan.
+“You can keep Abby company,” I say, nodding toward the living room where I see Abby, who's had one too many beers, flirting unabashedly with my cousin Dan.
 
 “She seems to be doing just fine,” she observes, still hesitant.
 

@@ -70,7 +70,7 @@ She opens the car door, her eyes scanning the dashboard cluttered with notes and
 
 “How did you—” I begin to ask.
 
-“The burner phone, Ash,” she interrupts, exasperation tinting her voice. “You left the box in your trash bin. I checked with Amber. You’re not working on the Landry case. Also you left your email logged in. I saw the background check you requested on Xuan. ”
+“The burner phone, Ash,” she interrupts, exasperation tinting her voice. “You left the box in your trash bin. I checked with Abby. You’re not working on the Landry case. Also you left your email logged in. I saw the background check you requested on Xuan. ”
 
 My face flushes with a mix of embarrassment and frustration. I was careless, made rookie mistakes. The first was believing that I could outwit a former NOPD detective who knows me better than anyone.
 
