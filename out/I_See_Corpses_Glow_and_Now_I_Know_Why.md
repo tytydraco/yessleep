@@ -545,7 +545,7 @@ It was only now that I remembered I only had two more years to live, and I grabb
 
 After we hung up, I posted everything, desperate for some sense amidst this uncertainty.
 
-[Part 1](https://www.reddit.com/r/nosleep/comments/16s85s5/i_see_corpses_glow/) - [Part 2](https://www.reddit.com/r/nosleep/comments/16t66yn/i_see_corpses_glow_and_i_wish_i_didnt/) - [Part 3](https://www.reddit.com/r/nosleep/comments/16u2kp1/i_see_corpses_glow_and_im_sick_of_it/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/16s85s5/i_see_corpses_glow/) - [Part 2](https://www.reddit.com/r/nosleep/comments/16t66yn/i_see_corpses_glow_and_i_wish_i_didnt/) - [Part 3](https://www.reddit.com/r/nosleep/comments/16u2kp1/i_see_corpses_glow_and_im_sick_of_it/) - **Part 4** - [Part 5](https://www.reddit.com/r/nosleep/comments/16xcmt0/i_see_corpses_glow_and_i_can_do_so_much_more_final/)
 
 \-----
 

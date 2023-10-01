@@ -452,7 +452,7 @@ Speaking of the devil, Mika’s voice flowed from inside, and Desmod sighed and 
 
 As before, reading my old posts brought back my emotions, and after I called my parents and friends, once again censored by a promise I was "convinced" to make, I typed everything out, the future’s vague fate roiling in my mind.
 
-[Part 1](https://www.reddit.com/r/nosleep/comments/16s85s5/i_see_corpses_glow/) - [Part 2](https://www.reddit.com/r/nosleep/comments/16t66yn/i_see_corpses_glow_and_i_wish_i_didnt/) - **Part 3** - [Part 4](https://www.reddit.com/r/nosleep/comments/16uymin/i_see_corpses_glow_and_now_i_know_why/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/16s85s5/i_see_corpses_glow/) - [Part 2](https://www.reddit.com/r/nosleep/comments/16t66yn/i_see_corpses_glow_and_i_wish_i_didnt/) - **Part 3** - [Part 4](https://www.reddit.com/r/nosleep/comments/16uymin/i_see_corpses_glow_and_now_i_know_why/) - [Part 5](https://www.reddit.com/r/nosleep/comments/16xcmt0/i_see_corpses_glow_and_i_can_do_so_much_more_final/)
 
 \-----
 

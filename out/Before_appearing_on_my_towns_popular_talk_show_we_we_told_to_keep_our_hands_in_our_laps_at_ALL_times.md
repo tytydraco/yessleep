@@ -36,7 +36,9 @@ Our whole town watched this boy drop to his knees in startling claret, empty eye
 
 Mom started to scream, but it was too late to grab the remote, or cover my eyes. Conrad ravaged the animal on live television. Blood stemmed around him, pooling across the stage and dripping down his face and chin. His eyes didn't find the camera– or they did, but I was seeing an abyss, oblivion staring back. 
 
-It is a myth that vampire's eyes glow red. In reality, they lose all color in their iris' completely, reduced to twin caverns carved into their face. A real life vampire was on stage, and nobody was freaking out. He was snarling, crawling back on his knees with the severed head still stuck between his teeth, when guards approached him, hauling the boy to his feet. He didn't fight back when they slammed him to the ground. Instead, he buried his head in his arms. I could see his trembling body. They were torturing him, the audience laughing at his apparent panic attack, when he clutched at his throat, mouthing, *Stop! Please!*
+It is a myth that vampire's eyes glow red. In reality, they lose all color in their iris' completely, reduced to twin caverns carved into their face. A real life vampire was on stage, and nobody was freaking out. He was snarling, crawling back on his knees with the severed head still stuck between his teeth, when guards approached him, hauling the boy to his feet. He didn't fight back when they slammed him to the ground. Instead, he buried his head in his arms. 
+
+I could see his trembling body. They were torturing him, the audience laughing at his apparent panic attack, when he clutched at his throat, mouthing, *Stop! Please!*
 
 "But you're a vampire!" The host laughed, rolling her eyes. "Vampires don't get scared!" 
 
@@ -130,9 +132,13 @@ I was so tired, my eyes heavy and drooping. I dropped my pencil, which was sudde
 
 "Thank you for completing the test."
 
-I jerked my head up, swiping drool from my lips and chin. The smartly dressed woman was standing in front of us. She nodded at us. "You may leave."
+Jerking my head up, I swiped drool from my lips and chin. 
 
-I was on my feet, and heading toward the door before her words could register in my mind. When cold air slammed into me once I was outside, I managed to regain my thoughts. I pulled out my phone. 
+The smartly dressed woman was standing in front of us. She nodded at us. "You may leave."
+
+I was on my feet, and heading toward the door before her words could register in my mind. When cold air slammed into me once I was outside, I managed to regain my thoughts. 
+
+I pulled out my phone. 
 
 2am. 
 
@@ -164,7 +170,7 @@ There was a specific room that was mine. But I don't remember speaking, or havin
 
 Days blurred into one, and every time I caught my reflection, I could no longer recognise myself. I remember my first time out of that room, that I thought was endless, and would last forever. 
 
-It was after time had stopped for me, and I was only aware that I wasn't… myself. I knew my name, but only because I had been told it multiple times. "Bellamy." They told me, when I was strapped down under bliding light, squirming underneath the masked man's gloves delving inside my cavern he had cut into my torso and the back of my skull. 
+It was after time had stopped for me, and I was only aware that I wasn't… myself. I knew my name, but only because I had been told it multiple times. "Bellamy." They told me, when I was strapped down under bliding light, squirming underneath the masked man's gloves delving inside the cavern cut into my torso and my skull. 
 
 Sometimes, I wondered if I was dreaming– or having an out of body experience, maybe. But when I moved, my shadow was different. 
 
@@ -178,17 +184,21 @@ So, they sliced them away, one by one, severing them from the root right under m
 
 I saw its shadow in dazzling white light illuminating my mutilated torso underneath blood spattered blankets. This time I could sense it slithering under my skin, rippling in my blood. I liked to play a game with myself, timing how long it would take for me to pass out from the tests I was put through. My shortest time was 7 seconds. I think it was. I passed out before the numbers could fully form. 
 
-I wasn't awake for a number of the procedures, but when I was, I wished myself dead, that the scalpel slicing me open for the tenth time, would finally puncture something important. Unlucky for me, it didn't. I was moved to a different room. This one had a single chair, and a glass screen in front of me. 
+I wasn't awake for a number of the procedures, but when I was, I wished myself dead, that the scalpel slicing me open for the tenth time, would finally puncture something important. 
+
+Unluckily for me, it didn't. I was moved to a different room. This one had a single chair, and a glass screen in front of me. 
 
 I forget my name again when they forced me down, pinning my wrists. 
 
-"Bellamy." the nurse told me, when I asked her, my head cocked, though still dancing from my morning cocktail. 
+"Bellamy." the nurse told me, when I asked her, my head cocked, thoughts still dancing from my morning cocktail. 
 
 Her smile was friendly enough until she turned and placed down a single soda can in front of me. I hadn't seen a can of soda in… I had no idea. I started to move, an impulse forcing me from the chair. But the velcro straps held me down. The nurse shook her head, and in the corner of my eye, a group of masked people carefully watched me through the sheet of glass, armed with iPads. 
 
 They asked me to use the can without my hands.
 
-First, I thought they were fucking with me. So, I forcefully toppled myself over. But that just earned me a sharp electroshock of pain running across my skull. I didn't even notice the strange metal pads glued to the back of my head. The nurse, still with a wide smile, told me once again to grab the can of soda without the use of my hands. And I did. I don't remember much. What I do remember, is that paticular nurse being carried out of the room, the remnants of her glued to a stretcher. 
+First, I thought they were fucking with me. So, I forcefully toppled myself over. 
+
+But that just earned me a sharp electroshock of pain running across my skull. I didn't even notice the strange metal pads glued to the back of my head. The nurse, still with a wide smile, told me once again to grab the can of soda without the use of my hands. And I did. I don't remember much. What I do remember, is that paticular nurse being carried out of the room, the remnants of her glued to a stretcher. 
 
 The room was a lot redder than I remembered, and it was raining. 
 
@@ -200,9 +210,11 @@ I met the others over McDonald's served to us in a lounge area complete with a c
 
 The guy who scoffed at me, doodling spiders all over his paper, was silent. There was a scary looking bandage wrapped around his neck. I could make out slight smears of red leaking through. 
 
-I didn't comment, biting further into my burger. The others were… overly giggly. The girls burst out laughing in intervals, while another guy, followed suit, like he was copying them. But then I started picking at my fries, and so did he, mirroring my exact actions, his fingers grasping at imaginary fries. His expression mimicked mine, my wide eyes, curled lips, the confusion riddled in my brows. 
+I didn't comment, biting further into my burger. The others were… overly giggly. The girls burst out laughing in intervals, while another guy, followed suit, like he was copying them. But then I started picking at my fries, and so did he, mirroring my exact actions, his fingers grasping at imaginary food. His expression mimicked mine, my wide eyes, curled lips, the confusion riddled in my brows. 
 
-When someone did speak, which was rare, he copied them, the exact curl on their lip and the tone of their voice. The nurse asked if we wanted dessert, and he mimicked her, almost instantly, blood seeping from his nose. His eyes resembled a childs, wide and curious. It was almost like this guy was learning. 
+When someone did speak, which was rare, he copied them, the exact curl on their lip and the tone of their voice. The nurse asked if we wanted dessert, and he mimicked her, almost instantly, blood seeping from his nose. His eyes resembled a childs, wide and curious. 
+
+It was almost like this guy was learning. 
 
 The last boy seemed the least with it. His head was cocked at an unnatural angle, eyes heavy and half lidded, and when I was really taking him in, I could see stitches lining across his forehead. The boy's eyes were hollowed out, and yet his smile was somehow genuine. I think. 
 
@@ -214,13 +226,13 @@ His teeth were bright red, still wet.
 
 That day, I think I met my family. 
 
-Especially when we made our first (and last) guest appearance. 
+Especially when we made our first (and last) guest appearance on the town's talk show. 
 
 The stage lights were too bright.
 
 Next to me, Ethan's hands were trembling in his lap, exactly where he had been told to put them. I had no idea there was a certain etiquette on talk shows. We had to sit sandwiched together, the girls with their legs crossed, and the guys hands in their laps. They had cleaned up pretty well, satin dresses for the girls, and suits and ties for us guys. The hands in your lap thing was probably a polite thing. 
 
-In our case though, it was probably for *other* reasons too. I could see the way the shadowy audience were looking at us. Their narrowed eyes felt like knives slicing into me. The talk show host's smile was too big, too many teeth, a lipsticky grin treating us like we were feral. She was even more terrifying up close, and I was already overstimulated from the lights bkdijijg me, the loud pop music bursting from the speakers. 
+In our case though, it was probably for *other* reasons too. I could see the way the shadowy audience were looking at us. Their narrowed eyes felt like knives slicing into me. The talk show host's smile was too big, too many teeth, a lipsticky grin treating us like we were feral. She was even more terrifying up close, and I was already overstimulated from the lights blinding me, the loud pop music bursting from the speakers. 
 
 I kept glancing over to Ethan, who I was told to keep an eye on. His leg was moving up and down. 
 
