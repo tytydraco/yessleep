@@ -1,0 +1,13 @@
+I volunteered to go on a research trip to the deep sea, nobody told me it was one way….  
+So, a little background, of how I got to be in this situation.  
+Being from a family who had decided to put down roots about 6 hours from any major bodies of water let alone the ocean you’d never expect a kid to be so fascinated by the water and everything in it growing up.  
+Maybe however that’s the way the mind works, they do say the heart grows fond for what it can’t have after all and being that my family was poor as dirt and slogged through from paycheque to paycheque, trips to the beaches and lake house just weren’t something in my vocabulary or understanding.  
+I can still remember where this all started though, what got me so hooked on dedicating my life to the oceans… It was Aunt Mildred, with her stupid gifts and over eager storytelling that got me (at least in some way) into this situation I’m in, trapped here in a ten-foot box of a room stuck in the bathypelagic zone of the ocean, with nothing to keep me company except my own thoughts, my work and for some reason, that stupid fucking book.  
+Ok, I guess I should explain what I mean, you see that gift, God I dread calling it that now, in this situation, that book, from Aunt Mildred, was all about the deep seas and the animals it contains.  
+I took that book everywhere after I opened it the first time, spewing the same facts to my parents and anyone who would listen to my rhetoric.  
+That book and obsession with the ocean continued, fed by trips to the library and bookstore taking in any ocean information I could find, whales, sharks, anglerfish, squids, you name it I probably have some random conversation starting piece of knowledge to pique your interest.  
+Anyhow I guess I should explain more about the present, before I don’t have the strength to do it anymore.  
+I got involved with Aquanalle, the bastards who put me down here, as a junior environmental studies specialist, a job which I took after finishing university, I basically went on trips with other biologists to help survey the effects of human pollution and global warming on earths aquatic ecosystems.  
+Over the years I began to love this job so much that I eventually volunteered for this… a trip to the depths, inside a specially made construct, alone, in the dark with only a small computer hooked to a specially made crush proof camera on the rooms exterior, a cot, some food and water, my thoughts and a small smattering of books.   
+So here I am trapped in a box with my food running low and air running low, I thought was supposed to be picked up 2 days ago… but I can only think of one reason they haven’t showed up  yet.  
+Now that I think about it, nobody actually mentioned a return trip.  
