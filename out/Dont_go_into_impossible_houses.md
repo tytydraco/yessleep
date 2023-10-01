@@ -1,5 +1,3 @@
-**Don't go into impossible houses...** 
-
 With the Halloween season approaching, I decided to get this warning out to everyone I could reach. If you ever come across a haunted house that shouldn't be there, don't go inside. This haunted house pops up between two other houses you already know. It won't be squeezed in like someone built a new house in the middle of the two plots, but rather, it'll fit in like the whole place was designed that way. It'll be as if the street had always been a few hundred feet longer than you remember. If such a house appears out of nowhere, do not approach it, do not knock on the door, and whatever you do, do not cross the threshold. Once you do, your fate is sealed.
 
 Unfortunately, no one gave me this warning when I was a kid. Maybe it was new, or perhaps there just weren't many survivors back then. Whatever the case, no one warned me, so when I went up, knocked on the door, and shouted, "Trick or treat!" I did not listen to the small doubt in the back of my mind that told me to run away.
