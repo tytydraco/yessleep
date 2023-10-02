@@ -136,11 +136,13 @@ Reine and I exchange worried glances. "Is this some kind of a cult?" she whisper
 
 The conversation continues, fragments of words and phrases filtering through the static interference of the earpiece. Xuan's voice comes through again, sounding almost distorted and unsettlingly distant.
 
-"I can hear the voice...growing stronger each day. He beckons us…" His voice trails off, and we strain to hear, the tension thick in the air.
+“...I-I’m not sure,” Xuan's voice trembles through the earpiece, the uncertainty clear. “Is there no other way?”
 
-The woman, Lockhart, leans in, her icy blue eyes narrowing. "Stay the course, brother," she urges in a low, forceful tone. "Soon, the world will bow before the darkness, and our sacrifice will be immortalized."
+“There is no room for doubt, brother. We are the harbingers of a new eon. Each one of us must be willing to sacrifice everything on the altar of the Dark Flame.” She urges, her tone chillingly gentle.
 
 "Sacrifice?" Reine mouths silently to me, a line of worry etching her features. The questions multiply in my mind, each one more disturbing than the last.
+
+There's a pause, and the muffled sound of Xuan's deep, shuddering breath filters through the ambient noise. “I understand, Ms. Lockhart,” he concedes, a hint of despair in his voice. “I apologize for my moment of doubt.”
 
 The conversation between Xuan and Lockhart continues, but their words become harder to discern. They talk in hushed tones, whispering about arrangements, people in place, and a device capable of breaching barriers beyond human comprehension. It’s a puzzle, each piece more intricate and confusing than the last.
 
