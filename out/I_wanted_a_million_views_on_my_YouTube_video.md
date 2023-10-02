@@ -1,3 +1,5 @@
+*You have broken the covenant. Pay the price or prepare for annihilation.*
+
 “Jay, I need to come clean about something,” I began with a rust-coated throat. “I don’t know how to –”
 
 “John, whatever you’re worried about, whatever mistake you made, we’ll get through it together, okay?”
@@ -38,7 +40,7 @@ The witch demanded 50 RMB, just a few bucks ("Seems like a fair price," I remark
 
 “Heed your dreams,” were her last words to me before we departed.
 
-That night, I dreamt of Isabella, one of my most promising students, getting a 92 on the end-of-semester exam that my AP Bio students were taking the following day. The next night, as I graded the exams, I came across Bella’s; I scored it, noting that she had achieved the 96 that she needed for an A. Almost without consciously considering what I was doing, I flipped to the second section of the exam booklet and erased two correct answers, substituting incorrect ones before changing the grade on the front page to a 92, an A-. I couldn’t explain how, but I knew intuitively that this was the right thing to do.
+That night, I dreamt of Isabella, one of my most promising students, getting a 92 on the end-of-semester exam that my AP Bio students were taking the following day. The next night, as I graded the exams, I came across Bella’s; I scored it, noting that she had achieved the 96 that she needed for an A. Almost without consciously considering what I was doing, I flipped to the second section of the exam booklet and erased two correct answers, substituting incorrect ones before changing the grade on the front page to a 92, an A-. I couldn’t explain how, but I knew intuitively that this was what I was supposed to do.
 
 *A single A- wasn’t gonna kill anyone, right?* Besides, Bella had gotten a little obsessive about her grades, I rationalized; it might even do her some good to have to come to terms with less-than-perfect performance. At the same time, I scoffed at myself for succumbing to this temple balderdash, for falling victim to such rank superstition. I resolved to put the deal with the crone out of my mind from then on.
 
