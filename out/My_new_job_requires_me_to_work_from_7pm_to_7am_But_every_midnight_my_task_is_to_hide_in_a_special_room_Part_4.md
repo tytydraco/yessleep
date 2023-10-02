@@ -85,4 +85,4 @@ I went through the ordeal until a light almost blinded me and made the entity va
 I could not find any response to the baffling revelations and just hung up the call, looking around, looking at the mild wounds on my body and wondering what on earth did I just get myself into.
 
 
-[Part 3](https://www.reddit.com/r/nosleep/comments/16xikzd/my_new_job_requires_me_to_work_from_7pm_to_7am/)
+[Part 5](https://www.reddit.com/r/nosleep/comments/16xikzd/my_new_job_requires_me_to_work_from_7pm_to_7am/)
