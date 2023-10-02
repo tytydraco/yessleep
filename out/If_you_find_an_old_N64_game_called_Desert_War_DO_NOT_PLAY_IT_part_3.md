@@ -120,7 +120,7 @@ The professor nodded. “Yeah, saw on the news that a hat like the one Ed wore w
 
 I thought about the piece of metal I had found with 'F.S.' engraved into it. “Did Ed have a brother by chance whose name started with F?” I asked. “Frank or Fred or something like that. I found an…uh…an Easter egg with the initials F.S. on it.”
 
-“He did indeed have a brother named Frank. Unlike Ed, Frank was as smart as a whip, did his undergrad at Caltech, double-majored in mathematics and physics, before getting his applied mathematics PhD at Stanford. Then he got a tenure-track position here at Berkeley, but he got fired. From what I heard, he was a disturbed, troubled individual.”
+“He did indeed have a twin brother named Frank. Unlike Ed, Frank was as smart as a whip, did his undergrad at Caltech, double-majored in mathematics and physics, before getting his applied mathematics PhD at Stanford. Then he got a tenure-track position here at Berkeley, but he got fired. From what I heard, he was a disturbed, troubled individual.”
 
 “I think we found who helped Ed with the game,” I said.
 
@@ -130,7 +130,7 @@ I thought about the piece of metal I had found with 'F.S.' engraved into it. “
 
 After leaving the professor’s office, I headed to Berkeley’s Doe Library, determined to find out anything I could about Ed and Frank.
 
-I was sure I would find some information about Ed that would show that he was not the harmless eccentric the professor had made him out to be. But there wasn’t much about him online. I located a Social Security Death Index record, which listed his date of death as March 6, 2002, but not much else. Didn’t even find an obituary or the location of his grave.
+I was sure I would find some information about Ed that would show that he was not the harmless eccentric the professor had made him out to be. But there wasn’t much about him online. I located a Social Security Death Index record for an Edwin Fox Schumacher, which listed his date of death as March 6, 2002, but not much else. Didn’t even find an obituary or the location of his grave.
 
 I searched newspaper archives, but the only article on Ed was a brief mention in the *Mercury News* that in May of 2002, the San José Museum of Art had acquired “an unpublished 700-page children’s book manuscript by the late Ed Schumacher, a reclusive illustrator, for $500.”
 
@@ -142,7 +142,9 @@ There were no other results for him; he wasn’t even listed in the credits of a
 
 I skimmed the post. Apparently, the only copy of the film, titled *The Death of Ed the Sorcerer*, was owned by an adult video store in East Oakland. I was sure it would have made its way online, but everything I found said that if you wanted to watch the video you had to go to Oakland. Apparently, it wasn’t even on the dark web.
 
-How that was possible, I didn’t know, but I’d worry about that later. Next, I started researching Frank. There were more results for him. As the professor said, he seemed like a brilliant man. Won several awards, published dozens of highly cited papers. But nearly all of his output stopped when he accepted a position at Berkeley in 1994.
+How that was possible, I didn’t know, but I’d worry about that later. Next, I started researching Frank. There were more results for him. As the professor said, he seemed like a brilliant man. The first result was from the 1980 Jefferson High School Yearbook in Daly City. His senior page—depicting him with close-cropped hair—said that he had qualified for the United States of America Mathematical Olympiad and had hoped to attend either Caltech, Stanford, or MIT. Curiously, Ed was not in the yearbook. *Guess he attended some alternative school*. 
+
+In the following years, he had won several awards and published dozens of highly cited papers. But nearly all of his output stopped when he accepted a position at Berkeley in 1994.
 
 There was an article from 1996 in the *Daily Cal*, Berkeley’s student newspaper. It said that “Franklin Lawrence Schumacher, an assistant professor of mathematics, was arrested for attempting to steal a 13th-century German grimoire from Bancroft Library.”
 
@@ -150,7 +152,7 @@ Two weeks later, another article reported that his wallet and bike were found on
 
 *He had faked his death*. That I was sure of. He had killed Jason Statler, disappeared for over 20 years, but, for some unknown reason, had returned. And I was running out of time to find him.
 
-I tried to find Frank’s old address online, but failed. I didn’t think he’d still be living there, of course, but thought he might have left a clue for me there, like how he left that piece of metal with his initials on my kitchen floor.
+I tried to find information on their parents or other relatives, but found nothing. It was as if they were foundlings.  I also failed to find Frank’s old address online, but failed. I didn’t think he’d still be living there, of course, but thought he might have left a clue for me there, like how he left that piece of metal with his initials on my kitchen floor.
 
 I went down to the stacks and found an old Bay Area directory and made a note of Frank’s former Berkeley address. I also found the address of Ed’s old apartment in Daly City.
 

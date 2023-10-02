@@ -97,3 +97,5 @@ I was transported to the skeleton’s lair, where I was once again devoured. One
 I woke up on my garage floor. It was 8:04 am. I checked the news to see if there were any updates on the case of Adam Kim. His body was still missing, but his severed head had been found in a trash can at Golden Gate Park in San Francisco, over 50 miles from his home. In addition, a 15-year-old named Ethan Greene had vanished from his home in Marin County. The article said that the police had begun investigating a possible link between the recent disappearances and that of Jason Statler 20 years ago. But I could not rely on them for help.
 
 Time was running short; I had one life left. Today was the day I needed to locate the mastermind behind all of this: Ed’s brother, Frank.
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/16y3a5k/if_you_find_an_old_n64_game_called_desert_war_do/)
