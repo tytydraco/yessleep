@@ -4,7 +4,7 @@ It started with a weekend hike. Just a short, innocent hill climb, our destinati
 
 “But something tells me that you’re not content to teach… There is an unmet hunger in you.”
 
-The air around this gargoyle of a woman seemed to flicker with staticky sparks; for a moment, she looked young and elegant, her long, raven-black hair cascading halfway down her back. In the next second, I saw a crown of bleached bone set atop her head; her lush hair transformed into giant feathers as her onyx pupils swelled to occupy her entire eyes. Then I blinked, and reality reasserted itself.
+The air around this gargoyle of a woman seemed to flicker with staticky sparks; for a moment, she looked young and elegant, her long, raven-black hair cascading halfway down her back. In the next second, I saw a crown of bleached bone set atop her head; her lush hair transformed into giant black feathers as her onyx pupils swelled to occupy her entire eyes. Then I blinked, and reality reasserted itself.
 
 “Tell me what you want, and it is yours,” she croaked. “So long as you are willing to pay the price.”
 
