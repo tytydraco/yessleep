@@ -63,3 +63,5 @@ My next step will be coming up with an experiment to figure out exactly what’s
 There’s no way I can live like this for the next decade. 
 
 [I’m going to find my way out.](https://www.coleschapters.com)
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/16y6kig/i_deserve_the_divorce_but_no_one_deserves_what/)
