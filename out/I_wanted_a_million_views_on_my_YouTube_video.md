@@ -1,12 +1,4 @@
-*You have broken the covenant. Pay the price or prepare for annihilation.*
-
-“Jay, I need to come clean about something,” I began with a rust-coated throat. “I don’t know how to –”
-
-“John, whatever you’re worried about, whatever mistake you made, we’ll get through it together, okay?”
-
-Jay was even more dashing now than on the day that I met him. He had golden-brown skin and an aquiline nose, caramel eyes and a firm jaw that set to rest any questions of character. Most beautiful of all were his lips of saturated mauve, with their smooth, sensual undulations. They were made to be kissed, those lips, and I still couldn't believe that they belonged to me.
-
-There were delicate lines etched around the corners of his almond eyes, testament to the brutal 9-9-6 hours that he put in at the law firm – put in for *us*, to better our prospects, to secure our future. I had absolutely no idea how to tell him how stupendously foolish I had been; how, seeking a shortcut, I contracted with an ancient evil and jeopardized everything that we had carefully built, imperiled our very souls.
+There were delicate lines etched around the corners of Jay's almond eyes, testament to the brutal 9-9-6 hours that he put in at the law firm – put in for *us*, to better our prospects, to secure our future. I had absolutely no idea how to tell him how stupendously foolish I had been; how, seeking a shortcut, I had contracted with an ancient evil and jeopardized everything that we had carefully built, imperiled our very souls.
 
 “Jay, it’s much worse than you could–”
 
@@ -48,7 +40,7 @@ I succeeded in doing so until the following evening, when my phone began explodi
 
 \*\*\*
 
-“Are you sure that you wish to play again?” The hag questioned me when I returned solo (I was too embarrassed to tell Jay how much I had bought into this whole scam).
+“Are you sure that you wish to play again, John?” The hag questioned me when I returned solo (I was too embarrassed to tell Jay how much I had bought into this whole scam).
 
 At this point, it had been six weeks since my first visit. It was probably all bullshit anyway, I knew, but – on the off chance that it was real, that something magical was going on – I wanted to leverage it to my advantage. I needed the mojo for one more viral video, this one with over two million views, to lock my newfound success into place. Then I could leave this unsettling crone, this sketchy temple behind for good. Besides, all I’d had to do the first time around was change an A to an A-; it wasn’t exactly a steep price to pay, right?
 
