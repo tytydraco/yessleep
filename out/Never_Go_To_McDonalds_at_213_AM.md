@@ -160,18 +160,4 @@ Bob calls me in to talk about what happened that night every so often but I don�
 
 I don’t think I ever will.
 
-Do you believe me? It happened. You can think I’m insane or a liar but it happened. There’s no changing it.
-
 Just remember one thing. Never go to Mcdonalds at 2:13 AM
-
-**//UPDATE//**
-
-I haven’t been sleeping these past few days.
-
-At night when I look out from my living room window I still see him. He’s standing in my yard looking back at me. His big black eyes filled with maliciousness.
-
-By the time I’m ready to call the cops. He’s gone.
-
-He stalks me, waiting for an opportunity to finish the job or maybe he's here just to torment me.
-
-I don’t know what to do.
