@@ -1,10 +1,10 @@
-I'm the night auditor at a large hotel on the edge of town. It's by the interstate but is sort of hidden by the winding sideroad it takes to get there. I'm the night auditor, my shift is from 11pm-7am, and it's Halloween. 
+I'm the night auditor at a large hotel on the edge of town. It's by the interstate but is sort of hidden by the winding sideroad it takes to get there. My shift is from 11pm-7am, and it's Halloween. 
 
- The hotel is large but half-gutted, the dining room and kitchen is closed for repairs, and has been for three years. There's a library, outdoor pool and huge sitting area with moss covered statues and a broken fountain all grown up with grass, also closed for repairs. 
+The hotel is large but half-gutted, the dining room and kitchen is closed for repairs, and has been for three years. There's a library, outdoor pool and huge sitting area with moss covered statues and a broken fountain all grown up with grass, also closed for repairs. 
 
 There's just long hallways on two floors that snake around the building. Hallways which people seem to get lost in. 
 
-By the time I clock in the parade of masked men and sexy female everything is in full swing. Drunk and drugged, the come stumbling in giggling and groping. Some off to their rooms, others asking me to renew their room keys, others reserving rooms. 
+By the time I clock in the parade of masked men and sexy female everything is in full swing. Drunk and drugged, they come stumbling in giggling and groping. Some off to their rooms, others asking me to renew their room keys, others reserving rooms. 
 
 Then he walks in. He's wearing a white, featureless mask and he's wearing a mechanic's overalls stained in black, wet patches. He's also holding a very real and bloodstained cutting knife. He walks up to the front desk and i greet him.
 "Welcome to the Comfort Inn, do you have a reservation?" 
