@@ -30,7 +30,7 @@ BACKGROUND VOICE (MALE): *I'm begging you. Do* not *let her take you down there.
 
 OFFICER MONROE: Alright, ma’am. I’ll take you down to retrieve your personal possessions, and then we’ll get you someplace safe – a hotel or a shelter for the night. We’ll help you fill out the paperwork for a temporary restraining order to keep you safe until your husband is well again.
 
-BACKGROUND VOICE (FEMALE): Thank you, Officer. It's just down here –
+BACKGROUND VOICE (FEMALE): Thank you, Officer. It's this way –
 
 BACKGROUND VOICE (MALE): I'm warning you, man...
 
@@ -46,11 +46,11 @@ OFFICER MONROE: I can’t say, exactly… She – she *did* things to them. *Wit
 
 DISPATCH: What do you mean, Monroe? Keep it together!
 
-OFFICER MONROE: She's got one of their faces stretched out over a lampshade. The lips are gaping open over the light bulb, there. There’s an – arm, with the hand attached, looks like she must've cleaned it and bleached it. She *planted* it, and she’s got ivy twisting up around it. With -- what is that -- a *heart* in its hand? And – oh my, no –
+OFFICER MONROE: She's got one of their faces stretched out over a lampshade. The lips are gaping open right over the light bulb! There’s an – arm, with the hand attached. Looks like she must've cleaned it and bleached it. She's got it *planted* in a pot, with ivy twisting up around it. With -- what is that -- a *heart* in its hand? And – oh my, no –
 
 DISPATCH: What is it, Monroe?
 
-OFFICER MONROE: It’s a skull. There's flowers growing out of the eye sockets, and one of them little bonsai trees coming out of the mouth… It's so small; gotta be a kid's... And what's that, some kind of crown? Made out of... ribs? *\[Sobbing\]*
+OFFICER MONROE: It’s a skull. There's marigolds growing out of the eye sockets, and one of them little bonsai trees coming out of the mouth… It's so small; gotta be a kid's... And what's that, some kind of crown? Made out of... ribs? *\[Sobbing\]*
 
 OFFICER MONROE: Jesus H. Christ – there’s photos on the wall, too… She's got a little shrine here, like.
 
@@ -70,8 +70,16 @@ DISPATCH: You gotta keep your head on straight for me, Monroe.
 
 OFFICER MONROE: My sweet God in heaven - there's a photo of me on that wall!
 
-DISPATCH: It's from the annual charity tournament for the Boys in Blue softball league. Don't you remember, Monroe? It was the day that I introduced you to my cousin, Avery.
+DISPATCH: It's a nice one, isn't it?
 
-BACKGROUND VOICE (FEMALE): I invited you out here because I needed material for new drapes, silly.
+OFFICER MONROE: What? I --
+
+DISPATCH: It's from the annual charity tournament for the Boys in Blue softball league. Don't you remember, Monroe?
+
+OFFICER MONROE: Huh? No --
+
+DISPATCH: It was the day that I introduced you to my cousin, Avery.
+
+BACKGROUND VOICE (FEMALE): I invited you out here because I need material for new drapes, silly. Don't you remember what I said to you on the day that we met? That you had the most beautiful, golden complexion...
 
 *\[Transcript 427, entered into evidence along with Officer Monroe’s bodycam footage from 12/\_\_\_\_ in reference to \_\_\_\_ serial murder case\]*
