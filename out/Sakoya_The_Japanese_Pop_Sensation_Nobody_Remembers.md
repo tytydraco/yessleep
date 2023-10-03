@@ -1,6 +1,6 @@
 It was 1998, I was twenty seven and big things were happening.
 
-I was one of the top session musicians in Japan. My band had caught a break with a hit song in the mid 90s, but we could never really capture that same success again. Fortunately it opened doors for me though, and I was able to build a career producing for upcoming artists.
+I was doing work as a session player in Japan. My band had caught a break with a hit song in the mid 90s, but we could never really capture that same success again. Fortunately it opened doors for me though and I was able to build a career producing for up and coming artists.
 
 The 90s were really a magical time for music. In my opinion, there was something about the cultural icons before the computer age of the new millennium... I don't know why, but to this day some of them still seem to have an almost *mythical* status.
 
