@@ -283,7 +283,7 @@ I ran home and flipped open the pages of my photo album. I screamed so hard that
 
 There were the photos of that day. The one of the man with disconcerting grin, and the one of the girls. There they were standing there with Sayaka, but....
 
-Sayaka's face was just a gray splotch, like someone had scratched it out... *violently*. 
+Sayaka's face was just a gray splotch, like someone had scratched it out... 
 
 Except it wasn't *scratched* out, it had been printed *INTO* the photo.
 
