@@ -277,7 +277,7 @@ That was until I went back to the coffee shop and saw him. The man with the grin
 "HAH-HAH-HAH-HAH' tears leaking from he his eyes while his face strained.
 "HAH-HAH-HAH-HAH" I nearly tripped as I backed away.
 
-I could see it in his eyes... *he knew*.
+I could see it in his eyes... *he remembered*.
 
 I ran home and flipped open the pages of my photo album. I screamed so hard that it hurt.
 
