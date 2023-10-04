@@ -46,11 +46,11 @@ OFFICER MONROE: I can’t say, exactly… She – she *did* things to them. *Wit
 
 DISPATCH: What do you mean, Monroe? Keep it together!
 
-OFFICER MONROE: She's got one of their faces stretched out over a lampshade. The lips are gaping open right over the light bulb! There’s an – arm, with the hand attached. Looks like she must've cleaned it and bleached it. She's got it *planted* in a pot, with ivy twisting up around it. With -- what is that -- a *heart* in its hand? And – oh my, no –
+OFFICER MONROE: She's got one of their faces stretched out over a lampshade. The lips are gaping open right over the light bulb! There’s an – arm, with the hand attached. Looks like she must've cleaned it and bleached it. She's got it planted in a pot, with ivy twisting up around it. With -- what is that -- a *heart* in its hand? And – oh my, no –
 
 DISPATCH: What is it, Monroe?
 
-OFFICER MONROE: It’s a skull. There's marigolds growing out of the eye sockets, and one of them little bonsai trees coming out of the mouth… It's so small; gotta be a kid's... And what's that, some kind of crown? Made out of... ribs? *\[Sobbing\]*
+OFFICER MONROE: It’s a skull. There's marigolds growing out of the eye sockets, and one of them little bonsai trees coming out of the mouth… It's so small; gotta be a kid's... And what's that, some kind of crown? Made out of... ribs and fingers? *\[Sobbing\]*
 
 OFFICER MONROE: Jesus H. Christ – there’s photos on the wall, too… She's got a little shrine here, like.
 

@@ -68,11 +68,11 @@ I began to take the photo, something still unnerving me about the man. Right whe
 
 "Okay... I will..." he said in a low voice.
 
-As we walked away I turned to see the man still standing there, clutching the photo and staring at us. We must have been a block away... he was *just staring... and staring... and starting...*
+As we walked away I turned to see the man still standing there, clutching the photo and staring at us. We must have been a block away... he was *just staring... and staring... and staring...*
 
 ***
 
-Unfortunately in spite of Sayaka's optimism at the cafe, things we're *not* fine. The happy and creative outpouring that we had the weeks prior was completely gone. The energy was now dark and borderline toxic. I had worked with 'divas' before but this was different.
+Unfortunately in spite of Sayaka's optimism at the cafe, things we're *not* fine. The happy and creative outpouring we had the weeks prior was completely gone. The energy now dark and border-lining on toxic. I had worked with 'divas' before but this was different.
 
 When we tried to record, Sayaka's heart just wasn't in it. There was constant bickering and fighting. I started to think maybe it wasn't going to be the record we hoped.
 
@@ -214,7 +214,7 @@ She looked at it and then back at me. She clasped my hand for a moment while she
 
 I went to her house, I wasn't sure what I supposed to find there. I looked around the living room when I saw it, a note on the table next to a leather bound book. It was a text on the legends and creatures of Japanese myth. I read the note.
 
-*"I told you I had made a mistake, done something I shouldn't have... I don't think you even heard me. Unfortunately it was true. This is something I can't fix, no one can. I should have payed more attention... I *was* foolish. Now it's too late. Don't come looking for me. Don't look for the Pale Man! DO NOT! Unless you want to suffer the same fate. I'm sorry!"*
+*"I told you I had made a mistake, done something I shouldn't have... I don't think you even heard me. Unfortunately it was true. This is something I can't fix, no one can. I should have payed more attention... I *was* foolish. Now it's too late. Don't come looking for me. Don't look for the pale man! DO NOT! Unless you want to suffer the same fate. I'm sorry!"*
 
 The pale man? I thought in disbelief. The man she left with? What was she talking about? I began flipping the pages rapidly.
 
@@ -224,13 +224,13 @@ I felt a lump in the bottom of my throat as a flipped the page... a sick feeling
 
 ***"The Covered Man"***
 
-It was him... The same unnaturally ghoulish looking pale skin. His face covered here, not by a hat but this time by his long-nailed hand. He did not wear suit in the depiction but a tattered black frayed robe.
+It was him... The same unnaturally ghoulish looking pale skin. His face covered here, not by a hat but this time by his long fingered hand. He did not wear suit in the depiction but a tattered black frayed robe.
 
 *"This folktale is extremely rare. Unknown to most, the only records taken from few small villages in rural parts of Japan. The Covered Man goes to great efforts to hide his face. However mysterious though it is said that the covered man appears to help people who are set on a goal..."*
 
 I stared at the book stunned trying to make sense of what I had just read. It continued.
 
-*"However... the covered mans own goal appears only to harm those who work to such ends. Do not trust a covered man! If your goal is to be rich he will make you poor. If your goal is to be healthy he will make you sick. If you want to be liked, you will be hated. Do not trust anything a covered man tells you regardless of how alluring it may sound. Once a victim falls for his tricks it's said he coerces and threatens the tricked one and those they care about."*
+*"However... the covered man's own goal appears only to harm those who work to such ends. Do not trust a covered man! If your goal is to be rich he will make you poor. If your goal is to be healthy he will make you sick. If you want to be liked, you will be hated. Do not trust anything a covered man tells you regardless of how alluring it may sound. Once a victim falls for his tricks it's said he coerces and threatens the tricked one and those they care about."*
 
 Why did she get into his car? Why is that I could never catch his face?
 
@@ -242,7 +242,7 @@ I called Rin, later that day. I couldn't believe it when he said...
 
 'I don't know who you are talking about? Who is Sakoya? Sayaka? Sakura? Whatever her name is! We have been recording instrumentals all week? Have you really gone mad?" he was 100% serious; he had no idea who she was.
 
-When I returned to the studio I rummaged for hours looking for the recordings and tapes... there was nothing. Not a single one. I couldn't even find the notepads with lyrics, or the notation for the songs.
+When I returned to the studio I rummaged for hours looking for the recordings and tapes... there was nothing. Not a single one. I couldn't even find the notepads with the lyrics, or notation for the songs.
 
 I asked one of the other session players. At first he looked at me wearily, but then he scanned the room and leaned in close.
 
