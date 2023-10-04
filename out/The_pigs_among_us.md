@@ -220,7 +220,7 @@ Olivia on the other hand appeared to be taking this pretty calmly. Or so I thoug
 
 “Alex, do you know why I moved here?” Olivia broke the silence. At first glance from my previous…”life”, I  thought I already knew the reason. However, I instead let her speak.
 
-“ I have seen one of them before, Ben. One of those pigs- or whatever the hell you want to call them. It ate 3 of my classmates in front of me. I still remember them screaming for help as I watched, too scared to move. After it was done eating, that monster just left me there. I have no idea why, yet it didn't end there.
+“I have seen one of them before, Ben. One of those pigs- or whatever the hell you want to call them. It ate 3 of my classmates in front of me. I still remember them screaming for help as I watched, too scared to move. After it was done eating, that monster just left me there. I have no idea why, yet it didn't end there.
 
 Everyone became convinced that my carelessness somehow caused a traffic accident and the death of my 3 friends. Nobody believed me no matter what I said. Not even my own family and friends. I was so alone and as I started getting death threats, in the end, we were forced to move.” Olivia said as she bawled her eyes out.
 
