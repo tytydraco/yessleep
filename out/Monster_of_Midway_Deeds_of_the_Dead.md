@@ -1,14 +1,9 @@
-**Monster of Midway**  
-[Part 1](https://www.reddit.com/r/nosleep/comments/160io59/the_monster_of_midway_fort_worden/) | [Part 2](https://www.reddit.com/r/nosleep/comments/1674mp9/monster_of_midway_rebecca_redding/) | [Part 3](https://www.reddit.com/r/nosleep/comments/16ce3mh/monster_of_midway_creature_in_the_woods/)
+**Monster of Midway** [Part 1](https://www.reddit.com/r/nosleep/comments/160io59/the_monster_of_midway_fort_worden/) | [Part 2](https://www.reddit.com/r/nosleep/comments/1674mp9/monster_of_midway_rebecca_redding/) | [Part 3](https://www.reddit.com/r/nosleep/comments/16ce3mh/monster_of_midway_creature_in_the_woods/)
 
-Sorry it's been awhile, but honestly I was debating whether or not to continue the story.  
-
-
-Part 1 almost has 2000 upvotes, and I wasn't expecting this many people to read what I had to write. I don't normally like attention, it's safer just keeping to myself, so it was overwhelming for a few days, and I almost deleted the posts entirely, but I feel like if I do that then I just continue being a slave to this for the rest of my life. Thanks again for all the support.  
+Sorry it's been awhile, but honestly I was debating whether or not to continue the story. Reliving these events has been... well... it was overwhelming for a few days, and I almost deleted the posts entirely, but I feel like if I do that then I just continue being a slave to this for the rest of my life.  
 
 
-  
-
+&#x200B;
 
 I can’t tell you how terrifying those first days were after seeing the creature in the woods outside my bedroom window. I was uncertain of everything around, questioning my very understanding of the workings of the world, and my perceived safety therein.
 
@@ -62,7 +57,7 @@ I tried wiping the tears from my eyes, but no matter how fast I cleared them, th
 
 Could I tell her? I thought to myself.
 
-But of course I couldn’t, she wouldn’t understand, how could she possibly believe what I had to tell her, what I desperately wanted to say was impossible. 
+But of course I couldn’t, she wouldn’t understand, how could she possibly believe what I had to tell her, what I desperately wanted to say was impossible.
 
 I stayed silent, chewing my lips, as that dark truth sat like a painful lump in my throat.
 
@@ -276,7 +271,7 @@ I couldn’t tell if I had heard her right, the words barely sounded like Englis
 
 “Danny Merrick Senior… I think it was his dad.
 
-”I tried to hold it in, but I laughed. 
+”I tried to hold it in, but I laughed.
 
 Part of me still thought it was a sick prank, and I chose to laugh with the joke, then to be the butt end of it.
 
@@ -296,6 +291,4 @@ I was shaking.
 
 [“Just standing, and watching from the edge of the woods. Just out of sight,” I said, and her face dropped.](https://open.spotify.com/show/4isOISm8gTLMgogJeJyV6s?si=0e5e68b2dbed488b)
 
-That's it for today. I know it's a cliffhanger, I'm sorry, but I'm a chronic night owl. Insomnia. So I write at night, and need to drop the story wherever it is if I start to feel sleepy, and it's 6:41 am right now. Honestly though, writing this has been helping me sleep unmedicated for the first time in a very long while.
-
-I'll try to update sooner this time. I know this long story is filled with a lot of quiet moments, and I'm not sure if that's fun to read, but I'm trying to be as true to the story with as much context as possible. But things are about to get really dark though so I'm trying to figure out how to put that into words.
+I'll try to update sooner this time.
