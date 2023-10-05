@@ -46,7 +46,7 @@ As we watch the car disappear into the distance, we exhale simultaneously, the w
 
 “That was close,” I whisper.
 
-Reine smirks, twirling the scarf around her fingers. "Never a dull moment with you, cher."
+Reine smirks, twirling the scarf around her fingers. "Never a dull moment with you."
 
 —
 

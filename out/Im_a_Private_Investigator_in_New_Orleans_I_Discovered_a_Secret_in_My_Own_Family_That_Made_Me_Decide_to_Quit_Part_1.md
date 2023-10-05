@@ -350,7 +350,7 @@ We stand, realizing that the childhood nook doesn't conceal us like it used to. 
 
 “Just reminiscing about old times,” Kira says quickly, her voice strained yet stable. The vulnerability from moments ago has receded behind a mask of normalcy.
 
-Reine eyes us skeptically but shakes her head with a playful smile. "Well, I just did a rendition of 'Billie Jean.' Your cousin Michelle said it was 'fire,'" she says, brandishing a microphone like a trophy. "Your turn to suffer, my love."
+Reine eyes us skeptically but shakes her head with a playful smile. "Well, I just did a rendition of 'Billie Jean.' Your cousin Michelle says I ate, whatever that means,'" she says, brandishing a microphone like a trophy. "Your turn to suffer, my love."
 
 I take the mic from Reine, my hand brushing against hers. Her skin is warm and comforting, a stark contrast to the chill that has settled deep within my bones. “You set the bar so high,” I tease with a forced laugh, trying to make light of the situation. “I don’t know how I can compete with the Cajun Queen.”
 
