@@ -1,0 +1,31 @@
+Hello readers, I once considered myself an outcast to society, and thought that modern life was hell due to my fear of driving and the monotony of many "good" jobs nowadays. This was what I considered my own personal hell, oh how wrong I was. You see a few years ago I found out about a family member who told me she found a real god of knowledge's prayer book. I thought "to hell with it" and decided to go to her house and learn more about this supposed "god of knowledge" no one else seems to have heard of.
+
+"Hey, glad you could make it John! I was just about to start the preparations!" She rasped out in her voice.
+
+"Preparations? I thought you were just going to tell me about it Emma, you usually don't like doing things with me anymore." I replied confusedly.
+
+"Yeah, well you used to take the things I do as odd, or weird, but now, now we can open our eyes to the world as they so deem it to be!" Emma replied almost fervently, and at this point I should've known something was up by her odd, cultlike reverence towards this mysterious "god" of hers.
+
+"A-Alright" I muttered "I'll do it."
+
+I know usually in stories I've read on here people get odd feelings or some kind of dread building up in them, but I've always been interested in odd, or small religions so the only thing I felt was this growing excitement at the prospect of being introduced to a truly lost religion. I hurried up and followed her to her basement, where she had this odd shrine, and what looked like a star calendar with today marked in red."John, we, together shall be granted sight from the one true God of Knowledge! Just lay down and follow my lead..." She soon trailed off as she started preparing some odd concoction that smelled awful, I mean think of everything mad you've ever smelt and multiply it my forty. I tried to hold down my vomit, but quickly puked off the side of where I lay. She then walked over to my shivering, vomiting form, and poured some onto me. At this point I was too preoccupied to even think of stopping her as I proceeded to empty my stomach again.
+
+After she doused our bodies in this foul liquid she started chanting in a language I didn't know. It could've been something like Greek or Latin, but my Unilingual self wouldn't know better. In the deep recesses of my mind as soon as I heard it, I knew, this was something far more primordial, and far far more sinister than our human tongues. After she finished chanting this odd disjointed song, the room started to seem... off I would say. The walls seemed less real, I didn't think of a person when I looked at Emma, and most importantly, the smell of the room changed very. very fast.
+
+"Yes! It worked!" Emma practically screamed. "Hahahahahaaa!" she doubled over in hysterical laughter. "Me and you John, we'll see and live in this wondrous true world of ours!" She seemed, off though, almost driven mad by whatever happened, I know now that she was given full sight of the world as it is, whereas I was slowly being granted access to what I refer to as "truesight", but in the moment I thought she went crazy... well crazier than she normally was.
+
+"Emma? This, this isn't like you, please calm down." I tried to reason with my hysterical cousin to no avail.
+
+"Don't you see John, this is what the world truly is!" and as she was saying that the ground started to seem, softer. The walls leaking a red fluid, and I started to hear gnashing, gnawing noises outside. I quickly ran outside to escape whatever, at the time I thought Emma was making me experience, and I truly SAW out there. "Stop!" she called after me but I ignored her even as I heard a God-awful scream and the sounds of crunching.
+
+I looked into a neon purple sky and saw these writhing twisting, beings. Like an infinitely regressing spiral boring into the Earth lined with eyes, teeth and tendrils, along with 4 giant eyes where the Sun once stood. "The F\*ck" i muttered to myself. "T-this cant be real, it can't be!" I told myself, not really believing what I was seeing. I heard a odd slimy \*thwap, thwap, thwap\* from the forest near her house, and turned back to see something like a piranha mixed with a bug fly out of the forest. I would've ran but i thought that a hallucination wouldn't be able to hurt me.
+
+"Hey, c'mere, I won't hurt you." I said towards this THING. "It's okay!" I watched as it flew quickly towards me. I thought that if this bird or bug came, i wouldn't want to hurt it, in what I thought at the time was a drug induced fit. After it reached me however, I held a hand out, and it CONSUMED it. I cannot give enough emphasis to what it did, it felt like my very being, my very soul, was also consumed a little with this things bite. I fully expect that if there is an afterlife, I will still not have my right arm in it when I die either. My vision swam for the last time, as the ground itself turned into this meaty fleshing mush, and the other people started to look, half devoured when I went back to town.
+
+When I visited my home I noticed, people with chronic illnesses in my family had these, leech like things latched onto them. They were sucking a gold, and silver liquid out from their chest, right where their heart would be.
+
+I've noticed over the days however, the odd things I see in the distance, These Gnashing maws of inexistence, these things antithetical to reality itself, seem to take more and more notice of me, the more I look and SEE them.
+
+Over the years I've grown numb to my truesight. Seeing friends waste away from "cancer" or die of a "heart attack", but seeing these things that feasted upon their flesh. I just wish I never opened my eyes to the reality with my cousin's help. I do what I can to help people, I try to remove these odd things that prey upon us, but I'm tired, so, so very tired of it all. There is only so much one can see before they break, and I reached that point long ago.
+
+So I now call to you, If any of you see a black haired male with grey eyes, missing a left arm, and constantly looking at the sky in fear, please, please, please just run, these things seem to follow me more than anyone else I've seen, and whatever you do, those odd things you see in the corners of your eye, where the illusion breaks, DON'T go searching for a way to see them, you just might see the world for as it is.
