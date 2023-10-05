@@ -17,7 +17,7 @@ Tom chuckled and I couldn’t help but crack a smile myself. It’s rare that yo
 
 “You know, Paul. I’m not just here to talk about work and shit like that. Money’s been tight for the both of us, lately. I think I found a way we could both scratch up a couple of dollars.”
 
-I chewed on it for a minute, making a big show out of reaching in the breast pocket of my cord jacket and pulling out a pack of Lucky Strikes. I struck a match on one of the  metal legs of my patio chair and touched the flame to the end of the cigarette. There was no real point in the whole ritual and Tom knew it. He had me hooked. 
+I chewed on it for a minute, making a big show out of reaching in the breast pocket of my cord jacket and pulling out a pack of Lucky Strikes. I struck a match on one of the metal legs of my patio chair and touched the flame to the end of the cigarette. There was no real point in the whole ritual and Tom knew it. He had me hooked. 
 
 *At least Roseanne and I could eat out every once in a while without it being the end of the world.*
 
@@ -27,7 +27,7 @@ The thought sat there in my mouth, the way they sometimes do when you stop yours
 
 To this day, I still regret that I decided to hear him out and I regret even more that I decided to go along with it. But as my father used to say, hindsight is one fickle son of a bitch and you never know when it’s going to bite you. I should have known better at twenty-five years old, but it took me until I was sixty-five to realize it. 
 
-I regret it to this day, and I probably will for the rest of my life. But back then I was young and dumb. Roseanne had just married, work was slowing down and all I used to think was that it was no way for any bride to live, but certainly not Roseanne and certainly not a newlywed. All I can do is thank her, because she stuck with me, even through the rough, even when it got downright horrific. 
+I regret it to this day, and I probably will for the rest of my life. But back then I was young and dumb. Roseanne and I had just married, work was slowing down and all I used to think was that it was no way for any bride to live, but certainly not Roseanne and certainly not a newlywed. All I can do is thank her, because she stuck with me, even through the rough, even when it got downright horrific. 
 
 Tom kind of snickered and set the half-ship, half chunk of wood aside. His chair slid across the concrete patio with a loud scratch as he picked it up and swiveled it in a half circle and set it down so he could talk to me face to face instead of side by side. He leaned in real close, his voice a barely audible whisper. 
 
@@ -77,9 +77,9 @@ Still, someone must, so eventually he reached a hand into the box and withdrew t
 
 “You see, he told me that the court granted his daughter guardianship over him. They tried to say he’s not in right mind.”
 
-Crazy as a loon, even. Ain’t that right ma?
+*Crazy as a loon, even. Ain’t that right ma?*
 
-I hoped she was looking down from me up there in heaven and smiling. Lord knows it was about time I remembered something she’d told me. I only wish I’d had the sense to think about it. 
+I hoped she was looking down from me up there in heaven and smiling. Lord knows it was about time I remembered something she’d told me. I only wish I’d had the sense to think about what it meant. 
 
 “Okay. And the free money?”
 
@@ -101,7 +101,7 @@ Oh, hindsight, you fickle bastard. If only I’d stopped to think. But who does 
 
 So we agreed that we would meet at the same spot on my back patio tomorrow at three in the afternoon and drive over there together. We said our farewells, then I picked up the cardboard and the takeout bags and I buried them in the outside trash can, underneath a couple of bags where Roseanne wouldn’t find them. 
 
-That night, when she got home from work, I didn’t mention anything about going to clean out the McNulty house. At first, after it all happened, she used to ask why I didn’t. It’s wasn’t an accusation though, she was just curious. I can’t blame her for that. Mostly, I’d tell her that I wasn’t sure and she could tell it was the truth, so she’s learned to just leave it alone. 
+That night, when she got home from work, I didn’t mention anything about going to clean out the McNulty house. At first, after it all happened, she used to ask why I didn’t. It wasn’t an accusation though, she was just curious. I can’t blame her for that. Mostly, I’d tell her that I wasn’t sure and she could tell it was the truth, so she’s learned to just leave it alone. 
 
 Instead, I kept my mouth shut and I didn’t say a word about it. There was a pot roast in the slow cooker and we sat at the table and ate. 
 
@@ -133,7 +133,7 @@ I’ll give you one piece of advice right now. It’s up to you to take it, but 
 
 You know that feeling when you’re about to do something and suddenly everything just seems wrong? Where your skin prickles with goosebumps and all the hair on your body seems to be standing on edge? 
 
-I knew a kid in high school who got that feeling once. He was sitting with his girlfriend under a tree and suddenly, out of nowhere, he got that sinking feeling in his stomach. He tried to tell his girlfriend that they needed to leave, but she wouldn’t listen. As he moved from under the tree he tried  again to convince her, but it was too late. A branch damaged from a storm a few days ago finally broke free from its proverbial mooring and hit her with enough force to snap her neck. 
+I knew a kid in high school who got that feeling once. He was sitting with his girlfriend under a tree and suddenly, out of nowhere, he got that sinking feeling in his stomach. He tried to tell his girlfriend that they needed to leave, but she wouldn’t listen. As he moved from under the tree he tried again to convince her, but it was too late. A branch damaged from a storm a few days ago finally broke free from its proverbial mooring and hit her with enough force to snap her neck. 
 
 So that’s my advice to you. When you get that feeling, turn around and walk. It’s not worth it. As it stands, I never got that advice. Maybe I wouldn’t have taken it to heart, or maybe I would have. Maybe I would have turned and walked, or maybe I would have tried to convince Tom it wasn’t worth it. Maybe he would have listened, maybe he wouldn’t have. Maybe, maybe, maybe. It won’t get you very far. 
 
@@ -143,19 +143,19 @@ We got to the porch and stepped up the stairs carefully, avoiding holes that see
 
 Inside, the air was thick with dust and cobwebs. Worse than that was the humidity. There didn’t seem to be air conditioning and although I assumed there was no electricity due to the dim exterior, a ceiling fan circling lazily overhead suggested otherwise.  
 
-Tom held a finger to his lips, which seemed reasonable. If the old loon was home, there was no point in startling him from his nap. It made sense to me at the time, though every now and again I wonder if that’s just something I say to assure myself that I didn’t actually know what’s going on. Who knows?
+Tom held a finger to his lips, which seemed reasonable. If the old loon was home, there was no point in startling him from his nap. It made sense to me at the time, though every now and again I wonder if that’s just something I say to assure myself that I didn’t actually know what was going on. Who knows?
 
 We crept through the house, past boxes of old newspapers and bags of cat food. They had been gnawed open on the sides, probably by rats. There was an unnatural stillness to the place, not like the peaceful moment Tom and I had shared on the back patio that now seemed so far away. 
 
 “So you’ve come to steal from old Herman, have you?”
 
-My stomach dropped into my throat as we turned to face the owner of the voice, but I knew, I knew, just by the rust and shakiness of vocals cords that hadn’t been used to speak more than ten words to another human being in as many years that behind us was Herman Mcnulty himself. 
+My stomach dropped into my throat as we turned to face the owner of the voice, but I knew, I knew, just by the rust and shakiness of vocal cords that hadn’t been used to speak more than ten words to another human being in as many years that behind us was Herman Mcnulty himself. 
 
-So we turned, coming face to face with a man, shirtless and emaciated, his lower body covered by a pair of overalls. He had  wiry, unruly beard. Underneath that beard his yellowed teeth were bared in a snarl and his eyes had clouded with cataracts long ago. 
+So we turned, coming face to face with a man, shirtless and emaciated, his lower body covered by a pair of overalls. He had a wiry, unruly beard. Underneath that beard his yellowed teeth were bared in a snarl and his eyes had clouded with cataracts long ago. 
 
 Tom went to say something, but his voice was drowned out by the deafening report of the shotgun. It rang out and bounced against the walls and at the time it seemed like maybe the ringing in my ears would never go away. But over it all, I heard the dull thud of buckshot hitting Tom in the chest and I watched as he staggered backwards. Not like the movies, where they fly backwards, just a slow, shocked movement. 
 
-He fell backwards and crashed into the wall, behind him, staring up at me. His eyes filled with tears as he clutched his hands to his chest and stomach. Blood trickled out from between his fingers as he tried desperately to stop the bleeding, but it was fatal and we both knew it. That’s what I have nightmares about, more than anything. More than Herman McNulty, even. I have nightmares about Tom’s face and how pale and scared he looked as he lay there dying up against the wall of Herman McNulty’s house. 
+He fell backwards and crashed into the wall behind him, staring up at me. His eyes filled with tears as he clutched his hands to his chest and stomach. Blood trickled out from between his fingers as he tried desperately to stop the bleeding, but it was fatal and we both knew it. That’s what I have nightmares about, more than anything. More than Herman McNulty, even. I have nightmares about Tom’s face and how pale and scared he looked as he lay there dying up against the wall of Herman McNulty’s house. 
 
 For a tense, horrible moment, it seemed like I was next. Then, Herman jerked the shotgun towards the door. 
 
@@ -163,11 +163,11 @@ For a tense, horrible moment, it seemed like I was next. Then, Herman jerked the
 
 I ran. God help me, I ran. I ran all the way down the half mile dirt road, then I got in the car and I pushed the accelerator down to the carpet, hard enough that I thought it might punch through the damn floor and snap off. Somehow I shaved fifteen minutes off the forty-five minute drive and the minute I got home I ran inside and called 9-1-1. 
 
-There were questions, of course. There always questions, even more so when there’s a homicide involved. Most of the questions were about exactly what happened that afternoon, but some of them were about what we were doing there. There was only one thing to tell them, so I told them the truth. Not the whole thing, I didn’t tell them about the gold, just that we were there to clear out the house for him. 
+There were questions, of course. There's always questions, even more so when there’s a homicide involved. Most of the questions were about exactly what happened that afternoon, but some of them were about what we were doing there. There was only one thing to tell them, so I told them the truth. Not the whole thing, I didn’t tell them about the gold, just that we were there to clear out the house for him. 
 
 Herman McNulty never did any time for killing Tom. I didn’t expect him to and truthfully, I don’t think I wanted him to. He made it to the old folks’ home eventually and that was hell enough. 
 
-At first, the police were going to charge me with robbery, only Herman McNulty was so off his rocker by the time they got there all he could really do was babble to himself and wave the shotgun around until they finally got him under control that they couldn’t get a testimony. After a long enough time of sticking to my story, which was entirely true, minus a detail or two, they let me go. 
+At first, the police were going to charge me with robbery, only Herman McNulty was so off his rocker by the time they got there all he could really do was babble to himself and wave the shotgun around until they finally got him under control and they couldn’t get a testimony. After a long enough time of sticking to my story, which was entirely true, minus a detail or two, they let me go. 
 
 That just about wraps it up, or so you would think. But here’s the one thing I’ve never told anyone, not even Roseanne. Even though the police told me over and over again the same thing my mother used to tell me, that he was crazy as a loon and he probably didn’t even recognize Tom, they never looked into Herman Mcnulty’s eyes. 
 
