@@ -146,3 +146,5 @@ The rest of the day has been spent planning. Kevin went back to work to grab som
 Jacob dug up his old law text books. He said something about brushing up on contracts. I’m not sure what’s going to happen to me at 3 AM. Given what happened last time I tried to skirt the system, I’m worried what G will do to me when I come with friends.
 
 [If I make it to the morning, I’ll try to provide an update.](https://www.coleschapters.com)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/170v6p8/i_deserved_the_divorce_but_no_one_deserves_what/)
