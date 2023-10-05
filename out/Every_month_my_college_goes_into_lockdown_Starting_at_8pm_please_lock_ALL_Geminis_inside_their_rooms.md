@@ -30,7 +30,7 @@ But not to these guys.
 
 Starting my freshman year, I started to realize how badly the Gemini students were being treated, with the guys getting the worst of it. Being a late admission, I was new, along with another kid who appeared to be the joker of the class at first. He was friendly enough, introducing himself with a grin. We were asked for our star signs as an ice breaker– or what I thought was an ice breaker– and he shrugged with a small smile. "Uh, I think I'm a Gemini?" He sounded unsure of himself, leaning back in his chair. 
 
-"Yeah. I was born on July 10th. I'm a Gemini." 
+"Yeah. I was born on June 10th. I'm a Gemini." 
 
 I expected that to be the end of it, but I noticed a sudden shift in the air. Like the guy had just announced he had murdered his whole family. The girl sitting next to him inched away slowly, dragging her laptop with her, while the rest of the class seemed to collectively let out a breath before twisting to the back of the class. It was almost a robotic movement, their heads snapping around, eyes narrowing. I didn't even see them. 
 
@@ -296,11 +296,21 @@ Another guy's voice hissed from behind the door.
 
 "Nope." 
 
-I left them to argue, making it back onto campus. 7:59. Bathroom. That was all I could think of. I started toward the main building, when movement flashed in the corner of my eye. I saw them pouring from campus, illuminated in brilliant orange from the torches in their hands. 
+I left them to argue, making it back onto campus. 
+
+7:59. 
+
+Bathroom. 
+
+That was all I could think of. I started toward the main building, when movement flashed in the corner of my eye. I saw them pouring from campus, illuminated in brilliant orange from the torches in their hands. 
 
 **Leo's.**
 
-I recognized several faces from my class. They moved as one, a large group heading across campus toward the clearing in the woods. There were exclusive clubs on campus, but this was a whole other level. I ducked, mapping a way to get on campus without being caught. If I could get to the door and make a clean break through the cafeteria, I could dive into the girl's bathroom next to the elevator. I dropped to my knees in an attempt to crawl, when I saw her. 
+I recognized several faces from my class. They moved as one, a large group heading across campus toward the clearing in the woods. They wore pyjamas, normal clothes, like they were going to hang out. But sonething in the air and prickling across my skin told me difffernt. There were exclusive clubs on campus, but this was a whole other level. I ducked, mapping a way to get on campus without being caught. 
+
+If I could get to the door and make a clean break through the cafeteria, I could dive into the girl's bathroom next to the elevator. 
+
+I dropped to my knees in an attempt to crawl, when I saw her. 
 
 The  bright red hair was a giveaway, her bobbing ponytail frenzied as she joined the others. 
 
@@ -350,7 +360,11 @@ Elle didn't respond for a moment. "Your eyes," she whimpered. "It's in your eyes
 
 Elle pulled me to my feet, and I staggered blindly, trying to balance myself. "I'll take you to a bathroom," she breathed, shoving me forward. "But if you tell anyone I helped you–" 
 
-"I won't." I tripped over something, almost falling on my face. The further we were getting, I could sense something… light. It started as a pinprick of light behind my eyes, before spreading, bleeding light fraying through the material of Elle's jacket. There was one bright splodge of light, and then another, and another. 
+"I won't." I tripped over something, almost falling on my face. The further we were getting, I could sense something… light. It started as a pinprick behind my eyes, before spreading, bleeding light fraying through the material of Elle's jacket. There was one bright splodge of light, and then another, and another. 
+
+Speckled illuminations like glitter illuminating the night. 
+
+Closer, they told me. 
 
 I followed them almost giddily, watching them burn through Elle's jacket. When the sound of thundering footsteps sliced into me, I turned my head, trying to sense where it was coming from. 
 
@@ -442,7 +456,9 @@ There was something in my mouth, and spat it out, expecting stale barf. What I w
 
 It took me several seconds to realize the toilet bowl I had my head down was not empty. 
 
-In the flickering light from the broken light fixture above me, I saw the glistening red first, spattered on the lid, and when I looked down, on the floor too, staining my knees. And then I saw all of it. The bulging, slimy red mess sticking from the bowl. I lurched back, and something was stuck at the back of my throat. I reached into my mouth, cringing, and pulled out what looked like a mauled finger, skinned of flesh. There was only spiky pieces of bone fragments clinging to shredded muscle. Something inhuman croaked from my lips, and I slammed my hands over my mouth, my gut twisting. 
+In the flickering light from the broken light fixture above me, I saw the glistening red first, spattered on the lid, and when I looked down, on the floor too, staining my knees. And then I saw all of it. The bulging, slimy red mess sticking from the bowl. I lurched back, and something was stuck at the back of my throat. I reached into my mouth, cringing, and pulled out what looked like a mauled finger, skinned of flesh. There was only spiky pieces of bone fragments clinging to shredded muscle. 
+
+Something inhuman croaked from my lips, and I slammed my hands over my mouth, my gut twisting. 
 
 I looked up. 
 
@@ -450,7 +466,9 @@ Red.
 
 I looked down. 
 
-More red. Vivid, and wet, and recent. 
+More red. 
+
+Vivid, and wet, and recent. 
 
 I was covered in dirt and grass stains, my legs bloodied and bruised, half of my hair ripped out. The walls around me were the same shade, glistening, pooling, disgusting red, dripping and staining every surface. The lumpy red mass sticking from the toilet bowl suddenly looked less like a mass, the more I was looking at it, blinking through blinding light. 
 
