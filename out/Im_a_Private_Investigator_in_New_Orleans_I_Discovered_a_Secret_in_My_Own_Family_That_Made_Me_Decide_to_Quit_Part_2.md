@@ -160,4 +160,6 @@ The silence in the car is heavy as we watch Xuan and Lockhart leave the diner. T
 
 But we know differently. We stumbled into a web far more intricate and dangerous than we could ever imagined. There's no turning back now.
 
+[Part 3](https://www.reddit.com/r/nosleep/comments/170lx9b/im_a_private_investigator_in_new_orleans_i/)
+
 [X](https://www.reddit.com/r/PageTurner627Horror/)
