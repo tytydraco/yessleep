@@ -1,8 +1,6 @@
-**Prologue**  
+
   
 Life, you see, is all about balance, a delicate dance between body and soul. A perfect harmony that needs both to flourish. In this world, and maybe the next, the River Obice is the stuff of legends—a mystical waterway said to bridge the realms of the living and the afterlife. People speak of it in hushed whispers, as if fearing to disturb the very forces it embodies. It's a gate, like any other, passable when open, but once it shuts, it's a prison, like some kind of semi-permeable membrane, keeping souls trapped.  
-  
-**Chapter 1: The Unforeseen Torrent**  
   
 The sun hung high in the sky, casting its warm embrace upon us—a trio of adventurous souls. My name's Alex, and I'm the one who usually gets us into wild escapades, the kind you remember forever. Then there's Ben, our brainiac with a wild mop of dark hair, the one who knows the ins and outs of the great outdoors. And last but not least, Charlie, the prankster with an infectious laugh that could brighten even the gloomiest of days.  
   
@@ -18,11 +16,8 @@ In an instant, torrential rain fell from the heavens, drenching us to the bone. 
   
 Hours later, I awoke, soaked and shivering on the riverbank. Confusion and dread filled my heart as I realized that Charlie was nowhere to be seen. Ben, conscious but in pain, clutched his injured arm. The River Obice had turned from a source of wonder into a treacherous force that had swept us away from our carefree existence and into a nightmarish journey filled with unanswered questions.  
 
-
-**Chapter 2: Desperate Search**  
-  
 Our priority was clear—to find Charlie, our lost comrade. He was one of us, part of the trio that had shared countless adventures and laughs. Panic still pulsed through my veins as we traced the path of the River Obice along its winding bank.  
-  
+ 
 The torrential flood had swept away our belongings, leaving them scattered along the riverbank. It was a grim breadcrumb trail marking our harrowing journey, but it also hinted at the path we should follow. We had no other option.  
   
 Ben's condition was worsening. His arm, injured during our escape, had become a dead weight, slowing him down considerably. Every step we took was fraught with worry, and our calls for Charlie echoed through the dense forest.  
@@ -36,16 +31,12 @@ The pale-looking character pointed a bony finger in a direction and muttered cry
 With a voice that sent shivers down our spines, the pale-looking character said, "One of you is already lost to the river, but there's a chance to save one more."  
   
 Its enigmatic words hung in the air, confusing us further. What did it mean by "lost to the river"? And why did they speak of saving one more? With no answers forthcoming, we reluctantly followed the direction indicated by the mysterious figure, driven by a blend of hope and dread as we continued our desperate quest to find Charlie and ensure Ben's survival.  
-
-
-**Chapter 3: Echoes of Fate**  
-  
+ 
 We followed the cryptic guidance of the pale-looking character through the strange, mist-covered forest. The air seemed to thicken with each step, and the feeling of being watched never left us.  
   
 And then, a miraculous sight—it was Charlie, our lost friend! But something was horribly amiss. Charlie was waist-deep in the River Obice, struggling against the relentless current, his eyes fixed on something beneath the surface. We called out to him, shouted his name with all the strength we had left, but he remained oblivious to our presence.  
   
 We ran towards him, frantic with fear and desperation. And as we got closer, the shocking truth unveiled itself—Charlie was trying to save someone from drowning.  
-
 
 That someone was me.   
   

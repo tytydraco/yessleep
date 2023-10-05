@@ -142,7 +142,7 @@ The conversation continues, fragments of words and phrases filtering through the
 
 "Sacrifice?" Reine mouths silently to me, a line of worry etching her features. The questions multiply in my mind, each one more disturbing than the last.
 
-There's a pause, and the muffled sound of Xuan's deep, shuddering breath filters through the ambient noise. “I understand, Ms. Lockhart,” he concedes, a hint of despair in his voice. “I apologize for my moment of doubt.”
+There's a pause, and the muffled sound of Xuan's deep, shuddering breath filters through the ambient noise. “I understand, Ms. Lockhart,” he concedes, a hint of despair in his voice. “Nothing can stand in our way. I apologize for my moment of doubt.”
 
 The conversation between Xuan and Lockhart continues, but their words become harder to discern. They talk in hushed tones, whispering about arrangements, people in place, and a device capable of breaching barriers beyond human comprehension. It’s a puzzle, each piece more intricate and confusing than the last.
 
