@@ -1,6 +1,6 @@
 [\[Part 3\]](https://www.reddit.com/r/nosleep/comments/16y47nz/the_road_to_new_wilderness_part_3/)
 
-[\[Part 5\]](https://www.reddit.com/r/nosleep/comments/16zvpq4/the_road_to_new_wilderness_part_5/)
+[\[Part 5\]](https://www.reddit.com/user/RandomAppalachian468/comments/16zv86c/the_road_to_new_wilderness_part_5/)
 
 Stepping through the front doors of the clinic, I felt the humid night air hit my skin, and invisible fingers of the wind ruffled the nearby grass. Nine-foot-tall woven wire fences lined the little gravel driveway that ran past the two-story clinic building, reminding me of the time I’d gone to the Cincinnati Zoo. A nearby wooden sign bore green painted arrows pointing in different directions, two oriented right for ‘Maintenance’ and ‘Carnivore Cove’ while a third pointed left for ‘Herbivore Barns’. A hundred yards away, I could see a tall, dark structure that stretched in both directions, jagged and black against the night sky, with spools of razor wire all along the top of it.
 
