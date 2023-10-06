@@ -6,8 +6,6 @@ The college Dean was lecturing me, and I was staring down at my lap trying to fa
 
 Every time I moved, I noticed them snap to attention in the corner of my eye. 
 
-**This was an Ivy League school.**
-
 I was supposed to belong here. I was supposed to find myself. But all I had found was a student body  that were deadly serious about separating their students according to the zodiac. My gaze flicked to an astrology chart on the wall, with the school's least favorite sign scribbled out in permanent marker. 
 
 The Dean's office was an astrologer's wet dream. The Dean herself was my mother's age, a scowling woman who was more shadow than person, a projector illuminating constellations across the room, casting her face in eerie white light. I had been lazily following Orion across the walls when she finally snapped, and I jerked to attention, my gaze flicking back to her. 
