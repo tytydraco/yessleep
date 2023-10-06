@@ -80,3 +80,5 @@ If you do, please, tell me what Aubrey and I should do. Anything that might help
 
   
 If I don’t post…you’ll know we didn’t make it.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1710vpi/the_emergency_broadcast_test_did_something_to_the/?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=share_button)
