@@ -317,5 +317,4 @@ I went to closet, yanked back the shirts to reveal the safe, plugged in the code
 I tossed in the tape, shut the door, locked it. I climbed into bed knowing what I needed to do next. It was time to find out what the hell this Halfollow House was, and just how this cassette got from there to us.      
 
 
-
-**[Bet your ass updates incoming]**
+You can bet your ass I'll update you when I know more.
