@@ -92,6 +92,12 @@ That’s when the door burst open. My blood chilled as Lacey’s father raced fo
 
 “Welcome to [the family](https://www.facebook.com/P-F-McGrail-181784199029462/)!”
 
+--------
+
+[I didn't feel welcome](https://redd.it/1717lr2)
+
+-----------
+
 [BD](https://www.reddit.com/r/ByfelsDisciple/)
 
 
