@@ -151,3 +151,7 @@ I'm supposed to check out tomorrow morning.
 I have a feeling that tonight, I’ll finally find out what happened to Liz.
 
 Wish me [luck](https://www.reddit.com/user/JamFranz/comments/11or7ez/hello_and_welcome/).
+
+&#x200B;
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/172fxgj/two_years_ago_my_friend_went_missing_from_a_hotel/)
