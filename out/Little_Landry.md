@@ -140,7 +140,7 @@ The white patch looked sort of odd.
 
 I leaned in close, real close, bringing myself right level with the patch.
 
-And I saw that the patch wasn’t really a patch. It was more of a hole in the wall. And the white that bulged from the opening had an outward curve to it, and glistened a little in the light.
+And I saw that the patch wasn’t really a patch. It was more of a hole in the wall. And the white that bulged from the opening had an outward curve to it, and glistened a little in the light . . . like the white of an eye.
 
 And then I heard it.
 
