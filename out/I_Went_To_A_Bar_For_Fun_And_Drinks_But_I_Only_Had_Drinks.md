@@ -114,8 +114,30 @@ When I woke up, I was in a hospital bed. Jerry was beside me, reading a book. He
    
 “He passed away before he reached the hospital.”  
    
-I cried for hours. They let me out of the hospital after about an hour just so they could make sure the drugs weren’t messing with my system. I went home to an empty house, everything was exactly as we left it the same night before. I was still exhausted from all the mental torment and it’d been a while since I’d slept. I couldn’t sleep, though. I cried throughout the night and all the way through yesterday. I haven’t been able to see his body, which is probably for the best. I just hope we can have an open casket.  
+I cried for hours. They let me out of the hospital after about an hour just so they could make sure the drugs weren’t messing with my system. I went home to an empty house, and everything was exactly how we’d left it the night before. It was still, an eerie quiet I don’t wish a single soul to hear. The quaint humming of lights and passerby cars. This desolate solitude mirroring how I felt in my own head, the nothing that accompanied a lost soulmate.  
    
-Part of me feels guilty. I feel guilty for a lot of things that happened that night. Part of me also feels scared. They haven’t caught the pieces of shit that were there that night. One of them took a bullet, and I know those guys are probably fucking furious at me. Especially Derek. Seeing what he did to Ray, to Tony, I’m scared they’ll do worse to me.  
+I laid my head down, still groggy from the drugs in my system, when I lost all control and temperament and broke down into tears. Nothing could’ve felt worse than that moment when the dust had settled, except for what came next.  
    
-What can I do? They probably have rich parents who’ll make sure they get off scot free and then they’ll find me. I don’t have anyone to protect me. I’m scared. I’m alone. And I miss Tony. Please, just be careful at bars everybody. Drinks and fun can turn into drunken nightmares so easily.  
+The door ringing. I wasn’t expecting anyone, but it may have been someone coming to give me “prayers” or “be here to talk”, so I ignored it to wallow in my sheets. And it rang again. My thoughts were wild, but being rattled by the piercing sound in the void. I’ll admit that in my grief, I didn’t care who it was, even if I opened that door to my own mother I’d scream her away like a psycho. I just wanted to be left alone. I just wanted to be left alone.  
+   
+I swung open the door to a masked man with a gun shimmering in his pocket.  
+   
+“Don’t make me do this now, in public. Let me in,” he muttered in a cold tone.  
+   
+My eyes went from rage-filled wide to absolute horror. I did as he said, closing the door very slowly. And leaving it unlocked.  
+   
+He immediately grappled me to the floor, and took off his ski mask. It was Derek. They say a hostage knows they’ll die when their captors take off their masks, I knew a lot worse was going to happen.  
+   
+“I wanna finish our date, baby,” he said as his weight held me down. I was completely unable to move, fight back, or anything of the sort. I opened my mouth to scream for help, but only a squeak escaped as he slammed his palm right over my face, saying, “Don’t do that, we don’t want anyone to come help now.”  
+   
+Tears streamed down my face as his gun aimed at my head. I shook my head violently, desperately hoping I would wake up to a warm bed next to Tony. As he smiled sadistically a gunshot rang out across the house. His smile faded into shock, eye twitching.  
+   
+“Get up! Get him off and go!” I heard a voice yelling.  
+   
+I managed to push him off quickly, slapping the gun out of his hand and crawling to safety. I watched as he leapt for it in a last ditch effort, only to be put to a chilling halt as more gunshots sounded. His quick jolts as the bullets ripped through him were his final movements, and blood sprayed all over my once peaceful abode.  
+   
+I stared in shock as a hand pulled me up, “Get her an EMS, stat!” another one yelled. I felt a cold wetness dripping down my stomach, my eyes finally leaving Derek’s limp body to my own, revealing pure red. Was it my own? Was it his?  
+   
+The paramedics pulled out a small fragment from my torso. Other than the utter trauma, I was fine. They wheeled the body away, and I saw horrified faces glancing at it from inside the police cars. Derek followed me the whole way, he never left. After the cops caught his buddies, finding out they had no idea where he was, it clicked. Most of them will get off scot free, blaming the sociopathic behavior purely on Derek, and their parents all will buy good enough lawyers to wipe away any consequences.  
+   
+No amount of closure will heal what was taken from me that night. Not that it’s my biggest problem, though, with a bunch of rich douchebags who all probably have a vendetta. I haven’t slept for nights and I’m scared of every bump and person on the street. Please, watch out if you go out for drunk fun, as it could turn into a drunken nightmare in an instant.  
