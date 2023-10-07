@@ -134,3 +134,5 @@ I laughed, leaning against her as I threatened to pass out.
 
 
 “You know, Celene, it's really not that hard to believe at all.”
+
+Pt 14- https://www.reddit.com/r/nosleep/comments/17225im/trapped_in_the_dollar_general_beyond_pt_14_celene/?utm_source=share&utm_medium=web2x&context=3
