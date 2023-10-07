@@ -95,3 +95,5 @@ I need to try and sleep. Even though I know I’ll suffer nightmares after what 
 You guys helped us today. You guys helped us stay alive with the things you said. Please, if you can think of anything more, any advice or information, please tell me. Because right now, Aubrey and I really need it. I’ll check it in the morning, and hopefully update you tomorrow about what happens.
 
 We need to try and find a way out of here. Before we end up like Maurice and the others.
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/171vjgd/the_emergency_broadcast_test_did_something_to_the/?utm_source=share&utm_medium=web2x&context=3)

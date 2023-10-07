@@ -170,7 +170,9 @@ My eyes inadvertently fall back onto the binder. It was lying there, still open.
 
 *(The Driver drops the binder and carefully turns the car around on the narrow road)*
 
-*(He looks back down at the binder)(He contemplates if he should keep reading)*
+*(He looks back down at the binder)*
+
+*(He contemplates if he should keep reading)*
 
 *(But unbeknownst to him, the Narrator watches him from the tree line)*
 
