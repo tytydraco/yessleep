@@ -203,3 +203,5 @@ The shadow then passed by the window again. A perfectly timed gust of wind peele
 Keeping my eye on the window, in case it came back, I cracked open the door to hear it leave. The footsteps were faint, soft, treading lightly over the dirt until they disappeared into the forest.
 
 I opened the door to find chewed up dog food spit out onto the ground. There was something mixed in with the dog food in the bowl. I knew what it was before I even leaned down to analyze it – a tooth. After sifting around in the bowl I came up with an entire mouthful of teeth, the reality of it hitting me when I found a molar with a filling and a chipped incisor. The same one Terence had all his adult life.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/172hwoq/isaacs_monster_part_2/)
