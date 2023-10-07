@@ -48,6 +48,4 @@ She then poured a bowl filled with blood in the girls mouth. As the girl dranked
 
 After the job was done they took a few steps back from the table. Then they all held hands and started chanting. As they were chanting i saw the girl and the table shake as the chants grow louder. Suddenly the lights in the building and the tape went off. 
 
-I'm scared too watch the last two tapes. Or should I watch them then give them to the police? I need your help. 
-
-[M.W](https://www.reddit.com/r/lingeringshadows?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=1)
+I'm scared too watch the last two tapes. Or should I watch them then give them to the police? I need your [help](https://www.reddit.com/r/lingeringshadows?utm_source=share&utm_medium=android_app&utm_name=androidcss&utm_term=1&utm_content=1)
