@@ -16,7 +16,7 @@ I talked to Rosie while they were doing this. She wanted to know everything but 
   
 
 
-The big policeman from earlier came over to me and smiled, then leaned down to whisper to me. I looked at him, curious what he was doing. Then I saw his face go black and cloudy and his eyes disappear and he said to me: “You broke the rules Charlie. No running to Daddy. You really are a stupid little shit aren’t you? You’re a fucking joke and you never should have been born. I’m everywhere Charlie. You think you can run away from me? If you do this again I won’t kill your Daddy, I’ll make you do do it, cutting off pieces of him until you beg me to let you take his place.” Then his face went back to normal. 
+The big policeman from earlier came over to me and smiled, then leaned down to whisper to me. I looked at him, curious what he was doing. Then I saw his face go black and cloudy and his eyes disappear and he said to me: “You broke the rules Charlie. No running to Daddy. You really are a stupid little shit aren’t you? You’re a fucking joke and you never should have been born. I’m everywhere Charlie. You think you can run away from me? If you do this again I won’t kill your Daddy, I’ll make you do it, cutting off pieces of him until you beg me to let you take his place.” Then his face went back to normal. 
   
 
 
