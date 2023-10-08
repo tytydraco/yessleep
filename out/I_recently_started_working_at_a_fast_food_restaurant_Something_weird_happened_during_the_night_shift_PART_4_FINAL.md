@@ -66,7 +66,7 @@ I grabbed him and pulled him out of that dark, cramped space.
 
 He was alive. Awake. But... not quite right.
 
-"His face... his face..." he kept mumbling. 
+"His face... his face..." he kept mumbling.
 
 I called 911 and stayed by his side until help showed up.
 
@@ -212,7 +212,7 @@ It's actually a telemarketing gig (don't laugh), which is definitely lame and bo
 
 Things have been pretty normal so far, other than a prank call I got the other day.
 
-It sounded like a man on the other line, though I couldn't hear him very well because the connection was shit. 
+It sounded like a man on the other line, though I couldn't hear him very well because the connection was shit.
 
 "Are you happy?" is what I'm pretty sure he said.
 
@@ -222,13 +222,13 @@ It sounded like a man on the other line, though I couldn't hear him very well be
 
 I hung up, not wanting to waste any more of my time and thought nothing of it.
 
-During lunch that day, I was eating with Marlon, one of my new work friends in the breakroom. He'd had Happy Burger delivered to him via a food delivery service.
+During lunch that day, I was eating with Marlon, one of my new work friends in the breakroom. He'd had a burger delivered to him via a food delivery service.
 
 He shot me a weird look as I stared at the bag, watching him eat.
 
 "What is it?" he asked, mouth full. "You want some fries? They're cold and soggy."
 
-"No thanks," I said. 
+"No thanks," I said.
 
 "Then what is it?"
 
@@ -236,7 +236,7 @@ He shot me a weird look as I stared at the bag, watching him eat.
 
 I pushed my bag lunch aside.
 
-Suddenly, I'd lose my appetite.
+Suddenly, I'd lost my appetite.
 
 That's the moment I decided that after work, I'd finally go visit Pitty.
 
