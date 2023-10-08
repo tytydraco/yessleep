@@ -96,4 +96,4 @@ You guys helped us today. You guys helped us stay alive with the things you said
 
 We need to try and find a way out of here. Before we end up like Maurice and the others.
 
-[Part 3](https://www.reddit.com/r/nosleep/comments/171vjgd/the_emergency_broadcast_test_did_something_to_the/?utm_source=share&utm_medium=web2x&context=3)
+[Part 3](https://www.reddit.com/r/nosleep/comments/171vjgd/the_emergency_broadcast_test_did_something_to_the/?utm_source=share&utm_medium=web2x&context=3) [FINAL](https://www.reddit.com/r/nosleep/comments/172ontg/the_emergency_broadcast_test_did_something_to_the/?utm_source=share&utm_medium=web2x&context=3)
