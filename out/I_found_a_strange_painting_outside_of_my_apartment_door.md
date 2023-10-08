@@ -1,6 +1,6 @@
 I just found a strange painting outside of my door
 
-Yesterday I found a painting outside of my door. To be honest, its fairly amateurish. Still, something about rather troubles me.
+Yesterday I found a painting outside of my door. To be honest, its fairly amateurish. Still, something about it rather troubles me.
 
 It depicts a forest at night. In the centre of the image is a naked man with the head of a goat. He's holding up one finger, as if pointing at the swirling spirals that I assume are meant to represent stars. There is a red symbol of some kind in the middle of his furry forehead. Nude men and women dance around him, albeit their faces and bodies are horrible distorted; twisted and mutilated beyond anything that human physiology would permit. 
 Tatooed on the goat mans left arms were the words "Lux niger revelare".
@@ -18,7 +18,7 @@ The good news is that they apparently sell quite well. Several buyers appear to 
 
 Then there are the bad news.
 
-Several similar paintings have been delivered to various people at irregular  over the last few decades. 
+Several similar paintings have been delivered to various people at irregular intervals over the last few decades. 
 
 Annah McKenzie, age 20 received one in 1974.  She went missing shortly afterwards, and was never found.
 
