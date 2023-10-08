@@ -60,3 +60,13 @@ I got my blacklight out of my drawer, but something makes me hesitate.
  Still, I am quite curious. 
 
 What do you think I should do?
+
+Edit:
+
+I used the blacklight. I wish I had not. The black light revealed the fluorescent pigments hidden in the picture.
+
+Its me, painted almost photorealistically. I am smiling while pulling out my own teeth. I am naked. The painter even got the birthmark on my left buttcheek right.
+
+Then there is the text. I know whats coming now. He's already inside. He has been for a while. He has emerged, and I see him clearly. He is not in a hurry. He's watching me as I write this.
+
+I am writing this in the hope that if you receive a painting, you ignore it. And if you own a blacklight, get rid of it.
