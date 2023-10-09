@@ -2,7 +2,7 @@
 
 There’s something wrong with the forest behind my house. I’ve got to get this story down as quickly as possible; I’m not sure how many more times it will let me come back. If you don’t take anything else from this, then please - for the sake of yourself and everyone who cares about you – *don’t get anywhere near* the woods behind \_\_\_\_\_\_\_\_ \_\_\_\_\_\_\_\_ - the ones bounded to the north by \_\_\_\_\_\_\_\_ \_\_\_\_\_\_\_\_ \_\_\_\_\_\_\_\_ and to the east by \_\_\_\_\_\_\_\_ Stream.
 
-Never trust a realtor who tells you that she’s giving you the deal of a lifetime. It turns out that, whereas state law dictates that sellers and their agents must disclose any murders that occurred *in* the house that you’re buying, the same doesn’t apply to crimes that occur on the rest of the property. It’s a cute little Cape Cod: three bedrooms, two bathrooms, with cream-colored siding and forest green shutters. It was priced thirty grand below where it should’ve been, and I was a fool not to suspect something. The realtor was talking a little too fast, probably eager to get the hell off of this accursed plot of land, I realize now. The best feature of the house, she kept stressing, was that the backyard had access to this marvelous tract of undeveloped forest, which the state had indicated that it would neither sell nor develop.
+Never trust a realtor who tells you that she’s giving you the deal of a lifetime. It turns out that, whereas state law dictates that sellers and their agents must disclose any murders that occurred *in* the house that you’re buying, the same doesn’t apply to crimes that occur on the rest of the property. It’s a cute little Cape Cod: three bedrooms, two bathrooms, with cream-colored siding and forest green shutters. It was priced thirty grand below where it should’ve been, and I was a fool not to suspect something. The realtor was talking a little too fast, probably eager to get the hell off of this accursed plot of land, I realize now. The best feature of the house, she kept stressing, was that the backyard had access to this marvelous tract of wild woodland, which the state had indicated that it would neither sell nor develop.
 
 “What a wonderful treat for your children, when they come, in time,” she promised. My fingers clenched and unclenched; I couldn’t wait to get my hands on those keys.
 
@@ -38,15 +38,15 @@ I had to have her repeat the story three times before she was speaking clearly e
 
 “My God, Sharon,” I sobbed, “I don’t know what to say.” I couldn’t tell her about the forest, I decided; it would sound too crazy. Besides, my sister lived 45 minutes away.
 
-I went for a walk out back again, that day. I stayed out for longer than usual. I made my way to my clearing – Elizabeth’s “special place” – and then wandered around and around it, exploring the forest in dizzying, concentric circles until my stomach rumbled and my ankles blistered. When I finally found it, I was so startled that it nearly knocked me over. There was a hole in an ancient fir at about head height – Elizabeth’s gaping, anguished mouth – and above it two smaller blemishes that were her eyes, which bulged out as though trying to escape her rictus of terror. Around her head, rings of curls cascaded down to where her shoulders should be; her cute, snubbed nose and the mark on her forehead where she had run into a coffee table were both there, rendered in moss and bark and leaf.
+I went for a walk out back again, that day. I stayed out for longer than usual. I made my way to my clearing – Elizabeth’s “special place” – and then wandered around and around it, exploring the forest in dizzying, concentric circles until my stomach rumbled and my ankles blistered. When I finally found it, I was so startled that it nearly knocked me over. There was a hole in an ancient fir at about head height – Elizabeth’s gaping, anguished mouth – and above it two smaller blemishes that were her eyes, which bulged out as though trying to escape her rictus of terror. Around her head, rings of curls cascaded down to where her shoulders should have been; her cute, snubbed nose and the mark on her forehead where she had run into a coffee table were both there, rendered in moss and bark and leaf.
 
 \---
 
 At the local library, I found a book on the early history of this section of the Northeast. It was crowded with handwritten notes about the section of woodland behind my house:
 
-*Seems bounded at +\_\_\_\_\_\_\_\_ degrees latitude; -\_\_\_\_\_\_\_\_  degrees longitude; power wanes exponentially from there.*
+*Seems bounded at +\_\_\_\_\_\_\_\_ degrees latitude; -\_\_\_\_\_\_\_\_  degrees longitude; power wanes exponentially outside of that zone.*
 
-*Local Native Americans considered this stretch of woods both holy – a place where they communed with ancestors – and profane (they refused to so much as pass through there unless as part of a ceremony. Their oral tradition mentions lukha manga, “the trapped ones,” but none of the elders who I asked about this were willing to speak on the subject.*
+*Local Native Americans considered this stretch of woods both holy – a place where they communed with ancestors – and profane (they refused to so much as pass through there unless as part of a ceremony). Their oral tradition mentions lukha manga, “the trapped ones,” but none of the elders who I asked about this were willing to speak on the subject.*
 
 “There was a professor of anthropology from the state college who was real interested in that book a while back,” the librarian informed me from over my shoulder.
 
@@ -60,7 +60,7 @@ I checked the county records for the property that I had bought. It had switched
 
 \---
 
-My forays into the woods got longer. I started to wander in the forest without intending to, usually at night.  I would wake up in the middle of the clearing, the birches looming out of the midnight mist like doomsday prophecies. I wouldn’t remember how I had gotten there, and installing a new doorknob so that I could lock my bedroom door from the inside did no good: I would simply unlock the door during my sleepwalking.
+My forays into the woods grew longer. I started to wander in the forest without intending to, usually at night.  I would wake up in the middle of the clearing, the birches looming out of the midnight mist like doomsday prophecies. I wouldn’t remember how I had gotten there, and installing a new doorknob so that I could lock my bedroom door from the inside did no good: I would simply unlock the door during my sleepwalking.
 
 After a couple of weeks, I noticed a strange, grayish rash appearing on my forearms.
 
@@ -82,4 +82,4 @@ I stayed at my sister’s for a couple of nights. I refused to fall asleep for t
 
 “Hell.”
 
-I came back and jotted this down, fully aware that each word could be my last. I can feel the forest inside of me – its inexorable will; its strange gravity. Oddly enough, I know which tree will become me (or I become it), and I think that it has already started to alter itself to accommodate me. My arms and legs are covered in the rash, which has spread to my chest and the bridge of my nose. I am sure that it will take me soon, now. Heed my warning or pay.
+I came back and jotted this message down, fully aware that each word could be my last. I can feel the forest inside of me – its inexorable will; its strange gravity. Strangely enough, I know which tree will become me (or I become it), and I think that it has already started to alter itself to accommodate me. My arms and legs are covered in the rash, which has spread to my chest and the bridge of my nose. I am sure that it will take me soon, now. Heed my warning or pay the price.
