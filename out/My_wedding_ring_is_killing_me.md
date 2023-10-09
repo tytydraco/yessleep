@@ -1,5 +1,4 @@
 
-
  I'm posting my story here as I don't know anywhere else to put it. I don't know if I even believe it myself. I'm hoping someone else has seen this before as I don't trust my own mind.
 
 Part 1
@@ -58,4 +57,10 @@ Reader, I don't know how to explain it, but it wasn't me doing and saying those 
 
 I'm also very scared right now. The ring is back on my finger and I don't know how it got there. I feel my mind slipping, I don't even know why I've been writing this story for idiots like you. You're just a stupid as my bitch of an ex wife and dying would be to merciful for trash like you...I'm losing control, I have to post this before it's too late. Help, help you fucking idiots
 
-Edit: This is my first post on this sub and some people seemed to like it, enough to see if the ring will allow me to post a part 2.
+Edit: In the light of morning, I can't see what the fuss was all about last night. The ring didn't do anything, I just became more of what I really was. I never was a kind and generous man, it's foolish to think some magic ring changed me, there is no such thing as magic. This post makes me chuckle to myself now.
+
+I really like my ring and the more I think about it, the more I am curious about making my own rings and selling them online. I am in a lot of debt after my divorce and I could really use the extra money. I received an email just this morning from the supplier of the ring. They are going to send me some metal and even pay for me to take a class on metalworking! It's been a long time since I've had good luck and it seems like things are changing for the better, for once.
+
+I'd love to make any of you happy. Aren't you sad sometimes? I want to help you. You don't even have to get married, I would love to make you a ring if you just PM me your address. You deserve to feel good and have something nice, I promise my work will be really nice.
+
+I won't even charge you and will ship for free. My only price is a picture of your new ring on your finger so I can get a website online with some and models. You don't even have to wear it if you find you don't like it. Just put on the ring once and send me a picture, it will only take a moment. You deserve to be happy, let me help you be happy.
