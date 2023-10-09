@@ -2,7 +2,7 @@ This is an update post for you all regarding the situation with that thing in th
 
 [Part 1](https://www.reddit.com/r/nosleep/comments/16z37in/snapping_branches/?utm_source=share&utm_medium=web2x&context=3)
 
-Now that that's out of the way, I'll pick up from where my situation was left a few days ago. After the brief encounter with my would-be home invader, the thing out in the forest seems to have gotten more bold and aggressive. For the past four nights I've been having that horrible dream of being chased through the woods in the dark by something unseen, and every morning I wake up feeling like it's just a bit closer to actually catching me each time.
+Now that that's out of the way, I'll pick up from where my situation was left a few days ago. After the brief encounter with my would-be home invader, the thing out in the forest seems to have gotten more bold and aggressive. For the past four nights I've been having that horrible dream of being chased through the woods in the dark by something unseen, and every morning I wake up feeling like it's just a bit closer to actually catching.
 
 Over all, I've been sleeping less and less. Eating less and less. The headaches just keep happening, growing in intensity. I feel like I'm falling apart.
 
@@ -92,15 +92,15 @@ Its resemblance to an Elk was proven further when my eyes were finally able to s
 
 ***"...God damn..."*** He finally said. Oddly enough, he didn't seem to be overtaken by the same splitting head pains that plagued me. ***"...Ain't never seen one of these that looked so... well.. so regal. Almost makes me feel bad about killing it later."***
 
-The thing stood there, unmoving as it had been the first time I lay eyes on it. But then it finally reacted turned its head toward us! This was it, I thought. I was gonna die here in my bedroom with this batshit insane monster hunter.... But it didn't move besides that in the slightest. No aggression in its stance, none of the murderous intent I assumed would be flowing from it like water. The movement of its neck caused one of the branches adorning its body to.. well.. snap. Just like the noises I'd heard.
+The thing stood there, unmoving just as it had been the first time I laid eyes on it. But then it finally reacted. It turned its head toward us! This was it, I thought. I was gonna die here in my bedroom with this batshit insane monster hunter.... But it didn't move besides that in the slightest. No aggression in its stance, none of the murderous intent I assumed would be flowing from it like water. The movement of its neck caused one of the branches adorning its body to.. well.. snap. Just like the noises I'd heard.
 
 Its eyes sparkled just like those crystalline antlers. Like I said.. it didn't appear aggressive, but meeting its dazzling gaze made me feel like my brain was about to leak out of my ears.
 
-I didn't understand. Had this sight of this thing really caused that burglar to scream like he'd witnessed death itself? The thing that tore him to pieces looked like it belonged in a kids fairy tale book. I mean, it -was- unnatural I suppose.. but I wouldn't call it terrifying. Before I could further study it, Jay turned the flashlight off. The back yard was once again consumed in darkness, but if I focused I could still make out the outline of the spirit.
+I didn't understand. Had the sight of this thing really caused that burglar to scream like he'd witnessed death itself? The thing that tore him to pieces looked like it belonged in a kids fairy tale book. I mean, it -was- unnatural I suppose.. but I wouldn't call it terrifying. Before I could further study it, Jay turned the flashlight off. The back yard was once again consumed in darkness, but if I focused I could still make out the outline of the spirit.
 
 **SNAP**
 
-**"Alright, hypothesis confirmed."** Jay turned to me with a grin, but furrowed his brows upon seeing my sorry state. I'd placed both hands against the side of my head and had broken into a sweat by then. ***"Oh.. Yeah.. you mentioned headaches before.. They always this bad?.."***
+***"Alright, hypothesis confirmed."*** Jay turned to me with a grin, but furrowed his brows upon seeing my sorry state. I'd placed both hands against the side of my head and had broken into a sweat by then. ***"Oh.. Yeah.. you mentioned headaches before.. They always this bad?.."***
 
 ***"No.."*** I sputtered out. ***"NEVER this bad.. feels like my brain is frying like an egg.."***
 
