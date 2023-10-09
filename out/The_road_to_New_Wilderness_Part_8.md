@@ -1,4 +1,4 @@
-[\[Part 7\]](https://www.reddit.com/r/nosleep/comments/171lnbd/the_road_to_new_wilderness_part_7/)
+[\[Part 7\]](https://www.reddit.com/user/RandomAppalachian468/comments/171l5hn/the_road_to_new_wilderness_part_7/)
 
 [\[Part 9\]](https://www.reddit.com/user/RandomAppalachian468/comments/1737mo8/the_road_to_new_wilderness_part_9/)
 

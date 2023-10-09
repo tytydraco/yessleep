@@ -1,6 +1,6 @@
 [\[Part 5\]](https://www.reddit.com/user/RandomAppalachian468/comments/16zv86c/the_road_to_new_wilderness_part_5/)
 
-[\[Part 7\]](https://www.reddit.com/r/nosleep/comments/171lnbd/the_road_to_new_wilderness_part_7/)
+[\[Part 7\]](https://www.reddit.com/user/RandomAppalachian468/comments/171l5hn/the_road_to_new_wilderness_part_7/)
 
 “Home sweet home.” On the plush second-story corridor, Jamie stopped by a door with the number 25 stamped in shiny gold colored metal and pulled a key from her pocket. “I’ll get Andrew to make you a key tomorrow. It’s not like we have a lot of thieves around here, but it does keep people from walking in on you naked.”
 
