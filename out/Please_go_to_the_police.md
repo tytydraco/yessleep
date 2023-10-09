@@ -1,0 +1,19 @@
+Hi my name is John Davies and whoever finds this please stop what you’re doing and hear me out. 
+
+Im lost. I don’t know where I am. I need help. It all started when I met Jessica, the most beautiful woman i’ve ever come across 
+
+I was working late in the office, when a woman approached me and introduced herself, Jessica Carter. I saw astounded by her natural beauty but didn’t let it show or so I thought. I wanted to talk to her a bit more, so in lunch break I asked if she wanted me to introduce her to the business a bit more, she said “sure!”. While talking I found out she’s into writing books, which I was working on a novel myself. I got my notebook out of my backpack and showed her some ideas I had thought of for a new book and she loved my ideas, so we decided to meet for coffee to share ideas. 
+
+I won’t give all the details because that’s not important right now. After a while, we start dating. Everything was going perfectly. I have had my fair share of exes and they would break up with me after about 2 months, we had been together for 6.  I thought something was wrong with me but now I guess not.  She really improved my self esteem. 
+
+After a while, I introduce her to my mom, dad and Mike, my younger brother. They all like her which is good. She feels comfortable around them.
+
+She introduces me to her parents and sister Sophie, they were all so nice.  Made me feel so welcome. I thought to myself how are things going so perfect considering my past relationship history?
+
+I can’t run out of character limits, I’ll just get to it. We planned to have date night at her apartment. I saw her text and I said I was staying at my parents for the night, Mom and dad are on a date and little brother just left she can come here if she wants. She replied “Ok! Sounds good.” and was about to leave, I thought.   I waited an hour and nobody showed up. I realise I’m eating all the popcorn we were supposed to share and the clock struck 8:00 when she was supposed to be there at 6:30. I called and called but no answer so I decide to go to her apartment to apologise because she’s probably mad I suggested coming here. My ex would always complain about “me changing location” and I thought i’ll just go and apologise. 
+
+
+The door is unlocked, so she was expecting me to turn up. I walk in and there’s no sign of Jessica. I get so confused but then i hear the house phone ring, I pick up. I say “hello?” they say “No sign of Jessica hm?” My face looks confused and shocked. I say “What? Who is this!?” They pause for a moment before hanging up. I get so scared and see a note on the fridge saying “Hi, I have a surprise, meet me at the beach.” I go into my car and drive to our favourite beach, where I see no sign of Jessica or anyone there. It’s almost 9pm, and nobody is in sight. I see the canoes, but that’s it. Suddenly this person comes out of nowhere and stabs me at the side of my stomach. I start screaming and all I see is a guy with a mask on with a bloody knife. I try to run but the person tackles me down. He said “Do you know why you never get to keep any girlfriends?” I say “What?” “What’s going on?!” He says “Because I show them my knife collection, some with blood and say it’s yours.” I get so confused, before recognising the voice, it’s my younger brother. I scream and try to run to one of the boats. I hear “Don’t run John, remember when we used to be best friends?” I grab the canoe and row into the ocean. There was nowhere else to run. I see my brother staring at me as I boat away, still holding the knife.
+
+
+ I wrote all this on the boat and I just reached land. It’s only been an hour. I’m lost, I don’t know where I am but i’m on a beach. Please show this to the police because my girlfrien
