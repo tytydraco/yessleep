@@ -45,4 +45,4 @@ I rolled the ball back under the bed, “Meow?” I heard. From across the room.
 
 Goosebumps appeared on my arm immediately, the only thing I felt in that moment was pure fear.
 
-As the ball rolled back from under the bed I wondered if I had really locked the bathroom door after all.
+As the ball rolled back from under the bed I wondered if I had really locked the bathroom window after all.

@@ -72,7 +72,7 @@ Patting my jacket pocket, I take comfort in feeling the solid weight of my conce
 
 Reine gestures toward the center of the factory. From our vantage point, we can see strange symbols drawn on the floor, encircling a raised platform. Tools, wires, and strange pieces of machinery are strewn about. This isn’t a random gathering of discarded junk; someone had been working here, crafting something large and intricate.
 
-We made our way towards the far end of the factory. There, we spot deep tire tracks, suggesting that something massive was recently moved from this location. Following the tracks, they lead towards large, reinforced doors that open out towards the river.
+We make our way towards the far end of the factory. There, we spot deep tire tracks, suggesting that something massive was recently moved from this location. Following the tracks, they lead towards large, reinforced doors that open out towards the river.
 
 Curiosity piqued, we carefully move closer. Upon inspection, the doors show recent signs of activity, with fresh scuff marks and faint residues of a luminescent substance smeared on the edges.
 
@@ -92,7 +92,7 @@ The muffled hum of conversation reaches our ears, forcing Reine and I to look up
 
 We carefully inch our way towards the source of the disturbance, keeping an eye out for any movement. The machinery, covered in layers of dust and cobwebs, serves as an effective shield, allowing us a clear view of the unfolding scene.
 
-As we reach the factory’s loading dock, we see Xuan standing near the loading dock, surrounded by half a dozen figures, their bodies adorned with the same arcane symbols that marked Xuan's face in the diner vision. Their dark robes swish quietly, and the air seems to throb with a palpable energy, thick and foreboding. Lying prostrate on the ground, bound and gagged, is a young man, his face marked by terror. A smashed GoPro camera lies nearby, its light flickering erratically.
+As we reach the factory’s loading dock, we see Xuan standing there, surrounded by half a dozen figures, their bodies adorned with the same arcane symbols that marked Xuan's face in the diner vision. Their dark robes swish quietly, and the air seems to throb with a palpable energy, thick and foreboding. Lying prostrate on the ground, bound and gagged, is a young man, his face marked by terror. A smashed GoPro camera lies nearby, its light flickering erratically.
 
 "He was snooping around," one of the armed men growls, a hint of amusement in his voice.
 
