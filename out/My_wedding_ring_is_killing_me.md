@@ -57,3 +57,5 @@ Once the ring came off, I had clarity enter my mind. A dense fog had surrounded 
 Reader, I don't know how to explain it, but it wasn't me doing and saying those things to my wife. I know there is no way she will believe me, but the ring had taken over my thoughts and actions. It felt like a dark hand had encased my mind and heart and all the actions I took and words I said were of a mind, not my own.
 
 I'm also very scared right now. The ring is back on my finger and I don't know how it got there. I feel my mind slipping, I don't even know why I've been writing this story for idiots like you. You're just a stupid as my bitch of an ex wife and dying would be to merciful for trash like you...I'm losing control, I have to post this before it's too late. Help, help you fucking idiots
+
+Edit: This is my first post on this sub and some people seemed to like it, enough to see if the ring will allow me to post a part 2.
