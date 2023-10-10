@@ -100,7 +100,7 @@ Eventually, the reality of the situation sinks in. Here I am, alone in the vastn
 
 —
 
-But as the minutes turned into hours, an uneasy feeling settles in my gut—a nagging sensation that, despite the desolation, I'm not truly alone. It's as if the very air around me is charged, making the hairs on the back of my neck stand on end. I can't shake the feeling of being watched.
+But as the minutes turn into hours, an uneasy feeling settles in my gut—a nagging sensation that, despite the desolation, I'm not truly alone. It's as if the very air around me is charged, making the hairs on the back of my neck stand on end. I can't shake the feeling of being watched.
 
 Just as the feeling becomes almost unbearable, a speck on the horizon catches my attention. Slowly, it grows larger and more defined – a single black SUV, its windows reflecting the blinding sun. This wasn’t one of our vehicles, but the distinctive federal plates leave little to the imagination. I find myself surprised. The feds usually take their sweet time, often coming in after our team has done most of the work.
 
