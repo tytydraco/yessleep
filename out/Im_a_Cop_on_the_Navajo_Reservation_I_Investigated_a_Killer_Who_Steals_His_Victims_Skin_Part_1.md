@@ -4,7 +4,7 @@ The desert stretches out as far as the eye can see. There's a haunting beauty to
 
 Every day, I'm responsible for patrolling a staggering 70 square miles of tribal land in Arizona. An area so vast, I often feel like a mere speck moving against a colossal backdrop. It's a lonely job, with most of my days punctuated only by the hum of my cruiser's engine and the sporadic chirp of the radio.
 
-Yet, despite the isolation, I wear my badge with immense pride. To me, it's not just a symbol of authority. It's a beacon of hope, a sign that someone is looking out for the Diné People. I consider myself more than just a cop; I am a guardian of a culture that stretches back into time immemorial. The stories my parents and grandparents told of our ancestors, warriors who stood watch over their clans, resonate with me. In some ways, I see my role as an extension of that legacy.
+Yet, despite the isolation, I wear my badge with immense pride. To me, it's not just a symbol of authority. It's a beacon of hope, a sign that someone is looking out for the the people of the reservation. I consider myself more than just a cop; I am a guardian of a culture that stretches back into time immemorial. The stories my parents and grandparents told of our ancestors, warriors who stood watch over their clans, resonate with me. In some ways, I see my role as an extension of that legacy.
 
 But there's a flip side to that coin. The desolation, the lack of opportunities, and the scars of history have left many of my people struggling.
 

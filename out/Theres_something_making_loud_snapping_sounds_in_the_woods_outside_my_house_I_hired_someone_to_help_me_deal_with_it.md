@@ -2,6 +2,8 @@ This is an update post for you all regarding the situation with that thing in th
 
 [Part 1](https://www.reddit.com/r/nosleep/comments/16z37in/snapping_branches/?utm_source=share&utm_medium=web2x&context=3)
 
+\---------------------------------------------
+
 Now that that's out of the way, I'll pick up from where my situation was left a few days ago. After the brief encounter with my would-be home invader, the thing out in the forest seems to have gotten more bold and aggressive. For the past four nights I've been having that horrible dream of being chased through the woods in the dark by something unseen, and every morning I wake up feeling like it's just a bit closer to actually catching.
 
 Over all, I've been sleeping less and less. Eating less and less. The headaches just keep happening, growing in intensity. I feel like I'm falling apart.
