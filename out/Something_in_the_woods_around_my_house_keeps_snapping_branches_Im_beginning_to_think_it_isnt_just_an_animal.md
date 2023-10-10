@@ -50,11 +50,11 @@ I opened my mouth to say something, then shut it again. I mean.. the sounds I'd 
 
 ***"Long time ago, back when I was a little girl, I lived in a little house close to where you live now, and I heard those noises just like you."*** She pointed my way, then took a sip from her own glass, clearing her throat a bit afterwards.
 
-***"You probably asked others about it her, right? None of them know. I think she usually only ever shows herself to special people, like us."*** She grinned, though the grin faded. ***"People who need her. I know I certainly did."***
+***"You probably asked others about her, right? None of them know. I think she usually only ever shows herself to special people, like us."*** She grinned, though the grin faded. ***"People who need her. I know I certainly did."***
 
 I remained quiet, unsure of what to say. She? I'd guessed Ms. Pembroke was referring to the spirit. Had it been true? This thing was showing itself to me because I needed it?... I mean. I guess in a way it did save me.. She began to say more, breaking me from my thoughts.
 
-***"My old man was... well, he wasn't a very good father. When my mother I think whatever was holding him together died with her.."*** She said, her gaze growing foggy and distant as she reminisced.
+***"My old man was... well, he wasn't a very good father. When my mother died I think whatever was holding him together died with her.."*** She said, her gaze growing foggy and distant as she reminisced.
 
 ***"He'd often come home after drinking one too many beers and take out that pent up anger on me, the only one he had... I won't go into detail about that but I'm sure you don't mind."*** She said. All I could do was nod my head in agreement.
 
@@ -76,7 +76,7 @@ After waiting for me to interject if I wanted, she continued when I said nothing
 
 ***"Dad didn't even see her. Hell, I don't think he could even see me that well. He began to choke the life right out of me. I fought with all my might but it was about as pointless as attacking a lion with a spoon."*** She took a shaky breath.
 
-**"But right when I was fading, he let go.. She made him let go. She saved me from that vile man and made it so I'd never have to fear him again."** She said with growing strength in her tone.
+***"But right when I was fading, he let go.. She made him let go. She saved me from that vile man and made it so I'd never have to fear him again."*** She said with growing strength in her tone.
 
 ***"The town chalked it up to some sort of freak bear attack, but I know the truth, and so do you.. She isn't some sort of monster. She's a guardian! This land needs her as much as I did that very night."***
 
@@ -96,7 +96,7 @@ But now, I guess I'll head home. Gotta tell Jay the plan's off.
 
 It's all gone to shit. God damn it, everything is fucked. There's nothing I can do anymore, not one thing. I'm sitting in my living room and the only thing I can do is type out all this shit.
 
-I got home at around 3:50 PM or so.
+I got home at around 3:50 PM yesterday, after my talk with Ms. Pembroke.
 
 Jay was chilling on my couch. He'd apparently helped himself to my movies and was watching the one about the giant ants. He looked up, flashing me a grin. ***"You got some good stuff here man. Most of the movies are kinda garbage, but they're funny."***
 
@@ -118,7 +118,7 @@ That was when he hit me. One moment I was headed through the doorway, and the ne
 
 For the next several hours I sort of slipped in and out of consciousness. I felt weak, unable to move. I had the vague feeling that I was sitting somewhere, and my arms were numb. Finally after what felt like forever I came to.
 
-I was in my entranceway, with my hands over my head. I had been tied to doorknob of the front door. Groggily, I looked around. From what I could see of the windows, it was dark outside. How much time had passed? Jay got my attention from the living room to the right. He'd just sitting in the arm chair, watching TV.
+I was in my entranceway, with my hands over my head. I had been tied to doorknob of the front door. Groggily, I looked around. From what I could see of the windows, it was dark outside. How much time had passed? Jay got my attention from the living room to the right. He'd just been sitting in the armchair, watching TV.
 
 ***"Oh, you're awake. Cool, was worried I might've killed you for a bit there."*** he so casually said. Was this guy for real? Even in my dazed state I was beginning to feel the telltale signs of burning rage.
 
@@ -158,7 +158,7 @@ Much closer now, the spirit was closing in much faster than it ever had. My stru
 
 **SNAP**
 
-No! This can't happen, it can't! The headaches were beginning to blur my vision they were so intense. I shut my eyes tight and pulled. I pulled and pulled and pulled until- **SNAP**
+This couldn't happen, I wouldn't allow it! The headaches were beginning to blur my vision they were so intense. I shut my eyes tight and pulled. I pulled and pulled and pulled until- **SNAP**
 
 But this noise didn't come from outside. It was the sound of the heavy duty rope breaking at the point it had been tied around the doorknob. I almost faceplanted it was so unexpected. Quickly, I stepped over the rope that bound my hands, one foot at a time, until my arms were in front of me.
 
@@ -184,7 +184,7 @@ Jay only laughed at my threat. ***"Look, the armor I'm wearing isn't standard fu
 
 I didn't know whether he was going to try to shoot me or the spirit first. But I couldn't just stand there and let it happen, regardless of how pointless it was. When I saw his hand go for his gun, I fired mine.
 
-To my shock, I was practically thrown off my feet by the shot. I heard a loud explosion. Jay cried out in surprise as I witnessed him being violently thrown against the tree he stood next to. Glowing, glasslike material shattered in all directions around his body, and then the armor he'd been wearing fell apart as well. It was the bullet, the cursed magical bullshit one he gave me initially, I realized! We'd both obviously forgotten about it, and now for better or for worse it had been used.
+To my shock, I was practically thrown off my feet by the shot. I heard a loud explosion. Jay cried out in surprise as I witnessed him being violently thrown against the tree he stood next to. Glowing, glasslike material shattered in all directions around his body, and then the armor he'd been wearing fell apart as well. It was the bullet, the cursed magical bullshit one he gave me initially. It had still been in my gun this whole time, I realized! We'd both obviously forgotten about it, and now for better or  worse it had been used.
 
 Jay groaned in pain. One of his arms looked broken, and he was bleeding from a dozen small cuts on his body. ***"...You fucking dick.."*** He sputtered at me in a half-dazed state.
 
@@ -208,7 +208,7 @@ It still held the vague shape of an elk, but it wasn't made of fucking moss and 
 
 It had taken the remains of that burglar I buried out in the woods. It had taken them and just... added them to itself. Stretched across its misshapen head had been his torn and rotten face. What appeared as branches sticking out of its body before had actually been numerous fractured bones. Bones of all sorts just melded together.
 
-Hanging from its sides and neck like fleshy tendrils were a multitude of intestines, intertwined with frayed and mangled flesh. Its antlers were made almost entirely of bone, guts tangled throughout their branchlike patterns. Many of these branches ended in skeletal hands with more fingers than any human should have.
+Hanging from its sides and neck like fleshy tendrils were a multitude of intestines, intertwined with frayed and mangled flesh. Its antlers were made almost entirely of bone, guts tangled throughout their branchlike patterns. Many of these branches ended in skeletal hands with more fingers than any human hand should have.
 
 But despite all of that, the worst thing about it were those eyes. From behind that mask of agonized flesh it wore I could see numerous tiny black orbs. They were each a tiny void, reflecting none of the bright light that it was bathed in... and they were all fixed on me, full of a sickening, ancient intelligence I can't even begin to describe.
 
@@ -216,11 +216,11 @@ All of that was burned into my brain in the span of those two seconds, and then 
 
 **SNAP**
 
-Blindly, I stumbled back away from the sound, but found myself colliding with a tree. A tree hadn't been there before. I was losing my mind. Frantically, I moved to the left only to find another tree, and another, and another! My eyes began to adjust to the low level of light cast by the moon. I was standing in what looked like a corridor, made entirely of those gnarled forest trees.
+Blindly, I stumbled back away from the sound, but found myself colliding with a tree. A tree that hadn't been there before. I was losing my mind. Frantically, I moved to the left only to find another tree, and another, and another! My eyes began to adjust to the low level of light cast by the moon. I was standing in what looked like a corridor, made entirely of those gnarled forest trees.
 
 **SNAP**
 
-At the end, that thing was standing there, now just a barely visible silhouette in the night yet again. I had no way out. Behind me... just more trees. It began to run... no.. No living thing ran like that. The joints in those four long legs all bent at wrong angles as it staggered forward at me with more speed than I'd thought possible. I raised my rifle and fired another shot.
+At the end, that thing was standing there, now just a barely visible dark mass in the night. I had no way out. Behind me... just more trees. It began to run... no.. No living thing ran like that. The joints in those four long legs all bent at wrong angles as it staggered right toward with more speed than I'd thought possible. With all my remaining willpower, I forced myself to raise my rifle and fired another shot.
 
 The rifle blast echoed through the forest. I couldn't think anymore with my head pounding like this. My vision was a tornado of vague shapes and colors. But all of a sudden, the lights were on again. Now that I'm writing this in retrospect, had they ever even turned off in the first place?
 
@@ -246,7 +246,7 @@ But that didn't happen. It did something else.
 
 Swiftly reaching down, it grasped me firmly with its many skeletal hands. It's grip was like iron. Escape was impossible.
 
-I felt myself being lifted from the ground, held in front of its disgusting face. It held my eyes open as it looked into them. I could feel its disgusting presence flowing over me, down into every fiber of my being. I couldn't even feel the headache anymore, it had become this... indescribable pressure in my skull.
+I felt myself being lifted from the ground, held in front of its disgusting face. It held my eyes open as it looked into them. I could feel its putrid, rotten presence flowing over me, down into every fiber of my being. I couldn't even feel the headache anymore, it had become this... indescribable pressure in my skull.
 
 It began to smear Jay's blood all over me with a few of its other hands. My body attempted to throw up but nothing came from it. I'd long since emptied the contents of my stomach.
 
@@ -254,7 +254,7 @@ It just held me there like that, staring into my eyes for... I don't know for ho
 
 When I woke up, it was early morning. I was covered in dried blood. I sat up to see half of Jay's remains decorating the tree. And just like after it had killed the robber, the tree had grown even larger... His other half is.. I don't fucking know where it is. I don't want to know. In a daze, I walked to my house, entering through the back door.
 
-I'm sitting in my living room, just like I said at the start of all this. Looking through the front window I can see that there are trees growing where my driveway once was. It's like it had never even been there. Just dense forest. I don't know if they're real or just another illusion that thing has put into my head. But I don't think that matters. This thing... it has me all the same. I can feel it inside my skull now, like my thoughts aren't just my own.
+I'm sitting in my living room, just like I said at the start of all this. Looking through the front window I can see that there are trees growing where my driveway once was. It's like it had never even been there. Just dense forest. I don't know if they're real or just another illusion that thing put into my head. But I don't think that matters. It has me all the same. I can feel it inside my skull now, like my thoughts aren't just my own. Running is pointless.
 
 Fuck this. There -is- something I can do. I'm not letting it have me. I refuse. I have my rifle with me.
 
