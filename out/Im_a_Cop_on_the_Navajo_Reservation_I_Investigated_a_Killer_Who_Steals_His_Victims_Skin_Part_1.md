@@ -1,6 +1,6 @@
 **Guardians and Invaders**
 
-The desert stretches out as far as the eye can see. There's a haunting beauty to it that most people can't appreciate. But for me, it's home. My name’s Logan, Logan Tohannie, and I’m an officer with the Navajo Nation Police Department, and this vast expanse is my beat. The sand and rock formations stand as silent witnesses to everything that happens here. Some of it good, a lot of it bad. In my ten years as a cop on the reservation, I've seen my fair share of both.
+The desert stretches out as far as the eye can see. There's a haunting beauty to it that most people can't appreciate. But for me, it's home. My name’s Logan, Logan Tohannie, and I’m an officer with the Navajo Nation Police Department, and this vast expanse is my beat. The mesas stand as silent witnesses to everything that happens here. Some of it good, a lot of it bad. In my ten years as a cop on the reservation, I've seen my fair share of both.
 
 Every day, I'm responsible for patrolling a staggering 70 square miles of tribal land in Arizona. An area so vast, I often feel like a mere speck moving against a colossal backdrop. It's a lonely job, with most of my days punctuated only by the hum of my cruiser's engine and the sporadic chirp of the radio.
 
@@ -62,7 +62,9 @@ June clears her throat, hesitating. "We've heard whispers among the elders," she
 
 I frown, thinking about the substance abuse issues on the Rez. "You mean they're getting involved in dark magic?"
 
-Eddie nods gravely. "They think they can harness the power of the ancients, use it to change their fate. But they're playing with forces they don't understand. It's dangerous.""And you think this..." I gesture to the mutilated body, "...is the result of one of those rituals?"
+Eddie nods gravely. "They think they can harness the power of the ancients, use it to change their fate. But they're playing with forces they don't understand. It's dangerous."
+
+"And you think this..." I gesture to the mutilated body, "...is the result of one of those rituals?"
 
 June looks at the ground, a tear escaping her eye. "The symbols, the positioning, it's reminiscent of the old sacrificial rites. But it's been twisted, warped."
 
