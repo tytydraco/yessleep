@@ -1,5 +1,7 @@
 [\[Part 9\]](https://www.reddit.com/user/RandomAppalachian468/comments/1737mo8/the_road_to_new_wilderness_part_9/)
 
+[\[Part 11\]](https://www.reddit.com/r/nosleep/comments/174ustw/the_road_to_new_wilderness_part_11/)
+
 Jamie checked the magazine in her rifle one more time to ensure it was loaded. “You sure you’re all topped off on ammo?”
 
 I mimicked her, tugging the flaps of my canvas bandolier open to show each little metal box filled with cartridges. “Uh huh.”
