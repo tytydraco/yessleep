@@ -31,3 +31,9 @@ Reader, my eyes are so heavy as I write this out. I know I will wake tomorrow an
 I cannot live like this and I cannot curse another with all the destruction that this ring has brought to my life...or can I? What do we know of our character until we're truly challenged with an impossible situation? Do we understand the man in the fox hole who runs in terror after years of war? I feel like I must find another and give the ring what it wants. Maybe I could get my wife back, maybe I could get my wife back. My life could be perfect again. Maybe the ring did worse to me than it would another, maybe it will bring them good luck and I simply was unlucky in the dice roll. I'm sure I could tell the next person to just try it on for a little and put it away, it won't be as bad for them, I'm sure of it...yes, sure of it.
 
 I'm so tired though, so tired my dear reader friends. I'm just going to lay down here, just for a little while.
+
+Edit: Once again, the light of day brings clarity. I've also been blessed with news, my ex-wife has gotten engaged.
+
+The ring took my wife from me and now this other man is going to take what was ripped from my arms? The ring won't kill me, I am going to use it to get back what was mine in the first place. 
+
+I hear the ring whisper in my mind, even while awake. I'll get my wife back and get revenge on the man who took her from me. I think the ring would look nice on him, very nice indeed. Now, to plan, yes...to plan.
