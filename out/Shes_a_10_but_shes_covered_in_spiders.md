@@ -52,7 +52,7 @@ Exactly like her photos.
 
 Fuck.
 
-Nearly falling out of my seat, I tripped over myself and rushed to pull her chair out for her. She thanked me and apologized if she was a little later, her melodic voice tickling the back of my brain.
+Nearly falling out of my seat, I tripped over myself and rushed to pull her chair out for her. She thanked me and apologized if she was a little late, her melodic voice tickling the back of my brain.
 
 As she approached, when she was close, I finally noticed the flaw.
 
