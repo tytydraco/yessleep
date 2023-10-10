@@ -86,7 +86,7 @@ After watching them disappear in the direction they came from, I reach for my ra
 
 Mandy's voice crackles back, a sense of urgency layered within her usually steady tone. "Got it, Logan. I'll get the team together. But... if it's as you describe, we'll need to notify the feds."
 
-A heavy sigh escapes my lips. The FBI is involved in serious crimes for any serious crime occurring on the Reservation. Their presence is always a reminder of the strained relationship between the Navajo Nation and the federal government. It's a complex tapestry of past betrayals, the fight for sovereignty, and the ongoing quest for justice. While I understand the protocol, there's an inherent wariness in inviting them onto our land. It often feels like an intrusion, a stark reminder that in many ways, we're still not in complete control of our destinies.
+A heavy sigh escapes my lips. The FBI is involved in any serious crimes occurring on the Reservation. Their presence is always a reminder of the strained relationship between the Navajo Nation and the federal government. It's a complex tapestry of past betrayals, the fight for sovereignty, and the ongoing quest for justice. While I understand the protocol, there's an inherent wariness in inviting them onto our land. It often feels like an intrusion, a stark reminder that in many ways, we're still not in complete control of our destinies.
 
 "I figured as much," I respond, resignation in my voice. "Make the call, Mandy."
 
