@@ -154,13 +154,17 @@ I follow her gaze and my pulse quickens. Those footprints weren’t there earlie
 
 "They're fresh," I murmur, scanning the surroundings. The creeping sensation of being watched, which had been gnawing at me earlier, now feels even more palpable.
 
-We both follow the footprints, our steps deliberate and cautious. The tracks lead away from the crime scene, weaving through the rocky terrain towards the road. The human toes elongate, and the arch of the foot stretches. In the span of a few yards, they morph, slowly transforming from human to distinctly [animal](https://www.reddit.com/r/nosleep/comments/1581vef/our_search_for_a_missing_teen_uncovered_the/). They become the unmistakable tracks of a coyote."What the...?" Izzy murmurs, clearly shaken.
+We both follow the footprints, our steps deliberate and cautious. The tracks lead away from the crime scene, weaving through the rocky terrain towards the road. The human toes elongate, and the arch of the foot stretches. In the span of a few yards, they morph, slowly transforming from human to distinctly [animal](https://www.reddit.com/r/nosleep/comments/1581vef/our_search_for_a_missing_teen_uncovered_the/). They become the unmistakable tracks of a coyote.
+
+"What the...?" Izzy murmurs, clearly shaken.
 
 My thoughts immediately drift to the legends of the Yee Naaldlooshii, malevolent witch doctors capable of taking on different forms to wreak havoc and harm. But those were just tales told around campfires.
 
 Before I can continue my train of thought, the radio at my hip crackles to life, its urgent chirping cutting through the silent tension.
 
-"Sergeant Tohannie," Mandy's voice breaks through, her tone urgent, "You there?"I fumble with the radio, pressing the talk button. "I'm here. Go ahead."
+"Sergeant Tohannie," Mandy's voice breaks through, her tone urgent, "You there?"
+
+I fumble with the radio, pressing the talk button. "I'm here. Go ahead."
 
 "Logan, we've got a 5150 in Tsegi. Reports of an individual acting erratically," Mandy says, her voice tinged with concern.
 
