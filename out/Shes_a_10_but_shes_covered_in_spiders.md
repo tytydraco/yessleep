@@ -146,7 +146,7 @@ Then, she happily waved goodbye as a million silken strands lifted her off of he
 
 I spent the next few days thinking almost exclusively about Maddie. How great she was, and how great we'd be together. I imagined a future where whatever strange problem she had was cured, and we lived a normal spider-free existence into our old age.
 
-It took over a week before I realized she wasn't returning my calls.
+It took almost a week before I realized she wasn't returning my calls.
 
 She wasn't answering my texts.
 
