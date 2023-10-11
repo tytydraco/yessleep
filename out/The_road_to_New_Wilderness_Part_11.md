@@ -1,5 +1,7 @@
 [\[Part 10\]](https://www.reddit.com/user/RandomAppalachian468/comments/1740pwj/the_road_to_new_wilderness_part_10/)
 
+[\[Part 12\]](https://www.reddit.com/r/nosleep/comments/175npe6/the_road_to_new_wilderness_part_12/)
+
 “*Bear!*” Jamie’s scream barely cut through the bellows of the creature, and the night erupted into chaos.
 
 I hurled myself toward the truck, and hot breath blasted at the back of my neck, my ears ringing with the roar of the infuriated predator.
