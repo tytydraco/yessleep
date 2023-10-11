@@ -1,4 +1,4 @@
-Hello everyone! This is the third and final post regarding my... very strange experience, but if you'd like to read the other two parts I'll like them below for you.
+Hello everyone! This is the third and probably final post regarding my... very strange experience, but if you'd like to read the other two parts I'll link them below for you.
 
 [Part 1](https://www.reddit.com/r/nosleep/comments/16z37in/snapping_branches/?utm_source=share&utm_medium=web2x&context=3)
 

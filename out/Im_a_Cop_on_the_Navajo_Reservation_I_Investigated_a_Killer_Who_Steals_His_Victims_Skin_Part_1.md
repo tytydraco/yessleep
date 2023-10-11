@@ -1,10 +1,10 @@
 **Guardians and Invaders**
 
-The desert stretches out as far as the eye can see. There's a haunting beauty to it that most people can't appreciate. But for me, it's home. My name’s Logan, Logan Tohannie, and I’m an officer with the Navajo Nation Police Department, and this vast expanse is my beat. The towering mesas stand as silent witnesses to everything that happens here. Some of it good, a lot of it bad. In my ten years as a cop on the reservation, I've seen my fair share of both.
+The desert stretches out as far as the eye can see. There's a haunting beauty to it that few can appreciate. But for me, it's home. My name’s Logan, Logan Tohannie. I’m an officer with the Navajo Nation Police Department, and this vast expanse is my beat. The towering mesas stand as silent witnesses to everything that happens here. Some of it good, a lot of it bad. In my ten years as a cop on the reservation, I've seen my fair share of both.
 
 Every day, I'm responsible for patrolling a staggering 70 square miles of tribal land in Arizona. An area so vast, I often feel like a mere speck moving against a colossal backdrop. It's a lonely job, with most of my days punctuated only by the hum of my cruiser's engine and the sporadic chirp of the radio.
 
-Yet, despite the isolation, I wear my badge with immense pride. To me, it's not just a symbol of authority. It's a beacon of hope, a sign that someone is looking out for the the people of the reservation. I consider myself more than just a cop; I am a guardian of a culture that stretches back into time immemorial. The stories my parents and grandparents told of our ancestors, warriors who stood watch over their clans, resonate with me. In some ways, I see my role as an extension of that legacy.
+Yet, despite the isolation, I wear my badge with immense pride. To me, it's not just a symbol of authority. It's a beacon of hope, a sign that someone is looking out for the the people of the Rez. I consider myself more than just a cop; I am a guardian of a culture that stretches back into time immemorial. The stories my parents and grandparents told of our ancestors, warriors who stood watch over their clans, resonate with me. In some ways, I see my role as an extension of that legacy.
 
 But there's a flip side to that coin. The desolation, the lack of opportunities, and the scars of history have left many of my people struggling.
 
@@ -112,7 +112,7 @@ Stopping a few paces from me, she reaches into her pocket, pulling out a badge, 
 
 "I thought there would be... more of you," I say, raising an eyebrow.
 
-She smirks, a hint of amusement in her eyes. "Yeah, I get that a lot. Due to budget cuts, I work alone a lot."
+She smirks, a hint of amusement in her steely blue eyes. "Yeah, I get that a lot. Due to budget cuts, I work alone a lot."
 
 I nod, understanding her situation probably better than most.
 
