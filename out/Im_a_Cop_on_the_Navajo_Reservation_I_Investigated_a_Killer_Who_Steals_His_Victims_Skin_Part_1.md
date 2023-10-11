@@ -22,7 +22,7 @@ Today started like any [other](https://www.youtube.com/watch?v=MGd1F6Ay8ho): a s
 
 "Hey, Mandy. What's going on?" I ask, my curiosity piqued.
 
-"We've got a 419," she says, her tone somber. The code 419, it's not something we hear every day. It means a dead body has been found. In a place as remote as this, it's never a good sign.
+"We've got a 419," she says, her tone somber. The code 419, it's not something we hear every day. It means a dead body has been found. 
 
 "Where at?" I inquire, my grip on the steering wheel tightening.
 
