@@ -1,4 +1,5 @@
-(First part: https://redd.it/1736lm8 )
+(First part: https://redd.it/1736lm8 
+Next: https://redd.it/175q7mi )
 
 I haven’t made any progress in getting answers. Aside from leaving for work or groceries, I can’t get away from this place. I tried to trick whatever was controlling me. I pretended as if I wanted to check out the new natural food shop that opened near the airport. I’d already bought tickets for the first flight back to my parent’s country. I jerked the wheel at the last second, but my hands turned it the other way. Instead of getting to the airport, I wrecked my car against a steel roadside barrier. It was a miracle I didn’t die.   
 

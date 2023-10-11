@@ -226,7 +226,7 @@ I felt a lump in the bottom of my throat as a flipped the page... a sick feeling
 
 It was him... The same unnaturally ghoulish looking pale skin. His face covered here, not by a hat but this time by his long fingered hand. He did not wear suit in the depiction but a tattered black frayed robe.
 
-*"This folktale is extremely rare. Unknown to most, the only records taken from few small villages in rural parts of Japan. The Covered Man goes to great efforts to hide his face. However mysterious though it is said that the covered man appears to help people who are set on a goal..."*
+"This folktale is extremely rare. Unknown to most, the only records taken from few small villages in rural parts of Japan. The Covered Man goes to great efforts to hide his face. However mysterious though it is said that the covered man appears to help people who are set on a goal..."
 
 I stared at the book stunned trying to make sense of what I had just read. It continued.
 

@@ -1,3 +1,5 @@
+(Next: https://redd.it/174vvue )
+
 I think a lot of people can relate to my situation. Rent is insane, and good-paying jobs are hard to find. I was just getting by when my landlord decided he wanted more money. It’s not like I had the time or money to fight it. Instead, I started looking for a new place so I wouldn’t be homeless by the end of the month. 
 
 For two weeks I desperately looked for anything within my price range. A few options came up but fell through at the last minute. The one place I considered was a house with four other guys. They cleaned up when I arrived to view the room available for rent. Whatever efforts they made were in vain. The place smelled like something died under the floor or behind some of the damaged walls they poorly covered up. Soon, it appeared that my options would be a rundown frat house or the streets.  
