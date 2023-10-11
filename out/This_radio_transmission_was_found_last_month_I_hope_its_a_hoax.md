@@ -44,7 +44,7 @@ Last month I saw one of the guys glaring at Vaughn. Later that day I heard him w
 
 I was going to ask them about it the next day but there was an accident in the lower levels and I haven't seen them since...
 
-If that wasn't bad enough, Vaughn told us a week later that what was left of Mexico had been taken over by aliens. Supposedly they unveiled some declassified bodies the ships came down and took over in one night.
+If that wasn't bad enough, Vaughn told us a week later that what was left of Mexico had been taken over by aliens. Supposedly they unveiled some declassified bodies and the ships came down and took over in one night.
 
 *Actual aliens*?
 
