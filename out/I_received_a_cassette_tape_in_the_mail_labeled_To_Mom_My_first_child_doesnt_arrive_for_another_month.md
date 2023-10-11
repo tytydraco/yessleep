@@ -94,7 +94,7 @@ His finger found the button. “Hold on to your butts...” he said. And he push
 
 
 
-Think, the sound a car window makes you stop just short of raising it all the way. That soft white hiss featureless as fresh snow. That was what I heard in the little speaker at my ear. The only thing there was to hear. I pressed my palm to my other ear to mask the whirring sound of the player on the counter, trying to hear anything else.    
+Think, the sound a car window makes when you stop just short of raising it all the way. That soft white hiss featureless as fresh snow. That was what I heard in the little speaker at my ear. The only thing there was to hear. I pressed my palm to my other ear to mask the whirring sound of the player on the counter, trying to hear anything else.    
 
 
 
@@ -151,7 +151,8 @@ When I had it. I looked to Hubby all wide-eyed. “You don’t recognize it?” 
 
 
 The sound was a heartbeat.     
-
+     
+&nbsp;    
 
 
 ************************     
