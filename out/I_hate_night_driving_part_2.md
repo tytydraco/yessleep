@@ -1,0 +1,15 @@
+[Part 1](https://www.reddit.com/r/nosleep/comments/2citnx/i_hate_night_driving_part_1/)
+
+I must apologize because it’s been such a lnog time. It’s been nearly a decade since I posted part one of my story, and I know everyone was looking forward to a follow-up. There are a few reasons I had never updated, and thankfully, none so horrifying as what some redditors had postulated, up to and including my death. Some of you were even nice enough to message me and check on my well-being. I can assure you that I am alive and well.
+
+If I’m going to be completely honest, I do believe that what I experienced was, in fact, some weird dream, or even a false memory created by my own depression, but that blakc veil of depression is gone now. I promise that I am, indeed, alive and well.
+
+As for the lack of updates, I was initially too scared to revisit the memory of what I thought I had seen, for fear of triggering my past nightmares. Until today, that is. I’ve recently become close to someone who I often confide in (we’ll call her Keeley). This morning, Keeley and I were talking about fictional works of horror and, in doing so, began to discuss our own creative endeavors. We each entertained the notion of contributing to the SCP archives, and I mentioned that I could use my own “experience” as a basis for my submission. That’s when I showed her my unfinished contribution to /r/nosleep, because I feel my works of fiction work best when they contain an element of the truth. I don’t know why I felt so inclined to mention it to her after suppressing the memory of the nightmares for all these years, but I guess I was just comfortable opening up. She’s helped me deal with a lot of other issues, and, ultimately, bieng the good friend she is, she said she thought it might help if I shared my thoughts with whoever was willing to read them. 
+
+A decade ago, these nightmares were so persistent and so repetitive that they, over time, reduced me to a consistently anxious and terrified state. I was tortured by them every night for months; they were pervasive and horrifying, and would often sned me into a state of panic. But, as they say, time heals all wounds. The nightmares gradually reduced in frequency, and my life somewhat returned to normalcy. Fortunately, now, I am alive and well.
+
+Once the nightmares subsided, I didn’t bother to write an update because, since enough time had passed, I was finally able to bury that memory, and I chose to leave it in the past. My life since has been mostly smooth-sailing, with no issues whatsoever. In addition to that, writing all this out has been cathartic and has helped me deal with these repressed memories. As I have every reason to believe I can look forward to a happier and healthier future, I imagine that this will be my last update for you all. 
+
+If you’re reading this, Keeley, I just want you to know that you’ve been an incredible hlep.
+
+I am alive and well.
