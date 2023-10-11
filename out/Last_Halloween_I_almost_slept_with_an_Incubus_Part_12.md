@@ -2,7 +2,7 @@ We don't celebrate Halloween where I come from. My main exposure to it as a kid 
 
 Fast forward about fifteen years and I did end up moving to the US, albeit for more practical reasons. As a twenty-something woman, it was safe to say I had blown my chance at trick-or-treating, but that didn't mean I couldn't get into the Halloween spirit in other ways. It just so happened that one of my coworkers was throwing a spooky-themed party at his house as a sort of impromptu team-building event. I admittedly had a thing for said coworker, so I was going regardless of the premise, but the fact that it was Halloween did boost my excitement up a notch.
 
-As soon as I stepped through that door, I immediately realized how underdressed for the occasion I was. I didn't expect people to go all out for a work event, but there was Bill from HR walking around in full mummy getup and Mary, our supervisor, strutting her stuff as a sexy witch. Meanwhile, there was I, dressed in an ordinary shirt and slacks and with my dumb little devil horns on, standing in the middle of it all like a complete jackass. I rarely feel socially awkward, but this was definitely one of those moments, especially since I was the "new girl" still trying to make an impression.
+As soon as I stepped through that door, I immediately realized how underdressed for the occasion I was. I didn't expect people to go all out for a work event, but there was Bill from HR walking around in full mummy getup and Mary, our supervisor, strutting her stuff as a sexy witch. Meanwhile, there was I, dressed in an ordinary shirt and slacks and with my dumb little devil horns on, standing in the middle of it all like a sore thumb. I rarely feel socially awkward, but this was definitely one of those moments, especially since I was the "new girl" still trying to make an impression.
 
 Thankfully the coworker I was interested in was too busy running back and forth from the kitchen to really pay me any special attention. I figured my best course of action was to just blend with the background and dip after an hour or two.
 
@@ -71,7 +71,7 @@ What did that fuck do to them? Was he… about to do the same thing to me? The t
 
 Before I could stand back up, the shriveled woman suddenly lunged at me, grabbing me by the ankle. My first instinct was to pull away, but her grip held surprisingly strong, despite the horrible pop that came from her shoulder.
 
-Her face was difficult to look at. It was so gaunt that I could actually see the shape of her teeth through her cheeks. Her mouth was too dry to speak, so instead she placed the finger of her other hand to what remained of her lips. Then, she pointed towards the bottom drawer of the nightstand. With tears welling up in my eyes from fear, I gave a nod and gingerly opened it. In it was a gun.
+Her face was difficult to look at. It was so gaunt that I could actually see the shape of her teeth through her cheeks. She placed the finger of her other hand to what remained of her lips. Then, she pointed towards the bottom drawer of the nightstand. With tears welling up in my eyes from fear, I gave a nod and gingerly opened it. In it was a gun.
 
 I clutched it against my bare chest, feeling its weight, then checked the magazine. It had all its rounds. I pushed it back in with shaking hands, pulled the slide, and finally released the safety. One of the first things I did when I came to the US was visit my local shooting range. It was just for fun; I never thought I'd actually have to put what I learned there into practice.
 
