@@ -44,7 +44,7 @@ I nodded, then he reached into the pocket of his apron and, pulled out a pair of
 
 I felt them poke into one of my nostrils and wasn't sure they would fit, but Ulric didn't seem to have a problem stuffing them up there. It took some probing, but he started to pull at something, and out it came.
 
-Pinched between the end of the tongs was a carrion beetle, the kind of bug that feeds on the flesh of the dead. He took it between his gnarled fingers and popped it into his mouth, and as he chewed.
+Pinched between the end of the tongs was a carrion beetle, the kind of bug that feeds on the flesh of the dead. He took it between his gnarled fingers, popped it into his mouth, and chewed.
 
 “Oooh, that’s a smoky one, coal-fired, oh you bet,” he said.
 
@@ -363,5 +363,3 @@ He looked into my eyes and saw the fear in them. He touched his fingers on the s
 I didn't have a good explanation, so I settled on the truth.
 
 \*\*\*
-
-&#x200B;
