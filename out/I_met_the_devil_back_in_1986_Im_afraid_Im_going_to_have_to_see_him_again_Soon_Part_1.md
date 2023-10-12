@@ -340,7 +340,7 @@ He unzipped his bag, and inside, there were cherry bombs, packs of M80s, and two
 
 "I'll pay you back, don't worry," I said, but Jesse didn't seem concerned.
 
-“Kyle Arsenault's went around on the other side of the field directly across from us, and Gerry's over there somewhere," he jerked his thumb toward the south side toward the road.
+“Kyle Arsenault's went around on the other side of the field directly across from us, and Jeff’s over there somewhere," he jerked his thumb toward the south side toward the road.
 
 I was the one who had gently suggested all of this, so you would think it was my show. But the guys had taken it and run with it. I'd told them I was going to get there early and "do some recon," and in their excitement, no one probed too deeply on that front.
 

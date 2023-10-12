@@ -1,0 +1,15 @@
+I was browsing this sub, and it got me thinking about a spooky childhood incident that happened back in 2013. You see, I lived in a neighborhood pretty close to a crematorium, which, despite its eerie presence, never really bothered me much. The place just had this strange and unsettling atmosphere.But this one unrelated and unexpected event was enough to haunt me for a long time. 
+
+It was a rainy night during the monsoon season, I woke up at around 1 am, to use the bathroom ( I lived with my parents, and I am the only child). The rain was slowly pattering outside, and the electricity was a bit wonky due to the weather. As I returned to my room, I heard an odd sound coming from the window of my kitchen, which was situated next to the road.
+
+At first, I brushed it off, thinking it was just something due to the rain. But then, I heard someone muttering in our local language, swearing slowly as if they were trying to provoke someone. Out of excitement and thinking that i might see something interesting (like a theft or someone doing something illegal), i headed to the window of my kitchen. 
+
+The voice seemed to be coming from the road.It was pretty dark outside because the street lamps weren't functioning properly due to the rain. I decided to switch off the lights in the kitchen and approach the window cautiously. The window had curtains, so I pulled them aside ever so slightly to get a peek outside. The darkness made it very hard to see anything through the window net ( the window was iron netted so it was little tough to get a clear view of the other side). However, a few moments after moving the curtains, I heard that voice again. But this time, it was crystal clear and terrifyingly close.
+
+It felt as though this person was right next to me, and I couldn't tell if he could see me. He mumbled , "what are you looking at ?".  I was utterly shocked and couldn't move a muscle. As my eyes gradually adjusted to the darkness, I saw something that will haunt me for life. There was a guy sitting just below the kitchen window, staring directly into my eyes.
+
+I ran out of there and woke my parents in a panic. My father quickly grabbed a flashlight and went to investigate. He saw the man sitting there too. My father shouted at him, but that stranger just calmly walked away. My father told me that the guy was high on alcohol and that i should not be worried about him. After my father reassured me, we all went back to sleep, hoping it was over.
+
+However, the next morning my mother’s voice woke me as she was talking to an insurance officer. This made me extremely worried and then my mother gave me a sign to go out side and have a look. when I looked outside, I discovered a horrifying sight. Our car, parked outside, had been mercilessly scratched from every possible angle, leaving it in a terrible state ( I have attached the image link below). Although we got the car repaired through the insurance cover , the guy behind this was never caught. No cctv cameras were installed in my house or in my neighbourhood. 
+
+https://ibb.co/0nhbssB
