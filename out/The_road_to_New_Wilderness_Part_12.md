@@ -1,4 +1,4 @@
-[\[Part 11\]](https://www.reddit.com/r/nosleep/comments/174ustw/the_road_to_new_wilderness_part_11/)
+[\[Part 11\]](https://www.reddit.com/user/RandomAppalachian468/comments/174tygb/the_road_to_new_wilderness_part_11/)
 
 In all my travels with Matt and Carla, I’d never come across darkness quite like this.
 
