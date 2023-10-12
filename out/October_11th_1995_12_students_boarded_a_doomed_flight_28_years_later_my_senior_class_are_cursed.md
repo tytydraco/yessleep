@@ -246,7 +246,7 @@ I noticed the air around us thicken significantly, Mom’s words hanging in the 
 
 “You don’t know that” she surprised me by snapping at Kit. “Do you want the same thing to happen to your sister?”
 
-Mom was going into panic mode. She washed dishes when she was stressed, and she was already striding over or to the washing-up bowl despite us having a dishwasher. “I’ve been talking to Pastor Worthington,” she didn’t turn around, speaking through heavy breaths. “And he is willing to place protection on the two of you.” Kit shot me a look, and I rolled my eyes. 
+Mom was going into panic mode. She washed dishes when she was stressed, and she was already striding over to the washing-up bowl despite us having a dishwasher. “I’ve been talking to Pastor Worthington,” she didn’t turn around, speaking through heavy breaths. “And he is willing to place protection on the two of you.” Kit shot me a look, and I rolled my eyes. 
 
 Pastor Worthington wasn't even a pastor, and I was pretty sure he was scamming my mother, taking advantage of her pain. Every year she managed to convince herself it was all her fault. Mom never talked about being in the same class as the missing chess team. When we were little kids, she mentioned that she lost some friends when she was younger. I remember being five years old and standing under a big tree while Mom held a bouquet of flowers, her head bowed in prayer. 
 
@@ -306,9 +306,11 @@ Even Kit winced a little. 
 
 “Fee.” Kit really went to town on making sure the toe of his shoe went right into my kneecap. “Read the room.”
 
-“No, it’s okay,” Mom cleared her throat and turned to face us. Her hands were bright red from the boiling hot water. “There was no news because the town and families chose to keep it private. 
+“No, it’s okay,” Mom cleared her throat and turned to face us. Her hands were bright red from the boiling hot water. “There was no news because the town and families chose to keep it private. It is a…” she trailed off, her expression twisting. “It is a town tragedy and will stay one.” Mom didn’t speak for the rest of breakfast. She poured herself a glass of wine and headed upstairs. 
 
-"It is a…” she trailed off, her expression twisting. “It is a town tragedy and will stay one.” Mom didn’t speak for the rest of breakfast. She poured herself a glass of wine and headed upstairs. Probably to down the whole thing. We were used to it, but it still kind of hurt. I was hoping Mom would stay sober for my 17th. With Mom gone, Kit leaned across the table, on his third or fourth helping of cereal. 
+Probably to down the whole thing. 
+
+We were used to it, but it still kind of hurt. I was hoping Mom would stay sober for my 17th. With Mom gone, Kit leaned across the table, on his third or fourth helping of cereal. 
 
 Jesus, how hungry was he?
 
@@ -320,7 +322,7 @@ I stood up instead of answering him. “I was just curious. "
 
 I grabbed my backpack. “So?”
 
-“So,” Kit narrowed his eyes. “Is there something wrong?” He cocked his head. “We’re really not going to talk about you café-de-cake this morning?” For a moment, my brother’s voice was drowned out by a drum beat. I heard them in my head like they were close,  getting closer with each of my strangled breaths. It was almost like a heartbeat. 
+“So,” Kit narrowed his eyes. “Is there something wrong?” He cocked his head. “We’re really not going to talk about café-de-cake this morning?” For a moment, my brother’s voice was drowned out by a drum beat. I heard them in my head like they were close,  getting closer with each of my strangled breaths. It was almost like a heartbeat. 
 
 I lost myself in the drumming, in blurred shadows dancing in my peripheral.
 
@@ -350,11 +352,13 @@ That stung, but he was right. 
 
 I didn’t reply, leaving my brother in the kitchen. 
 
-I could still feel his gaze burning into the back of my head when I was halfway out of the door. Thankfully, my morning classes were too loud to hear the drums, and even stuck in silence in a bathroom stall or a classroom swamped in a vacuum, there was no sign of them. Levi Carlisle cornered me at lunch, sticking his phone in my face. “Did your Mom agree to an interview?”
+I could still feel his gaze burning into the back of my head when I was halfway out of the door. Thankfully, my morning classes were too loud to hear the drums, and even stuck in silence in a bathroom stall or a classroom swamped in a vacuum, there was no sign of them. Levi Carlisle cornered me at lunch, sticking his phone in my face. 
+
+“Did your Mom agree to an interview?”
 
 I got his email two nights prior. He wanted to interview my mother, the only class of 95 still in town. Levi was an interview away from sending my Mom in a downward spiral if he started spewing his conspiracy theories in her face. I shoved the kid out of the way, as gently as I could.
 
-“She’s sick,” I said dryly,  quickening my steps. “If you go near her, you’ll die.”
+“She’s sick,” I said dryly, quickening my steps. “If you go near her, you’ll die.”
 
 Levi nodded, struggling to keep up. “Okay, so maybe next week?” he said hurriedly. “I’ve been trying to get in touch with a woman who moved to New York, but she’s like, impoooosible to get hold of. Her daughter keeps answering and telling me to leave her alone, but I think I’m making progress. She was one of the missing’s best friends, so I was thinking I could ask her about their friendship, and then get to the good stuff.” Levi had a weird gleam in his eyes. 
 

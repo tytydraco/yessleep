@@ -1,5 +1,7 @@
 [\[Part 11\]](https://www.reddit.com/user/RandomAppalachian468/comments/174tygb/the_road_to_new_wilderness_part_11/)
 
+[\[Part 13\]](https://www.reddit.com/r/nosleep/comments/176hfx0/the_road_to_new_wilderness_part_13/)
+
 In all my travels with Matt and Carla, I’d never come across darkness quite like this.
 
 Even with the partial moonlight, shadows clung to the trees like moss, the gnarled trunks thick and close around the narrow deer trails. Our red lights barely pierced the inky veil for more than a few yards, and every time I turned my back, I could almost feel hundreds of eyes watching us as we wandered through the countryside. Mud squelched under my shoes, and mosquitos whined in my ears. Minutes stretched into hours, and I wondered constantly how far we’d walked, but didn’t want to break the tense silence to ask.
