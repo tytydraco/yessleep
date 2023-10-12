@@ -1,4 +1,4 @@
-[Part 2](https://www.reddit.com/r/BrokenRamblings/comments/173fk3z/before_the_gratitude_wall_part_2/)
+[Part 2](https://www.reddit.com/r/nosleep/comments/173a1bq/before_the_gratitude_wall_part_2/)
 
 “Time to wake up!” Rosie said, shaking my shoulder. My eyes flew open and I yelled. She put her hands on my shoulders. “It’s me! It’s alright! It’s time for school!”
 
