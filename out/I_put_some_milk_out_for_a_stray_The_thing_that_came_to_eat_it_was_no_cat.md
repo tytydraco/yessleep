@@ -36,7 +36,7 @@ I hadn’t.
 
 I was too embarrassed to mention that I hadn’t ever met our realtor, or even looked at the property before Mark signed the papers.
 
-According to him and to our realtor, this was a once-in-a-lifetime opportunity. The house had come on the market unexpectedly when Mark’s uncle passed away. His cousins had intended to list it, but because we were already looking to move, Mark jumped on it. 
+According to him and to our realtor, this was a once-in-a-lifetime opportunity. The house had come on the market unexpectedly when Mark’s uncle passed away. His cousins had intended to list it, but because we were already looking to move, Mark jumped on it.
 
 He had been tired of our life in the city. It was no place to raise the hypothetical kids we one day intended to have. And he hated his job, which had been a necessity to make rent.
 
@@ -50,8 +50,7 @@ And now, here we were, just two months later, in a home that didn’t feel like 
 
 “I won’t call the police again,” I said firmly. “Have a good day at work.”
 
-Mark saluted me and grabbed his lunch before heading out the door. Mark had already found work at a small accounting firm in town. Our costs were low enough here that I didn’t even need to work, but ever since the move two days ago, I had found myself searching job listings. Maybe just to get away from the quiet.  
-  Time passed differently when Mark was away, and before I knew it, it was nearly lunch. I rinsed some bell peppers and began to cut them up for a salad when I heard it: a soft clacking sound. It was so light you might have mistaken it for rain.
+Mark saluted me and grabbed his lunch before heading out the door. Mark had already found work at a small accounting firm in town. Our costs were low enough here that I didn’t even need to work, but ever since the move two days ago, I had found myself searching job listings. Maybe just to get away from the quiet.Time passed differently when Mark was away, and before I knew it, it was nearly lunch. I rinsed some bell peppers and began to cut them up for a salad when I heard it: a soft clacking sound. It was so light you might have mistaken it for rain.
 
 Clack. Clack. Clack.
 
@@ -83,7 +82,7 @@ I ran to the window where I had seen the smoke. I could distantly see a couple f
 
 “Shit,” I said. I should have made the call. I looked back out the window at the little bowl of milk.
 
-Crazy cat lady, Mark had called her. So, now I knew where the kitten came from. 
+Crazy cat lady, Mark had called her. So, now I knew where the kitten came from.
 
 He’d been so sure when he said it would be fine. I marveled at how confident he’d been, despite being totally wrong. I’d never felt that sure of myself once in my life, even when I was one-hundred percent sure of something.
 
@@ -99,7 +98,7 @@ When I got home, it was already getting dark. I emptied everything onto the porc
 
 “Here, kitty, kitty,” I whispered quietly into the twilight.
 
-Only silence answered me. 
+Only silence answered me.
 
 I went back into the house to get dinner ready. Mark would be home soon, and I’d realized I’d never even eaten lunch.
 
@@ -163,7 +162,7 @@ I had been expecting *maybe* a bear, or some kind of bobcat.
 
 What had visited our porch and demolished all of the kitty treats was no animal that I’d ever seen before. It happened so fast, it was really just a blur on the screen. Even slowing it down frame by frame, I couldn’t quite be sure of what I saw, but here’s what I think it looked like:
 
-Covered in spines, easily the size of two bears stacked together, this beast lumbered onto the porch, talons scraping the wood. Razor-sharp spines protruded out of its back, and its eyes–there was something about them that made my blood run cold. 
+Covered in spines, easily the size of two bears stacked together, this beast lumbered onto the porch, talons scraping the wood. Razor-sharp spines protruded out of its back, and its eyes–there was something about them that made my blood run cold.
 
 At first I couldn’t place it, then I realized what it was: those eyes were *far* too intelligent.
 
@@ -187,10 +186,12 @@ Just a second, a split second before I opened the porch door, its ears twitched,
 
 A few minutes later, I could hear him snoring.
 
-But I didn’t sleep. 
+But I didn’t sleep.
 
 Because he *didn’t* know best. He didn’t know shit. And I was going to prove it.
 
-Before I knew what I was doing, I found myself in front of the refrigerator, letting the cold air breathe over me, the cool air chilling the night sweat on my skin as the fan struggled and hummed. 
+Before I knew what I was doing, I found myself in front of the refrigerator, letting the cold air breathe over me, the cool air chilling the night sweat on my skin as the fan struggled and hummed.
 
 I filled a fresh [bowl of milk.](https://www.reddit.com/r/scarymaxx/comments/zwo5o8/welcome_to_the_world_of_scarymaxx/)
+
+[Update!](https://www.reddit.com/r/nosleep/comments/175xekf/i_put_some_milk_out_for_a_stray_now_some_very_bad/)
