@@ -1,14 +1,13 @@
-i work as a teacher, my co workers death still haunts me.
+I'll never recover from what i saw that day.
 
-I  work as a teacher, my co workers death still haunts me.
 
 As hard as my job can be, i love it most of the time... when i don't it's just the kids being assholes but hey, i was in their place once so i understand. i've earned myself the nickname "the fun teacher" because of how relaxed i am on the kids, of course i do my job I'm just not overly harsh on the kids. I frequently give them stuff for doing well and make sure to constantly compliment them, they need help? I'll be there to help. they need someone to talk to? Well, my doors always open.
 
-iI was like that for as long as i could remember until another teacher joined our school and to my suprise had a welcoming party? I never was allowed to have anything like that so obviously i was pretty petty but i just brushed it off... the kids were just having fun, this new teachers cool. i thought this to myself, just a little bit jealous. I talked to them a bit about the school and work and stuff and i remained civil because i wasn't gonna take my pettiness out on someone i just met and someone who i actually got along with. Despite this, jealousy seemingly lingered at the back of my mind.
+It was like that for as long as i could remember until another teacher joined our school and to my suprise had a welcoming party? I never was allowed to have anything like that so obviously i was pretty petty but i just brushed it off... the kids were just having fun, this new teachers cool. i thought this to myself, just a little bit jealous. I talked to them a bit about the school and work and stuff and i remained civil because i wasn't gonna take my pettiness out on someone i just met and someone who i actually got along with. Despite this, jealousy seemingly lingered at the back of my mind.
 
 you might ask me why i care so much, I've just grown to love my job and title and i couldn't help but envy them. i don't have much to look forward to in my life and i really only love my job, i never talk to my family, I'm single and i constantly feel depressed all the time so being someones favourite even if it's just favourite teacher feels great.
 
-I was obviously a higher rank then them so i, and I'm not very proud of this... i used my power to push that teacher around in hopes they got fed up of antics and just left already. i did this to fuel my ego and get rid of the deep insecurities i had. i felt so guilty and horrible about it but I knew it was like a form of therapy for me... it felt like getting my own back, yknow? Revenge does feel sweet but i was borderline mistreating an innocent person for no reason. my guilt made me sink further into a depressive state, I'm such an awful person.Day after day, this only got worse and i didn't know what to do anymore...
+I was obviously a higher rank then them so i, and I'm not very proud of this... i used my power to push that teacher around in hopes they got fed up of antics and just left already. i did this to fuel my ego and get rid of the deep insecurities i had. i felt so guilty and horrible about it but I knew it was like a form of therapy for me... it felt like getting my own back, yknow? Revenge does feel sweet but i was borderline mistreating an innocent person for no reason. my guilt made me sink further into a depressive state, I'm such an awful person. Day after day, this only got worse and i didn't know what to do anymore...
 
 In my entire teaching career I've accomplished many things but theres one thing I've been after; the teacher of the year award. It'll be so accomplishing to be called "the best teacher" theres just one thing, it's down to a vote and for awhile now i thought i couldn't possibly get any competition... but i was wrong.
 
@@ -46,6 +45,6 @@ When my speech finishes i must've got into it because i hadn't realized I'd clos
 
 dead corpses all around, a gun in my hands.
 
-i couldn't be happy living with the guilt of what i had done.
+i couldn't be happy living with the guilt of what i had done, I hadn't been happy for a long time now.
 
 i aim the gun at my head.
