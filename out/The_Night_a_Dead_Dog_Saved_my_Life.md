@@ -1,0 +1,79 @@
+This was 1962. I’m sharing here because I have never told anyone about this, and it’s not something that I could even bring up in real life without getting an unwanted reaction.
+
+I was about 12 at the time, and my brother John was 11. We were extremely close, and walked together to school every day. One thing to know was that in the 60s kids really lived different, and dangerous lives, much more dangerous then I think most people who weren’t alive then understand.
+
+John and I were only 11 months apart, and were in the same grade. My brother was born with one arm, and thus as kids we were constantly the target of merciless bullying. One bully in particular, Glen Pachiko was the worst of all. He really delighted in his abuse, and never took a day off. He would find us on our way to and from school, and beat and steal from us during lunch. Because of this we were forced to take the only “safe” route we could to get to school each day. We walked down Nathan way. Now I should note, that the only reason this route was safe from our tormentors was because everyone else avoided it.
+
+The neighbor that lived on the corner of Nathan way had a large, vicious Boxer named Charlie that was sometimes chained to a tree, sometimes not. Charlie wore a signature red color, with sharp metal spikes wrapped around his neck. Charlie was particularly fond of hiding just out of site from the children on their way to school and right as anyone passed the house Charlie would appear, charging full speed at you, with gnarling, gnashing teeth and blood in his eyes. One account from a high school freshmen, Frankie Suison, relayed over the summer Charlie had charged so fast, and so hard that the chain had broken and Charlie’s jaws came so hard down onto Frankie shoulder that you could see the white of his collarbone under the torn flesh. Nathan Way was religiously avoided by all; except John and me.
+
+John and I had a little secret. Our parents were French immigrants, and there was no shortage of the most poignant smelling meat, cheese, and different types of animal organs available for our eating pleasure at home. One specialty of our mother was the French liverwurst sandwiches that she packed daily for our lunchThe first time we took Nathan Way to school, as expected, the minute we turned the corner onto the street we could hear the rattling of the chain before anything else as Charlie came barreling out of his dog house. Without thinking, I reached into my lunch pail and chucked the liverwurst at him as John and I booked it. We realized immediately that Charlie’s attention was off of us, and he was 100% consumed by the sandwich, chomping away and licking his chops. We were stunned.
+
+The next morning as we turned the corner, there was Charlie. But instead of charging at us, he was sitting patiently by the edge of his house’s drive, waiting for us. I threw the liverwurst his way, along with a cold block of Mimolette that I had stole from the refrigerator and Charlie inhaled both in a matter of seconds. This went on throughout the school year, and even during summer John and I would go out of our way to bring Charlie some leftovers, scraps, and random bites every other day or so so he wouldn’t forget us. I came to really enjoy bringing him the grub and even though I still wouldn’t risk getting within ten feet of Charlie, I could tell we were the highlight of his day, as he was severely neglected and mistreated by his owner.
+
+As the school year started in fall, our run-ins with Glen got worse and worse. We were safe until lunch, which was when he would make his rounds picking out his favorite targets. Some days we were in his war path, some days it was another poor soul.
+
+One particularly bad incident involved a new student who used a wheel chair because he had contracted polio as a baby. Thy bullying was worse for him, as he really had no defense. At least John and I stuck together, and Glen would only come near us on days he was feeling particularity confident. But for the kid in the wheel chair, the abuse was unrelenting. Every day, Glen would approach him, steel his lunch, knock him over, take his glasses, the assaults never stopped. Teachers didn’t notice, and didn’t care. I felt bad, but kept my distance because at least if Glen's attention was on someone else, it meant that I was safe for the time being. John saw things differently. I don’t know if it was because John had one arm he could relate the kid more or what, but John would get furious, and even sometimes yell at Glen or try to get a teacher involved. I hated when John did this because it just brought the spotlight back on us. One day everything changed.
+
+We walked to school as normal, liverwurst ready in hand to pay our tax to Charlie when we noticed Charlie wasn’t outside. The next day, same thing. As we walked down Nathan Way Charlie was no where to be found, but in the neighbor’s front yard was a mound of dirt, about two feet high with a rusty shovel thrown lazily on the ground next to it. It was clear to us that Charlie had passed, and been buried right in front of the house. No flowers. No gravestone. Just a pile of dirt sitting on top of his cold body. I remember feeling tremendous sadness. Not that he was my dog, or that I was even friendly with him, but I has grown so used to passing him every day, and felt so protected by his presence that as soon as I realized what had happened I just felt so much grief. I looked at John and noticed a small tear running down his face as he realized what had happened.
+
+We walked the rest of the way to school in silence. At lunch we didn’t talk, but instead opened our lunch pales with our friend Randy.
+
+“That smells disgusting, what is that?” Randy announced. 
+
+John and I laughed, realizing we hadn’t brought our smelly food to school in nearly a year, forgetting how bad and strong the odor from of our homemade sandwiches actually was.We ate our food and messed around as normal.
+
+“I can’t wait for halloween” Randy opined, “this year I don’t have to go with my sister, we get to go all alone and get all the goddamn candy we can carry!”
+
+“Yeah” John chimed in, “if the Jensen’s put that damn ‘1 piece only’ sign out again this year, there’s no one to stop us from pouring the whole bowl into our bag! It’s gonna be wicked!”
+
+I laughed in excitement with them. Halloween was just a week away and we could barely contain our anticipation.Our lunch was interrupted by a loud crash, as we turned to see Glen had knocked over the kid in a wheel chair had had him in a chokehold with his arm around the kids neck. I was stunned. I couldn’t move. I was used to ignoring the bullying and turning away but this time was different. 
+
+I could see the kid struggling, hitting at Glens’ arm trying to break free as Glen just laughed. Everyone turned to look away, scurrying away from the scene leaving the helpless kid on his own. His face was turning red; I could see veins bulging from his neck. Still, I could not move. I closed my eyes. I didn’t want to see what was going to happen next as Glen starting bringing his fist down on the kids face. I tried to act but every muscle in my body was stuck. I tried to open my eyes as I could hear the struggling, the laughing, all the terrible noises happening around me but I could not bare to watch.
+
+Suddenly a loud, earth shuddering crack broke my frozen body and my eyes flashed open. John had grabbed a large stick, more like a large tree branch, and whipped it across the side of Glen’s face. The noise from the crack reverberated across the playground as Glen dropped his prey from his hands and turned to John in a somewhat stunned disbelief.The side of Glen’s face was as red a tomato and the whipping had even caused his ear and side of his eye to start bleeding.Two teachers ran to the scene.“Break it up, break it up, get out of here you filthy sacks of shit, enough!”The teachers grabbled Glen and my brother and helped the kid up back into his wheel chair. Everyone was silent, except Glen, who at this point had begun loudly, and aggressively to wail in pain. He was sobbing, screaming, blood running down his face, his cheek had instantly started to swell.
+
+“I’ll kill you” he screamed at John.
+
+John was stoic, unmoved. He had already thrown down the stick that was in his hands, and followed the teacher as he was escorted to the principal’s office.
+
+John was suspended for a week, and Glen was expelled. Turned out the teachers had all been tired of his antics, and looking for him to do something egregious enough to get him out of their school. I think deep down they were even a little afraid of him themselves.
+
+The week went by uneventful. John got a whooping and was in deep shit with my parents, but the excitement of Halloween’s approach was enough to make us forget anything had really happened. Despite being grounded, my parents knew there was no way to stop John from trick-or-treating, and allowed us to go out with Randy unchaperoned. That night was bliss.We cleaned out our street, and the two streets next, skipping the Dolnick’s house because their father was a dentist and we had no use for the travel toothbrushes they were handing out. The big prize was always the end of Nathan way where the Russels always had three huge bowls loaded with all of our favorites. We made out with more candy then we knew what to do with.We began the trek home laughing, screaming, reveling in our sacks that were full to the brim with enough heavenly delights to last us till next summer. I noticed Randy’s face first.
+
+“You look like you’ve seen a ghost, randy” I snickered, please with my joke, but Randy’s face was unchanged.
+
+I looked in the direction he was staring and saw the outline of a tall, gangling boy with clear blond hair, and the side of his face black and blue, swollen to the point that made his eye shut, and his skin purple and shiny, even in the dark. He had a metal baseball bat in his hand, and was wearing nike runners and short red shorts. I looked at John. And then back at Glen. Again, my body was frozen.
+
+“Run,” John said, almost in a matter of fact way, like how you would tell someone to “catch” before throwing a ball at them.Before we could start, Glen had already broken into a sprint coming directly towards us. My feet started moving without me even telling them too. John and Randy were behind me, slower. I ripped the bag of candy out of John’s arm so that he could run faster. I could hear Glen’s breath, I could tell he teeth were clenched and he was running as fast as he could.“I told you I’d fucking kill you” he raged, I heard the swing his his bast and felt the air whoosh by my ear.
+
+He was only a few feet behind me now, as I was being significantly slowed by the bags in each of my hands. John and Randy kept running, they were now far ahead of me. I knew I would have to drop both bags of candy if I wanted to make it home alive. I heard Glen scream and felt the air as he loaded the bat up again for another swing at my head. I braced for impact.
+
+Glen screamed again, and this time I heard the sound of metal hit the ground. He had dropped the bat.I kept running but turned around to see what had happened. Glen was on the ground trying to crawl on the street. On top of him was the largest dog I had ever seen. The dog had bit Glen on the inner thigh, and was tearing at his leg as glen struggled to break free.
+
+I looked closer. The dog was covered in dirt, but also something slick, sticky looking and red. Like cherry glaze on a pie. Its eyes shined greenish blue in the dark, almost as if they were glowing. It was missing fur on most of its body, and I could see patches of skin missing, exposing entrails near its abdomen, and some bone on its tail and leg. The dog snarled, growled, and thrashed at Glen’s leg until Glen finally broke free, running the direction opposite from me.John and randy were several hundred feet ahead of me by now, and I could hear they had realized I was no longer with them.
+
+“Arty!!" they screamed, “what are you doing!?!”
+
+I was still. I watched as Glen turned down the corner of the next street. A few feet in front of me was the dog. It turned towards me, slowly, I could hear a low growl coming from its throat. Around his neck was a dirty, bright red spiked color. I had thought the dogs body was in bad shape, but that was nothing compared to its face.
+
+Half the skin around its skull was missing, and most of its upper lip was gone exposing an entire row of sharp jagged canines. Its tongue sat between the two rows of teeth and its eyes locked with mine as it crouched down. I thought for sure it was about to pounce at me when I closed my eyes as tight as I could. I felt a huge weight crash into me as my body was being shaken.
+
+“Arty, open yours eyes, Arty!”
+
+It was John and Randy, they had ran back towards me, we all stood in the middle of the road.“What the fuack happened??” Randy shouted. “Where did he go?? Did you fight him??”
+
+I couldn’t talk. John picked up the bat from the ground.
+
+“Did you grab this from him??” He asked me.
+
+“No,” I finally was able to get out, “the dog, did you guys see the dog?? It saved me. It…just…It just came out of nowhere and saved me.”
+
+John and Randy were still out of breath but clearly confused.
+
+“Let’s get out of here,” John suggested.
+
+We ran home and I told John and my parents everything. They were furious at us for reasons I have no idea why, but we were both grounded and lost access to our trick-or-treat spoils for the good part of a week. I told John the story a dozen times, but I am not sure he ever really believed me. I think he thought that maybe I had imagined it, or that maybe Glen was really just full of shit and didn’t have it in him to actually take the tree of us on.
+
+All I know is what I saw was real, and I didn’t imagine anything that night. I never knew what happened to Glen, he kind of just disappeared after being expelled. He didn’t have great family life, his Dad was in and out of jail and his mom was mostly out of the picture. Years later when I was in my twenties, raising a young family, I saw on the news a story of a man convicted of a triple homicide. His name was Glen Pachiko - and his photo looked just as I remembered him to look like, except he was missing his left eye and had a shaved head. I can’t say for certain it was the same Glen (we didn’t have internet or a way to look things like that up back then) but this Glen had killed three men in cold blood in the ally behind a bar after losing a bad bet and game of poker. Glen most certainly had it in him and wanted us dead that night. I know for certain that Charlie had come back for me that halloween night, and I don’t think I would be around today if it weren’t for him.
+
+I'm hoping now you can see why there is really no other place to tell my story, but I wanted to make sure that someone knew what happened the night a dead dog saved my life.
