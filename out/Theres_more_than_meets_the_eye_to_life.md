@@ -72,6 +72,8 @@ The next thing I remembered was waking up in a hospital.
 
 “Hey, I’m nurse Sammie. You seem to be doing okay. I’m going to go check on other patients but if you need anything please hit this alarm, okay.”
 
-I nodded. From being so tired, I feel asleep and woke up about an hour later to a TV. I was bored and I wanted to watch TV so I turned on the TV to channel one. What I saw disturbed me, it was a camera of my hospital room. I about got up in a fit of rage to tell the hospital to stop recording me but I turned to channel 2. It got weirder. I saw myself back at the park. Channel three was what looked like a video of my family eating dinner, including myself. Channel 4 was a video of my parents grieving the loss of me. 
+I nodded. From being so tired, I feel asleep and woke up about an hour later to a TV. I was bored and I wanted to watch TV so I turned on the TV to channel one. What I saw disturbed me, it was a camera of my hospital room. I about got up in a fit of rage to tell the hospital to stop recording me but I turned to channel 2. It got weirder. I saw myself back at the park. Channel three was what looked like a video of my family eating dinner, including myself. Channel 4 was a video of my parents grieving the loss of me. Channel 5 is where the place I remembered, Stevensville, existed.
 
 I went down the list of channels and it only got weirder and more disturbing. Channel 16 was myself bloody on the kitchen floor instead of my brother. Channel 17 was my entire family and I, bloody and dead on the floor. Channel 92 was a video of my hospital room in flames and I was strapped to the chair screaming and crying. Channel 108 was me flying a plane into the World Trade Center. Channel 146 looked like a society in which humans never existed and the world was ruled by dinosaurs.
+
+So you may think this reality is the one and only reality that we know and live in. Take my example as a primary source from an alternate reality
