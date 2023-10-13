@@ -159,3 +159,5 @@ I nodded.
 My head is still spinning from all of this. I don’t know what to make of this weird footage and sounds Kevin’s camera recorded. As for R’s offer… I can’t shake the feeling he has ulterior motives.
 
 [I’ve got a big choice to make.](https://www.coleschapters.com)
+
+[Final Update](https://www.reddit.com/r/nosleep/comments/17701r1/i_deserved_the_divorce_but_no_one_deserves_what/)
