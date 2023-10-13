@@ -1,5 +1,3 @@
- 
-
 My girlfriend is a perfect ten, no doubt about it. She's intelligent, witty, lights up a room, and is more than just easy on the eyes. But every Persian rug has its flaws; hers is that she never eats. Let me start at the beginning.
 
 I can't say our meeting was particularly funny or quirky. It doesn't even make that good a story. We met at a bar. I'm not exactly the outgoing type, so I can't even claim I won her over with a clever pick-up line or anything like that. She just sat beside me, smiled, and asked, "Hey, you wanna buy me a drink?"
@@ -10,7 +8,7 @@ Well, anyway, fast forward a bit, and after a bit of back-and-forth texting, I g
 
 Things went on like that for a while. We'd make plans, but she'd always have an excuse not to eat anything. Sometimes, she'd forgotten and already ate. Other times, she was trying out a new diet. But whatever it was, we never really had dinner together.
 
-As time went on, we'd meet up for something in town, drinks, movies, etc, and always ended up at my place after because it was closer. You see, Wendy lived way outside town, "out in the boondocks," she always said. At one point, I asked why she lived out there, but she said she enjoyed the solitude, adding that the forest at night was a thing of beauty. I told her she was a thing of beauty. She laughed it off and made me forget about my questions for a bit. But after that, I kept asking about it, wondering when I could go check out this place that kept her so entranced that she didn't want to move to town. Finally, one night, she gave in to my pestering and invited me to visit her place. 
+As time went on, we'd meet up for something in town, drinks, movies, etc, and always ended up at my place after because it was closer. You see, Wendy lived way outside town, "out in the boondocks," she always said. At one point, I asked why she lived out there, but she said she enjoyed the solitude, adding that the forest at night was a thing of beauty. I told her she was a thing of beauty. She laughed it off and made me forget about my questions for a bit. But after that, I kept asking about it, wondering when I could go check out this place that kept her so entranced that she didn't want to move to town. Finally, one night, she gave in to my pestering and invited me to visit her place.
 
 She was far enough out that she didn't really have any neighbors, and if you weren't careful, you'd easily miss her driveway as it looked more like a forest trail at a glance.
 
