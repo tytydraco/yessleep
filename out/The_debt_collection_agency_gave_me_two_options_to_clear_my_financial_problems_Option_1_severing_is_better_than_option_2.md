@@ -38,7 +38,7 @@ Now I know it was surrendering herself, and giving in.
 
 The boy had the exact same relent in his eyes, an almost relieved smile prickling on his lips. But I also saw fear, a terror I couldn't understand. I wondered how much he owed. Suddenly, I wanted to know everything about him. If he was going to attempt to clear his debt, and then follow in my parents' footsteps. 
 
-He slowly got to his feet, and dragged himself to a white door, before a blue light flashed, an eerie green light scanning his face. I had never seen this type of technology, except in sci-fi movies. "Please say your name in full," a robotic voice drawled. "Please refrain from moving, and stare directly at the red light."
+He slowly got to his feet, and dragged himself to a white door, before a blue flicker flashed, an eerie green light scanning his face. I had never seen this type of technology, except in sci-fi movies. "Please say your name in full," a robotic voice drawled. "Please refrain from moving, and stare directly at the red light."
 
 The boy sniffled, swiping at his nose and eyes with the sleeve of his jacket. 
 
@@ -52,7 +52,7 @@ His name sent chills down my spine. Maybe fate had brought me here after all.
 
 "I don't want to do this." 
 
-I nodded slowly. "At least they'll help you," I shrugged in an attempt to reassure him. "I guess? I mean, these have good reviews on their website."
+I nodded slowly. "At least they'll help you," I shrugged in an attempt to reassure him. "I guess? I mean, they have good reviews on their website."
 
 The boy turned to me for the fraction of a second, his expression crumpling with confusion. "What?" He twisted back to the light, his breathing shuddery as a mechanical voice began to count down. *Five.* "I shouldn't be here," he whimpered. "My dad sent me. He said I was doing him a favor. And at the time…I didn't care. I already tried to end it anyway, so why would it matter?
 
@@ -68,7 +68,7 @@ He scoffed. "Your folks sold you too, huh."
 
 "Well, they're dead, so no. But I did inherit their shit." I swiped my clammy hands on my jeans. "I just hope these guys can relieve me of some of it."
 
-Caleb visibly stiffened. The boy didn't turn around, but his voice broke around the words. "Do you even know why you're fucking here?" he whispered. 
+Caleb visibly stiffened. The boy didn't turn around, but his voice broke around the words. "Do you even know *why* you're fucking here?" he whispered. 
 
 "Yeah. Just like you, I'm trying to get help." 
 
@@ -84,11 +84,13 @@ He didn't answer, didn't even acknowledge my voice. Caleb's expression was flat,
 
 His appointment took exactly five and a half minutes, and I spent every second trying and failing to get out of that room. 
 
-I asked to go to the bathroom, and was met with, "We are sorry, Miss Holiday! That is not possible right now. Please wait for your appointment." I was in full panic mode when the door finally slipped open, and Caleb strode out. He caught my attention automatically. I don't know if it was the significant change in his mood. He seemed far more relaxed, his head up, back, straight, eyes forward, practically dancing across the waiting room floor. 
+I asked to go to the bathroom, and was met with, "We are sorry, Miss Holiday! That is not possible right now. Please wait for your appointment." I was in full panic mode when the door finally slipped open, and Caleb strode out. He caught my attention automatically. I don't know if it was the significant change in his mood. He seemed far more relaxed, his head up, back straight, eyes forward, practically dancing across the waiting room floor. 
 
 There was a band-aid stuck to his right temple, I noticed. Not just that. The boy's jacket was gone, leaving him in a shirt and jeans. His eyes were too wide, lips pulled back into an unsettling grin. 
 
-I could almost mistake his walk for more of a strut. He leapt over the coffee table, landing perfectly, heading over to the door. I watched him, baffled. After shooting the door a hesitant look, I half stood up, awaiting the inevitable order to sit down. "Caleb?" I couldn't help myself. 
+I could almost mistake his walk for more of a strut. He leapt over the coffee table, landing perfectly, heading over to the door. I watched him, baffled. 
+
+After shooting the door a hesitant look, I half stood up, awaiting the inevitable order to sit down. "Caleb?" I couldn't help myself. 
 
 Something ice cold crept down my spine when his head snapped around, narrowed eyes flicking to me. It wasn't just his behaviour that was different. 
 
@@ -96,11 +98,11 @@ His entire demeanour had  changed. He looked noticeably different, an eerie glow
 
 "Hi," I whispered. I don't think the robot watching us would appreciate me screaming. I had to stay calm, but every moment standing in front of this guy I had met five minutes ago— transformed into this… this thing, a screech was clawing at my throat. "Did you manage to sort out your debt?"
 
-"Huh?"
+"Huhhhh?"
 
-His response confused me, and I dared lifting my head.
+His response confused me, his speech akin to a toddler, and I lifted my head.
 
-His grin was inhuman. Impossible. His eyes scanned me, before he clicked his fingers. "Oh, that!" Caleb laughed through a mouthful of blood, spitting it out. His skin looked almost haggard, like the flesh of a mask, struggling under the weight of his stretchy smile. 
+Caleb's grin was inhuman. Impossible. His eyes scanned me, before he clicked his fingers. "Oh, that!" Caleb laughed through a mouthful of blood, spitting it out. His skin looked almost haggard, like the flesh of a mask, struggling under the weight of his stretchy smile. 
 
 "Oh yeah, we're all good! No problemo."
 
@@ -108,21 +110,27 @@ I swallowed. "You mean you're okay now?"
 
 The boy pouted, looking more annoyed than anything. "No offense, but I don't want to talk to you. You're boooooring."
 
-"You're okay." That is all I wanted to know. This man could act like a freak all he wanted, I needed to know he was okay. 
+"But... you're okay." That is all I wanted to know. This man could act like a freak all he wanted, I needed to know he was okay. 
 
 Caleb's head lolled to the side like answering me was the equivalent to scaling a cliff. His body was almost limp, like even he was struggling to control it. He straightened up, brushing off his shirt.
 
-Caleb ran his fingers through his hair, spitting blood into his hands to slick it back. "Sort of!" he said, winking. "Catch ya later, kay?" The boy strolled out of the door, and I noticed the lights slightly flicker overhead. I watched him leave, and I could have sworn two shadows followed his manic steps down the hallway. So did the light. It didn't stop blinking until he was gone, the doors at the end of the hall swinging open and then slamming shut. 
+Caleb ran his fingers through his hair, spitting blood into his hands to slick it back. "Sort of!" he said, winking. "Catch ya later, kay?" The boy strolled out of the door, and I noticed the lights slightly flicker overhead. I watched him leave, and I could have sworn two shadows followed his manic steps down the hallway. So did the light. 
+
+It didn't stop blinking until he was gone, the doors at the end of the hall swinging open and then slamming shut. 
 
 "Ruby Holiday?"
 
-My name was called, and I had a moment of pure desperation. I was already getting to my feet and inching toward the door. "Ruby Holiday," the voice spoke again. Firmer. I expected the same thing to happen, except the door opened like normal. There was no flash of light, no barking order for me to look straight forward. I think that was why I found myself slowly making my way over. Peering through the door, I was in a state of the art looking room. 
+My name was called, and I had a moment of pure desperation. I was already getting to my feet and inching toward the door. "Ruby Holiday," the voice spoke again. Firmer. I expected the same thing to happen, except the door opened like normal. There was no flash of light, no barking order for me to look straight forward. I think that was why I found myself slowly making my way over. Peering through the door, I was in a state-of-the-art looking room. 
 
 White walls, tiled flooring, and an oldish man sitting on a plush chair.
 
-His smile was friendly. I noticed there was nowhere for me to sit down. The man offered me juice, and I shook my head, standing with my arms folded. The door slid shut behind me, and I found myself backing away. "Hello, Ruby! Are you here to clear debt with us?" 
+His smile was friendly. I noticed there was nowhere for me to sit down. The man offered me juice, and I shook my head, standing with my arms folded. 
 
-I nodded uncertainly, my gaze skimming the room. It was large, and yet far too empty. 
+The door slid shut behind me, and I found myself backing away. 
+
+"Hello, Ruby! Are you here to clear debt with us?" 
+
+I nodded uncertainly, my gaze skimming the room. It was large, and yet far too empty. There was just the man sitting behind a simple desk. 
 
 Outside, a loud crash sounded, and I jumped. Sirens followed. It sounded like a car collision. The man didn't even blink. "Ignore that," he chuckled with an eye roll. "The young ones like to show off."
 
@@ -138,7 +146,9 @@ The man chuckled. "You are not the only one." He clucked his tongue, his gaze st
 
 I didn't realize I was on my knees, until I could the ice cold marble tiles grazed my legs. My stomach heaved, my thoughts dancing. His words didn't make sense– but after what I had seen with his last customer, part of me did. 
 
-The man peered at me over his laptop. "This is a normal reaction, Miss Holiday. Please take a moment to think," he cleared his throat. "Do make sure to call a loved one, though. I need to make this quick. I have another client in…" he made a point of looking at his watch. "Ten minutes." He stood to his feet, and that was when I threw up, spew dribbling down my mouth and chin. "It's quick and clean, Ruby. I can assure you." The man mimed slicing his own throat. "Our state of the art lazors will dismember you in a matter of seconds and clean up any mess. Usually, we donate your filling. However," he peered at his notes. 
+The man peered at me over his laptop. "This is a normal reaction, Miss Holiday. Please take a moment to think," he cleared his throat. "Do make sure to call a loved one, though. I need to make this quick. I have another client in…" he made a point of looking at his watch. "Ten minutes." He stood to his feet, and that was when I threw up, spew dribbling down my mouth and chin. 
+
+"It's quick and clean, Ruby. I can assure you." The man mimed slicing his own throat. "Our state of the art lazors will dismember you in a matter of seconds and clean up any mess. Usually, we donate your filling. However," he peered at his notes. 
 
 "Your organs will be part of the debt! So, ah, yes, yours will be more challenging."
 
@@ -152,7 +162,7 @@ I was a stranger inside it,  my head lolling to the left, then the right, my gaz
 
 I did, blinking rapidly. Outside, the sky was darker. 
 
-"*This* he gestured to my skin marked for severing." "Is your first option." 
+"*This* he gestured to my skin marked for severing. "Is your first option." 
 
 His lips pricked into a smile when my thoughts stirred, and I revelled in the hope of maybe not being sliced apart. 
 
@@ -178,11 +188,13 @@ I did. It took me three times to write it.
 
 I was just happy with not being cut apart. 
 
-He nodded at me to leave. "I will see you in three days when you enter the second stage," his lips quirked into a smile. "Please take care of the body now, it is owned by us. No binge eating, drugs, drinking, and refrain from intercourse. It can… *disturb* the process. You be gentle. No sudden movements. I also advise against driving heavy machinery."
+He nodded at me to leave. "I will see you in three days when you enter the second stage," his lips quirked into a smile. "Please take care of the body now, since it is owned by us. No binge eating, drugs, drinking, and refrain from intercourse. It can… *disturb* the process. You must be gentle. No sudden movements. I also advise against driving heavy machinery."
 
 His voice was following me out of the door, when I stumbled back into his office, and then through the door into the waiting room. "Oh, and if you do not return, we will come and get you." 
 
 When the door slammed behind me, he was waving. 
+
+I was screaming. 
 
 Last night, I spent the night with a guy I met from college. 
 
@@ -194,7 +206,7 @@ It would be better than waiting to die.
 
 Not even die. 
 
-Be **Rewritten**
+Be **Rewritten.**
 
 I have my second consultation on Monday. I need to destroy my body before they take it away from me. 
 
