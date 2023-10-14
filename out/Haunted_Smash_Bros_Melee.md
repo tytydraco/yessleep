@@ -590,7 +590,7 @@ A black sphere that made all characters turn negatively colored appeared on the 
 
 &#x200B;
 
-I didn’t listen. I launched my move and sent him flying.  He let out a long no as his character flew through the background and became a twinkle. I had won at last. Expecting to see the victory screen, I was instead confused to see a bunch of ghost children. I got nervous, thinking I had to deal with some more horse shit.
+I didn’t listen. I unleashed my move and sent him flying.  He let out a long no as his character flew through the background and became a twinkle. I had won at last. Expecting to see the victory screen, I was instead confused to see a bunch of ghost children. I got nervous, thinking I had to deal with some more horse shit.
 
 &#x200B;
 

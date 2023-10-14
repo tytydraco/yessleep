@@ -31,3 +31,7 @@ If anyone has any idea what could be going on, or if you heard of something like
 Right now, there are 38 of us. Mel is in Classroom 124B. 
 
 We are alone and scared. Please help.
+
+
+Stay Updated here:
+https://www.reddit.com/r/nosleep/comments/177i0no/we_are_still_trapped_in_here_one_of_us_is_infected/?utm_source=share&utm_medium=web2x&context=3
