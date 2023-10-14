@@ -584,7 +584,7 @@ A black sphere that made all characters turn negatively colored appeared on the 
 
 &#x200B;
 
-“No, wait, if you let me win, I’ll let you…”
+“No, wait, if you let me win, I’ll let you-.”
 
 &#x200B;
 
@@ -664,7 +664,7 @@ The man went from stern to bellowing with laughter.
 
 &#x200B;
 
-“It was you then, huh?”
+“So it was you then?”
 
 &#x200B;
 
@@ -680,11 +680,11 @@ Seeing I was confused, he went on.
 
 &#x200B;
 
-“Oh, so do you want me to get ir for you?”
+“Oh, so do you want me to get it for you?”
 
 &#x200B;
 
-“No,  that won’t be necessary. It’s no longer a threat and I’ve only been holding onto it so it didn’t fall into the wrong hands. Keep it.”
+“No, that won’t be necessary. It’s no longer a threat and I’ve only been holding onto it so it didn’t fall into the wrong hands. Keep it.”
 
 &#x200B;
 
