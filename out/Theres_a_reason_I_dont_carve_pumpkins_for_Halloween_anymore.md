@@ -72,7 +72,7 @@ I noticed that another couple of kids and their mom were at the front door but I
 
 I briskly walked to the front door and tried to explain to the woman while she consoled her children. She glared at me.
 
-"Meanie Hanson told me about this and I didn't believe her. It's all around town Jimmy. I don't know if you think this is funny or what but tomorrow I'm talking to your mother about this and maybe the police." She was visibly angry.
+"Melanie Hanson told me about this and I didn't believe her. It's all around town Jimmy. I don't know if you think this is funny or what but tomorrow I'm talking to your mother about this and maybe the police." She was visibly angry.
 
 "I'm sorry...", I had to think of something. "It just keeps uh.... malfunctioning."
 
