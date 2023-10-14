@@ -74,6 +74,10 @@ She had the gun. The corpse on the ground still retained the poker. I was left w
 
 Obviously, I made it out alive, but I’ll tell about that a little later.
 
+----------------------
+
+[A little later](https://redd.it/177pvpz)
+
 _____________________________
 
 
