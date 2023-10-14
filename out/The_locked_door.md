@@ -1,4 +1,3 @@
-
 To start this off simply, I haven’t been doing too great, money wise. I recently lost the only job I’ve ever had in my entire life, I didn’t go to college so it’s not like I can just find another one super easy and fast. I applied to McDonald’s, and other places but no one responded. Just when I had accepted that I may as well go ahead and pack my stuff to move back in with my parents, my phone rung.
 
 I recognized the number immediately, it was one of the jobs I applied for calling back. I answered the phone, this was my last chance. If these people didn’t hire me I was doomed.
