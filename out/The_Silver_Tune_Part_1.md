@@ -16,7 +16,7 @@
 
 *A thing of eyes, that all survey?*
 
-*When Coldness Wraps This Suffering Clay* , Paragraph one.
+When Coldness Wraps This Suffering Clay, Paragraph one.
 
 Lord Byron, 1815
 
@@ -598,4 +598,4 @@ I'm glad that May was asleep, because she would have seen just how scared I was.
 
 &#x200B;
 
-*\[Part 2\] is on its way...*
+[Part 2](https://www.reddit.com/r/nosleep/comments/178mggb/the_silver_tune_part_2/)
