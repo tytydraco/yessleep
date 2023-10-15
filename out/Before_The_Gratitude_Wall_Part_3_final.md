@@ -104,4 +104,4 @@ But today, we’re doing art therapy. We’re supposed to be making something to
 
 So I look at the star, and a tear runs down my cheek as I think about my parents and my sister. Because I can't forget them, ever. They need me to… to remember them, and love them like I do. And I need to remember... the beautiful people they were. I miss them so much.
 
-*I miss them so, so [much](reddit.com/r/BrokenRamblings).*
+*I miss them so, so much.*
