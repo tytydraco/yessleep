@@ -4,7 +4,7 @@ There’s a dirt trail that runs down behind a line of row homes in my housing c
 
 The fences that separate the trail from the yards of each home are hardly higher than my waist at their lowest, and maybe shoulder height at their highest. Mine’s about half-way between each extreme. I hate it. I prefer more privacy, but I guess the folks that have lived here for a while don’t mind, or at the very least haven’t cared enough to replace them.
 
-When I first took the route I felt pretty nosy, but between the low fences and the lack of light you really can’t help but sneak a peek through the lit windows and glass patio doors. I wouldn’t say peering into the lives of my neighbors is something I am proud of, even if my curiosity was purely innocent. It’s not like I was some perverted voyeur trying to catch some skin, but being labeled the neighborhood's peeping tom if someone ever caught me would’ve been tough to come back from. 
+When I first took the route I felt pretty nosy, but between the low fences and the lack of light you really can’t help but sneak a peek through the lit windows and glass patio doors. I wouldn’t say peering into the lives of my neighbors is something I am proud of, even if my curiosity was purely innocent. It’s not like I was some perverted voyeur trying to catch some skin, but being labeled the neighborhood's peeping tom if someone ever caught me would’ve been tough to come back from.
 
 Truthfully, the worry of being seen far outweighed my guilt for looking, but even so, the more I walked the trail at night, the more I forgot about all that, and the more I watched. Over time, each window became a silent vignette. Sometimes I’d linger a bit longer, as though waiting for Jack to finish his business, if something or someone piqued my interest.
 
@@ -16,7 +16,9 @@ The last house that backed onto the trail belonged to an old widower. He’d alm
 
 A few nights ago when I reached the end of the trail and looked into the old man’s window he was there again. Same old housecoat, same blue light from the tv. But he wasn’t in his old recliner. He stood stiff in the window, staring right back at me. Startled by Jack barking, I dropped my gaze. When I looked back the old man was still there.
 
-Feeling uncomfortable, and convinced he’d probably just woken up and saw me moving along his fence, I tried to wave to make it less awkward. He didn’t move a muscle. Didn’t even blink. I took Jack home and tried to forget about it.The next night, as I neared the entrance to the path, I thought about the old man and his eyes, wide open in the window. So what if he caught me out back? I hadn’t done anything wrong; I was just walking my dog. I felt ridiculous. Thinking I was clearly making a mountain out of a molehill, I pressed on.
+Feeling uncomfortable, and convinced he’d probably just woken up and saw me moving along his fence, I tried to wave to make it less awkward. He didn’t move a muscle. Didn’t even blink. I took Jack home and tried to forget about it.
+
+The next night, as I neared the entrance to the path, I thought about the old man and his eyes, wide open in the window. So what if he caught me out back? I hadn’t done anything wrong; I was just walking my dog. I felt ridiculous. Thinking I was clearly making a mountain out of a molehill, I pressed on.
 
 Even so, I didn’t check in on any of the regular windows, still uneasy about the encounter with our friend at the end of the trail. Not one, that is, until the house of the couple. Their lights were on, but they weren’t fighting.
 
@@ -34,7 +36,7 @@ There they were, on the dirt trail and among the trees. The young couple, the si
 
 I hardly slept a wink. I couldn’t help but pace around and look out my windows to see if they had followed me. In the early hours, I gave up on the chance of getting any meaningful shut eye. I put on a pot of coffee, took a shower, and tried to get ready for work. No more skulking about the trail, I thought, lesson learned.
 
-As I left to catch the bus I saw the old man’s maybe-son standing in the road in front of the house, and another man I recognized by the bus stop. Both still. Both facing me.I gave up on work and came home.
+As I left to catch the bus I saw the old man’s maybe-son standing in the road in front of the house, and another man I recognized by the bus stop. Both still. Both facing me. I gave up on work and came home.
 
 I don’t know what to think anymore. Maybe I'm losing it. I spent most of the day peeking out the windows and caught the couple on their porch, staring at my house. A few hours later, the woman next door stood at the end of my driveway. I stepped out.
 
