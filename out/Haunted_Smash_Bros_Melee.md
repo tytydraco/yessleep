@@ -38,7 +38,8 @@ The way he spoke was as if someone threw Remy Buxaplenty and Richard Texan in a 
 
 &#x200B;
 
-"Yeah, it'd be really cool if I could get my hands on one when it comes out."
+
+"Yeah, it'd be really cool if I could get one the day it comes out."
 
 &#x200B;
 
