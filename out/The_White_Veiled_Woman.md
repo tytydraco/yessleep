@@ -1,0 +1,43 @@
+This is a tale told by my uncle which was vouched for by my father since both of them had an encounter with the same entity on two separate occasions. My uncle was the first to experience the entity and my father and everyone else who knew of the situation at the time, are in the belief that the said entity attached herself to my uncle and followed him home.  
+  
+  
+The tale unfolds as follows.....................  
+  
+My uncle, the younger brother of my father lived near the sea when he was young along with my father in a rented house where they shared the rent in their younger years. My father was meticulous, career driven and a no nonsense guy who preferred to be alone most of the time while my uncle believed in the free spirit. The beach nearby was a long and broad stretch of sand which was also a famous destination for teenagers and party goers to hang out throughout the night. My uncle had his own clique of friends whom he used to hang out with a lot for their frequent drunken stupors. Now before you dismiss the story as another one of ramblings of a drunk, hear me out because the story is about to unfold.  
+  
+On the night of interest, my uncle was out with his friends as usual and they had popped open a few cans of beer when my uncle noticed a woman dressed in white from head to toe with a white veil covering her face approaching the huddle of my uncle and his friends. My uncle was surprised and was rather curious as to what a woman was doing all alone walking along the beach. Though there were few more of the cliques in small huddles enjoying the night along the beach, the fact that there was a woman made it a bit conspicuous. My uncle had been staring at the woman for quite a bit that some of his friends had noticed and asked my uncle what he was staring at. When my uncle had pointed out to them where the woman was standing, they had told him that there was nobody there.  
+  
+A bit predicable you might say but..............  
+  
+My uncle then had the bravery (probably from all the liquor in his system) to stand up and approach this woman in white when all his friends were oblivious to what he was up to. My uncle had approached the woman and when he had called out to her, she had turned towards my uncle, looked at him dead straight towards his eyes and vanished. My uncle did not describe how the woman in the veil looked to nobody but had given a detailed description to my father who will get involved in the story in the next episode.  
+  
+Shocked and dumbfounded by what happened, my uncle had returned to his huddle and laughed it out with his friends as having brain damage from all the liquor they were consuming on a daily basis. The friend's huddle had concluded about an hour into the incident and my uncle had forgotten all about it by then.  
+  
+The rented house my uncle stayed was about a 10 minutes walk from the beach and all but a few friends of his lived close by. After the huddle, when my uncle and his friends were walking merrily swirling about the road singing along a tune, my uncle had a glimpse of the woman he was so eagerly interested at the beach by the corner of his eyes following him along the road and whenever he turned around to have a clear look, the woman was no where to be seen.  
+  
+By this time while all his friends were still merrily enjoying the effects of the liquor, my uncle was sobered up out of the sheer fright from the thought that something that was not human was following him. My uncle had continuously told his friends about the woman but he was shut down immediately by his friends all the time stating that my uncle was ruining their joy. Alas my uncle had reached his rented home and had a quick shower to relax his mind off of what he thought had happened and had gone to sleep when he was woken up by a hard slap to his back.  
+  
+My uncle, shocked and disgruntled by the pain the slap caused, woke up and stood up to see who slapped him ( Expecting it to be my father coming to lecture him about taking life a bit serious ) and was shocked to see the woman from the beach peeping from the window of his room again staring straight into my uncle's eyes.  
+  
+The story continues onwards.............  
+  
+My uncle who at this point, was desperately trying hard to forget all about what happened to him was shocked and scared to his bones by seeing the same entity that followed him from the beach staring at him through the window of his room staring dead straight into his eyes emotionless. The entity had apparently given a light nod to my uncle and disappeared from the window. My uncle, who was not the bravest of souls though he was a really joyous and an outgoing personality, had screamed and ran out of his room shouting " Its here, and its following me" ( In the Sri Lankan native tongue of course ) towards my father's room and had banged on the door so hard, that the loud and incessant banging along with the dreaded screaming had woken up the neighbors as well.  
+  
+Though my uncle expected that my father would wake up and open the door to let him in, the door to my father's room would not open. To my uncle's dismay, my father was not in his room.  
+  
+Just before my uncle had gone to sleep, my father had already settled down in his bed after letting my uncle in to the house. While my father was asleep, he too was awaken by the entity not by a hard slap to the back like my uncle was woken but by a gentle touch to his head. My father, woken up by the unusual cold touch, had seen a silhouette of a person standing right beside his bed in the dark and observed that the silhouette moved towards the door of his room and exit the room.  
+  
+  
+A little buildup to the incident..............  
+  
+At the moment my father was touched by the entity, my uncle had not spoken a word about what he saw or what he experienced to my father nor did my father ask or suspected anything out of the ordinary. My father was one of the bravest and the most inquisitive people I knew. He never did drugs of any kind but was an avid smoker which took the best of him in his end days. If he needed to get to the bottom of something, believe me, he will do it by any means necessary usually by himself. So, when he saw the silhouette of the entity exit his room, the first thought that came to his mind was not fright like my uncle but curiosity as to what he saw.  
+  
+As the incident follows, my father had followed the silhouette towards the kitchen of the house which was at the back of the rented house. The kitchen door lead straight towards an alley way where the drains of that block of houses flowed through and typically not the first option of any person to give chase to anything living or in this case, unknown. My father recalled saying that at this moment, he saw that the silhouette was standing stationary beside the back door of the kitchen facing the kitchen door and my father could now make out the silhouette as being in the shape of a woman dressed in white but he knew that it could not be human because the body of the entity was translucent. My father had slowly approached the woman and the entity had then disappeared and reappeared outside in the alley way still facing away from my father. My father had seen the entity appear outside through the kitchen window and had opened the kitchen door to pursue the entity.  
+  
+The entity at this point had remained motionless till my father closed the distance between them and just as my father had come close at reaching distance, my father stated that the woman/ entity had turned towards my father facing him. My father had had a clear glimpse at the face of the entity for about a second and described it as having decently attractive facial features of a woman in her early 30s.  
+  
+Just as he took a glimpse at the face of the entity, my father had felt a blistering chill throughout his body just as the woman clad in white had passed through my father's body and my father had passed out at the side of the alley way in the back of the house.  
+  
+While my uncle was thrashing at the door of my father's room out of sheer fright seeking my father's help, my father laid passed out behind the alley way of the house. The entity, the woman clad in white had his victim, my uncle cornered, alone and helpless.  
+  
+When the neighbors, alerted by all the commotion inside the house had entered the premises through the open kitchen door at the back, they had found my uncle laying on the floor beside by father's bedroom door shivering as if he was in a state of seizure foaming from his mouth and my father was brought into the house still unconscious.
