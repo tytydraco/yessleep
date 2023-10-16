@@ -1,5 +1,7 @@
 [\[Part 14\]](https://www.reddit.com/user/RandomAppalachian468/comments/1778wpt/the_road_to_new_wilderness_part_14/)
 
+[\[Part 16\]](https://www.reddit.com/r/nosleep/comments/179a1wr/the_road_to_new_wilderness_part_16/)
+
 Rough hands threw me down, and pain shot up my kneecaps.
 
 Dozens of crew members crowded around with a few subdued snickers at my discomfort. Now that I was face-to-face with them, I realized that they were almost all children, with a few older kids of perhaps 16 or 17 in the mix. Each wore the same strange blend of pirate attire and modern clothing, many too small for the items they chose. Some of the children couldn’t have been any older than ten or eleven, and yet they glared at me with primal distrust, their hands gripping sharp axes and gleaming handguns that were almost too big for them to hold. Painted designs adorned every face, odd zigzags and swirls that depicted ocean waves, burning ships, and stick people killing various monsters. Scars were the norm too, real scars, some of which looked like they’d just begun to heal, stitches and bandages on more than one skinny arm or leg.
