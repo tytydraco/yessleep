@@ -1,6 +1,6 @@
 Note: I changed the names of the people I mention here, including my own.
 
-When you're a cop in a small town, every call from work makes your heart race.Sometimes they're little calls. Someone keyed someone's car. Someone broke a window. Someone shoplifted a quart of milk or ripped a few Huggies out of the box. Joan Campbell ran a red light and almost hit Angela Brennan, which would've been a big deal if her brakes weren't faulty and she weren't sober.
+When you're a cop in a small town, every call from work makes your heart race.Sometimes they're little calls. Someone keyed someone's car. Someone broke a window. Someone shoplifted a quart of milk or ripped a few Huggies out of the box. Janine Collins ran a red light and almost hit Angela Brennan, which would've been a big deal if her brakes weren't faulty and she weren't sober.
 
 Those little calls make up most of the year, and you're glad they do, because the big calls are so bad you talk about them for years afterwards.
 
