@@ -30,7 +30,7 @@ I thought back to those days, what seemed like a long time ago. When it had all 
   
 Then one day I was walking, as though I were asleep. I looked down where I was planted, for so many thousands of full moons. There was nothing there by the moonlight. I stared in horror at the hole in the ground, torn up by the roots. I looked to where it was, holding the plant that was also me, and it had built a withering fire.  
   
-I looked straight into my eyes, a towering darkness, a shade in the night, blotting out the light and the stars. It smiled with teeth of obsidian, and then it tossed the Pagan Flower upon the blaze.  
+It looked straight into my eyes, a towering darkness, a shade in the night, blotting out the light and the stars. It smiled with teeth of obsidian, and then it tossed the Pagan Flower upon the blaze.  
   
 Instantly I felt the heat where I stood barefoot in my pajamas. I crumbled, blistered and searing. I screamed, both in agony and terror. I began to crawl from it, willing myself to reach the edge of my nightmare. The creature from the place between did not want me to go, it clawed at my ankles and tried to drag me to the hole in the ground that it had uprooted me from.  
   
