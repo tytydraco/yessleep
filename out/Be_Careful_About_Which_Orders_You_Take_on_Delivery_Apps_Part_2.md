@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/1776lep/be_careful_about_the_orders_you_deliver_on/) Continuing the email from Robert:
+ Continuing the email from Robert, read [Part 1](https://www.reddit.com/r/nosleep/comments/1776lep/be_careful_about_the_orders_you_deliver_on/) here.
 
 There were a lot of cars parked outside the house, there never had been more than a truck before. They were all beat up pretty badly. I drove by the first time, shivered in my car another five minutes, the gruesome package still burned in my mind, before working up the courage to pull up, get out and go to the door. I kept telling myself it would be the last time.
 
@@ -104,17 +104,17 @@ I turned away, crumpling under his hidden gaze, and caught something in the rear
 
 I turned back to the officer. He was still silent, "Uhm..." I muttered.
 
- He scowled slightly.
+He scowled slightly.
 
 "What did I do wrong?"
 
 "Go home," his voice was gruff, to the point.
 
-I felt my stomach tie into a knot. I sputtered something, he leaned in a bit before turning around and going back in his car. I saw the girl squirm when he opened the door. 
+I felt my stomach tie into a knot. I sputtered something, he leaned in a bit before turning around and going back in his car. I saw the girl squirm when he opened the door.
 
-The officer kept staring at me from inside his car while I tried to collect myself and failed. 
+The officer kept staring at me from inside his car while I tried to collect myself and failed.
 
-It didn't seem real. I didn't want to believe the obvious implications. 
+It didn't seem real. I didn't want to believe the obvious implications.
 
 I sped away. The cop stayed where he was.
 

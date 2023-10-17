@@ -129,3 +129,7 @@ I unlocked my phone and there was a message notification. A voice recording. I t
 “Hello, Sheriff Rios,” a deep voice said. “Do you like scary movies? I do. Seven movies. Seven bodies. Seven days.”
 
 I'll post an update tomorrow. I bet someone will tell me that I can't share the details of this case here, but being Sheriff means I can do it and then worry about the consequences later. This case is too bad, too weird, to keep to myself.
+
+&#x200B;
+
+Part 2: https://www.reddit.com/r/nosleep/comments/17a6fvm/a\_serial\_killer\_is\_copying\_horror\_movies\_part\_2/
