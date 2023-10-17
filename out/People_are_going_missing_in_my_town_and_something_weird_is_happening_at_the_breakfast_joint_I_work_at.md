@@ -94,7 +94,7 @@ Aba ever so kindly turned the radio on. He switched and switched again but could
 
 " Did he say what time he was going" everyone looked at me.
 
-" Around 11:00 he said"
+" Around 11:00, he said'
 
 " huh"
 
