@@ -82,7 +82,7 @@ I had just gone on a spending spree the day before. If I didn't go that night, w
 
 I got up and looked at my haggard face in the mirror.
 
-...If I delivered just for the rest of the week... then I could leave the state, maybe. At least the city. Run away. Just pretend to keep complying... then get the fuck away.
+...If I delivered just for the rest of the week... then I could leave the province, maybe. At least the city. Run away. Just pretend to keep complying... then get the fuck away.
 
 I waited, but Matt and the 911 dispatcher's words echoed in my ear.
 
