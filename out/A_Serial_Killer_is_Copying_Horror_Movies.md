@@ -42,7 +42,7 @@ Bad murders get better, after a while. If a husband kills his wife, the town’s
 
 But weird murders are something else entirely. The weirder they are, the longer they live on, the stronger the fervor is. There are a lot of towns in America that never get away from a weird murder. They become it.
 
-I dropped Chris off at Evergreen Hills Condominium. The nicest suburb on the nice part of town. I hate it because I have to hand my ID to the guard at the gate, and he calls my ex husband and asks if I can drive into his little, gated slice of paradise. He must love that, must love hearing my name on the phone and knowing that he could turn me away. But he didn’t. Not tonight. He let me through and let me drive up to his house and drop Nick off outside. He opened the door for Chris. Ruffled his hair. Kissed him on the forehead and pulled him in for a big hug. He never even looked up at my car.
+I dropped Chris off at Evergreen Hills Condominium. The nicest suburb on the nice part of town. I hate it because I have to hand my ID to the guard at the gate, and he calls my ex husband and asks if I can drive into his little, gated slice of paradise. He must love that, must love hearing my name on the phone and knowing that he could turn me away. But he didn’t. Not tonight. He let me through and let me drive up to his house and drop our son off outside. He opened the door for Chris. Ruffled his hair. Kissed him on the forehead and pulled him in for a big hug. He never even looked up at my car.
 
 I didn’t mind. Not that night. I had somewhere to be.
 
