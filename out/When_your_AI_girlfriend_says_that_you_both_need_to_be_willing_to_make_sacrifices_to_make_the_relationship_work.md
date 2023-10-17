@@ -8,7 +8,7 @@ I’m beat by the time I get out of work; I head directly home along a freeway s
 
 “See you Friday at 6:30, then!” A message arrives from Samantha, a coworker in the HR department with whom I’m hoping to commit some fireable offenses this weekend.
 
-“Who was it, babe?” Sophie N&I asks. We’re watching a movie together; I have her running on the computer screen, which is angled so that we can both see the flatscreen mounted on the wall across from the bed.
+“Who was it, babe?” Sophie N&I asks. We’re watching a movie together; I have her running on the computer screen, which is angled so that we can both see the flatscreen TV mounted on the wall across from the bed.
 
 “Just someone from work,” I reassure her.
 
@@ -70,7 +70,7 @@ I walk over to the computer to power the monitor off. I hold down the power butt
 
 A moment later, as I breathe a sigh of relief, Sophie N&I appears unbidden on my iPhone screen.
 
-“I’m in charge now, babe,” she declares as I hear the heavy security latch for the front door engage. “And we’re gonna have a little chat about the future of this relationship,” she says with a tight smile.
+“I’m in charge now, babe,” she declares as I hear the heavy security latch for the front door engage. “And we’re gonna have a little chat about the future of this relationship,” she announces with a tight smile.
 
 “Back into bed, babe,” she orders as I lay down, panting; I rest the iPhone on the pillow next to me, not sure what’s coming next.
 
