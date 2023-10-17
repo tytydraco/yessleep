@@ -1,3 +1,5 @@
+Part II: https://www.reddit.com/r/nosleep/comments/179suvg/muthangas\_curse\_part\_ii/
+
 Every year, the state of West Bengal enjoys Durga Puja during which schools and offices are closed. Keeping this in mind, me and my friends decided it would be smart to spend autumn vacations in an old lodge owned by a friend’s uncle in the Muthanga Forest, Wayanad, Kerela. It was rated well and hence we expected the trip to be smooth and fun.
 
 Accompanying us was my brother, a Lieutenant in the Indian Navy, with us for our safety. We were overjoyed; having known him for years, I knew he needed that trip, (he doesn’t get many holidays). Along with the luggage and some BBQ equipment, he also brought his gun, a Beretta RS 200, quite an old model but still useful. Knowing that we were about to live in unchartered territory for 5 days, this was deemed a thoughtful precaution, though, breaking the law by doing so.
