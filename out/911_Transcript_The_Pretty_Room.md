@@ -32,11 +32,11 @@
 
 **Caller:** There are lots of them in my town. Grandma likes them.
 
-**Dispatcher:** That’s really good work, Brian. Hopefully, that means you’re still nearby. Okay, well, let’s work backwards. Perhaps you could tell me where you live?
+**Dispatcher:** Good work, Brian. You could still be nearby. Okay, well, let’s work backwards. Perhaps you could tell me where you live?
 
-**Caller:** I’m… I’m not supposed to say that to strangers.
+**Caller:** I’m… I’m not supposed to tell strangers.
 
-**Dispatcher:** I know, but I need to ring your mom or dad, Brian. I need to let them know that you're okay. They’ll be worrying about you. Do you know how I might be able to reach them? My name’s Louise, by the way.
+**Dispatcher:** I know, but I need to ring your mom or dad, Brian. I need to let them know that you're okay. They’ll be worrying about you. Do you know how I might be able to reach them? My name’s Sarah, by the way.
 
 **Caller:** They’re not alive anymore.
 
@@ -184,21 +184,21 @@
 
 **Dispatcher:** Who is this?
 
-**Caller:** It’s Brian. Where’s Louise?
+**Caller:** It’s Brian. Where’s Sarah?
 
 ***Dispatcher speaks off-phone***
 
-**Dispatcher:** I’m going to pass this onto Louise, Brian.
+**Dispatcher:** One second, Brian.
 
 ***Switches line***
 
-**Dispatcher:** Brian?
+**Dispatcher:** Brian? It’s Sarah.
 
 **Caller:** Hi.
 
 **Dispatcher:** Are you okay?
 
-**Caller:** I turned off my phone to save battery. But I think he knows I have it.
+**Caller:** I turned off my phone to save my battery. But I think he knows I have it.
 
 **Dispatcher:** What happened, Brian?
 
@@ -216,9 +216,9 @@
 
 **Caller:** No, we weren’t! I don’t know why you keep making things up!
 
-**Dispatcher:** Brian, you’ve experienced a horrible thing for months, and—
+**Dispatcher:** Brian, you’ve experienced a horrible thing, and—
 
-**Caller:** — I think this room is evil, Louise. I… I haven’t been able to sleep. It’s always light outside.
+**Caller:** — I think this room is evil, Sarah. I… I haven’t been able to sleep. It’s always light outside.
 
 **Dispatcher:** Can you still see the maple tree?
 
@@ -228,7 +228,7 @@
 
 **Caller:** But... It’s so bright out there. And I can still see it. The maple tree.
 
-**Dispatcher:** Listen, local officers have been scouring every inch of your home-town. You were right when you said there were lots of red maple trees. But they’re certain that they’re getting close.
+**Dispatcher:** Listen, local officers have been scouring every inch of your home-town. They’re certain that they’re getting close.
 
 **Caller:** The man in the black coat… He doesn’t feed me very well. I ate a sandwich yesterday… But I’m so hungry. He said he’ll keep me just about... pretty enough.
 
@@ -258,14 +258,12 @@
 
 ***Responding officers uncovered a door in a woodland hollow near \[REDACTED\]. It led to an underground room containing the blood-stained clothes of the two victims and decomposing bone fragments belonging to Brian Smith.***
 
-***Forensics experts believed Timothy Brown’s remains had been removed.***
+***Forensics experts believe Timothy Brown’s remains had been removed from the scene of the crime.***
 
-***Brian Smith’s phone was also found in the room, and later testing would confirm it to be the same device used on dispatch calls with Louise Radcliffe, ruling out the possibility of an external caller fabricating the events transcribed above.***
+***A phone was found in the room. Testing would confirm it to be the same device used on dispatch calls between Brian Smith and Sarah Radcliffe, ruling out the possibility of an external caller fabricating the events transcribed above.***
 
 ***Inexplicably, though officers discovered Brian Smith’s corpse at 16:47pm, Radcliffe continued speaking with the victim until his phone ran out of battery at 19:09pm. Fellow officers corroborated Radcliffe’s story of the overlap between the phone call and the body’s discovery.***
 
-***After reading the full transcript, not included here, investigators were significantly interested in Brian Smith’s comment on the suspect’s obsession with the passage of time.***
-
-***Investigating officers have been unable to provide a rational explanation for conflicting evidence regarding the exact times and dates at which the events of this case took place.***
+***Investigators maintain a significant interest in the suspect’s frequent references to the passage of time. However, as of the present date, our department has been unable to provide a rational explanation for conflicting evidence regarding the times and dates at which the events of this case took place.***
 
 [X](https://www.reddit.com/r/dominiceagle)
