@@ -166,4 +166,6 @@ Harriet’s fist slammed against the wall. “Enough with the cryptic bullshit! 
 
 "Why?" roared Harriet, rushing to the window. "Why would our mother want that? She was kind! Caring! She loved us!"
 
-The Stick Man considered Harriet, his scarecrow frame lit up in the sweep of the lighthouse's glow. "Memories are fickle things, aren't they?" And with that, the he turned and sprinted into the dark of the Phantom Wood, toward the rolling [storm.](https://www.reddit.com/r/TalesFromTheCryptid)
+The Stick Man considered Harriet, his scarecrow frame lit up in the sweep of the lighthouse's glow. "Memories are fickle things, aren't they?" And with that, the he turned and sprinted into the dark of the Phantom Wood, toward the rolling [storm.](https://www.reddit.com/r/nosleep/comments/17agbx6/i_inherited_a_lighthouse_in_the_woods_today_i_met/)
+
+[MORE](https://www.reddit.com/r/TalesFromTheCryptid)
