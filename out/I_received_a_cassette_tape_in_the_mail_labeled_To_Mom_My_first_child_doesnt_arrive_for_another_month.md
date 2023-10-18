@@ -98,11 +98,11 @@ Think, the sound a car window makes when you stop just short of raising it all t
 
 
 
-“That’s a real letdown” Hubby said.    
+“Well that’s a letdown…” Hubby said.    
 
 
 
-“Got to be something on it,” I said.     
+“Got to be something on it,” I said back.     
 
 
 
@@ -110,7 +110,7 @@ Think, the sound a car window makes when you stop just short of raising it all t
 
 
 
-More nothing. And then a little more of it. When, half disappointed, half annoyed, Hubby reached for the Stop button once more. When...      
+More nothing. And then a little more of it. When, half disappointed, half annoyed, Hubby reached for the Stop button once more. But before he could...      
 
 
  
@@ -146,11 +146,11 @@ Like not only did you not let the window up all the way, now you’re passing ov
 
 
 
-When I had it. I looked to Hubby all wide-eyed. “You don’t recognize it?” He furrowed his brow listening, then shook his head no, a pitiful covetous no that wanted what you had. So I took his hand, placed it to my stomach. Watched his eyes as the realization spooled up there like tape on a sprocket.      
+When suddenly, I had it. A connection connected. I looked to Hubby all wide-eyed. “You don’t recognize it?” I said, watching his brow furrow as he listened, as he strived in vain to place the sound somewhere inside that ransacked vault we call experience. But of course he wouldn’t know it, couldn’t know it, not like I did. Not until I took his hand, placed it flat to my stomach. Watched his eyes as the realization spooled up there like tape on a sprocket.      
 
 
 
-The sound was a heartbeat.     
+The sound was that of a heartbeat.     
      
 &nbsp;    
 
