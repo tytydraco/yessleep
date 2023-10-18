@@ -1,4 +1,4 @@
-My husband is an executive at a thriving advertizing agency so it’s not like we needed the money. I do it purely for fun. I don’t have any kids, so I need something to fill my days. I’m what you would call a ‘porch pirate.’ I get a total buzz taking other people’s packages and then tearing off in my white BMW. 
+My husband is an executive at a thriving advertising agency so it’s not like we needed the money. I do it purely for fun. I don’t have any kids, so I need something to fill my days. I’m what you would call a ‘porch pirate.’ I get a total buzz taking other people’s packages and then tearing off in my white BMW. 
  
 It’s a huge adrenalin rush ripping open the cardboard packaging wondering what’s inside. I’ve taken everything from a slow cooker to a top-of-the-range laptop. I guess it’s stealing but I tell myself they’ll get a refund so I’m not hurting anyone… until now that is.
  
@@ -20,4 +20,4 @@ My cobalt blue eyes burst with anticipation as the steel blade hacked through th
  
 I screeched like an animal about to be slaughtered as I recoiled in horror at the grizzly sight. The look of fear on the face of the poor person who met such a violent end will haunt me until the day I die. Which I figured might not be too long as my doorbell just rang and when I looked through the peephole I saw those same cold, empty eyes peering back at me. It’s ‘The Collector’ looking to collect.
  
-He must have seen me on his way back from the store. I’ve called the cops, but I figure ‘The Collector’ will be the first one through my door thanks to the huge ax he is wielding. I cannot hear any approaching sirens, just the sound of my front door being turned into Kindle.
+He must have seen me on his way back from the store. I’ve called the cops, but I figure ‘The Collector’ will be the first one through my door thanks to the huge ax he is wielding. I cannot hear any approaching sirens, just the sound of my front door being turned into Kindle. So I guess you'll probably never hear from me again.
