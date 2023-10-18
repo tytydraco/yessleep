@@ -361,3 +361,5 @@ I dropped my Hag Stone as I felt a burning sensation on the inside of my forearm
 Despite the pain, I looked up and watched the figure turn and then walk into the pines.
 
 As the figure disappeared amongst the trees, I realised I was screaming.
+
+[[Part 2]](https://www.reddit.com/r/nosleep/comments/17ape6a/something_vengeful_haunts_the_shores_of_loch/)
