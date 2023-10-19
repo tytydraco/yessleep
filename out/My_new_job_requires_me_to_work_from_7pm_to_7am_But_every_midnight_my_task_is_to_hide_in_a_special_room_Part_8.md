@@ -47,3 +47,5 @@ You may have a clear idea of what he had to say, but precisely his message can b
 "All that will not stop. For the sake of your kids, your wife and yourself, before the enforcer pays you a visit, go back to work!"
 
 There may be a day when these updates will stop prematurely. I think that I really should return to work for now because everything is really getting out of control. Many of you, as real human beings with genuinely good hearts have ignored my mistakes and suggested a lot of ideas since the first post. I have explored some of them. This time, everything is much worse and once again, after sharing my story to the community, I beg you to suggest anything that might get me and my family out of this deadly trap. Please!
+
+[Part 9](https://www.reddit.com/r/nosleep/comments/17bclib/my_new_job_requires_me_to_work_from_7pm_to_7am/)
