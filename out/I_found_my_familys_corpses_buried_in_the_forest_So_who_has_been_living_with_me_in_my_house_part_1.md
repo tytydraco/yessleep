@@ -123,3 +123,11 @@ I turned and vomited on the forest floor, feeling I might collapse at any moment
 “This is an emergency. Can I use your phone for a minute? I need the police here immediately.” His eyes widened at that, and he looked wide-awake a moment later.
 
 “Sure, sure, come on in,” he said. As soon as I had entered, he closed and locked the door behind me. He pointed towards the kitchen. “Phone’s in there, hanging on the wall next to the door.” I thanked him profusely, visions of my murdered family members running through my head. Then I dialed the police, my fingers shaking so badly that it took me a few tries. Finally, though, I heard it begin ringing, and at that moment, I wondered what exactly I would say.
+
+&#x200B;
+
+Part 2
+
+[https://www.reddit.com/r/nosleep/comments/17bi9pp/i\_found\_my\_familys\_corpses\_buried\_in\_the\_forest/](https://www.reddit.com/r/nosleep/comments/17bi9pp/i_found_my_familys_corpses_buried_in_the_forest/)
+
+&#x200B;
