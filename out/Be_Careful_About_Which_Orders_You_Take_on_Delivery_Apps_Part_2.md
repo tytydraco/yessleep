@@ -1,4 +1,4 @@
-*Continuing the email from Robert, be sure to* [read Part 1 here](https://www.reddit.com/r/nosleep/comments/1776lep/be_careful_about_the_orders_you_deliver_on/) *(*[*https://www.reddit.com/r/nosleep/comments/1776lep/be\_careful\_about\_the\_orders\_you\_deliver\_on/*](https://www.reddit.com/r/nosleep/comments/1776lep/be_careful_about_the_orders_you_deliver_on/)*)* *or you won't understand what's going on.*
+[Part 1](https://www.reddit.com/r/nosleep/comments/1776lep/be_careful_about_the_orders_you_deliver_on/) *(*[*https://www.reddit.com/r/nosleep/comments/1776lep/be\_careful\_about\_the\_orders\_you\_deliver\_on/*](https://www.reddit.com/r/nosleep/comments/1776lep/be_careful_about_the_orders_you_deliver_on/)*)*
 
 There were a lot of cars parked outside the house, there never had been more than a truck before. They were all beat up pretty badly. I drove by the first time, shivered in my car another five minutes, the gruesome package still burned in my mind, before working up the courage to pull up, get out and go to the door. I kept telling myself it would be the last time.
 
@@ -141,5 +141,7 @@ A photo of the front of my house.
 My phone vibrated.
 
 "See you tonight, Robert. Regards, Nick."
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/17b5hmz/be_careful_about_which_orders_you_take_on/)
 
 &#x200B;
