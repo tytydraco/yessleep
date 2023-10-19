@@ -215,3 +215,5 @@ On it were two words.
 
   
 “Seven days.”
+
+Part Three: https://www.reddit.com/r/nosleep/comments/17b5ls3/a_serial_killer_is_copying_horror_movies_part_3/?utm_source=share&utm_medium=ios_app&utm_name=iossmf
