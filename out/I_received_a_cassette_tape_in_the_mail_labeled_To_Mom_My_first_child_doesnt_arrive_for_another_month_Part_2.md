@@ -1,4 +1,4 @@
-[Part 1](https://old.reddit.com/r/nosleep/comments/170szx4/i_received_a_cassette_tape_in_the_mail_labeled_to/?ref=share&ref_source=link)
+[Part 1](https://reddit.com/r/nosleep/comments/170szx4/i_received_a_cassette_tape_in_the_mail_labeled_to/?ref=share&ref_source=link)
 
 That night. The one after that. The one after the one after that, my brain screaming all the while: *tell him, tell him, tell him, tell him!*     
 
