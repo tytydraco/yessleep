@@ -96,9 +96,9 @@ I watched - screaming myself hoarse internally even though I couldn’t make a s
 
 *See, Josh,* Mr. Lickety-Split declared, *you and I can have fun in so many ways.*
 
-I realized with a shame and horror beyond description that it was my own hands that had wrought this horror; my own legs that carried me to and from accomplishing this Devil's work.
-
 Mr. Lickety-Split grinned psychotically. He’d developed a lazy eye recently, I observed. These days, something had entered his grin that sent centipedes wriggling up and down my spine.
+
+I realized with a shame and horror beyond description that it was my own hands that had wrought this horror; my own legs that carried me to and from accomplishing this Devil's work. Dad seemed to accept my theory that a hawk or a coyote had taken the cats out; around that time, Mom started looking at me a little differently.
 
 There were times when Mr. Lickety-Split proved himself an invaluable friend, of course. When my first boyfriend posted the intimate photos that I had sent him on a dirty website, then opened it on the SmartBoard screen during the homeroom period that he and I were both in, I knew that Mr. Lickety-Split wouldn’t let that ride. For once, I didn't resist him as he made his plans.
 

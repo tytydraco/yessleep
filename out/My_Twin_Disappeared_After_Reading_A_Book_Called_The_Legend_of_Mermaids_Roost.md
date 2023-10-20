@@ -105,7 +105,7 @@ She smiles at that. I realize it's the first time I've seen her smile all day an
 
 "It's why they put the old lighthouse here in the first place. Supposedly there's dozens of old ships that sank out there," I tell her.
 
-"They heard the sirens singing and rammed their ships against The Roost to be closer to them." Lily says, "The legend is that they're still out there and you can still hear them if they want you to. If they want you to come out to them…when men hear them from the water it's because they want to smash the ships. When they hear them from the shore it's always a trick; a call to swim out to the rocks. Most of them don't make it. They drown. If they do make it that far, the sirens kill them and eat them. Also they're not mermaids at all but birds with the heads of women. Men always die either way." 
+"They heard the sirens singing and rammed their ships against The Roost to be closer to them." Lily says, "The legend is that they're still out there and you can still hear them if they want you to. If they want you to come out to them…when men hear them from the water it's because they want to smash the ships. When they hear them from the shore it's always a trick; a call to swim out to the rocks. Most of them don't make it. They drown. If they do make it that far, the sirens kill them and eat them. Also they're not mermaids at all but birds with the heads of women. Weird right? The men always die either way. They're from Greek mythology, you know. Surprising anyone believes anything like that out here."
 
 "That's right," I say, struggling to hide my surprise, "but how do you know about all of that?"
 
@@ -125,7 +125,7 @@ I'm flabbergasted, "Three days? You got here and waited three days to text me?" 
 
 I say I will and that we need to start to head back to her place. We've walked about a mile so it will take us a while to get back and this isn't the kind of beach that's made of gentle slopes of endless sand. There's sand of course, but it's also full of rocks to trip and bust your head open on in the dark. 
 
-When we're halfway there and the sky is a deep, dark purple bruise she stops and looks back at Mermaid's Roost. The shadow of it still looms on the violet horizon, like a giant sleeping in the sparkling black blanket of water. Her eyes grow wide and seem to fill with the tiny diamonds of reflected stars and for Lily, an uncharacteristically innocent wonder.
+When we're halfway there and the sky is a deep, dark purple bruise she stops and looks back at Mermaid's Roost. The shadow of it still looms on the violet horizon, like a giant sleeping in the sparkling black blanket of water. Her eyes grow wide and seem to fill with tiny golden diamonds, like flecks of light reflected by the stars. Her face glows with an uncharacteristically innocent wonder.
 
 "Emily," she whispers, "do you hear them too?"
 
