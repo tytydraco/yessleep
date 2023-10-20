@@ -20,4 +20,4 @@ I stayed late after work that day just to take a closer look at the table. This 
 
 I knocked on it, and it did sound a little hollow, but the cleaning lady came in just as I was wrapping my knuckles. She gave me a good scare honestly, and I think I might have freaked her out a bit as well. I was super embarrassed and told her I was just looking for my pen. I rushed out of there, but I could feel that my face was bright red with embarrassment.
 
-Tomorrow I have another team meeting and I'm honestly not sure what to do. Has anything like this ever happened to you?
+Tomorrow I have another team meeting and I'm honestly not sure what to do. Has anything like this ever [happened to you?](https://www.reddit.com/r/xXxPlanetVegaxXx/s/embfcfraYB)

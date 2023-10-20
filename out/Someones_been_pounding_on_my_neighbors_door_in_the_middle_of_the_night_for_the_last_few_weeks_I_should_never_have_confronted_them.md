@@ -1,0 +1,152 @@
+I’ve lived in a small apartment complex for close to ten years now. It’s a small, one bedroom affair that, being built in the late 70s, is extremely old fashioned in its décor, but the rent has always been decent, the landlord has always been accommodating when I have a problem, and for the most part, the neighbors have been quiet and haven’t caused a fuss. Aside from the occasional homeless person dumpster diving for cans in the middle of the night, or a television played slightly too loud from downstairs, it’s always been rather easy for me to fall asleep.
+
+  
+Until my new neighbor moved in a few weeks ago.
+
+  
+At first, I didn’t think anything negative would come with her. She was a friendly, if rather reclusive woman who appeared to be in her mid to late thirties. From what I picked up from our limited conversations when meeting at the mailboxes or gathering laundry, she was a recovering addict who’d successfully made a clean break from the life, and had moved her to try and start over. As someone who has lost a few friends to addictions, I felt sympathetic and always was polite and friendly when we saw each other. And, for the first few weeks of her living here, all was well.
+
+  
+And then the banging began.
+
+  
+I’d woken up at about two in the morning to have to use the bathroom and was washing my hands when I heard it. Or, I should say that I first felt it more than heard it. The vibration that came through the floor was enough to give me pause. *What the hell?* Drying my hands quickly, I pulled open the bathroom door and stepped out into the living room. A moment later, it came again, but this time, I heard it. Someone was at one of my neighbor’s doors. And they weren’t just knocking; they were practically pounding on it. I groaned softly at my first thought. *Oh great, not the cops again*. We’d just had them over a few weeks ago due to an altercation that a rather belligerent homeless woman had had with my next door neighbor as they’d stood outside having a cigarette. But then the banging came again, and I realized something. Whoever was doing the banging, wasn’t saying a word. No yelling or orders typical of either police, or simply an argument between a couple or something.
+
+  
+The realization made me feel a little bit wary, and I eyed the closed blinds that covered the window that opened onto the second floor walkway. For a moment, I debated on sliding a finger through them, parting them enough to peek outside. But as I toyed with the notion, suddenly, the banging stopped. The world outside went silent, save for the barking of a dog somewhere a few blocks away. I stood there for another second, listening to see if I could hear the sounds of footsteps. But it remained quiet. After a few seconds, I shrugged my shoulders and turned back to my bedroom. *Whatever. I’ll figure it out in the morning*, I thought as I closed my bedroom door and climbed back into bed.
+
+  
+The next day, as I grabbed my mail, I saw my new neighbor, whose name I’d learned was Erin, enter the laundry room that also doubled as our mailroom. We each said good morning to each other, and after exchanging pleasantries, I decided to ask her about the banging. “Oh, no. You heard that?” she asked me, an apoplectic look etching itself onto her face. I nodded. After a second’s silence, she answered, her voice filled with an apologetic tone. “I am so sorry. That was one of my friends. He’d swung by to drop off my laptop, I left it at his place when I was in the middle of moving” *At two in the morning?* I mentally wondered, but chose not to say it aloud. After all, I didn’t want to appear to be. Instead, I just smiled at her. “Well, just, in the future, let your friends know that things are supposed to be quiet here after ten? I just don’t want to see you get in trouble” She nodded immediately, giving a smile of her own. “Of course, thank you for giving me the head’s up” she said, locking her mailbox and heading for the door.
+
+  
+Thinking that was the end of it, I left the mailroom, got into my car and went to work. The day passed by normally, and after stopping by the grocery store to buy a frozen pizza, I returned home and gorged myself on it while watching a marathon of classic horror movies. I shut the TV off around eleven, dumped my dishes into the sink to do tomorrow, and after brushing my teeth, slipped into bed. It took about half an hour of getting comfortable, but eventually, I fell into a deep and dreamless sleep.
+
+  
+*Bang! Bang! Bang!*
+
+   
+The sound ripped me out of the pleasant dream I’d been having, and my eyes snapped open. I glanced at my alarm clock; the red letters read *2:15AM*. As I lay there, wondering whether the sound had come from my dreams or not, it came again. Three rhythmic bangs, then a few seconds of silence before three more. My mind, still only half awake, slowly began turning. Then, it suddenly clicked. I let out a groan. “Oh, you’ve *got* to be freakin’ kidding me” I threw off the covers and slid out of bed. *Two nights in a row?* I’d already had my doubts about Erin’s story of a friend returning something; *this* was piling it on more. I opened my bedroom door and stepped out into the living room. The walkway lights glowed softly through the closed blinds, and I moved over to them. For another thirty seconds, I stood there in the dark, listening to the person pounding on the door. Then, exactly as before, the banging stopped.
+
+  
+Silence fell, and this time, after a few seconds of contemplation, I pulled down one of the blinds and peered outside. I had a perfect view across the way to Erin’s front door, the walkway lights revealing…nobody. I angled the blinds up farther, looking down at the parking lot and the stretch of road visible. Not a soul was visible anywhere out there. *How the hell did they get down to the ground and out of sight so quickly? The last knock came less than fifteen seconds ago*. For a moment, I thought about unlocking the door and sticking my head out, but pushed the thought away as a yawn escaped my lips. I’d speak to Erin tomorrow if I saw her; for now, I needed to get some more sleep so I wouldn’t go to work tired.
+
+   
+I didn’t see her the next day, or when I got home that night. As I unlocked my front door, I heard the door behind me open. Turning, I found myself staring at the tired eyes of David, my next door neighbor. “Have you been hearing someone banging away on someone’s door the last two nights?” he asked grumpily. I nodded. He let out a sigh. “Well, hopefully it doesn’t happen again, because it’s getting on my nerves” he said, before slamming his door shut. Most of my neighbors will complain when something gets on their nerves, but for whatever reason, whether it’s that they don’t want to be seen as a squeak or are just too beat down from everyday life, don’t ever call management or confront the person causing problems. This was just another textbook case of that.
+
+  
+As I pushed my door open, I shot a final look across at Erin’s door. I’d given a moment’s thought to knocking on her door, but decided against it and headed inside. I didn’t know the woman at all, and I didn’t know who was coming in the middle of the night either. And given the fact of her old life, it could be someone less then scrupulous banging away. The last thing I wanted to do was get involved with something that could end badly for me. I forced myself to forget it as I cooked dinner and played video games before hitting the hay. I prayed that I wouldn’t be woken up again.
+
+  
+But I was.
+
+  
+This time, I flung the covers off of me and went straight to my front door, irritation bubbling up inside. Grabbing my jacket off the hook and sliding into my flip flops, I unlocked the front door and reached for the handle. But something stopped me. I couldn’t explain what it was, but it was the oddest sensation I’ve ever felt. It was as if something were incessantly telling me *not* to open the door. And it was enough to make me hesitate for a few seconds. Just like the last two nights, the banging suddenly stopped. Forcing the warning away, I grasped the handle and turned it, yanking the door open. The chilly fall night washed over me as I blinked rapidly against the blinding porch light. Stepping outside, I turned and looked around the corner, expecting to see whoever had been wailing on the door to be making a break for the stairs.
+
+  
+To my shock, I saw nobody. *That’s freaking impossible, the knocking stopped less than five seconds ago. Somebody wouldn’t have been able to get downstairs and out of sight so quickly*. Feeling thoroughly confused, I pulled the door shut behind me and stepped out onto the walkway. Glancing around, I still saw no one. I turned to look at Erin’s apartment. The blinds were drawn, and I saw no light emanating from behind them. I scoffed. *The woman can sleep through that racket?* As I stood there, a feeling suddenly fell over me. A shiver shot up my spine, causing me to gasp aloud as the feeling of being watched from behind overtook me. And whoever was doing the staring, was definitely *not* friendly. I realized with another shiver that I’d left my back open to the stairs behind me. *The perfect place for someone to sneak up on you*. My heart began to thunder in my chest, and my breathing came in short gasps as a wave of instinctive fear surged through me. Tightening every muscle in my body, I snapped my fist closed and spun around, ready to sock someone in the face.
+
+  
+There was nobody behind me. The stairway was empty and dark. But I’d been sure that someone had been there. Trying to stay as quiet as possible to keep from waking up my neighbors, I descended the stairs, triggering the motion sensor light on them to flash on and bathe the area in harsh white light. Reaching the bottom, I looked first to the left, than the right. The empty street stretched away in both directions, the dark shapes of parked cars lit by the occasional yellow-ish orange glow of the streetlights. Nothing moved in the night. I heard a dog bark a few blocks away again, along with the sound of the generator from the boat building factory down by the river. I stared for a few more moments, then turned around and headed back upstairs, shaking my head.
+
+  
+“Come on, Owen, what’re you doing man?” I mumbled quietly to myself as I reached my front door. “This is beyond stupid. You could’ve gotten hurt. And besides, it’s none of your business. Whether it’s an old druggie friend of hers or anything, just stay out of it. Just take a melatonin or sleep aid and stay out of it” Stepping inside and locking the door behind me, I vowed to not get up again for the banging. *After all, it can’t last too much longer, right?* The thought didn’t exactly reassure me, but I allowed my vow to help me relax as I slipped back into bed. As I lay there, my mind thought back to the sensation I’d had while standing on the top of the walkway. It wasn’t one I’d ever experienced before, and I didn’t like it. The feeling of fear returned briefly, sending a small shiver down my spine, but I forced it away, and after an unusually long stint of tossing and turning, I fell asleep.
+
+  
+The next day, I went to *Rite-Aid* and bought a bottle of Melatonin, along with a bottle of more traditional sleeping pills. I’d never bought anything to help stay asleep before, never having trouble with sleep. *First time for everything*, I thought as the cashier rang me up. After work, I returned home and watched a movie before deciding to try and head to bed earlier than usual. I chewed one of the melatonin gummies before brushing my teeth, and hoped against hope that the banging wouldn’t come again. Or that the gummy would help me slip into a deep enough sleep that it wouldn’t wake me up, at least. I said a silent prayer as I got into bed that I would sleep through it.
+
+  
+My prayers were *not* answered. I was woken up, yet again at just after 2 by the banging. The irritation that filled me wanted to get up and confront the person before they stopped knocking and disappeared, but remembering my vow, I forced myself to stay in bed. After a few minutes, the banging stopped, and soon enough, I fell back asleep. It was not the last night it happened, either. For a week, I tried taking the melatonin gummies, hoping that they hadn’t worked due to not getting into my system enough. But they did exactly jack shit. I began to go to work more and more tired; my reflection in the mirror also began to show dark circles under my eyes from the lack of long, restful sleep. A few of my co-workers asked me if everything was alright, and I made up a story about an account stressing me out. My neighbors kept grumbling about the noise, but as always, they did nothing. Erin stopped speaking to anyone else in the complex as well. Instead, she’d dash for her car or apartment whenever anyone spotted her, as if she didn’t want to discuss what was going on. Finally, as the week ended, I decided to start taking the sleep aid.
+
+  
+For the first week, they actually seemed to do the trick. I would fall asleep quickly and stay asleep. I began to feel better, both physically and mentally, and my pace at work began to return to normal. I was able to put the situation out of my mind, and I even recommended the sleep aids to a few of my neighbors, who ran out to buy them. Things finally began to settle down, and I felt sure that with a viable solution found, that nothing could mess up the welcome change in pace. In hindsight, I hate how overconfident I became. How sure I was it would last.
+
+   
+It didn’t.
+
+  
+I was woken up at the exact same time, this time feeling groggy from the sleeping pill. I lay there in the dark, hearing the banging and couldn’t help but let out a half strangled cry as reality was jammed back into my face. “*Fuck!*” I hissed through gritted teeth. I hoped it had just been a onetime stumble. But it wasn’t. Whether my body had built up a tolerance to the pills or whatever, I began to wake up to the banging on the same nightly basis as before. Again, I began to feel like crap, and my work and social life started to suffer as a result too. Friends, and even my boss became concerned about me. I was called into his office one day. After asking what was going on, I ended up telling him about the situation. He grunted in response, thinking. “Well, Travers, if it’s getting that bad, and nobody is doing anything about it, why don’t you move out?” he finally asked, “Why don’t you find somewhere else? There are plenty of apartment buildings in town” I sighed, explaining to him that, while there were openings around town, all of them were over $1200 a month. My apartment complex was the last one in town where rent was under $1000, and it was the only one I could afford.
+
+  
+He sighed as well, and looked at me. “I’m sorry that you seem to be stuck in a bit of a pickle Travers, but I have to be honest. Your performance has dropped considerably from what it normally is, below even our *lowest* standards. You’ve been a loyal employee for years, but if it keeps up, we may have to re-evaluate your employment with us” I felt my jaw drop open, disbelief flooding every fiber of my being. “Are you *serious*?” I managed out. He nodded, a stern look on his face. “I sympathize with your unfortunate scenario, Travers, but the unfortunate truth is, we have to look at the grand scheme of things. This company needs to always function at its expected pace and vigor, and if people can’t keep up, for *whatever* reason, then…” He trailed off. I wanted to say more, but I was dumbstruck. I’d worked here for eight years, almost the entire time I’d lived in town. Never before had the prospect of being fired ever hit me. Not able to say anything else, I simply nodded and left the office.
+
+  
+I spent the rest of the day keeping to myself, feeling as though my world were steering straight into the side of a cliff and unable to steer away. As I slunk up the stairs to my apartment, I cast a look at Erin’s apartment. As usual, all the blinds were drawn, and there was no sign of life at all. A sharp feeling tore through me, and I was surprised to find it was bitterness and anger, an emotion I wasn’t used to. At Erin for not calling the cops or doing anything to stop the banging, at my neighbors for being too apathetic to step in themselves, and most of all, at myself. I slammed the front door behind me harder than I usually did, and chose to order a pizza and breadsticks from *Dominos*. As I had the next few days off, I decided to get wasted, so I grabbed two large bottles of margarita from the fridge, and after my food arrived, began downing them as I binge watched a marathon of The Mummy movies. The alcohol made me feel a tiny bit better, and at 12:30 in the morning, I stumbled into my room and fell on the bed, instantly falling asleep.
+
+  
+*Bang! Bang! Bang!*
+
+  
+I blinked groggily as the waking world swam into view around me. The world almost immediately began spinning, showing that the alcohol hadn’t left my system yet, and my temples throbbed slightly. I rolled over, wiping drool off my chin as I attempted to fall back asleep. *BANG! BANG! BANG!* The pounding came again, hard enough that I could feel the vibrations running up the feet of the bed into the mattress. I rolled onto my back and stared at the spinning ceiling, trying to fight back the urge to vomit. As the pounding in my head began to sync up with the incessant sound, a new feeling began to wash over me. Anger. And not just anger, but an almost full blown rage. *This fucker is going to cost me my job. He may end up costing me my apartment, along with my damn sanity! All because that fucking woman won’t answer the damn door!* The thoughts swam around and around in my head, and for the first time in my life, I began to see red. It finally boiled over as I stumbled to my feet. Moving to the closet, I grabbed an aluminum baseball bat and strode to the front door. Far back in my mind, I knew that confronting someone who could turn violent while drunk was not a smart idea.
+
+  
+But I’d had enough. I jammed my feet into my flip flops as another round of banging came. I decided to quickly look through the blinds to see if they were still there. Slipping two fingers through them, I pulled them down enough to clearly see across the way. The porch light that lit up the doorways of Erin and her next door neighbor had burned out, but even with the darkness that now shrouded the alcove, I could see the shape of someone standing directly in front of her door. Someone who was almost as tall as the door itself. As I watched, they reached up and slammed their fist onto the door three times. *Bang! Bang! Bang!*
+
+  
+“Oh, fuck this shit, man” I growled, then moved to the front door. The drunken rage now full fueling me, I unlocked the door and yanked it open, almost falling on my ass by how hard I pulled. Storming out onto the walkway, I turned and saw the figure still there. *You’re not disappearing from me this time, fuckhead*. I took in a deep breath, then let out a yell, my words slurring slightly. “Hey, asshole!” The figure had been in the middle of raising its arm to hit the door again when I’d spoken, and it froze, as though they hadn’t planned on being caught. I took another step forward. “I’ve had *enough* of you pounding on that door, for almost a fucking *month*! I’m losing sleep, and you’re pissing off everybody in this complex” Holding the baseball bat in one hand, I extended it out and rapped it hard against the wooden railing before finishing my tirade. “If you don’t beat it *right* now, and don’t come back, I will personally beat the freakin’ shit out of you. Now *FUCK OFF!*”
+
+  
+Breathing heavily, I stood there, waiting for the person to respond. But they just stayed there, their arm raised to hit the door again. My rage began to boil over again when the sound of something rapping softly against the glass came. I kept my eyes trained on the still figure for another moment, before looking away to find the source of it. My gaze fell upon Erin’s living room window, which no longer had the blinds closed. They had been yanked all the way open, and Erin now stood directly behind the glass. For a moment, my anger kept me from properly seeing what she was doing, and I was about to flip her the bird when my vision focused.
+
+  
+Erin was frantically waving at me. She crossed her arms over and over while shaking her head, the universal sign for *don’t do that*. I was about to dismiss her, thinking she was trying to get me to butt out when the expression on her face became clear. And in that instant, all my rage died away.  
+
+
+Her face was white as a sheet, and her eyes were as wide as a human’s could go, the horror clearly etched on it. *She looks like someone who…*my blood turned to ice. *She looks like someone who’s about to watch someone get murdered…oh shit*. The realization wasn’t the only one I had.
+
+  
+Erin's eyes were no longer the only ones on me.
+
+  
+The figure had turned away from her door to glare at me as well. And my heart almost stopped as I saw two red eyes staring out at me. I let out a giant gasp and dropped the bat as the same fear I’d felt that night a few weeks ago flooded back into me, this time with a vengeance. Through my shock and horror, a thought wormed its way forward. *That’s...that’s not a person. That’s not HUMAN*. “Oh…fuck me” I breathed out, my voice choking off. It hadn’t been loud enough for anyone that far away to hear them. And somehow…the damn thing *chuckled* at them. The chortle was low and deep, and the only way I can describe it was demonic. Another flash of movement came from Erin’s window, and my eye flickered over to her. She was frantically waving for me to go back inside. That’s when the walkway lights went out.
+
+  
+*Oh, shit*.
+
+  
+Propelled by the surge of fear, I instantly bolted for my open door. A new wave passed through me as I saw a blur of movement separating itself from the shroud of blackness. One which moved faster than any human could. Letting out a strangled cry, I grabbed the door and began to slam it shut. But something crashed into it from the other side before I could. I would’ve flown backwards over my couch if I hadn’t had a vice like grip on the handle. Frantically, I pushed against the door with all my strength. The door closed a bit, and I felt a momentary sense of relief. Until something snaked its way around the side of the door, between the crack that opened to the outside world.
+
+  
+It was a fucking *claw*. A grey hand, tipped at the end with black, razor sharp nails, ones that dug into the metal like it was butter. The sight sent a surge of adrenaline through me, and I let out another strangled scream, slamming all my weight into the door. I felt the impact as it banged hard against the claw, the only thing keeping it open. The creature on the other side didn’t let out a sound, but the claw quickly pulled away. I didn’t waste another second. I slammed the door all the way shut, forcing the deadbolt into position along with the doorknob lock. Silence immediately fell over the complex, and I stood there, leaning against the door for support as I fought to draw in breath.
+
+  
+*BANG! BANG! BANG!*
+
+  
+The pounding came from directly on the other side of the door, powerful enough that it rattled on its hinges. Letting out a shout, I stumbled away from the door, crashing into the back of the couch and crashing to the floor. The three bangs came again with the same ferocity as the first. I began to cry, pulling my knees up against my chest as I curled into a ball on the floor. I thought for sure that it would smash against the door hard enough to break it down, but it kept banging for what seemed like eternity. I lay on the floor, frozen in terror and unable to do anything but cry as my mind seemed to fracture slightly, the image of those red eyes staring at me repeating endlessly in my mind.
+
+  
+And then, it stopped.
+
+  
+The pounding stopped, directly in the middle of one of the three sets, and was replaced by silence. A silence that now held far more dread than I ever thought it could have. Still, I lay there, unable to move. I didn’t move at all, even as hours seemed to pass. I’m not sure whether my mind became overwhelmed by the fear or the alcohol still latent in my system, but somehow, I passed out.   
+When I awoke, the sun glowed brightly against the blinds, and I heard birds singing outside. Uncurling myself, I slowly got to my feet and approached the window. Reaching out with shaking fingers, I gripped the handle and forced myself to twist it. The light was almost blinding as the blinds open, and I blinked a few times to adjust. When I did, though, I saw that everything outside looked normal. It was as if the entire horrific night had been nothing but a drunken nightmare. And for a moment, I almost convinced myself it was. Until I looked at the door and saw the deep marks in the metal. They reminded me that it had been very real. I was suddenly overcome with an almost desperate desire to get out of the apartment, to get as far away as I could. And so, I raced to my room, grabbing a shirt and pants and jamming myself into them. I grabbed my car keys off the hook and yanked open the door, allowing more sunlight to stream inside.
+
+  
+There was a sealed envelope lying on the entrance mat. It simply had my name written on the front and nothing else. I swallowed hard, then looked around. Everything still looked normal. I looked over at Erin’s apartment. The blinds were closed tightly again, and the door firmly shut. Taking a shaky breath, I picked up the envelope, then shut the door behind me and half walked, half ran down the steps to my car. After locking the doors, I finally opened the envelope. Inside was a single sheet of white paper, which someone had written on in a shaky scrawl.
+
+  
+It’s been almost a month since I read that letter in the parking lot. Almost a month since I read the words that have haunted every waking moment. I drove off, hoping that they were wrong. I drove to the next county, choosing to stay in a rundown motel for the night. And I prayed that the letter was wrong. Or a lie. I desperately prayed and begged. But when the pounding began at exactly 2AM, the same three raps for almost ten minutes, I knew the words Erin had written were true.
+
+  
+*Owen,*
+
+  
+*I’m so, so sorry for this. I didn’t want anyone else to be caught up in it. I moved here because people told me the neighbors don’t deal with other people’s drama, and I thought that meant it would be safe. That people around me would be safe. You see, a few months ago, I broke up with my ex who had enabled my drug addiction. It was the only way I could break the addiction cycle. But I didn’t know she was into the occult. I got a call from her, telling me that she’d cursed me, summoning a demon especially for me, to torment me in revenge for leaving her. She laughed and wished me to suffer thoroughly before I died a painful death. I thought she was full of shit at first, that she was threatening me into coming back to her. Until the knocking began. The same three pounding knocks, every night at two in the morning for ten or twenty minutes. Loud enough that it sounded like the door would bust in, but never doing so. And when I looked out the people and saw it staring at me, staring with those red eyes, those wicked teeth smiling, and those cruel claws flashing on its hands, I knew. I knew she’d told the truth.*
+
+  
+*The reason I moved to your complex, is that through some searching of occult books, was that I discovered the demon she’d cursed on me, will for the rest of your life knock on your door. It can’t enter a person’s home by force. But it can drive you insane with its knocking, and it takes great pleasure in the suffering it inflicts through that. Its ultimate goal is to break the person down enough, that they end up willingly opening the door to it while it’s on the other side. And then…it takes you. You’ll never be seen again. And you’ll be tortured for eternity.*
+
+  
+*The worst part…is there is a single way to break the curse on you. The only way is by having someone else…someone innocent, see the demon as it knocks on your door. Then the curse is passed along to that person, and lifted from you. You basically have to sacrifice someone else, in order to free yourself. It’s something I was never able to do. I couldn’t willingly have someone suffer such a horrifying fate, even to save myself. I would’ve gone on forever, dealing with it. Or eventually just opened the door and let it take me. But…that choice is now gone. You saw it. It locked onto you. And now the curse has been passed to you. It will follow you, wherever you go. No matter how far. It will get behind any door, and it will knock. It will break you down. I’m now free…but at a cost I never wanted to make.*  
+*I’m sorry….I won’t be around much longer. I can’t stand to see it happen to you.* 
+
+*Please…forgive me.*
+
+  
+I went back to my apartment the next day. There was no point in running. Not when it would follow me. Erin moved out the day after I came back. I watched her pack her things into a U-Haul, watched her get in, and with a last sorrowful look up at my window, drive away. I couldn’t bring myself to walk outside and say anything to her.
+
+  
+ Every night since, it’s pounded on my door. Every day, I feel more and more tired. More worn down. I feel like I’m slowly going insane. I barely managed to make it to work, and yesterday, it finally happened. My boss called me in to his office and fired me. I only have a few months left of savings before I can’t pay rent anymore. I don’t know what’ll happen when that day comes. That’s not the worst part, though. Erin’s letter still reverberates around inside my head. The words about how to pass the curse along. I wouldn’t wish this fate upon my worst enemy. I’d never want to hurt someone else. But….I’m not as strong as Erin. I don’t want to be tortured forever. And I don’t know how much longer I can take this. How much longer until I break.
+
+  
+How much longer until I lure someone else into seeing it.
