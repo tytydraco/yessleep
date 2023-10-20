@@ -156,6 +156,8 @@ I hesitantly pried open my eyes, half-expecting to find some twisted, evil figur
 
 What should I do? Was she waiting for me to wake up so she could torture me or something?
 
-I'm terrified. I'm typing this on my phone, praying that she hasn't noticed me. Any advice would be greatly appreciated. Because I can't fathom the amount of suffering that I'm going to endure if Amelia decides to act on her nightly [urges.](https://www.reddit.com/r/HorrorJunkie123/) 
+I'm terrified. I'm typing this on my phone, praying that she hasn't noticed me. Any advice would be greatly appreciated. Because I can't fathom the amount of suffering that I'm going to endure if Amelia decides to act on her nightly [urges.](https://www.reddit.com/r/HorrorJunkie123/)
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/17cnev5/i_signed_up_for_a_mail_order_bride_things_have/?utm_source=share&utm_medium=web2x&context=3) 
 
 &#x200B;

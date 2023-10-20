@@ -141,11 +141,12 @@ As I looked closer, I realized something.
   
 The door in the video looked exactly like my bedroom door, that was right in front of the foot of my bed. It had the same posters I did and in the same spot too. I was freaked out now and exited the website entirely, before returning to the writing document to put this all down. But even though the video was gone, I could still hear that same raspy breathing, as well as the sound of a door creaking open. I lowered my phone enough that I could see my bedroom door behind it. I swear I closed it before getting into bed. But it was now open. Exactly like in the video. The only difference was that in the video there was nothing behind the door, but in my room, I could see two white beady eyes, peering through the crack, staring directly at me.
 
-  
-There is nothing to be scared of,
+*
 
-Nothing.
+*There is nothing to be afraid of,*
 
-Because now in my heart I can see that,
+*Nothing.*
 
-Zældör will be king.
+*Because now in my heart I can see that,*
+
+*Zældör will be king.*

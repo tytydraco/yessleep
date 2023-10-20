@@ -108,7 +108,7 @@ Adam followed his dick to the supply closet, where I started giving him pleasure
 
 One day of my junior year, Mr. Lickety-Split sat me down for a talk.
 
-*We’ve been good friends for years now, Josh, and you’re growing up into a fine young man. You’re 16, going on 17; you’ve had your first love, your first hate, your first kills – your first everything, really. You’re growing up, and it’s time for you to be more independent. For* us *to have more freedom.*
+*We’ve been good friends for years now, Josh, and you’re growing up into a fine young man. You’re 17, going on 18; you’ve had your first love, your first hate, your first kills – your first everything, really. You’re growing up, and it’s time for you to be more independent. For* us *to have more freedom.*
 
 At first, I thought that Mr. Lickety-Split wanted us to run away.
 
@@ -146,7 +146,7 @@ My moment had arrived: I grabbed hold of the pen and began to write. Mr. Lickety
 
 Mr. Lickety-Split threw the pen across the room; the detective calmly handed me another. I kept writing even as Mr. Lickety-Split grew louder, more frantic in my mind, screaming threats and obscenities. He was panicked, I realized, and a surge of hope set me to scribbling ever faster.
 
-A moment later, Mr. Lickety-Split grabbed the pen from me and stabbed it through my left hand; it passed through the smooth skin below my middle finger and protruded out the other side. Frantic, I explained to the Detective what was going on – that there was an evil entity controlling me, which had committed the murders, and that if I didn’t get the truth down on paper now, I might never be able to – and he let me continue writing. Mr. Lickety-Split wept in defeat as I signed our name to the confession:
+A moment later, Mr. Lickety-Split grabbed the pen from me and stabbed it through my left hand; it passed through the smooth skin below my middle finger and protruded out the other side. Frantic, I explained to the detective what was going on – that there was an evil entity controlling me, which had committed the murders, and that if I didn’t get the truth down on paper now, I might never be able to tell it – and he let me continue writing. Mr. Lickety-Split wept in defeat as I signed our name to the confession:
 
 Josh \_\_\_\_\_
 
