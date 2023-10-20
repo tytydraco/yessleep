@@ -6,7 +6,9 @@
 
 [Part 4](https://reddit.com/r/nosleep/comments/174wq7x/im_an_er_receptionist_today_i_met_a_patient_who/)
 
-Hi. This is Travis. I’m sorry to tell everyone this  but Melissa is in a coma. I’m going to tell you what happened. As best I can.Melissa, and that male nurse, spoke of a squidge. I don’t know what it is but it seems the doctor sold it as an IV. Apparently it was from the dark web? And it supposed to summons an evil demon inside you if you consume it. The more you consume of it, the more evil it will make you.
+Hi. This is Travis. I’m sorry to tell everyone this  but Melissa is in a coma. I’m going to tell you what happened. As best I can.
+
+Melissa, and that male nurse, spoke of a squidge. I don’t know what it is but it seems the doctor sold it as an IV. Apparently it was from the dark web? And it supposed to summons an evil demon inside you if you consume it. The more you consume of it, the more evil it will make you.
 
 Peter, my fucking asshole of a kidnapper, has been consuming that stuff for 5 years. Or God knows how long. Last time I had a normal life was 2018. I called Melissa. She asked how I was doing. I said the meds were giving me a headache and I felt strange. She told me to go home from work. suddenly I had this urge to jump out of the window, holler "wee hee yay HO!!" Like a cowboy on crack and run to the beach not far from my work.
 
@@ -18,7 +20,7 @@ Next thing I know a cloth covers my mouth and I woke ip in that cellar.Have you 
 
 I’m telling you what he wrote down on his notepad.
 
-\- *Melissa will likely never wake up again.* 
+\- *Melissa will likely never wake up again.*
 
 *She had too much of the squidge.*
 

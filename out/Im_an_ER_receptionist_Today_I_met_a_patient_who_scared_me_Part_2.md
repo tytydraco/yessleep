@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/16onxto/im_an_er_receptionist_today_i_met_a_patient_who/)[Part 3](https://www.reddit.com/r/nosleep/comments/16t0rk7/im_an_er_receptionist_today_i_met_a_patient_who/)  [Part 4](https://www.reddit.com/r/nosleep/comments/174wq7x/im_an_er_receptionist_today_i_met_a_patient_who/?rdt=57809)
+[Part 1](https://www.reddit.com/r/nosleep/comments/16onxto/im_an_er_receptionist_today_i_met_a_patient_who/)[Part 3](https://www.reddit.com/r/nosleep/comments/16t0rk7/im_an_er_receptionist_today_i_met_a_patient_who/)  [Part 4](https://www.reddit.com/r/nosleep/comments/174wq7x/im_an_er_receptionist_today_i_met_a_patient_who/?rdt=57809) [Part 5](https://www.reddit.com/r/nosleep/comments/17caiao/im_an_er_receptionist_today_i_met_a_patient_who/)
 
 I’m typing through cold sweat. On my phone. In Sam’s exam room. Lying on a leather table. I’m hyperventilating with a cold compress on my head. I’m so hot. And oh my god, my head. It's killing me. Never had a fucking headache like this before. I’m sweating like a pig, my hands are shaking lioke crazy. so excuse me if I type in unintelligible ways.
 
