@@ -1,4 +1,4 @@
-I’m sure that if you been on the internet long enough that you’ve probably seen these videos titled something like “\[X\] moments that live in my head rent-free” or “\[X\] moments that I can’t get out of my head”. If you don’t know what I’m talking about, these videos are basically compilations of “iconic” moments concerning a character that’s from a movie, show, or game.
+I’m sure that if you've been on the internet long enough that you’ve probably seen these videos titled something like “\[X\] moments that live in my head rent-free” or “\[X\] moments that I can’t get out of my head”. If you don’t know what I’m talking about, these videos are basically compilations of “iconic” moments concerning a character that’s from a movie, show, or game.
   
 
   
@@ -16,11 +16,11 @@ My first thought was:
 
 *“Who the hell is Zældör?”*
 
-As stated before, there has been some of these videos where I haven’t recognized the character. But I mean… "Zældör"? Curiosity, as it always does, got the best of me, and I clicked on the video.
+As stated before, there have been some of these videos where I haven’t recognized the character. But I mean… "Zældör"? Curiosity, as it always does, got the best of me, and I clicked on the video.
   
 
 
-The video started off exactly like how the thumbnail looked, complete and utter darkness. I watched the screen for a good fifteen seconds before I realized that there was some slight movement going on. I turned the brightness of my phone screen up all the way, and while it didn’t help that much, I could at least see a little bit. What I saw was a dark room. Occasionally the scene would fade out, and another video of a dark room would fade in. On the final clip, there was a large window as well as a sliding glass door. The camera was pointed towards the window, and I could see that the outside was even darker than the room. A few more seconds passed, and nothing happened. I started to get bored again. I checked the amount of time left on the video, which showed 10 minutes. “10 more minutes of this crap?” I thought to myself. I was just about to give up and turn off my phone, when I spotted a slight difference. Behind the window, in the dark, there was what looked to be a pair of two, tiny, white dots, horizontal to each other. I knew for a fact that those weren’t there before. 
+The video started off exactly like how the thumbnail looked, complete and utter darkness. I watched the screen for a good fifteen seconds before I realized that there was some slight movement going on. I turned the brightness of my phone screen up all the way, and while it didn’t help that much, I could at least see a little bit. What I saw was a dark room. Occasionally the scene would fade out, and another video of a dark room would fade in. In the final clip, there was a large window as well as a sliding glass door. The camera was pointed towards the window, and I could see that the outside was even darker than the room. A few more seconds passed, and nothing happened. I started to get bored again. I checked the amount of time left on the video, which showed 10 minutes. “10 more minutes of this crap?” I thought to myself. I was just about to give up and turn off my phone, when I spotted a slight difference. Behind the window, in the dark, there was what looked to be a pair of two, tiny, white dots, horizontal to each other. I knew for a fact that those weren’t there before. 
   
 
   
@@ -32,7 +32,7 @@ I chuckled. Was this someone’s poor attempt at making a scary video? It looked
   
 
   
-I clicked off the video, slightly disappointed, and went back to searching for something good. I refreshed, and was met with yet another black thumbnail video and this title:
+I clicked off the video, slightly disappointed, and went back to searching for something good. I refreshed the page, and was met with yet another black thumbnail video and this title:
   
 
   
@@ -113,7 +113,7 @@ The comment replies weren’t any better. All of them just repeated “Zældör 
   
 
   
-Did my phone get hacked? Was this because I clicked on those videos? What the hell is this? I was beginning to become more and more creeped out. It might seem ridiculous to you, but when your alone, in the dark, and see stuff like this, you might feel different. I went to the app settings and clicked on my watch history. Sure enough, all of the videos that I watched were there.
+Did my phone get hacked? Was this because I clicked on those videos? What the hell is this? I was beginning to become more and more creeped out. It might seem ridiculous to you, but when you're alone, in the dark, and see stuff like this, you might feel different. I went to the app settings and clicked on my watch history. Sure enough, all of the videos that I watched were there.
   
 
   
@@ -139,7 +139,7 @@ As I looked closer, I realized something.
   
 
   
-The door in the video, it looked exactly like my bedroom door, that was right in front of the foot of my bed. It had the same posters I did and in the same spot too. I was freaked out now and clicked off the website entirely, and returned to the writing document to put this all down. But even though the video was gone, I could still hear that same raspy breathing, as well as the sound of a door creaking open. I lowered my phone enough that I could see my bedroom door behind it. I swear I closed it before getting into bed. But it was now open. Exactly like in the video. The only difference was that in the video there was nothing behind the door, but in my room, I could see two white beady eyes, peering through the crack, staring directly at me.
+The door in the video looked exactly like my bedroom door, that was right in front of the foot of my bed. It had the same posters I did and in the same spot too. I was freaked out now and exited the website entirely, before returning to the writing document to put this all down. But even though the video was gone, I could still hear that same raspy breathing, as well as the sound of a door creaking open. I lowered my phone enough that I could see my bedroom door behind it. I swear I closed it before getting into bed. But it was now open. Exactly like in the video. The only difference was that in the video there was nothing behind the door, but in my room, I could see two white beady eyes, peering through the crack, staring directly at me.
 
   
 There is nothing to be scared of,
