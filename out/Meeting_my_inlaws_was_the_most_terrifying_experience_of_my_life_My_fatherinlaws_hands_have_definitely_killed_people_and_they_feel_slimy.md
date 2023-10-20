@@ -104,6 +104,12 @@ I looked back and forth between them, trying to guess the worst thing they could
 
 “There’s a problem,” Lacey explained. “Too many of them have broken through, and we can’t [keep them out on our own](https://www.facebook.com/P-F-McGrail-181784199029462/).”
 
+--------
+
+[The breakthrough](https://redd.it/17c9f3h)
+
+-----------
+
 [BD](https://www.reddit.com/r/ByfelsDisciple/)
 
 
