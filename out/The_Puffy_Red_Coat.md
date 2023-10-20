@@ -119,7 +119,7 @@ My eyes shot up to the TV on the wall just in time to see the start of the rolli
 
   
 I stood there in shock. This family was close to mine, now they were dead.   
-Once I regained control of my body, I grabbed a hold of the door handle to go let my parents know the awful news but then I saw something popped up on the screen so I halted my action and listened. 
+Once I regained control of my body, I grabbed a hold of the door handle to go let my parents know the awful news but then I saw something pop up on the screen so I halted my action and listened. 
 
   
 "Police have not yet released details about the state of the victims, but have provided a couple of pictures of items that have been found in the apartment."
