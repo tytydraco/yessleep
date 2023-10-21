@@ -16,7 +16,7 @@ This door had been broken down too. I looked back and saw Williams stand there w
 
 Personally I preferred that. I like being able to work by myself. I walked in and the smell of blood was upped ten fold, but there wasn’t that familiar smell of a corpse. Just blood. I looked around and immediately realized why. Laying on the bed was a bloody skeleton. There was no flesh. Just blood and bone. I was confused. Judging by how fresh the blood was, this couldn’t have happened more than a day or two ago.
 
-I looked around for more evidence of would could have done this, an found more claw mark, and more of those damn hoof prints. After a while of looking around the room, and exploring the rest of the dilapidated house officer Williams said, “It’s probably best we get going” I agree with him on that, something about that house felt wrong.
+I looked around for more evidence of what could have done this, a found more claw mark, and more of those damn hoof prints. After a while of looking around the room, and exploring the rest of the dilapidated house officer Williams said, “It’s probably best we get going” I agree with him on that, something about that house felt wrong.
 
 As we went to leave, right before we were gonna say our goodbyes there’s was a loud crash that sounded like shattering glass. Both of us instinctively took out our guns and pointed them at the house. We slowly made our way in and we heard the sound of crunching bone. It was coming from the bedroom. I looked inside and what I saw still haunts me to this day. There was a tall pitch black figure with long claws sharp fangs, and a deer skull for a head. But worst of all, it had glowing white eyes. The horrible thing was eating the skeleton that had been laying on the bed. The it turned to me.
 
@@ -32,4 +32,4 @@ This feeling wouldn’t go away so I kept looking, then I saw it. Two glowing wh
 
 But this kept happening. I would feel like I was getting watched and it would at me through the windows. For day I was terrified of looking outside even during the day. Each time the eyes would get closer. \*Bang Crunch\*
 
-Looks like that thing finally broke through the door. If you find this, run and hide. That thing might still be here. And if it is \*sounds of screeching and loud footsteps\* you‘re next. \*A loud demonic shriek and then the audio cuts out.
+Looks like that thing finally broke through the door. If you find this, run and hide. That thing might still be here. And if it is \*sounds of screeching and loud footsteps\* you‘re next. \*A loud demonic shriek and then the audio cuts out\*
