@@ -113,7 +113,15 @@ The comment replies weren’t any better. All of them just repeated “Zældör 
   
 
   
-Did my phone get hacked? Was this because I clicked on those videos? What the hell is this? I was beginning to become more and more creeped out. It might seem ridiculous to you, but when you're alone, in the dark, and see stuff like this, you might feel different. I went to the app settings and clicked on my watch history. Sure enough, all of the videos that I watched were there.
+I had even more questions then before.
+
+*Did my phone get hacked?*
+
+*Was this because I clicked on those videos?*
+
+*What the hell does precongulation even mean?!*
+
+I was beginning to become more and more creeped out. It might seem ridiculous to you, but when you're alone, in the dark, and see stuff like this, you might feel different. I went to the app settings and clicked on my watch history. Sure enough, all of the videos that I watched were there.
   
 
   
