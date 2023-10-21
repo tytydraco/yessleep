@@ -22,7 +22,7 @@ Today started like any [other](https://www.youtube.com/watch?v=MGd1F6Ay8ho): a s
 
 "Hey, Mandy. What's going on?" I ask, my curiosity piqued.
 
-"We've got a 419," she says, her tone somber. The code 419, it's not something we hear every day. It means a dead body has been found. 
+"We've got a 419," she says, her tone somber. The code 419, it's not something we hear every day. It means a dead body has been found.
 
 "Where at?" I inquire, my grip on the steering wheel tightening.
 
@@ -177,5 +177,170 @@ Izzy and I exchange a final look, a silent agreement that whatever's happening i
 I turn to her, "You coming?"
 
 She raises an eyebrow, a hint of determination in her eyes. "Lead the way."
+
+—  
+The desert sprawls out in front of me as I navigate the rough terrain back to the cruiser. Izzy's SUV follows closely behind. The wind, a constant companion in the open land, whistles quietly as it kicks up small swirls of dust in our wake. I can't shake the unease simmering within me as we drive through the stark landscape towards Tsegi, where an unknown situation awaits us.
+
+  
+I pull up in front of the modest dwelling from where the call originated. Izzy parks a few feet behind and steps out, scanning the area cautiously. The house appears unassuming, a quaint abode amidst the vastness of the desert. The screen door sways gently, emitting a creaking sound that echoes faintly in the stillness of the night.
+
+  
+Before we can approach, the front door creaks open. A woman emerges, her hair in disarray and eyes wild with a mixture of fear and recognition. It's Margaret Yazzie. I've known her for years; she's always been a sturdy, unshakeable pillar in the community. To see her like this—frail and trembling—is unsettling.
+
+  
+"Logan," she gasps, her eyes locking onto mine with an intensity that belies her fragile demeanor.
+
+  
+"Maggie," I respond, instinctively moving towards her, "what happened?"
+
+  
+As I get closer, I notice the worry lines etched deeply into her face. Her eyes flicker towards Izzy, a slight frown forming on her forehead. "Who's this?"
+
+  
+"Special Agent Isabelle Ramirez," Izzy interjects smoothly, showing her badge.
+
+   
+“The FBI?” Maggie asked nervously.
+
+  
+"She's helping with another case," I say quickly, trying to assuage her fears. "But given the circumstances, we believe they might be related."
+
+  
+Maggie's gaze shifts between Izzy and me, uncertainty clouding her eyes. "Alright, if you say so, Logan," she finally murmurs.
+
+  
+Izzy's voice is soft but firm. "May we come in?"
+
+  
+Maggie hesitates for a heartbeat, giving Izzy a once-over before finally nodding. "Yeah, sure."
+
+  
+As we step into the house, the scene that unfolds before us is chaotic. Furniture is overturned, vases and photo frames shattered on the ground, and curtains torn. It's as if a whirlwind has passed through the living area.
+
+  
+Maggie wrings her hands, her gaze flitting over the destruction. "I never thought I'd see my home like this," she says quietly, her voice quivering.
+
+  
+Taking a deep breath, I gently ask, "Maggie, can you tell us what happened?"
+
+  
+She swallows hard, eyes darting to the broken window. "I was preparing dinner when I heard a noise outside. At first, I thought it was just the wind or some animals. But then I heard a thud, like someone trying to get in. Before I could even react, he was inside."
+
+  
+"He?" Izzy questions.
+
+  
+Maggie nods. "A man, but not like any I've ever seen. His eyes were wild, almost glowing in the dim light, and his movements were... erratic. Like a wild animal trapped in a man's body. He didn’t say anything, just made these... guttural noises."
+
+  
+Chills run down my spine as she describes the intruder. It sounds eerily similar to some of the old Navajo legends, but it's hard to believe such tales could be true.
+
+  
+"Did he harm you?" Izzy asks, concern evident in her tone.
+
+  
+Maggie shakes her head, her fingers absently touching her throat. "No, he just... ransacked the place. I hid in the pantry, praying he wouldn't find me. And after what felt like hours, he just left."
+
+  
+"Did you recognize him at all?" I ask.
+
+  
+She hesitates for a moment, her eyes distant. "His features were obscured, but there was something oddly familiar about his presence. But I can't place it."
+
+  
+Izzy kneels, examining the footprints left on the floor, the same elongated shape that transitions into a paw-like pattern. "These prints," she murmurs, "they're the same as the ones we found at the crime scene."
+
+  
+Maggie shifts uncomfortably as Izzy examines the footprints. Her gaze flits between us, an unease growing in her eyes.
+
+  
+I watch intently as Izzy's fingers trace the outline of the footprints. The room is tense, the only sound the distant hum of a ceiling fan. A realization slowly dawns on me, a cold, sinking feeling in my stomach. The footprints lead into the house, but none lead out.
+
+  
+If the intruder had come in but hadn’t left, where was he now? 
+
+  
+The realization hits me like a ton of bricks. My heart races, and I instinctively reach for my sidearm. Izzy, sensing the shift in the atmosphere, quickly stands and locks eyes with me. We both scan the room, the weight of our earlier observation settling heavy on our shoulders.
+
+  
+"Maggie?" I call out, trying to keep the tremor out of my voice.
+
+  
+There's no response. The room is eerily silent, save for the soft hum of the ceiling fan above. My eyes dart to the back door, hoping she might have slipped out unnoticed, but the door remains firmly shut.
+
+  
+With every instinct screaming at me, I cautiously approach the pantry where Maggie had said she'd hidden earlier. The door is slightly ajar, and I can see a dim light filtering from inside. I signal for Izzy to stay back as I slowly push the door open.
+
+  
+The light from the pantry casts long, creeping shadows on the floor, painting the room in an eerie glow. As the door creaks open, a metallic scent — thick and suffocating — fills the air. The unmistakable smell of blood.
+
+  
+Inside, a scene of pure horror unfolds. The walls are smeared with dark, fresh blood, pooling onto the floor beneath a crumpled figure. It's a body, skin removed in a manner far too familiar, leaving only raw, bloody muscle. The ghastly sight churns my stomach, bile rising in my throat.
+
+  
+The facial features, what little remain of them, are unrecognizable. But there's no doubt. The size, the clothing remnants, the jewelry. This is Maggie. Or, rather, what was left of her.
+
+  
+I take a staggering step back, hand covering my mouth, trying to suppress a scream. Izzy, hearing my reaction, pushes past me to see the grotesque sight. Her face drains of color, her composed demeanor shattered by the unspeakable horror before her.
+
+  
+The sudden realization that the 'Maggie' we'd been talking to wasn't Maggie at all fills me with a deep, gut-wrenching dread. Every instinct screams at me to move, to react, but I'm paralyzed, locked in a trance by the horrific sight before me. 
+
+  
+A chilling whisper dances in the air, making the tiny hairs on the back of my neck stand on end. "You shouldn’t have come here," it hisses. 
+
+  
+I whip around, eyes darting across the room to locate the source of the voice. That's when I see her, or rather, it — a grotesque parody of Maggie. Her once soft features are twisted in a cruel mockery, eyes gleaming a feral yellow, her mouth twisted in an inhuman snarl, displaying teeth that are far too sharp. 
+
+  
+Without warning, she lunges at Izzy, who's still standing by the pantry entrance. Her movements are swift, unpredictable, and unnervingly silent. Izzy, caught off guard, barely manages to sidestep, avoiding a swipe that would've likely ripped her throat open. The imposter's momentum carries her into the pantry, crashing into the blood-smeared walls. 
+
+  
+Using the momentary distraction, I draw my gun, but my hands tremble, my sights blurring from the adrenaline pumping through my veins. Before I can steady myself and take aim, the imposter Maggie is on the move again, her form blurring as she darts towards me. 
+
+  
+A powerful force hits me square in the chest, sending me sprawling onto the ground. My gun skids out of reach, and I'm left defenseless. She straddles me, her grotesque visage inches from mine, the foul stench of decay assaulting my nostrils. Her fingers, tipped with nails that resemble razor-sharp claws, dig into my shoulders, pinning me down.
+
+  
+The weight of the imposter pressing down on me is suffocating, and I can feel the icy chill of her breath against my face. 
+
+  
+Through the haze of fear, I catch a glimpse of Izzy to my side, her sidearm trained on the imposter, her expression a mask of concentration. But I can see the uncertainty in her eyes — she's trying to find a clear shot without risking hitting me.
+
+  
+"Shoot!" I gasp out, feeling the imposter's claws start to pierce the skin on my shoulders, warm blood trickling down. But the creature's unpredictable movements and our proximity to each other make it impossible for Izzy to get a clear line of sight.
+
+  
+The creature's eyes, a kaleidoscope of predatory focus, seem to see through me, into my very soul. Her grin stretches, revealing rows of teeth that look sharp enough to tear through bone with ease. As I watch, those teeth inch closer, dripping with a dark liquid that I can only assume is blood.
+
+  
+But then, a memory flashes into my mind. The taser. Clipped to my belt and forgotten in the heat of the moment. With all the strength I can muster, I manage to free one arm, reaching desperately for the device. I feel the cool metal in my grip just as the creature leans in, her grotesque mouth opening impossibly wide, ready to take a bite.
+
+  
+Without hesitation, I jam the taser into her side and squeeze the trigger. A deafening crack fills the air as the taser unloads its charge, arcs of electricity dancing across her body. The creature screams, a sound so shrill and inhuman it's almost deafening. Her grip on me loosens, her body convulsing with the force of the shock.
+
+  
+Izzy, seizing the opportunity, fires her gun. The shot rings out loud and clear. The bullet grazes the creature's shoulder, sending a spray of dark, thick blood splattering across the room. With another guttural scream, the creature pushes off me, scrambling away with an unnatural speed. Its movements are erratic, a blend of human desperation and animalistic panic.
+
+  
+Before Izzy can fire another shot, the creature lunges at her with startling speed, knocking her off her feet with a powerful shove. The impact sends Izzy crashing into a nearby bookshelf, books and keepsakes raining down around her. The creature doesn't linger, instead darting towards the broken window and leaping out in a single bound.
+
+  
+The silence that follows is deafening.
+
+  
+Panting, I pull myself up into a sitting position, trying to process what just happened. The stench of blood — both mine and the creature's — fills my nostrils, and the metallic taste coats my tongue.  
+My eyes darts to Izzy. She groans, slowly trying to get to her feet, clutching her arm where it had made contact with the hard wooden edge of the bookshelf. Blood trickles down from a fresh gash on her temple.
+
+  
+"Are you okay?" I manage to ask, though my own voice sounds distant, as if from a far-off dream.  
+Izzy nods weakly, taking a deep breath. "Yeah, I think so. What... what the hell was that?"
+
+  
+I shake my head, unable to find the words to describe the impossible events we'd just witnessed. The stories of skinwalkers and shape-shifters, tales I'd grown up hearing, seemed all too real now.
+
+  
+"I don't know," I admit, my voice trembling, "but we need to find it."  
+
 
 [X](https://www.reddit.com/r/PageTurner627Horror/)
