@@ -206,4 +206,4 @@ There was a girl sitting on her bed. She was wearing a blue nightgown. Old fashi
 
 The Exorcist.
 
-&#x200B;
+Part 4: https://www.reddit.com/r/nosleep/comments/17cgzs8/a_serial_killer_is_copying_horror_movies_part_4/?utm_source=share&utm_medium=ios_app&utm_name=iossmf
