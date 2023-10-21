@@ -4,7 +4,7 @@ I must’ve been six or seven when I met Mr. Lickety-Split. I was sitting in the
 
 I looked up from my mandala and there was Mr. Lickety-Split. He was spindly, with neatly coiffed gray hair and a wide smile too perfect to be anything other than dentures in a man his age. His features were vaguely British, and he wore a tux with tails that had clearly been cut to the fashions of another time and place. But Mr. Lickety-Split’s most spectacular feature were his blue-green eyes: They had these sparkly celestial swirls, like something that the Hubble Space Telescope would capture an image of. Something about his mien and his posture seemed playful, inviting.
 
-“Hey -” I exclaimed, ecstatic at the thought that my prayers for a human friend had finally been answered.
+“Hey -” I exclaimed, ecstatic at the thought that my prayers for a friend had finally been answered.
 
 Mr. Lickety-Split brought his index finger up to his lips: the signal for quiet. I nodded, then looked over into the other room to verify that Jeanine hadn’t noticed anything. Mr. Lickety-Split introduced himself, and then he made me a proposition:
 
