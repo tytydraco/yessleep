@@ -36,11 +36,11 @@ I read the 1942 dated article.
 
 *“She said that she was a Scott, right?”* I thought I must have misheard her when she spoke to me in a whisper.
 
-The next few days turned into a week, a week to a few months, and we grew our friendship. I saw her while passing, the same place we met for the first time in September.
+The next few days turned into a week, a week to a few months, and we grew our friendship. I saw her last period during passing, the same place we met for the first time in September.
 
-“Hi again, Psyche.” She spoke. Her coat was a darker red than yesterday. Odd. We weren't in the dark or anything, but it was darker. It was more of a crimson red than a bright red.
+“Hi again, Psyche.” She spoke. Her coat was a darker red than rhe previous day. Odd. We weren't in the dark or anything, but it was darker. It was more of a crimson red than a bright red.
 
-“Hey, weird question, your last name is Scott right?”\\
+“Hey, weird question, your last name is Scott right?”
 
 “Yeah, why?”
 
