@@ -265,3 +265,7 @@ She stood before us now, fully healed, her clothes new and unburnt. She had an e
 
   
 As he crossed the threshold of the door, Melissa pulled her hand from behind her back, revealing a huge, blood-stained butcher’s knife. Raising it high, she ran forward, her eyes as cold as the vast empty spaces between worlds.
+
+Part 3
+
+https://www.reddit.com/r/nosleep/comments/17dlram/i_found_my_familys_corpses_buried_in_the_forest/
