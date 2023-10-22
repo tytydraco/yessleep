@@ -1,4 +1,6 @@
-Part 2: https://www.reddit.com/r/nosleep/comments/17c2872/i\_found\_the\_original\_chemical\_x\_part\_2/
+Part 2: [https://www.reddit.com/r/nosleep/comments/17c2872/i\_found\_the\_original\_chemical\_x\_part\_2/](https://www.reddit.com/r/nosleep/comments/17c2872/i_found_the_original_chemical_x_part_2/)
+
+Part 3: https://www.reddit.com/r/nosleep/comments/17dhv3u/i\_found\_the\_original\_chemical\_x\_part\_3/
 
 Do you remember The Powerpuff Girls? It was an old show from the late 1990’s and early 2000’s about three little girls with the powers of Superman who were made in a lab by a professor to fight crime. Sounds weird when you spell it out, doesn’t it? Well, it’s even weirder when you watch the show.
 
