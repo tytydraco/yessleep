@@ -126,6 +126,8 @@ She took another deep breath, then went to her closet to what I assumed that she
 
 A bright red light emerged from the book and it shot into the sky, it broke her roof and pulsated in the air.
 
+--------------------------------------------------------------------------------------------------------------
+
 I can't explain what happened next, it was too unfathomable, so to speak. All I knew was that this red orb of some sort of magic caused something in this specific universe.
 
 Universes across space and time were not affected, just this one. Traveling from place to place isn't so hard, *once you’ve got the hang of it.*
