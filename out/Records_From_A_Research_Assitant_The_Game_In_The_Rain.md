@@ -1255,3 +1255,7 @@ Still, I suppose it is a nice change of pace and he seems friendly enough. I wan
 &#x200B;
 
 Hopefully, my dreams will be Ludus-free. This is [Zane,](https://www.reddit.com/r/StoriesFromRose/) signing [out.](https://www.threads.net/@rose_black2222)
+
+&#x200B;
+
+[https://www.reddit.com/r/nosleep/comments/17dpgoh/the\_cursed\_contest\_tapes\_part\_6\_trick\_r\_treat/](https://www.reddit.com/r/nosleep/comments/17dpgoh/the_cursed_contest_tapes_part_6_trick_r_treat/)  (At least Ludus knows how to be festive apparently.)
