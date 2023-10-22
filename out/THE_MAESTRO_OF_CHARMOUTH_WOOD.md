@@ -314,4 +314,6 @@ We went blindly, Jacob’s flashlight bobbing up and down as we cut a stumbling 
 
 But that was a lie. The truth was, I knew exactly what we’d just seen– and I was almost certain Jacob knew too. After all, we’d lit the candles. We’d followed the sigils. We’d navigated by the decapitated head of our dead friend, and then at the end we’d even heard the decrepit scream of music. His music. 
 
-The Maestro of Charmouth [Wood.](https://www.reddit.com/r/TalesFromTheCryptid/comments/jba8ww/story_master_list/)
+The Maestro of Charmouth [Wood.](https://www.reddit.com/r/nosleep/comments/17e50wa/the_night_i_found_the_maestro_of_charmouth_wood/) 
+
+[MORE](https://www.reddit.com/r/TalesFromTheCryptid/comments/jba8ww/story_master_list/)
