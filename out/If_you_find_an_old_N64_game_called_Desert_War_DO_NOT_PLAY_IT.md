@@ -66,7 +66,7 @@ I woke up, trembling and soaked in sweat. *God*, I thought, *that was a weird as
 
 I  headed into the shop around noon. My colleague, José, was already there when I arrived, staring intently at his laptop.
 
-“You’ve seen the news?” he asked. “Some jogger found the body of a kid at Lake Laurel at like 4 this morning.”
+“Hey Dave, have you seen the news?” he asked. “Some jogger found the body of a kid at Lake Laurel at like 4 this morning.”
 
 I shook my head.
 
@@ -74,7 +74,7 @@ I shook my head.
 
 “I don’t, didn’t move here till ’06.”
 
-“It was nuts, man. I went to the same school he did—Paly, Palo Alto High School. There was talk that there was a serial killer. I was in 9th grade then, and my parents basically put me under house arrest, couldn’t even walk to school on my own. But there were no other disappearances, so people slowly forgot about it. No trace of him was ever found. Until today.  Since all that’s left of him is a skeleton, they are going to try to use dental records to make a positive ID.”
+“It was nuts, man. I went to the same school he did—Paly, Palo Alto High School. There was talk that there was a serial killer. I was in 9th grade then, and my parents basically put me under house arrest, couldn’t even walk to school on my own. But there were no other disappearances, so people slowly forgot about it. No trace of him was ever found. Until today.  Since all that’s left of him is a skeleton, they are going to try to use dental records to make a positive ID. God, man, I've got two daughters. Hope there's not a killer on the loose.”
 
 “Jesus,” I said. I wondered if Jason’s brother was the guy who came in yesterday. That would be one hell of a coincidence.
 

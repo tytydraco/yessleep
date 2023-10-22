@@ -88,7 +88,9 @@ I landed on one of the rose bushes, its thorns cutting through my clothes. I was
 
 I had a handgun stored in a safe on my bedside table. I planned to retrieve it before I went to sleep, hoping that it would be transported back to video game land with me, hoping that it would be effective against the skeleton. However, I didn’t even make it out of my garage before I passed out.
 
-I was back on the same race course as before. I knew I could not win this level by conventional means. But my attempts to ram the skeleton’s rocket were ineffective—there was no collision detection, my rocket just passed right through his.
+I was back on the same race course as before. Well, nearly the same. The movement of the asteroids seemed slightly choppier than before, the graphics—already poor—were even less detailed. But it was clearly the same track.  
+
+ I knew I could not win this level by conventional means. But my attempts to ram the skeleton’s rocket were ineffective—there was no collision detection, my rocket just passed right through his.
 
 What I needed to find was a power-up or a shortcut. I had played enough games that I knew what to look for. As I progressed along the course, I looked for an asteroid that looked slightly different, or a line of static on the track that could represent a hidden shortcut, but found nothing. I continued along, hoping I’d see something, but never did. Like the night before, I was about to cross the finish line, when the skeleton materialized in front of me and my rocket exploded.
 

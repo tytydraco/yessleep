@@ -124,7 +124,7 @@ The scale also changed between the pages. On some, Aleister was taller than Alic
 
 Finally, they arrived at the top of the tower. Against one wall was an impossibly tall bookshelf. As Aleister was climbing a ladder, trying to reach an immense tome on its top shelf (*Danmark* by Benjamin Thor Zilberman), the floor gave way. After falling in darkness for several pages, the children awoke on a forest floor, surrounded by singing gnomes and pipe-playing pixies.
 
-There wasn’t much text—I think there were several 30-page spans without a single word on any of the pages—so the story was a little hard to follow, but the jest of it was that Alice and Aleister got transported to the land of Nooslyvania—a magical kingdom ruled by a ‘benavolint \[sic\]  cow’, King Moo (even though he is male, he, for some reason, needed to be milked), and his consort, Queen Neigh, a unicorn with a neon horn. However, one day, the peaceable kingdom is invaded by an army of evil cane toads, led by the ‘dispicabul \[sic\] General Hoppy.’
+There wasn’t much text—I think there were several 30-page spans without a single word on any of the pages—so the story was a little hard to follow, but the jest of it was that Alice and Aleister got transported to the land of Noosylvania—a magical kingdom ruled by a ‘benavolint \[sic\]  cow’, King Moo (even though he is male, he, for some reason, needed to be milked), and his consort, Queen Neigh, a unicorn with a neon horn. However, one day, the peaceable kingdom is invaded by an army of evil cane toads, led by the ‘dispicabul \[sic\] General Hoppy.’
 
 Instead of doing battle with the cane toads, the siblings spent most of their time frolicking in the forest with jolly centaurs and dancing with elves on giant toadstools. Not much in the way of a story. And not much in the way of clues. I was sure that there was some secret hidden in the pages that would point to the house’s location, but I was having no luck finding it.
 
@@ -184,4 +184,4 @@ It was not mentioned in the paper, but I knew Frank was the killer. He had kille
 
 I retrieved my handgun and embarked on the two-hour drive to Modesto, arriving at the house a little before five.  On my drive over, I had questioned if Frank would be here. But from a live oak tree in the front lawn, a skeleton was hanging. A skeleton wearing a green sorcerer’s hat.
 
-Frank was here. And he was expecting me. 
+Frank was here. And he was expecting me.
