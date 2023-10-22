@@ -96,13 +96,15 @@ She paused, took a deep breath, then spoke.
 
 “You *have* heard my name before. One of my very distant relatives was Margret Scott. My family was once involved in very bad cult-like activities. This was something that we had to do to be initiated, so to speak. When I was younger, my mother was involved in the cult. All of the women in my family are involved in this rite of passage. They all..”
 
-She was on the brink of tears, shivering with fear.“T-They all had to be b-burnt to be initiated. W-When I was a child, m-my mother gave me up to the l-leaders and they dunked me into lighter fluid instead of baptismal water a-a-and t-they..”
+She was on the brink of tears, shivering with fear.
+
+“T-They all had to be b-burnt to be initiated. W-When I was a child, m-my mother gave me up to the l-leaders and they dunked me into lighter fluid instead of baptismal water a-a-and t-they..”
 
 She fell to the floor, sobbing. I ran over to her and took her in my arms.
 
 “Hey hey, look. It's okay. If you thought that I would make fun of you for this, I would never do that. If you don't want to show me-”
 
-“No, I do. I have to show you. I need to show you.” She silently said, snuffly.
+“No, I do. I *have* to show you. I *need* to show you.” She silently said, snuffly.
 
 “Okay, take your time though. As much as you need.”
 
@@ -116,7 +118,9 @@ Her shoulders looked charred and almost black, they had healed blisters and were
 
 She took another deep breath, then went to her closet to what I assumed that she was going to get a shirt, or a pair of pajamas.
 
-“I'm almost 17 ***fucking*** years old, I have moved on. I want to get back at these idiots who caused all this harm to the women in my family, once and for all.”I was wrong. From her closet, she took out a book from the top shelf. It was a dark purple and had intricate designs on the spine. I couldn't read what it was, I couldn't even identify the language. Then a blue-purple light emerged from her hand. She began to levitate off the ground and into the air, then spoke.
+“I'm almost 17 ***fucking*** years old, I have moved on. I want to get back at these idiots who caused all this harm to the women in my family, once and for all.”
+
+I was wrong. From her closet, she took out a book from the top shelf. It was a dark purple and had intricate designs on the spine. I couldn't read what it was, I couldn't even identify the language. Then a blue-purple light emerged from her hand. She began to levitate off the ground and into the air, then spoke.
 
 ***”àtinrete'lla onif amina orol allen àrramir otseuQ.***  
 ***eznereffos ,ainoga ,iroloD...***  
