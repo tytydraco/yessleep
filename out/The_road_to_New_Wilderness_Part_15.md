@@ -1,6 +1,6 @@
 [\[Part 14\]](https://www.reddit.com/user/RandomAppalachian468/comments/1778wpt/the_road_to_new_wilderness_part_14/)
 
-[\[Part 16\]](https://www.reddit.com/r/nosleep/comments/179a1wr/the_road_to_new_wilderness_part_16/)
+[\[Part 16\]](https://www.reddit.com/user/RandomAppalachian468/comments/1799lkf/the_road_to_new_wilderness_part_16/)
 
 Rough hands threw me down, and pain shot up my kneecaps.
 
