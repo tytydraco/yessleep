@@ -310,7 +310,7 @@ A large ‘A’ appeared over the left branch, a ‘B’ over the right.
 
 “Dave,” José cried. “Help me, please. Press B, please, please...”
 
-I looked around, tried to find some plug I could yank out, some way to end Frank’s sadistic game, but there was nothing. The alarm got louder and louder.
+I looked around, tried to find some plug I could yank out, some way to end Frank’s sick game, but there was nothing. The alarm got louder and louder.
 
 “Five,” Frank’s voice yelled.
 
@@ -319,6 +319,10 @@ I looked around, tried to find some plug I could yank out, some way to end Frank
 “Three.”
 
 “Two.”
+
+“Press B” José begged. “There's a way, there's—"
+
+"One."
 
 I pressed the A button and the train veered to the left. As José struggled against his bonds, the locomotive crashed into one of the barrels and burst into flames. Both José and the cartridge caught alight. Soon after, Ed’s skeleton was also in flames. He started wailing, the same screams that I heard when he was dissolving in acid.
 

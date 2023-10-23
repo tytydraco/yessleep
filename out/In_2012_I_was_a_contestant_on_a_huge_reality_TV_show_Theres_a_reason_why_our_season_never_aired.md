@@ -1,4 +1,4 @@
-*"Did the lights just go out?*
+*"Did the lights just go out?"*
 
 That was my last thought, overwhelmed with panic. But that panic was fading, replaced by a numbness in my body and blood that should have scared me. 
 
@@ -137,7 +137,7 @@ I wasn't expecting him to get close, his nonexistent breath in my ear. He stunk 
 
 I panicked, navigating my gaze toward the wall. 
 
-"That's the right, *idiot*."
+"That's the left, *idiot*."
 
 Switching my eye movement, he let out a relieved breath. "They're hiding something from us," he hummed. "Things like *this* don't just happen, and they just tell us not to panic, like I didn't wake up fucking dead in the swimming pool with no memory and some fucked up teeth." Maybe I was imagining his breath grazing the back of my neck. "Find what they're hiding."
 
@@ -179,7 +179,7 @@ I nodded.
 
 "On September 6th 2012, two weeks ago, the first reported case of Cold fever was reported. Also known as the Vryko virus, taken from the Greek word Vrykolakas, the virus first emerged in Reykjavik, in Iceland, and soon spread to neighbouring countries. It was declared a public health emergency by the CDC, followed by a pandemic, after cases were reported in key countries around the world." 
 
-The voice paused for me to take this in– and I was. I was just struggling to figure out how this thing had spread globally after being found in one of Iceland of all places. "Sam, the Vryko virus does not work like influenza or SARS. The mode of transmission is bodily fluids. It is spread through the puncturing of the flesh from an infected individual's teeth. Infected people are reported to have undergone physical changes, such as developing a specific gland that is usually found in spiders and scorpions– as well as significantly sharper teeth."
+The voice paused for me to take this in– and I was. I was just struggling to figure out how this thing had spread globally after being found in Iceland of all places. "Sam, the Vryko virus does not work like influenza or SARS. The mode of transmission is bodily fluids. It is spread through the puncturing of the flesh from an infected individual's teeth. Infected people are reported to have undergone physical changes, such as developing a specific gland that is usually found in spiders and scorpions– as well as significantly sharper teeth."
 
 "You're talking about a bite." I said, when a screen flashed on. I was seeing empty cities, news screens all screaming about the so-called cold fever. 
 
