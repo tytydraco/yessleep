@@ -178,7 +178,9 @@ I turn to her, "You coming?"
 
 She raises an eyebrow, a hint of determination in her eyes. "Lead the way."
 
-—The desert sprawls out in front of me as I navigate the rough terrain back to the cruiser. Izzy's SUV follows closely behind. The wind, a constant companion in the open land, whistles quietly as it kicks up small swirls of dust in our wake. I can't shake the unease simmering within me as we drive through the stark landscape towards Tsegi, where an unknown situation awaits us.
+—
+
+The desert sprawls out in front of me as I navigate the rough terrain back to the cruiser. Izzy's SUV follows closely behind. The wind, a constant companion in the open land, whistles quietly as it kicks up small swirls of dust in our wake. I can't shake the unease simmering within me as we drive through the stark landscape towards Tsegi, where an unknown situation awaits us.
 
 I pull up in front of the modest dwelling from where the call originated. Izzy parks a few feet behind and steps out, scanning the area cautiously. The house appears unassuming, a quaint abode amidst the vastness of the desert. The screen door sways gently, emitting a creaking sound that echoes faintly in the stillness of the night.
 
