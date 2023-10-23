@@ -473,4 +473,5 @@ Paul’s foot was lying in another pool of blood, with the shackle still around 
   
 “Holy shit,” Vivi said.
 
-&#x200B;
+
+Part 5: https://www.reddit.com/r/nosleep/comments/17dd21c/a_serial_killer_is_copying_horror_movies_part_5/?utm_source=share&utm_medium=ios_app&utm_name=iossmf
