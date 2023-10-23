@@ -20,9 +20,19 @@ It didn't feel like water. Water wasn't warm, with a thicker consistency. It fel
 
 I remembered how to move, lifting my hand and catching stray drops. 
 
-Bright red smeared my fingers when I dazedly stared down at them, my body jolting suddenly. Blood. It shouldn't have had a smell, especially one that was the equivalent of sticking my head in my roommate's fire noodles. had a roommate. There was nothing attached to it, only a shadow in the back of my mind. The blood staining my hands stood out to me, like it was fake. Paint. I was suddenly aware of how dry my throat was. Scratchy. Like I hadn't drank in days. 
+Bright red smeared my fingers when I dazedly stared down at them, my body jolting suddenly. Blood. It shouldn't have had a smell, especially one that was the equivalent of sticking my head in my roommate's fire noodles. 
 
-I was staring down at my hand, trying to figure out if I wanted to lick my palm, or wipe it on my shirt, when a fourth drop hit. This time it smeared the edge of the hot tub. Three consecutive drips. I should have felt something. Panic. Confusion. Maybe fear, if my body got a hold of itself. 
+*I had a roommate.*
+
+There was nothing attached to it, only a shadow in the back of my mind. 
+
+The blood staining my hands stood out to me, like it was fake. Paint. 
+
+I was suddenly aware of how dry my throat was. Scratchy. Like I hadn't drank in days. 
+
+I was staring down at my hand, trying to figure out if I wanted to lick my palm, or wipe it on my shirt, when a fourth drop hit. This time it smeared the edge of the hot tub. Three consecutive drips. 
+
+I should have felt something. Panic. Confusion. Maybe fear, if my body got a hold of itself. 
 
 But no. Instead, my mouth burned. 
 
@@ -59,7 +69,9 @@ Leaning closer, I got a glimpse of half lidded eyes. Dried blood smeared across 
 I tensed up, my fingers gripping the edge of the faucet, my nose flaring. The stink of blood was suddenly overwhelming, suffocating my senses. There was someone outside, the thought hit me like a warning, a danger. And that person was… a threat. Still though, that didn't stop me from pulling the door open. It was the light that caught me off guard. Brighter and more intense than the bathroom, it was too overpowering, searing the back of my neck and back. 
 
 The hallway reminded me of a fun house. What had been yellow carpet stained with grisly entrails. The threat
-was a guy knelt a few feet away. I came to an abrupt stop, a thick paste creeping up my throat. At first, I thought he was crying. Maybe laughing. But the smell was too powerful, and just like me, this guy was being controlled by his own senses, taking advantage of the body in front of him. He was drinking, guzzling down pooling red stemming around a limp hand. I took a step forward. Somehow, I wasn't scared. Part of me wanted to join him, quenching that incessant itching in my throat. 
+was a guy knelt a few feet away. 
+
+I came to an abrupt stop, a thick paste creeping up my throat. At first, I thought he was crying. Maybe laughing. But the smell was too powerful, and just like me, this guy was being controlled by his own senses, taking advantage of the body in front of him. He was drinking, guzzling down pooling red stemming around a limp hand. I took a step forward. Somehow, I wasn't scared. Part of me wanted to join him, quenching that incessant itching in my throat. 
 
 He paused, lifting his head slightly. "I found her first," his voice was a low growl. "Get your own breakfast, dude."
 
@@ -71,7 +83,7 @@ The guy turned slowly, flashing me a grin. It was his teeth that stood out, shar
 
 There was something out of place, what I thought was glitter at first. 
 
-No, they were… icicles.
+No, they were icicles.
 
 Once I was seeing them, I couldn't stop seeing them. They clung to his lashes, hanging from his lip. Crystals of ice. 
 
@@ -113,7 +125,7 @@ Another step, and their eyes tracked my movement, the two of them shuffling unco
 
 The guy sighed. "Yes. *Newbie*. I was the first one awake, so naturally, I'm in charge of all of you. " he strode over to the two of them, climbed into the bed, and shuffled over to the girl. She didn't react, her eyes still glued to me. The kid ripped off the layers of duct tape over her mouth, and she didn't even flinch. 
 
-Before I could speak, he leaned closer. "Yep. Just as I thought. She's not done." he slapped the tape back over her mouth, and the girl made a whimpering sound. Moving onto the guy, the kid was more hesitant, instead prodding at the boy's neck. He wafted his finger like he was contagious, and I caught a singular I've crystal on his index. "He's almost done. I'll give him a few more hours."
+Before I could speak, he leaned closer. "Yep. Just as I thought. She's not done." he slapped the tape back over her mouth, and the girl made a whimpering sound. Moving onto the guy, the kid was more hesitant, instead prodding at the boy's neck. He wafted his finger like he was contagious, and I caught a singular ice crystal on his index. "He's almost done. I'll give him a few more hours."
 
 When the boy snarled at him, lunging forward, I noticed twin pricks in the duct-tape gag. He'd bitten through it. 
 
@@ -217,7 +229,7 @@ I should stop calling him a kid. He was 19 or 20. I was 21.
 
 I caught ice glistening on his upper lip. He smiled a fanged grin, and twisted around, leading me back to the bedroom–  or at least the door. "I think they're sleeping," he leaned against the wall, fixing me with a look. "Well?"
 
-I could only send him a questioning look, before he sighed. "Relax. There's no cameras down here." his lip quirked. "Let me guess," he kept his voice down, loudly coughing. "We're currently in a global pandemic that destroyed the world, a so-called *cold fever* turning people into vampires— and you're the only one who's immune, and you can't tell us. Oh, and that they're one-shotting all of us."
+I could only send him a questioning look, before he sighed. "Relax. There's no cameras down here." his lip quirked. "Let me guess," he kept his voice down, loudly coughing. "We're currently in a global pandemic that destroyed the world, a so-called *cold fever* turning people into vampires— you're the only one who's immune, and you can't tell us. Oh, and that they're one-shotting all of us."
 
 His words slammed into me, waves of ice cold water coming over me. "How do you know that?" 
 
@@ -231,4 +243,4 @@ The kid's eyes were dark, and I was reminded of the final stage of the cold feve
 
 … 
 
-So, to preface, YES I got out of this… situation. But holy shit was 2013 a rough year. It took me four straight months of therapy to understand we were NOT in a global vampire pandemic.
+So, to add, YES I got out of this… situation. But holy shit was 2013 a rough year. It took me four straight months of therapy to understand we were NOT in a global vampire pandemic.
