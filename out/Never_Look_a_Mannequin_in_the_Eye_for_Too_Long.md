@@ -2,7 +2,7 @@ It was about a year ago when the cold November rains started. I was working at a
 
 On those days, when it was cold and rainy, it always meant few customers. Sometimes none. We'd pass the time getting a headstart on inventory or some other mundane tasks. One day I was asked to dress the mannequin in the side window with the new line of clothes that had just come in.
 
-The side window faced a small parking area that itself was surrounded by trees. It was usually vacant or nearly so and there was just one single door leading from it into the store. Most of the merchandise in that part of the store was lame stuff that few people ever bought. This was a desolate, lonely part of the store that we had stated calling "the outskirts."
+The side window faced a small parking area that itself was surrounded by trees. It was usually vacant or nearly so and there was just one single door leading from it into the store. Most of the merchandise in that part of the store was lame stuff that few people ever bought. This was a desolate, lonely part of the store that we had started calling "the outskirts."
 
 I always got a strange feeling in the outskirts and tried not to spend much time there. There was never anyone around over there and it gave me the willy's. This day was no different. I climbed up in the window with the new outfit next to the mannequin and looked out onto the parking area. Not a car in sight.
 
