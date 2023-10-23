@@ -1,53 +1,77 @@
-This happened 14 years ago, and to this day i still consider my self lucky. The morning was cool as we loaded into the ambulance heading to a call at the edge of town. It was 6:12 am and it was still dark outside.
+  
+I worked late and was coming out of a Walgreens in the little shopping center in Glendale, Colorado.  
 
- We were called in by the police station saying that there were multiple wounded and a few dead at what seemed to be a farm. We didnt actually know what caused the injuries, but we made our way to the scene. 
 
-The address took us to a dirt road that lead us to a home that had 2 police cars outside with their lights on, but we didnt see any officers posted, there was no one there. The home was attatched to the farm that seemed to be either deserted or just really old, but my main focus was on the cop cars out front, typically when they were called to a scene there is at least a police officer guiding us to where we needed to go, but there was no one.
+It was pitch black dark, about 11:15 or so at night. The parking lot had just a few streetlights. As I was walking through the parking lot, I suddenly felt terrified, panicked, and anxious for my safety.  
 
- A situation like this could be dangerous, we could be heading into danger and not know it. The homes front door was open but there werent any lights on, there seemed to be blood on the front porch that lead into the house. 
 
-Hading been in the field for 18 months, i was pretty hardened by multiple calls with car crashes and even a triple homicide, but something about call was different, for the first time being on call i was actually afraid, i decided that rather than just sitting around that we should enter the home and try to find the injured people. 
+I quickly looked around for whatever had me feeling so afraid. I saw nothing to justify my fear. I hurried to my car, opened the door, turned on the ignition and pulled out of the parking lot. As soon as I pulled out into the street and headed to my house, about a half mile away, the feeling stopped.  
 
-I slowly entered the home with a flashlight and a medical bag, the blood that was on the porch lead into the home and up the stairs, i made my presence known but i got no response, i tried the lights but they didnt work, what was this place?
 
- As i searched the bottom floor clues i started to hear muffled sounds coming from upstairs, it sounded like something very heavy, being dragged across the floor. The other paramedics that were now with me also heard the sounds upstairs but they also seemed to feel scared. 
+I couldn't figure it out. Why had I suddenly felt so afraid in that parking lot? I replayed it in my mind, walking out of Walgreens, scanning the parking lot, walking a little further, turning left toward my car, then turning right at my car door. I had looked around quickly and carefully, looking for a person who might have me feeling so afraid. But nothing and no one had caught my attention.  
 
-We heard the dragging sounds continue upstairs slowly moving to the top stairs, not thinking i began to walk to the stairs to see if there was anyone there, the blood on the stairs was thick and it made it slippery since the floors were made with wood.
 
- i shined my light to the top of the stairs having no idea what to expect, i slowly continued forward with the other paramedics behind me. 
+But, then, the fear ended. And I drove home wondering what had triggered me to feel so afraid.  
 
-We were half way up the stairs when we saw a hand pull forward, a policeman who was on the ground, he continued to drag himself on the ground revealing that his lower half was missing. "Get out of here before it sees you" he said with extreme pain. 
 
-My medical training must have kicked in as i ignored his warning and i rushed to his aid at the top of the stairs. At the top of the stairs i could see what remained of the officer and the trail of blood that he produced that came to another set of stairs leading to what appeared to be the attic. 
+The next night I worked until 10:30 PM and as I walked toward my car again, suddenly feeling the terror and panic again. This time I looked around a little more carefully. Then I saw it! As I got to the edge of the parking lot where you turn to get to the street, about 10 yards to the right, near another store was a man. He was leaning over a trash receptacle, bent at the waist, his feet together, as if he was vomiting.  
 
-The 2 paramedics that were with me attended to the officer at the top of the stairs and i ventered slowly to the stairs of the attic.
 
- Above me i could hear sounds that im not able to describe, but they were terrifing in nature, sounds that i assumed to be grunts or something very large eating. My flashlight was the only thing illuminating my path in the long hallway leading to the attic stairs.
+I saw the man, felt a huge rush of terror, jumped into my car, turned the key, and flew out of the parking lot like a wild woman.  
 
- The hallway was long and unfurnished, i could see scratches on some of the walls and floors although blood covered most of the floor. 
 
-I had no idea what was happening here or more importantly what was still happening, but i assumed due to the blood and lack of personel at the scene that there were many that still required my help although scene was most likely dangerous.
+What was it about that guy that caused me such fear? Why had he triggered me? What was he doing that I could have interpreted as dangerous, threatening, or life-threatening?  
 
- Ive experienced violence before while on duty, many people while in shock can be aggressive and numb to pain while making subduing them quite the task. I wasnt necessarily preparing for violence although its never outside the realm of possibility. 
 
-I proceeded to the attic steps alone flashlight in hand, i was tempted to announce my presence but i decided against it, i had a feeling that i never experienced before, but the best was i could describe it was that i was about to meet the devil.
+Well, I was sure it was life-threatening because I immediately feared for my life. But I couldn't put it together. Why?  
 
- The literal embodiment of evil was up these stairs, i walked up the stiars slowly hearing sounds much clearer, sounds that didnt sound good. 
 
-I was about to reach the top of the stairs when i heard a loud sound coming from downstairs and a rushing of people entering the home. I quickly turned around and ran down the stairs over to the other paramedics and the officer that was in grave condition. 
+The next night, same situation. Work late, exit Walgreens, terror and panic. This time I turned to my left, before going to my car and went toward the man, looking more closely and carefully.  
 
-Coming up the stairs was a SWAT team in full gear. This wasn’t your average SWAT team, they looked like an FBI SWAT but none of them had the badge, every part of the body fully covered in different equipment and they carried Military grade weapons. 
 
-When they reached the top They ordered us all downstairs and told us to leave the officer. The officer was bandaged but unresponsive due to blood loss. They asked me "where is it" sternly, as if they knew what they were about to face, and i pointed to the attic stairs.
+As I walked toward him, I watched him closely. I didn't see any movement. The trash receptacle was in between two large columns so I couldn't see what he was doing behind it. I was 40 or 50 feet away, walking toward him. As I got about 30 feet away from him, I heard a strange sound.  
 
-They rushed the stairs leading to the attic with their weapons drawn and we went down the stairs. From the bottom floor we could hear screeching and gunfire coming from the attic, a lot of gunfire. 
 
-We were ushered outside by more members of the swat team, by this time the sun was starting to rise and not only did the swat team arrive, but also what seemed to be government officials in suits. 
+It was the sound of breathing. But not normal breathing. It was the sound of struggling, laboring breathing. As I got about 5 feet away, I couldn't take another step. I stopped, frozen, terrified, as this creature of a man raised up.  
 
-They pulled us aside and asked us questions. They asked us what we saw and who was all inside, we hadnt seen much so we told them the truth.
 
- I asked them "what was going on, what was inside", they didnt answer me and they told me to attend the people that theyll be bringing out. 
+He was very tall, 7 feet tall or more. He slowly straightened his body. He was skinny, with very long arms that came down to his knees. He was wearing black pants. His head was long, his hair was very long and gray, and he looked human. Except he had gray skin, the face of an old human. His eyes were large, like human eyes, but very, very pale and he seemed to be blind.  
 
-They brought out 7 bodies that day, 7 mangled bodies, none of them fully intact. From my understanding it seemed like they killed whatever was up there but I never got to see it.
 
-What happened here? What did they shoot in the attic? What was i about to see in the attic had the SWAT team not arrived? I’ve researched on what it could’ve been but the weirdest part that still lingers the most in my mind, the people who just stood there like nothing was going on whilst clearly hearing the horror inside the house, I’ll never forget the screeching. Im just glad that i was wasnt one of those bodies.
+As he raised up, he had blood running out of his mouth. He was licking it off his lips, and it was dripping all over him.  
+
+
+I couldn't move. I just stood there, looking up at him, 3 feet away. He stood perfectly still, not looking at me. Just licking the blood off his lips. Then he smiled. There was blood all over his mouth and teeth, and as he smiled, he looked terrifying.  
+
+
+It's a strange sensation to have terror coursing through your body, unable to move, yet frozen, watching a horror movie right in front of you.  
+
+
+He never said a word.  
+
+
+I was frozen in fear. Then, as if a switch had been flipped, I could move.  
+
+
+I turned around and ran to my car. Got in and raced out of the parking lot, heading toward my house.  
+
+
+Now what happened with this experience? Did I imagine it? Was it an illusion, or was I seeing something that was real? I've wondered these things over the years. The answer is simple.  
+
+
+What I experienced was real. It happened. But, was the creature real? What kind of creature was it? I don't have an answer. I can tell you what I saw and felt, but not what the man, the creature, the beast, or whatever he was, actually was.  
+
+
+So, what can I tell you about the encounter?  
+
+
+The feeling of terror was very real. It was a physical sensation of my entire body being afraid.  
+
+
+The feeling of being physically threatened was very real. That's what made me afraid for my life.  
+
+
+The visual component, seeing a very tall, skinny being, covered in blood, licking his lips, standing perfectly still 3 feet away, was real.  
+
+
+It may not have been human. It may have been something from another dimension or another realm. I can't tell you what it was. I can tell you that it happened, and it was real.  
