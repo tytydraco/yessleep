@@ -397,4 +397,4 @@ I swallowed and nodded. â€œLet's pack our things then. I think it's time to go.â
 
 
 
-*Part 4 tomorrow...*
+[Part 4](https://www.reddit.com/r/nosleep/comments/17e65cv/the_silver_tune_part_4/)
