@@ -142,7 +142,7 @@ The silence that follows is stifling, oppressive. Each one of us strains to hear
 
 Chester’s chanting has ceased, but now a different, chilling voice, dripping with malice, hisses out, “Hózhǫǫgii tsosts'idii...” (You're out of time...) A mimicry of Chester's warning.
 
-Suddenly, a heart-stopping scream pierces the air, followed by another, and then another. The terror in those screams is palpable, contagious, setting off a chain reaction of panic throughout the room. As if in response, a chorus of guttural, alien sounds rises up, surrounding us. The predator — or predators — have infiltrated us.
+Suddenly, a heart-stopping scream pierces the air, followed by another, and then another. The terror in those screams is palpable, contagious, setting off a chain reaction of panic throughout the room. As if in response, a chorus of guttural, alien sounds rises up, surrounding us. The predator — or predators — have infiltrated our redoubt.
 
 "Stay back!" I shout, brandishing my weapon, trying to pinpoint a target in the disorienting gloom. My voice cracks with a mix of determination and fear. Another scream, closer this time, is cut short with a grotesque gurgling sound.
 
@@ -152,7 +152,7 @@ I reach out, desperate to find Izzy, to ground myself in the chaos. My fingers g
 
 The cacophony is deafening — cries for help, shouts of warning, the terrible sounds of struggle. And overlaying it all, that inhuman hissing, mocking and gleeful.
 
-A beam of light suddenly slices through the darkness — a flashlight, wielded by someone brave or desperate enough to reveal themselves. In its glow, a scene from nightmares: a twisted, shadowy figure, half-human, half-beast, their skin a mottled, shifting mass, moving with unnatural speed and grace. Its eyes, voids of endless hunger, lock onto the light’s source. And then it pounces.
+A beam of light suddenly slices through the darkness — a flashlight, wielded by someone brave or desperate enough to reveal themselves. In its glow, a scene from nightmares: twisted, shadowy figures, half-human, half-beast, their skin a mottled, shifting mass, moving with unnatural speed and grace. Theirs eyes, voids of endless hunger, lock onto the light’s source. And then they pounce.
 
 The beam wavers and then falls, casting eerie, dancing shadows before plunging us once again into darkness. Another scream, quickly silenced.
 
