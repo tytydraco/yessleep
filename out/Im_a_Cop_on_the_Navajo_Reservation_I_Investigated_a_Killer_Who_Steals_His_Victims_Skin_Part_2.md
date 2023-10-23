@@ -152,7 +152,7 @@ I reach out, desperate to find Izzy, to ground myself in the chaos. My fingers g
 
 The cacophony is deafening — cries for help, shouts of warning, the terrible sounds of struggle. And overlaying it all, that inhuman hissing, mocking and gleeful.
 
-A beam of light suddenly slices through the darkness — a flashlight, wielded by someone brave or desperate enough to reveal themselves. In its glow, a scene from nightmares: twisted, shadowy figures, half-human, half-beast, their skin a mottled, shifting mass, moving with unnatural speed and grace. Their eyes, voids of endless hunger, lock onto the light’s source. And then they pounce.
+A beam of light suddenly slices through the darkness — a flashlight, wielded by someone brave or desperate enough to reveal themselves. In its glow, a scene from nightmares: a twisted, shadowy figure, half-human, half-beast, their skin a mottled, shifting mass, moving with unnatural speed and grace. Its eyes, voids of endless hunger, lock onto the light’s source. And then it pounces.
 
 The beam wavers and then falls, casting eerie, dancing shadows before plunging us once again into darkness. Another scream, quickly silenced.
 
