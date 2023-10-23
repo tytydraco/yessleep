@@ -58,4 +58,4 @@ Later a man in a black suit would show up at the Sheriff's office and I'd be rel
 
 But even now, years later, I still wake up in a cold sweat at night. I can still hear their screams. I can still see their faces staring at me in horror and disbelief as the beast pulled the girls out of the car, tore them with its claws, and bit into their necks. I can still see the blood on the window of my open driver's side door. I can still see that horn thrusting out of my buddy's chest at the gate as he dropped the bolt cutters and I climbed down the other side to safety.
 
-And I still have to admit to myself, that even though I carry a ton of guilt and shame at leaving them to die... I still have to admit that if I got a do-over, I'd do the same thing all over again. And if you saw what I saw, you would too.
+And I still have to admit to myself, that even though I carry a ton of guilt and shame for leaving them to die... I still have to admit that if I got a do-over, I'd do the same thing all over again. And if you saw what I saw, you would too.
