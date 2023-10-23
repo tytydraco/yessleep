@@ -159,7 +159,7 @@ I took a deep breath. "I didn't apply to be on this. There's been a mistake."
 
  A pause. 
 
-"Sam, you applied for Big Brother Canada on October 23rd, 2011, via the website. You were shortlisted on February 4th 2012, and officially entered the house on July 16th, 2012." 
+"Sam, you applied for Big Brother US on October 23rd, 2011, via the website. You were shortlisted on February 4th 2012, and officially entered the house on July 16th, 2012." 
 
 I shook my head. 
 
