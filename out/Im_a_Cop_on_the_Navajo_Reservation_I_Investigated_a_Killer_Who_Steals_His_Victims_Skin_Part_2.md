@@ -4,33 +4,33 @@
 
 With adrenaline still coursing through our veins, Izzy and I quickly regroup. I pull out a first-aid kit from my cruiser, cleaning and dressing our wounds as best as I can. The gash on Izzy's forehead looks deep, but she brushes off my concern, her eyes filled with a determination that mirrors my own.
 
-The chilling events of the evening left an indelible mark on our minds, but we couldn't afford to be paralyzed by fear. With a deep breath, I reached into the cruiser, grabbing the radio. "Mandy, this is Logan. Do you copy?"
+The chilling events of the evening leave an indelible mark on our minds, but we can't afford to be paralyzed by fear. With a deep breath, I reach into the cruiser, grabbing the radio. "Mandy, this is Logan. Do you copy?"
 
-After a moment, Mandy's voice crackled through, tinged with concern. "Logan, where've you been? The station's been trying to get a hold of you. Are you okay?"
+After a moment, Mandy's voice crackles through, tinged with concern. "Logan, where've you been? The station's been trying to get a hold of you. Are you okay?"
 
-I hesitated, considering how to relay the night's events. "Mandy, we've got a situation here. I need to speak with Chief Nakai immediately."
+I hesitate, considering how to relay the night's events. "Mandy, we've got a situation here. I need to speak with Chief Nakai immediately."
 
-There was a brief pause. "Hold on," Mandy replied, her voice wavering slightly, perhaps picking up on the urgency in my tone.
+There is a brief pause. "Hold on," Mandy replies, her voice wavering slightly, perhaps picking up on the urgency in my tone.
 
-After a few tense moments, the gruff voice of the police chief came through the radio. "Logan, it's Chief Nakai. What's going on?"
+After a few tense moments, the gruff voice of the police chief comes through the radio. "Logan, it's Chief Nakai. What's going on?"
 
-Taking a deep breath, I quickly explained the events with the Begays, the strange footprints, and the horrifying confrontation with what seemed like a doppelgänger of Maggie.
+Taking a deep breath, I quickly explain the events with the Begays, the strange footprints, and the horrifying confrontation with what seemed like a doppelgänger of Maggie.
 
-There was a long pause before the police chief responded. "Are you trying to tell me you confronted some sort of... [creature](https://www.reddit.com/r/nosleep/comments/1581vef/our_search_for_a_missing_teen_uncovered_the/)? That's... hard to believe."
+There is a long pause before the police chief responds. "Are you trying to tell me you confronted some sort of... [creature](https://www.reddit.com/r/nosleep/comments/1581vef/our_search_for_a_missing_teen_uncovered_the/)? That's... hard to believe."
 
-"Sir," I said, my voice firm, "I know how it sounds. But both I and the FBI liaison witnessed it. This isn't a joke. People are in danger."
+"Sir," I say, my voice firm, "I know how it sounds. But both I and the FBI liaison witnessed it. This isn't a joke. People are in danger."
 
-Nakai sighed. "I've heard the legends just like everyone else, but to think they might be real... Logan, give it to me straight. How serious is this?"
+Nakai sighs. "I've heard the legends just like everyone else, but to think they might be real... Logan, give it to me straight. How serious is this?"
 
-I didn’t mince words. "Sir, I think it's bad. Bad enough that we might need to initiate Dinétah Shield."
+I don't mince words. "Sir, I think it's bad. Bad enough that we might need to initiate Dinétah Shield."
 
-There was [another](https://www.youtube.com/watch?v=MGd1F6Ay8ho) heavy silence. Dinétah Shield was a protocol meant for dire emergencies, meant to rally the community against threats that were beyond the understanding of the typical law enforcement.
+There is [another](https://www.youtube.com/watch?v=MGd1F6Ay8ho) heavy silence. Dinétah Shield is a protocol meant for dire emergencies, meant to rally the community against threats that are beyond the understanding of the typical law enforcement.
 
-Finally, Chief Nakai responded, his voice heavy. "I understand. I'll need to consult with the tribal authorities, but I'll send all available officers to your location immediately. We'll set up a perimeter and make sure this... thing doesn’t get any further."
+Finally, Chief Nakai responds, his voice heavy. "I understand. I'll need to consult with the tribal authorities, but I'll send all available officers to your location immediately. We'll set up a perimeter and make sure this... thing doesn’t get any further."
 
-"Thank you, Chief," I replied, relieved. “Over and out.”
+"Thank you, Chief," I reply, relieved. “Over and out.”
 
-Izzy, having overheard my conversation with Chief Nakai, turned to me, her brows furrowed in confusion. "Dinétah Shield? What's that?"
+Izzy, having overheard my conversation with Chief Nakai, turns to me, her brows furrowed in confusion. "Dinétah Shield? What's that?"
 
 "Dinétah Shield," I begin, my voice shaky from the weight of our recent encounter, "was developed in the aftermath of the COVID outbreak that devastated our reservation. It's a protocol designed for rapid response to any significant threats to the Navajo Nation."
 
@@ -94,7 +94,9 @@ She nodded in agreement, her lips set in a grim line. "The FBI's surveillance eq
 
 A heavy realization dawned. Our enemy was not just elusive but potentially invisible in plain sight. The thought of that creature hiding among us, waiting for its next opportunity, sent shivers down my spine.
 
-"We need to hunker down for the night," I said.—
+"We need to hunker down for the night," I said.
+
+—
 
 The community center was a hive of activity. Children were herded to the center of the large hall, surrounded by parents and grandparents who whispered reassurances. Makeshift barriers were erected at the entrances, with men and women from the community taking shifts to stand guard. The aroma of strong coffee permeated the air, a silent acknowledgment that many wouldn't be getting any sleep tonight.
 
@@ -128,7 +130,7 @@ The room seems to grow [colder](https://www.reddit.com/r/nosleep/comments/14c93t
 
 Izzy, looking bewildered, turns to me. "What is he saying?”
 
-I whisper, trying to keep my voice steady, “He says, ‘Beware the one who goes on all four... The skinwalker is here...”
+I whisper, trying to keep my voice steady, “He says, ‘Beware the one who goes on all four... The skinwalker is here...'”
 
 Izzy's face turns ashen. "Skinwalker?"
 

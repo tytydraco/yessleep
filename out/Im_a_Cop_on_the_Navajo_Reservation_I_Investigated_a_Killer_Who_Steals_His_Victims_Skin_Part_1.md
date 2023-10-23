@@ -62,8 +62,7 @@ June clears her throat, hesitating. "We've heard whispers among the elders," she
 
 I frown, thinking about the substance abuse issues on the Rez. "You mean they're getting involved in drugs?"
 
-Eddie catches my expression. "Not drugs, Logan. This isn't about that."  
-June nods in agreement. "This is about dark magic, forbidden rites. Some of the youth are delving into things they shouldn't, trying to harness ancient powers for their own gains."
+Eddie catches my expression. "Not drugs, Logan. This isn't about that."June nods in agreement. "This is about dark magic, forbidden rites. Some of the youth are delving into things they shouldn't, trying to harness ancient powers for their own gains."
 
 "And you think this..." I gesture to the mutilated body, "...is the result of one of those rituals?"
 
@@ -286,5 +285,7 @@ Panting, I pull myself up into a sitting position, trying to process what just h
 I shake my head, unable to find the words to describe the impossible events we'd just witnessed. The stories of shape-shifters, tales I'd grown up hearing, seemed all too real now.
 
 "I don't know," I admit, my voice trembling, "but we need to find it."
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/17e4pr1/im_a_cop_on_the_navajo_reservation_i_investigated/)
 
 [X](https://www.reddit.com/r/PageTurner627Horror/)
