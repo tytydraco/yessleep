@@ -1,49 +1,118 @@
-Once upon a time before the first stones of any city had been laid. A man stood watch over the tribal fire his family slept beside and starred up at the sky, when to his wonder one of the stars broke from its place and fell down to the earth in a fiery splash.
+&#x200B;
 
-Though afraid, the man pressed himself on to investigate, and after making his way out of the forest to the ridge of cliffs and valleys found the spot where the star had pierced the earth.
-
-At the base of a small crater the man saw a shadowy figure emerge, by the shape of it the figure seemed to be trying to compose itself before noticing the encroaching rays of the sun, at which it fled at a panic towards the caves in the nearby cliffs.
-
-
-The man waited until sunlight filled every crevice of the valley before he himself moved an inch.
-
-
-He approached the cliffs where the figure had seemed to take refuge and crept up to the entrance of the large hollow cave.
+“It was already 2 in the morning when I left the bar. I couldn't find a place to stay for the night, so I was forced to take the highway to get back home.   
+It started to rain, nothing more than the usual summer rain.   
+  
+The effects of alcohol combined with the monotonous sound of the rain falling on the car made me feel drowsy.   
+I turned on the radio, but all I heard was distortion, except for a few segments of the road. I decided to turn it off.   
 
 
-With spear in hand the man approached the wraith, who in turn beckoned in the man further inside.
+I was about to lose a tough battle against sleep when I saw him. A man covered in a heavy black coat stood motionless in the rain on the side of the road.   
+  
+He was probably in the same situation as me but had thought that he could make it to his destination on foot.   
+I immediately felt sorry for him, wondering how long he had been waiting. Besides, I absolutely needed something to keep me awake, so some conversation would have surely helped.   
+  
+However, as I pulled over, I was overcome by a deep anxiety.   
+I attributed it to the effects of alcohol, the late hour, and the usual discomfort of letting strangers into your car.   
+"Need a ride?" I asked, lowering the window.   
+"Yes... thank you," he replied with the voice muffled by his coat and the rain.   
+  
+Only when he got into the car, I realized he had a heavy black leather(?) bag with him. He closed the door with a tug and remained silent.   
+  
+"So... where do you want me to take you?" I asked somewhat embarrassed.   
+"Keep going... I will tell you when to stop" he replied without even turning to look at me.   
+  
+I understood that there would be no conversation with this guy, but at least now I wasn't sleepy anymore.   
+  
+I turned on the radio, but the audio seemed even more distorted than before, and the few words I could make out didn't seem like anything that could come out of a person's mouth. The man in the coat turned it off without saying a word, and I didn't blame him. I continued to drive.   
+  
+We reached an intersection, and I finally managed to break the silence.   
+"Which way?" I asked, not hiding my curiosity.   
+He remained motionless for a few seconds, then said "Wait a moment, please."   
+After saying this, he leaned towards the black leather bag at his feet and opened it just enough to slide his hand inside.   
+  
+He pulled out an object I had never seen before. It resembled one of those old flip cell phones, but instead of a keypad, it had three levers and three black buttons; there was nothing where the screen should have been, and the only feature on the top was a small wheel.   
+  
+He mechanically moved the levers, and when he noticed I was watching him, he suddenly turned towards me.   
+  
+  
+What I saw... no. I can't describe it. Words woudln't be enough to make you understand what was wrong with him, just... *(the page was torn)*.   
+He had      appeareance    but      no never seen no never human? I never stopped seeing him,it usually happens in my most haunting nightmares. Who is Joshua?  Was that a mouth? Were those...eyes? *(incomprehensible scribbles and scratched words)*. 
+
+  
+I would rather die than have another encounter with such a creature.   
+  
+Overcome by panic, I turned away immediately, my head started to spin. I was sweating and feeling like I had to throw up. Only the fear of what he might have done if I reacted in any way held me back.   
+I put my hands on the wheel, closed my eyes, and waited.   
+  
+I heard the phone wheel being turned and the buttons being pressed rapidly. After about two minutes of this, he began to "speak."   
+  
+My senses were overwhelmed by a voice that emitted sounds I could never have imagined. It was as if his words were the result of acoustic distortion, composed of notes and intonations that didn't belong to any human language. It was a kaleidoscope of incomprehensible sounds, each of which entered my ears and ran through my brain. 
+
+  
+I was on the verge of screaming when it all ended.   
+  
+I had no idea how much time had passed, but I stayed with my eyes closed for so long that it was the creature itself that brought me back to reality.   
+  
+"Keep driving" he said in his monotonous tone, but I could sense a hint of annoyance. My heart started beating again, and I pressed the accelerator.   
+  
+I had completely lost my sleep, but at least I had found religion: for the past ten minutes, I had been asking God forgiveness for my sins.   
+  
+Finally, my prayers were answered, and the creature firmly said "Stop". 
+
+  
+Well, my time had come. Now that I had completed my task, I was no longer needed.   
+I felt somewhat relieved, after all, the torture was over.   
+I didn't want to see how the light would go out, so I closed my eyes again and waited.   
+  
+But instead of hearing my neck snap, all I heard was the car door being opened.   
+  
+The hitchhiker picked up the bag and got out of the car, while I continued to gasp, looking straight ahead, not even knowing where we had stopped.   
+  
+"Thank you," he said before taking a few steps. Then suddenly he added, "Do you know anyone named Joshua?"   
+I felt his gaze burning my head, so I replied without even thinking.   
+"No, I've never heard of him."   
+  
+Everything stopped for a moment, before he slowly turned around and started walking again.   
+  
+ I stood still and waited. I don't know what I was waiting for, maybe I was afraid he had forgotten something, and I didn't want him to follow me.   
 
 
-And so this whisper took the man and heard his inner most thoughts, and by seducing the man with the ability to subjugate his former foes and control the adoration of their women so convinced the man to open his ears and listen to the shadow with his utmost intent.
+  
+A lot of time passed, I think, because when I finally came to my senses, I could see the sun on the horizon. Had I been on the road all night? 
+
+  
+When I started driving again, the instinct to turn around and see what kind of place a person like him had asked me to take him to almost overcame my fear. Almost.   
+  
+    
+  
+I finally got home and had a few beers.”   
+  
+    
+  
+\------------------------------------------------------------------------------   
+  
+    
+  
+*This is a transcript of the last pages of my uncle's diary.  One of the versions,at least. I've read a dozen by now, and this seems to be the most complete one yet.* 
+
+*He rewrote it many times, gradually worsening in grammar and spelling, until it became unrecognizable.* 
+
+*He hanged himself a few days ago in his room, and this journal was on his desk, along with many pages made of incomprehensible gibberish, dry blood and what look like weird symbols.*  
 
 
-The wraith taught the man how to melt the stones of the valley in to a blade that could fell any spear and into armor to withstand any blow, and it taught him how to meld the jewels in the river stones into glimmering ornaments for the body.
+*I was never very close to him; the only thing my parents told me was that he had always had problems with alcohol.*   
+  
+*Now, I know that suicide is the result of many problems, and it can never be attributed to a single cause, but this must have impacted in some way.* 
 
-
-And with this new power he returned to his people and he first killed every man he used to call friend, then taking their wives for his own he bore from them sons to whom he taught the secrets he now knew.
-
-
-As the sons of the man spread out and conquered and seduced all they set theirs eyes on. Though they soon found that with no more foreign lands and people to reign, the fight for supremacy became brother on brother and so it was again that man met upon man to a stalemate of equal combat.
-
-
-Only the first born son of the man had been made privy to the true secret of their power, and where the knowledge came from, and he had long since taken efforts to secure the cave as a scared temple and forbidden place, through this he alone was taught further secrets on the arts of weapons and means of control, tools that were then used to reestablish his own dominance. Though again the true secret of this knowledge was reserved only to sons of the first.
-
-
-As the centuries went on a city grew around the temple and a civilization sprung on the worship of the gifts from the temples priests. And the highest status went to those with the most intricate jewellery and arms.
-
-
-But as the material tyranny of this new city spread so to did resistance to it and soon armies rose up to challenge the city walls.
-
-So the sons of the man, now claiming the roles of these priests of the temple consulted the shadow deep in the cave within the temple vaults.
-
-
-The whisper brought them new ways to make metal, arms and potions that could beat the rebellion back and reimpose their dominant status quo.
-
-
-Though soon enough the quarrels returned to be among the cousins and brothers themselves and it went on this way until the insatiable lust for arms and power came to be that there was no request to sordid, no taboo unquestionable, no evil that wouldn’t be done, If it was to result in more gifts from the shadow of the cave.
-
-
-And the sons of the man went on this way generation after generation, until after they had been guided along the path enough to understand the most intricate and complex gifts the shadow planned to offer, and as the years finally brought the bloodlust enough fuel the shadow in the cave taunted mans desires so that one eventually stepped forward, twisted enough to take the shadows most powerful gift, the ability to eradicate the world entirely.
-
-
-And in them doing so it had hoped to hitchhike the cataclysmic destruction of their world to its own immaterial end. No matter how faint the odds the suicidal entity was more than willingly to burn through another inconsequential world on its journey through the stars.
+  
+*I have researched and already posted in some forums discussing addiction and hallucinations caused by various drugs. They told me that this unsettling vision could have been caused by PCP, and even though it seems plausible, I still can't believe it.*   
+  
+  
+*So, I conducted further research, research that eventually led me here, where, from what I understand, you offer advice on unsettling and paranormal situations.*   
+  
+    
+  
+*So, what do you think?*   
+  
+ 
