@@ -1,6 +1,4 @@
 
-[what im writing down for you now, happened nattfursten skräckhistorier on youtube]
-
 I don't know how to think or how to perceive anything anymore. Nothing is as it should be. There's something wrong with my child. (knocking)
 
 Dad, what are you doing?
