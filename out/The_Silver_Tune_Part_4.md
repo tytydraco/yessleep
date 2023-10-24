@@ -81,6 +81,7 @@ She was cradling her robot nervously. It took her a moment to gain the courage t
 “Yeah, May. I have. I don't really know what's going on here, but I think you saved me from him at the hotel. Thank you.” 
 
 “Of course, I'll always save you,” May said. “But Megan, what do we do?” 
+
 I pulled the card from my pocket. Myles West, it read with the phone number below.  
 
 “What's that?” May asked. 
@@ -107,6 +108,7 @@ She smiled.
 It was a mansion in every traditional sense. Like everything else my mother liked, it was accented in gold, and straight out of Victorian times. *‘It goes back to our English roots’*, she always said. The house had one central tower that all of the other towers formed around. The central tower had a window of tinted glass depicting a flowery scene of nature. It had a large porch and brick canopy that hung over the driveway. 
 
 If I remember right, it was *seventeen thousand* square feet or something crazy like that. Three floors and a basement added later, fifteen rooms and an excess of gaudy interior design. The front yard was at least two acres of carefully kept gardens. The backyard was essentially an outdoor ballroom. Fountains, flowers, brick roads, and even a little church that was probably used for Christian practices back in the day. 
+
 David rolled down the dividing window. 
 
 “Everyone still asleep back there?” He said. 
@@ -190,6 +192,7 @@ Our luggage had been packed into the rooms. Carol was unpacking inside, and look
 “They don't have internet here though, right?”  
 
 “Well, I have my phone hotspot. It should be able to handle it.” I said. 
+
 “Sounds good. We'll figure it out,” Carol jumped onto the mattress. “Ooh, this is cozy. It's like quicksand in this thing.” 
 
 “I wouldn't be surprised if they're all brand new.” I said. 
@@ -250,6 +253,7 @@ I heard another voice in the background, feminine. “And who's fault is that?�
 “My sister has been having the same nightmares I've been having. Now a man in a red suit showed up. May calls it the ‘suited man’. I don't really understand what–”
 
 “Stop,” The voice interrupted again. “A humanoid in a red suit?” 
+
 “Yeah. He keeps showing up. He keeps telling us to release the monster behind the door.”
 
 “The music box from the museum.” He mumbled.  
@@ -263,6 +267,7 @@ I heard another voice in the background, feminine. “And who's fault is that?�
 I waited, but Myles said nothing. 
 
 “Okay, with all due respect, sir, I've been giving plenty here,” I said.
+
 “If you knew my mother somehow, can you give up some details? Who are you? How did you know my mother?” 
 
 He sighed. 
@@ -297,10 +302,15 @@ Eventually, I knew I was asleep when it felt like the world was floating. I don'
 
 
 *“Awake…”* 
+
 *“They're here, they're home.”*
+
 *“The song, the song!”*
+
 These voices whispered throughout my sleep. Have you ever had a dream where the space around felt infinitely vast, yet contained to where you slept? I know, it doesn't make any sense to say it aloud, but it's how I felt.  
+
 It was like I could sense the house as a living thing, and it could sense me. Dark and shifting shadows danced. The voices whispered to each other, and I heard them passing word ear to ear. Something here had been waiting for us. Something here was waking up. 
+
 *“The sweetling has come? Come closer, little bird. Where are you?”* 
 
 
@@ -394,10 +404,14 @@ It was that guy with the southern drawl, carrying a suitcase. I stepped up.
  
 “Did you follow us here from the hotel? Are you really that desperate for a front page?” 
 
-“No, I wouldn't dream of it. I think we got off on the wrong foot earlier–” I began to close the door and he stopped it. “Wait, all right? Okay. I was sent here by a mutual friend of ours? Myles West?” 
+“No, I wouldn't dream of it. I think we got off on the wrong foot earlier–” I began to close the door and he stopped it. 
+
+“Wait, all right? Okay. I was sent here by a mutual friend of ours? Myles West?” 
+
 I studied him for a moment.
 
 “Do you mind if I check? Give him a call?” I pulled out my phone. 
+
 “He's not going to pick up,” Lenny said. “He changes his number every time someone calls, even once, but yeah go ahead.” 
 
 Sure enough, I got that message. ‘*We're sorry, the number you've dialed is either unavailable or is no longer connected. Please hang up and try again.*’
@@ -618,7 +632,9 @@ My blood froze when I heard it.
 It was louder than anything I'd ever heard before, yet barely audible at the same time. I heard something *drip* from above my mother's bed. It was a dark, viscous liquid. Another drop fell in rhythm.
 
 I looked up. Something rested in the shadows of the ceiling where the drops were coming from. I don't know how I hadn't heard it before, but it was wheezing. It was whispering one line in a voice almost human.
+
 *“Mors Infra, Mors Infra–”* It stopped suddenly with an animal snort. 
+
 Something like a head flashed upright to stare at me. There was a glint of something that might have been eyes. Thin strands of hair draped over its face. 
 
 I wanted to move. I wanted to scream and run, but I couldn't. I just stared at that thing and squeezed the doorknob to my mother's room. My hand shook, as I and that thing stared at each other. 
