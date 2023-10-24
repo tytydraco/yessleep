@@ -4,6 +4,8 @@ Part 1
 
 &#x200B;
 
+[Note: This part of the account is part 2, not part 1.]
+
 Part 2
 
 Desperate, I watched Foras out of the corner of my eye. He seemed to watch me in return, though his eyes constantly flicked back to the road. I saw the headlights reflecting off strange eyes in the alleyways and buildings, but whenever I turned to look, only the shadows remained.
@@ -99,5 +101,3 @@ I wondered if he was right, when the ground started to shake. I thought an earth
 Part 3
 
 [https://www.reddit.com/r/nosleep/comments/172imd8/i\_was\_taken\_to\_a\_dead\_city\_in\_another\_world\_part\_3/](https://www.reddit.com/r/nosleep/comments/172imd8/i_was_taken_to_a_dead_city_in_another_world_part_3/)
-
-&#x200B;
