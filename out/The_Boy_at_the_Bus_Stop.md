@@ -55,7 +55,7 @@ Sure.
 I know the pain you feel, John. I have seen it before. Many times.  
 I crushed the pack of cigarettes in my hand, feeling a fresh wave of anger crash over me.  
 You don’t know me!  
-The boy gave me a sad smile.  
+The boy have me a sad smile.  
 I have seen this before. Someone loses someone close them. As a result, you feel rage build deep inside of you. Fueled by guilt because you weren’t able to prevent what happened. Unable to see that it was beyond your control to begin with. You could never have changed what happened, yet you cannot forgive yourself either. The mind cruelly tortures the body, until your heart is riddled with sorrow. Now your existence is anguish. You wish you had been the one to die because the thought of living on just seems too difficult. Living in this word does not seem bearable at the sight of such a loss.  
 I remained speechless, unable to comprehend the little boy beside me. The boy sighed and scratched the back of his head.  
 I’ve seen this before. After a while it all begins to look the same. The faces may change but emotion remains constant. Your face is lined as so many before you. A canvas of hate and anger.  
