@@ -32,7 +32,7 @@ Then it moved. There was someone there. Crouching.  I looked with more focus to 
 
 I started to move forward to get past the car, saying nothing so as not to alarm the others. I kept one foot on the brake to keep the brake lights on as I watched it in the mirror. As I pulled forwards it stood up.
 
-It's body was wide and thick. It stood on two legs and was humanoid in its basic structure. It had large hands with thick claws at the end of each finger. It was covered in hair except for its chest which was reminiscent of a gorillas chest. It's head was exactly like the head of a Bison. Only with thick fangs and an angry grimace on its face. It even had small thick horns.
+It's body was wide and thick. It stood on two legs and was humanoid in its basic structure. It had large hands with thick claws at the end of each finger. It was covered in hair except for its chest which was reminiscent of a gorillas chest. It's head was exactly like the head of a Bison. Only with thick fangs and an angry grimace on its face. It even had horns.
 
 It stood there as I drove off. No one else had seen it.
 
