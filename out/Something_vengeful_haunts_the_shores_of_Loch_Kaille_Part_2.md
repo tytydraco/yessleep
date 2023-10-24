@@ -321,4 +321,6 @@ We needed to escape this place.
 
 More to follow but being away from the loch, it weakens me. For now I must rest.
 
--- [Faux](https://www.reddit.com/user/Familiar_Faux)
+-- Faux
+
+[[Part 3]](https://www.reddit.com/r/nosleep/comments/17fig34/something_vengeful_haunts_the_shores_of_loch/)
