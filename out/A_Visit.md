@@ -1,47 +1,53 @@
-(TW: Normalized discussion of violence and murder.)
+I visited some old friends and they didn't seem well. They tried to look happy, and talkative, like nothing happened, but I felt this was only a facade. 
 
-"Is what I do evil though? I mean, really. Is it?"
+After a bit of convincing, I got them to reveal the reason why they were so upset.
 
-Dr. Carla looked up from her notepad. "You kill people, Steven. A lot of peop-"
+Every night, at 3 AM, they would wake up to see a man whose eyes were bleeding. He would sit there quietly. But scary. 
 
-"Yes but people die all the time, don't they. Quite a lot from things that other people do. It doesn't make people dying evil, really, just because another person causes it, does it?"
+I asked them to allow me to stay for the night. I too, saw the man. But I wasn't afraid. Rather, I asked the spirit to tell me his story.
 
-Dr. Carla put her notepad down on her lap and held up her pen. I'd interrupted her and while she didn't mind, she did finish her sentence. "A lot of people consider deliberately ending someone's life to be one of the most evil things a person can do."
+The man revealed he once owned the house, was a wealthy businessman, and was happily married. 
 
-I shook my head. "No, no, no it's not. Not even close." I sat up straighter in my chair and pointed towards the door and down the hall. "What some of those other guys have done to women, children... THAT'S a lot more evil than anything I've ever thought of doing."
+Then, one day, he and his family were kidnapped and tortured by a business rival.
 
-Dr. Carla nodded and tapped her pen against her chin. She did it a lot while she was thinking. "Ok, valid point. I won't argue it. But," she leaned forward a bit and moved her pen down flat against her notebook, "WHY do you kill, Steven? A straight answer this time, please."
+He and his family were murdered in a black magic ritual. The family who did it were, and still are, virtually untouchable.
 
-I leaned back in my chair. She'd asked almost every visit before but I never gave her an answer. I usually just sat quietly until she asked a different question.
+They have high-level connections and know many VIPs and politicians.
 
-But this time I leaned a little forward, looked her in the eyes and said, "To do something. To do something real."
+Only when they will pay, will this poor soul find rest, and rejoin his family on the Other Side. A revenge I wanted to carry for him.
 
-Dr. Carla's eyes went wide and she leaned back as I spoke. She hadn't expected an answer and I had her off guard.
+I decided to target the whole family, by placing a curse. Each night, their beds would shake, and tremble, and they would see insects and snakes crawling all over the place.
 
-I continued. "So many people do things every day. They get out of bed, go to work or school, they learn, they make things, they think. All kinds of things they do that they think have meaning. But in the end of it all, does it? Does anything anyone does really have meaning? No, not really. It might seem that way but it's all a story we make up to feel better about living meaningless lives."
+The targeted family slowly became desperate. I contacted them and explained that, until they apologized to Jim, the eye-bleeding spirit, their terror would not stop.
 
-I shifted in my chair, putting my left foot up on the rung and my left hand on my knee. I leaned forward and pointed at her, staring directly into her eyes. "But you can believe that when I take someone's life, it means something. The world changes in a way that no one can fix. No one can take that life back from me and do anything with it. It's real."
+But the family head, Tyler, threatened me. His son was involved in the occult. There would be a battle. Revenge would be enacted. 
 
-Dr. Carla sat frozen for a moment, staring at me, then dropped her eyes to the notepad. When she did I stopped pointing and sat back with my arms crossed.
+One day, I heard Tyler begin vomiting blood. He filled the bathroom with it. He called his son. Asked him to do a spell. To confront me. I almost had a car accident. I felt sick like I had the flu.
 
-After composing herself Dr. Carla looked back up at me and held up her pen. She tapped the air with it as she spoke.
+I woke up one night to the smell of sulfur. I saw a man with fully white eyes, no pupils, and long, white hair. Its teeth were blade-like. This is what they sent. 
 
-"That doesn't excuse what you do, Steven. And it could still be considered 'evil' by a majority of people." I suddenly noticed that her air-tapping was in time with each syllable. "Think of it this way: if you hadn't killed those people then they would have led longer lives and done more things. Maybe to you the things they do are meaningless but to the world you may have taken away someone who holds a great place in the lives of many other people."
+A battle ensued, when, using magic and prayers, I banished the demon. I knew I needed to fight them. 
 
-I held up my right index finger. "Ah, but, doesn't everyone die when it's 'their time' to die? I've heard that a lot, at a funeral, someone says it must have been "their time" to die. So maybe I'm really a part of the plan? Right? OR, and hear me out, if there is no plan, and things in this world really do happen without any reason, then nothing is ever really good or evil. Maybe things just, are."
+I went to their house. Two bodyguards walked in front of me. With a curse, I had them explode in a sea of blood.
 
-Dr. Carla brought the pen back up to her chin, thinking. She nodded a little as she said, "Ok, you might have me there. If it's their time, and you're the cause, then how can we really say it's evil? Or, as you say, if there is no plan because things just happen, then how do we determine good or evil. But," she pointed her pen at me again, "at the same time you use violence to take away something that someone else doesn't want to give. And you inflict pain and suffering on others. AND you do it on purpose. That describes evil to a lot of people."
+I saw two more bodyguards. I mentally made one of them turn his rifle to the other and fire. One down. The other one threw the gun and fled.
 
-I nodded, uncrossed my arms and leaned forward with my hands on my knees. "But I don't let anyone suffer. I try to make sure it's over as quick and clean as possible. The broken necks, the stabbed hearts, the bullets, everything I've done was as quick and-"
+Tyler arrived, escorted by four more bodyguards and his son. I saw a lion whose eyes were dark as a black hole roaring. Just an illusion. I stood my ground, as the son threw another vision: I saw fire surrounding me.
 
-"HOW you did it is not the point." Dr. Carla's voice was sharp as it cut me off. "While you might claim to be merciful in your methods, you're still talking about murder. Those people are still dead."
+I could feel its heat. But it was all in my head. I managed to dispel this attack as well. 
 
-Before I could speak again a loud beeping started up. Dr. Carla reached into her pocket and pulled out her phone. "Dammit." She turned off the alarm and looked across at me, annoyed. "I'm sorry, Steven. I want nothing more than to continue our conversation but I'm due in court in an hour." She put her phone back in her pocket and started putting her other things in her bag. "If it's ok with you I would like to try and come back either later today or early tomorrow." She stood up and stepped closer for a moment. "If you say you'll talk to me I can set it up through your lawyer. I really would like to talk some more very soon."
+Tyler got a gun and swore he would never apologize. I needed to frighten them some more.
 
-I stood up and nodded. "I have nothing else to do, Doctor, and will talk with you again any time. But next time do you think you would consider joining me on this side of things?" I tapped the thick plexiglass wall between us. "It would make talking a lot more comfortable and I think it might make it easier for me to open up about things."
+So I knelt. My eyes turned white. We could hear footsteps. We could hear them marching. 
 
-Dr. Carla laughed a little as she shook her head. "Now Steven, I hope you respect my intelligence enough to know that's not going to happen. I know how strong and fast you are and I've been told by the staff here how much you excercise in there. It's impressive and I don't feel like checking to see if my number's up anytime soon. At least, not if I can help it."
+They took shape, fully red eyes, no pupils. The son simply apologized, as they surrounded Tyler and him.
 
-I stepped back away from the plexiglass and clasped my hands together in front of me, smiling with real joy. "That's one of the reason's I really do like you, Doctor Carla. You are so very, very smart."
+The creatures had talons and gray skin. Cold eyes. Tyler relented and apologized. He produced a contract and told me it was fake. He agreed to go to jail and pay for his crimes.
 
-I raised my right hand and waved as she stepped back towards the door. "See you again soon!"
+The creatures I summoned vanished, leaving behind a thick, dark smoke.
+
+The cops arrived. Tyler would admit guilt and pay.
+
+That night, we saw Jim again. But his eyes were no longer bleeding. He was at peace. I told my friends it was over.
+
+I left them safe and left home. But when I got home, I saw scorpions crawling all over the walls and the floor. I knew it. I felt it. Tyler's son.
