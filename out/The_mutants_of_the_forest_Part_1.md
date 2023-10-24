@@ -84,4 +84,4 @@ James pupils widened and he quickly went inside after the boy. Just as terrified
 
 “It’s an old military bunker”, Ghost replied. “We’re safe here for now. Do any of you want some food?”.
 
-I'm writing this now from the bunker. Strangely, I maintain a connection here, deep within the forest. There must be some facility nearby. Perhaps we'll search for it later. For now, we are trapped here, with that monstrous entity outside hunting us. I'll post further updates when I have the opportunity. Stay safe.
+I'm writing this now from the bunker. Strangely, my phone maintains a connection here, deep within the forest. There must be some facility nearby. Perhaps we'll search for it later. For now, we are trapped here, with that monstrous entity outside hunting us. I'll post further updates when I have the opportunity. Stay safe.
