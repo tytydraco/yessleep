@@ -198,7 +198,7 @@ Holy shit. Way to bury the fucking lead.
 
 I thought for some reason of the theme song to a show I watched as a teenager. *Two can keep a secret if one of them is dead.*
 
-"So that's, that's why people think Edwina was involved. Or could've prevented it. Depends on who you ask, but either way, my mother-in-law is not a popular person right now."
+"So that's, that's why people think Edwina was involved. Or could've prevented it. Depends on who you ask, but either way, my mother-in-law is not a popular person around here anymore."
 
 Before I could say anything else, his cell phone started ringing and he leapt up as though stung and fished it out of his pocket. "Hello? Yes, hi, I'm at--no, I just--I'll be right back."
 
