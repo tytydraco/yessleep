@@ -25,9 +25,9 @@ The dream started out the same. I was at the same diner, perusing the menu. This
 “You know, I think I’ll have the !!!!!!!! How about you?” I said. I put down my menu, and saw myself sitting across from me. I (the other I, I mean) had this wild, terrified look in my eyes. The other me whimpered, completely forgoing the usual line before the coughing fit started. Like the other dreams, specks of a black, tar-like substance fell on the table, eating away at the resin tabletop with a hiss. The same black hands covered in that substance came out of the other me’s mouth, dragging long, spindly arms behind them. And then…
 
   
-Both arms came out of my doppelganger’s mouth, grabbing onto his shoulders and pushing itself out. The tar melted off the creature’s hands and burned my double’s shoulders as he let out a muffled scream. Out came a head, with a face as white as porcelain, looking almost like a mask. It had no eyes but instead a wide, gaping mouth oozing that tar, located where the eyes would be. After that came the creature’s emaciated torso. Behind the tar that covered its body, I could see ribs poking out. Soon enough, the creature’s entire body exited my double’s mouth. My double slumped over, the tar pouring out of his mouth and eating through his body
+Both arms came out of my doppelganger’s mouth, grabbing onto his shoulders and pushing itself out. The tar melted off the creature’s hands and burned my double’s shoulders as he let out a muffled scream. Out came a head, with a face as white as porcelain, looking almost like a mask. It had no eyes but instead a wide, gaping mouth oozing that tar, located where the eyes would be. After that came the creature’s emaciated torso. Behind the tar that covered its body, I could see ribs poking out. Soon enough, the creature’s entire body exited my double’s mouth. My double slumped over, the tar pouring out of his mouth and eating through his body.
 
-.   
+
 Meanwhile, the creature crawled on the table towards me. The table seemed to grow longer and longer as the creature got closer and closer. The tar on its spiked spine glistened in the diner’s lighting. Once it got close enough, it forced my mouth open, and started to crawl inside. The last thing I saw was that gaping maw of a face.
 
   
