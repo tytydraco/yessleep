@@ -225,3 +225,5 @@ A car horn went off, and I looked away from her to see headlights speeding towar
 The last thing I remember is a quiet voice in my ear.
 
 *"They deserved what they got."*
+
+PART 5 COMING SOON
