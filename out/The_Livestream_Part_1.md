@@ -20,8 +20,12 @@ Allison, or “Ali” for short, was at 15 years old the youngest of the group. 
 
 
 And finally, there was Warren, 17 years old, who lived in a tiny little rural town in the middle of nowhere – Maine. Here he lived with two younger sisters and their very stern father. Warren and his siblings were raised with a firm hand and with Christianity as the centre of the household. As the only African American family in the small community that they lived in, their father had always been very strict about curfews and what friends Warren could and could not hang out with. He just didn’t want his kids to go through what he himself had had to put up with when he grew up under similar circumstances. Racism, bullying, and fights hiding behind every corner. And ever since his wife passed away at a young age, his grip on the children had tightened ever more, to the point of him almost not seeing that Warren soon would be a grown man of his own.
+
+
 A blue hue filled the room and I leaned back up towards the desk to log in to my computer, my fingers running across the keyboard with explicit precision, like I’ve had done nothing else since the day I was born.
-Almost instantly, as the programs started to pop up across the screens of my, if I may say it myself, impressive workstation, complete with three big screens, backlit of course, an impressive sound system and a bunch of other nerdy gadgets connected to the system. My favourite thing being a little bear sitting between my two main monitors, who’s head would light up in different colours whenever someone spoke in the chat, a voice-chat notification appeared in the corner, and the bears head lit up.
+Almost instantly, as the programs started to pop up across the screens of my, if I may say it myself, impressive workstation, complete with three big screens, backlit of course, an impressive sound system and a bunch of other nerdy gadgets connected to the system, my favourite thing being a little bear sitting between my two main monitors, who’s head would light up in different colours whenever someone spoke in the chat, a voice-chat notification appeared in the corner, and the bears head lit up.
+
+
 - “Hi guys, what’s happening tonight, who’s turn was it to choose a movie?” Jen asked.
 
 
@@ -45,7 +49,11 @@ An array of thumbs up and ghost emojis filled the main chat, accompanied with �
 
 
 This was another thing that our group had found a collective love for, all things supernatural, be it Cryptids or Aliens, Ghosts and Demons, abandoned asylums, Big Foot, Ouija boards or old local creepy tales of hauntings, witches, satanic rituals and so on. Everything and all that flew the flag of the unexplained scratch an itch we all had. We were always on the lookout for something new to delve into, and even though most of us whole heartedly believed in “something” out there, we usually kept a somewhat collective sceptical view when looking into the ever updating and oncoming flow of weird new videos that popped up to the web every single day.
-These days it is hard to tell the real gems apart from the CGI and AI-created content, and you usually had to look really close to see if anyone had been editing or messing with the clips. Ever since  since I was a little kid I had an interest in photography and video editing and was usually the one spotting the edits. Warren was, even though he was the only one truly raised in religion, the most sceptical of the bunch. We used to tease him, wondering why it was so hard for him to believe in Aliens or ghosts when it was so easy for him to believe in an invisible god. “It’s just not the same”, he would respond, clearly tired of having to explain himself, and leaving it at that.
+
+
+These days it is hard to tell the real gems apart from the CGI and AI-created content, and you usually had to look really close to see if anyone had been editing or messing with the clips. Ever since I was a little kid I had an interest in photography and video editing and was usually the one spotting the edits. Warren was, even though he was the only one truly raised in religion, the most sceptical of the bunch. We used to tease him, wondering why it was so hard for him to believe in Aliens or ghosts when it was so easy for him to believe in an invisible god. “It’s just not the same”, he would respond, clearly tired of having to explain himself, and leaving it at that.
+
+
 But sometimes, we would come across videos that none of us could debunk or explain, and those were the ones that kept the amber burning in our chase of the unknown. They were few and far between, but when they did appear, once in a blue moon, a special kind of shill went down the spines of the collective, and once again piqued our interest.
 
 
@@ -93,7 +101,7 @@ It was a classic 80’s slasher movie set at a lakeside environment, with foolis
 He sent a link out in the main chat. “It’s a live feed from some woman’s house, she claims it’s haunted and want’s help to catch whatever it is on video. She rigged her living room and kitchen with cameras and have a continues live stream going!” Warren exclaimed excitedly.
 
 
-This got everyone’s attention, this was what they lived for, the live stuff.
+This got everyone’s attention, this was what we lived for, the live stuff.
 I quickly opened a drawer and pulled out an external disc which I connected to my computer and started a screen capture, to save whatever might appear on the stream for later investigation.
 Everyone was on high alert, and no one had said anything for several minutes when the silence was suddenly broken by a high pitch scream followed by what sounded like someone demolishing a room.
 
@@ -135,7 +143,7 @@ We all fell silent, looking back and forth between the two cameras.
 -	“Alright”, he said, somewhat reluctantly, and continued to type in the comment under the stream.
 
 
-“Hey, I don’t mean to sound creepy or anything, but are you alone in the house?”
+“Hey, I don’t mean to sound creepy or anything, but are you alone in the house?”, Warren wrote in the comment section.
 
 
 -	“Hey, I’m back”, Jen said in a sigh while picking up her chair from the floor. “Man was Ben acting weird”, she continued. “Never seen him like that!
