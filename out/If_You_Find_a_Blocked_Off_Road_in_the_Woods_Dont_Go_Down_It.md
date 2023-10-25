@@ -1,4 +1,4 @@
-It was getting near Halloween and me and me my buddy wanted to scare our girlfriends and/or find a good makeout spot in the woods. We were seniors in high school and all still lived at home so we had to find out of the way spots to smooch.
+It was getting near Halloween and me and my buddy wanted to scare our girlfriends and/or find a good makeout spot in the woods. We were seniors in high school and all still lived at home so we had to find out of the way spots to smooch.
 
 My buddy said he found the perfect place but we needed bolt cutters. My dad had some so that friday night I swiped them from our garage and the four of us set out for Old Hagman's Road.
 
