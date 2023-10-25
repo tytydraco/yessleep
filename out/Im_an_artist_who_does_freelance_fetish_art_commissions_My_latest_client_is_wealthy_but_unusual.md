@@ -76,7 +76,7 @@ I nearly threw my keyboard across the room.
 
 But I didn’t. Instead I made some instant coffee, opened up the reference image, and got to work on a new draft.
 
-—
+---
 
 This time I took it seriously. I tore my other half-finished pieces off the wall, canceled a few recently accepted commissions, and started planning. Ordinarily, I would pick a creative direction and do some sketches in that style, but the words “best of your ability” rang in my head. It left me with two questions. The first was what did “best of my ability” mean to the client? “Photorealism” was the ready answer. That’s what most rich people mean when they say “great art” and this guy was certainly rich.
 
@@ -120,7 +120,7 @@ And now? I was stuck. Too terrified to move forward, too proud to move backward.
 
 Inspiration… it strikes at funny times doesn’t it?
 
-—
+---
 
 All I’d wanted was a haircut. My shaggy bangs kept falling into my eyes as I tried to paint.
 
