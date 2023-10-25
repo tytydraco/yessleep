@@ -118,7 +118,7 @@ We heard how Jen left her desk to take her, normally calm, deep sleeping brother
 -	“Right there!” – Warren continued. “Look at the living room camera, in the back there´s a mirror, you can see a reflection of what must be like the hallway or something, there´s someone standing there! In the reflection Do you see?!”
 
 
-You could almost make out the shape of a person in the mirror, but it was hard to tell. These were obviously not the most expensive cameras, and to monitor a dimly room at night it’s easy for your eyes to play tricks on you.
+You could almost make out the shape of a person in the mirror, but it was hard to tell. These were obviously not the most expensive cameras, and to monitor a dimly lit room at night, it is like begging your eyes to play tricks on you.
 
 
 -	“Yeah, but that’s probably just the woman, right? The owner?” – I said.

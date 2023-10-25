@@ -185,3 +185,5 @@ It was not mentioned in the paper, but I knew Frank was the killer. He had kille
 I retrieved my handgun and embarked on the two-hour drive to Modesto, arriving at the house a little before five.  On my drive over, I had questioned if Frank would be here. But from a live oak tree in the front lawn, a skeleton was hanging. A skeleton wearing a green sorcerer’s hat.
 
 Frank was here. And he was expecting me.
+
+[Final Part](https://www.reddit.com/r/nosleep/comments/17e3ihs/desert_war_final/)
