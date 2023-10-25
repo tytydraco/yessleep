@@ -4,7 +4,7 @@ Weeks passed, and the initial frenzy of the search operation subsided. The man's
 
 A few weeks later, it suddenly happened again. Two people this time, had ventured into the forest and vanished without a trace. It triggered another, even more extensive search, but, once again, all they found were the two abandoned bikes. One of the bikes was discovered broken, as though it had been violently smashed against a tree.
 
-Debate raged on whether the MTB trail should be closed until the enigmatic mystery was unraveled. It was during these discussions, that I made a decision, one that would lead to the most harrowing adventure of my life. I chose to investigate the trail myself, taking advantage of its now sparse usage.
+Debate raged on whether the MTB trail should be closed until the enigmatic mystery was unraveled. It was during these discussions, that I made a decision, one that would lead to the most harrowing adventure of my life. I chose to investigate the trail myself.
 
 You might question my judgment and consider me naïve for venturing into the woods. In some ways, you'd be right. However, I wasn't foolish enough to go alone. I convinced my best friend, James, to accompany me. We were both 17 years old.
 
@@ -46,7 +46,7 @@ James turned to me, a mix of surprise, shock, and confusion etched across his fa
 
 "Because otherwise, I will end both of you," the boy threw back.
 
-It was clear he wasn't bluffing, and with a moment's hesitation, I began speaking. I shared our names, the reason for our presence in the forest, and the strange cry we had heard. The boy seemed to pay very close attention, as if searching for any signs of deceit. Gradually, he seemed to accept my explanation, relaxing a bit and lowering the knife.
+I was convinced he wasn't bluffing, and with a moment's hesitation, I began speaking. I shared our names, the reason for our presence in the forest, and the strange cry we had heard. The boy seemed to pay very close attention, as if searching for any signs of deceit. Gradually, he seemed to accept my explanation, relaxing a bit and lowering the knife.
 
 "Now it's your turn to talk," James chimed in, his arms crossed. "Who, or what, are you?"
 
@@ -70,7 +70,7 @@ While passing the dead body, Ghost pulled his knife out of it in a swift movemen
 
 "Can we... take a break?" I panted, genuinely impressed by the boy's agility and stamina.
 
-"Almost," he said, slowing to a stop and eventually halting his run. He surveyed the area cautiously. I took a moment to study him. He couldn't have been older than 12, but he was fast and strong. He had brown hair and hazel eyes. He appeared friendly, which didn’t go well with my memory of the dead man near the river.
+"Almost," he said, not seeming even a little tired. Then he slowed down and finally halted his run. He surveyed the area cautiously. I took a moment to study him. He couldn't have been older than 12, but he was fast and strong. He had brown hair and hazel eyes. He appeared friendly, which didn’t go well with my memory of the dead man near the river.
 
 In one fluid motion, the boy sheathed both his own as James’s knife and pushed aside some leaves with his foot, unveiling a concealed handle. He pulled the handle, revealing the entrance to an underground hideaway with an eerie, creaking noise.
 
@@ -82,6 +82,6 @@ James pupils widened and he quickly went inside after the boy. Just as terrified
 
 "What is this place?" I asked.
 
-“It’s an old military bunker”, Ghost replied. “We’re safe here for now. Do any of you want some food?”.
+“It’s an old military bunker”, he replied. “We’re safe here for now. Do any of you want some food?”.
 
 I'm writing this now from the bunker. Strangely, my phone maintains a connection here, deep within the forest. There must be some facility nearby. Perhaps we'll search for it later. For now, we are trapped here, with that monstrous entity outside hunting us. I'll post further updates when I have the opportunity. Stay safe.
