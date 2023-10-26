@@ -24,13 +24,13 @@ Leela usually scanned the campus magazine for either jobs, gossip, or better roo
 
 Leela's manicure was in the way. "Hey, can you…" leaning forward, I peered at the back. Leela gave up trying to read after a moment. She sat up with a sigh, slapping it down on my bed with way too much emphasis. I could tell she was in a bad mood from the state of our room. Her clothes were strewn all over the floor, her bed, and my bed, while her books were a tripping hazard. 
 
-Boyfriend problems, I figured. She stood up and stretched, standing on ehr tiptoes. "Oh, sure, go ahead," Leela was speaking fluent sarcasm as usual. 
+Boyfriend problems, I figured. She stood up and stretched, standing on her tiptoes. "Oh, sure, go ahead," Leela was speaking fluent sarcasm as usual. 
 
 Leela was hard to understand, initially. She swung both ways,  bringing in girls and guys, but was hung up on one guy in particular, who was the teenage equivalent of Will Ferrel. Not funny, and fucking annoying. He still had my Buffy DVD, after I asked him multiple times for it back. He picked his nose (and his butt) and the constant loud sex every  night drove me insane. Leela, however, was smitten. My roommate headed to our janky door and pulled it open. I could  hear someone violently throwing up down the hall. Leela pulled a face. "It's not like I was *trying* to read a freak out."
 
 I looked up from the ad. "Freak out?" 
 
-She shrugged, picked up the magazine, flipping it around to show me. Our campus magazine wasn't the same after the printing ban. Whoever had printed 560 copies of Britney Spears was probably still in hiding. The magazine was poorly made, with some of the pages scraps of paper taped together. 
+She shrugged, picking up the magazine, flipping it around to show me. Our campus magazine wasn't the same after the printing ban. Whoever had printed 560 copies of Britney Spears was probably still in hiding. The magazine was poorly made, with some of the pages scraps of paper taped together. 
 
 It was kind of cute. "Page seven," Leela tapped the page with her nail, and I reluctantly followed her finger. 
 
@@ -68,6 +68,12 @@ I didn't hear Leela's reply, only the slam of our door. I was already invested i
 
 What I wasn't expecting was what looked like an abandoned dental surgery. 
 
+The Peter Pan Project. 
+
+I was starting to over think.
+
+Kids who don't grow up... was that my fate? 
+
 When I walked through plastic flaps being used as a door, I started to regret my spontaneous decision. *I was broke*, I thought, glancing around the empty reception area. There were abandoned dentist chairs and instruments scattering the floor, scraps of posters brandishing wide smiles still stuck to the walls. I could make out shouting coming through the door, a pop song blasting. But was I *this* broke? There was a single unmanned wooden desk, a small notice taped to the side. "**PETER PAN PROJECT VOLUNTEERS, PLEASE WAIT HERE."**
 
 So, I did, uncomfortably crossing my legs. 
@@ -92,7 +98,9 @@ She hummed, writing that too, before lifting her gaze to me. She smiled a smile 
 
 "Commercial?" 
 
-"Yes," the woman's tone didn't match her wide smile. "You will all be participating in an… innovative commercial. It will be great fun, I promise!" her pale cheeks and the shudder in her hands she was trying to hide, was not reassuring. In fact, I wanted out of there. My gaze zeroed on on a scalpel on the floor, and I took a step back with intention to turn and walk out. Screw the 500 dollars, I had no idea what I was giving myself to. When I tried to tell her I had changed my mind, however, the woman pretended not to hear me, politely ushering me across the room. Her hands were on my shoulders. 
+"Yes," the woman's tone didn't match her wide smile. "You will all be participating in an… innovative commercial. It will be great fun, I promise!" her pale cheeks and the shudder in her hands she was trying to hide, was not reassuring. In fact, I wanted out of there. My gaze zeroed in on a scalpel on the floor, and I took a step back with intention to turn and walk out. Screw the 500 dollars, I had no idea what I was giving myself to. 
+
+When I tried to tell her I had changed my mind, however, the woman pretended not to hear me, politely ushering me across the room. Her hands were on my shoulders. 
 
 Gentle, but firm. 
 
@@ -110,7 +118,9 @@ A boy in a baseball cap followed, his eyes rolling back before nose diving onto 
 
 I couldn't help myself.  "They don't look great."
 
-"They're just feeling faint," I could tell the woman was starting to panic. She laughed when I opened my mouth to ask for my phone. "It's a completely normal reaction!" she pointed to them, her lip curling. "See? They're fine. A little pale and sickly, but that's just–" another crash, and a blonde ponytail had dropped, almost comically, on top of the other three, making a sandwich. "The side effects!" her tone grew shrill, when the last boy  standing (or sitting) fell backwards into a heap, hitting his head on the wall. He didn't wake up, slipping to the floor, curling into a ball. 
+"They're just feeling faint," I could tell the woman was starting to panic. She laughed when I opened my mouth to ask for my phone. "It's a completely normal reaction!" she pointed to them, her lip curling. "See? They're fine. A little pale and sickly, but that's just–" another crash, and a blonde ponytail had dropped, almost comically, on top of the other three, making a sandwich. 
+
+"The side effects!" her tone grew shrill, when the last boy  standing (or sitting) fell backwards into a heap, hitting his head on the wall. He didn't wake up, slipping to the floor, curling into a ball. 
 
 They reminded me of kindergartens at nap time. 
 
@@ -146,7 +156,7 @@ Anna, however, didn't seem fazed. "Connie," her voice was almost mocking. "See, 
 
 He stopped screaming, going still, his kicking arms and legs freezing in place. 
 
-I thought he'd calmed down, before he lunged at her, fingernails like claws, teeth bared like an animal. "I'm kill you," spat, when he was violently dragged back, his feet skidding on the floor. Connie lunged again, a wet sounding sob escaping his lips. "Do you fucking hear me? I'll kill you! You fucking bitch! I'll rip your fucking throat out and stuff your—into the— and then I'll claw our your god damn–" 
+I thought he'd calmed down, before he lunged at her, fingernails like claws, teeth bared like an animal. "I'm kill you," he spat, when he was violently dragged back, his feet skidding on the floor. Connie lunged again, a wet sounding sob escaping his lips. "Do you fucking hear me? I'll kill you! You fucking bitch! You're dead! I'll rip your fucking throat out and stuff your—into the— and then I'll claw our your god damn-" 
 
 The boy's words muffled when he was thrown onto the ground, and he dropped face first, screeching into the floor. 
 
@@ -300,7 +310,7 @@ To fill that empty side of him, he killed people to quench that nothing inside o
 
 But part of me is glad she did. Being free to roam with the same traits and mind of a sociopath isn't healthy. I didn't realize our shadows make us. Because without her, I am nothing. 
 
-I feel nothing. 
+I feel nothing.
 
 Connie wanted to distract himself from that… hunger. 
 

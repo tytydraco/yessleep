@@ -1,4 +1,4 @@
-Part 1 - https://www.reddit.com/r/nosleep/comments/17ezktq/urban\_appetite\_part\_15/
+Part 1 - [https://www.reddit.com/r/nosleep/comments/17ezktq/urban\_appetite\_part\_15/](https://www.reddit.com/r/nosleep/comments/17ezktq/urban_appetite_part_15/)
 
 &#x200B;
 
@@ -161,3 +161,5 @@ The bus rounded the corner of the street, heading right our way. We hurled ourse
 Once inside we moved over to the check-out counters and promptly collapsed onto the ground, wheezing for air and aching all over. I focused on my breath, in and out, the stitch in my side starting to fade as I tried to lie down in a way that let me breathe more easily. It took a bit, but I managed to regain some semblance of energy.
 
 Several minutes in the dollar store and still alive. Good sign so far. Travis sat nearby, and he shared a glance with me. Still alive, but for how long?
+
+Part 3 - https://www.reddit.com/r/nosleep/comments/17gkper/urban\_appetite\_part\_35\_dollar\_stores\_are\_great/
