@@ -1,6 +1,6 @@
 [\[Part 22\]](https://www.reddit.com/user/RandomAppalachian468/comments/17e09lh/the_road_to_new_wilderness_part_22/)
 
-[\[Part 24\]](https://www.reddit.com/r/nosleep/comments/17fnk9l/the_road_to_new_wilderness_part_24/)
+[\[Part 24\]](https://www.reddit.com/user/RandomAppalachian468/comments/17fn1r3/the_road_to_new_wilderness_part_24/)
 
 Without a watch, and my head stuffed in a rough cloth bag that smelled of dirt and potatoes, I found it impossible to keep track of time.
 
