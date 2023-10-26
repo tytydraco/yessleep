@@ -12,15 +12,15 @@ He threw his arms up in exasperation. “Look, I… there was…” he struggled
 
 I only had one glaring question on my mind at this point.“
 
-Everyone in that building said that you *hated* Meredith Lane.”
+"Everyone in that building said that you *hated* Meredith Lane.”
 
 “People here say stupid stuff, literally none of that is–”
 
 “Bryce, just please, *please* tell me you didn’t order for that poor woman to get chained and tortured like that.”
 
-Bryce stared at me, aghast.“
+Bryce stared at me, aghast.
 
-Do you really, *actually* think I’m capable of something like that?”
+"Do you really, *actually* think I’m capable of something like that?”
 
 Of course, in the moment, I told him no.
 
@@ -32,7 +32,7 @@ The guy I’d known my whole life? No.
 
 The guy who’s been trapped in this demented town for months now? I’m… not sure?
 
-This place could ruin anyone after enough time, couldn’t it?
+*This place could ruin anyone after enough time, couldn’t it?*
 
 I stopped myself there, and turned my brain off for the sake of some shuteye.
 
@@ -90,7 +90,7 @@ At the top of the page was yesterday’s date. Underneath, a few bullet points l
 
 \- Who is Meredith Lane? Why did I kind of like seeing her get tortured?
 
-What?
+*What?*
 
 The third line stunned me. Felt like a bullet had gone through my stomach.
 
@@ -208,13 +208,13 @@ Matthias pulled a stretcher from the ambulance, setting it next to the lifeless 
 
 “What the hell? Why are all of you so damn glum?” one of the officers said. He turned to me. “You. You especially.”
 
-Svetlana and Matthias lifted the stretcher and brought it into the ambulance. The officers closed their distance with me.“
+Svetlana and Matthias lifted the stretcher and brought it into the ambulance. The officers closed their distance with me.
 
-You’re pretty tense,” the second officer remarked. “Maybe living with the mayor is starting to take its toll on you?”
+“You’re pretty tense,” the second officer remarked. “Maybe living with the mayor is starting to take its toll on you?”
 
 Matthias called from the ambulance. “Alright, let’s go Rose!”
 
-But I couldn’t move. The collective stare of the officers had me petrified.The first officer leaned in closer. “I’m sure you know the mayor is terrified of cops, don’t you? He has a whole page about it in that diary of his you snooped this morning.”
+But I couldn’t move. The collective stare of the officers had me petrified. The first officer leaned in closer. “I’m sure you know the mayor is terrified of cops, don’t you? He has a whole page about it in that diary of his you snooped this morning.”
 
 *How could they possibly know –*
 
@@ -248,7 +248,7 @@ The ride went on for a good while. Until -
 
 “Destination!” the driver called.
 
-The vehicle jolted to a stop.Svetlana pushed the doors open, revealing a vast forest expanse. The trees, though large, were spread out and sparse.
+The vehicle jolted to a stop. Svetlana pushed the doors open, revealing a vast forest expanse. The trees, though large, were spread out and sparse.
 
 In the distance, I spotted a thick white fog that seemingly stretched out into eternity. *Were we at the edge of town?*
 
@@ -340,7 +340,7 @@ I couldn’t say anything. He turned around in response to my silence.
 
 I’d clearly forgotten how to talk. He walked up to me, his gaze lowering to the item in my hand. I passed it to him. A confused smile crossed his face.
 
-He lifted his head to peer over me. His eyes found Svetlana’s body in the distance.He exhaled sharply.
+He lifted his head to peer over me. His eyes found Svetlana’s body in the distance. He exhaled sharply.
 
 After a minute of stillness, he approached what was left of her. I placed my hand on his back and accompanied.
 
