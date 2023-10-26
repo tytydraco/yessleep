@@ -47,3 +47,5 @@ Madness. Complete madness. He phoned me later, congratulating me for my 'hard wo
 However, I think I received a surprise gift already, in the form of a direct message. There are many messages with people asking me to give them permission to narrate this series of posts on their channels. Good people, I am not ignoring you, but understand that at this moment, my family and I are going through serious and life-threatening stuff. Please let this series and all this madness be over first, then we will discuss about permission. For now, our lives are in serious danger.
 
 The surprise gift I am talking about is the only direct message about a man named Connor who wants to meet and help me and my family. He says he has been through a similar situation and has warned me not to approach any police car during midnight, especially if the officer inside is alone. It could be the enforcer.
+
+[Part 10](https://www.reddit.com/r/nosleep/comments/17gnz4c/my_new_job_requires_me_to_work_from_7pm_to_7am/)
