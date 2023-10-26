@@ -8,4 +8,4 @@ Everyone from the camera saw someone or something sitting in the dimly lit room.
 
 There was a red light hanging from the ceiling and it was moving from one side to another. Under that light, we saw countless mannequin figures standing in the room. Everyone started screaming.
 
-Later we never saw our favorite professor. He just vanished into thin air. Nobody was found at his place. But, I can still remember that face behind him. Sometimes I have nightmares and I see the thing scrutinizing me while having its dangling tongue out.
+Later we never saw our favorite professor. He just vanished into thin air. Nobody was found at his place. But, I can still remember that face behind him. Some nights I have nightmares and I see the thing scrutinizing me while having its dangling tongue out.
