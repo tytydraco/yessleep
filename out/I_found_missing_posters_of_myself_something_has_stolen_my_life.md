@@ -1,0 +1,27 @@
+I’m currently writing this locked in my garage and hiding under some tarpaulin sheets, it is trying to get in. I don’t know if anyone will see this, but I need help and an explanation.
+
+YesterdayI woke up, but something felt different. I couldn’t hear the loud sounds of cars driving down the highway next to my house, or the 90s radio station that my mother always listens to in the morning- just complete silence.there was just an unexplainable feeling I’m my gut that something was off. 
+
+I get dressed and walk downstairs, not to be greeted by a “good morning” from my mother, but instead i step into the living room to see her sat in her old armchair, staring out of the small glazed window opposite. She was sitting dead still, and I couldn’t even see her chest moving from her breathing, or a single blink. 
+
+Confused, I walk into the kitchen and grab an iced coffee from the fridge while trying to make a conversation with my mother, but there’s no reply. “She must just be tired” I think. I brush off the strange encounter with my mom and get ready for collage. 
+
+When I step out of the house, I’m not met with the usual sound of vehicles speeding down the highway, or my neighbours rushing to work, instead there’s just nothing. Not a single car on the road or any signs of life. All of the nearby houses have their lights off, despite it being the morning. I decide to just keep going with my plans, and get to collage. “Maybe the highway is just closed” I thin. 
+
+Finally getting to my bus stop, I slump down onto the floor in defeat. My phone has no reception, and after waiting for a while, I figure that the bus probably isn’t coming. I make the decision to walk into the town centre, hoping to find any sign of life there. 
+
+During the long, tedious walk, a piece of weathered paper strapped to a streetlight catches my attention. I can see the bold “Missing” writing from far, but when I get closer, I see myself on the photo above. This photo of me had never been taken, that was impossible, as I notice by his recognisable tattoos that the blurred face next to me was my best friend- who died 6 years ago. He had committed suicide after being admitted to a mental asylum for severe schizophrenia. It looked like the picture had been taken recently as I look the same as I do now, but I obviously haven’t seen my friend for years.
+
+At this point I’m mid way through a panic attack, and my stomach feels like it’s going to explode. I start sprinting back home, sweat accumulating all over my body, from a mix of the running and the fear. Finally reaching my house, I push the door open, to once again see my mother in the exact same position, staring out of the small window. She hadn’t moved a muscle, and it wouldn’t surprise me if she hadn’t blinked too. Her head slowly turns to me, as she says “Come and give mommy a hug”. I cautiously walk over as she stands from her chair and spreads her arms out, gesturing for me to get closer. She wraps her arms around me, he fingers feeling cold and wiry to the touch. When she finally pulls away, I notice that her usually brown eyes had turned to an icy blue, looking artificial in a way. 
+
+I quickly rush back to my room, jumping into my bed and closing my eyes tightly. “This is all just a nightmare, if I fall asleep in the dream I will wake up in real life” I think to myself. I can slowly feel myself drifting off to sleep, not daring to move a muscle. I eventually fall asleep, still wearing my collage clothes and covered in sweat. 
+
+I wake up after a while, and I’ve never been so happy to hear the annoying loud cars on the highway outside. It was all just a nightmare. I hop out of bed, listening to the birds chirping their songs and hearing the faint noise of the same 90s radio station downstairs as always. After standing up, I realise that I’m wearing the same clothes as I did in the “nightmare”. Brushing it off as a coincidence, I open my door and start walking downstairs. 
+
+I can hear my mother talking to someone downstairs- had dad come back? No, the voice sounded strangely familiar. I peer round the doorframe- to see myself, happily walking around and talking to my mother. It’s wearing my pyjamas and is acting as I usually would, except it’s not me. I stare blankly in confusion at “myself”, until we make eye contact. It’s lips curl into a wide smile as it reached for a knife from the drawer “One second mother” it says blankly to my m. 
+
+I run inside the garage, locking the door behind me. I reach for some sheets on a shelf and spread them out on the floor, taking one last look outside before I hide underneath them. I peer out of the small frosted window on my garage door, to see “myself”, smiling at me in a way that is not humanly possible, pounding on the thin wooden door with a knife in its hand. I crawl under the sheets and hide, my whole body shaking in fear. 
+
+As I’m writing this, I can hear the glass slowly crack at every hit it makes. I don’t have much time and I’ve ran out of hope. This thing is going to kill me, then probably keep living my life, and wearing my body, while I’m actually dead and decomposing in a dumpster somewhere. The thing that scares me most is that no one will notice any difference, this creature will probably get away with wearing my skin.
+
+I don’t know if anyone is going to see this, but this creature is not me and I don’t know what it is capable of. So, if anyone meets someone named Max Edmands, run.

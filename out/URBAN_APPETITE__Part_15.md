@@ -10,11 +10,11 @@ The buildings loomed above me in the streetlit night, threatening to crush down 
   
 
   
-“Didn’t you once live in St. Louis?” he asked. “I can’t imagine it’s worse here than it was there.”
+“Didn’t you once live in St. Louis?” he asked. “I can’t imagine it’s worse here than it was there. We're barely even a city. Our stadium is for minor league games."
   
 
   
-“The key difference is I spent as little time in the city as humanly possible,” I said. “The closest I got was Jennings, and as far as skyscrapers go the best that area can offer is the Lewis and Clark building.”
+“The key difference is I spent as little time in St. Louis as humanly possible,” I said. “The closest I got was Jennings, and as far as skyscrapers go the best that area can offer is the Lewis and Clark building.”
   
 
   
@@ -22,7 +22,7 @@ The buildings loomed above me in the streetlit night, threatening to crush down 
   
 
   
-“I’ll be okay,” I said, the world encroaching less on me as I centered myself, thinking back to my house in the country, wide open spaces, nothing but grass and trees and all the privacy I could want. My wife working in our barndominium on her latest sculpture, the cats wandering around the property like they owned the place. “Just man, I really don’t get how this city is so… big.”
+“I’ll be okay,” I said, the world encroaching less on me as I centered myself, thinking back to my house in the country, wide open spaces, nothing but grass and trees and all the privacy I could want. My wife working in our barndominium on her latest sculpture, the cats wandering around the property like they owned the place. “Just man, I really don’t get how this city is so… big and clustered.
   
 
   
@@ -30,11 +30,11 @@ Travis shrugged. “Guess that’s just how the city planners worked it out.”
   
 
   
-Travis had been my friend since college in Columbia, and one of the few people who could actually get me to enter an urban area like this of my own free will. If you like city living, more power to you, but I always feel like I’m getting smashed. As if the skyscrapers looming around me are the closing jaws of a trap about to crush me to bits, or the fangs of a colossal animal clamping shut so I can be eaten alive.
+Travis had been my friend since college in Columbia, and one of the few people who could actually get me to enter an urban area like this of my own free will. If you like city living, more power to you, but I always feel like I’m getting smashed. As if the wall-to-wall structures looming around me are the closing jaws of a trap about to crush me to bits, or the fangs of a colossal animal clamping shut so I can be eaten alive.
   
 
   
-Travis in comparison has always been a city person. He grew up in Kansas City before making his way out east to Columbia for college, and then to this city for his job as a teacher at a local high school. I don’t think I should say the name of this city, and I have a feeling if I did you likely wouldn’t get to read what I’m typing, but needless to say it was very much his sort of place. Towering urban office buildings, everyone crammed in like sardines, mixed-use development throughout so you can go from work to home and everywhere in between without a car.
+Travis in comparison has always been a city person. He grew up in Kansas City before making his way out east to Columbia for college, and then to this city for his job as a teacher at a local high school. I don’t think I should say the name of this city, and I have a feeling if I did you likely wouldn’t get to read what I’m typing since this isn't the first time I've tried from the gas station I'm currently at now. Needless to say, though, it was very much his sort of place. Towering urban office buildings, everyone crammed in like sardines, mixed-use development throughout so you can go from work to home and everywhere in between without a car.
   
 
   
@@ -42,7 +42,7 @@ And lots, lots, lots of people.
   
 
   
-This city always struck me as a little enigma of Missouri, this concentrated little nugget of urban development in a state where the iconic monument is a celebration of people who left it. Yet here it was, thriving and growing, drawing in everyone nearby for the past two hundred years like flies to meat. It really was the sort of city that others aspired to be: it was convenient, affordable even compared to rural areas like my thousand-person town, and had jobs across a wide variety of positions. Save civil engineers, oddly, even though there always seemed to be something coming up. It honestly all felt like the best-kept secret in the Midwest, since once you go a hundred or so miles out people won’t even know what you’re talking about.
+This city always struck me as a little enigma of Missouri, this concentrated little nugget of urban development in a state where the iconic monument is a celebration of people who left it. Yet here it was, thriving and growing, drawing in nearby locals and no one else for the past two hundred years like flies to meat. It really was the sort of city that others aspired to be: it was convenient, affordable even compared to rural areas like my thousand-person town, and had jobs across a wide variety of positions. Save civil engineers, oddly, even though there always seemed to be something coming up. It honestly all felt like the best-kept secret in the Midwest, since once you go fifty or so miles out people won’t even know what you’re talking about.
   
 
   
@@ -50,7 +50,7 @@ The runaway success in this bizarre utopia resulted in the mayor hosting a bicen
   
 
   
-And now here it was, the last stretch of the festival. Every theater and venue had been rented out by the mayor for some sort of simultaneous broadcast from the historic old town hall, with a special message and gift for everyone. We were in line with everyone else outside the venue of our choosing, the Foundry near the center of town. He was still living the bachelor life, so it was just us as we came closer and closer to the structure.
+And now here it was, the last stretch of the festival. Every theater and venue had been rented out by the mayor for some sort of simultaneous broadcast from the historic old town hall, with a special message and gift for everyone. We were in line with everyone else outside the small venue of our choosing, the Foundry near the center of town. He was still living the bachelor life, so it was just us as we came closer and closer to the structure.
   
 
   
@@ -78,7 +78,7 @@ Thankfully he didn’t have a chance to push further, since we’d made it to th
   
 
   
-It wasn’t long before the projector powered on and the speakers crackled to life. A hush fell over the chattering crowd as the feed started up, showing a podium in the old town hall, a riverside stone structure near the south side of the city. What better way to celebrate the last two centuries than a broadcast from the city’s humble beginnings? A doughy, balding man just entering his fifties took the podium and smiled at the audience through his feed. Mayor Edgar Toomley.
+It wasn’t long before the projector powered on and the speakers crackled to life. A hush fell over the chattering crowd as the feed started up, showing a podium in the old town hall, a riverside stone structure near the south side of the city. What better way to celebrate the last two centuries than a broadcast from the city’s humble beginnings? A doughy, balding man just entering his fifties took the podium and smiled at the audience through his feed. The mayor.
   
 
   
@@ -90,7 +90,7 @@ The background image of my house vanished as something vibrated under my feet. M
   
 
   
-“We’ve broken one hundred thousand people who call our city home, and with this festival even more of your family and friends as well as our neighbors from our neighboring towns have come in to share this joyous day with us, and I’m so happy we are able to.”
+“We’re nearing fifty thousand people who call our city home, and with this festival even more of your family and friends as well as our neighbors from our neighboring towns have come in to share this joyous day with us, and I’m so happy we are able to.”
   
 
   
@@ -126,7 +126,7 @@ The mayor’s feed cut out with a harsh squeal of feedback right as the center o
   
 
   
-I risked a few glances behind me as I followed, wishing I had something else on my person besides just my wallet and phone. The floor continued to cave in, pulling more and more panicking people into what looked like some sort of service area underneath the venue. The throng erupted into screams of terror as everyone tried to climb over each other to get out of the way as the floor collapsed. Well over a hundred people had already vanished into the hole in the ground, and then the hole spread further back on the floor, consuming the bar area and pulling people not fast enough to get off their seats down with it.
+I risked a few glances behind me as I followed, wishing I had something else on my person besides just my wallet and phone. The floor continued to cave in, pulling more and more panicking people into what looked like some sort of service area underneath the venue. The throng erupted into screams of terror as everyone tried to climb over each other to get out of the way as the floor collapsed. So many people had already vanished into the hole in the ground, and then the hole spread further back on the floor, consuming the bar area and pulling those not fast enough to get off their seats down with it.
   
 
   
@@ -138,7 +138,7 @@ I managed to reach the emergency exit, following Travis and a few other survivor
   
 
   
-I saw a cable. It looked like it had fallen from the ceiling, but it had somehow wrapped around the woman’s leg. The other half of the cable fell, the large light tumbling down the pit and pulling the woman’s hand out of mine and dooming her. I stared, eyes the size of dinner plates as the squirming mass of hundreds of innocent people wriggled and writhed like worms, everyone climbing over each other in their desperate attempts to escape their fate.
+I saw a cable. It looked like it had fallen from the ceiling, but it had somehow wrapped around the woman’s leg. The other half of the cable fell, the large light tumbling down the pit and pulling the woman’s hand out of mine and dooming her. I stared, eyes the size of dinner plates as the squirming mass of innocent people wriggled and writhed like worms, everyone climbing over each other in their desperate attempts to escape their fate.
   
 
   
@@ -170,10 +170,8 @@ I saw something off in the distance that made me start. I broke free and grabbed
   
 
   
-I pointed a shaking finger down the street, toward the city’s covered stadium. Even from this distance we could all see its roof caving in, the sides falling inwards, darkness consuming it as readily as the ground did. All around us, screams erupted from buildings just like the one we had escaped. We all stood there in the darkness of the alleyway, turning around in circles as we tried to pinpoint the sources. There were too many to count.
+I pointed a shaking finger down the street, toward the city’s covered stadium. Even from this distance we could all see its roof caving in, the sides falling inwards, darkness consuming it as readily as the ground did. All around us, screams erupted from buildings just like the one we had escaped. We all stood there in the darkness of the alleyway, turning around in circles as we tried to pinpoint the sources. There were too many to count. I could only hope those making the screams were still managing to escape.
   
-
-  
-“I don’t think there’s a place where we won’t die now.”
+"I don’t think there’s a place where we won’t die now.”
 
 Part 2: https://www.reddit.com/r/nosleep/comments/17fsq9v/urban_appetite_part_25_city_life_can_eat_you/

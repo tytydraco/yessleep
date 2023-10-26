@@ -2,7 +2,7 @@ Part 1 - [https://www.reddit.com/r/nosleep/comments/17ezktq/urban\_appetite\_par
 
 &#x200B;
 
-We stood in the alleyway by the Foundry, trying to gather our shattered wits with the other survivors after the venue caved in. We’d all pulled out our phones, but nothing worked. No signal could be found. Even emergency calls failed. Someone tried to do a satellite connection but it failed just like everything else. Given the street lights, the power grid was still on despite all the buildings caving in from the inside out, but we were completely cut off.
+We stood in the alleyway by the Foundry, trying to gather our shattered wits with the other survivors after the venue caved in. We’d all pulled out our phones, but nothing worked. No signal could be found, at least not at that moment. Even emergency calls failed. Someone tried to do a satellite connection but it failed just like everything else. Given the street lights, the power grid was still on despite all the buildings caving in from the inside out, but we were completely cut off.
 
 A little girl cried in the arms of her father. “It’s gonna be okay,” he said to her in that gentle paternal tone, stroking her hair as he held her. I caught his eye and I could tell he didn’t believe his own words.
 
