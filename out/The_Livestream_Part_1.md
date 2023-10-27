@@ -173,3 +173,5 @@ We all went back to gluing our faces to the screens.
 
 
 -	“Look!” Ali exclaimed, “The reflection! In the mirror!... It’s gone!”
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/17hkcmf/the_livestream_part_2/?)
