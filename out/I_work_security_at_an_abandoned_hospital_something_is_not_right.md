@@ -1,3 +1,6 @@
+[part 2](https://www.reddit.com/r/nosleep/comments/17hackd/i_work_security_for_an_abandoned_hospital/?utm_medium=android_app&utm_source=share)
+
+
 I recently was on indeed looking for a new job, I finally quit that one dead-end job, everyone has at one point. Anyways, I was scrolling through, and  I found a graveyard shift security position opening. It was at the abandoned hospital, in my hometown. I applied for it, following the next day, I got a phone interview. My first shift was the next night from 10 pm to 7 am. I left at about 9:00 pm the next night.
 
 As I pulled up to the hospital, I saw a person next to the hospital entrance waving at me. I got out and shook his hand. It turned out to be my new boss, Matt.
