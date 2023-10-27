@@ -61,7 +61,3 @@ But my sister did die alone, while I ran to the nurse's station. Horrified. Than
 But while I lay here recovering from a stomach full of Drano stolen from the Janitor’s closet, I keep wondering the same thing: **should I have told my sister, my confession?** Told her that I was the person Aunt Vera had an affair with? Maybe not, maybe some things are best kept to ourselves. 
 
 What do you think?
-
-
-  
-[https://ibb.co/jr3YmZ1](https://ibb.co/jr3YmZ1)
