@@ -16,7 +16,7 @@ In the thick, suffocating darkness, every sound becomes a potential threat. It's
 
 Izzy hears me and joins in, her authoritative tone echoing my command. "Back to back! Hold your positions! Don't shoot unless you're certain of your target!"
 
-Clutching my radio, I quickly press the transmit button, desperate to establish a connection with any outside help. “This is Logan at the community center! We're under attack! We need backup! Repeat, we need backup now!”
+Clutching my radio, I quickly press the transmit button, desperate to establish a connection with any outside help. “This is Tohannie at the community center! We're under attack! We need backup! Repeat, we need backup now!”
 
 Static answers my call. My heart sinks, but I try again, adjusting the frequency in hopes of finding a clear channel. “Anyone, please! We're being attacked by...” I hesitate, knowing how it would sound, “...by something not human!”
 

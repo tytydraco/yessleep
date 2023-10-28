@@ -98,7 +98,7 @@ Lightfolding, a rare technique, involves achieving velocities so immense that th
   
 In the event that the lights of your spaceship extinguish, keep calm. Quickly put on your Astrofleet-issued night vision goggles and make your way to the secure chambers of the ship’s saferoom and, above all, don’t look outside. We can’t stress enough how important it is to not look outside. Only when the lights come back on can you safely emerge back to the rest of the ship.  
   
-23. **Your Astroknight Contract*$  
+23. **Your Astroknight Contract**  
   
 Within the Earthrealm Astrofleet, once you're in, you're bound until the end of your contract or until your final breath. Attempting to depart from us prematurely carries grave repercussions, such an action is not advised. We would kindly ask you to not tell anyone about this either.  
   
