@@ -138,7 +138,7 @@ Silhouetted by the dim light I could see people swimming back and forth. Only th
 
 The boat I was on had a section that was a clear window in the deck so you could see clearly underwater. Bobby had always told me it was for spotting fish. I put my face up to it and looked towards the lights.
 
-There in the center of the ring of lights at the bottom of the lake, protruding up out of the muck and mud was the beak of a giant octopus. It opened and then two figures swum into the light, the green lizard type I'd seen in Bobby's backyard. They were pulling Mr. Hartley's lifeless body which left a trail of red in the water behind it.
+There in the center of the ring of lights at the bottom of the lake, protruding up out of the muck and mud was the beak of a giant octopus. It opened and then two figures swam into the light, the green lizard type I'd seen in Bobby's backyard. They were pulling Mr. Hartley's lifeless body which left a trail of red in the water behind it.
 
 They put it in the mouth of the creature who chomped down on it releasing a cloud of blood into the water. Then they all started swimming around it in circles excitedly.
 
