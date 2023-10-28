@@ -106,7 +106,7 @@ I looked back and forth between them, trying to guess the worst thing they could
 
 --------
 
-[The breakthrough](https://redd.it/17c9f3h)
+[The breakthrough](https://redd.it/17iaui8)
 
 -----------
 

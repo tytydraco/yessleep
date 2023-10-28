@@ -90,12 +90,4 @@ She stood, unmoving, while staring at her extended arm. Just below her wrist, an
 
 “Oh shit,” I whispered. “Lacey – do you become one of them once you’re bitten?”
 
-Frank glanced from Lacey down to me, then over to where the [gun lay on the ground](https://www.facebook.com/P-F-McGrail-181784199029462/).
-
-[BD](https://www.reddit.com/r/ByfelsDisciple/)
-
-
-
-[W](https://www.youtube.com/channel/UCcn_pa1QfNMRzbTuJqXSoRQ)
-
-[E](https://www.reddit.com/r/TheCrypticCompendium/)
+Frank glanced from Lacey down to me, then over to where the gun lay on the ground.
