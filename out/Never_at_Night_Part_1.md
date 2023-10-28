@@ -10,7 +10,9 @@ She wears a Karl Lagerfeld black pantsuit (I knew nothing of fashion then but I 
 
 I follow her into the elevator but am too much of a coward to strike up conversation. I regret this and, all week, the quips and openers I could have used come to me. The only good thing that comes from my yapping is I find out who she had an appointment with in the building. Jimmy. A try-hard junior trader, whom, due to the sudden stroke his boss just suffered, has been entrusted with her account. I also get confirmation from Jimmy, she has “dick-shrikin” amounts of money. But more importantly, she’s single. 
 
-I’m also glossing over a company policy that employees of the bank are not to date any client of the bank, especially one of Miss Evangelista’s net worth. I’m also downplaying how overwhelmingly intimidated I am by this woman. But before I even understand that I am… and before I have even spoken a word to her, I am willing to risk everything, including the job I’m consistently told was a *lucky draw*, to know her. I decide to walk over to Jimmy’s new trading desk one day and try not to sound too desperate. 
+I’m also glossing over a company policy that employees of the bank are not to date any client of the bank, especially one of Miss Evangelista’s net worth. I’m also downplaying how overwhelmingly intimidated I am by this woman. But before I even understand that I am… and before I have even spoken a word to her, I am willing to risk everything, including the job I’m consistently told was a *lucky draw*, to know her. 
+
+I decide to walk over to Jimmy’s new trading desk one day and try not to sound too desperate. 
 
 “Willy Boy…” Jimmy adds the boy, despite us not being friendly enough to do so. “She’d never date you… I know she seems friendly but she’s a frigid bitch.” He’s only bold enough to talk like this because of his newly acquired Rolodex of clients.
 
@@ -28,17 +30,17 @@ She looks at me, vulnerably, and, in the sincerest way, she goes, “This is the
 
 I was so concentrated on the flowers, I honestly didn’t prepare what to say next. I just stand there like a dud before I think of something.
 
- “What’s your name?” she asks. 
+“What’s your name?” she asks. 
 
 “Will. Will Claiborne.” I’ll bet I was blushing. 
 
 “*Salamat*, Will Claiborne.” She leaves me with that as she enters the building. I know “Salamat”! It means “thank you”. She said my name! I’m over the moon. 
 
-I also don’t know what to expect after that. She could have dated anyone she wanted to, so the fact that someone like her gave someone like me her attention was enough flattery for a lifetime. A week later, she calls. I don’t know how I am this lucky. I have no idea how she got my home number, but I’m so elated I don’t even question it. 
+I also don’t know what to expect after that. She could have dated anyone she wanted to, so the fact that someone like her gave someone like me her attention was enough flattery for a lifetime. A week later, she calls. I don’t know how I am this lucky. I have no idea how she got my home number, but I’m so elated I don’t even question it.
 
 All these years later, I remember when she brings up the condition, the one rule to going out with her: 
 
-“I can’t ever go to dinner with you.” She says. 
+“I can’t ever go to dinner with you.” She says.
 
 My heart sinks… then, “How about lunch?” She playfully suggests. She has a sense of humor. 
 
@@ -62,7 +64,7 @@ I’ll say this because I’m going to assume the question is going to come up: 
 
 I’ll admit it’s a touch disappointing that she simply doesn’t say it back, but I said it because I meant it and felt it, not to evoke a certain response from her.
 
- “More than you will ever know,” I tell her. 
+“More than you will ever know,” I tell her. 
 
 “Would you love me if I were to… change?” 
 
@@ -78,17 +80,17 @@ Sometime around five months of dating, Elisa tells me comprehensive insider trad
 
 Two days later, the CEO of the seemingly lucrative company dies at Mount Sinai. In elite circles and over hushed tones, it is rumored the cause of death is blood loss. 
 
-The day I get the promotion, I am so thrilled and the only person I want to celebrate with is Elisa. She is also the reason I had gotten this unfathomable career escalation and I want to thank her. I find myself taking a cab over to her apartment and ignoring the one rule she asked of me. I get out of work unusually early, before sunset, and I honestly think she’ll be so happy with the news that she’ll understand why I’m breaking the rule.As my cab pulls up to her apartment, I see her exiting the building in a fitted black dress, and getting into her car, a Mercedes Benz 500 SEL AMG. She is being driven Ronaldo, her chauffeur, a Filipino guy in his late 20’s. Her car takes off before I can get out of the cab. Maybe she has to entertain for work or maybe she’s on her way to an office I don’t know about… I realize there is a lot I don’t know about her. 
+The day I get the promotion, I am so thrilled and the only person I want to celebrate with is Elisa. She is also the reason I had gotten this unfathomable career escalation and I want to thank her. I find myself taking a cab over to her apartment and ignoring the one rule she asked of me. I get out of work unusually early, before sunset, and I honestly think she’ll be so happy with the news that she’ll understand why I’m breaking the rule. As my cab pulls up to her apartment, I see her exiting the building in a fitted black dress, and getting into her car, a Mercedes Benz 500 SEL AMG. She is being driven Ronaldo, her chauffeur, a Filipino guy in his late 20’s. Her car takes off before I can get out of the cab. Maybe she has to entertain for work or maybe she’s on her way to an office I don’t know about… I realize there is a lot I don’t know about her. 
 
 I decide not to tell Elisa about this slip up. It will only upset her. We celebrate my promotion over a brunch that next weekend. I ask her how she found out about the company’s declining profits because the CEO had gone through great lengths to hide the financials. She tells me that every first Tuesday of the month, several CEO wives, including the wife of CEO of the seemingly lucrative company, go to the Pierre for high tea -- which is code for coke and B-52s. So Elisa goes to the Pierre and follows Mrs. Seemingly Lucrative Company and a friend to the bathroom where the wife is distraught about having to sell their East End and Vail estates. This makes absolutely no sense because, with the housing market at a 14% interest, no one is selling unless they have to… which also doesn’t make sense… unless seemingly lucrative company is seemingly misreporting their quarterly earnings. 
 
-First off, I’m astounded that this woman even tolerates my presence. But something is off about her story. I stop her right then. 
+First off, I’m astounded that this woman even tolerates my presence. But something is off about her story. I stop her right then.
 
 “Darling, you are many things, but unnoticeable is *not* one of them. Why did these women talk so openly in front of you?” 
 
 She explains that when she doesn’t dress up and even a few times when she does, these wealthy, white housewives often mistake her for the help or maybe, a foreign tourist who doesn’t speak English. They rarely guard their secrets around her; they make the mistake of thinking she has no power.
 
- \*\*\*\*\*\*\*\*\* 
+\*\*\*\*\*\*\*\*\* 
 
 A month later, I relent to my mom’s incessant pleas to meet the woman who has captured my heart and locked up all my free time. Elisa is happy to meet my family as long as we abide by the rule of having her home before sunset. My parents are older, so an early lunch is perfect. Ronaldo, her driver, takes us up to my parents’ home in Hunts Point. My parents have invited my mom’s mom, my Mimi, my dad’s parents, my Nonna and Nonno, my sister, Jean, and her husband, Doug. Mom probably thinks it will be another six months until she sees me next, so she’s cramming it all in. 
 
@@ -98,7 +100,7 @@ I have been so focused on work and the precious weekend days with Elisa that I d
 
 “I know, I know. It’s just work…”
 
- “We know about your big fancy job in the city. And we know as much as we can, or as much as you let us know, about your big fancy fiancée,” Mom teases. 
+“We know about your big fancy job in the city. And we know as much as we can, or as much as you let us know, about your big fancy fiancée,” Mom teases. 
 
 “Not yet,” I reply. “But hopefully someday soon.” 
 
@@ -120,17 +122,19 @@ The time comes for Elisa and I to leave, but I’m having a little trouble wrapp
 
 “Let the woman be! If I could I would…” Nonna responds, and Nonno, in his brusque way, talks over her, “Too independent if you ask me.” To which Nonna then talks over him, “No one asked you!”
 
- And then, quietly but piercingly enough to part the seas of the conversation, Jean mutters: “She really scared me.”
+And then, quietly but piercingly enough to part the seas of the conversation, Jean mutters:
 
- “What do you mean?” I ask Jean.
+“She really scared me.”
 
- “The way she hovered over the baby. It was like she wanted it—” Jean clarifies. 
+“What do you mean?” I ask Jean.
+
+“The way she hovered over the baby. It was like she wanted it—” Jean clarifies. 
 
 “So she wants a baby!” Mom interjects. 
 
 “No!” Jean stands firm. “She didn’t want **a** baby. She wanted ***my*** baby.” 
 
-Then Jean hurls herself forward and emits a pained shriek. Mom and Mimi attend to her and I get her a water. She ends up being okay, it’s an intense lower back spasm that she can’t take anything for because of the baby. But once she’s settled on the couch, heating pad on back, the family doesn’t return to the conversation of Jean’s fear of Elisa. 
+Then Jean hurls herself forward and emits a pained shriek. Mom and Mimi attend to her and I get her a water. She ends up being okay, it’s an intense lower back spasm that she can’t take anything for because of the baby. But once she’s settled on the couch, heating pad on back, the family doesn’t return to the conversation of Jean’s fear of Elisa.
 
 Later, as Mom and I clean, she tries to smooth things over.
 
@@ -142,7 +146,7 @@ I walk Jean and Doug to their car, an older Mercury Colony Park station wagon. T
 
  “I know I can’t apologize for Elisa, but I don’t think she meant to scare you. I’m not sure she can have kids… maybe she was jealous of you is all I’m saying.”
 
- *I know I shouldn’t have revealed Elisa’s secrets or what I thought were her secrets, but I’m trying to show my baby sister who I had spent months ignoring that I’m on her side too. I am trying to extend sympathies, albeit not mine to dole out, from my girlfriend to my sister.* 
+ *I know I shouldn’t have revealed Elisa’s secrets or what I thought were her secrets, but I’m trying to show my baby sister who I had spent months ignoring that I’m on her side too. I am trying to extend sympathies, albeit not mine to dole out, from my girlfriend to my sister.*
 
  Jean nods and, like a good Irish Italian Catholic, drops the ordeal. “Come up to Tuxedo Park soon, okay?” Tuxedo Park is the idyllic village where Jean and Doug live. 
 
@@ -160,7 +164,7 @@ Little do I know that by the time I make it to Tuxedo Park, it will be too late.
 
 \*\*\*\*\*\*\*\*\* 
 
-I was naive then and I took all the wrong sentiments from that lunch with my family. Now from the vantage point of someone close to death, I have no regrets about the choices I have made, but looking back there were so many signs I could have caught that day. That day, I walked away from that family brunch with one thought: I have to propose to Elisa. 
+I was naive then and I took all the wrong sentiments from that lunch with my family. Now from the vantage point of someone close to death, I have no regrets about the choices I have made, but looking back there were so many signs I could have caught that day. That day, I walked away from that family brunch with one thought: *I have to propose to Elisa.* 
 
 Shopping for a ring for your girlfriend is hard, but if your girlfriend is a millionaire who can buy herself anything she wants, it is damn near impossible. For me this isn’t about being showy or diamond cut and clarity (subjects I come to know intimately through the ring shopping process), it’s about finding a ring worthy of Elisa. This comes in the form of a three-carat, vintage, Asscher cut, yellow diamond set in white gold that I win in an auction at Christie’s. I outbid a countess and famous collector for it and I emerge from the auction house holding the box, feeling like a champion. 
 
@@ -204,7 +208,7 @@ The next day is a Sunday and I usually spend every Saturday and Sunday day with 
 
 “Of course,” she answers. “Every night we’re not together, you work? And do nothing else…”
 
- She is getting annoyed. “I eat.” 
+She is getting annoyed. “I eat.” 
 
 It’s silent for a minute. “Why all the questions?” She stops chopping tomatoes for a salad. 
 

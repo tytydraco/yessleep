@@ -1,6 +1,6 @@
-[**The human mind can only take so much of this.**](https://www.wrongstation.com/)
+**The human mind can only take so much of this.**
 
-[We’re supposed to be in a meadow somewhere, eating fruit. That’s what our brains evolved to handle: a few moments of extreme crisis, spread out over a lifetime of meadows and fresh fruit. We’re not built for more than that. We’re not built for hour after hour after day after month of cruelty and evil.](https://www.wrongstation.com/)
+We’re supposed to be in a meadow somewhere, eating fruit. That’s what our brains evolved to handle: a few moments of extreme crisis, spread out over a lifetime of meadows and fresh fruit. We’re not built for more than that. We’re not built for hour after hour after day after month of cruelty and evil.
 
 At a certain point, the human mind breaks down.
 
@@ -324,7 +324,6 @@ Futile. Of course, futile. I could understand a man on a concrete floor; underne
 
 And then I looked up at the building behind her; at all the darkened rooms, each lit by the dim and flicking light of a single screen; by a low glow of fuschia and fleshtone.
 
-[*And I was just standing there.*
-](https://www.wrongstation.com/)
+*And I was just standing there.*
 
-[But could I even blame myself? It wasn’t my fault. I was only on contract, only for a time, and not even that much any more.](https://www.wrongstation.com/)
+[But](https://open.spotify.com/show/4GsVGnmPNdQSunHvdTpDBT?si=a419dcd0906743c1) could I even blame myself? It wasn’t my fault. I was only on contract, only for a time, and not even that much any more.
