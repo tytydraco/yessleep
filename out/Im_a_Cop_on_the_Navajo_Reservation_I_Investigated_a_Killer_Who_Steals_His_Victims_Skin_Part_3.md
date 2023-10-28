@@ -16,7 +16,9 @@ In the thick, suffocating darkness, every sound becomes a potential threat. It's
 
 Izzy hears me and joins in, her authoritative tone echoing my command. "Back to back! Hold your positions! Don't shoot unless you're certain of your target!"
 
-Clutching my radio, I quickly press the transmit button, desperate to establish a connection with any outside help. “This is Logan at the community center! We're under attack! We need backup! Repeat, we need backup now!”Static answers my call. My heart sinks, but I try again, adjusting the frequency in hopes of finding a clear channel. “Anyone, please! We're being attacked by...” I hesitate, knowing how it would sound, “...by something not human!”
+Clutching my radio, I quickly press the transmit button, desperate to establish a connection with any outside help. “This is Logan at the community center! We're under attack! We need backup! Repeat, we need backup now!”
+
+Static answers my call. My heart sinks, but I try again, adjusting the frequency in hopes of finding a clear channel. “Anyone, please! We're being attacked by...” I hesitate, knowing how it would sound, “...by something not human!”
 
 Grasping for any sense of direction in the pitch black, my fingers finally find Izzy's. I grip her hand tightly, the [coldness](https://www.reddit.com/r/nosleep/comments/14c93t1/im_an_arctic_researcher_we_accidentally_released/) of her skin evidence of the horror we're both experiencing. "Izzy," I rasp, my voice barely audible over the echoing screams and the growing pandemonium, "we need to get the lights back on."
 
@@ -154,7 +156,7 @@ For a few seconds, the vast desert landscape becomes as clear as day. The bright
 
 Their eyes, pale and malevolent, reflect the light, giving them an even more demonic appearance. Some crawl on all fours, their elongated limbs contorting in ways no human should. Others stand erect, their twisted forms draped in tattered rags that barely conceal their gnarled, skeletal frames.
 
-I can see the anticipation in their movements, the hunger in their eyes. They had been stalking us, waiting for the right moment to strike, using the darkness as their ally.
+I can see the anticipation in their movements, the hunger in their eyes. They've been stalking us, waiting for the right moment to strike, using the darkness as their ally.
 
 [X](https://www.reddit.com/r/PageTurner627Horror/)
 
