@@ -28,7 +28,7 @@ Upon arrival to an uncharted planet, you must partake in a ritual that binds you
   
 5. **Novus Tetra**  
   
-Novus Tetra, with its eerie red and black marbled surface, harbors a chilling enigma. The planet's mesmerizing appearance hides a dark, unexplained secret. Mysterious radio emissions, erratic magnetic fields, and unsettling disturbances in communication systems. Novus Tetra has gained a reputation amongst space forces across the universe. Over the millennia, the lives of many good astroknights have been claimed by the mysteries of this planet. For your own safety and the preservation of the unknown, we advise all travellers to steer clear of Novus Tetra.  
+Novus Tetra is a small planet in the Polarius galaxy, its eerie red and black marbled surface harbor a chilling enigma. The planet's mesmerizing appearance hides a dark, unexplained secret. Mysterious radio emissions, erratic magnetic fields, and unsettling disturbances in communication systems. Novus Tetra has gained a reputation amongst space forces across the universe. Over the millennia, the lives of many good astroknights have been claimed by the mysteries of this planet. For your own safety and the preservation of the unknown, we advise all travellers to steer clear of Novus Tetra.  
   
 6. **A Swirling Insignia**  
   

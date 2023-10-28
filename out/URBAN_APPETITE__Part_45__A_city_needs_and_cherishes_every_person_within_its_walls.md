@@ -76,4 +76,4 @@ His eyes fell below, and he saw what I had. The city reacted before either of us
 
 Just before I hit the cold water below me I heard the shots echo out from within. I can’t remember how long it was before I finally washed up onshore.
 
-Part 5 - https://www.reddit.com/r/nosleep/comments/17i35m2/urban\_appetite\_part\_55\_its\_not\_just\_city\_life\_you/
+Part 5 - [https://www.reddit.com/r/nosleep/comments/17i38ck/urban\_appetite\_part\_55\_its\_not\_just\_city\_life\_you/](https://www.reddit.com/r/nosleep/comments/17i35m2/urban_appetite_part_55_its_not_just_city_life_you/)
