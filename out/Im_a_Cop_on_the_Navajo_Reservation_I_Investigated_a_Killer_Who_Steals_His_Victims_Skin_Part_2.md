@@ -156,4 +156,6 @@ A beam of light suddenly slices through the darkness — a flashlight, wielded b
 
 The beam wavers and then falls, casting eerie, dancing shadows before plunging us once again into darkness. Another scream, quickly silenced.
 
+[Part 3](https://www.reddit.com/r/nosleep/comments/17i853v/im_a_cop_on_the_navajo_reservation_i_investigated/)
+
 [X](https://www.reddit.com/r/PageTurner627Horror/)

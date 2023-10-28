@@ -95,7 +95,7 @@ I sighed.
 Bella then turned her head to look at something in the darkness. I pointed my phone’s light into the direction that she looked, which was right in front of me.  
 My heart dropped when I saw what Bella was looking at.  
 Ben was lying face-down on the floor, in front of me and the stairs, unmoving.  
-“Oh my god!” I shouted, as I rushed over to him to see if he was alright.
+“Oh my god!” I screamed, as I rushed over to him to see if he was alright.
 
 He wasn’t.  
 When he fell down the stairs, he must have hit his head on the TV stand, splitting it open. There was no point in checking his pulse. He was dead.  
