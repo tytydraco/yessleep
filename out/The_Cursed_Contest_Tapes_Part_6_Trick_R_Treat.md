@@ -629,3 +629,7 @@ Oh yeah, speaking of Stella, she was able to get a new puppy from Brice and Shei
 &#x200B;
 
 This is [Zane,](https://www.reddit.com/r/StoriesFromRose/) logging [off.](https://www.threads.net/@rose_black2222)
+
+&#x200B;
+
+[https://www.reddit.com/r/nosleep/comments/17i652m/im\_a\_research\_assistant\_with\_some\_stories\_to\_tell/](https://www.reddit.com/r/nosleep/comments/17i652m/im_a_research_assistant_with_some_stories_to_tell/) (The mission I had around Halloween) 
