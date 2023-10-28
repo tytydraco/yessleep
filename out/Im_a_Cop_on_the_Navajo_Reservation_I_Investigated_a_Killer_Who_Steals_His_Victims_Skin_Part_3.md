@@ -14,7 +14,7 @@ In the thick, suffocating darkness, every sound becomes a potential threat. It's
 
 “Form a circle! Everyone, form a circle! Lights outwards!” I bellow, hoping my voice cuts through the chaos.
 
-Izzy hears me and joins in, her authoritative tone echoing my command. "Back to back! Hold your positions! Don't shoot unless you're certain of your target!"
+Izzy hears me and joins in, her authoritative tone echoing my command. "Shoulder to shoulder! Hold your positions! Don't shoot unless you're certain of your target!"
 
 Clutching my radio, I quickly press the transmit button, desperate to establish a connection with any outside help. “This is Tohannie at the community center! We're under attack! We need backup! Repeat, we need backup now!”
 
@@ -80,7 +80,9 @@ After what seems like an eternity, the voice responds, “Shimásání biyi'diz�
 
 Relief floods through me. I motion for the others to unbar the door and let them in. The entrance swings open to reveal Lieutenant Tahoma, his familiar face etched with concern and determination. Behind him stands the department's heavily armed SWAT team, their gear and weapons indicating they’re prepared for the worst.
 
-The survivors erupted in a chorus of relieved cries and whispers.Ben approached me, placing a reassuring hand on my shoulder. "Are you okay, Logan?"
+The survivors erupted in a chorus of relieved cries and whispers.
+
+Ben approached me, placing a reassuring hand on my shoulder. "Are you okay, Logan?"
 
 I nodded, glancing around the room at the aftermath of the attack. "We're alive, but we lost many."
 
