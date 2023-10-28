@@ -1,6 +1,6 @@
 I had a buddy named Bobby Martin in the 8th grade. We went to the same school and used to hang out at recess and lunchtime. Neither of us had a lot of friends other than each other but Bobby seemed to know most of the teachers and some older kids.
 
-He was a rich kid but I was not so whenever I got the chance I loved to go over to his house. He had video games and a pool. They had the latest his def tv. All the cable channels. But most of all they had a boat. A boat that we often used to go out onto the lake.
+He was a rich kid but I was not so whenever I got the chance I loved to go over to his house. He had video games and a pool. They had the latest hi-def tv. All the cable channels. But most of all they had a boat. A boat that we often used to go out onto the lake.
 
 I noticed all the rich people seem to live on lakes. I often wondered why and now I think I know.
 
