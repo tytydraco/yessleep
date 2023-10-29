@@ -807,3 +807,9 @@ Sheila’s voice trailed off as she stared at Brice on the hospital bed.  She gl
 &#x200B;
 
 Now I knew catching it [wasn’t](https://www.reddit.com/r/StoriesFromRose/) an [option.](https://www.threads.net/@rose_black2222)
+
+&#x200B;
+
+&#x200B;
+
+[https://www.reddit.com/r/nosleep/comments/17ix32m/im\_a\_research\_assistant\_with\_some\_stories\_to\_tell/](https://www.reddit.com/r/nosleep/comments/17ix32m/im_a_research_assistant_with_some_stories_to_tell/) (I think about the static sometimes)
