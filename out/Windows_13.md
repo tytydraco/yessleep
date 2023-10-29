@@ -4,7 +4,7 @@ As a disclaimer, I’ve had multiple health checks for mild depression and anxie
 
 After I went home, I opened up my computer to play some Valorant and I was greeted with the logo of Windows 13.
 
-When I saw that logo, I was dumbstruck as I remember denying multiple times the upgrade from Windows 10 to Windows 11 so seeing this logo was extremely strange to me. Everything with the computer seemed fine and all the files were there. I went downstairs and everything was normal. At around 9, I was just on my computer looking at the Windows 13 logo and was still extremely confused. I had searching on Google if Windows 13 was the current version of Windows of which it reassured me it did. I even searched ChatGPT and it said:
+When I saw that logo, I was dumbstruck as I remember denying multiple times the upgrade from Windows 10 to Windows 11 so seeing this logo was extremely strange to me. Everything with the computer seemed fine and all the files were there. I went downstairs and everything was normal. At around 9, I was just on my computer looking at the Windows 13 logo and was still extremely confused. I had searching on Google if Windows 13 was the current version of Windows of which it reassured me it was. I even searched ChatGPT and it said:
 
 The current version of Windows as of my last knowledge update in October 2023 is Windows 13. However, newer versions may have been released since then, and I recommend checking the official Microsoft website or a reliable source for the most up-to-date information.
 
