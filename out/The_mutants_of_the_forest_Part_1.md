@@ -26,7 +26,7 @@ But I couldn't shake the feeling that this animal's death wasn't natural. My ins
 
 Then, we heard it – a man's cries and screams reverberating through the forest. The sound was faint, distant, and blood-curdling. James and I exchanged worried glances and, without hesitation, ran toward the source. The cries grew louder and more distinct as we approached, but then, suddenly, they ceased. Complete silence descended, except for our heavy breathing and the crunch of twigs and leaves beneath our feet.
 
-As we entered a small clearing, we halted at the edge of a grassy field with a river flowing through it. The forest continued on the other side, several hundred feet away. On our side of the river, we spotted a young boy, approximately 12 years old, sitting beside a man in his thirties, clad in a military uniform. A knife was lodged in the man's chest. We stared, stupefied.
+As we entered a small clearing, we halted at the edge of a grassy field with a river flowing through it. The forest continued on the other side, several hundred feet away. On our side of the river, we spotted a young boy, approximately 15 years old, sitting beside a man in his thirties, clad in a military uniform. A knife was lodged in the man's chest. We stared, stupefied.
 
 James held his pocket knife tightly. "Let's see what the kid has to say.", I suggested.
 
@@ -70,7 +70,7 @@ While passing the dead body, Ghost pulled his knife out of it in a swift movemen
 
 "Can we... take a break?" I panted, genuinely impressed by the boy's agility and stamina.
 
-"Almost," he said, not seeming even a little tired. Then he slowed down and finally halted his run. He surveyed the area cautiously. I took a moment to study him. He couldn't have been older than 12, but he was fast and strong. He had brown hair and hazel eyes. He appeared friendly, which didn’t go well with my memory of the dead man near the river.
+"Almost," he said, not seeming even a little tired. Then he slowed down and finally halted his run. He surveyed the area cautiously. I took a moment to study him. He was fast and strong and had brown hair and hazel eyes. He appeared friendly, which didn’t go well with my memory of the dead man near the river.
 
 In one fluid motion, the boy sheathed both his own as James’s knife and pushed aside some leaves with his foot, unveiling a concealed handle. He pulled the handle, revealing the entrance to an underground hideaway with an eerie, creaking noise.
 
