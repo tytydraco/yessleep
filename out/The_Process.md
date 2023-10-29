@@ -4,7 +4,7 @@ It was time again.
 
 For a few months there, somehow the dread of reality had disappeared. I almost let myself forget. As always, it was inevitable. I would remember, the weight of it crushing me.
 
-I got up and struggled to put on my jacket, my hands were shaking. I should have been numb to it by now. I no longer had a family or friends, and in a way, that helped. I started to make my way to the square.
+I got up and struggled to put on my jacket, my hands were shaking. I should have been numb to it by now. I no longer had a family and in a way, that helped. I started to make my way to the square.
 
 I was lucky to live in the center of town; those on the further reaches had to make the commute every year. I was also lucky that I had inherited a large sum and was able to afford anything I could ever need, and finally, I was lucky that I didn't live on the edges of the city where they had to guard the walls.
 
