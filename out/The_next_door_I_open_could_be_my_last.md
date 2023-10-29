@@ -176,4 +176,4 @@ I’m sharing this with everyone I can in the hopes that one of these posts will
 
 Because although I don’t know where, I know something is coming soon – and I have the feeling it’s going to be something big.
 
-Something terrible.
+[Something terrible.](https://www.reddit.com/u/JamFranz/s/dToXZz7QwM)
