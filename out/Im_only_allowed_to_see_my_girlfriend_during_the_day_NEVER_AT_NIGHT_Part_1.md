@@ -128,9 +128,9 @@ And then, quietly but piercingly enough to part the seas of the conversation, Je
 
 “What do you mean?” I ask Jean.
 
-“The way she hovered over the baby. It was like she wanted it—” Jean clarifies
+“The way she hovered over the baby. It was like she wanted it—” Jean clarifies.
 
-.“So she wants a baby!” Mom interjects.
+“So she wants a baby!” Mom interjects.
 
 “No!” Jean stands firm. “She didn’t want **a** baby. She wanted ***my*** baby.”
 
@@ -196,7 +196,7 @@ I start to walk away. I’m almost done with this buffoon, but I stop, and becau
 
 Jimmy is unfazed. “Yeah right.”
 
-And with a point to prove, an ego to satiate, I stare him down and I. Don’t. Fucking. Blink. 
+And with a point to prove, an ego to satiate, I stare him down and I. Don’t. Fucking. Blink.
 
 He begins to walks away. A power move, I’m sure. As he stumbles down the street, he looks back ever so slightly. “She’s probably cheating on you.” He spins around. “And you probably buy it! The whole ‘don’t disturb me at night’ bull. She feeds that to everyone she works with…really covers her ass.”
 
