@@ -14,4 +14,4 @@ it has said enough that they died, no matter what, what was predicted will happe
 
 if anyone has ideas what to do to stop all these predictions, please tell me because even when i write it, my dreams are coming true, leading to more deaths as i feel something staring at me, i caught a glance of it, it was a nearly invisible creature with empty spaces for eyes(you know, like when there is a object with a hole and a shadow is cast through it). it seemed to have a gri. as it left my view, making sure i saw it.
 
-of anyone has similar things(predictions of the future) happening, please tell me if you ever prevented those prophecies, and if yes. please share your methods.
+if anyone has similar things(predictions of the future) happening, please tell me if you ever prevented those prophecies, and if yes. please share your methods.
