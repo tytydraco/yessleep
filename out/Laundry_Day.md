@@ -1,45 +1,173 @@
-Harold’s week divided and rotated itself in almost exactly the same way during the school year. Five days of study, two nights of partying, and all of Sunday to recover and do it all again. Unlike his peers, Harold hadn’t gotten accommodation on-campus, which meant that he lived in the city, a few miles from the university.
+Laundry day was both the best and the worst day of the week. Worst because my family produced an inhuman amount of laundry which was solely my responsibility to deal with, and best because I got to spend a couple of hours with my two best friends in the whole world, Shay and Lyn.
 
-There were many downsides to living off-campus. First - it’s expensive as hell. Living in a city that mostly accommodates high-level corporate types with money to spare, Harold had to accustom himself to the high rents somehow. That meant that he needed a job, and luckily he got one as a part-time waiter for a catering company. The company mostly worked galas, banquets and the like. Wearing a white button-up shirt and a black tie, Harold served those rich corporate-types glasses of champagne from silver plates, and fancy meats surrounded by swirled sauces and micro greens. But the job had its ups as well; he got to take leftovers home, the hours were flexible, and it paid decently enough. His favorite perk was the food though - even though it was usually just one meal’s worth, Harold knew that the ingredients alone often cost a fortune. Sometimes he’d imagine that the meal was a preview of his life after school, when he would have the means to eat fancy meals fresh, instead of as leftovers. Harold didn’t exactly like the people he serviced during his job, but he couldn’t deny that their lives held a certain glamour. 
+I’d push and pummel my family’s laundry into two of those big, flimsy-looking canvas bags, then huff and puff my way up the hill to the laundromat on Main Street. I was usually joined halfway by Shay – small and frail looking as a child half her age – wearing two huge and ratty backpacks on her front and back. Lyn was always there first, being the organised one. By the time we got there, she’d be sorting clothes into piles, with one headphone wedged in her ear blasting study notes loud enough to drown out the omnipresent hum, bang and clatter of the machines.
 
-Secondly - commuting. Taking the bus to campus became more bitter by the day, soured further by rain, snow, delays, and whatever else came in Harold’s way. Through practice, he had optimized his commute (exactly 28 minutes with a medium walking speed), and he would rather allocate any extra minutes he had during the morning to sleeping rather than to the off-chance that his commute would somehow be hindered. This meant that, if for whatever reason his exact routine was compromised, he’d arrive late to class. It probably wouldn’t bother him as much if it weren’t for his campus-dwelling friends, who needed to wake up but five minutes before a lecture - and they would take every chance they could to brag about how late they slept. At least Harold got to see the bustling city every morning, which was something he enjoyed.
+Unlike my family and Shay’s, Lyn’s family wasn’t actually poor – they were just super tight with money and knew the laundromat owners, so got a discount. It made more sense for their youngest daughter to lug all their clothes three blocks and wash them than to buy a machine and use their own water to do them at home. I guessed there was also some kind of disciplinarian aspect to it – like making sure Lyn knew her place as the dutiful daughter – but Lyn herself never talked about that. Of course, she’d never tell her folks that she actually enjoyed it, because then they’d probably take the chore away from her.
 
-And finally - the apartment itself. Harold had seen the campus accommodation, which was by no means luxurious, but his apartment was a shit-tornado of mold, leaky pipes, and painted over cracks. The floorboards were chipped, which required Harold to always wear shoes inside,  and they creaked loudly whenever he would take a step. The bathroom was cramped, mostly due to the awkward angle the toilet was placed along with the sink. To sit down on the toilet would require an average-sized adult to hop one leg over the toilet bowl, being careful not to hit their knee on the sink, while balancing their body weight on the other leg, until their ass slammed down on the cream-coloured plastic seat. And if you weren’t an average-sized person, well, things got complicated. Harold hated the bathroom, but there was one instance when he was weirdly grateful for its odd proportions. A few years back, he had gotten some cheap take-away after a night of drinking, resulting in an explosive, drunk-delirious case of food poisoning. When the contents of his stomach expelled themselves from both ends simultaneously, Harold was glad to have a sink to vomit into *while* he sat on the toilet. 
+Lyn also made a point of never talking about, or scrutinising, our clothes. My brothers’ clothes usually stank of accumulated sweat from their obsessive sporting exploits, and could generously be described as borderline threadbare. There were also the knitted monstrosities mom had made all of us since we were born. They came in an eye-watering array of cheap colours – socks, sweaters, beanies, anything you can picture in itchy wool, and all of them carried mom’s dire warning to wash and dry on the much lengthier cool settings, or they would shrink. I’d never been bold enough to test this; I’d already endured enough bullying at school because of her clothing choices for me. I really didn’t need ‘shrunken’ added to the sad list of adjectives used to describe my skint chic.
 
-Even though he was keenly aware of the things which were not the way he’d like, Harold possessed an appreciation for the silver-linings in his life. “Even a broken clock is right twice a day” was one of his favorite proverbs, for he found it accurate - and just slightly a  convenient justification for shitty things being shitty. Besides, this was all temporary. After school he’d get a job that pays well, and rent an apartment that wasn’t a constant safety hazard.
+As for Shay? Her family’s income was inversely proportionate to the number of kids they had. ‘Threadbare’ in this instance would have been an overly generous description of their earthly garments; which her mother insisted just highlighted how lavishly clothed their souls were, or something like that. I often reflected on how it was a shame that this apparent spiritual richness didn’t translate into a full belly, because if Shay hadn’t been notorious for hanging around the trash cans at school to nab any decent uneaten food, you would have accused her of being anorexic. I was constantly amazed she had the energy to carry all her family’s clothes, let alone go through the rigamarole of washing them too.
 
-So when Sunday rolled around, it was time for Harold to do chores, thereby readying himself for the upcoming week. After a slightly hungover breakfast and a quick dance around the toilet, he decided to start off with his least favorite task: laundry. Although the campus accommodation didn’t have creaking floors, bathrooms made for acrobats, or a constant stench of mold, they didn’t have laundry machines either. So even though Harold wasn’t eager about washing his clothes, he did appreciate being able to do it from the comfort of his own home. Besides, laundry machines were also a rarity in small flats in the city, and Harold knew this. When he moved in, the landlord didn’t offer an explanation as to *why* the machine was there, but Harold didn’t really care, and he was afraid that if he asked the landlord might take it away to some nice apartment uptown where it *actually* belonged.. So, every Sunday he would make sure to do at least one load of laundry, and today was no different.
+Anyway, despite our ‘diverse’ backgrounds, labouring at our weekly chore had meant we’d quickly become friends. We made sure our washing days always synced up. It was a couple of hours free from any other people or responsibilities, so there we sat together in the weirdly liminal space of the Main Street Laundromat, talking shit and watching clothes circle in the massive industrial washers and dryers. Like I said, it really was the best day of the week.
 
-The front-loading machine sat along the right wall of the apartment right next to the kitchenette, conveniently doubling as a kitchen surface when not in use. It wasn’t a new machine, nor was it a very old machine. The buttons were analog, but there were led-lights which corresponded to the applied settings. It was so overwhelmingly nondescript, that Harold could barely describe it from memory, for nothing in it stood out - but it worked, which was its main attraction.
+Or at least it had been. Until we found the note.
 
-Stepping up to the machine, Harold turned the knobs from memory, putting on the exact temperature and time he liked to use. He chucked clothes from his laundry basket into the stainless steel drum, until a shirt he threw in would no longer fit and promptly fell on the floor. Harold had worked out this refined system of loading the machine through - as students often do - sheer laziness. Harold returned the overflowing clothes back into the laundry basket and squeezed the machine’s door shut, compressing the clothes inside into a taught ball. He reached into the closest kitchen cabinet and grabbed the washing detergent, adding a carefully measured splash into the compartment labeled “II”. Putting the detergent back into the cabinet with his right hand, his left hand automatically pressed the start-button on the machine - no effort wasted, no exertions made in vain.
+&#x200B;
 
-The machine started its wash cycle, making the clothes run and tumble in the steel hamster wheel in alternating directions. Meanwhile, Harold sat on the couch, alternating between a physics textbook and his phone. The machine wasn’t exactly troublesome; Harold had once even leveled it to minimize any excess shaking. The problem arose when the machine took on its spin cycles, which exerted enough force into the floorboards that they would start to bounce under the weight and movement of the machine. Besides Harold’s fear that the whole thing would come crashing through the floor into the apartment below, the thing made a huge racket. The floorboards would crack and squish violently,, and the machine would punch and clink from the inside while it jumped up and down. During a full two hour cycle, each new spin cycle intensified until the last one, until it crescendoed into a final march that felt like it shook the whole building. 
+Lyn spotted it as she opened one of the still-warm dryers; the paper creased, frayed around the edges from its ordeal inside the machine, but the ink bone-dry, unsmeared. She carefully unfolded the note to read it, and I peered over her shoulder while I set yet another additional 10 minutes on my cool cycle.
 
-After a while, as the more aggressive spin cycles started, Harold put down the textbook, and after five minutes of scrolling put down his phone as well, unable to concentrate on anything through the wall of sound coming from the laundry machine. He looked out the single window for a little bit at the wholly unexciting and gray street below, and then started to anxiously sort dishes, trash and books that had piled up around the room. He’d sigh once the cycle finally slowed down, and for a few minutes, while the machine did its quiet, regular wash between spins, Harold could breathe and concentrate. Then the spinning returned, and Harold held only a prayer in his mind that the thing stayed put and nothing would break. Sometimes the prayer was exchanged for a curse, but Harold knew that cursing the thing would only frustrate him further - besides, the thing hadn’t broken anything before, so why should it do so now? Either way, the ear-piercing sound suggested carnage to the part of Harold’s mind that detected such dangerous anomalies, which was something he couldn’t shake.
+“Probably someone’s lost homework” she joked, “Should probably check and return it to them.”
 
-As the machine neared its final cycle, Harold had cleaned out most of the trash, folded a few runaway shirts, and washed some dishes he had left to soak. The mess had looked big, but it doesn’t require much to make a small room look filthy. And besides, an anxious mind works fast, and Harold hit his record-speed as far as tidying up goes. He sat back down on the couch just as the machine started what Harold hoped would be its last spin cycle.
+Shay’s untidy mop of blonde appeared over Lyn’s other shoulder,
 
-The machine shook and pounced on the floorboards as the drum revved up in speed. Slowly the worst of the shaking subdued and was replaced by the high pitched hum that emanated from the steel guts of the machine. The whirring got louder and louder. Harold stared at the round glass door, which was reduced to a blurry dark ring, going faster and faster. Harold’s palms started to sweat. Every few seconds he thought that the machine had reached its maximum speed, but instead the whir and screech only intensified. Staring at the machine quickly became unbearable, for he was sure that looking at it would only challenge it to go faster. He couldn’t look away for more than a few seconds either, so his eyes darted around the room, but always landing back onto the machine. The anxiety of the most ridiculous doomsday to befall a man made him chuckle in irrational fear. 
+“Yikes, if it is homework it’d be kinder to throw it away. That handwriting alone is gonna get the kid a fail.”
 
-A point was quickly reached wherein Harold knew that the laundry program should’ve ended already. He used the exact same settings every time, so the timing was ingrained into his mind. When that point was a few minutes past, utter terror gripped Harold. His sympathetic nervous system concocted a complete fight or flight reaction, and Harold jumped up from his couch. His throat clenched up and his tongue stuck itself firmly into the roof of his dry mouth, pressing down on his front teeth like an earthworm to hard rock. His body beckoned him not to, but Harold knew he needed to go check the machine up close, to see what’s wrong. He calmed himself by whispering in between tight breaths “It’s probably nothing, uhh,  it’s an old m-machine… maybe I pressed something wrong… yeah. It’s nothing.” Then he approached the machine until he stood just a foot away.
+I was the fastest reader of the three of us (the library being the least expensive hangout in our town) and I scanned it at a glance.
 
-The hum and whir were now a scream. He felt not only the building shake, but the sound penetrating his head, slowly shaking his brain loose from his skull. Harold thought that maybe if there was something wrong with the machine it would beep, or show a red light like his car had done a few years back. Maybe this was normal, Harold thought; maybe it’s still *me* who got the timing wrong. An overreaction, and now the spinning will finally relent and he’ll soon laugh at his stupidity while folding his damp clothes on the drying rack. 
+“Um, that’s not homework,” I told them.
 
-Looking down at the control panel, his face suddenly turned hot red - there was nothing there. The led lights were off, the small arrow-lines on the buttons facing up. The machine shouldn’t be working right now, it shouldn’t be doing *anything*. Harold realized that the whole circuit must’ve gotten fried in some extraordinary way, and that he needed to unplug the thing before the glass door pops and he needs to add water damage to the list of things wrong with his apartment. Leaning over, his left hand felt for the outlet only to find it empty. Stepping to the side to look behind the machine, he saw the cord dangling on the floor, moving with the machine like a rattlesnake warning not to come any closer.
+Spreading the note flat on one of the folding counters, Lyn adjusted her glasses with one businesslike finger, and began to read aloud, her voice only just audible over the heavy hum of endlessly revolving machinery:
 
-Harold thought that the machine must retain a battery of some kind, instead of powering directly through the outlet. It *must* be. He didn’t know the type of machine this was, he didn’t own the manual, as a matter of fact he didn’t know anything about laundry machines at all. So it must be that it’s running off an internal battery - how would he know?
+“To who ever finding this note. I discover now a wonderful something! Riches beyond wild dreaming are mine and I have wish to share fortune”
 
-Harold stepped away from the machine. For a moment he thought to call his landlord, but his hands shook so violently that he could barely keep the phone in his hand. His sight became narrow and fuzzy. Nausea enveloped his stomach, turning his thoughts into thick gruel. He thought to run outside and call for help, but the idea filled him with shame - Harold wasn’t afraid of a goddamn washing machine, even though he was, but he couldn’t show that to anyone. They’d think he’d gone crazy. He decided to double check his prognosis of the control panel and the loose cord, punching the air and groaning fitfully to relieve his tense body and clear his head.
+“Jeez, are we being telemarketed by a fucking washing machine note?” I quipped under my breath.
 
-Valiantly, he took heavy steps to compensate for his shaking and promptly crouched down in front of the machine to look at the control panel once more. Nothing had changed. He jumped up and looked behind the machine to see the cord snapping at the floor, still unplugged. Of *course*, he realized, there weren’t batteries in washing machines; leaving behind all logical explanations and succumbing to the madness taking place before him.
+“Shhhhh!” Shay admonished.
 
-He stepped back and stared at the drum. It was going so fast it no longer seemed moving; the only evidence of it being the shrieking noise and the violent shaking felt throughout the room. The noise was so vast Harold felt consumed by it, the way it felt to stand in complete darkness. His senses were deprived, his bones rattled. His skin was cold and covered in a film of clear sweat. Harold did not know what to do anymore. He stared at the machine and started to weep - his face was unmoving, still from the fear and the senselessness of what was taking place before him. The tears vanished into the cracks of the floorboards directly underneath him. Harold’s mind started to detach from the scene before him; his sight blurry from the tears and his muscles sore from the stress. The noise was unbearable now, and Harold had nothing left in him to fight it; no thought, no reason, no movement.
+Lyn pursed her mouth, then continued louder:
 
-As Harold wept and his conscious self slipped further into the depths of his mind, the noise came to an immediate halt. The floorboards were still, the machine no longer moved, and the regular hum of nothing worked its way back into the apartment. Regaining a feel for his limbs and his eyes focusing back into reality, he saw the washing machine standing in silent stillness before him. The thought that he might’ve gone insane and recessed completely into his own mind crossed Harold briefly, but the return of his bodily aches seated him quickly back into reality. 
+“…wish to share fortune. I not believing at first, but there is world on other side of these machine! Don’t ask how I discover, is not happy story. But discover yes I did! If you go inside machine at after midnight, it take you another place. Strange place, many losted cloth and losted thing, but also losted money! Pile and pile of coin, old coin new coin, in big heap like snow, all clean and shining polish from machine trip. I have tape one coin to here note for you examine, it show my story real. Friend I big hope you find fortune also!”
 
-Next, a neat *click* sounded from the machine. The safety lock, Harold reasoned, remembering again how the laundry machine usually functioned. He felt comfortable enough to let out a sigh. This must’ve been a fluke, he thought, just me or the machine having some weird thing - and now the weird thing is gone and this’ll be normal again. A light chuckle emerged as Harold realized how insane he must be for getting so worked up over a laundry machine. He’ll have someone come take a look at it, and they’ll say the same thing: it’s an old machine, must’ve fluked. He’ll pay forty dollars for the visit and in return regain peace of mind. It’s a shitty apartment anyway, what does he care if the thing blows a hole through the floor?
+“There’s no coin,” Lyn said, disappointed, touching the rough patch where scotch tape had clearly ripped off the bottom of the note.
 
-Relieved and ready to move on, Harold took a step towards the machine, aiming to tackle the rest of the laundry process as quickly and smoothly as possible; find pairs for socks, stretch out t-shirts and fold everything on the drying rack. As he started to move, the machine clicked again, stopping Harold before he’d even taken a step. The round glass door slowly opened in a smooth, even motion, creaking loudly, stopping exactly ninety degrees from its starting point. Harold looked at the control panel, still blank. The cord, slightly poking out from behind the machine, still unattached. He knew that the door was heavy, equipped with a sizable handle that wouldn’t budge without someone physically opening it. 
+“Ooh one sec,” Shay replied, and hoisted her skinny legs easily into the mouth of the dryer.
 
-Harold approached the machine in even strides, took his laundry out, and shut the glass door, pushing it with force until he heard a *click*. He stretched his t-shirts, found pairs for socks, and assembled them onto the drying rack. As Harold was about to sit down on the couch, the drying sweat started to itch, so he decided to take a shower. Unrobing himself, he dropped his dirty clothes into the basket, ready for the next laundry day.
+After a few moments her pink, pimpled face peered out, then broke into a slow smile as she held out a gleaming silver coin, easily overlooked against the shiny steel of the drum’s interior.
+
+“That looks old,” I said.
+
+“Old, definitely. And maybe valuable,” Lyn posited, taking a photo, then immediately opening a browser on her phone.
+
+It didn’t take long to verify that the coin was from around 1920, somewhat rare, and that a specimen could fetch somewhere between forty and two hundred dollars at auction, depending on the condition.
+
+Shay’s pale blue eyes seemed all shiny coin themselves, glowing at this information.
+
+“Can we put it up on eBay?” she said, breathlessly, “Like, split it three ways?”
+
+I glanced askance at Lyn. She half-nodded, half-shrugged, re-folding the note. “Sure, I don’t see why not. I mean, technically \*you\* found the coin Shay, so it’s up to you.”
+
+Shay gave a little whoop of joy, and punched the air with the coin in her fist.
+
+In the excitement of it all, we virtually forgot about the incredible claim on the note.
+
+The silver coin (real silver, it turned out) sold two weeks later. The week after that, we met up at the laundromat, to divvy up the spoils. The auction capped out at eighty-eight dollars, and Lyn, the only one with access to her own bank account, reverently passed Shay and I a crisp new twenty dollar bill, plus a five dollar bill each.
+
+“Now, if you two can keep an eye on my load, I’ll go buy us ice-creams,” she declared – and we readily agreed.
+
+Twenty minutes later we were sat in our regular spot, watching our family’s dirty clothes slap and bang inside the big machines, blissfully eating our treats.
+
+Shay picked at the corner of the faux-leather cushioning on her seat, where the ancient yellow foam had started to come through.
+
+“You know. I could really get used to this,” she said, eyeing the nibbled-down stub of her cone.
+
+“I mean, yeah,” I agreed, “But what are the chances we ever find another coin like that?”
+
+That peculiar light entered Shay’s eyes again, and she stared at me with unnerving intensity.
+
+“Come on. You both know what I’m thinking.”
+
+Lyn shook her head definitely, matter-of-fact.
+
+“No. It was either a prank, or it was some schizophrenic asshole who randomly found a vintage coin somewhere. There is no fucking way you are climbing into a clothes dryer after midnight to look for a mystical laundry dimension full of collectable coins.”
+
+I could still feel the sharp-edged crispness of the newly minted twenty-dollar bill as Lyn had pressed it into my palm. That feeling, for me, had been borderline magical. For Shay? It must have been mind-blowing.
+
+Shay nodded morosely, then stuffed the end of the cone in her mouth, closing her eyes and grunting contentedly as she crunched.
+
+But I had to wonder if those eyes, beneath their thin lids, still shone with that same, pale and feverish light.
+
+We didn’t notice anything hugely different about Shay at school, except that she seemed happier and hung out with us a bit more, and spent less time hanging around the trash for free sandwiches. I don’t know why I assumed that was because she’d been eking out her twenty-five dollars. The girl had all the poor impulse control that I had – and I’d blown all my share in two days. Lyn was the smart one who was good with money and suchlike; Shay and I joked she’d probably invested it, and had already doubled her windfall.
+
+Maybe I fooled myself that I didn’t see the weird, long bruises across Shay’s shins, like nothing that had never been there before, or that one day she arrived at school with a swelling bump on the side of her head and was vague all day; unable to focus or pay attention.
+
+I mean, she was happy, even that day. Happier than I’d ever seen her.
+
+&#x200B;
+
+The first red flag was when she didn’t turn up for laundry day.
+
+This happened sometimes with one of us; someone would be sick, or have other plans, sometimes family stuff going on. But we’d always let the others know via IM. I did know wi-fi access was a bit spotty for Shay, but she’d always make an effort to let us know if she wasn’t coming – even if it meant sending one of her multitude of siblings to tell us.
+
+Now, Lyn and I weren’t dumb. We suspected exactly what you did; that Shay had been sneaking out at midnight to climb into the industrial dyers and look for coinage. The existence of the note, that first rare coin, Shay’s subsequently full stomach, her general demeanour of happiness – it all pointed to the idea that maybe she had found a way into some liminal space inside the laundromat where ‘losted things’ accumulated.
+
+“What about her injuries?” Lyn asked, “What if she’s, like, being abused by someone for money?”
+
+“As in, like, sex work or something?” I responded, incredulous.
+
+“I dunno, sure. Maybe kinky stuff? It’s a more plausible explanation. Occam’s razor and all that.”
+
+I knew Lyn didn’t want to discuss the note. She didn’t believe, she couldn’t, and I’m not certain I actually did either. I tried to be as logical at Lyn always was.
+
+“What if... what if the note and the coin just gave us enough doubt for her to do something else? To let her do whatever else it is that she’s doing, but to let us \*think\* she’s going to some stupid laundry pocket dimension?”
+
+Lyn nodded, “Maybe, yeah. But it still doesn’t explain where she is.”
+
+“I’ll check on my way home – stop in at her house.”
+
+“OK, cool. Let me know what you find out.”
+
+Shay’s mother, a harassed-looking woman in her late 40s with a newborn on one breast, told me she hadn’t seen her for “probably about a day”. Questioning the three brothers she shared a room with proved more fruitful; they claimed they hadn’t seen her for two nights.
+
+Her mother was loath to call the cops and report her missing, even after I told her I knew it had been long enough to worry. After I had a brief txt exchange with Lyn, Lyn convinced her parents to call the police and report our friend as a missing person.
+
+We waited for two more anxious days before both Lyn and I were contacted to come into the local station to answer some questions.
+
+The police officer was a woman, and she was really nice, offering us tea or coffee. She broke the news gently but plainly: Shay’s body had been found. Her mother had been informed, and they were in the process of releasing the information, whatever that meant. She asked us a few questions about Shay’s state of mind, her home life, then said she would try to answer any questions we had.
+
+I was shellshocked, but Lyn stayed composed.
+
+“Where? Where did you find her?” she asked.
+
+The officer’s expression was genuinely sympathetic.
+
+“In the Main Street laundromat. A woman doing her laundry late last night found the body - uh, Shay – inside one of the dryers.”
+
+“The one two from the right on the back wall” I said, barely audible.
+
+“Yes, that exact one,” the cop said, incredulous, and slightly suspicious, “How did you know that?”
+
+Lyn’s eyes were huge now.
+
+“Do you have... pictures?”
+
+The woman shook her head, “Look, the images are quite disturbing. It certainly isn’t suitable for you to view them, they…”
+
+He voice became a flat buzzing sound in the background, as I imagined what had happened. A kid at school once told me, with gruesome boyish relish in the details, about how his toddler brother had put their kitten inside the dryer at their house. Their mother heard an ungodly banging inside the machine and opened it to check, but too late. The cat was inside, wedged and tangled in white sheets, the stink of cooked blood. The poor animal was still just barely alive when they pulled it out, pink froth bubbling from its nose and mouth, the huge, swollen purple slug of its tongue blocking the airway. Its body convulsed for minutes in the miserable throes of death until it finally expired, stiff-legged, on the spattered linoleum.
+
+“…yes, in fact... there was something odd,” I emerged from the memory to hear the policewoman answering Lyn.
+
+“What?” I managed, “What did you say?”
+
+The woman gave me a sharper look. “There was something odd about the situation. Very odd.”
+
+“Well?” Lyn prompted.
+
+The officer sighed, then passed us a photo as if it was against her better judgement.
+
+“Her pockets, and her backpack, were full of these. We think that likely contributed to her death – the weight of them inside the machine may well have knocked her unconscious. The coroner will judge whether the heat, the battering, or both, were the ultimate cause of death.”
+
+I already knew what the photo would show, and so did Lyn. But we looked anyway.
+
+Piles and piles of coins. Many identifiably old, even with the perspective of the photo, where they might have been little drifts of silvery snow.
+
+&#x200B;
+
+Laundry day isn’t the same anymore.
+
+Lyn and I have a new place; neither of our parents let us go back to the Main Street Laundromat after the incident. Now we meet at a smaller, dingier place, six inconvenient blocks away.
+
+We don’t really talk about Shay. We both know what actually happened, and we both stayed tight-lipped, knowing the cops wouldn’t believe us – or believe the note.
+
+I believe it now, though.
+
+So every night, Lyn and I take a picture of ourselves in our bedrooms, after midnight, and send it to each other. We’re sort of each other’s conscience now, because otherwise Shay died for nothing. I don’t know about Lyn, but whenever I start to think about the note, it feels impossible that I won’t go back to the Main Street Laundromat. Wouldn’t you want to see for yourself?
