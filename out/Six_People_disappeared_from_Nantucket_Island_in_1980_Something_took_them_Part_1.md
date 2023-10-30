@@ -89,4 +89,6 @@ A few hours later, the state troopers from the mainland arrived, and the sheriff
 As I drove back to the station, I began to give some serious thought about transferring off the island and leaving. Nothing about this entire situation smelled right. When I’d come to Nantucket, I’d originally wanted to spend the rest of my life here. It seemed so different, so peaceful. Now, after the last week or so, it felt tainted. If anything, it felt worse than the city. The city had dope peddlers, murderers and rapists and fiends, but you knew about them. This place felt like secrets that shouldn’t be concealed, were. And worse, after the look I’d seen on the Sheriff’s face, it almost felt like he *knew* something. If not had an idea of who was taking these people.  
 
 
-I had no idea that I’d be faced with one final disappearance a few days later. One that would draw me into the most terrifying and horrific experience of my life.
+I had no idea that I’d be faced with one final disappearance a few days later. One that would draw me into the most terrifying and horrific experience of my life.
+
+[FINAL](https://www.reddit.com/r/nosleep/s/58fWnUfHEJ)
