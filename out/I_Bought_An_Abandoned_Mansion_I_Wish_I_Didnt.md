@@ -204,4 +204,4 @@ I don't know what this person plans to do with me, but I'm sure he would have mu
 
 I can't bring myself to eat the human flesh. I'd sooner starve. I've been surviving on the canned food. There should be enough to last for another month, maybe two. Before long though, there will be nothing left besides what's in the freezer. 
 
-If anyone ever finds this, tell my story. And I hope you get revenge on whoever has done this. Unless of course, [they get you too.](https://https://www.youtube.com/@macabre_horror)
+If anyone ever finds this, tell my story. And I hope you get revenge on whoever has done this. Unless of course, [they get you too.](https://www.youtube.com/@macabre_horror)

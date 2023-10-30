@@ -419,3 +419,5 @@ But I just couldn’t. He’s harmless. I know he is.
 Though I will say, he’s acting pretty weird right now. He’s staring out the living room window at the Victorian mansion across the street. He’s holding one of his mystery novels in his hand. He keeps saying “I get it now, I get it now, I get it now,” and he’s starting to look a bit frenzied.
 
 I’ll ask him what’s going on once he calms down a bit.
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/17k0clu/my_friend_moved_to_a_town_where_people_arent/)
