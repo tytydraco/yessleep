@@ -72,6 +72,8 @@ After a few minutes, Gabby pulled away and wiped her eyes, sniffling. "We need t
 
 "It's no use," Gabby called out. "The door is locked from the outside."
 
+Just then, I heard heavy steps approaching.
+
 Thinking on my feet, I rammed my elbow into the window of the cabin. Glass shattered, scattering shards everywhere.
 
 I quickly picked up a shard as the door creaked open. "Gabby, get behind me," I whispered, positioning myself between her and the entrance.
