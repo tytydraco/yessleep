@@ -48,7 +48,7 @@ If you’re wondering how I searched up how to mess with an electrical outlet li
 
 **Kill Your Masters**
 
-This one is about your idols, those we put on pedestals. That we allow power and control over the daily function of our lives. We’re all just blind rats in a sea of blind rats. Except some rats think they’re better than the rest. Some of them even learn to make traps. It’s funny, Animal Farm was the book that made me want to be a writer. I didn’t even really see the historical analogy at the time. In the pigs, all I saw was greed.
+This one is about your idols, those we put on pedestals. That we allow power and control over the daily function of our lives. We’re all just blind rats in a sea of blind rats. Except some rats think they’re better than the rest. Some of them even learn to make traps. It’s funny, Animal Farm was the book that made me want to be a writer. I didn’t even really see the historical allegory at the time. In the pigs, all I saw was greed.
 
 It wouldn’t be fair to take out my frustration on Eren. She’s only a product of a system that rewards her behavior. She’s incentivized to act in the way she does, because it yields results. No, to harm her wouldn’t do anything. It wouldn’t even punish the right person. No, I wanted her boss; her boss's boss. I wanted the person who allowed and fostered a system where HR complaints were logged, brought up the food chain and then dismissed. I want whoever allowed her to bully those who made those attempts. Eren is just the hound, she doesn’t really hold the key.
 
@@ -58,7 +58,7 @@ I found some photos of him online. You don’t really see him in the office, it�
 
 He’s a dog owner, with two beautiful great danes. I found pictures of them running in his backyard. I wonder if they think he’s a good owner. He doesn’t have staff over at his place when he’s in town. Probably doesn’t want to be reminded that he has staff care for his home. I looked around. It almost seemed kind of sad, living alone in a place like that. His daughters are off to college already. One is graduating in the summer, the other about to start her first year.
 
-His assistant logs his travel plans and correspond with the HR manager at our office. I had his itinerary and I knew roughly when he’d be home. I waited until the staff left the property. I make my way to one of his daughter’s bedrooms. I sit inside her closet and wait for the sound of his dogs.
+His assistant logs his travel plans and correspondence with the HR manager at our office. I had his itinerary and I knew roughly when he’d be home. I waited until the staff left the property. I make my way to one of his daughter’s bedrooms. I sit inside her closet and wait for the sound of his dogs.
 
 I hear the sound of their paws running downstairs.
 
@@ -100,4 +100,4 @@ They think an old coworker of mine, Jeffrey-something I forget, might be suspect
 
 **Nail Your Climax And Your Endings**
 
-Fuck. 
+Fuck.
