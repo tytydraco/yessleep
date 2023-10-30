@@ -119,3 +119,5 @@ One note: It was the evening before the night of Sânmedru, the night of Saint D
 &#x200B;
 
 From time to time, I still feel something of that night, like they are still close. Still waiting for the right occasion. But heck, trust on this, I shall not let them harm my daughter. Over my dead body. In fact, no, I feel that, even from beyond death, I shall not let them.
+
+Update: new things have happened. Check for [Part 2](https://www.reddit.com/r/nosleep/comments/17k0u2b/silver_whispers_part_2/)
