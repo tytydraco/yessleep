@@ -73,7 +73,7 @@ I shoved past him, catching him by surprise and causing him to fall to the floor
 
 “Fuck you, man.” said broom guy, right before the elevator doors closed, sparing me from watching the mime tear his insides out.
 
-\---
+---
 
 The wait for the elevator doors to reopen felt like it took forever. I was worried that the mime was going to burst through the ceiling and kill me. Fortunately, the elevator doors did open before that could happen.
 
