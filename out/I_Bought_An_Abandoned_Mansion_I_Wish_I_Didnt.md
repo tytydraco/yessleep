@@ -198,7 +198,7 @@ December 1st
 
 Or at least, I think that's what the date is. It's difficult to tell anymore. I've been counting the days by my number of sleeps, as I can't see any daylight. I haven't seen any daylight for at least a month. 
 
-This place has a pen and paper, that's how I'm telling you this. If I didn't have this, I think I would go insane. I write stories just like this one. Only, this one is real. 
+I found a rudimentary computer down here, but it can only connect to this site somehow. I read the stories to try and find out if anyone else has come across something similar - If they have, maybe I can find out how to escape. If I didn't have this, I think I would go insane. I write stories just like this one. Only, this one is real. 
 
 I don't know what this person plans to do with me, but I'm sure he would have murdered me by now if he wanted to do that. Maybe he's looking for a companion during the nuclear apocalypse, maybe he's planning on hunting me for sport, I don't know. 
 
