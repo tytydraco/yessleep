@@ -10,7 +10,8 @@ Anyways, I was walking down the street tonight, still pissed that I had gotten f
 
 It did.
 
-It started when I encountered a large crowd forming on the sidewalk. They were surrounding a mime street performer, who was doing the usual \*“Invisible Box”\* routine. After he finished, he bowed, taking off his beret and holding it out to collect spare change. I groaned as I saw all the idiots giving this bum their money, before I continued walking down the street, shoving through some of the crowd members. I suddenly felt something softly tap me on my shoulder. I turned around, and there was the mime, holding his beret out to me. I looked down into it, and for some fucking reason, it was filled with only dimes. There was also a tag on the inside that read “dimes only”.
+It started when I encountered a large crowd forming on the sidewalk. They were surrounding a mime street performer, who was doing the usual
+*”Invisible Box”* routine. After he finished, he bowed, taking off his beret and holding it out to collect spare change. I groaned as I saw all the idiots giving this bum their money, before I continued walking down the street, shoving through some of the crowd members. I suddenly felt something softly tap me on my shoulder. I turned around, and there was the mime, holding his beret out to me. I looked down into it, and for some fucking reason, it was filled with only dimes. There was also a tag on the inside that read “dimes only”.
 
 Did this dumbass seriously expect me to give him my money? That I worked so hard for? I didn’t think so. And why the hell would you only ask for dimes? I shoved the hat away, and turned back around, continuing to walk down the street. That was when I heard a few people begin to laugh. Then it became more. Soon, it sounded like a whole crowd was chuckling. I whipped my head around, only to see that the mime was behind me, stomping his feet, looking all angry. He was mocking me, and these people found it funny. How dare they. I flipped off the mime, and I could hear a few people gasp, only for them to laugh even harder when the mime flipped me off back.
 
@@ -200,7 +201,7 @@ Today has been extremely weird. I’ve been chased around by a supernatural mime
 
 But maybe there’s a lesson to be learned here. Maybe, just maybe, I shouldn’t have been an asshole to everyone that I have met, which could have prevented… a demon mime god tormenting me because I didn’t give him a dime. Speaking of, I’m gonna go check if I actually DID have a dime this whole time.
 
-\---
+---
 
 Turns out I never had a dime in my pocket, or my apartment.
 
