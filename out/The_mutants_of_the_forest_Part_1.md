@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/17kgsas/the_mutants_of_the_forest_part_2/?sort=new)
+
 It all began a few weeks ago while I was watching the news with my parents. A 32-year-old man had gone missing after he set out on a MTB trail deep within the forest. His wife, growing increasingly concerned, had reported his absence to the police. A search operation was launched, but all they found was his abandoned bike. Even after conducting a DNA test on the bike, they were left with no substantial leads.
 
 Weeks passed, and the initial frenzy of the search operation subsided. The man's wife was heartbroken, and he was ultimately declared dead. Most people in the area remained oblivious to the mysterious disappearance and continued using the trail as they always had.
