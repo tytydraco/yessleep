@@ -80,11 +80,11 @@ After what seems like an eternity, the voice responds, “Shimásání biyi'diz�
 
 Relief floods through me. I motion for the others to unbar the door and let them in. The entrance swings open to reveal Lieutenant Tahoma, his familiar face etched with concern and determination. Behind him stands the department's heavily armed SWAT team, their gear and weapons indicating they’re prepared for the worst.
 
-The survivors erupted in a chorus of relieved cries and whispers.
+The survivors erupt in a chorus of relieved cries and whispers.
 
-Ben approached me, placing a reassuring hand on my shoulder. "Are you okay, Logan?"
+Ben approaches me, placing a reassuring hand on my shoulder. "Are you okay, Logan?"
 
-I nodded, glancing around the room at the aftermath of the attack. "We're alive, but we lost many."
+I nod, glancing around the room at the aftermath of the attack. "We're alive, but we lost many."
 
 Ben's gaze follows mine, taking in the devastation around us. He lets out a heavy sigh. "We got a distress call, but we didn't expect... this." His voice is thick with emotion.
 
