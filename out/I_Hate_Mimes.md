@@ -71,7 +71,7 @@ Broom Guy saw me as well and took a step out of the elevator towards me.
 
 I shoved past him, catching him by surprise and causing him to fall to the floor, before running into the elevator, pushing the button to go to the bottom floor as fast as I could. I glanced down the hall and saw the mime, which didn’t even look remotely human anymore, on all fours. I also saw the guy with the broom, glaring at me.
 
-“Fuck you, man.” said broom guy, right before the elevator doors closed, sparing me from watching the mime tear his insides out.
+“Fuck you, man.” said Broom Guy, right before the elevator doors closed, sparing me from watching the mime tear his insides out.
 
 ---
 
