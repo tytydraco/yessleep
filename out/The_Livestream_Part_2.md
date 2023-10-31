@@ -1,4 +1,5 @@
 [Part 1](https://www.reddit.com/r/nosleep/comments/17fc88w/the_livestream_part_1/)
+[Part 3](https://www.reddit.com/r/nosleep/comments/17kiayg/the_livestrem_part_3/)
 
 I woke up around noon the next day, Saturday. Still fully dressed and lying in my bed on top of my sheets. I had more or less passed out right there.
 I rubbed my eyes and tried to recall the night before. 

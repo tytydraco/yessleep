@@ -1,4 +1,5 @@
-- Part 1 – The Cirkle Of Friends - 
+*[Part 2](https://www.reddit.com/r/nosleep/comments/17hkcmf/the_livestream_part_2/?)
+*[Part 3](https://www.reddit.com/r/nosleep/comments/17kiayg/the_livestrem_part_3/)
 
 The familiar sound of the computer starting up filled the room as I leaned back in my chair waiting for the screen to light up my otherwise, by my own choice, darkened bedroom. Another school week was over, the summer had at last said its final goodbye and outside the draped windows the now slightly coloured leaves were rustling in the wind and the rain danced on my windowsill. You could hear the difference in the sound of the leaves when the season started to change, the soft sound the trees made in a summer breeze were gone and had seemingly overnight transformed into the sharper tones of the dry, withering sound of nature slowly giving up, a foreboding signal of the months of darkness and cold to come.
 
@@ -173,5 +174,3 @@ We all went back to gluing our faces to the screens.
 
 
 -	“Look!” Ali exclaimed, “The reflection! In the mirror!... It’s gone!”
-
-[Part 2](https://www.reddit.com/r/nosleep/comments/17hkcmf/the_livestream_part_2/?)
