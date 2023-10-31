@@ -133,6 +133,6 @@ I saw her eyes that were filled with fear and regret. She tried her hardest to c
   
 "It's okay, Mum." I held back my tears. "You tried your best."  
   
-I grabbed the puppet of the princess.   
+I grabbed the puppet of the jester.   
   
 And continued the [show](https://www.reddit.com/r/Likeeyedid/).

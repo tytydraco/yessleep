@@ -1,4 +1,6 @@
-Part II: https://www.reddit.com/r/nosleep/comments/179suvg/muthangas\_curse\_part\_ii/
+Part II: [https://www.reddit.com/r/nosleep/comments/179suvg/muthangas\_curse\_part\_ii/](https://www.reddit.com/r/nosleep/comments/179suvg/muthangas_curse_part_ii/)
+
+Part 3: coming soon
 
 Every year, the state of West Bengal enjoys Durga Puja during which schools and offices are closed. Keeping this in mind, me and my friends decided it would be smart to spend autumn vacations in an old lodge owned by a friend’s uncle in the Muthanga Forest, Wayanad, Kerela. It was rated well and hence we expected the trip to be smooth and fun.
 

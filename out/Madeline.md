@@ -194,7 +194,7 @@ I stood frozen as Madeline’s corpse sat up. Madeline opened her eyes, and, pla
  
 I froze, unable to comprehend what I was seeing. “Are you, are you-” I stuttered.
  
-“They’re going to bury me, Michael,” she said, as she continued her approach. “Six feet under.”
+“They’re going to bury me, Michael,” she said, as she continued her approach.
  
 As she got closer, I recoiled at her rank, putrid smell. Impulsively, I backed up, only for the speaker to grip me tightly, holding me in place.
  
