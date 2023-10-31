@@ -135,5 +135,4 @@ I saw her eyes that were filled with fear and regret. She tried her hardest to c
   
 I grabbed the puppet of the princess.   
   
-And continued the show.  
-
+And continued the [show](https://www.reddit.com/r/Likeeyedid/).

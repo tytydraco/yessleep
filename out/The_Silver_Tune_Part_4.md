@@ -648,5 +648,6 @@ That dark liquid dripped from its mouth. The thing dropped to the floor with a h
 
 My phone echoed again. *“Ah, it is the sweetling. Too long. Eternity. I'm hungry…”*
 
+&#x200B;
 
-*Finale next week...*
+[Part 5](https://www.reddit.com/r/nosleep/comments/17kcqvq/the_silver_tune_part_5/)

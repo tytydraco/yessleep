@@ -528,6 +528,6 @@ Amongst the staff, I thought I saw someone out of place. An odd sort of person, 
 
 He smiled a cutting, terrifying smile as the door was closed behind me.
 
+&#x200B;
 
-
-*Part 3 is on its way...*
+[Part 3](https://www.reddit.com/r/nosleep/comments/17deqtl/the_silver_tune_part_3/)

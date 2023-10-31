@@ -1,4 +1,5 @@
 [Part 1](https://www.reddit.com/r/nosleep/comments/173ekw8/the_silver_tune_part_1/)
+
 [Part 2](https://www.reddit.com/r/nosleep/comments/178mggb/the_silver_tune_part_2/)
 
 *Before Creation peopled earth,*
@@ -394,7 +395,6 @@ Carol glanced at everyone watching and led us away.
   
 I swallowed and nodded. “Let's pack our things then. I think it's time to go.”
 
-
-
+&#x200B;
 
 [Part 4](https://www.reddit.com/r/nosleep/comments/17e65cv/the_silver_tune_part_4/)
