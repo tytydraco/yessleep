@@ -73,7 +73,7 @@ Loren Heath was the most popular student in our school and his parties were alwa
 
 "I was talking to him on here and he wants us to come."
 
-"Holy shit?"
+"Holy shit."
 
 "See for yourself."
 
