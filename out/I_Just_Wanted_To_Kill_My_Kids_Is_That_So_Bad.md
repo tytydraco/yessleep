@@ -6,15 +6,15 @@ It all began 'round 2008. Valeria, my then-girlfriend and I, looking for a home.
 
 So of course when Val came into my life, I fucked her good. She was easy. Like, went to bed with me after a couple of drinks at Mel's party. If only I had bought some damn condoms... But that's life. Girls will only go to bed with you if you have money, looks, or if they're drunk. I managed to trick Val into sleeping with me, but she trapped me with a kid. She'd then proceed to live off of me for the next nine months.
 
-Jesus fuck... Finding a place in '08... 
+Jesus fuck... Finding a place in '08...
 
-We got twins. Carlita and Rodolfo. Coño man, if it hadn't been for my parents, I'd never have made it through. They lent us a family place, some old apartment an uncle used to own. The place was half abandoned, but I got Val to clean it up real good. For a bit, everything worked out. I'd landed this job driving a Lift Truck at night, so at least I had time to game during the day. 
+We got twins. Carlita and Rodolfo. Coño man, if it hadn't been for my parents, I'd never have made it through. They lent us a family place, some old apartment an uncle used to own. The place was half abandoned, but I got Val to clean it up real good. For a bit, everything worked out. I'd landed this job driving a Lift Truck at night, so at least I had time to game during the day.
 
 That's whens*t* it all went to hell.
 
 I remember this night... Was playing CoD. The original Modern Warfare, the new one at the time wouldn't come out until a month or so. I remember getting frustrated that night, felt like I was wasting my youth having to take care of a kid and maintain my wife when I was just 24... Damn. Just then, a loud crash jolted me.
 
-No one else seemed to notice the sound. From the looks of it, both Val and the twins were still asleep. But the sound didn't stop. I was in the old study, with a clear view of the hallway to my right. Something was... breathing on the other side of the doorframe. I couldn't look at it, as if it was lying in wait just beyond the frame, covered by the dark. 
+No one else seemed to notice the sound. From the looks of it, both Val and the twins were still asleep. But the sound didn't stop. I was in the old study, with a clear view of the hallway to my right. Something was... breathing on the other side of the doorframe. I couldn't look at it, as if it was lying in wait just beyond the frame, covered by the dark.
 
 And that *smell*, something akin to a toilet that hasn't been flushed in weeks, or an open wound at a hospital. I would have noticed it more, were it not for the fact that the breathing sound became louder. I sunk deep into my sofa, not being able to move, hoping to God and above that by staying very still and protecting my backside, whatever was behind the doorframe would go away.
 
@@ -40,23 +40,23 @@ My kids were supposed to be three months old.
 
 2019. I spent a bitter part of our marriage insisting that something was wrong. I couldn't have skipped three years of my life, since when that incident occured in 2009, it was still 2009. Val simply thought I was crazy. The twins obviously didn't react at all. It took a lot of effort, but obviously I had to let it go.
 
-Ten years later, things weren't much better. Valeria had gotten a decent job as a manager at a McDonald's, but I wasn't getting any offers. I felt too tired to take care of the kids, so we had left them at my parents' house. Both them and Val judged me, but it wasn't my fucking fault. I wasn't getting any younger, and I hadn't been able to ever experience my youth - I was 34 and I hadn't ever done anything for myself, but it was expected of me to watch over every single thing my kids did. 
+Ten years later, things weren't much better. Valeria had gotten a decent job as a manager at a McDonald's, but I wasn't getting any offers. I felt too tired to take care of the kids, so we had left them at my parents' house. Both them and Val judged me, but it wasn't my fucking fault. I wasn't getting any younger, and I hadn't been able to ever experience my youth - I was 34 and I hadn't ever done anything for myself, but it was expected of me to watch over every single thing my kids did.
 
 Fuck, I wished they didn't exist at all. If they could just die in a fast manner so I could be done with them, that would be the best solution. Maybe that, and have a more pleasing wife.
 
-The night it happened it rained a lot. I was just drinking a bit of beer by the kitchen, looking at the outside. Maybe it was all my fault, I thought. Maybe it just so happened that I was a born loser who could only land a shitty wife and some shitty part time jobs. So of course, with each passing generation, everything would get worse. My parents were mediocre - I was a loser - what would my kids end up being? Shit rolls downhill, after all. 
+The night it happened it rained a lot. I was just drinking a bit of beer by the kitchen, looking at the outside. Maybe it was all my fault, I thought. Maybe it just so happened that I was a born loser who could only land a shitty wife and some shitty part time jobs. So of course, with each passing generation, everything would get worse. My parents were mediocre - I was a loser - what would my kids end up being? Shit rolls downhill, after all.
 
 Then suddenly, that loud bang.
 
 An odor, a sigh.
 
-The breathing began once again. But it only lasted a bit. This time, whatever it was, started doing this... *Backwards laugh*, as if it was inhaling lots of air rapidly. All the while it seemed to get closer and closer. 
+The breathing began once again. But it only lasted a bit. This time, whatever it was, started doing this... *Backwards laugh*, as if it was inhaling lots of air rapidly. All the while it seemed to get closer and closer.
 
 The strange laughing sound got louder and louder, but then it stopped. One of the lights simply burst, followed by a set of scurrying steps powering through my living room.
 
 They were headed to my kid's room.
 
-I ran as fast as I could, but nothing prepared me for what awaited me there. 
+I ran as fast as I could, but nothing prepared me for what awaited me there.
 
 A figure, draped in crimon, with long fingers running through my little Rodolfo's uncovered body. The face, I could not make out. But I remember hearing a voice, something akin to breaking glass:
 
@@ -106,7 +106,7 @@ Something like a distant scream bled across the sky, turning it into an orange h
 
 "Look at you mijo. You carry the curse of the one who's being marked by the Shapeshifter, *El Cambia Cuerpos*. Once a family invokes his services, he'll slip in, disguised, and slide into your body like a knife. Letting you be so close to your uncle was a mistake. I think the drowned king marked you too, just like it used to mark those who lived in war-torn lands, or places where the plague killed a lot of people."
 
-"Jesucristo mamá!!" I yelled, kicking away at a nearby rock. I stood up. "My son just fucking died, and I didn't ask for any of this! Nothing related to this fucking family was my choice - not my jobs, not my responsibilities, and certainly not my lack of a proper future. All I wanted was some time to enjoy my youth without children by my side all the time. And now..." I finally let some tears fall to the ground. 
+"Jesucristo mamá!!" I yelled, kicking away at a nearby rock. I stood up. "My son just fucking died, and I didn't ask for any of this! Nothing related to this fucking family was my choice - not my jobs, not my responsibilities, and certainly not my lack of a proper future. All I wanted was some time to enjoy my youth without children by my side all the time. And now..." I finally let some tears fall to the ground.
 
 "Besides..." I say. "You said it yourself. A thing like the Drowned King would only haunt places filled with pestilence or despair."
 
@@ -120,11 +120,11 @@ The pandemic took what was left. Valeria had to take Carlita to her parents'. Sh
 
 If you have to ask why didn't my parents pitch in, you can guess why. All I remember is their darkened bedroom, a mess of dust, and nothing more.
 
-Except for that reversed laugh it made when I ran away to call the police. 
+Except for that reversed laugh it made when I ran away to call the police.
 
 Was it actually fucking with me? Why?
 
-Sometimes... Shit just rolls downhill, I guess. It was my turn to bear it. 
+Sometimes... Shit just rolls downhill, I guess. It was my turn to bear it.
 
 And we did, for a time. Until tonight.
 
@@ -134,13 +134,13 @@ Guess it didn't like that.
 
 The lights went off all at once, exploding. Carlita ran towards me, knowing something was up. I held her close - she was only 14. My body - now in its fifties, could barely stand. Somehow, me and Val where the only ones who aged. Just then, I could feel the apartment floor starting to crack. Some appliances fell to the ground as the nails and structures holding them gave in.
 
-It was destroying the house. 
+It was destroying the house.
 
 **. . .**
 
 "Stay with me, honey! Ok? I'm not going to let it hurt you. Ok? Stay with me!" I say, looking my daughter's face. She tries to scream, trying to let me know something is in our living room.
 
-It's strange, looking at what's been haunting you your hole life for the first time. You almost feel relieved. 
+It's strange, looking at what's been haunting you your hole life for the first time. You almost feel relieved.
 
 A strange face. Familiar, contorted and inflated like a tumor growing out of the side of its head. Soft milky eyes, and a purple tongue, cut in half.
 
@@ -160,11 +160,13 @@ I am now in my couch, just like all of those years ago. I type this just so ther
 
 I cannot go on. I'm tired of everything. My body feels two decades older by now. I can't type.
 
-I look up at it once more. The creature, it now sports a familiar face, grinning. 
+I look up at it once more. The creature, it now sports a familiar face, grinning.
 
-Of course, it's a shapeshifter. Figures it would have done me in by taking advantage of my weak spot all those years ago. It places a hand on the computer.
+Of course, it's a shapeshifter. Figures it would have done me in by taking advantage of my weak spot all those years ago. It's been staring at me, as if it's going to do some-
 
-"It's ok. I'll finish it for you."
+...
+
+"It's ok. I'll finish it for you." I say to Mark, placing my hand on his computer. It doesn't matter that he was sobbing uncontrollably as I too his device away from him. Nothing matters at all.
 
 The last thing Mark felt was his loving wife's embrace.
 

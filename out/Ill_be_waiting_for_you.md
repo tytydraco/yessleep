@@ -1,6 +1,6 @@
 &#x200B;
 
-\[TW\] \[Violence\] \[Strong Language\]
+\[TW\] \[Strong Language\]
 
 &#x200B;
 
@@ -194,4 +194,4 @@ The article read…
 
 I read the news article over and over at the bar in the hotel lobby not knowing what to believe was real anymore.  I got a taxi home that night, knowing well enough I shouldn’t be driving.  I looked forward to seeing my wife and kids after the hell I just went through in that office, but I couldn’t bring myself to go inside after the Taxi drove away.
 
-I saw the silhouettes of my wife and kids, each in a different window of the house.  Each of them occupied their own window, staring at me, swaying side to side.  My phone is blowing up with texts from my wife all saying the same thing, “We’ve been waiting for you”.  Once I finish this post, I am not honestly sure if I’ll go in the house yet, maybe I’ll hop a taxi to the airport first and get away.  Maybe Ill just wait out here until I sober up, but Ill go in eventually.  After that, your guess is as good as mine.
+I saw the silhouettes of my wife and kids, each in a different window of the house.  Each of them staring at me, swaying side to side.  My phone is blowing up with texts from my wife all saying the same thing, “We’ve been waiting for you”. I am not honestly sure when I’ll go in the house, maybe I’ll hop a taxi to the airport first and get away.  Maybe I'll just wait out here until I sober up, but I'll go in eventually.  After that, your guess is as good as mine.

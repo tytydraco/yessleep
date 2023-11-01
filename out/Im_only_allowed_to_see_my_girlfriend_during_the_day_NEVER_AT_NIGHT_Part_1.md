@@ -265,3 +265,5 @@ When I can’t see her flying top-half anywhere in the night sky, I run for my l
 Once I’m inside, I drive. I finally start to breathe. The only thing I can do to keep from coming apart is concentrate on the signs and street lights around me, anything to not see that face… holy hell… what in Satan’s name happened to her face?!
 
 As I’m driving away, a new wave of dread starts to wash over me… This town looks so familiar… though I can’t pinpoint why. It’s only when I see the sign: ***You Are Now Leaving Tuxedo Park***. I am able to put the pieces together. This is where my pregnant sister, Jean, lives.
+
+[Read Part Two](https://www.reddit.com/r/nosleep/comments/17lki2u/im_only_allowed_to_see_my_girlfriend_during_the/)
