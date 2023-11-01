@@ -1,14 +1,12 @@
 My neighbor Mike was a huge Halloween fanatic. His house across the street was fully decorated with everything from a haunted graveyard, to aliens, to severed heads hanging from the trees. It was quite the display, and gawkers were always driving down our street, getting out to take pictures and pose with the scenes.
 
-I enjoyed his yard, for the most part. I appreciated the work he put into the pirate skeleton, sitting in a chair hanging from hanging from the tree. Or the Hell Well, a creation of pallets and cinder blocks that looked like it was containing the Undead, whose hands reached up from the flickering red pit underneath. I even didn’t mind the group of three figures impaled on stakes, with a black, winged demon skeleton floating above them. It was gruesome but fun.
-
-No, the only thing that bothered me was a creepy figure that sat up on top of his roof - legs dangling, arms crossed, head tipped down looking across the lawn. And staring directly into my window.
+I enjoyed his yard, for the most part. I appreciated the work he put into the pirate skeleton, sitting in a chair hanging from the tree. Or the Hell Well, a creation of pallets and cinder blocks that looked like it was containing the Undead, whose hands reached up from the flickering red pit underneath. I even didn’t mind the group of three figures impaled on stakes, with a black, winged demon skeleton floating above them. It was gruesome but fun.No, the only thing that bothered me was a creepy figure that sat up on top of his roof - legs dangling, arms crossed, head tipped down looking across the lawn. And staring directly into my window.
 
 I swear, that thing looked right into my soul. A strange mixture of Slenderman, Hat Man, and Jeepers Creepers, he would have been about seven feet tall if he was standing - thin, with rotting, bandaged limbs, a face that had no discernible mouth, and a fedora. His tattered black coat fluttered with every gust of the wind. I could hear when others spotted him up there, based on their screams and whispered gasps. Seems that I wasn’t the only one unnerved by the presence of Skinny John.
 
 Yes, the terrifying creation had a name. All of them did, apparently, at least the ones that Mike had handcrafted himself. There was the Bog Witch, Flora the Woodland Sorceress, Lazy Bones Jones, Grim Jim, Buck Aneer, and more. In fact, I’d seen Skinny John when he was just a pvc pipe frame, before Mike had added the foam pool noodles, bubble wrap, spray paint and old clothes to flesh him out a bit. So I knew he wasn’t anything more than plastic and paint. But that didn’t dissuade my fear.
 
-I’d been walking home one day at the beginning of October, when I saw Mike outside in his carport, trying to balance some big white poles against his car. He waved, and I approached him to say hi. I had to admit, living across from him was a treat. Mike was about ten years older than me, friendly, smart, sweet, well-built, and enjoyed working outside with his shirt off. The fact that he gave me any attention made me swoon.
+I’d been walking home one day at the beginning of October when I saw Mike outside in his carport, trying to balance some big white poles against his car. He waved, and I approached him to say hi. I had to admit, living across from him was a treat. Mike was about ten years older than me, friendly, smart, sweet, well-built, and enjoyed working outside with his shirt off. The fact that he gave me any attention made me swoon.
 
 “Say hello to Skinny John,” he said, extending his arms like he was showing off a brand new car. He saw the look on my face and laughed. “Ok, I knew he doesn’t look like much now, but give me a few hours. He’ll be great.” On the ground next to the piping lay all the other materials that would go into this creation. “I got his outfit at the thrift store. The coat even had some ID left in it, guy’s name was John. Looked him up online, he lived here his entire life and passed away a few months ago. So I’m naming the creation in honor of him.”
 
@@ -48,7 +46,7 @@ I casually strolled past his driveway as he was grabbing some bags out of his tr
 
 “Hi Mike,” I said, and walked toward him. “Hey, have you been moving Skinny John around up on the roof?”
 
-“What?” he seemed confused by my question. “No, I haven’t been up there lately. Why? Is he messed up?”
+“What?” he seemed puzzled by my question. “No, I haven’t been up there lately. Why? Is he messed up?”
 
 “No, no,’ I said, suddenly feeling like an idiot to even be bringing it up to him. “I just. He stares right into my window and I see him all the time, and he just looks different.”
 
@@ -66,7 +64,7 @@ I laughed. When he put it like that, it made me see the absurdity of my thinking
 
 He climbed up on the roof and looked down at me. “Come on up!” he called.
 
-From up on top of the roof, you could see our entire neighborhood. It was amazing how many people needed to clean their own roofs.
+From up on top of the roof, you could see our entire neighborhood. It was amazing how many people needed to clean their own roofs. from up here, the whole area seemed so peaceful and quiet. I didn’t want to think about the terror after dark.
 
 We walked over to Skinny John, and Mike knelt down beside him. “Yep. If I had a camera in him, I could totally see right into your place.” He twisted the piping that attached his head to his shoulders, so that his eyes were facing straight ahead, not turned in the direction of my window. “Tighten it up, and he’s all good.”
 
@@ -78,9 +76,9 @@ I was awoken a few hours later, and immediately felt a prickly feeling all over.
 
 I cried out and fell back onto the floor. This was impossible. Or at least, the scenario I had in my mind was. Maybe the wind had knocked him back into position, maybe Mike was pranking me. I crept back to the window. His car wasn’t there. And it hadn’t been there when I walked home just a couple hours ago. Had he really come home, repositioned the head, and then left, just to scare me? He didn’t seem like the type to do so. After all, he’d been the one to suggest moving it in the first place. I turned to look at the roof and almost fell over again. He was a full foot closer to the door than he had been just a minute ago. I shut the curtain and sat on the floor, shaking.
 
-My phone was on the bed. I quickly gabbed it and began to read about the attacks. There’d been more, and one guy had died. Nobody got a good look at who was doing it, they’d all been blindsided. They just knew he was strong, fast, and vicious. “Came out of nowhere” “I possibly strong.” “Almost supernatural.”  I looked at the date of the first attack. A lump formed in my throat. It was one day after I’d talked to Mike in his carport. One day after the creation of Skinny John.
+My phone was on the bed. I quickly gabbed it and began to read about the attacks. There’d been more, and one guy had died. Nobody got a good look at who was doing it, they’d all been blindsided. They just knew he was strong, fast, and vicious. “Came out of nowhere”.“Impossibly strong.” “Almost supernatural”.  I looked at the date of the first attack. A lump formed in my throat. It was one day after I’d talked to Mike in his carport. One day after the creation of Skinny John.
 
-There was a story from my childhood, one that I’d never been able to erase from memory. Two guys and created a doll, a scarecrow kind of thing, and treated it terribly. Punched it, spat on it, threw things at it. Called it names. At the end of the story, the thing came alive and killed both of them. It was just a story. But what if this wasn’t?
+There was a story from my childhood, one that I’d never been able to erase from memory. Two guys had created a doll, a scarecrow kind of thing, and treated it terribly. Punched it, spat on it, threw things at it. Called it names. At the end of the story, the thing came alive and killed both of them. It was just a story. But what if this wasn’t?
 
 Mike said he’d gotten the coat from a guy who’d just died. What if he was evil? What if he was haunting the creation? Thoughts that seemed absurd now didn’t seem off the table anymore. I knew what I’d seen. I gathered my things and ran out of my house.
 
@@ -96,9 +94,9 @@ Past the train tracks. Past the CVS. Past the dark, shadowy parking lot of the d
 
 A thud. More footsteps. I wasn’t too far from home now. Just beyond the old vacant strip mall. My heart was beating so loud I felt it would echo back at me too. As I hurried my pace, the footsteps matched my own. A cold sweat broke out on my back as I began to run.
 
-Behind the strip mall, into the alley. It was darker back here, but quicker to get home. A trade-off of sorts. A clatter behind me. This was it. I was going to die in this alley. I knew it. I tried to go faster, almost tripping myself in the process, and as much as I wanted to see who it was, I told myself to just keep going. Don’t look behind. Keep going. I turned the corner by Mike’s house, whose car was still gone, and made my way to the front. I could see my door. I could also almost feel the breath of my pursuer on my neck.
+Behind the strip mall, into the alley. It was darker back here, but quicker to get home. A trade-off of sorts. The wind gusted, clouds settled over the moon, shrouding the night in darkness. A clatter behind me set my nerves into overdrive. This was it. I was going to die in this alley, I knew it. I tried to go faster, almost tripping myself in the process, and as much as I wanted to see who it was, I told myself to just keep going. Don’t look behind. Keep going. I turned the corner by Mike’s house, whose car was still gone, and made my way to the front. I could see my door. I could also almost feel the breath of my pursuer on my neck.
 
-I turned and almost froze in place. Skinny John was gone. Not moved. Not fallen over. Gone. The roof was empty. My breath caught and I choked back a sob. It was true, it was all true. I felt a hand on my back. I braced myself to fight.
+I turned and almost froze in place. Skinny John was gone. Not moved. Not fallen over. Gone. The roof was empty, the trees swaying behind the vacant spot where he had sat for a month. My breath caught and I choked back a sob. It was true, it was all true. I felt a hand on my back. I braced myself to fight.
 
 And then, a flash from the left. A flutter of cloth, grey skin, a fedora. I turned the other way to see a hulking, wide, thick dark shadow of a man get knocked to the ground, the glinting silver of a knife skidding across the road. I stumbled and went crashing down, my glasses flying into the bushes. Through blurry eyes I saw an impossibly tall, gaunt figure pick up the massive man in the street, and hurl him into the bushes on the other side. The man groaned, and I heard a snap, followed by shrieking. I fumbled around for my glasses but gave up quickly, and rushed through my gate to the sounds of more bones snapping like twigs. More howling. I unlocked my door and rushed inside, slammed it and locked it, and sank to the ground. A few moments later, only silence.
 
@@ -110,7 +108,7 @@ I awoke on the floor to light streaming through my windows. I stretched, feeling
 
 “I’m ok,” I said. I looked up to the roof, where Skinny John sat like before, gazing into my window.
 
-Mike followed my eyes. “I didn’t want to scare you before, when you asked. But they really do scare off the baddies. The Bog Witch could tell some crazy stories.”
+Mike followed my eyes and put his arm around me in a comforting embrace. “I didn’t want to scare you before, when you asked. But they really do scare off the baddies. The Bog Witch could tell some crazy stories.”
 
 “It’s real,” I whispered. “It’s all real.” He nodded.
 
