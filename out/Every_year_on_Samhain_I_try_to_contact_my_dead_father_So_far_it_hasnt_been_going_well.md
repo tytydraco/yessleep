@@ -189,3 +189,5 @@ With that, I turned on my heel, picked up my backpack from where it was lying di
 To be honest, I had no idea why they hadn’t.
 
 [🔥](https://www.reddit.com/r/CrypticPark/s/de63WRrezW)
+
+[Part 2](https://www.reddit.com/r/nosleep/s/EBVyUB0AvI)
