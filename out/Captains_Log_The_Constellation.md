@@ -180,9 +180,11 @@ She composed herself "It's just, well I can't believe they would try something l
 
 ---
 
-Once I made it to my quarters, I grabbed my laser pistol. There was no time to waste. I had to stop Mackleroy before he depleted the fuel containers and pray that Fisher is on the right side of this mutiny. I might be losing some memories but I'm not going to lose my ship.
+Once I made it to my quarters, I grabbed my laser pistol. There was no time to waste. I had to stop Mackleroy before he depleted the fuel containers. I prayed that Fisher was on the right side of this mutiny. I might have been losing some memories but I wasn't going to lose my ship.
 
-I sprinted as fast I could to the fuel reserves. I passed the doors helm, there was Jean and Glen talking with the crew. No... I thought, but my fear was soon multiplied. Looking out the bow of the ship, I no longer saw the sea of stars and clouds from earlier. All that remained now was an empty darkness. Where had they taken us? Had they already commandeered the ship?
+I sprinted as fast I could to the fuel reserves. I passed the doors helm, there was Jean and Glen talking with the crew. No... I thought, but my fear was soon multiplied.
+
+Looking out the bow of the ship, I no longer saw the sea of stars and clouds from earlier. All that remained now was an empty muted darkness. Why did it look so flat? Had they already commandeered the ship?
 
 Suddenly the lights turned off and the amber warning light on the wall began to cycle. Down the hall I thought I saw a shadow. I had seen enough episodes of... episodes of... my thoughts trailed off, something was wrong. Had the ship been breached by an alien life form?
 
@@ -250,7 +252,7 @@ I lost consciousness.
 
 "It's fine..." the money was nothing to me. I said coughing
 
-"We will wait another day for you to stabilize and then we will return to... the Constellation. If that's what you really want. Though, like I said it is getting harder for me to condone."
+"We will wait another day for you to stabilize and then we will return to... 'The Constellation'. If that's what you really want. Though, like I said it is getting harder for me to condone."
 
 "It is." I said looking to the ground.
 
