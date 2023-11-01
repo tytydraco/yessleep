@@ -565,4 +565,4 @@ They urged me behind them. I stood by them as they watched the suited man's body
 
 &#x200B;
 
-*Finale today...*
+[Finale](https://www.reddit.com/r/nosleep/comments/17l4iqq/the_silver_tune_finale/)
