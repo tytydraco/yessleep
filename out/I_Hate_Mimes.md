@@ -163,7 +163,7 @@ He finished packing and headed towards the mirror across from my bed.
 
 The mime stopped crying, and now looked livid.
 
-“Of course you don’t know who I am. I bet you don’t even know my dime rhyme. *’you see his act, you must tip a dime, or else he’ll come for you, Pantomimicus The Mime.’*”
+“Of course you don’t know who I am. I bet you don’t even know my dime rhyme. *’If you see his act, you must tip a dime, or else he’ll come for you, Pantomimicus The Mime.’*”
 
 I didn’t respond.
 
