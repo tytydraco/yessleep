@@ -2,7 +2,7 @@
 
 [[Part 2]](https://www.reddit.com/r/nosleep/comments/17ape6a/something_vengeful_haunts_the_shores_of_loch/) First blood.
 
-[[Part 3]](https://www.reddit.com/r/nosleep/comments/17ape6a/something_vengeful_haunts_the_shores_of_loch/) Was there **a monster** in [the trees](https://pbs.twimg.com/media/Fowp13LXsAA8RCM?format=jpg&name=small)?
+[[Part 3]](https://www.reddit.com/r/nosleep/comments/17fig34/something_vengeful_haunts_the_shores_of_loch/) Was there **a monster** in [the trees](https://pbs.twimg.com/media/Fowp13LXsAA8RCM?format=jpg&name=small)?
 
 *
 
