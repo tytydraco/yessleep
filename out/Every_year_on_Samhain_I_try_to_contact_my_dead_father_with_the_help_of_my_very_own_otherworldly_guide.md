@@ -173,3 +173,5 @@ It was pity in that expression of theirs.
 "What's brought this on? Want to take your frustration out on me? That setback was not my fault and you know it. Or do you still have some fight left in you after that shadow?" They palmed their forehead. "Apologies but I can't… do this thing we always do. I'm not feeling up to it right now, to be honest."  
   
 I sighed. All my energy seeped out into the cold dark night along with the air that left my lungs. "Let's just go home."  
+
+[🔥](https://www.reddit.com/r/CrypticPark/s/s2AC80GKfq)
