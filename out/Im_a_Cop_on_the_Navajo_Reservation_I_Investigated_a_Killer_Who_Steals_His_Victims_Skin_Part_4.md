@@ -4,8 +4,6 @@
 
 [Part 3](https://www.reddit.com/r/nosleep/comments/17i853v/im_a_cop_on_the_navajo_reservation_i_investigated/)
 
-**The Demon Slayer and The Water-Born**
-
 The armored vehicle sways violently as Ben jerks the wheel to the side, narrowly avoiding a collision with a skinwalker that had emerged from the darkness with predatory swiftness. Its eyes, devoid of any human soul, burn with a ferocious hunger as it claws at the air where the vehicle had been just a moment before.
 
 The flare's ephemeral day fades as quickly as it erupted, plunging us back into the moonlit night. The skinwalkers, momentarily stunned by the unexpected illumination, regain their composure. Their guttural snarls fill the air, a cacophony of primal rage as they prepare to descend upon us.

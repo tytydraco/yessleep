@@ -162,9 +162,9 @@ Being seventeen meant I was still technically a child, so that meant packing up 
 
 There was no teacher, so I slid the teeth of the blade across my own thumb. 
 
-I could remember her exact reaction so well, I could copy it myself. The girl squeaked, wafting her finger, "Oh god, I'm bleeding! Mr Carlisle, I'm bleeding bad!* When the knife cut into me, I waited for my own body to react, an animalistic shriek clawing from my lips just like the girl. But nothing happened. 
+I could remember her exact reaction so well, I could copy it myself. The girl squeaked, wafting her finger, *"Oh god, I'm bleeding! Mr Carlisle, I'm bleeding bad!* When the knife cut into me, I waited for my own body to react, an animalistic shriek clawing from my lips just like the girl. But nothing happened. 
 
-I just had a bleeding finger, dazedly watching pooling red run down my palm and wrist. I didn't feel annoyance or anger. There was just nothing. I couldn't cause my own pain, which made me deliriously obsessed with my Mom's death. I knew every detail, every word coming from the detective's mouths. 
+I just had a bleeding finger, dazedly watching pooling red run down my palm and wrist. I didn't feel annoyance or anger. There was nothing. I couldn't cause my own pain, which made me deliriously obsessed with my Mom's death. I knew every detail, every word coming from the detective's mouths. 
 
 *She was found at 8:37pm…* I wrote it out, drawing it, even replicating it in my head to get a front row seat. *She wasn't breathing, Mori. And… there was a significant amount of blood, due to her head severing…*
 
@@ -196,7 +196,7 @@ I drooped my face, lowering my eyelids and blinking several times to incite tear
 
 I never understood why they were happy over things like toys and books and computer screens. I was just bored. 
 
-Boredom. I drooped my face and pot weight on my eyelids, like sadness, but this time deepening my frown. 
+Boredom. I drooped my face and put weight on my eyelids, like sadness, but this time deepening my frown. 
 
 Jealousy. That was a hard one. I saw it a lot as a kid, though it was hard to copy. 
 
@@ -232,7 +232,7 @@ We were standing exactly where I was, right in front of dad's desk. My cousin ha
 
 My cousin and me standing in my dad's office as kids was so out of place. Which was funny, because I didn't remember ever visiting this house or office when I was a kid. Placing the photo frame back down, my attention flickered to the idle screen of dad's MacBook. When I tapped the keyboard, a password screen illuminated the dim. 
 
-I had a feeling whatever record dad had of my medical notes, they were probbsky in paper form. I tried his drawers. Locked. Of course. No sign of a key when I picked around his desk. 
+I had a feeling whatever record dad had of my medical notes, they were probably in paper form. I tried his drawers. Locked. Of course. No sign of a key when I picked around his desk. 
 
 I did find a rubber band ball, a memory drive, and interestingly, an iPhone 6 gathering dust. It was the same brand as mine, minus my splintered screen. 
 
@@ -380,7 +380,7 @@ This girl's entire life had been pain. It never stopped or gave mercy, twisting 
 
 "Hi!" The girl was practically vibrating with excitement. She pressed a bloody kiss to the glass, red rimmed eyes almost cartoon wide. I could see through whatever front this was. Her eyes were deep, cavernous, nothing, empty sockets hollow of life. I saw no personality past that horrific grin and maniacal gleam. 
 
-She reminded me of a soulless animatronic, programmed to smile and make kids laugh. 
+She reminded me of a soulless animatronic programmed to smile and make kids laugh. 
 
 The girl slammed her hands into the glass impatiently when my gaze wandered, finding the other two  shadows.
 
@@ -561,3 +561,9 @@ The new Memory, however, failed to work.
 His body became another failure, unbeknown to my father. 
 
 Which meant I awoke the next morning curled up on our family couch to the smell of eggs, my dad's filthy secret still lingering in the back of my mind.
+
+There's more to it, but word counts exist.
+
+Therapy, too. 
+
+Thank god.
