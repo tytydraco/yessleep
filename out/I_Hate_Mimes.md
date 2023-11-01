@@ -69,7 +69,7 @@ Broom Guy saw me as well and took a step out of the elevator towards me.
 
 “So YOU’RE the guy screaming about killing me?! Well guess what, I have this broom, and guess where its handle is going? Up your a-aAGHHH WHAT THE fuck IS THAT?!”
 
-I shoved past him, catching him by surprise and causing him to fall to the floor, before running into the elevator, pushing the button to go to the bottom floor as fast as I could. I glanced down the hall and saw the mime, which didn’t even look remotely human anymore, on all fours. I also saw the guy with the broom, glaring at me.
+I shoved past him, catching him by surprise and causing him to fall to the floor, before running into the elevator, pushing the button to go to the bottom floor as fast as I could. I glanced down the hall and saw the mime, which didn’t even look remotely human anymore, charging on all fours. I also saw the guy with the broom, glaring at me.
 
 “Fuck you, man.” said Broom Guy, right before the elevator doors closed, sparing me from watching the mime tear his insides out.
 
