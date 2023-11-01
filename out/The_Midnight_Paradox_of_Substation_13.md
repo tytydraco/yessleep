@@ -267,5 +267,5 @@ I didn’t know what had happened in those woods, but I knew I had encountered s
 
 
   
-I would never forget that night—the night I stared into the abyss and felt the abyss stare back. And as I walked away from those woods or from Substation 13, I knew I would carry the weight of that encounter with me for the rest of my days, a chilling reminder of the mysteries that lurk in the darkness, waiting to be discovered by the unsuspecting souls who dare to venture too close. until...i have heard something walking on top of my roof.  
+I would never forget that night—the night I stared into the abyss and felt the abyss stare back. And as I walked away from those woods or from Substation 13, I knew I would carry the weight of that encounter with me for the rest of my days, a chilling reminder of the mysteries that lurk in the darkness, waiting to be discovered by the unsuspecting souls who dare to venture too close. until I heard something walking on top of my roof.
   
