@@ -297,3 +297,5 @@ Leon gave me a sympathetic look. He didn't believe me.
 And so we headed back to the campsite ready to spend a second night at Loch Kaille.
 
 One of us wasn't going to make it through alive.
+
+[[Part 4]](https://new.reddit.com/r/nosleep/comments/17lbpcu/something_vengeful_haunts_the_shores_of_loch/)

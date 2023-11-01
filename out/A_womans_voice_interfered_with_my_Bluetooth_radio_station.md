@@ -132,10 +132,10 @@ Before my wife could protest, I swerved through an opening between two trees, dr
 
 I held my breath as the car’s tyres squelched across sodden fields. But as we finally reached the embankment leading up to the motorway, my body unclenched at the prospect of returning to the real world. Our world.
 
-And sure enough, we rejoined traffic — we rejoined reality. My wife and I cried jubilantly. I only wish I hadn’t glanced at the rearview mirror.
+And sure enough, we rejoined traffic — we rejoined reality. My wife and I cried jubilantly. I only wish I hadn’t glanced at my wife’s reflection in the rearview mirror.
 
 Perhaps it would’ve been better not to know.
 
-Perhaps it would’ve been better not to see the black tears spilling from blacker eye sockets in my wife’s reflection.
+Perhaps it would’ve been better not to see the black tears spilling from blacker eye sockets.
 
 [X](https://www.reddit.com/r/dominiceagle)
