@@ -104,7 +104,7 @@ His stream titles began to reflect the change.
 
 ***Going to stream snipe XKC. Do I really know him?***
 
-We never thought basement dweller Ton would ever be streaming with people who had thousands of viewers. Our secret awkward unknown streamer was going to make it big...
+We never thought basement dweller Ton would ever be streaming with people who had thousands of viewers. Our secret awkward unknown streamer was going to make it big.
 
 *Some of the chat wasn't happy about it.*
 
@@ -318,7 +318,7 @@ I looked on bewildered as Ton's bloody hand clawed it's way into the frame, seem
 
 ***RosieRuth68L: Ton? Ton it's not funny. Please stop.***
 
-I stared at the screen in disbelief. Was Ton really just murdered live on stream? I started to feel dizzy unable to process what I had just seen. I couldn't just sit there. I had to do something. I grabbed the biggest knife I could from my kitchen and threw on my coat.
+I stared at the screen in disbelief. Was Ton really just murdered live on stream? I started to feel dizzy unable to process what I had just seen. I couldn't just sit there. I had to do something. I grabbed a chef knife I could from my kitchen and threw on my coat.
 
 I had to help Ton.
 
