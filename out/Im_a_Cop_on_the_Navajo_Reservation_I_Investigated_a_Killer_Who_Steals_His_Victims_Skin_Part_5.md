@@ -92,7 +92,7 @@ The enraged skinwalker barrels into me, its strength monstrous, its eyes burning
 
 I fight back with a raw, animalistic energy, but the creature's weight is crushing, its ferocity undiminished.
 
-I catch a glimpse of my fellow officer, Dan Tso, go down next to me, his throat torn open by teeth that gleam in the moonlight. The night is filled with the sounds of combat, a chorus of terror that chills the soul.
+I catch a glimpse of my fellow officer, Dan Tso, going down next to me, his throat torn open by teeth that gleam in the moonlight. The night is filled with the sounds of combat, a chorus of terror that chills the soul.
 
 The creature atop me snarls, its breath a fetid gale. I feel its talons tear through my defenses, drawing closer to my throat. In that moment, the horror is complete, the realization that we are not the hunters here; we are prey, overwhelmed by a darkness that has no name.
 
