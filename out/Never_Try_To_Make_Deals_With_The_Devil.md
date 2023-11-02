@@ -1,4 +1,4 @@
-I don’t know how many hours I sat in the poorly lit room trying to explain I wasn’t I murderer. The officers tried to appear kind by offering snacks or coffee in exchange for me telling them everything.  I hadn’t slept for at least two days and my head started to pound. I pleaded again, my hands straining at the cuffs that kept them together.  
+I don’t know how many hours I sat in the poorly lit room trying to explain I wasn’t a murderer. The officers tried to appear kind by offering snacks or coffee in exchange for me telling them everything.  I hadn’t slept for at least two days and my head started to pound. I pleaded again, my hands straining at the cuffs that kept them together.  
 
 “I told you again and again, that I didn’t know the victim and I didn’t know the group I met with beforehand. I saw some of their posts on a thread discussing mutual interests and saw they were locals.” I said, my voice sounding as tired as I felt. 
 
