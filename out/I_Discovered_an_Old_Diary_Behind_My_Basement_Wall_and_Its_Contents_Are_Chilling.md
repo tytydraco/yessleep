@@ -1,0 +1,17 @@
+I’ve always been fascinated by old houses and their hidden secrets. So when my partner and I bought a 19th-century Victorian house, my excitement knew no bounds. However, what I discovered recently has left me with sleepless nights and an eerie feeling I can’t shake off.  
+  
+It began last weekend when I decided to inspect an old, discolored patch on the basement wall. It seemed to have a hollow sound when knocked upon, unlike the solid thud of the surrounding walls. Driven by curiosity, I took a hammer and chisel to it and began chipping away carefully. After about an hour of sweat and dust, a small hidden compartment revealed itself. Inside it, I found a dusty old diary, bound in worn-out leather.  
+  
+The first entry was dated 1873. The writer, a woman named Amelia, described her daily life in great detail. The first few entries were mundane, talking about her chores, her family, and the local gossip. However, as the pages turned, her writings took a darker turn. She began mentioning a man in a black coat who she’d see standing across the street from her house, staring intently towards her. She initially brushed it off, thinking he was a passerby, but his appearances grew more frequent and menacing.  
+  
+As days turned into weeks, Amelia’s fear escalated. The man started appearing closer to her house, even showing up in her backyard at night. She described the terror she felt, watching him from her window, standing amongst the shadows, his face concealed by the brim of his hat.  
+  
+One terrifying entry described a night when Amelia found the man standing at the foot of her bed, his face revealed by the moonlight - pale and featureless, with hollow eyes staring down at her. She screamed, but nobody came. The next morning, her family dismissed her terror as a nightmare, but she knew better. The entries following that night became more frantic, the handwriting more erratic.  
+  
+Amelia began finding strange symbols etched onto her windows, and a black, inky substance smeared on her doors. She’d hear whispers in the dead of night, chanting in a language she couldn't recognize. Her family started to believe she was going mad, and to be honest, I began to feel the same as I read on.  
+  
+Then, one entry sent shivers down my spine. Amelia wrote about discovering the same man in black in old family photographs, standing in the background, an ominous figure lurking through generations. She believed he was a curse on her family, an entity that had latched onto her lineage for reasons unknown.  
+  
+The last entry was a goodbye. Amelia mentioned she couldn’t take the haunting presence of the man anymore. The words became more desperate and incoherent towards the end, ending with an ominous sentence, “He is here, and he beckons.”  
+  
+The diary ended there, but the terror it instilled in me was far from over. The night after reading the diary, I saw him. The man in the black coat stood under the pale moonlight in our backyard, his hollow eyes staring into mine. The old terror from Amelia’s words transmuted into reality, and now, I fear for what’s to come. The history of this house seems to have intertwined with our fate, and as the nights grow longer, the whispers grow louder.

@@ -370,9 +370,9 @@ No... I shook my head in disbelief. Ton? Our Ton? Loan sharks? This was absurd. 
 
 Ton paid... Tiny to collab? I could hardly believe what I was reading. I opened his e-mail client next.
 
-*"Ton if you send us the money, we have no problem at all donating back to you on stream. It's no sweat off my back and if it generates some clips or content for you then it's a win win****." -Carbon***
+*"Ton if you send us the money, we have no problem at all donating back to you on stream. It's no sweat off my back and if it generates some clips or content for you then it's a win win."* -Carbon
 
-The donations from *Carbondrinker *and the other big streamers were fake... Ton had planned it to generate clips and views?
+The donations from *Carbondrinker* and the other big streamers were fake? Ton had planned it to generate clips and views.
 
 I felt like I had been betrayed. It was all fake...
 
@@ -446,7 +446,7 @@ My heart stopped. She would tell the police I was here. I would be implicated. I
 
 "The brown... haired... girl" I stuttered out.
 
-"Oh yes, brown hair, with a streak in it, like they used to do. That was after Disco."
+"Oh yes, brown hair, with a streak in it, like they used to do. That was after disco."
 
 A girl with a streak in her hair...
 
@@ -504,7 +504,7 @@ I picked up my phone and dialed 9-1-1.
 
 "Sir please can you repeat that. Just wait for *me* to ask *you* the questions..." his voice droned out.
 
-I hung up, they should be able to trace the call.
+I hung up, that should be enough.
 
 I followed the trail of blood to the warehouse. The door had been broken open. The building was so old, it must not have had any security. The space was large and empty, the was that from the moon that streamed in through the linear panes that wrapped around the building.
 
@@ -546,7 +546,7 @@ I was barely conscious when I heard it.
 
 Bullets like firecrackers, my assailant fell on me limply. I faded into sleep as her blood seeped onto me and pooled around.
 
-*They had traced the call.*
+*The had found us.*
 
 In her rage she took no care in hiding her tracks. It was never about getting away with what she had done. She had never planned to.
 
@@ -574,7 +574,7 @@ She told me Ton was fine. He had been beaten bloody but hadn't sustained critica
 
 "Ton said he doesn't know who you are dear... the police want to know why you were at the crime scene, how you knew where the girl would take him. They think... they think you might be an accomplice...."
 
-"I... I... no, no no, I'm the hero here! I was going to save him, so we would finally met and become 'irl' friends."
+"I... I... no, no no, I'm the hero here! I was going to save him, so we would finally met and become close 'irl'."
 
 "I really shouldn't be privy to this... but the rumor is that you were obsessed? I heard they confiscated your computer. Apparently there were hundreds of hours of clips and VODs saved... I'm sorry dear... but I hope you have a good lawyer." she said leaving the room.
 
@@ -624,7 +624,7 @@ And maybe they wouldn't ever let me back into the group. So what?
 
 I would just have to find a new stream... a new group.
 
-I could find another jockey who wanted to make it to the top.
+I could find another streamer who wanted to make it to the top.
 
 And just like Ton, I could help them...
 

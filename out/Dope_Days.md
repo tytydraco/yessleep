@@ -131,7 +131,7 @@ She said all of this as she tied a homemade tourniquet around her arm and put th
   
 She wiped the sweat from her brow and prepped the rig and dug it into her arm and watched the syringe fill with blood.  
   
-Then she mainlined and the dope hit home and she could smell it going in and if you know, you know.  
+Then she mainlined and the dope rounded third and hit home and she could smell it going in and if you know, you know.  
   
 The spike dangled and she closed her eyes and her mind when snap, crackle, pop and dreams went fade to black.    
   

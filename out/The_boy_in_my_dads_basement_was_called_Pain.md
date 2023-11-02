@@ -153,7 +153,7 @@ My cousin’s eyes widened before I could speak. He stepped back like I was the 
 
 He could talk. 
 
-When we were little kids, Jasper tore the heads off of worms and stamped on already-dead roadkill, skewering ladybirds for fun. 
+When we were little kids, Jasper tore the heads off of worms and stamped on already-dead roadkill, skewering ladybugs for fun. 
 
 Maybe this thing ran in the family.
 
