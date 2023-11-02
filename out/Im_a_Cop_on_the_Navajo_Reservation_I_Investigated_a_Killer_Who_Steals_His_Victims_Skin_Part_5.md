@@ -68,11 +68,11 @@ The air is alive with a tension that feels almost electric, the crackling flames
 
 Ben's voice cuts through the oppressive silence, low and urgent. "Defensive positions, now!" His command is met with immediate action; we moves as one, our backs toward each [other](https://www.youtube.com/watch?v=MGd1F6Ay8ho), forming a tight circle. Weapons are trained outward, toward the unseen assailants whose eyes glimmer with predatory anticipation.
 
-The moon above is shrouded by a swift procession of clouds, as if the very heavens are closing their eyes to the savagery about to unfold.
+The moon above is shrouded by a swift procession of clouds, as if the very heavens are closing their eyes to the savagery that's about to unfold.
 
 The charge comes like a whisper of death, silent but for the rush of wind that precedes the onslaught. The skinwalkers, their forms a grotesque parody of the human shape, erupt from the shadows, their limbs contorted in unnatural angles as they descend upon us.
 
-The first of the skinwalkers surges forward, a blur of malice and twisted limbs. Bullets fly, punctuating the night with flashes of defiance as we struggle to hold the line against the encroaching nightmare.
+The first of the skinwalkers surge forward, a blur of malice and twisted limbs. Bullets fly, punctuating the night with flashes of defiance as we struggle to hold the line against the encroaching nightmare.
 
 I feel the impact of my rounds finding their mark, the guttural screams of the fallen creatures a grim chorus to the cacophony of battle. Yet, for every beast that falls, another takes its place, their numbers seemingly unending, a dark wave intent on crashing over us.
 
