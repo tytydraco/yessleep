@@ -10,7 +10,7 @@ She paused and sighed heavily, contorting her face into a concerned grimace.
   
 "James. Things have happened. With the other researchers. Unexplained things. Horrible things. If you want out, this is it. After this, there's no going back."  
   
-She winced and looked down. I spoke with what I hope sounded like conviction.  
+She winced and looked down. I spoke with what I hoped sounded like conviction.  
   
 "I've already made up my mind. I want to help with the research any way I can."  
   
@@ -194,7 +194,7 @@ A cup of coffee and some Tylenol would do wonders, I thought. I wandered back do
   
 The small whisper of light that made it into the bathroom from the kitchen windows was just enough to illuminate the medicine cabinet, and I headed back to the kitchen with the bottle of Tylenol. My face contorted into a pained scowl as I glanced over to my lifeless coffee maker. I found a matchbox to light the stove, and put a kettle on to boil. There were enough coffee grounds left in the grinder for one cup, and I would have to make do with that.   
   
-The wind howled and I became acutely attuned to the tapping of a twig, or perhaps a leaf, on one of my window panes. A now familiar feeling of creeping dread rose in my stomach. Tap-tap-taaap-taptap-taaaap-tap. A rhythm, a code, a mathematical miracle, each transient of the taps separated by innumerable attoseconds, vast quantities of impossibly small slices of time, precisely chosen. Tap. Taptap. Tap.  
+The wind howled and I became acutely attuned to the tapping of a twig, or perhaps a leaf, on one of my window panes. A now familiar feeling of creeping dread rose in my stomach. Tap-tap-taaap-taptap-taaaap-tap. A rhythm, a code, a mathematical miracle, each transient of the taps separated by innumerable attoseconds, vast quantities of impossibly small slices of time, precisely chosen. Tap. Taptap. Tap. A symphony. Tap-tap. Taaap.
   
 The suddenly shrieking kettle snapped me away from my rhizome of thought. I turned the flame off, then walked over and opened the window, sending any debris on its way in the gusts. It was a cold, bitter wind, and it felt refreshing in my feverish state. Too cold, but refreshing.  
   
@@ -204,7 +204,7 @@ The taste struck me like a sudden jolt of electricity. It was like fire, not in 
   
 And then it was over, and the cup was empty. For a dazed moment, I sat staring down at the mug in my hands. I felt exhaustion sweep steadily back into my body, as though I had finally laid down to rest after a long journey. Blinking and rubbing my eyes, I stood and grabbed the bottle of painkillers. I shook three into my hand, then looked at the bottle. Regular strength. I shook out one more, for good measure. This cold, or whatever it was that I had, was nasty.  
   
-That was when I first saw it. Out of the corner of my eye through the kitchen window, across the street. A flash for a brief moment, and then it was gone. A human, or perhaps a large animal, I had thought. But even for that brief moment on the edge of my periphery, there had been something imperceptibly off about it that made my heart skip.  
+That was when I first saw it. Out of the corner of my eye through the kitchen window, across the street. A flash for a brief moment, and then it was gone. A person, or perhaps a large animal, I had thought. But even for that brief moment on the edge of my periphery, there had been something imperceptibly off about it that made my heart skip.  
   
 I tentatively moved toward my front door and opened it. The icy air met my skin, and a tingling shiver coursed outward from my core to my limbs. I stepped onto the front porch, wrapping my blanket more tightly around myself, and peered up and down the street. Empty, nothing but leaves and other debris blowing in the glacial wind. I stepped back through the door and closed it, still uneasy.   
   
@@ -226,7 +226,7 @@ I arrived at the facility’s parking lot and cautiously made my way toward the 
   
 And there it was, standing at the entrance, maybe 60 feet away. Dr. O’Lewis was beside it. My heart sank. I was too late.  
   
-They had clearly not yet seen me, and I quickly ducked back around the corner. I could just make out their conversation over the whistle of the wind.  
+They had clearly not yet seen me, and I quickly ducked back around the corner. I could just make out  conversation over the whistle of the wind.  
   
 “Are you okay James?”  
   
