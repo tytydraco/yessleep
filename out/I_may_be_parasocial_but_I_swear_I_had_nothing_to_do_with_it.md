@@ -340,7 +340,7 @@ One was open a crack.
 
 Ton...
 
-No video game or horror film could mentally prepare me for the amount of blood in that room. I clung hard on to the cognitive dissonance of having never actually 'known' Ton. No... I shook my head. Ton knew me, I wasn't just text in his stream, and he wasn't just a face on a screen. He was our friend, and our friend needed help.
+No video game or horror film could mentally prepare me for the amount of blood in that room. I clung on to the cognitive dissonance of having never actually 'known' Ton. No... I shook my head. Ton knew me, I wasn't just text in his stream, and he wasn't just a face on a screen. He was our friend, and our friend needed help.
 
 Why would someone do this?
 
@@ -398,13 +398,13 @@ Against my better judgment I answered the phone.
 
 "Ton is that you?! Listen close you piece of sh-t! Out of respect for your cousin... we gave you an extension. But soon is the time to collect!"
 
-"Extension..." I said confused.
+"Extension?" I said confused.
 
 "Yes, the extension? Are you stupid or something? Listen, if we don't get the money back after the big deal you told us you were getting... I don't need to say what'll happen!" The mans voiced peaking as his voice strained through the phone.
 
-"Of course... of course" I said as I hung up.
+"Of course, of course" I said as I hung up.
 
-The mafia didn't take Ton... well at least not yet.
+The mafia didn't take Ton, well at least not yet.
 
 So who did?
 
@@ -430,11 +430,11 @@ I looked at the dates, there was one from yesterday.
 
 I felt sick. This person was completely deranged. Extremely unwell.
 
-Special Place? Where had I heard that before? They had met before? It was completely vague... yet something about it in this context made it feel relevant.
+Special Place? Where had I heard that before? They had met before? It was completely vague, yet something about it in this context made it feel relevant.
 
 *Why?*
 
-Suddenly I heard sirens in the distance. There was no more time.
+I heard sirens in the distance. There was no more time.
 
 No.. no.. no... I still had no idea where Ton was. I had to leave. None of this would matter if I was found here like this. I had to go, clues or not. I made my way out the apartment and stopped dead in my tracks.
 
@@ -442,25 +442,25 @@ The neighbor stood in her doorway eyeing me suspiciously.
 
 My heart stopped. She would tell the police I was here. I would be implicated. I tried to find words, anything to say, anything at all. I stood there mouth open sounds coming out, but nothing with any semblance of reason.
 
-"It was the girl... the brown haired girl. I saw her you know. She had a mean look to her I tell you" the woman told me this as if I had asked...
+"It was the girl, the brown haired girl. I saw her you know. She had a mean look to her I tell you" the woman told me this as if I had asked.
 
-"The brown... haired... girl" I stuttered out.
+"The brown haired girl?" I stuttered out.
 
 "Oh yes, brown hair, with a streak in it, like they used to do. That was after disco."
 
-A girl with a streak in her hair...
+A girl with a streak in her hair?
 
-It felt my mind shatter into pieces as the memory returned...
+It felt my mind shatter into pieces as the memory returned.
 
 Her voice so shrill and annoying, she was only on stream for a minute.
 
-The chat had kept saying to ditch her...
+The chat had kept saying to ditch her.
 
 *"This is our special place, hah hah! You and me Ton!"*
 
 *That girl...*
 
-I never would have imagined... she was annoying, not psychotic! It was the only thing that made sense. I knew it was her, she was 'Number1Fan'.
+I never would have imagined, she was annoying, not psychotic! It was the only thing that made sense. I knew it was her, she was 'Number1Fan'.
 
 "Thank you ma'am" I said as I ran down the stairs and out onto the street, into the black engulf of the night.
 
@@ -472,7 +472,7 @@ I saw a younger guy with a broccoli cut across the street getting into his car.
 
 "Hey, bro! You do ride sharing?"
 
-"Uh... no... well, I have...but"
+"Uh... no... well, I have... but"
 
 "How much to the docks? I'll pay you well" I said desperately
 
@@ -480,7 +480,7 @@ I saw a younger guy with a broccoli cut across the street getting into his car.
 
 I grabbed him by his vest in desperation, tears nearly running down my face.
 
-"Please... I have to get to the docks..."
+"Please. I have to get to the docks..."
 
 He looked at me like I was crazy, which I probably was, but after thinking for a minute he said
 
@@ -494,13 +494,13 @@ He looked at me confused unsure if I was serious not and then drove off. I was c
 
 ***
 
-I ran to the spot where Ton and The Girl had been that day. 'The special spot'. It wasn't really special. It was simply a bench and a plaque to some old industrial era Tycoon who helped finance the area. I looked around for somewhere she could have taken him. The port was mostly silent other than sound of highway traffic in the distance and the waves lapping against the walls of the dock.
+I ran to the spot where Ton and the girl had been that day. 'The special spot'. It wasn't really special. It was simply a bench and a plaque to some old industrial era Tycoon who helped finance the area. I looked around for somewhere she could have taken him. The port was mostly silent other than sound of highway traffic in the distance and the waves lapping against the walls of the dock.
 
-I noticed an old car parked to the side of one of the buildings next to the benches. Trunk half closed, a trail of blood leading away from into one of the warehouses. It was her... she was here, right now, with Ton! *Or whatever was left of him*. My brain struggled to grasp that situation was actually happening, it didn't feel real.
+I noticed an old car parked to the side of one of the buildings next to the benches. Trunk half closed, a trail of blood leading away from into one of the warehouses. It was her... she was here, right now, with Ton. *Or whatever was left of him*. My brain struggled to grasp that situation was actually happening, it didn't feel real.
 
 I picked up my phone and dialed 9-1-1.
 
-"I'm at the ports. I think someone has been murdered. I'm at the North Port. I'm going in there, there might still be time..."
+"I'm at the ports. I think someone has been murdered. I'm at the North Port. I'm going in there, there might still be time."
 
 "Sir please can you repeat that. Just wait for *me* to ask *you* the questions..." his voice droned out.
 
@@ -512,7 +512,7 @@ In the center of the room was Ton.
 
 He was tied to a chair and covered in blood. His head hung lifelessly over his shoulder.
 
-"Ton..." I yelled under my breath.
+"Ton!" I yelled under my breath.
 
 I looked around. I could see no one.
 
@@ -526,7 +526,7 @@ Suddenly his head twitched awake. He looked at me bewildered.
 
 "Who..." he barely had strength to speak "are you?" he his head fell back over his shoulder.
 
-Ton... Ton had no idea who I was. Even after I had come to save him, to protect him. I was going to be his hero... and he didn't even know my name.
+Ton... Ton had no idea who I was. Even after I had come to save him, to protect him. I was going to be his hero, and he didn't even know my name.
 
 Suddenly I felt the wind knocked from me. I had been tackled from behind.
 
@@ -538,7 +538,7 @@ I don't know if it was adrenaline but when the first puncture was made, I didn't
 
 "AGGHHHH" I screamed, my vocal chords ravaged by the force my lungs had set on them.
 
-She would kill me... I was going to die in this place...
+She would kill me. I was going to die in this place.
 
 I was barely conscious when I heard it.
 
@@ -560,7 +560,7 @@ The nurse told me I was lucky to have lived. The blade had narrowly missed my he
 
 I ask about Ton. *Was he okay? Was he even alive?*
 
-She told me Ton was fine. He had been beaten bloody but hadn't sustained critical injuries. I wondered when I would be able to speak to him... when he would thank me for saving his life.
+She told me Ton was fine. He had been beaten bloody but hadn't sustained critical injuries. I wondered when I would be able to speak to him, when he would thank me for saving his life.
 
 "I need to speak with Ton." I said almost in desperation.
 
@@ -570,15 +570,15 @@ She told me Ton was fine. He had been beaten bloody but hadn't sustained critica
 
 "Well the police still want to question you about your involvement. They still have don't know the full picture of what happened that night... the girl, well she was killed. But nobody knows why you were there..."
 
-"What... no... no... I was there to help Ton. I was there to save him!"
+"What... no, no! I was there to help Ton. I was there to save him!"
 
-"Ton said he doesn't know who you are dear... the police want to know why you were at the crime scene, how you knew where the girl would take him. They think... they think you might be an accomplice...."
+"Ton said he doesn't know who you are dear. The police want to know why you were at the crime scene, how you knew where the girl would take him. They think... they think you might be an accomplice."
 
 "I... I... no, no no, I'm the hero here! I was going to save him, so we would finally met and become close 'irl'."
 
-"I really shouldn't be privy to this... but the rumor is that you were obsessed? I heard they confiscated your computer. Apparently there were hundreds of hours of clips and VODs saved... I'm sorry dear... but I hope you have a good lawyer." she said leaving the room.
+"I really shouldn't be privy to this but... the rumor is that you were obsessed? I heard they confiscated your computer. Apparently there were hundreds of hours of clips and VODs saved. I'm sorry dear, but I hope you have a good lawyer." she said leaving the room.
 
-The world spun around me. The wounds in my chest were painful... but to think Ton thought I was involved with what happened to him! I couldn't breath, I started to hyperventilate. I heard the heart rate monitor beeping faster and faster.
+The world spun around me. The wounds in my chest were painful, but to think Ton thought I was involved with what happened to him! I couldn't breath, I started to hyperventilate. I heard the heart rate monitor beeping faster and faster.
 
 ***No... no... you got it all wrong. I'm the good guy Ton!***
 
@@ -586,7 +586,7 @@ I plugged in my phone and loaded up the browser. The TV in the room began playin
 
 *"Police are still investigating a bizarre story of two crazed fans who kidnapped a streamer and savagely beat him, before turning on each other. Police say the suspect that survived the raid is in custody and is expected to recover soon."*
 
-I couldn't believe what I was hearing...
+I couldn't believe what I was hearing.
 
 I loaded up the streaming app on my phone.
 
@@ -610,7 +610,7 @@ I hurriedly typed in his profile name and clicked on the icon.
 
 ***This user has either tuned off private communications or blocked you. Message service unavailable.***
 
-How... how could they do this to me? They were my friends. My online friends...
+How... how could they do this to me? They were my friends. My online friends.
 
 Just like that I was out.
 
