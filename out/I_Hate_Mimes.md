@@ -189,7 +189,7 @@ That was when the unmistakable noise of a broom handle thumping against my apart
 
 …
 
-“…In case it wasn’t that clear, I’m going to kill you. WITH THIS BROOOOM!”
+…In case it wasn’t that clear, I’m going to kill you. WITH THIS BROOOOM!”
 
 And that’s it. That’s how I die. It’s also why I hate mimes. I survived *”Pantomimicus the Mime God”* only to die by a guy with a broom.
 
