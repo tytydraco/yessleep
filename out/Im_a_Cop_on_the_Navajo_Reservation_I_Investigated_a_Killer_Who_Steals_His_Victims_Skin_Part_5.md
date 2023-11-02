@@ -58,7 +58,9 @@ She falls to the earth with a sickening thud, her body rolling limply in the dus
 
 Izzy's still form lies crumpled in the dust, a sight that wrenches the heart and freezes the blood. But then, against all conceivable odds, she stirs. Her movements are jerky at first, like a marionette pulled by unseen strings, then smooth out as she rises to her feet. The injuries that should have been crippling seem to have no hold on her.
 
-The moonlight casts an eerie pallor over her face, her blue eyes unnaturally bright as she turns to face us.With a voice that carries the weight of the desert's age, she speaks, and her words are like shards of ice. "You've come so far, only to find yourselves deeper in the snare." Her lips curl into a smile that doesn't reach her eyes.
+The moonlight casts an eerie pallor over her face, her blue eyes unnaturally bright as she turns to face us.
+
+With a voice that carries the weight of the desert's age, she speaks, and her words are like shards of ice. "You've come so far, only to find yourselves deeper in the snare." Her lips curl into a smile that doesn't reach her eyes.
 
 I take a step back, my hand tightening around my weapon. Her words don't make sense; they're disjointed, an unsettling jigsaw that doesn't fit.
 
