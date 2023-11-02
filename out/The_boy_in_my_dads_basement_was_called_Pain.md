@@ -16,7 +16,7 @@ I knew pain existed in other people.
 
 In me, however, it was null. 
 
-I had vague memories of feeling it as a kid. I remembered stubbing my toe and falling off my bike, skinning my knees. But I didn’t remember the pain throbbing in my large toe or the stinging in the graze in my cut knees. I lost my pain first, closely followed by my happiness—and then my ability to feel sad. It felt like downing, in a way. 
+I had vague memories of feeling it as a kid. I remembered stubbing my toe and falling off my bike, skinning my knees. But I didn’t remember the pain throbbing in my large toe or the stinging in the graze in my cut knees. I lost my pain first, closely followed by my happiness—and then my ability to feel sad. It felt like drowning, in a way. 
 
 Like, one day, I stopped feeling all together. 
 
@@ -64,6 +64,7 @@ I could even squeeze tears out if I was desperate. With the cops, I figured that
 So, I scrunched up my face and forced myself to really cry, timing each tear so it was perfect. It was harder when I was really trying to get rid of someone. 
 
 Still, though, it worked. They left after giving me numbers for therapists and offering their grievances. I fake sobbed my way to the door, waited until their fancy car was gone, and then went upstairs to finish my math homework. 
+
 I did my best to appear sad at Mom’s funeral, but the more I contorted and scrunched up my own face in the mirror and timed myself when to start crying, I started to wonder if I was a sociopath. 
 
 When I googled the inability to express  emotion, the word “sociopath” came up a lot—and with it, came mimicking and copying emotions to suit them. That's  what I did. When my aunt came to comfort me after the funeral, I burst into uncontrollable sobs and allowed her to wrap her arms around me and tell me everything was going to be okay. 
@@ -334,7 +335,7 @@ So if it *was* real, where was it?
 
 And how could I feel echoes? 
 
-And at that moment it was so powerful, so overwhelming, like a tidal wave coming over me, that I actually felt prickles of it. I was suddenly boiling hot, my hands clammy, my lungs filled with poison. I staggered back, slamming into the corner of a desk. I wasn't used to the type of fear I had read about. Unbridled fear that crept up on you, slithering up and down your spine. It was bugs skittering across your skin and filling your mouth, stealing away your breath. 
+At that moment it was so powerful, so overwhelming, like a tidal wave coming over me, that I actually felt prickles of it. I was suddenly boiling hot, my hands clammy, my lungs filled with poison. I staggered back, slamming into the corner of a desk. I wasn't used to the type of fear I had read about. Unbridled fear that crept up on you, slithering up and down your spine. It was bugs skittering across your skin and filling your mouth, stealing away your breath. 
 
 Never stopping or faltering until you were screaming, submitting to the inevitably of the darkness closing in. I felt my skin prickle, paralysis seeping into my blood. 
 
@@ -488,7 +489,9 @@ Stepping back, the heel of my foot went straight through a rusty nail sticking t
 
 His head was half shaved, reddish curls on one side, rugged stitched skin on the other. He tried to hide it, shielding his face when my heel went through the nail. 
 
-I didn't feel anything, while his knees jerked against his chin, expression crumpling, lips curling into a silent cry.  Stepping closer to the screen like I was observing animals in a zoo, I could see every contortion of agony in his eyes, my mom's death ripping him apart from the inside. His lips curling back into a yell, had my anger and my frustration, my white hot pain. What I had been craving for so long. *Pain*.  He was the one harbouring it all, stealing away my humanity. For a moment, I couldn't see the sharp edges sticking into his wrist and the dark circles under his eyes, the sickening lack of flesh on his bones. 
+I didn't feel anything, while his knees jerked against his chin, expression crumpling, lips curling into a silent cry.  
+
+Stepping closer to the screen like I was observing animals in a zoo, I could see every contortion of agony in his eyes, my mom's death ripping him apart from the inside. His lips curling back into a yell, had my anger and my frustration, my white hot pain. What I had been craving for so long. *Pain*.  He was the one harbouring it all, stealing away my humanity. For a moment, I couldn't see the sharp edges sticking into his wrist and the dark circles under his eyes, the sickening lack of flesh on his bones. 
 
 I could just see my pain.
 
