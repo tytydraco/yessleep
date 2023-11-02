@@ -175,3 +175,5 @@ It was pity in that expression of theirs.
 I sighed. All my energy seeped out into the cold dark night along with the air that left my lungs. "Let's just go home."  
 
 [🔥](https://www.reddit.com/r/CrypticPark/s/s2AC80GKfq)
+
+[Part 3](https://www.reddit.com/r/nosleep/s/lk8KhI5PQI)

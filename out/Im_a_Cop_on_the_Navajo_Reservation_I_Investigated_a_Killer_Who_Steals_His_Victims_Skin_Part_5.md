@@ -4,7 +4,7 @@
 
 [Part 3](https://www.reddit.com/r/nosleep/comments/17i853v/im_a_cop_on_the_navajo_reservation_i_investigated/)
 
-[Part 4](https://www.reddit.com/r/nosleep/comments/17i853v/im_a_cop_on_the_navajo_reservation_i_investigated/)
+[Part 4](https://www.reddit.com/r/nosleep/comments/17kov8v/im_a_cop_on_the_navajo_reservation_i_investigated/)
 
 The urgency is a [fire](https://www.reddit.com/r/nosleep/comments/16texdg/im_a_private_investigator_in_new_orleans_i/) in my veins as we scramble up from the chilling tableau by the river's edge. We leave the woman's body as we found her, a silent sentinel to the mysteries we have yet to unravel, the carved stone now a weight in my pocket.
 

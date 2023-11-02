@@ -66,7 +66,7 @@ Every time I watched, I learned more about the strange charismatic streamer.
 
 ***RosieRuth68: Ton knows people, he's friends with XKC in real life***
 
-***YonHater305: This channel is a complete fabrication, it's a comedy special for HBO***
+***TonHater305: This channel is a complete fabrication, it's a comedy special for HBO***
 
 I never knew what to believe while watching.
 
