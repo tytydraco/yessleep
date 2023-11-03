@@ -1,6 +1,6 @@
 [\[Part 27\]](https://www.reddit.com/r/nosleep/comments/17k1x8n/the_road_to_new_wilderness_part_27/)
 
-[\[Part 29\]](https://www.reddit.com/r/nosleep/comments/17lqsbd/the_road_to_new_wilderness_part_29/)
+[\[Part 29\]](https://www.reddit.com/user/RandomAppalachian468/comments/17lq4gi/the_road_to_new_wilderness_part_29/)
 
 *Boom.*
 
