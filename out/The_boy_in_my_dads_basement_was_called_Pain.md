@@ -489,9 +489,11 @@ Stepping back, the heel of my foot went straight through a rusty nail sticking t
 
 His head was half shaved, reddish curls on one side, rugged stitched skin on the other. He tried to hide it, shielding his face when my heel went through the nail. 
 
-I didn't feel anything, while his knees jerked against his chin, expression crumpling, lips curling into a silent cry.  
+I didn't feel anything, while his knees jerked against his chin, expression crumpling. He tried to bury in his head in knees, but what was supposed to be running through me, was striking him. 
 
-Stepping closer to the screen like I was observing animals in a zoo, I could see every contortion of agony in his eyes, my mom's death ripping him apart from the inside. His lips curling back into a yell, had my anger and my frustration, my white hot pain. What I had been craving for so long. *Pain*.  He was the one harbouring it all, stealing away my humanity. For a moment, I couldn't see the sharp edges sticking into his wrist and the dark circles under his eyes, the sickening lack of flesh on his bones. 
+Every time his body shook, fingers curling. 
+
+Stepping closer to the screen like I was observing animals in a zoo, I could see every contortion of agony in his eyes, my mom's death ripping him apart from the inside. His lips twisting into a yell had my anger and my frustration, my white hot pain. What I had been craving for so long. *Pain*.  He was the one harbouring it all, stealing away my humanity. For a moment, I couldn't see the sharp edges sticking into his wrist and the dark circles under his eyes, the sickening lack of flesh on his bones. 
 
 I could just see my pain.
 
@@ -499,7 +501,7 @@ I fell into a trance, completely aware of myself and unable to stop my body. I p
 
 He tried to stop it, tried to hold himself, but his body was jerking along with the useless sack of flesh I called my own. 
 
-A body that refused to give into it. I could almost feel it if I took in every crease in his eyes, every curve in his lips. No longer in control of myself, I broke my finger with a sickening snap, and this time, he cried out like an animal, teeth gritted, head tipped back. 
+A body that refused to give into it. I could almost feel it if I took in every crease in his eyes, every curve in his mouth. No longer in control of myself, I broke my finger with a sickening snap, and this time, he cried out like an animal, teeth gritted, head tipped back. 
 
 This was what I had been missing. 
 

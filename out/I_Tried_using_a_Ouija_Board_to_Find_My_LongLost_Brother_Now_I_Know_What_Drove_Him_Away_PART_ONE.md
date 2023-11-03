@@ -56,7 +56,7 @@ Ashley’s eyes danced, taking me in. In those eyes I saw myself reflected back:
 
 “Yeah,” I said, coming down, forcing myself to stick to one-word answers. Adjusting her purse strap, Ashley hummed a single low note. “You look like you’ve lost weight,” she said, softening. Searching for something to ease the tension.
 
-I titled my head down and have a sideways smile. I sure had lost weight. I’d made it a mission to stay small since grade eight. I wasn’t rich, popular, pretty, or book smart. The least I could do was be thin. In my kamikaze-binge drinking, drug-addled rut, being thin had been my one lonely health goal. Not hard to achieve, being a drug addict living on government assistance.
+I titled my head down and gave a sideways smile. I sure had lost weight. I’d made it a mission to stay small since grade eight. I wasn’t rich, popular, pretty, or book smart. The least I could do was be thin. In my kamikaze-binge drinking, drug-addled rut, being thin had been my one lonely health goal. Not hard to achieve, being a drug addict living on government assistance.
 
 Ashley fished a Marlboro Light out of her purse and put fire to it. Her expression had turned wolfish. “Why is this so important to you?” she asked, holding her smoke between long rectangular fingers, like a model in a magazine ad. “Why don’t we just go to a bar or a club or something. Get our drink on.”
 
@@ -202,6 +202,6 @@ Before the realization of what was going on drove me completely insane, the thin
 
 I looked to Ashley and saw how pale she was. Whatever she had done had left her drained. A husk. I hadn’t been hallucinating. Whatever that giant anatomical model was, it had been cast out of the light by her bizarre murmuring. She had saved us both. Or so I thought.
 
-My arm felt swollen but not as painful, so I stood. The two of us leaned on each other like boxers at the end of the ninth round, then hobbled our way through the brook trail to the bridge leading us out of the park. We limped our way to the nearest bus stop without speaking a word. 
+My arm felt swollen but not as painful, so I stood. The two of us leaned on each other like boxers at the end of the ninth round, then hobbled our way through the brook trail to the bridge leading us out of the park. We limped our way to the nearest bus stop without speaking a word.
 
 &#x200B;
