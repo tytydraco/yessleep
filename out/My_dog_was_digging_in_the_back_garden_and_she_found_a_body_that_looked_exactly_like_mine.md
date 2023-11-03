@@ -8,7 +8,7 @@ I locked eyes with Jessie’s discovery in the ditch — a woman’s corpse.
 
 My heart cascaded towards the earth, pulling my limp body in tow. And as darkness enveloped my vision, I prayed that it had all been a direful dream.
 
-When I regained consciousness, I found myself lying in the wet grass, eyeing both the setting sun above and Jessie’s slobbery tongue.
+When I regained consciousness, I found myself lying in the wet grass, eyeing both the setting sun and Jessie’s slobbery tongue above me.
 
 “I’m awake,” I groaned, sitting up and stroking her. “I just took a quick… nap? Why am I…”
 
