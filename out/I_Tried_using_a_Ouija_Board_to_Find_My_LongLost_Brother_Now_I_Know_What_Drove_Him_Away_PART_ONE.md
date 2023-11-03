@@ -204,4 +204,6 @@ I looked to Ashley and saw how pale she was. Whatever she had done had left her 
 
 My arm felt swollen but not as painful, so I stood. The two of us leaned on each other like boxers at the end of the ninth round, then hobbled our way through the brook trail to the bridge leading us out of the park. We limped our way to the nearest bus stop without speaking a word.
 
+[PART TWO](https://www.reddit.com/r/nosleep/comments/17mmrsg/i_tried_using_a_ouija_board_to_find_my_longlost/) 
+
 &#x200B;
