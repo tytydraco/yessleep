@@ -64,7 +64,7 @@ With a voice that carries the weight of the desert's age, she speaks, and her wo
 
 I take a step back, my hand tightening around my weapon. Her words don't make sense; they're disjointed, an unsettling jigsaw that doesn't fit.
 
-I scan the surroundings, a knot tightening in my stomach. The stark realization hits me—we've been herded here, manipulated into this precise location. The terrain is unfamiliar, rougher, with jagged rocks and narrow passages that weren't on our maps. That's when the realization dawns on me, a cold, sinking feeling that we've been lured into a trap. The creature had not fled to the darkness; it had led us here, to this spot, under the gaze of a moon that seems to be a silent accomplice.
+I scan the surroundings, a knot tightening in my stomach. The stark realization hits me—we've been herded here, manipulated in this precise location. The terrain is unfamiliar, rougher, with jagged rocks and narrow passages that weren't on our maps. That's when the realization dawns on me, a cold, sinking feeling that we've been lured into a trap. The creature didn't flee to the darkness; it led us here, to this spot, under the gaze of a moon that seems to be a silent accomplice.
 
 The air is alive with a tension that feels almost electric, the crackling flames from the distant massacre now a faint echo. A heaviness settles over us, as if the very atmosphere has thickened with foreboding. I use my flashlight to scan the treacherous landscape, and that's when I see it—the glint of eyes, not just one pair, but many, encircling us in a silent vigil. The realization hits with the force of a physical blow: we're completely surrounded.
 
@@ -76,9 +76,11 @@ The charge comes like a whisper of death, silent but for the rush of wind that p
 
 The first of the skinwalkers surge forward, a blur of malice and twisted limbs. Bullets fly, punctuating the night with flashes of defiance as we struggle to hold the line against the encroaching nightmare.
 
-I feel the impact of my rounds finding their mark, the guttural screams of the fallen creatures a grim chorus to the cacophony of battle. Yet, for every beast that falls, another takes its place, their numbers seemingly unending, a dark wave intent on crashing over us.
+I feel the impact of my rounds finding their mark, the guttural screams of the fallen creatures a grim chorus to the cacophony of battle. Yet, for every beast that falls, another takes its place, their numbers seemingly unending, a dark wave intent on crashing over us. 
 
-Their howls are a chorus of war cries, chillingly human yet utterly alien. They crash into our circle with the force of a storm, claws and teeth bared, eyes burning with a hatred that is ancient and deep. The air is filled with the sound of gunfire, growls, and the sickening wet sound of rending flesh. The world narrows to the primal simplicity of survival, kill or be killed.
+In that moment, the horror is complete, the realization that we are not the hunters here; we are prey, overwhelmed by a darkness that has no name.
+
+Their howls are a chorus of war cries, chillingly human yet utterly alien. They collide into our circle with the force of a storm, claws and teeth bared, eyes burning with a hatred that is ancient and deep. The air is filled with the sound of gunfire, growls, and the sickening wet sound of rending flesh. The world narrows to the primal simplicity of survival, kill or be killed.
 
 The fight becomes a dance of desperation, a melee where claws and teeth meet fists and rifle butts. I swing my weapon with a ferocity born of pure instinct, the metallic scent of blood thick in the air. The creatures are everywhere, their hisses and snarls a symphony of dread that fills the night.
 
@@ -92,9 +94,9 @@ The enraged skinwalker barrels into me, its strength monstrous, its eyes burning
 
 I fight back with a raw, animalistic energy, but the creature's weight is crushing, its ferocity undiminished.
 
-I catch a glimpse of my fellow officer, Dan Tso, going down next to me, his throat torn open by teeth that gleam in the moonlight. The night is filled with the sounds of combat, a chorus of terror that chills the soul.
+The creature atop of me snarls, its breath a fetid gale. I feel its talons tear through my defenses, drawing closer to my throat. 
 
-The creature atop me snarls, its breath a fetid gale. I feel its talons tear through my defenses, drawing closer to my throat. In that moment, the horror is complete, the realization that we are not the hunters here; we are prey, overwhelmed by a darkness that has no name.
+I catch a glimpse of my fellow officer, Dan Tso, going down next to me, his throat torn open by teeth that gleam in the moonlight. The night is filled with the sounds of combat, a chorus of terror that chills the soul. That'll my fate too if I don't act fast.
 
 As the skinwalker's talons inch toward my throat, its foul breath hot upon my face, a desperate clarity pierces my panic. My hand, slick with my own blood, gropes for the sidearm holstered at my waist. I manage to wrap my fingers around the grip, the familiar cold metal a lifeline in this bloodbath. With a primal scream that tears at my vocal cords, I shove the barrel against the creature's underbelly and pull the trigger.
 

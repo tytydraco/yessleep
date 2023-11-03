@@ -412,7 +412,3 @@ I walked the house for a time afterwards with May holding my hand. Myles was rig
 May and I went upstairs. To the third floor. The hallway really was gone. There was only a closet door against the wall as Alison had said. I opened it. Inside, on the single shelf there, was a music box and purple butterfly doll. The music box was silver, and stamped with a golden moon. 
 
 “Don't worry, Megan,” May said. “We'll stop the suited man.”
-
-&#x200B;
-
-*End*
