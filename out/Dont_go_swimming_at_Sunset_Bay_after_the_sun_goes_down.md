@@ -1,4 +1,4 @@
-Okay, so let me just say right off the bat that I don’t give a damn if anyone believes this or not. My intention with this post isn’t to make anyone believe me, but to simply to read my story and hear the warning I have to give. And then pray to God that those who do, heed it. My friends and I knew the rules about going swimming there at night, and we didn’t listen to them.
+Okay, so let me just say right off the bat that I don’t give a damn if anyone believes this or not. My intention with this post isn’t to make anyone believe me, but simply to read my story and hear the warning I have to give. And then pray to God that those who do, heed it. My friends and I knew the rules about going swimming there at night, and we didn’t listen to them.
 
   
 And now...they’re gone.
