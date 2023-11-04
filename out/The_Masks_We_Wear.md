@@ -124,7 +124,7 @@ Olivia lunged forward to grab him, but he danced out of the way lithely.
 
 He turned to leave but hesitated on the steps. “The devil gave me a light after I died. It only feels right to pay it forward. Cheerio!”
 
-    Jack sat the pumpkin down and strode away into the darkness.   
+Jack sat the pumpkin down and strode away into darkness. 
 
 Olivia collapsed. Everything had been taken away from her so quickly. She felt like the same scared and helpless little girl who watched her house burn into ash. She could run. But she couldn’t save the people she cared about. She wasn’t good enough to save her Mom, and she wasn’t good enough to save Cade.
 
