@@ -1,0 +1,14 @@
+I'm Amanda, a grad student and a die-hard vintage vinyl enthusiast. My collection was my pride, though my bank account sang a sadder tune. One night, with only the glow of my phone for company, I came across a peculiar ad that caught my eye: "Wanted: Vintage Music Aficionado. Generous compensation for a night of curating. Discretion a must. Apply only if serious."  
+Driven more by curiosity than desperation, I replied. An instant message shot back, "Come to 47 Hawthorn Street at midnight. Bring your favorite record. You’ll curate a playlist. No questions in the house."  
+That's how I found myself standing in front of the most curious Victorian house at the end of Hawthorn Street, where the shadows seemed almost alive. Clutching my precious copy of "The Dark Side of the Moon," I approached the house as a charm against the unease creeping up my spine.  
+Before I could knock, the door opened on its own, revealing a man with hair like moonlight and eyes holding secrets. "You brought the record?" His voice was like a melody from another era.  
+I handed over my album, a silent nod my only reply. "The rules," he began, his tone turning serious, "are simple. Play the records in the order you find them. Do not skip any. Do not leave until dawn. And do not, under any circumstance, go upstairs."  
+The room he led me to was a museum of musical time, with records that whispered tales of the past. The gramophone in the center was the altar at which I was to worship. It was my sanctuary.  
+I lost myself in the music, from Glenn Miller's swing to the Beatles' charm, with a dash of Ella's soulful voice. The hours melted away until my fingers found an anonymous record, a temptation too strong to resist.  
+I placed it on the turntable, the needle kissed the vinyl, and a tune unlike any other filled the room. It was heartbreakingly beautiful, threading through the fabric of the room, warping it. I looked up, and dancers materialized from the shadows, moving to a rhythm that transcended time.  
+A shiver danced down my spine. The rule – I had skipped records, an act of rebellion that now seemed a grievous error. When the last note hung in the air, silence crashed down like a verdict.  
+The man reappeared, clapping with a melancholic cadence. "You've done well," he said, though his tone spoke of a finale rather than praise.  
+"What happens now?" I croaked, my fear a tangible thing.  
+"Now," his smile was a gate to untold stories, "you become part of the playlist, part of the house. Until the next curator arrives."  
+With the dawn's light creeping in, I felt my form wane, my essence distilled into a vinyl that bore my name. My beloved Pink Floyd rested beside the gramophone, a sentinel for the next soul.  
+And somewhere in the digital ether, a new ad beckoned the next player to join The Playlist of Hawthorn Street.
