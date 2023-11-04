@@ -1,0 +1,25 @@
+I was a phD researcher in my University’s Department of Linguistics. My area of study was semiotics, the study of signs and how ”we“ make meaning. To put it another way, language is a collection of arbitrary symbols, mostly sounds but not always, that we put together in a certain way and those otherwise meaningless pieces produce meaning. 
+
+My university became involved in a project that aimed to decode unknown languages using AI. The method is entirely made possible by the kind of tools that have only come into existence in the past 5 years. The method is, if you take two human languages and you were to map the relationship between each symbol, a pattern begins to emerge. Distances between points in a cloud emerge in shockingly similar ways. You can then map on these two languages, one known and one unknown, to produce a dictionary. Essentially, we are at the brink of being able to universally translate languages, irrespective of where they are from, without any kind of Rosetta Stone.
+
+The organisation we were partnered with wanted to apply this to animal language. An incredible idea but essentially, the problem there is that the distances between these points in a cloud depends on similarities between the groups that create the symbols. Whale song, we can see is informationally dense but the reference points of a whale are so vastly different, we very much do need a Rosetta Stone for words outside of basic vocabulary such as kinship groups and dangers. It makes for frustrating work. 
+
+One night I was ran into a friend from my undergraduate days, a former history student, and we decided to catch up over a drink. This problem came up and we started talking about the tool I found in my hands rather than the problem it was trying to solve, a decoder. 
+
+When I was a child, I was fascinated by the story of the Rosetta Stone. A singular object that cracked open an entire reality that was hidden before our eyes until that point. As my interest in languages grew I learned about all the other languages, lost to time, that we just don’t have the Rosetta Stone for: Ancient Etruscan, The script of the Indus Valley Civilisation, The Mixtec Script of Mesoamerica. We decided to see if it was possible to use this tool to decipher these scripts. 
+
+Secretly, we started to adapt what was available to us to better suit the task. In actuality, the task of comparing two written human languages to baboon shrieks is far simpler. We decided to start with the Minoan script of Linear A. The reason for this choice of subject was the high number of samples (1500 or so), a good understanding of the cultural context of mediterranean civilisations, and the fact that the script had relatively recently been digitised and catalogued in something called Unicode, making it a much simpler task of working with machine learning. 
+
+What we thought we knew about the Minoans was scarce. They formed a complex urban society that emerged on Crete around 3100BC and continued until 1450BC. They spoke an unknown language recorded by an undeciphered writing system that possibly emerged from system of hieroglyphs unrelated to any other hieroglyphs we know. 
+
+From their art certain assumptions could be made. They were possibly a theocracy. They were possibly insular by nature. They possibly practiced blood sports, human sacrifice. They possibly worshiped a pale naked goddess with great staring eyes holding two snakes and a strange bipedal wolf-locust creature that whispers in the ears of those making blood sacrifices. Really we knew nothing. 
+
+The significance of decoding Linear A, can’t be understated. It’s one of the great historical and linguistic mysteries. Brilliant people have made their careers failing to decode it and have considered it a life well lived. In a relatively short amount of time, we we’re ready. I began to feel a kind of melancholy that this technology, if successful, will catch and catalogue and bear open the last mysteries we still had. Of course, that didn’t stop us.
+
+This kind of research has the strange sense of many small victories and then one big one. The mapping of the language is one. In some way, just an indecipherable net of points: cloud, bull, wood. In some way, we resisted the translation of full texts till the last.
+
+When we ran the translation, we were disappointed at first. The text we got back was legible but some of the mapping of reference points had to be wrong. For any problems like this to occur, the entire project had to be considered a failure. 
+
+Whole samples of text were seemingly correct, detailing of marriages, land purchase, deaths of important figures. Others were talking about nonsense like “the halo band subject ate ate sustain press birthing.”
+
+We couldn’t understand the discrepancy until we realised that maybe we were decoding fragments of something that wasn’t a human language.
