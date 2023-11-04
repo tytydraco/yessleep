@@ -21,4 +21,4 @@ Nick’s sister who was asleep was woken up by a faint cold chill passing throug
 
   
 While Nick’s mother stayed with Nick’s sister to calm her down, Nick and Nick’s father had gone to Reeta’s bedroom to check on her condition and when they entered Reeta’s bedroom, Reeta was struggling for breath putting every sap of effort left on her to breathe while trying to fend off something invisible off from her chest.  Both Nick and Nick’s father gave their maximum effort to calm Reeta down but it was apparent that Reeta was in a fight of her own with something invisible which is out to get her.  The family brought down doctors who stated that there is nothing physically wrong with Reeta and even carried out blessings both Buddhist and Catholic but Reeta showed no progress in her condition and her night terrors and attacks from the invisible entity did not seem to stop.    
-A few days later, Reeta passed away. But acts of the invisible entity did not seem to stop. To be continued…………….  
+A few days later, Reeta passed away. But acts of the invisible entity did not seem to stop. 
