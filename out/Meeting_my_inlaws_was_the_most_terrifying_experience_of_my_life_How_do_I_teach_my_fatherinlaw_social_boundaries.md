@@ -91,3 +91,7 @@ She stood, unmoving, while staring at her extended arm. Just below her wrist, an
 “Oh shit,” I whispered. “Lacey – do you become one of them once you’re bitten?”
 
 Frank glanced from Lacey down to me, then over to where the gun lay on the ground.
+
+----------------
+
+[Once bitten](https://redd.it/17nlfmn)

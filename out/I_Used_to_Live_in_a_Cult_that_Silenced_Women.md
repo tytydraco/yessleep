@@ -24,7 +24,7 @@ It must have been 2am when I heard a faint tap tap at my window. I sat up, putti
 I didn't care about safety- my dread for tomorrow had desensitized me. I threw open the window. "Who are you?"   
 The woman opened her mouth and spoke, quietly, but still spoke, her voice coming from her lips. "Hello Eliza. Will you come away with me?"  
 I had never seen a woman of that age, with a neck tattoo, who could talk. My jaw dropped. "Wha...?"  
-She started speaking rapidly. "Eliza, I know how you feel. We can take you away, outside. I can't explain much now, but if you want to, you have to come away with me now. It will be a hard life- but you won't lose your voice, at least, not tomorrow you won't."  
+She started speaking rapidly. "Eliza, I know how you feel. We can take you away, outside. I can't explain much now, but if you want to, you have to come away with me now. It will be a hard life- but you won't lose your voice, at least, not today you won't."  
 I was silent for a bit. I felt the dreadful fear of the last few years shifting a bit, giving way to a new emotion- hope? excitement? I looked at the aged face of this talking woman with the tattooed roses on her throat, and nodded dumbly.   
 She smiled at me. "Excellent. Follow me. No- you don't need anything, we have everything you will need- a car is waiting. Not even shoes. Just move fast."  
 My heart beating fast, I followed my new friend, and climbed out of the window.  
