@@ -64,7 +64,7 @@ Instinctively, I raise my weapon, aiming towards the door, and several others fo
 
 As the banging continues, a voice rises above the din, muffled but recognizable, "Navajo Nation Police! Open up!"
 
-Suspicion and hope war within me. Could it be a trick? But no, that voice is familiar — Lieutenant Ben Tahoma, an old friend and one of the most dedicated officers on the reservation.
+Suspicion and hope war within me. Could it be a trick? But no, that voice is familiar — Lieutenant Benjamin Tahoma, an old friend. We both play on the football team in high school. He's the most dedicated officers I know.
 
 Yet caution is our ally. "Ben, is that really you?" I call out, trying to mask the tremble in my voice.
 

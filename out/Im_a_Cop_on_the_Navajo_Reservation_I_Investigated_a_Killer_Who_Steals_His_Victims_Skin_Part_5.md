@@ -46,11 +46,15 @@ In one fluid, nightmarish motion, the creature bounds away, its movements a blur
 
 "We have to go after them!" I shout to the team, my voice raw with urgency. We give chase, our boots pounding against the blood-soaked earth, following the trail of destruction left by the skinwalker.
 
-The chase is a blur, a fevered sprint where every second stretches into an eternity. Our team, spurred by a mix of fear and adrenaline, gives pursuit over the treacherous terrain. The night air is split by the sound of our boots pounding against the earth, a desperate rhythm in the race against darkness.
+"We have to go after them!" I shout to the team, my voice raw with urgency. We give chase in our armored vehicle, following the trail of destruction left by the skinwalker.  
+The chase is a blur, a fevered sprint where every second stretches into an eternity. Our team, spurred by a mix of fear and adrenaline, gives pursuit over the treacherous terrain. 
 
-Izzy’s cries grow fainter as the distance between us increases, the skinwalker's unholy speed a mockery of nature. But then, abruptly, it stops. The suddenness of it halts us in our tracks, a jarring pause in the night's terrible symphony.
+The chase leads us to the base of a towering mesa, its silhouette a jagged scar against the starlit sky. The skinwalker scales the steep rock face with impossible speed and agility, its form occasionally silhouetted against the moon, a haunting specter of ancient nightmares. There is a primordial aura about the mesa, as if the very earth recognizes the presence of the creature it bears.  
+Our vehicle skids to a halt, throwing up a cloud of dust and gravel. We know there's no way to follow in the vehicle; the climb must be made on foot. Each of us is grim-faced as we prepare to ascend, checking our gear with hands that betray no tremor, our hearts pounding in our chests like war drums.  
+The ascent is treacherous, a vertical odyssey that tests the limits of our bodies and spirits. Our boots scrape against the unyielding rock, searching for purchase on the narrow ledges and outcroppings. Loose stones skitter down the cliff face, a reminder of the ever-present danger of a misstep. Our fingers grip the cool stone, pulling us upwards, muscles burning with the exertion.  
+The night air is eerily silent as we climb, the usual sounds of the wilderness absent as if the natural world is holding its breath. The only sounds are our labored breathing and the occasional clink of equipment. The skinwalker's passage has disturbed the mesa, leaving behind a trail of displaced stones and a palpable sense of malice that clings to the rocks like a residue.
 
-The creature stands at the threshold of the darkness, a silhouette of nightmare against the lesser black of the night. It holds Izzy aloft, her body limp, as if showcasing its prize. Our breaths come in ragged gasps, our weapons raised but hands trembling, knowing that any misstep could be fatal.
+When we reach the top, the creature is standing there, waiting for us at the threshold of the darkness, a silhouette of nightmare against the lesser black of the night. It holds Izzy aloft, her body limp, as if showcasing its prize. Our breaths come in ragged gasps, our weapons raised but hands trembling, knowing that any misstep could be fatal.
 
 The skinwalker's eyes, gleaming with a feral and intelligent light, fix upon us. There's a moment where the world seems to hold its breath, the only sound is that of my heartbeat thundering in my ear. Then, with a sound that chills the blood, a guttural chuckle, it drops Izzy to the ground.
 
@@ -76,7 +80,7 @@ The charge comes like a whisper of death, silent but for the rush of wind that p
 
 The first of the skinwalkers surge forward, a blur of malice and twisted limbs. Bullets fly, punctuating the night with flashes of defiance as we struggle to hold the line against the encroaching nightmare.
 
-I feel the impact of my rounds finding their mark, the guttural screams of the fallen creatures a grim chorus to the cacophony of battle. Yet, for every beast that falls, another takes its place, their numbers seemingly unending, a dark wave intent on crashing over us. 
+I feel the impact of my rounds finding their mark, the guttural screams of the fallen creatures a grim chorus to the cacophony of battle. Yet, for every beast that falls, another takes its place, their numbers seemingly unending, a dark wave intent on crashing over us.
 
 In that moment, the horror is complete, the realization that we are not the hunters here; we are prey, overwhelmed by a darkness that has no name.
 
@@ -94,7 +98,7 @@ The enraged skinwalker barrels into me, its strength monstrous, its eyes burning
 
 I fight back with a raw, animalistic energy, but the creature's weight is crushing, its ferocity undiminished.
 
-The creature atop of me snarls, its breath a fetid gale. I feel its talons tear through my defenses, drawing closer to my throat. 
+The creature atop of me snarls, its breath a fetid gale. I feel its talons tear through my defenses, drawing closer to my throat.
 
 I catch a glimpse of my fellow officer, Dan Tso, going down next to me, his throat torn open by teeth that gleam in the moonlight. The night is filled with the sounds of combat, a chorus of terror that chills the soul. That'll my fate too if I don't act fast.
 
