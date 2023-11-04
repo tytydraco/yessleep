@@ -44,7 +44,7 @@ edit 6:
 
 I've decided I need to get out of here. When I was running earlier I noticed an escalator I hadn't seen before. The lights are hardly working up here now, they flicker on for a few seconds but it's mostly dark. I did notice there was a light where the escalator was leading, well... it was pitch black otherwise but maybe the power is stable down there at least.
 
-I'm thinking that's the service area and there should be an exit. If so, I should be out of here soon (*thank goodness*). I've been totally overreacting. The guy I saw was probably just a maintenance worker or something. I'll update, once I'm out of here... even though not one of you have responded (not cool btw, lol!) but nonetheless, I'll let you guys know!
+I'm thinking that's the service area and there should be an exit. If so, I should be out of here soon (*thank goodness*). I've been totally overreacting. The guy I saw was probably just a maintenance worker or something. I'll update, once I'm out of here... even though not one of you have responded but nonetheless, I'll let you guys know!
 
 Ciao!
 
@@ -54,8 +54,8 @@ Hello, it's me, the girl. I was confused. Everything is fine. I was right, I was
 
 edit 8:
 
-I'm not going to update anymore, I just wanted to say again, I'm fine. Nothing happened in the basement. I just decided to stay. This building is absolutely not a mirage designed to trap tourists with a insatiable desire for material objects.
+I'm not going to update anymore, I just wanted to say again, I'm fine. Nothing happened in the basement. I just decided to stay. This building is absolutely not a mirage designed to trap tourists with an insatiable desire for material objects.
 
-Don't look for me,
+Don't look for me, 
 
 Good buy

@@ -296,4 +296,6 @@ I shake my head, unable to find the words to describe the impossible events we'd
 
 [Part 5](https://www.reddit.com/r/nosleep/comments/17m0uly/im_a_cop_on_the_navajo_reservation_i_investigated/)
 
+[Part 6](https://www.reddit.com/r/nosleep/comments/17nba46/im_a_cop_on_the_navajo_reservation_i_investigated/)
+
 [X](https://www.reddit.com/r/PageTurner627Horror/)

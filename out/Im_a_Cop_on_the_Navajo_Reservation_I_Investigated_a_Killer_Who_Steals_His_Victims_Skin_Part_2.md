@@ -162,4 +162,6 @@ The beam wavers and then falls, casting eerie, dancing shadows before plunging u
 
 [Part 5](https://www.reddit.com/r/nosleep/comments/17m0uly/im_a_cop_on_the_navajo_reservation_i_investigated/)
 
+[Part 6](https://www.reddit.com/r/nosleep/comments/17nba46/im_a_cop_on_the_navajo_reservation_i_investigated/)
+
 [X](https://www.reddit.com/r/PageTurner627Horror/)
