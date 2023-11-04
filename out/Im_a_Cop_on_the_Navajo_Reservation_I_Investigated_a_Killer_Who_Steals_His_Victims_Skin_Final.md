@@ -12,7 +12,7 @@ Slowly, the darkness that enveloped my senses begins to peel away, like the relu
 
 "Unit 17, do you copy? Logan, please, respond!"
 
-Her voice is the siren call back to the world of the living, a tether to the reality I had nearly slipped from. But as my vision swims back into a blurry semblance of clarity, my focus narrows on a singular, chilling sight—Izzy, or the abomination that wears her guise, standing over me. The [moonlight](https://www.reddit.com/r/nosleep/comments/1581vef/our_search_for_a_missing_teen_uncovered_the/) drapes her in an ethereal glow, casting her in a light that is as mesmerizing as it is terrifying.
+Her voice is the siren call back to the world of the living, a tether to the reality I had nearly slipped from. But as my vision swims back into a blurry semblance of clarity, my focus narrows on a singular, chilling sight—Izzy, or the abomination that wears her guise, standing over me. The [moonlight](https://www.reddit.com/r/nosleep/comments/1581vef/our_search_for_a_missing_teen_uncovered_the/) drapes her in an inhuman glow, casting her in a light that is as mesmerizing as it is terrifying.
 
 Her hand, a grotesque distortion of the human form it once mimicked, holds the radio receiver with a casual menace. The device that represents our last hope of calling for backup, for any semblance of salvation, dangles from her elongated fingers like a toy. She regards it—and by extension, me—with a sort of detached curiosity, as if pondering the significance of this lifeline to the outside world.
 
@@ -32,7 +32,7 @@ The air is thick with a stench of charred flesh and decay, a scent that seems to
 
 The most disturbing sight, however, is not the carnage or the malevolent creatures that surround us—it's the sight of Nayenezgani, the mythical Slayer of Alien Gods, previously indomitable, now captured and subdued. The legends never prepared us for this, for the fall of such a powerful force.
 
-He is bound by some supernatural force, his potent weapons shattered and scattered like the bones of the earth. His horse, Yiska, whoh was once a fierce companion, its eyes blazing with the same fire as its master, is now tethered, its spirit seemingly broken under the yoke of the dark forces that have subdued them both.
+He is bound by some supernatural force, his potent weapons shattered and scattered like the bones of the earth. His horse, Yiska, who was once a fierce companion, its eyes blazing with the same fire as its master, is now tethered, its spirit seemingly broken under the yoke of the dark forces that have subdued them both.
 
 Yet even in this dire tableau, there's a flicker of the extraordinary that refuses to be extinguished. Nayenezgani's eyes blaze through the eye holes of his featureless black mask, a pair of coals that seem to burn with an inner light undimmed by captivity. Those eyes meet mine, and for a moment, it's as if an electric current passes between us, a silent communication of shared struggle against the darkness that seeks to engulf us.
 
@@ -62,7 +62,7 @@ I gasp for air, a strangled, futile attempt to sustain the life that is swiftly 
 
 With its other hand, it reaches for the stone, which pulses against my skin through the fabric of my pocket. The stone's warmth is a stark contrast to the cold death that looms, a beacon of life amidst the shadows of demise.
 
-The creature's fingers probe, unerringly accurate, and with a coldness that seeps into my bones, it extracts the stone. The warmth leaves me, a departing friend, as the creature holds the Heart aloft.T he stone glows with a light that seems to pulse in protest, a heartbeat of defiance against the creature's triumph.
+The creature's fingers probe, unerringly accurate, and with a coldness that seeps into my bones, it extracts the stone. The warmth leaves me, a departing friend, as the creature holds the Heart aloft. The stone glows with a light that seems to pulse in protest, a heartbeat of defiance against the creature's triumph.
 
 And then, with an abruptness that leaves me breathless, the pressure on my neck vanishes. I plummet to the earth, the impact driving the air from my lungs, leaving me gasping and coughing on the cold, unforgiving ground.
 
@@ -190,7 +190,7 @@ As the days unfold, the Federal Government steps in, their agents arriving with 
 
 Everywhere I go, I carry with me the story of those dark days: the tale of the twins, and of Izzy Ramirez, Ben Tahoma, all those who laid down their lives to stop the darkness from enveloping the world. I share it with the elders, the children, with anyone who will listen. The story spreads, not as a legend, but as a testament to our endurance, to the courage of those who fought. I speak my truth, not as a hero, but as a witness, offering my voice when needed, my silence when it is not.
 
-Amidst the healing of a nation's soul, I return to the open expanse of the tribal lands, the red earth that has born witness to both the turmoil and the triumph of its people. I take up my duties once more, patrolling the vast Navajo territory, as guardian of the Dinétah.
+While the soul of the Nation heals, I return to the open expanse of the tribal lands, the red earth that has born witness to both the turmoil and the triumph of its people. I take up my duties once more, patrolling the vast Navajo territory, as a guardian of the Dinétah.
 
 —
 
