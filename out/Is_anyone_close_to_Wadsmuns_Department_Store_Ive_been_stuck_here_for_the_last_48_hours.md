@@ -22,15 +22,15 @@ There is internet but it barely seems to work. It's not like there isn't a whole
 
 edit:
 
-Well... I spent the last few hours looking and I've resigned myself to my new life here... LOL. No but really I hope someone can help me out here? I've commandeered this mock bedroom in the furniture section and have been ransacking the cafe but I don't need comfort at this point I just want to get out of here. It's weird though, because, on my way to cafe I noticed some of the electronics were turning on and off by themselves.
+Well...I spent the last few hours looking and I've resigned myself to my new life here... LOL. No but really I hope someone can help me out here? I've commandeered this mock bedroom in the furniture section and have been ransacking the cafe but I don't need comfort at this point I just want to get out of here. It's weird though, because, on my way to cafe I noticed some of the electronics were turning on and off by themselves.
 
 edit 2:
 
-I swear I just saw someone in here. I was looking across the store and I could see someone standing behind a rack of clothes. He was completely still. I think it was probably just a mannequin... but the thing is when I went over there it was gone.
+I swear I just saw someone in here. I was looking across the store and I could see someone standing behind a rack of clothes. He was completely still. I think it was probably just a mannequin, but the thing is when I went over there it was gone.
 
 edit 3:
 
-The speaker system keeps going off... it just keeps repeating 'Service Announcement...' and 'Attention Shoppers' over and over again. It's been doing this for the last hour. I really want to get out of here. Why did nobody respond to my post or send for help? My phone now says the time is 88:88?
+The speaker system keeps going off. It just keeps repeating 'Service Announcement...' and 'Attention Shoppers' over and over again. It's been doing this for the last hour. I really want to get out of here. Why did nobody respond to my post or send for help? My phone now says the time is 88:88?
 
 edit 4:
 
@@ -38,7 +38,7 @@ Guys please, there is someone here. I was on the escalator just now and it stopp
 
 edit 5:
 
-The lights in the store are now flickering and they are playing this horrible vaporware music. I haven't seen the 'mannequin man' again but I know he's here.
+The lights in the store are now flickering and they are playing this horrible vaporwave music. I haven't seen the 'mannequin man' again but I know he's here.
 
 edit 6:
 
@@ -54,7 +54,7 @@ Hello, it's me, the girl. I was confused. Everything is fine. I was right, I was
 
 edit 8:
 
-I'm not going to update anymore, I just wanted to say again, I'm fine. Nothing happened in the basement. I just decided to stay. This building is absolutely not a mirage designed to trap tourists with an insatiable desire for material objects.
+I'm not going to update anymore, I just wanted to say again, I'm fine. Nothing happened in the basement. I just decided to stay. This building is absolutely not a mirage designed to trap tourists with an insatiable desire for material objects in perpetuity. 
 
 Don't look for me, 
 
