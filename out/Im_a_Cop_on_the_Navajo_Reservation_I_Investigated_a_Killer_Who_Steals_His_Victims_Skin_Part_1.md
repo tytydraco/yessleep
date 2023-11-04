@@ -1,5 +1,3 @@
-**Guardians and Invaders**
-
 The desert stretches out as far as the eye can see. There's a haunting beauty to it that few can appreciate. But for me, it's home. My name’s Logan, Logan Tohannie. I’m an officer with the Navajo Nation Police Department, and this vast expanse is my beat. The towering mesas stand as silent witnesses to everything that happens here. Some of it good, a lot of it bad. In my ten years as a cop on the reservation, I've seen my fair share of both.
 
 Every day, I'm responsible for patrolling a staggering 70 square miles of tribal land in Arizona. An area so vast, I often feel like a mere speck moving against a colossal backdrop. It's a lonely job, with most of my days punctuated only by the hum of my cruiser's engine and the sporadic chirp of the radio.

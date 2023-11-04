@@ -2,8 +2,6 @@
 
 [Part 2](https://www.reddit.com/r/nosleep/comments/17e4pr1/im_a_cop_on_the_navajo_reservation_i_investigated/)
 
-**Lurkers in the Light**
-
 The ensuing moments are pure, undiluted terror. Every sound is magnified in the oppressive blackness: the frantic footsteps of those trying to escape, the desperate prayers whispered in both Navajo and English, the eerie hissing of the [creatures](https://www.reddit.com/r/nosleep/comments/1581vef/our_search_for_a_missing_teen_uncovered_the/), and the chilling, heart-rending cries of the trapped and the attacked.
 
 Flashes of light sporadically cut through the darkness like strobes, each momentary illumination revealing snapshots of horror. A mother clutching her child, eyes wild with fear. A volunteer guard taking aim with a shaking hand, firing off rounds in the direction he thinks a skinwalker is, only to have another lunge from the [other](https://www.youtube.com/watch?v=MGd1F6Ay8ho) side. The sickening thud of bodies falling, the heart-wrenching wails of those who witness their loved ones being taken.

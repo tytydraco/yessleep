@@ -1,7 +1,5 @@
 [Part 1](https://www.reddit.com/r/nosleep/comments/174jp2m/im_a_cop_on_the_navajo_reservation_i_investigated/)
 
-**The Wind-Talker's Warning**
-
 With adrenaline still coursing through our veins, Izzy and I quickly regroup. I pull out a first-aid kit from my cruiser, cleaning and dressing our wounds as best as I can. The gash on Izzy's forehead looks deep, but she brushes off my concern, her eyes filled with a determination that mirrors my own.
 
 The chilling events of the evening leave an indelible mark on our minds, but we can't afford to be paralyzed by fear. With a deep breath, I reach into the cruiser, grabbing the radio. "Mandy, this is Logan. Do you copy?"

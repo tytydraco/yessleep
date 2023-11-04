@@ -104,7 +104,7 @@ Daak'os, the entity of nightmares, moves towards me with the inevitability of a 
 
 Their bodies collide with a force that resonates through the desert, a clash of life against the unlife. They grapple, a tangle of limbs and fury, and then — calamity. Their bodies collapse into the bonfire, a maelstrom of embers and flame erupting skyward. The fire consumes them in its ravenous dance, and for a moment, the world is nothing but fire and shadow.
 
-The other skinwalkers halt, their chant breaking. A collective shudder runs through them, as if Ben's act has sent a shockwave through their shared consciousness. They reel, their grotesque faces contorting in shared agony, the hive mind disrupted by the sacrifice of one defiant soul.
+The others halt, their chant breaking. A collective shudder runs through them, as if Ben's act has sent a shockwave through their shared consciousness. They reel, their grotesque faces contorting in shared agony, the hive mind disrupted by the sacrifice of one defiant soul.
 
 Amidst the chaos, the Heart of Tobadzischini flies from the grasp of the faltering Daak'os, its glow grows brighter as it breaks free. Time seems to slow as the stone arcs through the air, its trajectory a silver line in the night.
 
