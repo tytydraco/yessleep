@@ -8,8 +8,7 @@
 
 *Location: Undisclosed studio apartment in Seattle, Washington.*
 
-*Interviewee: Richard Richardson (Pseudonym)*   
-*Interviewer: Jacob Jacobson (Pseudonym)*
+*Interviewee: Richard Richardson (Pseudonym)Interviewer: Jacob Jacobson (Pseudonym)*
 
 \[Recording starts\]
 
@@ -131,7 +130,7 @@ JJ: Richard! Come on now, let's—
 
 RR: Even after all that, her hand was still fucking closed. Can you believe that shit? Even with her brains bashed in, the nagging cunt still finds a way to piss me off. How fucking on brand.
 
-\[Interviewer gestures to cameraman to call the police. Interviewee doesn't seem to notice\]
+\[Interviewer gestures to camera crew to call 911. Interviewee doesn't seem to notice\]
 
 JJ: Richard, you do realize what you're admitting to here, right?
 
@@ -175,7 +174,7 @@ JJ: So, you're saying some advanced extraterrestrial civilization sent this mess
 
 RR: Why do musicians sing sad songs when they're sad? Why do people leave notes for their loved ones to find before offing themselves? Hell, why are we having this conversation now?
 
-JJ: So, it’s less a message and more like… an act of catharsis, kind of. Alright, Richard, one last question and I think we can wrap it up. I’m curious, does that "blueprint" of yours mention anything about what's outside the universe?
+JJ: So, you're saying it’s less a message and more like… an act of catharsis, kind of. Alright, Richard, one last question and I think we can wrap it up. I’m curious, does that "blueprint" of yours mention anything about what's outside the universe?
 
 RR: What do you mean?
 
