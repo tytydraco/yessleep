@@ -8,7 +8,8 @@
 
 *Location: Undisclosed studio apartment in Seattle, Washington.*
 
-*Interviewee: Richard Richardson (Pseudonym)Interviewer: Jacob Jacobson (Pseudonym)*
+*Interviewee: Richard Richardson (Pseudonym)*  
+*Interviewer: Jacob Jacobson (Pseudonym)*
 
 \[Recording starts\]
 
