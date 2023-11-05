@@ -94,7 +94,7 @@ I meet his gaze, and in it, I see a flicker of the old Ben. It's a memory that s
 
 I nod, a small smile tugging at the corner of my mouth despite the dread that encases us. "I remember," I reply, my voice steady. "Fourth quarter, down by three, rain like a monsoon, mud up to our ankles."
 
-“Remember that play we pulled?” Ben asks with a grin.
+“Remember that Hail Mary we pulled?” Ben asks with a grin.
 
 “How can I forget?” I whisper back. “We won.”
 
@@ -112,15 +112,17 @@ Instinct takes over. I lunge forward, my hand outstretched, every muscle coiled 
 
 My fingers close around the stone midair, its pulse hammering against my palm. I hit the ground rolling, the momentum carrying me forward.
 
-I ignore the cries of pain and the chaos erupting around me, focusing only on the figure of the bound Nayenezgani. The skinwalkers are disoriented, their movements erratic without the guidance of their collective will. I weave my way past them, each step deliberate, my breaths shallow and rapid. The smell of burning flesh and hair fills the air, a sickening reminder of Ben's sacrifice, but his heroism has afforded me this chance, and I cannot let it be in vain.
+The weight of the Heart of Tobadzischini in my hand is a solid certainty amidst the chaos. As I roll to my feet, I see the Slayer of Alien Gods, still bound but with his eyes fixed intently upon me, ablaze with an intensity that could rival the inferno that Ben and the creature had become. There's no time for doubt, no room for error. Every sinew in my body tenses as I rear back, my arm cocked in preparation.
 
-Daak’os emerges from the fire, a horror reborn, its form charred but unbroken. With a swift and cruel motion, it plunges its claws into Ben’s chest. The sound is terrible, a wet, final noise that echoes across the mesa, a death knell that seems to pierce the night itself. Ben's body jerks once, a puppet with its strings cut, and then falls limp.
+The skinwalkers, their unity fractured, turn their attention towards me, a multitude of horrors converging on my position. Their hisses and snarls fill the air, a cacophony of malice that seeks to paralyze me with fear. But the sight of Nayenezgani, a warrior fallen but not defeated, ignites a fire within me that no terror can quench.
 
-The Multitude turn to me, their eyes now the epitome of vengeance, a dark promise to quell the last ember of defiance. But among the chaos and the flame, a path to Nayenezgani lies open, a fleeting opportunity carved out by Ben's final, selfless act.
+With a defiant cry that echoes across the desolate landscape, I hurl the Heart through the tumultuous air towards him. Time narrows to a single thread, stretching taut as the stone cleaves through the night. It glimmers like a star against the darkness, a fleeting hope against the encroaching despair.
 
-I charge forward, my legs pumping, each stride a race against death itself. Daak’os reaches out, its claws seeking to snare me, to prevent the union of the stone with its rightful guardian. Its fingers graze my back, a touch that sears my flesh, but it's not enough to halt my momentum.
+The skinwalkers lurch forward in a grotesque ballet, their claws extended, trying to intercept the stone's flight. But their movements are sluggish, disjointed by the loss of their collective will, their forms stumbling over one another in a disarray that was once unthinkable.
 
-I reach Nayenezgani, the tethering force that holds him bound seemingly weaker in the wake of the chaos. I thrust the Heart into his bound hands, the stone's warmth a stark contrast to the biting cold of the night.
+Nayenezgani's eyes track the stone, the only points of light in the black mask that encases his visage. His form strains against the invisible shackles that bind him, the muscles in his arms bulging with a herculean effort as he fights to break free from the supernatural fetters.
+
+The stone nears, spinning through the smoky air, and for a heartbeat, it seems as though it will overshoot its mark. But then, the Demon Slayer's hands, imbued with the power of countless battles, snatch the Heart from the air with an accuracy born of legend.
 
 As the stone touches his skin, a shiver runs through the air itself, a vibration that resonates with the ancient power of the earth. The air around us begins to shimmer, a mirage in the desert heat, but this is no illusion. From the heart of the stone, a light emerges, soft at first, then blinding in its intensity.
 
