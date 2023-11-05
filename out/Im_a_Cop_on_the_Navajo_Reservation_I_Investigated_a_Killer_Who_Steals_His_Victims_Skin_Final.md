@@ -220,7 +220,7 @@ The radio silence that follows is filled with the electric buzz of anticipation.
 
 "How about this Thursday?" she suggests.
 
-"That works for me," I reply, relief washing over me like the first rains of after a drought.
+"That works for me," I reply, relief washing over me like the first rains after a drought.
 
 "Great, it's a date then. I'll see you then," she confirms, and we say our goodbyes, ending the call.
 
