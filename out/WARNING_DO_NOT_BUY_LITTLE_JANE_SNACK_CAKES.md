@@ -20,7 +20,7 @@ I was greeted by my old high school buddy Dale. He looked like a wreck; his clot
 
 I kid you not, the first thing out of his mouth was "You got any of those new snack cakes?". I was baffled, like I said I hadn't seen this guy in like half a decade and all he wants is to ask me for some junk food? At this point I was over it and pissed off, so I walked to the pantry, grabbed the boxes, and basically shoved them into Dale's arms.
 
-I was like "You want the cakes? Here, take the cakes. Nice to see you to." and I shut the door on him. At that point I was starting to feel a little uneasy. I watched as Dale ran to his car clutching the boxes in his arms and peel off. Suddenly I heard a scream and the neighbors who had been fighting went dead silent. I thought I should call the cops but before I could I saw another breaking news alert on the TV.
+I was like "You want the cakes? Here, take the cakes. Nice to see you to." and I shut the door on him. I was starting to feel a little uneasy. I watched as Dale ran to his car clutching the boxes in his arms and peel off. Suddenly I heard a scream and the neighbors who had been fighting went dead silent. I thought I should call the cops but before I could I saw another breaking news alert on the TV.
 
 Apparently there had been a shootout at the grocery store; someone had taken hostages. They were trying to negotiate but apparently the only thing the criminals were asking for were... Little Jane Cakes. My jaw hit the floor. Taking hostages for snack cakes? What was happening here?
 
@@ -30,7 +30,7 @@ As I was driving over I couldn't help but notice the amount of aggressive people
 
 Unfortunately by the time I got to my grandparent's it was too late. Their house had been ransacked and they were nowhere to be seen. I called out and looked for them but it was starting to get dark and with everything that had happened that night I decided I would have to leave it to the Sheriff. Of course I was worried but there was nothing I could do.
 
-Just like Grandpa had said there was no answer at the station. At that point I was completely wiped and the events of the day had ruined me. I broke down in my grandparents living room. It was just so strange that they would disappear like this, plus the whole town seemed to be going loopy. I thought maybe it was the full moon, but I couldn't help but wonder if there was something weird about those cakes... I shurgged the thought away. I would sleep it off and hopefully everyone would snap out of it by the morning.
+Just like Grandpa had said there was no answer at the station. I was completely wiped and the events of the day had ruined me. I broke down in my grandparents living room. It was just so strange that they would disappear like this, plus the whole town seemed to be going loopy. I thought maybe it was the full moon, but I couldn't help but wonder if there was something weird about those cakes... I shurgged the thought away. I would sleep it off and hopefully everyone would snap out of it by the morning.
 
 I awoke, in the middle of the night to sounds of shouting and gunfire. My grandparents property is somewhat secluded but still in town. I peered out the window and saw a group with torches and pistols fighting in the street. I sprinted to my grandads room and opened his closet. He had always kept a rifle.
 
