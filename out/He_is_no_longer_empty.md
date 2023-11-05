@@ -2,7 +2,7 @@ My friend Roland wasn’t himself after the break-up. He’d been with Helen for
 
 I tried to meet with him at least every other day, just to make sure he didn’t get stuck in a bad rut. Roland had a very reliant personality, in the sense that once he got used to something it was hard for him to let go of it. It made the separation so many times worse, but also opened him up to all kinds of nasty habits. We were all wary of his dependent personality, but there were only so many hours of the day we could check up on him. We all had our own lives to deal with, and Roland was for all intents and purposes an adult in his own right. Hell, he just turned 37.
 
-  
+&#x200B;
 
 As a birthday celebration for a common friend, we all went out for drinks. Roland tagged along. It even looked like he’d showered.
 
@@ -22,7 +22,7 @@ He’d started overeating, and only the most basic foodstuffs. He once spent an 
 
 But what worried me most was his tendency to throw himself headfirst into whatever whim he imagined. He was just a few bad messages from getting scammed on a dating site, and he was reading pretty much every spam e-mail sent to him. He stopped to listen to every mad preacher on the street and could spend hours scrolling through the deepest and darkest recesses of social media.
 
- 
+&#x200B;
 
 I’d sometimes go online just to check his subscriptions, and there was always something new and worrying to see. Rants from various populist lifestyle gurus, conspiracy theories, absurd basement dweller-type documentaries; Roland just left it all running in the background. I tried asking him about it but he just said he liked the noise. Made him feel less empty.
 
@@ -30,19 +30,19 @@ That was really all there was to it; he was completely devoid of meaning. He nee
 
 It worried me. Especially when I saw that he was still scrolling through Helen’s socials. Every time he saw a picture of her he’d bounce wildly between happy to see that she was doing fine, to utter despair at losing her. There was nothing in-between.
 
-  
+&#x200B;
 
 Sadly, I couldn’t keep up with Roland. He spent every hour of the day in complete isolation, and I had all kinds of obligations to deal with. And, honestly, he was wearing us all out. It was getting tiresome for all our advice and well-wishes to constantly fall on deaf ears. Sure, we all tried, but after a while it was becoming apparent that Roland needed another kind of help – one he wasn’t willing to seek.
 
 While he never disappeared from our collective thoughts, it got to a point where we just couldn’t do enough. Instead, we settled into this sort of ever-present low rumble of worry; ever-anxious, but unable to do anything. It was exhausting.
 
-  
+&#x200B;
 
 All the while, we had Helen on the other side. She was doing pretty well, all things considered. Sure, she was still a bit worried about Roland, but she was moving on. That’d been the whole point of the break-up to begin with.
 
 But one morning, as I saw her put out an update about taking a date to a wedding, I knew Roland was about to go nuclear.
 
-  
+&#x200B;
 
 The man had seemingly fallen off the face of the earth. We were searching feverishly for him. He didn’t answer our calls, no one had seen him, and for all we knew he wasn’t even in town anymore. It was scary for all of us, not knowing how he’d react.
 
@@ -50,7 +50,7 @@ After many hours, we managed to get a hold of his family and borrow the backup k
 
 But it was nothing like we’d anticipated.
 
-  
+&#x200B;
 
 Long before the Helen’s recent dating story went live, Roland had already left. There were letters from several days prior left on the floor. His fridge was wide open, leaving the entire apartment smelling of mildew and rot. His computer was still running in the living room, among piles of unwashed clothes and takeout boxes. Whatever Roland had been up to, he’d been doing it for some time.
 
@@ -62,7 +62,7 @@ We tried calling him again, only to hear a tune from his bedroom.
 
 Roland had left his phone behind.
 
-  
+&#x200B;
 
 For the next few hours, all we did was make phone calls. Friends, family, law enforcement – anyone and anything that might’ve seen him. We checked in with his remote office, only to hear that he hadn’t been logged in for over a week. He’d left his car in the parking lot, so there was no vehicle to look for. He was somewhere out there, on foot, and we had no idea for how long.
 
@@ -70,13 +70,13 @@ We looked for him everywhere. We spread out around town and asked along the loca
 
 As the phone calls faded, and the responses grew fewer and further between, people dropped out of the search – one by one. After about a week, even I did.
 
-  
+&#x200B;
 
 It became this strange thorn in our side. This constant talking point. There were no signs of Roland or anything relevant to his disappearance. Even weeks later, as we had to clear out his apartment, there was still no word of whatever happened to him. His phone and computer were useless – showing nothing but hours of thoughtless scrolling. No patterns, no plans, no hints.
 
 The only thing I couldn’t quite figure out was that strange package he’d received. There was no date on it, so it could’ve been there for God knows how long. He must’ve ordered something special, possibly from some kind of courier service. It looked shady as all hell, but it turns out the strange substance was just a kind of sugar water and sunflower seed mix. Nothing out of the ordinary, albeit a strange place to store it. It had to mean something, but what?
 
-  
+&#x200B;
 
 As weeks turned to months, most of us had given up on ever hearing from Roland again. We all said our goodbyes, in our own way. There was even a ceremony, but I didn’t have the heart to attend. There was this sort of social pressure to make our peace with what’d happened, and to move on – one way or another. I was probably the last to go along with it, and even then, I had to do it my own way.
 
@@ -86,7 +86,7 @@ As I sat there, watching the sun set and crowds thinning out, I brought out one 
 
 I must’ve sat there for over an hour, just talking out loud. Memories and dreams we’d shared. The little talks we’d had over a few too many glasses of wine at four in the morning. The trips we’d taken, the laughs and cries we’d encountered along the road. It was like he was really there.
 
-  
+&#x200B;
 
 I was halfway through a retelling of the time we almost got thrown out from a Hard Rock Café when a chill went up my spine. A heartbeat later, something touched me.
 
@@ -94,7 +94,7 @@ A cold, shivering hand.
 
 It wrapped around the top of my head, clamping down, forcing me to look forward. I could feel the texture of wet skin against my scalp.
 
-  
+&#x200B;
 
 There was such a strength to it that I thought they were going to snap my spine. Instead, I heard a grunt, as a second hand grabbed the back of my neck. I could feel the wrinkles of wet fingers on my throat.
 
@@ -102,7 +102,7 @@ I froze. I didn’t move a muscle. I was at an immediate disadvantage – but th
 
 For a few seconds, I just sat there, slowly feeling my headphones glide off my head. As they finally dropped to the ground, I could hear breathing behind me. Deep, labored breathing – edged with a strange rattling noise.
 
-  
+&#x200B;
 
 I didn’t dare to look back. Moving my head felt like a death sentence. I kept looking straight ahead.
 
@@ -110,11 +110,11 @@ Finally, there was another sound. A groan – again with that strange rattling n
 
 *“Stop… looking.”*
 
-  
+&#x200B;
 
 The two hands slowly released me. Someone hushed at me in the distance. I don’t know how long I sat there, just staring straight ahead. Long after those fingers left my head, I could still feel their texture. Their strength. And when I finally worked up the courage to force myself to look back – there was nothing there.
 
-  
+&#x200B;
 
 My legs could barely hold me as I walked back to. I forgot my headphones by the side of the road. I was shaking so bad that I forgot to breathe, making my head spin from a lack of oxygen. My neck was so stiff that I literally couldn’t turn my head enough to look behind me.
 
@@ -126,7 +126,7 @@ And yet again, I got the sense that there was more to it. Something had happened
 
 Something terrible.
 
-  
+&#x200B;
 
 As I lay awake that night, I considered what to do. The warning I’d gotten had been clear and unrestrained – to stop looking. I couldn’t misinterpret that if I tried. No, if I were to share this encounter, I had to do so willingly and honestly.
 
@@ -138,7 +138,7 @@ Then again, I could’ve been wrong. To be honest, it hadn’t really sounded li
 
 And what was that rattling noise?
 
-  
+&#x200B;
 
 The next day, we got back to searching for Roland in full swing. I pointed out the location, using my dropped headphones as a marker and a sort of proof. Even though the police were unconvinced that it was Roland, they still considered it a case of assault. There were small bruises on my throat, after all – forcing me to wear a scarf.
 
@@ -146,7 +146,7 @@ We went through the forests around Frog Lake at least four times. We called out 
 
 And yet, after another two days of searching, and we’d found nothing.
 
-  
+&#x200B;
 
 It was late at night when we decided to call it off – again. There were six of us out looking in total, and there was nothing even remotely interesting nearby. We’d talked to all who lived in the area, we’d asked passers-by if they’d seen anything in the vicinity at night or otherwise. No trace, no hints, no distant sightings. I was beginning to doubt my own recollection of the event. What were we even looking for? A damp man with a strange rattling to his voice? It should’ve been easy.
 
@@ -156,7 +156,7 @@ With my eyes firmly affixed to the gravel path we’d treaded up and down all da
 
 An ant.
 
-  
+&#x200B;
 
 It was late October – too cold for ants to scurry around. And yet, there it was, running straight towards me. As it reached my boot, it turned right back towards the lake. I got up, trying my best to keep my sleep-deprived eyes focused on the dark little silhouette.
 
@@ -168,7 +168,7 @@ I looked up at the other five, trying to get their attention. Their argument see
 
 “Hey!” I shouted. “What about the lake?!”
 
-  
+&#x200B;
 
 There had been no reason to take a closer look at Frog Lake. It was an inland lake that had been undisturbed for years. Still, it was the one obvious point of interest we hadn’t looked closer at. Then again, how could we? We weren’t professional divers, and the only “evidence” we had was a strange occurrence of insects. It was at most a curiosity, and at worst nothing at all.
 
@@ -176,7 +176,7 @@ I couldn’t convince them to stay. Two left immediately, and a third left short
 
 We brought out our flashlights and took one side of the lake each. We’d reconvene further down the path.
 
-  
+&#x200B;
 
 As we split up down our different paths, I followed the edge of the lake, illuminating the surprisingly clear water. I could see pretty far. Hell, from my vantage point I could see Aiden’s light on the far side of the lake still. It was just a distant dot, like a firefly, but it was clear as day.
 
@@ -186,7 +186,7 @@ I have no idea how long it took to follow that path. It all started to look the 
 
 I couldn’t see Aiden’s flashlight anymore.
 
-  
+&#x200B;
 
 I’d almost gone an entire lap around the lake when I realized I should’ve seen him by now. Even if he was twice as slow as me, I should’ve run into him. I figured he might’ve turned around, or gone home, but then he should’ve said something.
 
@@ -198,7 +198,7 @@ A black wasp, the size of my little finger. The hum of its wings loud enough to 
 
 It stung my hand.
 
-  
+&#x200B;
 
 It was so sudden that it took at least two seconds for the pain to register. When it did, it was like something had set my arm on fire. As my fingers cramped, my phone fell to the ground with nothing but a 9 to show. My yells were replaced with a horrifying scream; so loud that I, myself, could hear it – like I was experiencing myself in the third person.
 
@@ -208,7 +208,7 @@ But for the moment, they weren’t attacking – merely circling. Close, but not
 
 Not yet.
 
-  
+&#x200B;
 
 Ahead of me, someone stepped out of the lake.
 
@@ -218,17 +218,7 @@ I couldn’t tell if it was Roland. I couldn’t tell what the hell it was suppo
 
 White, shivering hands, reaching for me. The fingers were the most recognizable human feature – the little crinkles of wet skin still there.
 
-  
-
-Ahead of me, someone stepped out of the lake.
-
-At least I thought it was a someone. But the closer it got, the more I realized it was more of a some*thing*.
-
-I couldn’t tell if it was Roland. I couldn’t tell what the hell it was supposed to be at all. The features were vaguely human, and yet, distant. Two humanoid arms, but covered in fly-like appendages sticking out of red and bruised orifices. A head, but no discernable eyes. Instead of hair, there was a thick swathe of beetles – climbing over one another. Worms, flies, maggots – every kind imaginable.
-
-White shivering hands reached for me. The fingers were the most recognizable human feature – the little crinkles of wet skin still there.
-
-  
+&#x200B;
 
 Everything inside told me to swat away every insect I saw. To take off my jacket and just wave it around, making a run for it. And yet, I couldn’t move. It was like standing in the eye of the storm; the smallest movement could put me back in the crosshairs. For now, nothing was touching me. Instead the swarm grew around me. Gauzy wings, sparkling diamonds, flashing before my eyes.
 
@@ -240,7 +230,7 @@ As wrinkly fingers grazed my neck, I pushed air out of my lungs, letting my firs
 
 “Please,” I said. “Please, Roland”.
 
-  
+&#x200B;
 
 There was hesitation. The hand stopped.
 
@@ -248,7 +238,7 @@ I searched for a pair of eyes, but couldn’t find them. I spoke directly to the
 
 “What happened?” I asked. “What did you do?”
 
-  
+&#x200B;
 
 There was a crackle, as something loosened. There was a hole at the base of his throat, where a fat cockroach stretched its wings. With Roland’s every breath, the wings shook – giving his breathing a strange rattling noise. Every word he spoke was filtered through those wings.
 
@@ -258,7 +248,7 @@ He stepped ever closer – his hand inching towards the base of my neck.
 
 *“…empty.”*
 
-  
+&#x200B;
 
 It was almost tender. An invitation rather than an attack. I lingered too long, considering his words.
 
@@ -266,7 +256,7 @@ But there was no way for me to look past this… morbid ex-person.
 
 I let my grip tighten on my flashlight. As I felt his fingers tighten on my neck, I let my instincts take hold. I swung wide and hard, crushing the cockroach lodged in his throat.
 
-  
+&#x200B;
 
 The air exploded with noise as I burst into a sprint. I could feel them around my feet, in my boots, in my hair. I crushed them with my bare hands, separating abdomens from thoraxes with my fingertips. This ever-present sensation of unwanted movement on my body - but I kept going.
 
@@ -274,7 +264,7 @@ My leg went numb from another sting. My left shoulder too. Something landed on m
 
 Far behind me, in the dark, I could hear something lumbering my way.
 
-  
+&#x200B;
 
 I got to my car, diving into the driver’s seat. Shivering and shaking from the pain, I slammed the door shut, crushing dozens of winged assailants. I flicked on the lights, illuminating in full what I’d been talking to.
 
@@ -284,7 +274,7 @@ We just stopped for a second, observing one another from afar. It was clutching 
 
 Then, I heard a buzz from the air conditioning.
 
-  
+&#x200B;
 
 I put the car in reverse without a second thought. I was about to just turn it around and go when I noticed the Roland-thing still lumbering towards me.
 
@@ -296,7 +286,7 @@ It was so fast. Closing in like something falling from a great height. The momen
 
 Whatever he’d been, or had become, scattered to the wind.
 
-  
+&#x200B;
 
 The following days, they dredged the lake – mostly to look for Aiden. It didn’t take long for them to find him. Turns out he’d died from an allergic reaction to an unusual stinging insect. They had to bring in some kind of specialist from the private sector to even begin to identify it. Turns out there was a cluster of them not far from the lake.
 
@@ -304,7 +294,7 @@ I didn’t have an allergic reaction, but the stings were bad enough as they wer
 
 I still have scars to this day.
 
-  
+&#x200B;
 
 The only time I see these insects ever mentioned, it is when involved with a human death. I’ve collected articles from New Hampshire, Minnesota, Michigan, and Nebraska so far. There have been a few hints in North Carolina and West Virginia as well, but I haven’t been able to confirm it.
 
