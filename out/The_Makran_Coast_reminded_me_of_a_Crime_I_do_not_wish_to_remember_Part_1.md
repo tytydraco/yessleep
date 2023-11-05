@@ -235,3 +235,5 @@ I didn’t realise how the gap had closed between me and that chair which squeak
 “I WON’T FORGIVE WON’T FORIVE YOU WE WON’T FORGIVE!” it screamed violently, as the malevolent figure snapped its neck in a nasty way.
 
 I ran up the stairwell like a wounded animal which was being hunted and slammed the trap door shut. I got up in a fit and dashed for the bedroom as the candles in the sitting room went out past me and the wood no longer burned; it wanted me to know it was right behind me, but I refused to look back, stripped to my briefs and pulled the duvet over my face, like it was a shield against whatever it was that haunted me.
+
+[Part 2](https://www.reddit.com/r/nosleep/s/1NuhAdOtgt)
