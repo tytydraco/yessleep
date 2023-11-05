@@ -88,7 +88,7 @@ In my mounting desperation, I saw at the ropes even more fervently, the blade of
 
 Out of the corner of my eye, I see Ben stirring. His movements are subtle, a quiet struggle against his own restraints. Our eyes meet, and in that fleeting glance, an unspoken understanding is forged.
 
-His voice, faint and delirious, cuts through the night. "Hey, Logan" he coughs out, "you remember that game we played against Red Mountain High, back in '06?"
+His voice, faint and delirious, cuts through the night. "Hey, Logan" he coughs out, "you remember that game we played against Red Mountain, back in '06?"
 
 I meet his gaze, and in it, I see a flicker of the old Ben. It's a memory that seems out of place within the nightmare we're in, but I catch his drift.
 
@@ -112,7 +112,7 @@ Instinct takes over. I lunge forward, my hand outstretched, every muscle coiled 
 
 My fingers close around the stone midair, its pulse hammering against my palm. I hit the ground rolling, the momentum carrying me forward.
 
-The weight of the Heart of Tobadzischini in my hand is a solid certainty amidst the chaos. As I roll to my feet, I see the Slayer of Alien Gods, still bound but with his eyes fixed intently upon me, ablaze with an intensity that could rival the inferno that Ben and the creature had become. There's no time for doubt, no room for error. Every sinew in my body tenses as I rear back, my arm cocked in preparation.
+The weight of the Heart in my hand is a solid certainty in the chaos. As I roll to my feet, I see the Slayer of Alien Gods, still bound but with his eyes fixed intently upon me, ablaze with an intensity that could rival the inferno that Ben and the creature had become. There's no time for doubt, no room for error. Every sinew in my body tenses as I rear back, my arm cocked in preparation.
 
 The skinwalkers, their unity fractured, turn their attention towards me, a multitude of horrors converging on my position. Their hisses and snarls fill the air, a cacophony of malice that seeks to paralyze me with fear. But the sight of Nayenezgani, a warrior fallen but not defeated, ignites a fire within me that no terror can quench.
 
@@ -122,7 +122,7 @@ The skinwalkers lurch forward in a grotesque ballet, their claws extended, tryin
 
 Nayenezgani's eyes track the stone, the only points of light in the black mask that encases his visage. His form strains against the invisible shackles that bind him, the muscles in his arms bulging with a herculean effort as he fights to break free from the supernatural fetters.
 
-The stone nears, spinning through the smoky air, and for a heartbeat, it seems as though it will overshoot its mark. But then, the Demon Slayer's hands, imbued with the power of countless battles, snatch the Heart from the air with an accuracy born of legend.
+The stone nears, spinning through the smoky air, and for a heartbeat, it seems as though it will overshoot its mark. But the tethering force that holds him bound seemingly weaker in the wake of the chaos, giving his arms just enough range of movement. The Demon Slayer's hands, imbued with the power of countless battles, snatch the Heart from the air with an accuracy born of legend.
 
 As the stone touches his skin, a shiver runs through the air itself, a vibration that resonates with the ancient power of the earth. The air around us begins to shimmer, a mirage in the desert heat, but this is no illusion. From the heart of the stone, a light emerges, soft at first, then blinding in its intensity.
 

@@ -21,7 +21,7 @@ Nobody emerged from the honda accord. We watch in silence as the man turns aroun
 
 Our nerves calm down and I turn back to face my friend so we can start to resume our previous conversation. As soon as I do, there is a soft knock on the driver window, where I am seated. I flip around fast, appalled the man we watched walk away from us is suddenly right at my window.
 
-I state in shock at him, noticing how bright and piercing his blue eyes were. He holds a smile on his face, but not a normal friendly smile. A smile that doesn’t fully show his teeth, his eyes looking at me slightly through his eyelashes.
+I stare in shock at him, noticing how bright and piercing his blue eyes were. He holds a smile on his face, but not a normal friendly smile. A smile that doesn’t fully show his teeth, his eyes looking at me slightly through his eyelashes. The scariest part was this man had nothing behind his eyes. No emotions. No humanity. 
 
 He knocks again. I look at my friend, frozen in fear on what to do. She is no help, also frozen. 
 
