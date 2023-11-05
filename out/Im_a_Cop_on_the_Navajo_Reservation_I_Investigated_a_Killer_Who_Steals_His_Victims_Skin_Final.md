@@ -94,7 +94,7 @@ I meet his gaze, and in it, I see a flicker of the old Ben. It's a memory that s
 
 I nod, a small smile tugging at the corner of my mouth despite the dread that encases us. "I remember," I reply, my voice steady. "Fourth quarter, down by three, rain like a monsoon, mud up to our ankles."
 
-“Remember that Hail Mary we pulled?” Ben asks with a grin.
+“Remember that play we pulled?” Ben asks with a grin.
 
 “How can I forget?” I whisper back. “We won.”
 
