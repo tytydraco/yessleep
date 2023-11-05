@@ -176,3 +176,5 @@ If I don’t come back, then I guess the ceiling really was the final frontier.
 
 
 Hopefully, I’ll see you all a little later.
+
+pt 16- https://www.reddit.com/r/nosleep/comments/17o8cfk/trapped_in_the_dollar_general_beyond_pt_16_rescue/?utm_source=share&utm_medium=web2x&context=3
