@@ -142,7 +142,7 @@ The others, sensing their peril, launch themselves at the pair with a desperate 
 
 I watch, caught between awe and horror, as the battle unfolds. The twins move with a synchronicity that is beautiful and terrifying, a dance of destruction that leaves no room for the darkness that had so nearly overwhelmed us. The skinwalkers wail and screech, their forms unraveling under the onslaught of fire and water, light and shadow.
 
-As the they fall one by one, turned to dust and memory by the combined might of the divine siblings, they turn their gaze upon Daak’os, the Multitude, the core of the evil that has spread across the Navajo Nation.
+As they fall one by one, turned to dust and memory by the combined might of the divine siblings, they turn their gaze upon Daak’os, the Multitude, the core of the evil that has spread across the Navajo Nation.
 
 Their approach is measured, each step a declaration of their unfaltering resolve. Daak'os, the amalgamation of nightmares, stands defiant, its form a swirling mass of darkness, its voices a cacophony of discordant whispers that claw at the mind.
 
@@ -202,7 +202,7 @@ One day, while on patrol, the crackle of the radio momentarily splinters the sil
 
 "Hey Logan. Just checking in," she says, her tone casual yet tinged with an unspoken concern. "Everything quiet out there?"
 
-"All quiet on the western front," I say with a smile that I know she can hear in my voice.
+"All quiet on the Western Front," I say with a smile that I know she can hear in my voice.
 
 "Copy that, Unit 17. Stay safe out there," Mandy replies, and I can almost see her nodding, the worry lines smoothing out from her forehead with my reassurance.
 
