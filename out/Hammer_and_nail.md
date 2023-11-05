@@ -1,0 +1,22 @@
+There was at once, a symphony of leaf blowers, the drone of the motors forcing me awake. I thought about them often, how bizarrely well they were all tuned, how calming the drone was. Last month a man fell off a three story ladder to his death while those leaf blowers were running. In a morbid way I often found myself wondering if it was a peaceful sound to die to, if maybe as blood ran from his head he was calmed by that in tune droning note ushering away from this world. That long and loud drone had just woken me up from what was likely my last dream. In this dream I worked in a library. A man with no face came up  to the counter and he begged me;   
+“Please, help me know my enemy!”   
+And I said; “Know yourself.”   
+The man wept and from somewhere in the library I heard someone chanting   
+“Hammer, and nail. Hammer, and nail. Hammer and nail.”   
+As the chanting grew louder and louder I shushed them. Then the leaf blowers.   
+Weird dreams were the norm, mostly because my dreams always showed me something I didn’t want to see. Some memories I wanted to forget, some actions I would never want to do, some sights I would never want to see. If there was a place in my mind I wanted to board up, it was accessed in my dreams. I really thought nothing of this one, even if it was a little weirder than normal.   
+I didn’t really have time to check my text messages before leaving for work, but I did see that I had several unopened texts from my best friend. I thought nothing of it and started my car to drive to work. Tobey and I worked together anyway, so I thought I’d be seeing him soon. When I got to work it was a different story. I didn’t see him in the office at all, and my supervisor flagged me down to ask where Tobey was. A little worried now I opened my texts, which read;   
+Dude, some weird guy with a hammer walked out in front of me while I was driving home, I almost hit him. You awake still? 10:30 PM   
+We should hop on valorant if you are I need to unwind. 10:30 PM   
+I think there's someone outside my house, please tell me you’re awake 10:34 PM  
+I tried calling him. The phone went straight to voicemail.    
+I drove to his house worried sick.  The two bedroom townhomes all looked the same, but I parked on the curb like I had many a Friday night before. The door was slightly open when I got to it. Tobey wasn’t anywhere in there I looked and I looked but I just couldn’t find him. We lived a block away from each other, I felt so stupid for not waking up, for not staying up later to read those texts. All I could do now was drive to the police station.   
+As I pulled away from Tobey’s house and started driving away, a wild, frenzied looking man charged my car, hammer in hand. I swerved and braked to avoid him. As my car was stopped in the middle of the road I noticed a woman walking her dog staring at me, so I rolled down my window and asked; “Where’d that guy go?”   
+“What guy?” she confusedly asked  
+“There was a guy with a hammer, didn’t you see him?”   
+“Are you okay? Do you need me to call someone?”   
+I rolled up the window and drove back to my house to try and collect myself. As my garage closed behind my car I heard a loud snap and then I was in that library from my dream. I ran up to the counter and begged; “Please, help me know my enemy!”   
+And a woman with no face behind the counter said; “Know yourself.”   
+I woke up to the chant of “Hammer, and nail. Hammer, and nail.”   
+Then I opened my eyes on the floor of the garage. On the ground next to me was one of the springs to the door. My garage door sat at a weird angle, and I reached up to touch my head and felt blood. I knew then that I was lucky the garage spring hadn’t killed me, but looking out of the crooked crack of the door and seeing a pair of legs I knew I wasn’t lucky enough. The man with the hammer dropped on all fours and I scrambled to get into my house. I locked the door to the garage just in time, as he started rattling the handle trying to turn it. Then he started pounding on the door. I reached for my phone and tried to dial 911, but I don’t have any service right now.   
+The landscapers are making their second sweep of the day right now. None of them have thought to look at my broken garage door yet I guess. As that droning note plays I hear the man at the door fervently yelling “Hammer, and nail! Hammer, and nail!” I know the door isn’t going to hold much longer.   

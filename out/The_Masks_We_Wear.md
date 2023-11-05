@@ -1,5 +1,7 @@
 “Halloween is the true magic. It is the night we discover who we really are.” -Byron Orpheus
 
+&#x200B;
+
 “Nice costume! Who’s it supposed to be?” Olivia said, grinning lopsidedly at her friend. Cade’s blood rushed up to his cheeks, completing his menacing visage.
 
 “I… am… Dracula!” he bellowed, his garbage bag cape billowing from a convenient burst of wind.
@@ -124,7 +126,7 @@ Olivia lunged forward to grab him, but he danced out of the way lithely.
 
 He turned to leave but hesitated on the steps. “The devil gave me a light after I died. It only feels right to pay it forward. Cheerio!”
 
-Jack sat the pumpkin down and strode away into darkness. 
+Jack sat the pumpkin down and strode away into darkness.
 
 Olivia collapsed. Everything had been taken away from her so quickly. She felt like the same scared and helpless little girl who watched her house burn into ash. She could run. But she couldn’t save the people she cared about. She wasn’t good enough to save her Mom, and she wasn’t good enough to save Cade.
 
@@ -137,6 +139,8 @@ Olivia gripped her necklace so hard she feared she would snap the cross in half.
 “No.” Olivia said, wiping away tears. “I don’t care if I’m not good enough. I’m the only hope these people have. And that will have to be enough.”
 
 With a sudden frenzy of energy she tore into her backpack, looking for something, anything, to help her. She tossed aside school supplies, clothes, books and finally out of sheer anger threw her soccer cleats against the wood floor. The shoes created faint lines as they skidded across, finally laying to rest next to a wooden crown. Olivia froze. But this time, she had a plan.
+
+&#x200B;
 
 Olivia walked outside an hour later, holding Pumpkin-Cade in her arms. All the Jack o’Lanterns were gone, but Pumpkin-Cade’s dim light showed bodies strewn across the street. Olivia didn’t look at them. Instead, her eyes focused on the crow. It was on the same spot on the railing, regarding her with those same piercing flint eyes.
 
@@ -193,6 +197,8 @@ Jack snarled and lunged towards her, but he bounced off an invisible barrier. Be
 “You lost. Leave.”
 
 Jack screamed as his body began to fly apart, orange shapes spilling from his cap. The Slaughs began to scream and dissolve, their bones melting into goo. Just before she lost consciousness, Olivia saw the crow looking at her. It was a crow, but it was also a beautiful woman with long dark hair and a lovely smile. Then the world dissolved into orange.
+
+&#x200B;
 
 Olivia woke up with a jolt. She scanned the clearing, which she realized was now a crater in the earth. All that remained of Jack was a smoldering turnip, with coals burning in its carved-out center.
 
