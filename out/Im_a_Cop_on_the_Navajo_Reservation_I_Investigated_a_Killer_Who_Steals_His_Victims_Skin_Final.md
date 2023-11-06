@@ -112,11 +112,11 @@ Instinct takes over. I lunge forward, my hand outstretched, every muscle coiled 
 
 My fingers close around the stone midair, its pulse hammering against my palm. I hit the ground rolling, the momentum carrying me forward.
 
-The weight of the Heart in my hand is a solid certainty in the chaos. As I roll to my feet, I see the Slayer of Alien Gods, still bound but with his eyes fixed intently upon me, ablaze with an intensity that could rival the inferno that Ben and the creature had become. There's no time for doubt, no room for error. Every sinew in my body tenses as I rear back, my arm cocked in preparation.
+The weight of the Heart in my hand is a solid certainty in the chaos. As I roll to my feet, I see the Slayer of Alien Gods, still bound but with his eyes fixed intently upon me, ablaze with an intensity that could rival the inferno that Ben and the creature have become. There's no time for doubt, no room for error. Every sinew in my body tenses as I rear back, my arm cocked in preparation.
 
 The skinwalkers, their unity fractured, turn their attention towards me, a multitude of horrors converging on my position. Their hisses and snarls fill the air, a cacophony of malice that seeks to paralyze me with fear. But the sight of Nayenezgani, a warrior fallen but not defeated, ignites a fire within me that no terror can quench.
 
-Daak’os emerges from the fire, a horror reborn, its form charred but unbroken. With a swift and cruel motion, it plunges its claws into Ben’s chest. The sound is terrible, a wet, final noise that echoes across the mesa, a death knell that seems to pierce the night itself. Ben's body jerks once, a puppet with its strings cut, and then falls limp. 
+Daak’os emerges from the fire, a horror reborn, its form charred but unbroken. With a swift and cruel motion, it plunges its claws into Ben’s chest. The sound is terrible, a wet, final noise that echoes across the mesa, a death knell that seems to pierce the night itself. Ben's body jerks once, a puppet with its strings cut, and then falls limp.
 
 With a defiant cry that echoes across the desolate landscape, I hurl the Heart through the tumultuous air towards him. Time narrows to a single thread, stretching taut as the stone cleaves through the night. It glimmers like a star against the darkness, a fleeting hope against the encroaching despair.
 

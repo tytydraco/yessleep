@@ -30,13 +30,13 @@ As I was driving over I couldn't help but notice the amount of aggressive people
 
 Unfortunately by the time I got to my grandparent's it was too late. Their house had been ransacked and they were nowhere to be seen. I called out and looked for them but it was starting to get dark and with everything that had happened that night I decided I would have to leave it to the Sheriff. Of course I was worried but there was nothing I could do.
 
-Just like Grandpa had said there was no answer at the station. I was completely wiped and the events of the day had ruined me. I broke down in my grandparents living room. It was just so strange that they would disappear like this, plus the whole town seemed to be going loopy. I thought maybe it was the full moon, but I couldn't help but wonder if there was something weird about those cakes... I shurgged the thought away. I would sleep it off and hopefully everyone would snap out of it by the morning.
+Just like Grandpa had said there was no answer at the station. I was completely wiped and the events of the day had ruined me. I broke down in my grandparents living room. It was just so strange that they would disappear like this, plus the whole town seemed to be going loopy. I thought maybe it was the full moon, but I couldn't help but wonder if there was something weird about those cakes... I shrugged the thought away. I would sleep it off and hopefully everyone would snap out of it by the morning.
 
 I awoke, in the middle of the night to sounds of shouting and gunfire. My grandparents property is somewhat secluded but still in town. I peered out the window and saw a group with torches and pistols fighting in the street. I sprinted to my grandads room and opened his closet. He had always kept a rifle.
 
 Something was going on... I loaded up a pack of supplies and grabbed some back country maps. There was no way this was another random incident; the whole town was going mad. As I made my way to my car a man ran out of the darkness of the wood and dove at me. I narrowly got out of the way and started sprinting.
 
-I hopped in my car and started driving. It looked like a scene from horror film. People were walking around with pipes and bats, shouting and smashing vehicles. Multiple buildings were in flames including the town hall.
+I hopped in my car and drove peeled out. It looked like a scene from horror film. People were walking around with pipes and bats, shouting and smashing vehicles. Multiple buildings were in flames including the town hall.
 
 I hit the gas, fast, but still in control of the vehicle. He came from out of nowhere. I tried to stop but... he just ran out into the middle of the road. He was staring at me screaming with his hands in the air like a maniac.
 
@@ -44,7 +44,7 @@ It was like he had no concern for his own safety. The look in his eyes was feral
 
 I had to get to my grandad's cabin. I thought maybe he would be there with my grandmother. It was safer there. At least that was the plan. Unfortunately though I never made it, I crashed my car near the power station just outside of town.
 
-I've spent the last week holed up in here with the doors and windows barricaded, living off of granola bars and fruit snacks. It was rough. On the second night some people tried to break in but I guess I secured it well enough, and they gave up.
+I've spent the last week holed up in here with the doors and windows barricaded, living off of granola bars and fruit snacks. It was rough. On the second night some people almost broke in but I guess I secured it well enough and they gave up.
 
 I had tried to find a signal to no avail. The first few days was mayhem out there but now there's not a sound. Today I noticed I had reception again so I thought I would make this post.
 
