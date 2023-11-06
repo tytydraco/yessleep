@@ -1,4 +1,4 @@
-Have any of you guys ever heard of Little Jane Snack Cakes?! Something really friggen weird is going on in my town so I'm making this post to let you know... DO NOT TRY LITTLE JANE BRAND SNACK CAKES! I live in a small town in Northern Canada and in the last week things have been gone insane.
+Have any of you guys ever heard of Little Jane Snack Cakes?! Something really friggen weird is going on in my town so I'm making this post to let you know... DO NOT TRY LITTLE JANE BRAND SNACK CAKES! I live in a small town in Northern Canada and in the last week things have gone insane.
 
 I pulled into the local supermarket when I noticed a giant pastel yellow trailer with cursive on the side. It said "Little Jane" which I have never heard of so I thought it was a little interesting. When I walked in I saw a giant display of yellow boxes front and center. There were a bunch of people looking at it curious so I walked over.
 

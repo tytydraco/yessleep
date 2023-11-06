@@ -8,8 +8,7 @@
 
 *Location: Undisclosed studio apartment in Seattle, Washington.*
 
-*Interviewee: Richard Richardson (Pseudonym)*  
-*Interviewer: Jacob Jacobson (Pseudonym)*
+*Interviewee: Richard Richardson (Pseudonym)Interviewer: Jacob Jacobson (Pseudonym)*
 
 \[Recording starts\]
 
@@ -185,6 +184,6 @@ RR: I… huh, I don’t know. I could try asking, I guess.
 
 \[Interviewee raises fist to his ear and shakes it. A low hum is heard. Roughly  twenty seconds pass. Interviewee looks visibly distressed. Interviewee grabs keys off coffee table and proceeds to repeatedly stab self in the neck\]
 
-RR: Burn my brain! Burn my brain! Burn my brain! Burn my—
+RR: Burn my brain! Fucking burn it! Burn it to ash! Burn my—
 
 \[Recording ends\]
