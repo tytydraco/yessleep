@@ -154,7 +154,7 @@ RR: Neptune; Saturn's rings; Europa; The Great Red Spot; Andromeda; The Milky fu
 
 JJ: Not sure I follow.
 
-RR: It lied to me. It's song promised that there'd be more. Some higher meaning, you know? It doesn't have to be God, Heaven or Hell or any of that, just... something. I'd take burning in a lake of fire for all eternity over this, 'cause that at least means there’s some purpose to it all. Some design. Some sense of order. Something. Anything.
+RR: It lied to me. The song promised that there'd be more. Some higher meaning, you know? It doesn't have to be God, Heaven or Hell or any of that, just... something. I'd take burning in a lake of fire for all eternity over this, 'cause that at least means there’s some purpose to it all. Some design. Some sense of order. Something. Anything.
 
 JJ: Richard, I'm really struggling to follow here. Can you try and be less vague? What is that thing?
 
