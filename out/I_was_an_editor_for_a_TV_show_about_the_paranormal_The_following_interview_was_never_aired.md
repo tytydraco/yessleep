@@ -172,7 +172,7 @@ JJ: Who created the blueprint then?
 
 RR: We did. Not us, but what we will become. It's a cycle. We start off on our own little mudballs, and eventually, we're out there exploring everything, understanding everything. And every time, we reach the same conclusion—it's all meaningless. Randomly generated. We're all alone. And I don't just mean humans; I mean everyone.
 
-JJ: So, you're saying some advanced extraterrestrial civilization sent this message just to tell you that life is meaningless? Why do you think they'd do that?
+JJ: So, you're saying some advanced extraterrestrial civilization sent this message just to tell you that existence is meaningless? Why do you think they'd do that?
 
 RR: Why do musicians write sad songs when they're sad? Why do people leave notes behind before offing themselves? Hell, why are we having this conversation now?
 
