@@ -110,7 +110,7 @@ Amidst the chaos, the Heart of Tobadzischini flies from the grasp of the falteri
 
 Instinct takes over. I lunge forward, my hand outstretched, every muscle coiled and ready. The stone's warmth calls to me, a beacon in the darkness, and as I leap, I feel the heat of the fire on my face, the cold bite of the night at my back.
 
-My fingers close around the stone midair, its pulse hammering against my palm. I hit the ground rolling, the momentum carrying me forward.
+My fingers close around the stone in midair, its pulse hammering against my palm. I hit the ground rolling, the momentum carrying me forward.
 
 The weight of the Heart in my hand is a solid certainty in the chaos. As I roll to my feet, I see the Slayer of Alien Gods, still bound but with his eyes fixed intently upon me, ablaze with an intensity that could rival the inferno that Ben and the creature have become. There's no time for doubt, no room for error. Every sinew in my body tenses as I rear back, my arm cocked in preparation.
 
@@ -118,7 +118,7 @@ The skinwalkers, their unity fractured, turn their attention towards me, a multi
 
 Daak’os emerges from the fire, a horror reborn, its form charred but unbroken. With a swift and cruel motion, it plunges its claws into Ben’s chest. The sound is terrible, a wet, final noise that echoes across the mesa, a death knell that seems to pierce the night itself. Ben's body jerks once, a puppet with its strings cut, and then falls limp.
 
-With a defiant cry that echoes across the desolate landscape, I hurl the Heart through the tumultuous air towards Demon Slayer. Time narrows to a single thread, stretching taut as the stone cleaves through the night. It glimmers like a star against the darkness, a fleeting hope against the encroaching despair.
+With a defiant cry that echoes across the desolate landscape, I hurl the Heart through the tumultuous air towards him. Time narrows to a single thread, stretching taut as the stone cleaves through the night. It glimmers like a star against the darkness, a fleeting hope against the encroaching despair.
 
 The skinwalkers lurch forward in a grotesque ballet, their claws extended, trying to intercept the stone's flight. But their movements are sluggish, disjointed by the loss of their collective will, their forms stumbling over one another in a disarray that was once unthinkable.
 
@@ -168,7 +168,9 @@ I approach them tentatively, my footsteps hesitant on the blood-soaked earth. Th
 
 Nayenezgani nods. I sense the ghost of a smile under his mask. "T’áá hwó’ ají t’éego," (You all have fought with courage,) he replies, the timbre of his voice resonating with the strength that had turned the tide of the battle.
 
-The Demon Slayer moves with a solemn grace to where Ben's body lies, the embers of the battle still glowing faintly in the night. He kneels beside him, his hands gently closing the eyes of my fallen friend, an age-old gesture of honor and farewell. He turns to me, his voice a soft echo of the force it wielded in battle.
+I move with a solemn grace to where Ben's body lies, the embers of the battle still glowing faintly in the night. I kneel beside him, my hands gently closing the eyes of my fallen friend.
+
+The Demon Slayer turns to me, his voice a soft echo of the force it wielded in battle.
 
 "Amá sání yázhí yídlo'íjí yinishyé," (The Mother Spirit opens her arms to him,) he assures me, his tone imbued with a deep-seated reverence.
 
