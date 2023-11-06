@@ -8,7 +8,9 @@
 
 *Location: Undisclosed studio apartment in Seattle, Washington.*
 
-*Interviewee: Richard Richardson (Pseudonym)Interviewer: Jacob Jacobson (Pseudonym)*
+*Interviewee: Richard Richardson (Pseudonym)*
+
+*Interviewer: Jacob Jacobson (Pseudonym)*
 
 \[Recording starts\]
 
@@ -174,7 +176,7 @@ JJ: So, you're saying some advanced extraterrestrial civilization sent this mess
 
 RR: Why do musicians write sad songs when they're sad? Why do people leave notes for their loved ones to find before offing themselves? Hell, why are we having this conversation now?
 
-JJ: So, you're saying it’s less a message and more like… an act of catharsis, kind of. Alright, Richard, one last question and I think we can wrap it up. I’m curious, does that "blueprint" of yours mention anything about what's outside the universe?
+JJ: So, you're saying it’s less a message and more like… an attempt at catharsis, kind of. Alright, Richard, one last question and I think we can wrap it up. I’m curious, does that "blueprint" of yours mention anything about what's outside the universe?
 
 RR: What do you mean?
 
