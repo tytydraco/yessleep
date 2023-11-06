@@ -132,7 +132,7 @@ JJ: Richard! Come on now, let's—
 
 RR: Even after all that, her hand was still fucking closed. Can you believe that shit? Even with her brains bashed in, the nagging cunt still finds a way to piss me off. How fucking on brand.
 
-\[Interviewer gestures to camera crew to call 911. Interviewee doesn't seem to notice\]
+\[Interviewer gestures to camera crew to contact authorities. Interviewee doesn't seem to notice\]
 
 JJ: Richard, you do realize what you're admitting to here, right?
 
@@ -174,7 +174,7 @@ RR: We did. Not us, but what we will become. It's a cycle. We start off on our o
 
 JJ: So, you're saying some advanced extraterrestrial civilization sent this message just to tell you that life is meaningless? Why do you think they'd do that?
 
-RR: Why do musicians write sad songs when they're sad? Why do people leave notes for their loved ones to find before offing themselves? Hell, why are we having this conversation now?
+RR: Why do musicians write sad songs when they're sad? Why do people leave notes behind before offing themselves? Hell, why are we having this conversation now?
 
 JJ: So, you're saying it’s less a message and more like… an attempt at catharsis, kind of. Alright, Richard, one last question and I think we can wrap it up. I’m curious, does that "blueprint" of yours mention anything about what's outside the universe?
 
