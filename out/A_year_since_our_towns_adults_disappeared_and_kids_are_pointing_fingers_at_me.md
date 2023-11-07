@@ -358,7 +358,7 @@ What did Jude say again?
 
 The microwave dinging didn't wake me up. The stink of burning plastic and cremated food did. 
 
-"Get up." The voice was familiar, pulling me out of my thoughts. When I didn't move, someone kicked me violently in the stomach, and something was dropped into my head. I sat up, a scream clawing in my throat, the burned remnants of my dinner dripping down my face. Standing over me were two pairs of feet, and when I looked up, Gracie Lockhart. She made sense, she was a psycho. But not Liam, our mayor, who wore a grave expression. 
+"Get up." The voice was familiar, pulling me out of my thoughts. When I didn't move, someone kicked me violently in the stomach, and something was dropped onto my head. I sat up, a scream clawing in my throat, the burned remnants of my dinner dripping down my face. Standing over me were two pairs of feet, and when I looked up, Gracie Lockhart. She made sense, she was a psycho. But not Liam, our mayor, who wore a grave expression. 
 
 "Get up!" This time, I was kicked in the head. I felt my brain bounce around my skull, my vision blurring. I was on my feet, off balance. All around me was a startling orange. I thought it was from the microwave catching fire, but then the blurred orange was moving. Gracie, Liam, and two other guys held flaming torches. The light was almost mesmerising. I found myself transfixed, until I snapped out of it. Nathaniel was in front of me, his arms bound behind his back. A squeaking, muffling Sera struggling in between two girl's grasp.
 
