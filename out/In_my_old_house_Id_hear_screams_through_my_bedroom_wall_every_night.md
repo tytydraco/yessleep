@@ -156,7 +156,7 @@ Perhaps she never will.
 
 As for myself, I could never look at a blank wall the same again. I began flipping obsessively through all kinds of books and documentaries for answers as to what had become of my father. 
 
-As one might suppose, I found little of use. 
+As one might suspect, I found little of use. 
 
 All I can think of is that sometimes—for inexplicable reasons, at random—there appear tears through matter that draw things into themselves, either to change or devour them with an incomprehensible eldritch appetite.
 

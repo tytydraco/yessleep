@@ -1,6 +1,6 @@
 &#x200B;
 
-[Part 1](https://www.reddit.com/r/nosleep/comments/17n4uzc/im_a_barista_at_a_coffee_shop_for_the_dead_i_just/?utm_source=share&utm_medium=web2x&context=3) 
+[Part 1](https://www.reddit.com/r/nosleep/comments/17n4uzc/im_a_barista_at_a_coffee_shop_for_the_dead_i_just/?utm_source=share&utm_medium=web2x&context=3)
 
 Okay, after my first post, I know what you’re probably doing. I’m sure that some of you have one hand on your hip and the other pointed at your screen, saying something along the lines of, “you have a lot of explaining to do, missy.” Yeah, you bet your sweet ass I do. (Too far? Not sorry (: )
 
@@ -117,3 +117,5 @@ Once he’d purged the rage from his system, Ivan trudged back over to me and St
 I giggled. The shocked expression on Ivan’s face only made me laugh harder.
 
 “Ivan, it’s okay. It’s clear that I have plenty of protection in case some creep like that comes in again. I’m going to stay. I think I’m gonna like it [here](https://www.reddit.com/r/HorrorJunkie123/).”
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/17q3oz9/im_a_barista_at_a_coffee_shop_for_the_dead_i/?utm_source=share&utm_medium=web2x&context=3) 

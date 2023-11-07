@@ -226,4 +226,6 @@ He sternly locked eyes with me, his visage cold and unwavering.
 
 “As you’ve come to find out, there are demons that roam the earth alongside the living and the dead. Nona, well, he’s… something else. Just pray that you never have to find out [what](https://www.reddit.com/r/HorrorJunkie123/).”
 
-[Part 2](https://www.reddit.com/r/nosleep/comments/17ohqon/im_a_barista_at_a_coffee_shop_for_the_dead_i/?utm_source=share&utm_medium=web2x&context=3) 
+[Part 2](https://www.reddit.com/r/nosleep/comments/17ohqon/im_a_barista_at_a_coffee_shop_for_the_dead_i/?utm_source=share&utm_medium=web2x&context=3)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/17q3oz9/im_a_barista_at_a_coffee_shop_for_the_dead_i/?utm_source=share&utm_medium=web2x&context=3) 
