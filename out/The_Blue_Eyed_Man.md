@@ -11,6 +11,7 @@ We sat in the parking lot for about 30 minutes, talking about her breakup and wh
 I pointed them out to my friend and laughed, unnerved, laughing about how it was probably a drug deal. It wasn’t uncommon to see these go down a lot in our town. 
 
 We try to continue our conversation, but I can’t seem to keep my eyes off the two cars that showed up, parked only 15-20 feet away from
+
 us. 
 
 My heart rate starts picking up as we watch a man get out of the red charger. He was a white man, medium build, average height, bald head, wearing all black clothes. 
@@ -128,3 +129,5 @@ It takes a total of 10 minutes before I am able to fully calm down, the man in t
 To this day, I am not sure what we witnessed. Whether it was humans messing with us or a dark entity. 
 
 All I know, is that if that figure got to us, only sinister things would’ve happened. 
+
+📷**ReplyForward**  
