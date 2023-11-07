@@ -107,3 +107,7 @@ I am now in the hospital, the wound can not be explained, it looks like some sor
 &#x200B;
 
 Ruxandra hopes she will be able to get to this guy, to talk to him. It seems me and Michael escaped pretty easily, if we compare our experience with this one. I hope to be able to keep you updated, if anything happens. I am curious, has anybody experienced anything like this?
+
+&#x200B;
+
+Update, it got worse: [Part 3](https://www.reddit.com/r/nosleep/comments/17q0ma3/silver_whispers_part_3/) 
