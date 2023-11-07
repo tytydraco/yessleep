@@ -1,0 +1,16 @@
+
+I guess it all started when I was walking out in the woods, just wandering around and enjoying myself. I liked watching the little animals running through the fallen leaves, as I always do to relax. Just like any other day, I was picking up rocks, looking for arrowheads, like everyone used to do.
+
+That's when I saw a very intriguing rock. It was almost like any other rock, but it was smoother than any rock I've ever found around here. Even stranger, there was a hole dead center in the thing. I didn't notice that all the little animals I always heard were completely silent, almost as if they had disappeared or had never existed to begin with.
+
+I only noticed the silence when I started tracing my fingers around the hole, as if I was solving a puzzle even I wasn't aware of. Then I started hearing whispers. They were so faint at first that I thought I was imagining them. And then that's when I felt the almost childlike impulse to hold it up to my eye, as if to see the world in a new, more childlike way. And much to my surprise, I did. At first, everything was brighter and more vibrant, like looking at the world with a brand new set of eyes. But it was short-lived.
+
+After a few days of going back out there with my new prize, I started to see things scurry behind trees and bushes. They weren't the usual animals that follow me in the woods. They were something more intelligent, as if they wanted to play some kind of game with me, but for the life of me, I couldn't figure out the rules.
+
+For days, I would go out there trying to see them, to make out what whispers they would say, but to no avail. Until one day, I didn't have to go out into the woods to hear them. In fact, I eventually felt them, as if they would dance on me as I slept, only to disappear again as soon as I jumped up to catch them. The damn things wouldn't let me sleep. As soon as I was about to fall asleep, it never failed. I would hear them shout "HEY" or say my name.
+
+I would never have guessed it would get worse, so much worse. Oh, the nightmares they would whisper every night. Each night was worse than the last. I don't even want to think about what they said. And it's not like I didn't try to fight these almost air-like entities haunting me. I noticed they liked sugary things and honey. I would set up traps for them, only for the traps to be completely ripped apart in the mornings.
+
+All I accomplished by doing that was making them angry. I woke up to my disemboweled cat, Tom. He was always a lazy cat, but he was good in all other aspects. I think that's what set me over the edge. I took the stone and fashioned a headpiece out of it and some old pair of swimming goggles I had in storage. Now I could stay ever vigilant and on guard. With my hammer, I never slept. At this point, I was always over-aware of every little noise.
+
+I know I must seem crazy writing all this down for you all to read, but I'm at my wits' end. I need advice on how to deal with these "honey winds," as I have decided to call them. So if anyone has any helpful advice, I'm all ears. I know this is an abrupt end to my post, but that's all there is for the moment
