@@ -142,6 +142,8 @@ That’s as much as I feel like transcribing tonight. My schedule’s not what y
 
 And well away from the cold.
 
+[Part 2](https://www.reddit.com/r/nosleep/comments/17pzn1f/i_found_a_body_deep_in_the_siberian_tundra_it_was/)
+
 ___
 
 [RPH](https://www.reddit.com/r/rephlect/)
