@@ -4,7 +4,7 @@
 >  
 >This has been eating away at me for over two decades now. I feel obligated to share this man's story in some capacity. However, I also want to respect my ex-colleagues' wishes to not have their identities associated with any of it. As a compromise, I have chosen to present it in transcript format. Feel free to read on and form your own conclusions.
 
-*Date: November 1th, 2002*
+*Date: November 1st, 2002*
 
 *Location: Undisclosed studio apartment in Seattle, Washington.*
 
