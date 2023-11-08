@@ -1,6 +1,6 @@
 In my spare time, I am an avid vhs tape collector. For more nostalgic reasons, I try to find old shows from my childhood. Recently, I was in my city's local pawn shop, and I found a few different vhs tapes. Dexter's laboratory, hey arnold.... and one I didn't recognize...... Sunny's neighborhood. 
 
-The box cover had a poorly animated kid, with glasses, waving with a scene of houses behind him. Curiously, I looked it up on my phone, and I found no mention of it anywhere. I thought it might have been a local show for the local station. I decided to buy it, and that night, I put it in my vhs player.  
+The box cover had a poorly animated kid, with glasses, waving with a scene of houses behind him. Curiously, I looked it up on my phone, and I found no mention of it anywhere. I thought it might have been a local show for the local station. I decided to buy it, and that night, I put it in my VCR.
 
 After the static cleared, a title card appeared. The episode was called "New friends". Instantly, the scene changed to a basketball court. There were  two people, the one on the right, I recognized from the boxes cover, it was sunny.
 
@@ -24,4 +24,4 @@ The episode was titled "accidents happen." Something was off. It showed Sunny wi
 
 The tape abruptly ended, and there was one more episode. It was titled "Will you play with me?" I  was really hesitant to watch it, but something was influencing me.  I had no choice. It started with Sunny in, what looks like a bedroom. Toys on the floor. Sunny face was filled with static, and he was staring blankly at the screen. Text kept on popping up. "Will you play with me?" and "play with me." Over and over. I had enough, even though I should have stopped at episode 2. I ejected the tape, grabbed the box and the tapes, and threw them in the dumpster outside.
 
-The next day, after I got home from work, I heard my vhs player on. A familiar voice echoed through my apartment. "Will you play with me?".
+The next day, after I got home from work, I heard my VCR running. A familiar voice echoed through my apartment. "Will you play with me?".

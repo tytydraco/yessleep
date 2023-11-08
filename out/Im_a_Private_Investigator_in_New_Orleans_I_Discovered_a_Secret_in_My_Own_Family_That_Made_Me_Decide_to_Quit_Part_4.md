@@ -100,7 +100,7 @@ Reine leans forward, her detective's eye pinpointing the most haunting aspect of
 
 "This..." Reine's voice shakes as she speaks, "we've just seen this.”
 
-Kira's eyes widen at Reine's statement, a mixture of shock and disbelief etching her face. "You've seen it?
+Kira's eyes widen at Reine's statement, a mixture of shock and disbelief etching her face. "You've seen it?"
 
 "Yeah," I say, my voice firm, "The same ritual, the same black flame, the same... dissolution of human flesh." The words taste bitter, recounting the horror feels like reliving it.Kira's her face ashen, eyes lost to a memory that haunts her. "Xuan was convinced the depiction was literal," she begins, her voice quivering. "Not just him, the entire consortium. They believed this manuscript wasn't just recording history—it was a guide, a set of instructions."
 
