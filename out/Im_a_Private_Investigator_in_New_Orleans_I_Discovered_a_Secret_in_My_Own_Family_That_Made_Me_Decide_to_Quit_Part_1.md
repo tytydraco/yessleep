@@ -1,5 +1,3 @@
-**Family Reunion**
-
 The atmosphere in the car is thick with unsaid words. The streets of New Orleans roll past, the warm glow of the midday sun punctuating the colonial architecture and lively marketplaces. It’s a mild day in late January, the kind that makes you believe spring is just around the corner even when it's months away.
 
 As a private eye, I welcome a day off like this. No cases, no mysteries. Just a simple drive to my parents' house for Tết. But as every investigator knows, there’s no such thing as a simple drive.
@@ -361,5 +359,7 @@ As we walk back towards the laughter and light of the living room, Kira's gaze f
 [Part 2](https://www.reddit.com/r/nosleep/comments/16unbjt/im_a_private_investigator_in_new_orleans_i/)
 
 [Part 3](https://www.reddit.com/r/nosleep/comments/170lx9b/im_a_private_investigator_in_new_orleans_i/)
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/17qk25h/im_a_private_investigator_in_new_orleans_i/)
 
 [X](https://www.reddit.com/r/PageTurner627Horror/)

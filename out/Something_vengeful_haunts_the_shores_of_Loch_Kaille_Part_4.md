@@ -2,7 +2,7 @@
 
 [[Part 2]](https://www.reddit.com/r/nosleep/comments/17ape6a/something_vengeful_haunts_the_shores_of_loch/) First blood.
 
-[[Part 3]](https://www.reddit.com/r/nosleep/comments/17fig34/something_vengeful_haunts_the_shores_of_loch/) Was there **a monster** in [the trees](https://pbs.twimg.com/media/Fowp13LXsAA8RCM?format=jpg&name=small)?
+[[Part 3]](https://www.reddit.com/r/nosleep/comments/17fig34/something_vengeful_haunts_the_shores_of_loch/) Was there **a monster** in the trees?
 
 *
 
@@ -256,4 +256,6 @@ It was just as the antler creature had foretold; Mona had died and my Mark had i
 
 I closed my eyes and silently promised myself that we weren't going to lose anyone else up here.
 
-Deep down I think I already knew it was a promise I wasn't going to be able to [keep](https://new.reddit.com/user/Familiar_Faux).
+Deep down I think I already knew it was a promise I wasn't going to be able to keep.
+
+[[Part 5]](https://www.reddit.com/r/nosleep/comments/17qo9ix/something_vengeful_haunts_the_shores_of_loch/)
