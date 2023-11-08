@@ -57,7 +57,3 @@ It was awful to lose that godly direction. Everything looked and felt so flat on
 I took the bus to the hotel like I saw myself doing. I laid in the bed motionless for an hour like I saw myself doing. I booted up the computer like I saw myself doing. I wrote this all out in some google doc like I saw myself doing. Now I will post this like I saw myself do, and then I will live my life with no surprises.
 
 &#x200B;
-
-Author's Note:  
-  
-This is my first time writing specifically for nosleep. I just kinda had the idea and had to vomit it all out, and this seems like a pretty good place. I'm sorry if it's not scary enough. It's a pretty rough draft, but in still in my schlock-writing phase when it comes to writing. Thank you so much for reading!

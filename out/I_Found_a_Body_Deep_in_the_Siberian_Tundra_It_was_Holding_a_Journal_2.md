@@ -153,6 +153,8 @@ I realise now, I’m at a crossroads. I see two choices to make here: hide my di
 
 Don’t worry - I’ll take photos of the pages I’m gonna transcribe. Over half of it is illegible, though whether due to numb fingers or a broken mind… I can’t tell.
 
+[Part 3](https://www.reddit.com/r/nosleep/comments/17qrpje/i_found_a_body_deep_in_the_siberian_tundra_it_was/)
+
 ___
 
 [RPH](https://www.reddit.com/r/rephlect/)
