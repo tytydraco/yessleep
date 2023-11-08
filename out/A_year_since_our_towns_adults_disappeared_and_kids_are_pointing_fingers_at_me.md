@@ -446,15 +446,11 @@ How was I supposed to know *fuck off and die* would actually work? And more so, 
 
 Nathaniel was our family witch. 
 
-He could technically do whatever he wanted. And he was powerful, unlike me. 
-
-Which meant… 
-
 Why was he using velvet magic in the first place? 
 
 I had secretly been tearing myself apart for a year over my magic being the cause of our town-wide disaster. 
 
-Was I wrong? Was it really Nathaniel? 
+Was I wrong?  
 
 Did *he* kill the adults? 
 
@@ -517,3 +513,5 @@ Witches.
 Jude's lips latched to my ear. 
 
 "Your *idiot* brother just gave them a reason to start hunting us down, and the Sinclair's are at the top of the list. So if *I* were you?" He spoke through gritted teeth. "I would start running."
+
+On the run right now. Will update soon. Thank god the library's empty at night. They have actual internet here.
