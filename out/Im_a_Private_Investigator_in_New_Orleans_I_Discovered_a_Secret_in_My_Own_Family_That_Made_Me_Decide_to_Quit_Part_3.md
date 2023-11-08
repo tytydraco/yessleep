@@ -2,8 +2,6 @@
 
 [Part 2](https://www.reddit.com/r/nosleep/comments/16unbjt/im_a_private_investigator_in_new_orleans_i/)
 
-**Stardust**
-
 Reine and I watch as Xuan and Lockhart exit the diner. They exchange a brief nod, the weight of their conversation evident in their gestures. Lockhart heads towards a sleek, black sedan while Xuan moves in the opposite direction.
 
 "We can't tail both," Reine murmurs, her eyes darting between the two.
@@ -131,5 +129,7 @@ Without wasting any more time, the group moves swiftly towards the [riverbank](h
 As the boat speeds away, leaving only the disturbed water in its wake, Reine and I remain paralyzed, struggling to comprehend the nightmare we've just witnessed.
 
 The air is thick with a sensation that's hard to describe – a mix of dread, sorrow, and the unmistakable feeling of being watched by something ancient, something beyond comprehension.
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/17qk25h/im_a_private_investigator_in_new_orleans_i/)
 
 [X](https://www.reddit.com/r/PageTurner627Horror/)
