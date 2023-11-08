@@ -102,7 +102,7 @@ That was when I could feel the prickly sensation on the back of my neck, the one
 
 A shiver ran down my spine. But for some reason, I didn’t dare look. I just continued staring at the screen, at the shadow of Taylor and Kyle, who were both staring at me. I didn’t no how long I stared at the shadows, but the projector eventually turned off, and the screen went dark. I waited a few minutes, but it didn’t turn back on. While I still felt scared, I no longer felt anything staring at me.
 
-I slowly turned my head around, slightly shaking, hoping I wouldn’t see Taylor creepily staring at me, or Taylor’s unnaturally long arms. I didn’t see that, in fact, I didn’t see either of them.
+I slowly turned my head around, slightly shaking, hoping I wouldn’t see Taylor and Kyle creepily staring at me. I didn’t see that, in fact, I didn’t see either of them.
 
 At first, I thought it was a prank. They were just going to pop up, and try to scare me. I got up and walked to the projector at the back of the room. I checked behind it, under the table it was on, and every other possible place in the classroom that they could have hidden. I couldn’t find them.
 
