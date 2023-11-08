@@ -162,4 +162,4 @@ After quickly deliberating, I extended my hand to her. “Sure thing, name’s D
 
 “We should get moving,” I said, glancing around, aware that we’d been standing in this same position now for a few minutes. “I don’t like staying still for too long. Follow me, just act like you’re window shopping and try to blend in.”
 
-I wish I’d known now what was going to happen, if I did maybe I’d have done things differently. I’ll get into the details but right now I need to move, I’ve been here too long already. I’ll post the rest of this when I get to a safer place.
+I wish I’d known now what was going to happen, if I did maybe I’d have done things differently. I’ll get into the details but right now I need to move, I’ve been here too long already. [I’ll post the rest](https://www.reddit.com/r/nosleep/comments/17qwyy5/i_joined_a_game_of_hideandseek_on_the_dark_web/)of this when I get to a safer place.
