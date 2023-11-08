@@ -1,7 +1,5 @@
 [Part 1](https://www.reddit.com/r/nosleep/comments/16texdg/im_a_private_investigator_in_new_orleans_i/)
 
-**The Stakeout**
-
 The morning sun filters through the shutters of our office in the French Quarter, casting long, dappled shadows on the worn wooden floor. The faint hum of jazz from a nearby club and the distant chatter of tourists lend a semblance of normalcy to the room.
 
 Yet, that normalcy is tainted with tension. Reine and I had another spat this morning over how she rearranged the office supplies. Something about her needing the space on the desk for "personal matters" which she didn't clarify. But these days, it feels like those little annoyances are the only constants in our relationship. The lighthearted teasing and warmth we shared last night at the Tet dinner feels like a distant dream. The return to our day-to-day life brings the same petty, inconsequential bullshit arguments back on the menu. A heavy sigh escapes my lips. Is this the new norm?
@@ -161,5 +159,7 @@ The silence in the car is heavy as we watch Xuan and Lockhart leave the diner. T
 But we know differently. We stumbled into a web far more intricate and dangerous than we could ever imagined. There's no turning back now.
 
 [Part 3](https://www.reddit.com/r/nosleep/comments/170lx9b/im_a_private_investigator_in_new_orleans_i/)
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/17qk25h/im_a_private_investigator_in_new_orleans_i/)
 
 [X](https://www.reddit.com/r/PageTurner627Horror/)
