@@ -118,11 +118,11 @@ I heard it during the morning announcements, on the loudspeaker. Everyone began 
 
 “Yes, it’s sad they’re missing.” he said, in a harsh, cruel, voice. “But we still have a test. Taylor and Kyle probably didn’t study, and just didn’t want to show up for it.”
 
-He began to pass the packets out to each of us. I had completely forgotten about the test, due to recent events. I didn’t even memorize anything I had written down on Friday. When I got my packet, I could see that the printer must have messed up for mine. It was randomly black and gray in some areas. I groaned exasperatedly as I flipped through the pages, trying to find one that looked at least kind of normal.
+He began to pass the packets out to each of us. I had completely forgotten about the test, due to recent events. I didn’t even memorize anything I had written down on Friday. When I got my packet, I could see that the printer must have messed up for mine, as it was randomly black and gray in some areas. I groaned exasperatedly as I flipped through the pages, trying to find one that looked at least kind of normal.
 
-That was until I got to the last page, which at first glance, was completely blank.
+That was until I got to the last page, which appeared to be completely blank.
 
-*Of course it didn’t even print the last question.*
+*Of course it didn’t even print the last question.* I sighed to myself.
 
 I began to raise hand to ask Mr. P for another copy, when I noticed something that was hidden underneath my now risen elbow. The paper wasn’t completely blank. I quickly lowered my hand and lifted there paper to my face, trying to make sense of it, trying to make sense of it all.
 
