@@ -62,7 +62,9 @@ We follow Kira down a narrow hallway lined with family photos, the progression o
 
 The office is a reflection of Kira’s world, a realm of ancient languages and histories long past. Bookshelves line the walls, crammed with tomes and papers, the musty scent of old books a familiar comfort. Her desk is cluttered with notes and texts, among which sits a state-of-the-art computer, a juxtaposition of the old and the new. Everywhere there are hints of her profession as a historical linguist – framed diplomas, a collection of rare dictionaries, and scattered artifacts that speak of a life dedicated to deciphering the secrets of bygone eras.
 
-As Kira flicks on the light, it casts a warm glow over the room, illuminating the artifacts of her scholarly pursuits. She unlocks a cabinet, her hands shaking ever so slightly as she retrieves a thick, leather-bound manuscript. It's ancient, the cover worn with age. She handles it with reverence of a holy relic.Kira lays the manuscript gently on the table, its pages yellowed with the passage of centuries. The room falls silent except for the faint creak of the leather as she opens the cover.
+As Kira flicks on the light, it casts a warm glow over the room, illuminating the artifacts of her scholarly pursuits. She unlocks a cabinet, her hands shaking ever so slightly as she retrieves a thick, leather-bound manuscript. It's ancient, the cover worn with age. She handles it with reverence of a holy relic.
+
+Kira lays the manuscript gently on the table, its pages yellowed with the passage of centuries. The room falls silent except for the faint creak of the leather as she opens the cover.
 
 Kira's fingers trace the delicate, ancient script of the Chu Nom, the traditional Vietnamese calligraphy. "Xuan brought this to me," she says, her voice barely above a whisper. "He wanted me to translate it. Said it was vital for his... our research."
 
@@ -80,7 +82,7 @@ I can't help but feel a stirring of something deep within me—a resonance with 
 
 These images, they're not just historical footnotes. They're a mirror reflecting the endless cycle of human struggle. And in these ancient lines, I see the faces of my ancestors. I know their fear, their courage—it's imprinted in my very DNA. It's a haunting recognition, a connection across centuries that I feel in my bones.
 
-Kira watches me, her expression a mixture of pride and sorrow. "The author wasn't just a scribe. They were a witness, maybe even a warrior. They saw it all, recorded it for future generations." Her voice cracks with emotion. "And now Xuan... he's become obsessed with this past, with something he believes it can unlock."
+Her voice cracks with emotion. "Xuan... he became obsessed with this past, with something he believed it could unlock."
 
 Kira’s hands tremble as she carefully flips through the manuscript, stopping at a series of illustrations that command our immediate attention. The page depicts a naval battle, chaotic and vivid, with traditional Vietnamese junks engaged in fierce combat against the formidable Mongol fleet.
 
