@@ -4,13 +4,17 @@
 
 [Part 3](https://www.reddit.com/r/nosleep/comments/170lx9b/im_a_private_investigator_in_new_orleans_i/)
 
-As we stumble back through the factory's desolate skeleton, the ghostly echoes of the night's atrocities seem to claw at our heels. We tread back to our car in silence, the weight of what we've just witnessed heavy on our shoulders.
+As we make our way back through the factory's desolate skeleton, the ghostly echoes of the night's atrocities seem to claw at our heels. We tread back to our car in silence, the weight of what we've just witnessed heavy on our shoulders.
 
-The drive back to Kira's house is a blur, the city lights streaking past as we're consumed by our thoughts. The usual cacophony of New Orleans nightlife sounds muffled, distant, as if we're hearing it from underwater.
+The drive to Kira's house is a blur, the city lights streaking past as we're consumed by our thoughts. The usual cacophony of New Orleans nightlife sounds muffled, distant, as if we're hearing it from underwater.
 
 Anger, confusion, and a profound sense of betrayal swirl within me like a tempest. Beside me, Reine is a statue of contained fury, her hands clenched so tightly I can see the white of her knuckles.
 
 We pull up to Kira's quaint, well-lit house, the normalcy of it a stark contrast to the darkness we've just left. Before we can even knock, the door swings open, and there stands Kira, her eyes filled with concern.
+
+Kira's voice, usually so full of life, comes out strained, "What happened?" She says. Then, her eyes flick to Reine, and her expression tightens. "You told her?" she asks, a note of hurt resonating in her words. "You promised me you wouldn't."
+
+Reine's voice cuts through the tension like a knife. "I'm the least of your problems now," she says, her tone leaving no room for argument.
 
 "Kira," I start, my voice is a controlled tremor. "We need to talk. Now."
 
