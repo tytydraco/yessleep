@@ -116,6 +116,8 @@ Emil - our geologist - wants the first half of tomorrow to confer, and discuss o
 
 Good night, for now.
 
+[Part 4](https://www.reddit.com/r/nosleep/comments/17rj77t/i_found_a_body_deep_in_the_siberian_tundra_it_was/)
+
 ___
 
 [RPH](https://www.reddit.com/r/rephlect)
