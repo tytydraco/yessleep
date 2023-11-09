@@ -92,9 +92,11 @@ She folded her hands together. “Yes.”
 
 “Great, because I’ve got a plan,” I answered. 
 
-Then I threw a right cross against Frank’s face, hitting his chin with a powerful cracking noise. 
+Just then, three more were-lions poured into the room. I reacted to this development by pushing Frank forward, and he stumbled from the unexpected shock.
 
-Just then, three more were-lions poured into the room. 
+Right into the swinging fist of the first were-lion.
+
+With a loud crack, he stumbled backward and fell to the ground.
 
 I survived because others didn’t. But that’s the most I have the ability to share for right now. I’ll explain more [later](https://www.facebook.com/P-F-McGrail-181784199029462/).
 
