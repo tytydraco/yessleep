@@ -2,7 +2,9 @@ This was it. My swan song.
 
 My name is Robert Grant.
 
-I just turned 75 last weekend and typically enjoy my mornings at Zaza's sipping cappuccinos in my pajamas. I live in a quaint, cozy apartment in Montreal and am rarely interested in leaving the comfort of it. I'm a retired P.I. -- 157 cases successfully closed, 14 left cold, and dozens I never took.
+I just turned 75 last weekend and typically enjoy my mornings at a café called Zaza’s sipping cappuccinos in my pajamas. I live in a quaint, cozy apartment in Montreal and am rarely interested in leaving the comfort of it. 
+
+I'm a retired P.I. -- 157 cases successfully closed, 14 left cold, and dozens I never took.
 
 But my last case continues to haunt me. One of the 14 I left cold. I often think about it while sitting at Zaza's. It's one I've never told anyone about. I haven't been able to sleep lately and think it'd be best if I write it all out. It also happens to be the only supernatural case I worked on, one that made me a believer in many things, and one that almost killed me in more ways than I'd care to admit.
 
@@ -40,7 +42,9 @@ My retirement routine then was not too different than it is now.
 
 I got dressed, made my way down the elevator, and began my morning routine across the street at Zaza's. But the morning changed when Scott dropped off my cappuccino, scone, and newspaper. As I turned to the Arts section of the paper to look at movie reviews, I received a call that would change everything. From an old client of mine named Frankie.
 
-"Yes?" I answered."Look, I know you're retired, but I got a case that I think -"
+"Yes?" I answered.
+
+"Look, I know you're retired, but I got a case that I think -"
 
 "No, no, Frankie. I'm a content old man."
 
@@ -98,7 +102,7 @@ And finally, after all of the small talk about Frankie and IFAR, she seemed to g
 
 "Grew up Catholic," I shrugged. "But I haven't practiced in a lifetime."
 
-"Have you followed the Montreal Police's investigation into the missing children cases over the past year? There have been two here in the city recently. Two girls. Ages 5 and 7."
+"Have you followed the Montreal Police's investigation into the missing children cases over the past year? Eight total. There have been two here this month. Two girls. Ages 5 and 7."
 
 "I can't say that I have. Did they find them?"
 
@@ -218,7 +222,7 @@ I realized with a sinking horror that it was inching closer, drawn by the purity
 
 ***A beast in the gloom, for the savage thrill I awake***
 
-Panic surged through me, a stark, ice-cold wave rushed through my entire body, a feeling as cold as the vial once felt in my hand. I couldn’t let this unfold, I couldn't stand idly while these children, these unknowing participants in some nightmare were left defenseless.
+Panic surged through me, a stark, ice-cold wave rushing through my entire body, a feeling as cold as the vial once felt in my hand. I couldn’t let this unfold, I couldn't stand idly while these children, these unknowing participants in some nightmare were left defenseless.
 
 Yet, as I moved, I felt the surreal distortion of time that the potion brought; my steps seemed slow... as if I were pushing through unseen resistance.
 
@@ -246,6 +250,6 @@ Demons existed... and somehow I saw one stalking children in Montreal... in my n
 
 I could only imagine what else Marla could tell me... Was this figure I ran across connected to Osvaldo? The missing children she mentioned? Did she have more of that concoction?
 
-Had she already seen what I just did?
+I lied in bed night thinking about Marla... about what I would say when I called her first thing in the morning and agreed to take the case. 
 
-I lay in bed that night thinking about Marla... about what I would say when I called her first thing in the morning and took the case. Sleep was a stranger to me that night.
+Sleep was a stranger to me that night.
