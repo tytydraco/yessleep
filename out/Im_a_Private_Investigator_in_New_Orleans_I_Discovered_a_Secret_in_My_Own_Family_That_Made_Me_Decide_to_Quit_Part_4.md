@@ -32,7 +32,7 @@ Her living room, once a warm, inviting space filled with memories and laughter, 
 
 Kira's expression shifts as she glances at the photograph, her earlier concern morphing into something resembling fear. She tries to feign ignorance, her voice faltering as she speaks. "I-I don't know what this is about, Anh. It's been years since I've seen any of these people."
 
-Reine's patience snaps like a dry twig. "Cut the bullshit, Kira," she hisses, her voice a venomous whisper. "I was a cop. I can make you hurt without leaving a mark."
+Reine's patience snaps like a dry twig. "Cut the bullshit, Kira," she hisses, her voice a venomous whisper. "I was a cop. I can make you talk, hurt you without leaving a mark."
 
 Kira's facade cracks, her eyes darting towards me, filled with a mix of fear and pleading. There's a raw desperation there, one that I've seen before — the look of someone trapped with no clear way out. there's undeniable fear in her gaze. Fear of the truth, or fear for her life?
 
@@ -78,9 +78,9 @@ The pages are a tapestry of chaos and violence; inked drawings of horsemen, arro
 
 I lean in closer, examining the pages. The detailed sketches depict the chaos of battle, the desperation and fear etched into the faces of soldiers and civilians alike. Scenes of villages aflame, families torn apart, and the unrelenting advance of the Mongol horde sprawl across the parchment. It's a tableau of suffering and resistance, a visual saga of a nation under siege.
 
-I can't help but feel a stirring of something deep within me—a resonance with the nameless author. As a combat veteran, I've seen my own share of conflict, the kind that leaves a mark on your soul. I understand the need to record the tumult, to ensure that the sacrifices and horrors aren't swept away by the tides of time.
+I can't help but feel a stirring of something deep within me—a resonance with the nameless author. As a combat veteran myself, I've seen my own share of conflict, the kind that leaves a mark on your soul. I understand the need to record the tumult, to ensure that the sacrifices and horrors aren't swept away by the tides of time.
 
-These images, they're not just historical footnotes. They're a mirror reflecting the endless cycle of human struggle. And in these ancient lines, I see the faces of my ancestors. I know their fear, their courage—it's imprinted in my very DNA. It's a haunting recognition, a connection across centuries that I feel in my bones.
+In these ancient lines, I see the faces of my ancestors. I know their fear, their courage—it's imprinted in my very DNA. It's a haunting recognition, a connection across centuries that I feel in my bones.
 
 Her voice cracks with emotion. "Xuan... he became obsessed with this past, with something he believed it could unlock."
 
@@ -160,7 +160,7 @@ I quickly dial my parents, the phone ringing twice before my father’s voice co
 
 There's a pause, and then the sound of my mother's voice in the background, her tone anxious.
 
-"What’s happening, Ash?" My father's voice is back, firmer this time. "Is this about Kira and Xuan?"
+"What’s happening, Ash?" My father's voice is back, firmer this time.
 
 “I can't explain right now, but trust me. You’re not safe,” I say. “I’ll be there soon."
 
@@ -176,7 +176,7 @@ Just then, I sense the presence before I see it, a slight disturbance in the sti
 
 The voice is barely above a whisper, but its icy command sends a jolt of adrenaline through me. Slowly, I raise my hands, showing them empty and palms out.
 
-As the cold metal of a suppressor presses firmly against my back, a shiver of cold dread runs down my spine. I can hear the stranger's steady breathing just inches from my ear, controlled and measured. 
+As the cold metal of a suppressor presses firmly against my back, a shiver of cold dread runs down my spine. I can hear the stranger's steady breathing just inches from my ear, controlled and measured.
 
 "Turn around. Slowly," the voice demands, a gravelly whisper that speaks of a deadly calm.
 
