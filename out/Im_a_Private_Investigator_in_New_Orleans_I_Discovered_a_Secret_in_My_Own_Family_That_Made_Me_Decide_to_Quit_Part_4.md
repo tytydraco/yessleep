@@ -34,7 +34,7 @@ Kira's expression shifts as she glances at the photograph, her earlier concern m
 
 Reine's patience snaps like a dry twig. "Cut the bullshit, Kira," she hisses, her voice a venomous whisper. "I was a cop. I can make you talk, hurt you without leaving a mark."
 
-Kira's facade cracks, her eyes darting towards me, filled with a mix of fear and pleading. There's a raw desperation there, one that I've seen before — the look of someone trapped with no clear way out. there's undeniable fear in her gaze. Fear of the truth, or fear for her life?
+Kira's facade cracks, her eyes darting towards me. There's a raw desperation there, one that I've seen before — the look of someone trapped with no clear way out. there's undeniable fear in her gaze. Fear of the truth, or fear for her life?
 
 "Kira," I say, my voice a mix of anger and concern. "We know Xuan's involved in something dark. But you? You’re my sister… I need to be able to trust you."
 
@@ -66,7 +66,9 @@ As Kira flicks on the light, it casts a warm glow over the room, illuminating th
 
 She lays the manuscript gently on the table, its pages yellowed with the passage of centuries. The room falls silent except for the faint creak of the leather as she opens the cover.
 
-Her fingers trace the delicate, ancient script of the Chu Nom, the traditional Vietnamese calligraphy. "Xuan brought this to me," she says, her voice barely above a whisper. "He wanted me to translate it. Said it was vital for his... our research."
+Reine and I perch on the edge of Kira’s cluttered desk, leaning in to get a closer look at the mysterious manuscript now laid before us.
+
+Her fingers trace the delicate, classical Chữ Nôm script, the traditional Vietnamese calligraphy. "Xuan brought this to me," she says, her voice barely above a whisper. "He wanted me to translate it. Said it was vital for his... our research."
 
 Kira turns the pages slowly, allowing us to take in the detailed illustrations and calligraphy. "This manuscript," she explains, her voice hushed as if the book itself might overhear, "chronicles the Mongol invasion of Vietnam in the 13th century."
 
@@ -84,7 +86,7 @@ In these ancient lines, I see the faces of my ancestors. I know their fear, thei
 
 Her voice cracks with emotion. "Xuan... he became obsessed with this past, with something he believed it could unlock."
 
-Kira’s hands tremble as she carefully flips through the manuscript, stopping at a series of illustrations that command our immediate attention. The page depicts a naval battle, chaotic and vivid, with traditional Vietnamese junks engaged in fierce combat against the formidable Mongol fleet.
+Kira’s hands tremble as she carefully flips through the manuscript, stopping at a series of illustrations that command our immediate attention. The page depicts a naval battle, chaotic and vivid, with Vietnamese war junks engaged in fierce combat against the formidable Mongol fleet.
 
 But amid the artistry of war, a singular element casts a shadow of dread across the scene: a black flame, rising from the depths of the water, engulfing the Mongol ships. The flames are not just dark; they are void of light, a blackness so profound that it seems to leach the very essence of life from the page.
 
@@ -106,7 +108,9 @@ Reine leans forward, her detective's eye pinpointing the most haunting aspect of
 
 Kira's eyes widen at Reine's statement, a mixture of shock and disbelief etching her face. "You've seen it?"
 
-"Yeah," I say, my voice firm, "The same ritual, the same black flame, the same... dissolution of human flesh." The words taste bitter, recounting the horror feels like reliving it.Kira's her face ashen, eyes lost to a memory that haunts her. "Xuan was convinced the depiction was literal," she begins, her voice quivering. "Not just him, the entire consortium. They believed this manuscript wasn't just recording history—it was a guide, a set of instructions."
+"Yeah," I say, my voice firm, "The same ritual, the same black flame, the same... dissolution of human flesh." The words taste bitter, recounting the horror feels like reliving it.
+
+Kira's her face ashen, eyes lost to a memory that haunts her. "Xuan was convinced the depiction was literal," she begins, her voice quivering. "Not just him, the entire consortium. They believed this manuscript wasn't just recording history—it was a guide, a set of instructions."
 
 Reine's face hardens with resolve, but there's a tremor in her voice when she asks, "Were they planning to recreate the ritual, Kira?"
 
@@ -182,7 +186,7 @@ The stranger expertly disarms me, the weight of my gun leaving my side with a sw
 
 I comply, my movements deliberate and cautious. The intruder is clad in all black, a ski mask obscuring his features.
 
-It's evident he came for Kira, to silence her before she could spill more secrets. His plan is apparent: a staged botched burglary where Kira would be the tragic casualty, an accidental victim in a city where violence is all too common. In his eyes, though, I see a glint of surprise; he hadn't planned on me, an unforeseen obstacle in his grim agenda.
+It's evident he came for Kira, to silence her before she could spill more secrets. His plan is apparent: stage a botched burglary where Kira would be the tragic casualty, an accidental victim in a city where violence is all too common. In his eyes, though, I see a glint of surprise; he hadn't planned on me, an unforeseen obstacle in his grim agenda.
 
 "Who are you?" he questions sharply, his gun never wavering from its target.
 
