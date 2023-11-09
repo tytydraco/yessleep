@@ -1,4 +1,4 @@
-\[part 1\](https://www.reddit.com/r/nosleep/comments/17mc4jr/i\\\_found\\\_a\\\_missing\\\_poster\\\_for\\\_a\\\_woman\\\_who\\\_hasnt/)
+[part 1](https://www.reddit.com/r/nosleep/comments/17mc4jr/i\\\_found\\\_a\\\_missing\\\_poster\\\_for\\\_a\\\_woman\\\_who\\\_hasnt/)
 
 After showing Ruth where I’d spotted Winifred on the map, we determined there was only one place she could’ve been heading to: a remote spot near the edge of the park called Dancer’s Dell. It was on the south side of the creek, astronomically less convenient to reach than the northern one, where the trail climbed to the Upper Loop.
 
