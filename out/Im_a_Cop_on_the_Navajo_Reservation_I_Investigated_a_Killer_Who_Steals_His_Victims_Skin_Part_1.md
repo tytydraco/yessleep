@@ -280,7 +280,9 @@ The silence that follows is deafening.
 
 Panting, I pull myself up into a sitting position, trying to process what just happened. The stench of blood — both mine and the creature's — fills my nostrils, and the metallic taste coats my tongue.My eyes darts to Izzy. She groans, slowly trying to get to her feet, clutching her arm where it had made contact with the hard wooden edge of the bookshelf. Blood trickles down from a fresh gash on her temple.
 
-"Are you okay?" I manage to ask, though my own voice sounds distant, as if from a far-off dream.Izzy nods weakly, taking a deep breath. "Yeah, I think so. What... what the hell was that?"
+"Are you okay?" I manage to ask, though my own voice sounds distant, as if from a far-off dream.
+
+Izzy nods weakly, taking a deep breath. "Yeah, I think so. What... what the hell was that?"
 
 I shake my head, unable to find the words to describe the impossible events we'd just witnessed. The stories of shape-shifters, tales I'd grown up hearing, seemed all too real now.
 

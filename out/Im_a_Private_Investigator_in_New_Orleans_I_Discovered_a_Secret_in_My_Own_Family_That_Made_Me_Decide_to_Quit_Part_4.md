@@ -262,7 +262,7 @@ His hand moves to his mouth, and that's when I see it—a capsule, nestled betwe
 
 "No!" I reach out, but it's too late. He bites down on the capsule. A violent, shimmering reaction begins, his body convulsing as the substance spreads through his veins, his flesh starting to dissolve into stardust. His laughter—a haunting, hollow sound—echoes as his form becomes less and less human, his body disintegrating into the cosmos contained within him until nothing is left but a scattering of cosmic dust that fades into the night.
 
-We're left there, panting, covered in sweat and blood, the silence oppressive. Kira’s sobs fill the room  for the darkness that has crept so close to her family.
+We're left there, panting, covered in sweat and blood, the silence oppressive. Kira’s sobs fill the room, for the darkness that has crept so close to her family.
 
 Reine and I lock eyes, the unspoken question hanging between us. How many more? How many more zealots await, willing to kill and die for their cause? The thought chills me to the bone.
 
