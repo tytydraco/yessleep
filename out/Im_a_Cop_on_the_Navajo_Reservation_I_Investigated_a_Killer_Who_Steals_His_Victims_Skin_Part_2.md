@@ -144,7 +144,7 @@ Suddenly, a heart-stopping scream pierces the air, followed by another, and then
 
 "Stay back!" I shout, brandishing my weapon, trying to pinpoint a target in the disorienting gloom. My voice cracks with a mix of determination and fear. Another scream, closer this time, is cut short with a grotesque gurgling sound.
 
-“Logan, where are you?” I hear Lizzy shouting.
+“Logan, where are you?” I hear Izzy shouting.
 
 I reach out, desperate to find Izzy, to ground myself in the chaos. My fingers graze something warm and wet. I pull back instinctively, wiping my hand on my shirt, trying not to think about what I might've touched.
 
