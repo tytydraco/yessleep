@@ -170,9 +170,9 @@ I exchange a glance with Izzy, our thoughts momentarily diverted from the bizarr
 
 "Copy that, Mandy," I respond, my voice tight with frustration. "I'll head over there right away."
 
-Izzy and I exchange a final look, a silent agreement that whatever's happening in Tsegi is connected to this gruesome scene.
+I turn to Izzy. We exchange a final look, a silent agreement that whatever's happening in Tsegi is connected to this gruesome scene.
 
-I turn to her, "You coming?"
+"You coming?" I ask.
 
 She raises an eyebrow, a hint of determination in her eyes. "Lead the way."
 

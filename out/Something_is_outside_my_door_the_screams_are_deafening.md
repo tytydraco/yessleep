@@ -1,0 +1,29 @@
+My minutes are numbered. As I write this, I hear them outside.  They have started to mimic my parents, and as I don t respond, the pounding on the door gets louder. Getting louder and louder until the screams outweigh the pounding. I think im going mad.  I don't think they can get in for now. Hopefully, this documentation of my experience helps someone. 
+
+I recently moved to the middle of nowhere, I know it's a horror movie cltche, and if I knew the events that would transpire in the next week, I would have just moved back in with my parents. It was a nice 2-story house in the middle of the forest. I am a veternarian, so I made a decent living, plus the house wasn't that bad of a price. I got a job at the vet clinic in town and moved into my new home. 
+
+The first 2 days went great. I unpacked, and on the third day, I started my job at the clinic. It was a great first day, and it was also a slow day, so I got to know my co-workers. When I got home that night, it was foggy, but I could have swore I saw something moving in the trees. I would have shrugged  it off, but it looked too human like. It creeped me out, and not wanting to take any chances, I hurried in my house, locked the door, and looked through the blinds. 
+
+Nothing, just the trees and the fog. After that, I went through my entire house to make sure nothing was out of the ordinary. Call me paranoid, I know. How ironic A paranoid person is living in the middle of the woods, alone. After I made sure everything was in the ordinary, I went to bed. 
+
+The next day, I was rudely awoken to a loud bang. I shot up out of bed and grabbed the baseball bat at the side of my bed. Slowly went downstairs, and I heard a second bang at my front door. I peaked through the blinds and was met with a horrifying sight. A man, wearing a deer head.... holding a machete. I ran upstairs, grabbing my phone. I called 9-1-1. It took them 30 minutes to arrive, and by that time, the person was gone. I met with the officer outside and explained to her what had happened.
+
+>Officer Bayley: "This is not the first time this happened in this forest. What we can do is do a walk through the forest. If it happens again, don't hesitate to call."
+
+>Me: " This isn't the first time this has happened?"
+
+>Officer Bayley: " I wouldn't worry. It's probably a homeless person on drugs. Again, if anything else happens, don't hesitate to call."
+
+I didn't understand how a man wearing a deer head with a machete was a homeless person. Before I could say anything else, I saw her get in her car. With that, she was gone. I was back alone outside my house.I was weirded out, but before I could think about it further, my phone buzzed. I checked my watch and realized I had work in an hour and a half. I got dressed and headed out.  I got home late that night, and I noticed something very alarming. My front door was wide open.
+
+ Instantly, I called the police. Once they got there, both officers told me to wait and entered my house. Apperently, there was blood on the hallway walls leading to my bedroom. I told the officers what had happened that morning, and they seemed to be a bit disturbed. They told me that this could be a cult connection and that since these two incidents happened just hours between they were going to station an officer outside my house. That relieved me a bit, but the blood on my wall really freaked me out. I cleaned it up and tried to go to bed. After what felt like hours, I finally fell asleep. 
+
+The next day, I woke up, and the officer was gone. I made a cup of coffee and texted my parents. They were really worried about me and wanted me to move back to my home town. I couldn't just drop my new job and abandon my house. I told them I'd keep them updated, and I'd be safe. And then I got a knock at my front door, I froze. After yesterday, I was a lot on edge, so I went to the blinds and peered through 
+
+It was Officer Bayley, I opened the door, and what she told me made my whole body go cold. The officer stationed outside my house was missing. Apperently, they found his car in a ditch 10 minutes from my house, with a blood trail ending in the middle of the forest. She asked me if I saw anything, and I said no. After she left, I considered leaving town. This was all too much. Almost a week into living here, and weird stuff has been happening. I calmed down and decided to enjoy my say off. Until I saw that man again, walking through the forest....... holding a bloody machete. I saw him look toward my window, and I ducked. When I looked back up, he was gone. Then I saw at least 20 people walking up  to my house.
+
+Some of them were wearing masks, but the ones that weren't wearing masks.... had wide smiles with bloodshot eyes or no face at all. I was terrified, I heard glass break downstairs, and I ran to my bedroom door, and I knocked my dresser in front of it. I grabbed my baseball bat and my phone, I called the police but I got no answer. My mind was racing, and I heard footsteps moving through my house.
+
+I heard someone walking up my stairs, and then I heard the voice. The one voice I didn't expect to hear. It was Officer Bayley, trying to get me to come out. I ignored it and stayed silent, I didn't know what to trust. After a few minutes, it started banging on the door and screaming...... it didn't stop for an hour.
+
+Now, it's been 16 hours. They are getting smarter, and I've found myself close to moving the dresser and opening the door. The screaming is getting longer, the banging louder and something cut the electricity. The light from the screen of my phone is my only source of light. I'm going insane. it's imitating my parents. I don't know what to do, I feel hopeless. The dresser is moving, each pound on the door.

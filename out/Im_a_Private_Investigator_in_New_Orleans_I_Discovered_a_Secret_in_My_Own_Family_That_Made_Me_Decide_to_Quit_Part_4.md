@@ -36,7 +36,7 @@ Reine's patience snaps like a dry twig. "Cut the bullshit, Kira," she hisses, he
 
 Kira's facade cracks, her eyes darting towards me, filled with a mix of fear and pleading. There's a raw desperation there, one that I've seen before — the look of someone trapped with no clear way out. there's undeniable fear in her gaze. Fear of the truth, or fear for her life?
 
-"Kira," I say, my voice a mix of anger and concern. "We know Xuan's involved in something dark. But you? You’re my sister… But I need to be able to trust you."
+"Kira," I say, my voice a mix of anger and concern. "We know Xuan's involved in something dark. But you? You’re my sister… I need to be able to trust you."
 
 The blood drains from Kira's face, her body slumping as if the weight of her secrets is physically crushing her. She glances at the photograph again, her fingers tracing the edges as if trying to draw strength from the past.
 
@@ -154,17 +154,17 @@ Reine is already on her feet, scanning the room. "I'll help her pack. You make t
 
 —
 
-I quickly dial my parents, the phone ringing twice before my father’s voice comes through, gruff and worried. "Ash? What's wrong?" he asks immediately; he always had a sixth sense for trouble.
+I pull out my phone, turning off airplane mode for the first time since this morning. I quickly dial my parents, the phone ringing twice before my father’s voice comes through, gruff and worried. "Ash? What's wrong?" he asks immediately; he always had a sixth sense for trouble.
 
 "Ba, listen to me," I start, trying to keep my voice steady, "I need you to gather the kids, pack essentials, and wait for my signal. We need to get you all to a safe location as soon as possible."
 
 There's a pause, and then the sound of my mother's voice in the background, her tone anxious.
 
-"What’s happening, Ash?" My father's voice is back, firmer this time.
+"What’s happening, Ash?" My mom asks, concern in her voice.
 
 “I can't explain right now, but trust me. You’re not safe,” I say. “I’ll be there soon."
 
-My father's voice is solid, a rock in the churning sea. "We'll be ready."
+My father's voice is back, solid as a rock in the churning sea. "We'll be ready."
 
 The air is heavy with the unspoken fear of our predicament as I make my way to Theo's room to pack his belongings. The brightly colored room, usually filled with the sounds of childish laughter and play, now stands ominously quiet, the toys and books casting long, eerie shadows in the dim light.
 
@@ -177,6 +177,8 @@ Just then, I sense the presence before I see it, a slight disturbance in the sti
 The voice is barely above a whisper, but its icy command sends a jolt of adrenaline through me. Slowly, I raise my hands, showing them empty and palms out.
 
 As the cold metal of a suppressor presses firmly against my back, a shiver of cold dread runs down my spine. I can hear the stranger's steady breathing just inches from my ear, controlled and measured.
+
+The stranger expertly disarms me, the weight of my gun leaving my side with a swift, practiced motion. It's a familiar routine, one that leaves me feeling vulnerable, the absence of the firearm like a missing limb.
 
 "Turn around. Slowly," the voice demands, a gravelly whisper that speaks of a deadly calm.
 
@@ -228,9 +230,9 @@ Her blows are a whirlwind of rage and desperation, her fists connecting with the
 
 He catches her fist mid-swing, his grip iron, unyielding. With a vicious twist, he bends her wrist back, the angle unnatural, the pain searing. Reine's cry of agony is a ragged sound that tears through the room.
 
-The assailant towers over us, his grip on Reine unrelenting as he reaches for the knife strapped to his side. The blade glints ominously in the dim light, its sharp edge promising a swift and brutal end. I can see the cold intent in his eyes, the finality of the movement as he raises the knife.
+The assailant towers over me, his grip on Reine unrelenting as he reaches for the knife strapped to his side. The blade glints ominously in the dim light, its sharp edge promising a swift and brutal end. I can see the cold intent in his eyes, the finality of the movement as he raises the knife.
 
-Every fiber of my being screams in protest, my limbs heavy with pain and desperation. My vision is blurred, my breaths coming in shallow gasps, but the sight of Reine in his grasp ignites a fire within me, a surge of adrenaline that refuses to let this be our end.
+Every fiber of my being screams in protest, my limbs heavy with pain and desperation. My vision is blurred, my breaths coming in shallow gasps, but the sight of Reine in his grasp ignites a fire within me, a surge of adrenaline that refuses to let this be her demise.
 
 As I launch myself at the attacker, aiming to throw him off balance, my weakened state betrays me. He easily sidesteps, his counter swift and brutal, a knee driven hard into my abdomen. Air whooshes out of my lungs, and I crumple, the room spinning wildly.
 
@@ -244,7 +246,7 @@ Blood blooms across his chest, spreading rapidly through the fabric of his shirt
 
 Kira stands in the doorway, the attacker's pistol trembling in her hands. Her eyes are wide with shock, her breaths coming in short, sharp gasps. The gun, a foreign object in her unsteady grip, is pointed at the assassin, smoke wafting from the barrel.
 
-She drops the gun, the metallic sound of it hitting the floor punctuating the end of the encounter. She crumples, her knees buckling, and Reine catches her before she hits the ground, her body wracked with sobs.
+She drops the gun, the metallic sound of it hitting the floor punctuating the end of the encounter. She crumples, her knees buckling. Reine catches her before she hits the ground, her body wracked with sobs.
 
 The assassin's body hits the floor with a heavy thud, his breaths ragged and shallow. Despite everything, no one deserves to die without a chance. I crawl over to him, Reine's worried gaze following me.
 
