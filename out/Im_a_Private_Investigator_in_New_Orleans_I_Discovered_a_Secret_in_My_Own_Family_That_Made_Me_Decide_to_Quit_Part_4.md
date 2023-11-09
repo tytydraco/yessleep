@@ -92,9 +92,7 @@ The drawing is exquisite in its detail, capturing the horror of the moment. The 
 
 The Mongol warriors, once fierce and indomitable, now claw at their faces and bodies, desperate to escape an enemy that is relentless, inescapable. The black flame engulfs everything, sparing nothing and no one in its path.
 
-They’re not merely consumed by fire; they’re erased, their forms distorted and twisted into expressions of abject terror.
-
-Their faces are frozen in time, a macabre testament to the flame's merciless hunger. It is a flame that does not just burn; it annihilates, leaving a void where life once thrived. It’s as if the flame is alive, sentient, and reveling in the destruction it sows.
+They’re not merely consumed by fire; they’re erased, their forms distorted and twisted into expressions of abject terror. It’s as if the flame is alive, sentient, and reveling in the destruction it sows.
 
 "This is Lửa Đen," Kira whispers, her voice a strained thread of sound. "The Black Flame."
 
@@ -112,9 +110,9 @@ Kira's eyes widen at Reine's statement, a mixture of shock and disbelief etching
 
 Reine's face hardens with resolve, but there's a tremor in her voice when she asks, "Were they planning to recreate the ritual, Kira?"
 
-Kira nods slowly, a haunted look in her eyes. "They weren't satisfied with a recreation," she confesses, her voice barely more than a whisper. "They believed the ritual depicted in the manuscript was only a fragment of Lửa Đen's true power. They wanted to bring the Black Flame into this world, in his full, terrifying form."
+Kira nods slowly, a haunted look in her eyes. "They weren't satisfied with a recreation," she confesses, her voice barely more than a whisper. "They believed the being depicted in the manuscript was only a fragment of Lửa Đen's true power. They wanted to bring the Black Flame into this world, in his full, terrifying form."
 
-Kira's admission casts a shadow across the room, the very air seeming to grow colder with her words. "They talked about Lửa Đen as if it were... salvation," she continues, her gaze distant. "A cleansing fire to burn away the corruption of this universe and give rise to a new order."
+Kira's admission casts a shadow across the room, the very air seeming to grow colder with her words. "They talked about Lửa Đen as if he were... salvation," she continues, her gaze distant. "A cleansing fire to burn away the corruption of this universe and give rise to a new order."
 
 Kira's eyes lock onto the manuscript, her fingers hovering over the ancient text as if she could still feel the heat of the Black Flame on the pages. "They were building a device," she murmurs, her voice breaking with the weight of her confession. "Xuan and the consortium, they pooled their knowledge, their resources... They wanted to create a bridge, portal to bring Lửa Đen into our world."
 
@@ -122,7 +120,7 @@ Kira's eyes lock onto the manuscript, her fingers hovering over the ancient text
 
 Kira's expression is one of disbelief as she realizes how much we already know. "The Void Whisperer," she echoes, her surprise evident. "Yeah, that's what they called it. They believed they could power the device with the dissolved essence of human bodies," Kira adds, her voice a mere breath.
 
-" I never... I never really believed they could do it. I thought it was all theoretical, a madman's dream," Kira adds, her voice a mere breath.
+"I never... I never really believed they could do it. I thought it was all theoretical, a madman's dream," Kira adds, her voice a mere breath.
 
 She stands up, pacing the room, a caged [animal](https://www.reddit.com/r/nosleep/comments/1581vef/our_search_for_a_missing_teen_uncovered_the/) finally revealing the depths of its despair. "They changed," she says, her voice hollow. "They started as scholars, as visionaries, but... then they started talking about sacrifices, about 'preparing the way.' Their eyes... They had this look in them. It scared me."
 
@@ -160,7 +158,7 @@ I pull out my phone, turning off airplane mode for the first time since this mor
 
 There's a pause, and then the sound of my mother's voice in the background, her tone anxious.
 
-"What’s happening, Ash?" My mom asks, concern in her voice.
+"What’s happening, con?" My mom asks, concern in her voice.
 
 “I can't explain right now, but trust me. You’re not safe,” I say. “I’ll be there soon."
 
@@ -174,9 +172,9 @@ Just then, I sense the presence before I see it, a slight disturbance in the sti
 
 "Don't even think about it."
 
-The voice is barely above a whisper, but its icy command sends a jolt of adrenaline through me. Slowly, I raise my hands, showing them empty and palms out.
+The voice is barely above a whisper, but its icy command sends a jolt of adrenaline through me.
 
-As the cold metal of a suppressor presses firmly against my back, a shiver of cold dread runs down my spine. I can hear the stranger's steady breathing just inches from my ear, controlled and measured.
+As the cold metal of a suppressor presses firmly against my back, a shiver of cold dread runs down my spine. I can hear the stranger's steady breathing just inches from my ear, controlled and measured. Slowly, I raise my hands, showing them empty and palms out.
 
 The stranger expertly disarms me, the weight of my gun leaving my side with a swift, practiced motion. It's a familiar routine, one that leaves me feeling vulnerable, the absence of the firearm like a missing limb.
 
@@ -244,7 +242,7 @@ A muffled shot rings out, sharp and definitive, halting the knife's deadly desce
 
 Blood blooms across his chest, spreading rapidly through the fabric of his shirt. He staggers backward, his movements now sluggish, his grip on the knife faltering. He looks down at the growing red stain in confusion, as if unable to comprehend this sudden reversal of fate.
 
-Kira stands in the doorway, the attacker's pistol trembling in her hands. Her eyes are wide with shock, her breaths coming in short, sharp gasps. The gun, a foreign object in her unsteady grip, is pointed at the assassin, smoke wafting from the barrel.
+Kira stands in the doorway, the attacker's pistol trembling in her hands. Her eyes are wide with shock, her breaths coming in short, sharp gasps. The weapon, a foreign object in her unsteady grip, is pointed at the assassin, smoke wafting from the barrel.
 
 She drops the gun, the metallic sound of it hitting the floor punctuating the end of the encounter. She crumples, her knees buckling. Reine catches her before she hits the ground, her body wracked with sobs.
 
@@ -258,7 +256,7 @@ His eyes, a pale green that seems to mock the life slipping away, fix on me. Thr
 
 He smiles, a terrible, knowing curve of his lips. "We are but vessels... for his glory. Martyrdom... is the path to eternity."
 
-His hand moves to his mouth, and that's when I see it—a capsule, nestled between his cheek and gum, shimmering with that same otherworldly luminescence we witnessed at the factory.
+And that's when I see it—a capsule, nestled between his cheek and gum, shimmering with that same otherworldly luminescence we witnessed at the factory.
 
 "No!" I reach out, but it's too late. He bites down on the capsule. A violent, shimmering reaction begins, his body convulsing as the substance spreads through his veins, his flesh starting to dissolve into stardust. His laughter—a haunting, hollow sound—echoes as his form becomes less and less human, his body disintegrating into the cosmos contained within him until nothing is left but a scattering of cosmic dust that fades into the night.
 
