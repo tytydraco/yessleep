@@ -186,7 +186,7 @@ It's evident he came for Kira, to silence her before she could spill more secret
 
 "Who are you?" he questions sharply, his gun never wavering from its target.
 
-I weigh my response carefully. Telling him the truth might provide Kira with a chance to escape, to hide. But it could also sign our death warrants if he perceives me as a threat, which I am. So I give him a half-truth.
+I weigh my response carefully. I give him a half-truth.
 
 "I'm just a visitor. Wrong place, wrong time," I say, my voice steady despite the ice coursing through my veins.
 
