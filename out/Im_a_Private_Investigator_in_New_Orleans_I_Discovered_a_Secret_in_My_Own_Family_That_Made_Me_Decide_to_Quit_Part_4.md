@@ -50,7 +50,7 @@ The air feels stagnant, heavy with her admission. Reine’s voice slices through
 
 Kira looks down, her hands clasped so tightly her knuckles turn white. "They started to talk about contacting [other](https://www.youtube.com/watch?v=MGd1F6Ay8ho)... entities. Beings beyond our understanding. Xuan was convinced we could bridge the gap between worlds."
 
-"And you believed him?" I press, disbelief and disappointment coloring my tone.
+"And you believed him?" I press.
 
 She shakes her head, a tear trailing down her cheek. "No, not at first. But then I saw things, Ash. Things I can't explain. Lights in the sky, shadows that moved on their own, voices from nowhere. They showed me proof, or what they claimed was proof."
 
@@ -64,9 +64,9 @@ The office is a reflection of Kira’s world, a realm of ancient languages and h
 
 As Kira flicks on the light, it casts a warm glow over the room, illuminating the artifacts of her scholarly pursuits. She unlocks a cabinet, her hands shaking ever so slightly as she retrieves a thick, leather-bound manuscript. It's ancient, the cover worn with age. She handles it with reverence of a holy relic.
 
-Kira lays the manuscript gently on the table, its pages yellowed with the passage of centuries. The room falls silent except for the faint creak of the leather as she opens the cover.
+She lays the manuscript gently on the table, its pages yellowed with the passage of centuries. The room falls silent except for the faint creak of the leather as she opens the cover.
 
-Kira's fingers trace the delicate, ancient script of the Chu Nom, the traditional Vietnamese calligraphy. "Xuan brought this to me," she says, her voice barely above a whisper. "He wanted me to translate it. Said it was vital for his... our research."
+Her fingers trace the delicate, ancient script of the Chu Nom, the traditional Vietnamese calligraphy. "Xuan brought this to me," she says, her voice barely above a whisper. "He wanted me to translate it. Said it was vital for his... our research."
 
 Kira turns the pages slowly, allowing us to take in the detailed illustrations and calligraphy. "This manuscript," she explains, her voice hushed as if the book itself might overhear, "chronicles the Mongol invasion of Vietnam in the 13th century."
 
@@ -176,7 +176,7 @@ Just then, I sense the presence before I see it, a slight disturbance in the sti
 
 The voice is barely above a whisper, but its icy command sends a jolt of adrenaline through me. Slowly, I raise my hands, showing them empty and palms out.
 
-As the cold metal of a suppressor presses firmly against my back, a shiver of cold dread runs down my spine. I can hear the stranger's steady breathing just inches from my ear, controlled and measured. I let my gun go without resistance, knowing full well that any sudden moves could be my last.
+As the cold metal of a suppressor presses firmly against my back, a shiver of cold dread runs down my spine. I can hear the stranger's steady breathing just inches from my ear, controlled and measured. 
 
 "Turn around. Slowly," the voice demands, a gravelly whisper that speaks of a deadly calm.
 
@@ -202,7 +202,7 @@ The intruder's finger tightens on the trigger, a hair's breadth from a decision.
 
 Suddenly, the door creaks open, and Reine steps into the room, her arms full of Mia's clothes. Her eyes are on the pile in her arms as she speaks. "Ash, you ready to—"
 
-She looks up, her eyes widening in shock as she sees the gun pointed at her. Time seems to slow down as the intruder swings his weapon toward Reine, his finger tensing on the trigger.
+Time seems to slow down as the intruder swings his weapon toward Reine, his finger tensing on the trigger. She looks up, her eyes widening in shock as she sees the gun pointed at her.
 
 Acting on pure instinct, I lunge at the stranger, my movement throwing off his aim. The bullet whizzes past Reine's head, embedding itself into the wall with a thud that echoes in the sudden silence.
 
