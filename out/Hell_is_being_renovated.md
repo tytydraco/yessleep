@@ -94,4 +94,4 @@ I welcomed the cold waters that washed them away, that cleaned the blood from my
 
 Now that I am among the living, given a second chance, I can’t find it in myself to take full advantage of it. I can’t stop thinking about death. Whether there will be another strange oversight, or if I will be placed exactly where I am supposed to be.
 
-I fear the sound of screaming and giggling children. I fear the tormented afterlife that awaits me. I fear what fresh damnation the Devil has devised for humanity because [hell is being renovated.](https://www.youtube.com/@theaurorafiles)
+I fear the sound of screaming and giggling children. I fear the tormented afterlife that awaits me. I fear what fresh damnation the Devil has devised for humanity because [hell is being renovated.](https://www.reddit.com/user/theAURORAfiles)

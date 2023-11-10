@@ -113,14 +113,25 @@ As those four or five worms finish, the rest open their mouths and I begin to he
 
 The secrets continue throughout the day and the Whisper Worms, as I came to call them, are forthcoming with answers to my frequent questions.
 
+^*victor* ^*chang* ^*is* ^*the* ^*neighborhood* ^*bicycle* ^*thief.* ^*he* ^*has* ^*four* ^*bicycles* ^*in* ^*his* ^*living* ^*room* ^*right* ^*now.* ^*sells* ^*them* ^*at* ^*pawn* ^*shops.*
 
-"Where is Denthraxis Molarion from?" I ask. I don't need to carefully enunciate my words. They simply understand me.
-
+They whisper to me, and in response I decide to change the topic asking them: "Where is this Denthraxis Molarion from?" I don't need to carefully enunciate my words. They simply understand me because they are a part of me. They're fused with me, growing as they are from my gums.
 
 ^*in* ^*sumeria* ^*he* ^*acquired* ^*the* ^*name,* ^*Denthraxis* ^*Molarion,* ^*by* ^*which* ^*we* ^*now* ^*praise* ^*him* ^*but* ^*the* ^*hittites* ^*knew* ^*him* ^*as* ^*Denthraxis* ^*Tarhunza* ^*and* ^*minoans* ^*before* ^*that* ^*worshiped* ^*Denthraxis* ^*Gnossionyx…the* ^*elamites* ^*before* ^*the* ^*minoans* ^*knew* ^*him* ^*as* ^*the* ^*all-knowing* ^*Denthraxis* ^*Kheshmari* ^*in* ^*their* ^*native* ^*tongue.* ^*he* ^*is* ^*one* ^*god,* ^*everlasting,* ^*and* ^*has* ^*gone* ^*by* ^*names* ^*that* ^*are* ^*legion.*
 
+I consider this for a moment and after the moment passes, they tell me:
 
-"What brings him here now?" I ask (although the words that come out of my toothless mouth sound more like *"ut rings em ere ow?"*)
+^*lily* ^*wallace,* ^*the* ^*old* ^*woman* ^*down* ^*at* ^*the* ^*end* ^*of* ^*the* ^*hall* ^*is* ^*spying* ^*on* ^*everyone.*
+
+"Everyone knows that," I say, but it comes out as *'ebry-un knows at.'*
+
+^*but* ^*did* ^*you* ^*know* ^*she* ^*looks* ^*through* ^*your* ^*trash?*
+
+I reply that I did not know *that.*
+
+^*we* ^*didn't* ^*think* ^*so.*
+
+Feeling bolder, I ask: "What brings Denthraxis here now?" (although the words that come out of my toothless mouth sound more like *"ut rings Benraxus ere ow?"*)
 
 
 ^*the* ^*great* ^*dark* ^*one* ^***Molarion*** ^*was* ^*summoned* ^*hence* ^*by* ^*a* ^*follower–a* ^*resident* ^*of* ^*your* ^*village* ^*of* ^*evercrest* ^*grove* ^*apartments.*
@@ -153,7 +164,7 @@ Three to five voices gives each of these replies but after speaking the words "M
 \__________________
 
 
-It is about 5:00 in the afternoon, I've called out from work. I assume everyone here has because the Whisper Worms have explained a lot of things to me. Their master calls them the Psyktar Rumalarvae and their job is to make us his loyal followers. They explain to me that we are each forbidden to leave. If I do try to leave, they explain, the men at the gates will kill me for my efforts. Eight men with guns quickly made deals with Denthraxis Molarion's minions in the morning to ensure that their darkest secrets remained untold. They posted themselves guard at the gates to the complex in exchange for the Whisper Worms' silence. 
+It is about 5:00 in the afternoon, and I've called out from work. I assume everyone here has because the Whisper Worms have explained a lot of things to me. Their master calls them the Psyktar Rumalarvae and their job is to make us his loyal followers. They explain to me that we are each forbidden to leave. If I do try to leave, they explain, the men at the gates will kill me for my efforts. Eight men with guns quickly made deals with Denthraxis Molarion's minions in the morning to ensure that their darkest secrets remained untold. They posted themselves guard at the gates to the complex in exchange for the Whisper Worms' silence. 
 
 There were rules. Denthraxis's followers must be kept small in number–no more men or women than the number of that of a small village–else the darkest of secrets that everyone under his influence kept hidden would carry less power. Secrets are more powerful kept close at hand, in small groups. If I do manage to escape the complex, the Whisper Worms will share the one secret that would destroy me with everyone here. I'd go to jail…
 
