@@ -24,27 +24,26 @@ She smirks, mischief dancing in her eyes despite the weight of the situation. �
 
 Using the crowd to our advantage, we exit the car and meander towards Lockhart's vehicle. Reine takes the lead, her arm casually looped around mine. To any onlooker, we’re just a couple out for a leisurely walk.
 
-As we near Lockhart’s sleek sedan, Reine leans into me, her head resting gently on my shoulder, her fingers subtly brushing the underside of the car. It’s done so seamlessly that even with my knowledge of her intentions, I barely register the moment she affixes the tracker.
+As Reine is about to attach the tracker, a voice calls out from behind us, startling both of us. 
 
-We’ve barely taken ten steps away from the vehicle when Lockhart’s voice cuts through the ambient street noise.
+As we approach Lockhart's car, I feel the tension in Reine's grip on my arm. Every step is calculated, her eyes constantly scanning for an opening. The tracker is subtly palmed in her hand, ready for the opportune moment.  
+But just as Reine is about to make her move, a voice calls out from behind us. "Excuse me, miss?"  
+We both freeze. Turning around, we see Lockhart standing a few steps away, an unreadable expression on her face. She's holding an indigo scarf in her hand, extending it towards Reine. "I believe you dropped this."
 
-“You there!”
+Reine quickly regains her composure, a surprised and grateful smile flashing across her face. “Oh, my God! Thank you so much!” Reine quickly replies, feigning a thick New York accent, her voice filled with exaggerated gratitude. “I’d hate to come back from vacation and find out I lost it!”
 
-Both of our hearts [freeze](https://www.reddit.com/r/nosleep/comments/14c93t1/im_an_arctic_researcher_we_accidentally_released/), and a [cold](https://www.youtube.com/watch?v=baUKK0y48QE&t=2990s) sweat forms at the base of my neck. We turn around slowly, preparing to face the consequences of our daring act. The icy blue eyes of Ms. Lockhart bore into us, and there’s an unsettling glint in her gaze.
-
-“You dropped this,” she says, holding up Reine’s delicate, indigo scarf, which must’ve slipped from her neck during our ruse.
-
-“Oh, my God! Thank you so much!” Reine quickly replies, feigning a thick New York accent, her voice filled with exaggerated gratitude. “I’d hate to come back from vacation and find out I lost it!”
+As she reaches out to take the scarf, her fingers deftly slide the tracker back into her pocket, the opportunity to plant it now lost. Lockhart's gaze flickers between us, a hint of suspicion lurking in her icy blue eyes.
 
 I quickly catch on, and chiming in, I add, “Thanks, ma’am. Always losin’ something, this one. Can't take her anywhere!” My voice is thick with the Bronx twang, striving to mask any recognizable traits of my true voice.
 
-Lockhart's penetrating gaze lingers on us for a few unnerving moments, trying to discern any hint of deception. But then, with a subtle tilt of her head, she offers a polite nod. "You’re welcome," she replies, her accent dripping with British formality. With one last glance, she enters her vehicle and drives off.
+"You're welcome," Lockhart replies, her voice as smooth as silk. "Be more careful next time. It's a beautiful piece."  
+Reine nods, wrapping the scarf around her neck. "I certainly will. Thank you again."  
+Lockhart gives us a curt nod before turning back towards her car. As we watch the car disappear into the distance, the weight of the moment pressing heavily upon us.
 
-As we watch the car disappear into the distance, we exhale simultaneously, the weight of the moment pressing heavily upon us.
+Despite failing to plant the tracker, we breath a sigh of relief knowing we didn't raise Lockhart's suspicions. Sometimes, in the shadowy world of private investigation, an unnoticed failure is the next best thing to a quiet victory.
 
-“That was close,” I whisper.
-
-Reine smirks, twirling the scarf around her fingers. "Never a dull moment with you."
+"That was too close," I murmur as we walk back to our car.   
+Reine glances at the retreating vehicle, a thoughtful look on her face. "We need to be more careful. She's not someone to underestimate."
 
 —
 
