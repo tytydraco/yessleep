@@ -1,8 +1,8 @@
 Myers Rock is a small island off of Newburyport in Massachusetts. There’s one bridge that connects to the mainland. During the summer Myers Rock is busy. With its beaches and summer homes it’s quite the attraction, however, in the winter there’s barely anyone on the island. Some would feel unnerved with the absence of people, but not me. I love the quiet and empty streets. I’m not a misanthrope or anything, I just like to be alone sometimes. 
 
-Outside was a nor’easter, which is a bad storm we get in New England. Most of the few remaining families had evacuated the island. I could have left too, fled to the mainland like the others to ride out the storm in a nice hotel, but that wasn’t me. No, I was a true New Englander and a little nor’easter never shook me.
+Outside was a nor’easter, which is a bad storm we get in New England. Most of the few remaining families had evacuated the island. I could have left too, fled to the mainland like the others to ride out the storm in a nice hotel, but that’s not me. No, I am a true New Englander and a little nor’easter never shook me.
 
-I’m sitting in my living room with a cocktail, watching the choppy Atlantic and snow. The wind howled. Then I see something on the beach. Was that a light?
+I’m sitting in my living room with a cocktail, watching the choppy Atlantic and snow. The wind was howling. Then I see something on the beach. Was that a light?
 
 I put my drink on the side table and get up from my chair to investigate. It was hard to make out in the storm but it looked like a child was on the beach. 
 

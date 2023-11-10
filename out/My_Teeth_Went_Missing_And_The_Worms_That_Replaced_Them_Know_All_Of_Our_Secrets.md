@@ -115,7 +115,7 @@ The secrets continue throughout the day and the Whisper Worms, as I came to call
 
 ^*victor* ^*chang* ^*is* ^*the* ^*neighborhood* ^*bicycle* ^*thief.* ^*he* ^*has* ^*four* ^*bicycles* ^*in* ^*his* ^*living* ^*room* ^*right* ^*now.* ^*sells* ^*them* ^*at* ^*pawn* ^*shops.*
 
-They whisper to me, and in response I decide to change the topic asking them: "Where is this Denthraxis Molarion from?" I don't need to carefully enunciate my words. They simply understand me because they are a part of me. They're fused with me, growing as they are from my gums.
+They whisper to me, and in response I decide to change the topic asking them: "Where is this Denthraxis Molarion from?" I don't need to carefully enunciate my words. They simply understand me because they are a part of me. They're fused with me, growing as they are from my gums. I feel them squirming uncomfortably, deciding whether or not they should answer me at all...then they do...
 
 ^*in* ^*sumeria* ^*he* ^*acquired* ^*the* ^*name,* ^*Denthraxis* ^*Molarion,* ^*by* ^*which* ^*we* ^*now* ^*praise* ^*him* ^*but* ^*the* ^*hittites* ^*knew* ^*him* ^*as* ^*Denthraxis* ^*Tarhunza* ^*and* ^*minoans* ^*before* ^*that* ^*worshiped* ^*Denthraxis* ^*Gnossionyx…the* ^*elamites* ^*before* ^*the* ^*minoans* ^*knew* ^*him* ^*as* ^*the* ^*all-knowing* ^*Denthraxis* ^*Kheshmari* ^*in* ^*their* ^*native* ^*tongue.* ^*he* ^*is* ^*one* ^*god,* ^*everlasting,* ^*and* ^*has* ^*gone* ^*by* ^*names* ^*that* ^*are* ^*legion.*
 
@@ -123,7 +123,7 @@ I consider this for a moment and after the moment passes, they tell me:
 
 ^*lily* ^*wallace,* ^*the* ^*old* ^*woman* ^*down* ^*at* ^*the* ^*end* ^*of* ^*the* ^*hall* ^*is* ^*spying* ^*on* ^*everyone.*
 
-"Everyone knows that," I say, but it comes out as *'ebry-un knows at.'*
+"Everyone knows that," I say, but it comes out all gummy and wrong.
 
 ^*but* ^*did* ^*you* ^*know* ^*she* ^*looks* ^*through* ^*your* ^*trash?*
 
