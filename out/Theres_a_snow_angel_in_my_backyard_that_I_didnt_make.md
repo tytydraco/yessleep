@@ -102,7 +102,7 @@ Looking down the stairs, I saw that snowy footprint matching the ones I saw outs
 
 &#x200B;
 
-I aimed the rifle at where I thought it was, causing Emma to let out a shriek. Before she could say anything else, I pulled the trigger. The blast rang in my ears, but I ignored the piercing ringing in my ears to open my eyes. Everything seemed to move in slow motion as Emma fell to the ground, blood coating her chest. For a moment, I questioned everything. Had all of this been some paranoia-induced fantasy? Had I just imagined all of this?
+I aimed the rifle at where I thought it was, causing Emma to let out a shriek. Before she could say anything else, I pulled the trigger, the blast piercing my ears with a horrific screech. Everything seemed to move in slow motion as Emma fell to the ground, blood coating her chest. For a moment, I questioned everything. Had all of this been some paranoia-induced fantasy? Had I just imagined all of this?
 
 &#x200B;
 
@@ -122,7 +122,7 @@ Emma grabbed my shoulder, causing me to turn to her. "Let's go upstairs, alright
 
 &#x200B;
 
-It would have been impossible to explain this to the police, so... We didn't. We had our glass door fixed, installed various security cameras, and made sure to keep the blinds closed at all times. I considered moving, but considering our financial situation, and how much Rachel would complain, we couldn't. Emma got her gun license, which she insisted wasn't because of what happened that night, and Rachel soon forgot about the incident entirely.
+It would have been impossible to explain this to the police, so... We didn't. We had our glass door fixed, installed various security cameras, and made sure to keep the blinds closed at all times. I debated moving, but considering our financial situation, and how much Rachel would complain, we couldn't. Emma got her gun license, which she insisted wasn't because of what happened that night, and Rachel soon forgot about the incident entirely.
 
 &#x200B;
 
