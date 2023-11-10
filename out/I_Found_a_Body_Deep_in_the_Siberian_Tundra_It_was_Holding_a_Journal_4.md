@@ -104,6 +104,8 @@ By tomorrow, I’ll have answers. Or so I hope. Until then, my modus operandi wi
 
 Stay safe, out there.
 
+[Part 5 (FINAL)](https://www.reddit.com/r/nosleep/comments/17sa3xv/i_found_a_body_deep_in_the_siberian_tundra_it_was/)
+
 ___
 
 [RPH](https://www.reddit.com/r/rephlect/)
