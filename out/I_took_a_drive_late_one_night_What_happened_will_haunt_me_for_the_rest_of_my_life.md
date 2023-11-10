@@ -127,7 +127,7 @@ I woke up in a hospital room, a bandage covering my head and one arm in a sling.
 Then they told me how I’d been found. How, a father and son who owned a gas station nearby had been out driving, and had come across first my destroyed Honda, which had wrapped itself around a tree and then some, and then, lying unconscious in the grassy ditch, me. They didn’t say who they’d been. But I had a fair idea who they’d been. At least, the son, anyways.   
 
 
-That night was two months ago. I’ve been at home, resting and healing this entire time. It’s given me plenty of time to think. Plenty of time to process…everything. I try not to think about that night. About any of it. I feel like I’ll go insane if I do. Especially after the police told me that they found nobody else at the scene of the wreck. Only the passenger door hanging open.  
+That night was three months ago. I’ve been at home, resting and healing this entire time. It’s given me plenty of time to think. Plenty of time to process…everything. I try not to think about that night. About any of it. I feel like I’ll go insane if I do. Especially after the police told me that they found nobody else at the scene of the wreck. Only the passenger door hanging open.  
 
 
 But I’ve had to, after receiving an email from an unknown address. One claiming to be the son, the kid I saw in the gas station that night. He told me things. Things that his father told him he’d seen for years. That he didn’t believe at all. Until that night. When he looked out the door at my car. That’s when he’d frantically called his father.  
