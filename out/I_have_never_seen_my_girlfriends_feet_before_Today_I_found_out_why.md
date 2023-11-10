@@ -138,7 +138,7 @@ Audrey's soft voice pierced the silence. My entire body jolted in shock and my h
 
 &#x200B;
 
-"Touch it." Her voice was firmer this time. *Demanding*. It didn't sound like Audrey. It sounded like... like...
+"Touch it." Her voice was firmer this time. *Demanding*. It didn't sound like Audrey. She almost sounded like... like Claire.
 
 &#x200B;
 
