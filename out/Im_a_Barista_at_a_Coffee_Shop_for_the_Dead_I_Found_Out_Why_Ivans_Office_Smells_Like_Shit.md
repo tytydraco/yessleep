@@ -160,6 +160,8 @@ Steven sighed and locked eyes with Ivan before pursing his lips and nodding. “
 
 Sooo, yeah. That was the time that I discovered two rotting carcasses in my boss’s office a week after starting at my new job. 0/10 Would not recommend. I wish I could say the weirdness maxed out there. But, unfortunately, this was only the [beginning.](https://www.reddit.com/r/HorrorJunkie123/)
 
-[Part 4](https://www.reddit.com/r/nosleep/comments/17rlyx0/im_a_barista_at_a_coffee_shop_for_the_dead_frank/?utm_source=share&utm_medium=web2x&context=3) 
+[Part 4](https://www.reddit.com/r/nosleep/comments/17rlyx0/im_a_barista_at_a_coffee_shop_for_the_dead_frank/?utm_source=share&utm_medium=web2x&context=3)
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/17t389w/im_a_barista_at_a_coffee_shop_for_the_dead/?utm_source=share&utm_medium=web2x&context=3) 
 
 &#x200B;

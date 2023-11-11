@@ -230,4 +230,6 @@ He sternly locked eyes with me, his visage cold and unwavering.
 
 [Part 3](https://www.reddit.com/r/nosleep/comments/17q3oz9/im_a_barista_at_a_coffee_shop_for_the_dead_i/?utm_source=share&utm_medium=web2x&context=3)
 
-[Part 4](https://www.reddit.com/r/nosleep/comments/17rlyx0/im_a_barista_at_a_coffee_shop_for_the_dead_frank/?utm_source=share&utm_medium=web2x&context=3) 
+[Part 4](https://www.reddit.com/r/nosleep/comments/17rlyx0/im_a_barista_at_a_coffee_shop_for_the_dead_frank/?utm_source=share&utm_medium=web2x&context=3)
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/17t389w/im_a_barista_at_a_coffee_shop_for_the_dead/?utm_source=share&utm_medium=web2x&context=3) 
