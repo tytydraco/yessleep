@@ -48,7 +48,7 @@ I had no doubt Thanksgiving 2022 was going to be just as insufferable.
 
 I had been hoping to use the *I'm almost eighteen* excuse, but Mom was winning me over with surprise shakes. 
 
-The shake was as sickly as I remembered. I downed half of it, sure I was going to upchuck whipping cream everywhere. The diner was our special place. Even the booth was ours. Ever since I was a kid, it was always the second booth from the door. I sat by the window, Mom opposite me. I found my gaze wandering. The seat next to Mom felt too empty. Like someone was supposed to be sitting there. There was that feeling again. Loneliness I didn't understand. It was always just me and Mom. So, why were my eyes stinging? 
+The shake was as sickly as I remembered. I downed half of it, sure I was going to projectile whipping cream everywhere. The diner was our special place. Even the booth was ours. Ever since I was a kid, it was always the second booth from the door. I sat by the window, Mom opposite me. I found my gaze wandering. The seat next to Mom felt too empty. Like someone was supposed to be sitting there. There was that feeling again. Loneliness I didn't understand. It was always just me and Mom. So, why were my eyes stinging? 
 
 "Seri." 
 
@@ -56,7 +56,7 @@ Mom's voice tore me from my thoughts. I had been absently staring at the seat ne
 
 Mom's expression crumpled. "How…?" 
 
-"You conveniently brought me my favorite shake the day before Thanksgiving," I rolled my eyes when her lips broke out into a wide smile. It's not like I had a choice. Before she could burst from excitement, though, I pulled the note from my pocket and smoothed it out in front of her. "On one condition," I slurped up the last of my shake. Dangerous territory. I was going to barf if I kept downing the dregs of chocolate syrup sticking to the bottom of the glass. "Can you tell me who wrote this?" 
+"You conveniently bought me my favorite shake the day before Thanksgiving," I rolled my eyes when her lips broke out into a wide smile. It's not like I had a choice. Before she could burst from excitement, though, I pulled the note from my pocket and smoothed it out in front of her. "On one condition," I slurped up the last of my shake. Dangerous territory. I was going to barf if I kept downing the dregs of chocolate syrup sticking to the bottom of the glass. "Can you tell me who wrote this?" 
 
 I don't think I had ever seen her go that pale before. 
 
@@ -92,7 +92,7 @@ Mom wanted to believe her own BS.
 
 She made it out like she was fixing her makeup, though I could have sworn there were tears in her eyes. "His name was Noah," Mom pulled out the note and waved it in my face, though I noticed she was gripping it a little too hard. She slapped it on the table, like she was putting the final card down, almost breathless, her smile widening. 
 
-She was winning the game. 
+Mom was winning the game. 
 
 I could hear her triumph in every word. "You kids used to spend all day playing video games. Noah was a… sweet child. He was always polite, and stayed for dinner when his parents were at work." she swiped at her eyes again, her lips twitching like she was going to speak, but instead she stayed silent.
 
@@ -406,7 +406,7 @@ I could no longer feel pain, my body was numb. But it wasn't a mercy. The more t
 
 But it was getting harder to string words together in my mouth. 
 
-Happy 250th birthday, Mother.”
+"Happy 250th birthday, Mother.”
 
 The lights flickered, and Noah let out a breath. 
 
