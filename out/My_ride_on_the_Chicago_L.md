@@ -1,4 +1,4 @@
-The rattling of the Chicago L was a familiar and comforting sound to me, having ridden it countless times during my daily commute.
+The rattling of the Chicago L is a familiar and typically comforting sound to me, having ridden it countless times during my daily commute.
 
 This morning, I sat in a relatively empty car, gazing out at the waking city around me. I mainly thought a lot about the day ahead. I'm currently teaching what I consider the most challenging book of the semester from my list, *The Brothers Karamazov*. While Alyosha's story is a beautiful, tragic tale... I find it can be a little overburdening for my seniors.
 
@@ -52,4 +52,4 @@ The enigma of that fateful encounter was too much for me, and I couldn't help bu
 
 I've been here at home since... wondering if I should try to find this boy and talk to him.
 
-Because mainly I wondered if he also had a memory... it would be more vivid than mine, of handing over a set of dice to the demon the next time he saw it.
+Because mainly I wondered if he also had a memory... it would be more recent and vivid than mine, of handing over a set of dice to the demon the next time he saw it.
