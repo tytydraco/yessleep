@@ -100,6 +100,12 @@ With a loud crack, he stumbled backward and fell to the ground.
 
 I survived because others didn’t. But that’s the most I have the ability to share for right now. I’ll explain more [later](https://www.facebook.com/P-F-McGrail-181784199029462/).
 
+------------
+
+[Here's who survived](https://redd.it/17stets)
+
+-------------
+
 [BD](https://www.reddit.com/r/ByfelsDisciple/)
 
 
