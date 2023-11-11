@@ -9,7 +9,7 @@ After he told us how to play, Tony went and turned off every light in the house.
 
 15 minutes, passed, and nothing. I was getting a bit anxious, and I saw Tony was as well. After another 5 minutes, I was about to say something to Tony when I heard someone coming. So I hid back down, and I didn't recognize the person. He was wearing a dark cloak, and it looked like his face was the void..... he was holding a bloody knife. I looked to Tony, and we were both frozen, scared shitless. 
 
-After another 5 minutes, the person went deeper in the woods and made a run for it to the house. As we got in, I grabbed the landline and dialed 9-1-1. The phone ran, and then it didn't. It died almost instantly.  We decided to find hiding places again, and I hid under the bed in the master bedroom. I wasn't sure where Tony hid.
+After another 5 minutes, the person went deeper in the woods and we made a run for it to the house. As we got in, I grabbed the landline and dialed 9-1-1. The phone ran, and then it didn't. It died almost instantly.  We decided to find hiding places again, and I hid under the bed in the master bedroom. I wasn't sure where Tony hid.
 
 2 hours passed, and I heard the intruder come in. My heart was racing, If this was Jeremy or Adam playing a prank, I was going to kill them. I heard them walk around, and then it happened. I heard Tony's screams. Oh God, his screams. I ran out from my hiding place, and then it went dark.
 
