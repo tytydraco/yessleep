@@ -118,7 +118,7 @@ The skinwalkers, their unity fractured, turn their attention towards me, a multi
 
 Daak’os emerges from the fire, a horror reborn, its form charred but unbroken. With a swift and cruel motion, it plunges its claws into Ben’s chest. The sound is terrible, a wet, final noise that echoes across the mesa, a death knell that seems to pierce the night itself. Ben's body jerks once, a puppet with its strings cut, and then falls limp.
 
-With a defiant cry that echoes across the desolate landscape, I hurl the Heart through the tumultuous air towards him. Time narrows to a single thread, stretching taut as the stone cleaves through the night. It glimmers like a star against the darkness, a fleeting hope against the encroaching despair.
+With a defiant cry that echoes across the desolate landscape, I hurl the Heart through the tumultuous air towards the Demon Slayer. Time narrows to a single thread, stretching taut as the stone cleaves through the night. It glimmers like a star against the darkness, a fleeting hope against the encroaching despair.
 
 The skinwalkers lurch forward in a grotesque ballet, their claws extended, trying to intercept the stone's flight. But their movements are sluggish, disjointed by the loss of their collective will, their forms stumbling over one another in a disarray that was once unthinkable.
 

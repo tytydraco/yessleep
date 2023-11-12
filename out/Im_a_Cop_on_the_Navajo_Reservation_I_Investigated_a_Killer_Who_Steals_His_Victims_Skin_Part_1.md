@@ -274,7 +274,7 @@ Without hesitation, I jam the taser into her side and squeeze the trigger. A dea
 
 Izzy, seizing the opportunity, fires her gun. The shot rings out loud and clear. The bullet grazes the creature's shoulder, sending a spray of dark, thick blood splattering across the room. With another guttural scream, the creature pushes off me, scrambling away with an unnatural speed. Its movements are erratic, a blend of human desperation and animalistic panic.
 
-Before Izzy can fire another shot, the creature lunges at her with startling speed, knocking her off her feet with a powerful shove. The impact sends Izzy crashing into a nearby bookshelf, books and keepsakes raining down around her. The creature doesn't linger, instead darting towards the broken window and leaping out in a single bound.
+Before Izzy can fire another shot, the creature lunges at her with startling speed, knocking her off her feet with a powerful shove. The impact sends her crashing into a nearby bookshelf, books and keepsakes raining down around her. The creature doesn't linger, instead darting towards the broken window and leaping out in a single bound.
 
 The silence that follows is deafening.
 
