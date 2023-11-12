@@ -292,7 +292,7 @@ Usually, the rule was for me to stay out of the dining room until dinner. I wait
 
 “Mom.” I said through a sharp breath. I thought it was a joke at first, some stupid joke between adults. Except this joke had been going on for too long. I situated myself in front of her, waving my arms. “Mom, why are you ignoring me?” 
 
-It wasn't just ignorance, I quickly came to realize. My family had decided to pretend I didn't exist. I sat down with them for dinner at my usual place. I noticed there were more plates than needed at the table, including one for me. Which was ignored. There were only my parents and my Grandma, but there were right sets of plates and silverware. A glass was set in front of me but it wasn't filled.
+It wasn't just ignorance, I quickly came to realize. My family had decided to pretend I didn't exist. I sat down with them for dinner at my usual place. I noticed there were more plates than needed at the table, including one for me. Which was ignored. There were only my parents and my Grandma, but there were eight sets of plates and silverware. A glass was set in front of me but it wasn't filled.
 
 When I reached to fill my own plate, since Mom had seemingly forgotten my existence, the food was swiped from the table before I could wrap my hands around the potato salad. 
 
@@ -300,7 +300,7 @@ I tried to grab the gravy.
 
 Same thing. Dad reached for it for his own dinner, ignoring my protests. 
 
-When my family were eating, laughing and joking around, I sat back in my chair, frustrated tears stinging my eyes. I started to b notice it in slight splinters at the corner of my eye. When I was glaring at my mother eating the last of the turkey and giggling over the rim of her glass, something next to me moved. 
+When my family were eating, laughing and joking around, I sat back in my chair, frustrated tears stinging my eyes. I started to notice it in slight splinters at the corner of my eye. When I was glaring at my mother eating the last of the turkey and giggling over the rim of her glass, something next to me moved. 
 
 A fork slid across the table, daintily jumping into the air, and hovering for a moment before dropping onto the floor. 
 
