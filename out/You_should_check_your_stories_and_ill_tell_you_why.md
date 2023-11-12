@@ -2,7 +2,7 @@ Hi.
 I'm Luna.  
 I'm from a comic book reality.  
   
-I'm posting here to warn you about something.  
+I'm posting here to warn you.  
   
 When you write a story, you have to be careful whether your story is badly written or not, otherwise what we call the "Black Sea" will destroy that reality with its contents and there will be nothing left but dead versions of the writings you see.  
   
@@ -22,9 +22,9 @@ This thing comes into realities with badly written stories and destroys them unt
 I have encountered it many times and I can tell you that I doubt whether this thing has a mind.  
   
 This thing is a natural disaster.  
-You can see it coming with technology, but you can't do anything to prevent it except fix the story.  
+You can see it coming with technology, but you can't do anything to prevent it.  
   
-If the story doesn't get fixed until the time comes to that reality... That's the end of it.  
+If the story is bad written... That's the end of it.  
   
 Let me tell you my story.  
 So maybe you can understand it better.  
@@ -197,4 +197,4 @@ but maybe I'll tell you about that another time.
 Take care of yourselves.  
 And remember:  
 Check your own stories...  
-Otherwise, both you and Kara Deniz will be responsible for the destruction of your stories.
+Otherwise, both you and Black Sea will be responsible for the destruction of your stories.
