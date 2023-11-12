@@ -132,7 +132,7 @@ I took a deep gulp of water before responding. “Thanks. I hope you’re right.
 
 Impulsively, my hand went to the stretch of skin under my chin that I’d had to cover with turtlenecks for weeks. Hannah had been the only person I’d shown the bruise to, and it had taken me enormous effort for me to convince her not to call law enforcement.
 
-I’d understood something that Hannah hadn’t: that, if a member of our small town’s police force came by, they’d sooner believe whatever lie my dad told him than the truth.
+I’d understood something that Hannah hadn’t: that, if a member of our small town’s police force came by, they’d sooner believe whatever lie my dad told them than the truth.
 
 “But you didn’t do anything wrong,” Hannah insisted, “and your dad isn’t going to hurt you, or Aaron for that matter. He’s in the same place he’s been for a while, and he’s not going anywhere else anytime soon.”
 
@@ -172,7 +172,7 @@ I woke up covered in sweat. To my relief, I realized that I’d simply dozed off
 
 “*Everything's fine,*” I repeated to myself as my heart rate slowly regressed back to normal. I switched on the television, hoping that maybe some late night offerings would calm my nerves. Instead, the image that displayed – presumably, on the channel mom had last been watching – was of a fire-and-brimstone preacher speaking at a pulpit. I quickly turned it off.
 
-My mind drifted to my surroundings. The ticking of the grandfather clock brought back childhood memories of playing with dolls on the carpet in front of it. I’d spend hours engrossed in my own imagination, doing my best to ignore the sounds dad screaming at mom.
+My mind drifted to my surroundings. The ticking of the grandfather clock brought back childhood memories of playing with dolls on the carpet in front of it. I’d spend hours engrossed in my own imagination, doing my best to ignore the sounds of dad screaming at mom.
 
 I recalled what he often told me as he led me from there up to my bedroom: that God was always watching and listening, and that ‘impure’ thoughts would send me straight to hell. “If you stray from the path of God, *even just in your head*,” he’d say as I lay under the covers, “then there won’t be any room for you in His kingdom. Just the fire, screaming, and misery of Hell.”
 
