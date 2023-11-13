@@ -210,7 +210,7 @@ Understandably, Jeffrey hadn’t taken it well. I’d never really talked to him
 
 An idea dawned on me, one that could bring the closure I sought. *Fuck it*, I thought, for the second time that night, before slipping on a pair of tennis shoes, grabbing a jacket, and stepping into the cool breeze outside.
 
-It took my eyes a moment to adjust to the darkness. It was after midnight, after all, and we lived on the outskirts of town.
+It took my eyes a moment to adjust to the darkness. It was well after midnight, after all, and we lived on the outskirts of town.
 
 My destination was only a short walk away. At this hour, I’d normally drive, but, as I’d technically be trespassing, I figured I’d best make the trip on foot to avoid attracting the attention of any patrolman on night duty.
 
@@ -326,7 +326,7 @@ When he raised his head to look at me, he wasn’t the strong, muscular man I re
 
 With a shriek, I swung the axe again, this time digging a long gash into his should blade that severed his right arm from the rest of his body.
 
-“What the fuck is wrong with you?” I screamed, my anger over what he'd done to me, to mom, boiling over inside of me. “Why are you so fucking obsessed with - with *nonsense*? I was eleven years when you made me make that stupid pledge. *Eleven*.”
+“What the fuck is wrong with you?” I screamed, my anger over what he'd done to me, to mom, boiling over. “Why are you so fucking obsessed with - with *nonsense*? I was eleven years when you made me make that stupid pledge. *Eleven*.”
 
 “*Maria, daddy’s girl, don’t do this-*” He raised his left arm, futilely, in an attempt to shield himself from my blows.
 
@@ -344,9 +344,9 @@ My hands covered by thick work gloves, I lifted each garbage bag from the trunk 
 
 Using the shovel I’d brought with me, I sealed the hole’s narrow entrance with the dirt that had been knocked loose around it. Last, I patted the dirt as neatly as I could to cover any signs that a hole had been there in the first place.
 
-I couldn’t fix the altered headstone, but with any luck the authorities would conclude that nothing had happened beyond some superficial vandalism. There’d be no reason to do anything to the grave other than replace the headstone. I’d probably be questioned, but I wouldn’t fall under any suspicion. I had no reason to replace my own name with an obscenity, after all.
+I couldn’t fix the altered headstone, but with any luck the authorities would conclude that nothing had happened beyond some superficial vandalism. There’d be no reason to do anything to the grave other than replace the headstone. I’d probably be questioned, but I wouldn’t fall under any suspicion. I had no reason to carve an obscenity over my own name, after all.
 
-At home, I cleaned up much of the mess dad had made until nothing remained but a few dirty stains on the carpet. Finally, I stepped into the shower, where, under hot water, I scrubbed off the layer of sweat, dirt, and filth that, by this point, had covered my body.
+At home, I cleaned up much of the mess dad had made until nothing remained but a few stains on the carpet. Finally, I stepped into the shower, where, under hot water, I scrubbed off the layer of sweat, dirt, and filth that, by this point, had covered my body.
 
 When I stepped out, I stared at myself in the bathroom mirror, slowly taking in the fact that the face looking back at me belonged to a fundamentally different person than before.
 
