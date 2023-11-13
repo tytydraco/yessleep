@@ -258,7 +258,7 @@ My heart throbbed in fear as I stepped inside. Following a trail of soil and gri
 
 Unlike in my dream, he hadn’t yet reached my room. The figure paused, seemingly having sensed my presence, and turned towards me. Although the darkness continued to cover his features, I knew sense his body shaking with what I imagined to be a spiteful rage.
 
-The raspy voice was unmistakably my father's, if slightly deeper and rougher than I remembered. “*Daddy’s girl has been a bad.*”
+The raspy voice was unmistakably my father's, if slightly deeper and rougher than I remembered. “*Daddy’s girl has been bad.*”
 
 I responded as firmly as I could manage. “L-leave me alone.”
 
