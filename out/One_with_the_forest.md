@@ -14,21 +14,23 @@ Jermaine locked his car and went to the woods with Lucas. I held Clara's hand an
   
 So, he just came here to take pictures of animals? Well I suppose it's a good reason to go camping in woods like these, but I still felt weird. We picked a spot where we can rest for a bit, a small area of the woods with not too many trees around. Perfect camping spot. We set up the tents and I sat down to rest. I checked my phone, it was 15:30. Clara sat down next to me.  
   
-Clara: «Hey, are you feeling ok? Is something wrong?»  
+ «Hey, are you feeling ok? Is something wrong?»  
   
-Me: «Nope, just a bit nervous. It's my first time after all.»  
+«Nope, just a bit nervous. It's my first time after all.»  
   
-Clara: «I am sure that you will feel better very soon. If you get bored, just tell me, maybe we can chat or do anything fun together, ok?  
-  
+«I am sure that you will feel better very soon. If you get bored, just tell me, maybe we can chat or do anything fun together, ok?»
+
+«Thanks. I knew you can always cheer me up. I'll probably be fine. Go help these books set up a tent, they are struggling.»
+
 Clara smiled at me and kissed me on the cheek before going to Lucas and Jermaine, who failed to set up a tent. Clara had more experience with camping, since her father was a park ranger, so he taught her some lessons. I noticed a weird piece of paper on one of the trees next to me, so I got up and took a look. It was a missing person poster, a family of 4 have gone missing a year ago. Mother, father, daughter and son. The boy in particular looked like he was 5 years old. I decided to take a picture of the poster for later, just Incase I find them.   
   
 It was starting to get a little dark, so Lucas asked me and Jermaine to go looking for some wood to start a campfire. Lucas and Clara decided to stay in the camp, since Clara wanted to show Lucas how to make a proper tent. I sighed and went with Jermaine to the woods to get some twigs. Trees in these woods looked tall and quite old, but at the same time, perfectly untouched. While I looked around, I nearly fell into a lake, but thankfully Jermaine caught my hand. The lake was pretty, even though water was little green. I saw ducks floating in the distance, and I decided to watch them. I felt at peace, I never seen anything so pretty before. But Jermaine decided to ruin this peace by telling me that he found a corpse in the lake. I sighed and got up, what I saw was a corpse of a wolf floating. Never thought I'd see a dead body of a wolf, but here we are I guess. I told him that we already have enough twigs, so we should head to the camp.    
   
-On our way back, I felt like we were being watched. Jermaine thought that this could be a great opportunity to scare me, by making creepy sounds. I told him to stop, but after 3 minutes, he continued to do it again and again. I started to hear weird sounds coming from behind me, like some sort of gurgling and weird snapping. Thinking it was some sort of joke, I decided that enough is enough.  
+On our way back, I felt little nervous, especially after what I saw in the lake. Jermaine thought that this could be a great opportunity to scare me, by making creepy sounds. I told him to stop, but after 3 minutes, he continued to do it again and again. I started to hear weird sounds coming from behind me, like some sort of gurgling and weird snapping. Thinking it was some sort of joke, I decided that enough is enough.  
   
 «Dude! Stop that already!»  
   
-Instead of Jermaine standing behind me, I saw a deer. Jermaine was supposed to be with me.. why is there a deer standing behind me all of a sudden. I started at the deer for awhile, until it just turned around and ran into the woods. I started to feel a little scared, I tried to scream Jermaine's name but there was no answer. The twigs that he carried around were lying on the ground. I grabbed the twigs and ran to the camp. When I came back Clara and Lucas were already waiting for us. When Clara noticed that Jermaine is not with me, she asked me where he was. I told her that I had no idea. Clara and Lucas were as confused as I was. Clara noticed that I was in distress, so she brought me to her tent to calm me down.  
+Instead of Jermaine standing behind me, I saw a deer. Jermaine was supposed to be with me.. why is there a deer standing behind me all of a sudden. I started at the deer for awhile, until it just turned around and ran into the woods. I started to feel a little worried, I tried to scream Jermaine's name but there was no answer. The twigs that he carried around were lying on the ground. I grabbed the twigs and ran to the camp. When I came back Clara and Lucas were already waiting for us. When Clara noticed that Jermaine is not with me, she asked me where he was. I told her that I had no idea. Clara and Lucas were as confused as I was. Clara noticed that I was in distress, so she brought me to her tent to calm me down.  
   
 I told her everything, she believed every word I said, but she thought that Jermaine is probably pranking us. Jermaine was a big prankster and when he sees an opportunity to cause mischief, he gladly takes it. So I thought that maybe he is just trying to fool me, and the fact that the deer was following me may just be a coincidence. Clara hugged me and told me that everything is gonna be alright, and even if Jermaine did indeed go missing, they can call the police and ask them to search the forest.   
   
@@ -40,7 +42,7 @@ After 2 hours, we decided to cook some meals for us to eat. We listened to music
   
 «So you are saying that you came here, just to take pictures of mountain lions?»  
   
-«Well, yes. Because I never took a picture of a lion before-«  
+«Well, yes. Because I never took a picture of a lion before-»
   
 Our conversation got interrupted by the sudden scream coming from the woods, that resembled a sound that mountain lion would make. Lucas instantly decided that he should go and find it. Letting Lucas go into the woods on his own is a terrible idea, so we went after him. With flashlight in hand, we followed Lucas into the direction of the sound. Screams of the lion made me feel uneasy, they sounded way too uncanny. Clara told me that if we will see a lion we have to stay calm and stand our ground. Lucas suddenly stopped and crouched down behind a tree, we crouched as well. He grabbed his camera and prepared to take a photo of the lion that was standing right infront of our very eyes. We stayed quiet.   
   
