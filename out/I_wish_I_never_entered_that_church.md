@@ -62,7 +62,7 @@ Pause
 
 I chuckled lowly and opened my door, only to suddenly hear something from behind me. It was coming directly from the church.. I don't know how to describe it, but instead of it's usual overlapping bell chimes… it was a melody. Oh, it sounded so beautiful.. it sounded like what I would imagine inner peace would be like.. a serene and comforting feeling that wraps around you like a motherly hug. I was completely enthralled by this and just sat on the porch, closing my eyes and letting the music overtake me..
 
-I even recorded it just so I would have something to look back on: https://drive.google.com/file/d/15rkJj3\_aoeCR2aZRXS7EvhIZTijgRBeE/view?usp=drivesdk
+I even recorded it just so I would have something to look back on: https://drive.google.com/file/d/15rkJj3_aoeCR2aZRXS7EvhIZTijgRBeE/view?usp=drivesdk
 
  Looking back on it now, I wished I never would have stay on that porch.
 
