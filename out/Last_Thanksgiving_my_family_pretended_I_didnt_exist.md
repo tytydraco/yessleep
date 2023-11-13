@@ -310,7 +310,7 @@ Dad stopped chewing.
 
 Grandma stayed perfectly still. Her plate was still filled, as was her glass.
 
-I took the opportunity to stand up, making myself known. I picked up my own glass and dropped it onto the ground. “What is going on?” I demanded over the sound of glass shattering on the floor. Mom flinched, and a shiver crept down my spine, phantom bugs filling my mouth. “Mom, I know you can see me!” Before I could stop myself, I strode over to her and snatched her glass, throwing it at the wall. 
+I took the opportunity to stand up, making myself known. I picked up my own glass and dropped it onto the ground. “What is going on?” I demanded over the sound of shattering on the floor. Mom flinched, and a shiver crept down my spine, phantom bugs filling my mouth. “Mom, I know you can see me!” Before I could stop myself, I strode over to her and snatched her wine, throwing it at the wall. 
 
 Mom didn't even blink, though her gaze snapped to me for a fraction of a second, her hands trembling in mid air as if still holding her drink, before dropping into her lap. Her reaction was enough. Enough to make me feel invisible.
 
@@ -320,7 +320,7 @@ Like a barrier stood between us.
 
 I slumped back into my seat when they continued talking. 
 
-“I know you can see me!” I said again. 
+“I know you can see me!”  
 
 The lights above flickered, Mom flinching again. 
 
@@ -332,7 +332,7 @@ Suddenly, it was as if a barrier I didn't know existed was pierced through.
 
 The voice slammed into me, and I lifted my head. I exhaled, and I could see my breath. The world continued around us, my parents talking and eating, while I found myself plunged into this unknown, this limbo between reality and something else entirely. The table was a lot fuller than I remembered. The chair opposite me was occupied, a boy my age hiding behind a mess of blondish brown curls. 
 
-Something acidic crept up my throat. There was something wrapped around him, frayed rope binding his arms to the chair, his body to the table. There wasn't rope. There were chains, rusted and falling apart, pinning him to his seat. 
+Something acidic crept up my throat. There was something wrapped around him, frayed rope binding his arms to the chair, his body to the table. There wasn't just rope. There were chains, rusted and falling apart, pinning him to his seat. 
 
 Glancing down, I saw shackles around his ankles, loose chain running directly under the floor. This guy looked like he had been plucked directly from the past, and yet also had the expression of a 21st century teenager. There were creases in his face that shouldn't exist, streaks of grey in his hair. His clothes, a jacket and jeans, were hanging off of him, a skeletal figure drained of all life. He looked both seventeen and seventy, playful eyes almost mimicking those of a child. 
 
@@ -362,9 +362,9 @@ And I forgot my own fucking brother existed.
 
 Sitting next to Noah, willowy blonde hair turned grey and lifeless, was my little sister Alex. I forgot her four Thanksgiving’s ago, forced to turn away from my wailing sister screaming to be acknowledged, while phantom rope turned to real rope, coiling around her arms and snaking across her neck.
 
-Presently, Alex’s hand skeletel when she lifted it to wave. I could see the ugly rinds of skin, rugged and ancient. 
+Presently, Alex’s hand was skeletel when she lifted it to wave. I could see the ugly rinds of skin, rugged and ancient. 
 
-My sister Alex was a year younger than me. 
+My sister was a year younger than me. 
 
 Twelve, when I forgot her, and presently fifteen.
 
@@ -424,7 +424,7 @@ Mom’s voice was calm. She turned to my dad, “Sweetie, could you go upstairs?
 
 “This is new,” Alex hummed, my brother agreeing with a low murmur. 
 
-Dad’s face turned ghostly white. “But..” he laughed, but it was choked. “You said if we leave…” I had never seen my dad look so scared. Mom didn't speak, but her expression was final. Dad’s lip curled in disgust. He started to protest, only to shut his mouth. Still though, he stood up and nodded, leaving the table. 
+Dad’s face turned ghostly white. “But..” he laughed,  though it was choked. “You said if we leave…” I had never seen my dad look so scared. Mom didn't speak, but her expression was final. Dad’s lip curled in disgust. He started to protest, only to shut his mouth. Still though, he stood up and nodded, leaving the table. 
 
 When he shut the door, Mom turned to Grammy. 
 
@@ -454,7 +454,7 @@ When the ground rumbled, and the thing that was my grandma lowered her hands fro
 
 Mom wanted me to save her children.
 
-I did not cry or scream when my mother started to wither away, her skin peeling and then melting from her bones, when I jumped up on unsteady feet, grasping for my sisters chains and choking out her name. I was pulling my sister from the chair, when Mom dropped onto her knees in front of grandma, and begged for forgiveness. 
+I did not cry or scream when my mother started to wither away, her skin peeling and then melting from her bones when I jumped up on unsteady feet, grasping for my sisters chains and choking out her name. I was pulling my sister from the chair, when Mom dropped onto her knees in front of grandma, and begged for forgiveness. 
 
 Alex was already pulling a shaken looking Annalise to her feet, and Grandma let out an unearthly cry. 
 
@@ -462,7 +462,7 @@ The more of my family I was freeing, Mom was growing more haggard, her face sagg
 
 My hands were on Noah’s arms and pulling the ropes from his wrists, when our mother dropped to the floor, crumbling into dust. Grandma stood up, then, nothing but darkness hidden behind a pretty face. My hands were caught on Noah’s wrists, struggling through a particular knot, when Grammy, whose hair turned white, and then grey, opened her mouth, revealing razor sharp teeth. “Any day now,” Noah hissed out. He twisted around. 
 
-“I'm going as fast as I can,” I hissed out.
+“I'm going as fast as I can,” I whispered. 
 
 “Seri, she’s coming!”
 
@@ -514,7 +514,7 @@ Noah used to be SO smug that he could clear the island in like ten minutes. Trav
 
 I’ve fully moved in, and we’re in the middle of renovating the house. I've managed to turn the outlets on (Grammy had them turned off) and brought my laptop, as well as a bunch of things from storage that Mom and Dad threw away.
 
-Noah and Alex’s things were stuffed deep into our garage. We’ve been catching up on a lot. According to Annalise, our aunt had abandoned the family (and her) guilty of she was doing. I'm currently researching the nameless God that feasts on children's existences. Noah found old records of an adoption in 2006. Mom’s signature was on the paperwork. 
+Noah and Alex’s things were stuffed deep into our garage. We’ve been catching up on a lot. According to Annalise, our aunt had abandoned the family (and her) guilty of what she was doing. I'm currently researching the nameless God that feasts on children's existences. Noah found old records of an adoption in 2006. Mom’s signature was on the paperwork. 
 
 We have another brother. 
 
