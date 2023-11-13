@@ -28,7 +28,7 @@ I spent the rest of my sick day upstairs in my room. I was able to hear my broth
   
 Days went by, and the same pattern repeated itself. He was still smiling every time I saw him, and when I wasn’t looking, I could assume he smiled still. I would say that I was getting used to the smile, but, in all honesty, there was something that was making it hard to accept it. I couldn’t even get an answer out of him since all he would say was that he was just “happy”.  
   
-It changed one day. I got back from school after I started feeling better and saw that Alex wasn’t home before me. Instead, I saw mom and dad sitting in the kitchen. From body language alone, it seemed like they were urgently waiting for me to come back. Before I could ask where Alex was, Dad held my hand and talked to me.  
+It changed one day. I got back from school after I started feeling better and saw that Alex wasn’t downstairs. Instead, I saw mom and dad sitting in the kitchen. From body language alone, it seemed like they were urgently waiting for me to come back. Before I could ask where Alex was, Dad held my hand and talked to me.  
   
 “Son, go to your room.”  
   
