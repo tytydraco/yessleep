@@ -256,7 +256,7 @@ When I emerged into my backyard, the patio door was wide open, and the rock next
 
 My heart throbbed in fear as I stepped inside. Following a trail of soil and grime through the kitchen, I found myself at the foot of the staircase, where I looked up to see a tall form encased almost entirely in shadow.
 
-Unlike in my dream, he hadn’t yet reached my room. The figure paused, seemingly having sensed my presence, and turned towards me. Although the darkness continued to cover his features, I knew sense his body shaking with what I imagined to be a spiteful rage.
+Unlike in my dream, he hadn’t yet reached my room. The figure paused, seemingly having sensed my presence, and turned towards me. Although the darkness continued to cover most of his features, I could see his body shaking with what I imagined to be a spiteful rage.
 
 The raspy voice was unmistakably my father's, if slightly deeper and rougher than I remembered. “*Daddy’s girl has been bad.*”
 
