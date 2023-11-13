@@ -384,7 +384,7 @@ I felt myself grow a little red as I tightened my grip around him into a light e
 
 “No, I mean, it *shouldn’t* be normal. You deserve to enjoy it too, just as much as I do. I just want to say that, like, moving forward, if there’s anything I can do to make it better for you, then I want to do that.”
 
-I had a few ideas about that, thanks to the articles Hannah had sent me earlier. I nodded as a warm feeling spread through me, one of comfort and trust. “Thank you.”
+I had a few ideas about that, thanks to the material Hannah had sent me earlier. I nodded as a warm feeling spread through me, one of comfort and trust. “Thank you.”
 
 “I love you, Maria.”
 

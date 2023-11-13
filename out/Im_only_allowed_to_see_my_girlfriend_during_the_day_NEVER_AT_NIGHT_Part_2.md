@@ -64,7 +64,7 @@ Her breaths grow more trepidatious with each sentence. The horror of reliving th
 
 And I’m being lifted off the bed but for some reason I can’t scream. Everything is being drained from me too fast. And this monster is lifting me off the bed… I’m thinking, Jesus-Mary-and-Joseph, **this isn’t a dream at all… this is real… this is happening**… I try to fight it but it’s so strong. And it’s wet. It’s like… a tongue. I dig my fingers into it, but it doesn’t flinch. And I’m too weak. I can’t protect me or my baby no matter how hard I fight… I know how this must—” 
 
-Before she can finish, I interrupt, I need her to know, “I believe you.” Everything stops. 
+Before she can finish, I interrupt, I need her to know, “I believe you.” Everything stops.
 
 “You do?” She’s in disbelief. “If you can help me take this off, there are these marks where the thing bit me— You can hardly see them but they’re there— Doug says he saw them— ask Doug.” She goes on, each word twisting on itself. She is sane enough to know how fucking crazy it all sounds. 
 
@@ -86,17 +86,17 @@ Now Jean looks so petrified, she’s losing her breath. Must have been how I loo
 
 She forcefully thrashes and violently SLAMS her head on the edge of a chair. She rises up and a trail of blood comes down, dividing her face in two. Before orderlies rush in, she gets in another SMASH to the side of her head. More blood. One tries to restrain her, then another comes in to help. They hold her down and subdue her. And I sit there and watch. When she’s sedated, I back out of the room.
 
-Before she’s finally subdued, Jean fights to shriek, “IT’S HER! IT’S HER!”. 
+Before she’s finally subdued, Jean fights to shriek, “IT’S HER! IT’S HER!”.
 
 I get myself out of this place as urgently as I can. My cowardice is revolting. 
 
-Later that night, when I’m home alone, I have a dark night of the soul. There’s no such thing as caller ID or iPhones, but it doesn’t matter, I have an idea of who is calling my landline and what they have to say. I ignore the phone calls and collect deeper into myself. I know that everything that happened is entirely my fault, but I’m too small to accept responsibility. I don’t sleep. 
+Later that night, when I’m home alone, I have a dark night of the soul. There’s no such thing as caller ID or iPhones, but it doesn’t matter, I have an idea of who is calling my landline and what they have to say. I ignore the phone calls and collect deeper into myself. I know that everything that happened is entirely my fault, but I’m too small to accept responsibility. I don’t sleep.
 
 For the next week, I have two modes: “awake” and awake but with my eyes closed. Throughout it all, I think of Elisa. In human form. And every time, always when I least expect it… this cozy bouquet of reminiscences gets sawed apart by FLASHES OF THE DEMON. Despite it consistently being interrupted, dreaming of her and fondly recounting the sheltered, innocent interactions of falling in love is the only thing that seems to bestow upon me any escape. 
 
 Even though I am still primarily in disbelief, some pieces of Elisa begin to make sense. The rule of never seeing her at night. The scars. Even our last fight, the last time I saw her in her kitchen and I asked her what she does at night, and she replied, “I eat.” I can’t affirm the fact that she is a monster, *if* she is a monster… but I connect dots. Looking back, I am sifting through every moment with her and holding it up to the light of truth. Or was it a lie? *Was the ladies’ high tea where she overheard of the company in financial distress a lie? Was her passing on this information, helping me move up in my career, was that a lie too? Why? Every time she told me she loved me, was she lying?* 
 
-At work the next day, I’m a ghost. In a shell. I’m a mess. I can’t keep my calls straight. I go outside and smoke cigarettes. I don’t smoke. I’m clumsy. I haven’t actually slept, like really sleep, since I saw her transform, and that was… three… or was it four days ago? I reach for the phone. I tell myself: don’t call her. Yet I continue to dial. RING, RING. The ring of a real phone, they were called landlines back then, still are. 
+At work the next day, I’m a ghost. In a shell. I’m a mess. I can’t keep my calls straight. I go outside and smoke cigarettes. I don’t smoke. I’m clumsy. I haven’t actually slept, like really sleep, since I saw her transform, and that was… three… or was it four days ago? I reach for the phone. I tell myself: don’t call her. Yet I continue to dial. RING, RING. The ring of a real phone, they were called landlines back then, still are.
 
 She picks up. I don’t know it, but I’m smiling. 
 
@@ -106,7 +106,7 @@ After everything that’s happened this week, I can’t bring myself to talk. I 
 
 “I know it’s you, Will.” 
 
-I get sad. A thought bubbles up: This has gone too far… I’ve seen too much… It’s never going to go back to me and Elisa. “Elisa and I”, she would correct. The woman speaks nine languages and I don’t speak English good. That was a joke. Anyway, it hits me like a ton of bricks; this might be the last time I ever talk to her. It’s really over. 
+I get sad. A thought bubbles up: This has gone too far… I’ve seen too much… It’s never going to go back to me and Elisa. “Elisa and I”, she would correct. The woman speaks nine languages and I don’t speak English good. That was a joke. Anyway, it hits me like a ton of bricks; this might be the last time I ever talk to her. It’s really over.
 
 She goes on. “I hope you’re okay. Though I have a feeling you’re not. I called your mom. Sorry. She’s worried about you too. Just call her back, okay? I know we’re not seeing each other anymore, but that doesn’t mean I don’t care about you, Will. I love you.” 
 
@@ -184,13 +184,13 @@ Oh gosh. Fucking Jimmy. In as diplomatic of a way as I can manage, I tell my bos
 
  Smithson sighs and rubs his temples. “Will. Jimmy died in the hospital this morning. Not a lot is known about how, except it was all very sudden. He’s from a good family and his folks want to keep this all very hush-hush until they know more. So if you could help keep this discreet, we’d appreciate it.” 
 
-I’m stunned. I tell Smithson, “I’ll take as much of his client list as you wanna give and of course I’ll keep this quiet.” 
+I’m stunned. I tell Smithson, “I’ll take as much of his client list as you wanna give and of course I’ll keep this quiet.”
 
 He hands me a stack of Rolodex cards and I take them to my desk. I quietly go through them one by one. Thank heavens I don’t have Elisa. 
 
 Later I am so unnerved, I take a smoke break. Despite Smithson’s warnings to keep Jimmy’s death discreet, spooked whispers still circulate. I keep to myself and don’t engage but a thread on the patio pricks my ears: 
 
-*“My cousin, she’s a nurse in the ER at Mount Sinai, and she says Jimmy died of the same thing that Old Fashioned did…”* 
+*“My cousin, she’s a nurse in the ER at Mount Sinai, and she says Jimmy died of the same thing that Old Fashioned did…”*
 
 Old Fashioned was the nickname for the CEO of the company Elisa told me about. It was his favorite drink, I guess... So Jimmy died of blood loss a day after Elisa somehow knows he “goaded” me on. Old Fashioned died the same way, two days after Elisa tells me he’s fudging his company’s financials. The dots I’m connecting are hard to ignore. For the first time since our break up, I’m actually glad that we’re not together. The people who directly cross paths with Elisa seem to have an early and brutal expiration date. 
 
@@ -220,7 +220,7 @@ She can’t die in sunlight. *Well I knew that.* A stake through the heart won�
 
 My colleagues at the bank think I’m gunning for employee of the freaking year. No joke, guys are pulling me aside and asking me if I’m taking anything to give me my edge and where they can get it. Two years later, Tom Wolfe will release *Bonfire of the Vanities* where he terms men who do what I do “Masters of the Universe”. Wolfe comes up with this idea while observing me. In these forty-eight hours while I’m plotting to kill my ex so that my family can survive, I learn something so invaluable to my career it makes me rich beyond measure. I’m about to die and since there’s no better time to pay it forward, here’s the trick: Having a purpose far greater than money, gives one a wieldy laissez-faire attitude which, in turn, allows other wealthy people to entrust one with their money. Yes, it’s grossly ironic and the hardest part is finding that purpose. On this day of work, I make deals and speak every word like it is my last. If my measly money moves work, yippee ki-yay! If they don’t, I could be dead tonight. 
 
-I finish up around 2:30 and tell my assistant I’ll get to the rest of today’s business tomorrow, if there is one. Early this morning, I picked up a Chevrolet Cavalier with Massachusetts plates. This is the most popular car in 1985 and I need every advantage I can get. 
+I finish up around 2:30 and tell my assistant I’ll get to the rest of today’s business tomorrow, if there is one. Early this morning, I picked up a Chevrolet Cavalier with Massachusetts plates. This is the most popular car in 1985 and I need every advantage I can get.
 
 In the car, I change into sweatpants, a sweatshirt, and another trusty baseball cap, a Red Sox one. I am dumb enough to think the Sox cap may throw off any suspicion Elisa might have on the road. I even don a sticky mustache from an old Mr. T Halloween costume. I look like a real dork, but another real dork. 
 
@@ -234,7 +234,7 @@ On the road, I hang far back from Elisa, who is a shrewder driver than Ronaldo. 
 
 I’ve made the mistake of getting too close though. She checks her mirror and stares directly at me. SHIT. Then she expertly cuts across the lanes and takes the next exit. I have no choice but to follow… All the while she uses her eyes to drill into me. *This a test.* 
 
-I abruptly try to take the same exit, but incompetently do so. Lots of long honks and “Fuck you”s and one “Are you trying to kill me?” I see Elisa pulled over at a gas station, not pumping gas. She’s waiting for me. I pass her. I can’t get caught. I pull into a random driveway a few doors down, get out of the car, and walk into a stranger’s backyard. The children playing on a swing set yell “stranger!” when they see me. I run back to my car. 
+I abruptly try to take the same exit, but incompetently do so. Lots of long honks and “Fuck you”s and one “Are you trying to kill me?” I see Elisa pulled over at a gas station, not pumping gas. She’s waiting for me. I pass her. I can’t get caught. I pull into a random driveway a few doors down, get out of the car, and walk into a stranger’s backyard. The children playing on a swing set yell “stranger!” when they see me. I run back to my car.
 
 Elisa is no longer at the gas station and I speed back onto 495, where I pray she will be. I realize we’re in Queens and she probably can’t stop in such a populated area – more people to notice a half-woman demon-beast on their roof. When I get back on the highway and see her car further up, I thank my lucky stars and keep more distance between us. 
 
@@ -246,4 +246,4 @@ It is dark now. Only a half-moon tonight which will make the search-and-destroy 
 
 In what feels like the longest walk of my life, I make it to the orchard, when an unthinkable, unforeseen horror besets. The demon is swooping back. I run for the cover of the nearest apple tree which, in the dead of fall with shriveled leaves and no fruit, is barely any cover at all. She is sweeping over the autumn orchard, scanning for the prey half-witted enough to believe he was the hunter. I see a dead deer carcass in the distance, if I can make it to there… maybe…maybe… I have a chance. Now, she is hovering so close I can feel the gust of her colossal wings. The acidic burn of her breath as she unfurls her serpentine tongue. And as she sinisterly narrows down toward me, she emits an ear-shattering screech somewhere between a howl and a mating call.
 
-[Read Part Three](https://www.reddit.com/r/nosleep/comments/17q72l5/im_only_allowed_to_see_my_girlfriend_during_the/)
+[Read Part Three](https://www.reddit.com/r/nosleep/comments/17uelp1/im_only_allowed_to_see_my_girlfriend_during_the/)
