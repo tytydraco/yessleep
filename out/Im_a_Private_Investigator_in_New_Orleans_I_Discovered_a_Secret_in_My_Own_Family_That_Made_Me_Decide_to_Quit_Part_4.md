@@ -268,6 +268,8 @@ We're left there, panting, covered in sweat and blood, the silence oppressive. K
 
 Reine and I lock eyes, the unspoken question hanging between us. How many more? How many more zealots await, willing to kill and die for their cause? The thought chills me to the bone.
 
+[Part 5](https://www.reddit.com/r/nosleep/comments/17v3n58/im_a_private_investigator_in_new_orleans_i/)
+
 [X](https://www.reddit.com/r/PageTurner627Horror/)
 
 [Y](https://www.instagram.com/afterhourscontent2022/)
