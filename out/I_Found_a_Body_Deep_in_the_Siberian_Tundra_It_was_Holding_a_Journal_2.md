@@ -105,7 +105,7 @@ I sank to the floor, if it could even be called that, and a sudden wave of despa
 
 Shaking, I looked over to her with a grimace, then promptly winced from the pain of freezing wind whistling through my teeth.
 
-“Nicholas. Why- how are you so nonchalant right now? How long have you been here in this, this hell?”
+“Tony. Why- how are you so nonchalant right now? How long have you been here in this, this hell?”
 
 “How long? Oh, you poor baby. Time doesn’t have a say anymore. Not for me. It’s not as if clocks work here, even if I wanted to know the time. A day could be months, years, and a night could be five minutes, or vice versa.”
 
