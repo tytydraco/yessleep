@@ -130,7 +130,7 @@ I took a deep gulp of water before responding. “Thanks. I hope you’re right.
 
 “Yeah. It’s like, when someone insults you, it still hurts, even when you know for an absolute fact that it isn’t true. I think about the sheer volume of people I’ve been around who’d judge the shit out of me for what I just did. If dad were around, he’d do a lot more than that insult me. No joke, he’d disown me, then he’d fucking hurt me, and Aaron too.”
 
-Impulsively, my hand went to the stretch of skin under my chin that I’d had to cover with turtlenecks for weeks. Hannah had been the only person I’d shown the bruise to, and it had taken me enormous effort for me to convince her not to call law enforcement.
+Impulsively, my hand went to the stretch of skin under my chin that I’d had to cover with turtlenecks for weeks. Hannah had been the only person I’d shown the bruise to, and it had taken me enormous effort to convince her not to call law enforcement.
 
 I’d understood something that Hannah hadn’t: that, if a member of our small town’s police force came by, they’d sooner believe whatever lie my dad told them than the truth.
 

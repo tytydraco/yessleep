@@ -10,7 +10,7 @@ Kira's hands are steady as she helps Reine and me patch up our wounds. Despite t
 
 “We don't have time for apologies,” I tell her. Every second counts. "We have to move," I urge, wincing as Kira tightens a bandage around my ribs. The pain is a sharp reminder of the reality we're facing.
 
-Leaving Kira's house behind, we make a beeline for my parents' place. The streets of New Orleans are eerily quiet. As we drive, my thoughts are a whirlwind - plans, contingencies, the faces of my family.
+Leaving Kira's house behind, we make a beeline for my parents' place. The streets of the Big Easy are eerily quiet. As we drive, my thoughts are a whirlwind - plans, contingencies, the faces of my family.
 
 The rage within me is like a living thing, a fire stoked by the sight of my sister in such pain and fear. Xuan, a man who was once family, has sent an assassin against his own wife, putting not only her but also their innocent children in grave danger. It's a betrayal that burns in my chest.
 
@@ -19,6 +19,8 @@ Upon reaching my parents' house, I find them ready, their faces etched with conc
 "It's just a little adventure," I lie, mustering a smile. "We're going on a trip."
 
 —
+
+We bundle everyone into the car, the engine humming a low, anxious tune as we head out of New Orleans. The city fades behind us, and we plunge into the darkness of the Louisiana night, our headlights carving a path through the uncertainty that shrouds us. Our destination is a remote cabin hidden in the dense marshlands of the Atchafalaya Basin.
 
 The cabin's interior is sparse, a few basic furnishings, a fireplace, and enough provisions to last us a few days. The kids immediately gravitate towards the small pile of old toys and board games stacked in a corner, a temporary distraction from the chaos.
 
@@ -162,8 +164,6 @@ We're dressed in black, our gear meticulously chosen for stealth and efficiency.
 
 As we approach, the outline of the Nightingale emerges from the darkness, an ominous silhouette against the faint city lights. It's larger than we anticipated, its presence on the water imposing and foreboding. The ship is eerily silent, like a predator lying in wait.
 
-&#x200B;
-
 We cut the motor a safe distance away, paddling the rest of the way to avoid detection. The river's current aids our approach, carrying us stealthily towards the ship. Every stroke of the paddle is measured, deliberate, ensuring no sound betrays our presence.
 
 Reaching the Nightingale, we find a low-hanging anchor chain at the stern, our gateway onto the ship. I go first, scaling the chain with practiced ease, my hands finding a rhythm in the climb. Reine follows, equally adept in her ascent.
@@ -276,7 +276,7 @@ Reine and I crouch back to back, our weapons barking in response to the onslaugh
 
 The cultists, despite their numbers, are not soldiers. Their shots are wild, untrained, but what they lack in skill, they make up for in sheer zealotry. They press forward, a wave of bodies fueled by a fervor that borders on madness.
 
-A cultist lunges at me, a knife glinting in his hand, his eyes burning with a fervor that chills me to the bone. I sidestep, feeling the wind from the blade as it misses my throat by mere inches. I counter with a swift, brutal strike, my gun's butt connecting with his skull. He crumples to the ground, a puppet with its strings cut.
+A cultist lunges at me, a knife glinting in his hand, his eyes burning with a fervor that chills me to the bone. I sidestep, feeling the wind from the blade nicking the skin of my throat. I counter with a swift, brutal strike, my gun's butt connecting with his skull. He crumples to the ground, a puppet with its strings cut.
 
 Reine, a whirlwind of fury, moves with a grace that belies the violence of her actions. She dispatches one attacker after another, her face a mask of concentration and determination. A bullet grazes her arm, a line of red blossoming on her sleeve, but she doesn't falter.
 
