@@ -44,7 +44,7 @@ The figure on the monitor is unmistakable, even through the grainy image – Abb
 
 I holster my pistol and cautiously approach the door, aware of every movement around me. The [others](https://www.youtube.com/watch?v=MGd1F6Ay8ho) are silent, watching me with a mix of anxiety and anticipation. As I open the door, the cool night air rushes in, carrying with it a sense of impending change.
 
-I quickly usher Abby inside, closing the door behind her and securing it once more. The relief on Reine's face is palpable as she sees Abby, a familiar and trusted face in the midst of all the uncertainty and danger.
+I quickly usher Abby inside, closing the door behind her and securing it once more. The relief on Reine's face is palpable as she sees her, a familiar and trusted face in the midst of all the uncertainty and danger.
 
 "I got your message," she says, her voice low. "I came as soon as I could. Brought everything you asked for."
 
