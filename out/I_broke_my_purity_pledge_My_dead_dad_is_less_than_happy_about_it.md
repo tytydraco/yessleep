@@ -166,7 +166,7 @@ A deep, recognizable voice echoed from the top of the stairs. “*Nobody’s goi
 
 I fumed with anger. I wanted to charge at him, to fight him, to at least try to save Aaron, if he was still alive. But, instead, I ran. I scrambled for the front door, frantically undoing the locks while praying that dad wouldn’t catch up to me.
 
-When I opened it, I found myself somehow face-to-face with my tormenter, a ghoulish smile stretched across his face.
+When I opened it, I found myself somehow face-to-face with my tormenter, who displayed a ghoulish smile.
 
 I woke up covered in sweat. To my relief, I realized that I’d simply dozed off on the sofa. According to the grandfather clock near me, it was close to 1:30 a.m. There were no stains on the carpet, my dad wasn’t here, and neither me nor my slumbering boyfriend were in any danger.
 
@@ -180,9 +180,7 @@ For years, I fought to suppress any thoughts or feelings, no matter how fleeting
 
 Dad’s bullying wasn’t just psychological, as the physical scars on me – and mom, too – proved. I remembered him calling us to the kitchen table after returning from work. Later, I’d learn that he’d been passed over for a promotion that day, but he didn’t share that with us at the time.
 
-Instead, he’d slowly removed his belt and placed it on the table. I’d known what this meant. I’d wanted to flee, but where could I have gone where he wouldn’t have found me?
-
-He’d looked at me, then tilted his head back towards mom. He’d repeated this several times before announcing his decision. “Maria, tonight’s your lucky night. Go on now to your room.” I’d obeyed, burying my head under my pillow in a futile effort to drown out the screams from below.
+Instead, he’d slowly removed his belt and placed it on the table.  He’d looked at me, then tilted his head back towards mom. He’d repeated this several times before announcing his decision. “Maria, tonight’s your lucky night. Go on now to your room.” I’d obeyed, burying my head under my pillow in a futile effort to drown out the screams from below.
 
 I returned to the kitchen. It was at this table that dad had first revealed to me that he’d been reading my diary. I was in seventh grade, and I’d been writing in it for over a year.
 
