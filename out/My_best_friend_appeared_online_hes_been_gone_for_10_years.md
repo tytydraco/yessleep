@@ -4,7 +4,7 @@ Soon, we added each other on xbox, and the rest was history.
 A few years went by, and it was 2013. That summer, I  got the call... He passed away. I stopped playing video games  after that for a while. It reminded me too much of him.  The reason I am telling you all this is because a week ago I got an xbox One. I got it for my 25th birthday, and I was excited. For two days, everything was great, and then something would happen that would haunt me forever.
 My best friend Ian.... was online. 
 
-Now he had two brothers, so Iat first I thought it was one of them. But it looked exactly like Ian's account, Nothing was changed.  I kept in touch with one of his brothers, so I texted him. He was very confused. He then proceeded to tell me no one has access to Ians account. After that, I got a bit angry so I messeged the account.
+Now he had two brothers, so I at first thought it was one of them. But it looked exactly like Ian's account, Nothing was changed.  I kept in touch with one of his brothers, so I texted him. He was very confused. He then proceeded to tell me no one has access to Ians account. After that, I got a bit angry so I messeged the account.
 
 > Me: How did you get access to this account?"
    .......Nothing
