@@ -70,7 +70,7 @@ Reine interjects, her tone urgent. "Think, Kira. Anything could help. A name, a 
 
 Kira's voice is barely a whisper, laden with frustration and fear. "I can't think of anything," she says. "I'm sorry."
 
-As I sit across from Kira and recount our harrowing experience at the abandoned factory, the strange rituals, and the movement of large machinery. "We saw evidence that they were building something massive, possibly the Void Whisperer, and it was transported on the Mississippi River. Does that ring any bells?"
+I sit across from Kira and recount our harrowing experience at the abandoned factory, the strange rituals, and the movement of large machinery. "We saw evidence that they were building something massive, possibly the Void Whisperer, and it was transported on the Mississippi River. Does that ring any bells?"
 
 Kira’s eyes widen slightly, a flicker of recognition crossing her face. "The river," she murmurs. "We would have meetings and perform rituals on a riverboat sometimes."
 
