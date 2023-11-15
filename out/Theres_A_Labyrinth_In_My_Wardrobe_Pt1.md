@@ -1,6 +1,6 @@
 The wardrobe had been purchased from an old antique shop that my mother frequented. It was an old wooden wardrobe, with brass handles, and the name, Simon (presumably the former owner) was etched into the back.
 
-For the first few days things were relatively normal, despite the wardrobe doors seemingly opening on their own, 
+For the first few days things were relatively normal, despite the wardrobe doors seemingly opening on their own.
 
 But then came the noises, always late at night, that sounded very similar to a horse's hooves on a stone floor, coming from the wardrobe, along with a chilly breeze blowing out from the cracks of the wooden doors.
 
