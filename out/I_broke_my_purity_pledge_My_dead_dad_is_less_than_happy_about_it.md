@@ -76,7 +76,7 @@ I rolled my eyes. “No, so, you know how you always joked about how I’d be th
 
 “So what happened?”
 
-I shrugged. “We were, like, an hour into a make-out session…it just happened. It was my idea. I thought he’d argue with me, or even scold me for suggesting it. But instead he just went right along with it.”
+I shrugged. “We were, like, an hour into a make-out session…and it just kind of happened. It was my idea. I thought he’d argue with me, or even scold me for suggesting it. But instead he just went right along with it.”
 
 “Is he with you now?”
 
