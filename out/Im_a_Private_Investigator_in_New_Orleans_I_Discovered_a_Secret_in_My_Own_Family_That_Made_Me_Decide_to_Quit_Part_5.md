@@ -32,8 +32,6 @@ As night falls, the warm glow of the cabin's lights stands in stark contrast to 
 
 My parents, despite the obvious worry etching their faces, manage to maintain a calm demeanor for the kids. Theo and Mia, blissfully unaware of the full gravity of the situation, chat animatedly about their impromptu adventure.
 
-As night envelops the cabin, the warm, comforting smells of dinner fill the small space. My parents move around the kitchen with a practiced ease. Despite the situation, they cook up a simple yet hearty meal, the familiar scents of spices and simmering broth acting as a soothing balm against the day's tension. The clatter of pots and the sizzle of food cooking on the stove create a semblance of normalcy, a reminder of simpler times.
-
 We gather around the rickety dining table, the food a welcome distraction.
 
 In the middle of the meal, a shrill beep pierces the air, instantly cutting through the calm. It's one of the alarms we set up around the perimeter. Every muscle in my body tenses as I reach for the pistol tucked at my side.
@@ -115,8 +113,6 @@ Reine studies the sketch closely. "Any hidden rooms or compartments we should kn
 With Kira's information, we start piecing together a plan. The idea is to board the Nightingale undetected, gather as much intel as possible, and if we find the Void Whisperer, neutralize it before it can be used for whatever dark purpose the cultists have in mind.
 
 Reine and I discuss every angle, considering the risks and contingencies. We agree that stealth is our best approach, avoiding direct confrontation unless absolutely necessary. "We'll need to be like ghosts," Reine says, her eyes scanning Kira's sketches. "In and out without them even realizing we were there."
-
-As we pour over Kira's sketches and the satellite images, the gravity of our task looms over us. Infiltrating the Nightingale won't be easy; it's a floating fortress, and its occupants are likely to be as dangerous as they are fanatical. We know we have one shot at this – any mistake could be catastrophic.
 
 The satellite data suggests a pattern in the Nightingale's movements – it docks at a secluded spot on the riverbank late at night, presumably to avoid prying eyes. That's our window of opportunity.
 
