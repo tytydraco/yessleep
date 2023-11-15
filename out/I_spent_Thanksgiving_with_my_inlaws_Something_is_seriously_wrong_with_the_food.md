@@ -136,7 +136,7 @@ Various pies littered the table, pecan sitting amongst them. The one I was told 
 
 “Marshall,” Susan cut in, a sinister smirk curling at her lips as her eyes slid to mine. “I made all of your favorites tonight.”
 
-“I see that.” Marshall smiled, his fingers tracing comforting circles on the small of back. I hadn’t realized just how tense I was until he did that. The gesture was small, but comforting. “Where’s Vivian?”
+“I see that.” Marshall smiled, his fingers tracing comforting circles on the small of my back. I hadn’t realized just how tense I was until he did that. The gesture was small, but comforting. “Where’s Vivian?”
 
 “Vivian is…” She paused then, contemplating her next words carefully. Once again, a chill settled over my body. Something about this whole thing didn’t feel right, and I was about to find out a little too late.  “She’s disposing of some *scraps* right now.”
 
