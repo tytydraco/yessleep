@@ -44,7 +44,7 @@ I kept sorting through documents until I felt a lump in my throat. I decided to 
 
 FAILING TO FOLLOW ANY OF THESE RULES WILL RESULT IN PERMANENT TERMINATION. 
 
-For the rest of the day, I had eyed the red document on my desk. I wondered who those rules were for. I wondered what my company was actually doing. The longer I sat at my desk, the more restless I became. I started sweating and frantically looking around the office to see if anyone noticed my frantic mood. They haven’t. I had decided that I needed to go home and think about what I read today before someone asks why I am so anxious. I looked up at the clock and realized it was 5:05. 
+For the rest of the day, I had eyed the red document on my desk. I wondered who those rules were for. I wondered what my company was actually doing. The longer I sat at my desk, the more restless I became. I started sweating and frantically looking around the office to see if anyone noticed my panicked mood. They haven’t. I have decided that I needed to go home and think about what I read today before someone asks why I am so anxious. I looked up at the clock and realized it was 5:05. 
 
 I sighed and stood from my desk, gathering my things before walking towards the door. Just as I grabbed the handle, I heard the sound of a bell. 
 
