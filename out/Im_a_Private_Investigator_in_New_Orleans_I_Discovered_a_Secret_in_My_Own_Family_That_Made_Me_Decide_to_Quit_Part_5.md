@@ -6,7 +6,7 @@
 
 [Part 4](https://www.reddit.com/r/nosleep/comments/17qk25h/im_a_private_investigator_in_new_orleans_i/)
 
-Kira's hands are steady as she helps Reine and me patch up our wounds. Despite the shock in her eyes, a glimmer of her former self - the sister I knew, resilient and resourceful - shines through. Her fingers work deftly, applying bandages with a care that belies her trembling hands. "I never wanted any of this," she whispers, her voice thick with unshed tears. "I'm sorry."
+Kira's hands are steady as she helps Reine and me patch up our wounds. Despite the shock in her eyes, a glimmer of her former self - the sister I knew, resilient and resourceful - shines through. "I never wanted any of this," she whispers, her voice thick with unshed tears. "I'm sorry."
 
 “We don't have time for apologies,” I tell her. Every second counts. "We have to move," I urge, wincing as Kira tightens a bandage around my ribs. The pain is a sharp reminder of the reality we're facing.
 
@@ -30,7 +30,7 @@ Kira sits at the rickety dining table, her eyes distant, lost in thoughts I can'
 
 As night falls, the warm glow of the cabin's lights stands in stark contrast to the darkness outside. My parents, ever the hosts even in times of crisis, prepare a quick meal for everyone. Despite the obvious worry etching their faces, they manage to maintain a calm demeanor for the kids. Theo and Mia, blissfully unaware of the full gravity of the situation, chat animatedly about their impromptu adventure.
 
-We gather around the rickety dining table, the food a welcome distraction.
+We gather around the dining table, the food a welcome distraction.
 
 In the middle of the meal, a shrill beep pierces the air, instantly cutting through the calm. It's one of the alarms we set up around the perimeter. Every muscle in my body tenses as I reach for the pistol tucked at my side.
 
@@ -164,7 +164,7 @@ The deck of the Nightingale is bathed in darkness, the only light emanating from
 
 We move cautiously, aware that each step could be our last if we're discovered.  We navigate through the maze of crates and equipment scattered across the deck, each one a potential hiding spot for an unwelcome surprise.
 
-The deck of the Nightingale is a labyrinth of shadows and silence, broken only by the soft creaking of the ship against the current. As we edge forward, the green-tinted world through our night vision goggles reveals more than just the inanimate obstacles of crates and ropes; it unveils the presence of armed guards patrolling the perimeter.
+The deck of the Nightingale is a labyrinth of shadows and silence, broken only by the soft creaking of the ship against the current. As we edge forward, the green-tinted world through our goggles reveals more than just the inanimate obstacles of crates and ropes; it unveils the presence of armed guards patrolling the perimeter.
 
 Each guard moves with a purpose, their steps measured and silent, their eyes scanning the darkness.  Each one a potential harbinger of death in the wrong encounter. The realization that we are vastly outnumbered and outgunned weighs heavily on us, our every move a balance between audacity and caution.
 
