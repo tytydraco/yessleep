@@ -28,9 +28,7 @@ Reine and I quickly secure the perimeter, setting up basic traps and warning sys
 
 Kira sits at the rickety dining table, her eyes distant, lost in thoughts I can't even begin to comprehend. The weight of her association with Xuan, the Nexus Consortium, and everything that's transpired is a burden she carries alone.
 
-As night falls, the warm glow of the cabin's lights stands in stark contrast to the darkness outside. My parents, ever the hosts even in times of crisis, prepare a quick meal for everyone. The simple act of cooking, the familiar aromas, bring a semblance of normalcy, a brief respite from the uncertainty that looms over us.
-
-My parents, despite the obvious worry etching their faces, manage to maintain a calm demeanor for the kids. Theo and Mia, blissfully unaware of the full gravity of the situation, chat animatedly about their impromptu adventure.
+As night falls, the warm glow of the cabin's lights stands in stark contrast to the darkness outside. My parents, ever the hosts even in times of crisis, prepare a quick meal for everyone. Despite the obvious worry etching their faces, they manage to maintain a calm demeanor for the kids. Theo and Mia, blissfully unaware of the full gravity of the situation, chat animatedly about their impromptu adventure.
 
 We gather around the rickety dining table, the food a welcome distraction.
 
@@ -38,7 +36,7 @@ In the middle of the meal, a shrill beep pierces the air, instantly cutting thro
 
 I move quickly to the small monitor we've set up, connected to a  makeshift camera system outside. The screen flickers to life, showing  the grainy image of the cabin's exterior.
 
-The figure on the monitor is unmistakable, even through the grainy image – Abby, our secretary, her posture tense and hurried.
+The figure on the monitor is unmistakable, even through the grainy image – Abby, our secretary, her posture tense and hurried. I can see a heavy duffel bag slung over her shoulder.
 
 I holster my pistol and cautiously approach the door, aware of every movement around me. The [others](https://www.youtube.com/watch?v=MGd1F6Ay8ho) are silent, watching me with a mix of anxiety and anticipation. As I open the door, the cool night air rushes in, carrying with it a sense of impending change.
 
@@ -63,10 +61,6 @@ Kira, looking over our shoulders, seems to shrink under the weight of our scruti
 "Kira," I begin, my voice steady despite the storm of emotions inside me, "think back to the consortium meetings. Was there ever any mention of a location, a specific place where they might be planning to use the Void Whisperer?"
 
 Kira's eyes are distant, her mind sifting through memories she'd rather forget. "I... I don't know," she stammers. "It was always vague, just talk about 'preparing the way' or 'opening the gate'. They never said where."
-
-Reine interjects, her tone urgent. "Think, Kira. Anything could help. A name, a landmark, something."
-
-Kira's voice is barely a whisper, laden with frustration and fear. "I can't think of anything," she says. "I'm sorry."
 
 I sit across from Kira and recount our harrowing experience at the abandoned factory, the strange rituals, and the movement of large machinery. "We saw evidence that they were building something massive, possibly the Void Whisperer, and it was transported on the Mississippi River. Does that ring any bells?"
 
@@ -128,7 +122,7 @@ Kira approaches us, a determined look on her face. "I should come with you," she
 
 I place a hand on her shoulder, feeling the tension in her muscles. "Kira, you've already done so much. We need you here with the kids and mom and dad. They'll be safer with you around." I see the conflict in her eyes, the urge to be part of the action, but she nods, understanding the gravity of her role here.
 
-Reine and I take a moment to speak with my parents and the kids. The warmth in their eyes is a stark contrast to the [cold](https://www.reddit.com/r/nosleep/comments/14c93t1/im_an_arctic_researcher_we_accidentally_released/) resolve in ours.
+Reine and I take a moment to speak with my parents and the kids.
 
 "Ba, Má," I begin, addressing my parents in Vietnamese, "we're going to take care of this, but we need you to stay safe with the kids."
 
@@ -174,7 +168,7 @@ The deck of the Nightingale is a labyrinth of shadows and silence, broken only b
 
 Each guard moves with a purpose, their steps measured and silent, their eyes scanning the darkness.  Each one a potential harbinger of death in the wrong encounter. The realization that we are vastly outnumbered and outgunned weighs heavily on us, our every move a balance between audacity and caution.
 
-We press ourselves against the cold metal of the ship, blending into the shadows, our breaths shallow and controlled. The slightest sound, the smallest misstep could spell disaster. Our eyes lock onto a patrolling guard, his rifle slung casually over his shoulder, a predator in his own right.
+We press ourselves against the [cold](https://www.reddit.com/r/nosleep/comments/14c93t1/im_an_arctic_researcher_we_accidentally_released/) metal of the ship, blending into the shadows, our breaths shallow and controlled. The slightest sound, the smallest misstep could spell disaster. Our eyes lock onto a patrolling guard, his rifle slung casually over his shoulder, a predator in his own right.
 
 Timing is everything. As he turns away, his gaze sweeping the other side of the deck, we dart forward, slipping through the narrow gaps between crates and machinery, our progress painstakingly slow. Each time a guard comes within a hair's breadth of discovering us, my heart pounds against my cracked ribcage, the adrenaline coursing through my veins like fire.
 

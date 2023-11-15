@@ -183,3 +183,7 @@ The door creaked open behind me. I turned around to see Miranda, Jackie, and Dav
 My blood ran cold.
 
 The shape was no longer [there.](http://www.reddit.com/r/blairdaniels)
+
+---
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/17vlp1c/im_a_park_ranger_for_a_state_park_something_is/)
