@@ -246,4 +246,4 @@ It is dark now. Only a half-moon tonight which will make the search-and-destroy 
 
 In what feels like the longest walk of my life, I make it to the orchard, when an unthinkable, unforeseen horror besets. The demon is swooping back. I run for the cover of the nearest apple tree which, in the dead of fall with shriveled leaves and no fruit, is barely any cover at all. She is sweeping over the autumn orchard, scanning for the prey half-witted enough to believe he was the hunter. I see a dead deer carcass in the distance, if I can make it to there… maybe…maybe… I have a chance. Now, she is hovering so close I can feel the gust of her colossal wings. The acidic burn of her breath as she unfurls her serpentine tongue. And as she sinisterly narrows down toward me, she emits an ear-shattering screech somewhere between a howl and a mating call.
 
-[Read Part Three](https://www.reddit.com/r/nosleep/comments/17uelp1/im_only_allowed_to_see_my_girlfriend_during_the/)
+[Read Part Three](https://www.reddit.com/r/nosleep/s/5GfquFNmK4)

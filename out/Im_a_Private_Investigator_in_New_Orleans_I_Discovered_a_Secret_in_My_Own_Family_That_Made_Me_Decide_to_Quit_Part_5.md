@@ -80,7 +80,7 @@ I pore over the satellite images, tracing the serpentine path of the Mississippi
 
 Our search proves to be more challenging than anticipated. The Mississippi is vast, its waters a labyrinth of potential hiding spots for a vessel like the one we're seeking. The complexity of the river's network, with its numerous docks, marinas, and secluded moorings, turns our search into a proverbial needle-in-a-haystack scenario.
 
-Abby's deft fingers fly across the laptop keyboard, sifting through maritime records, private charter logs, and docking manifests. Yet, every lead we pursue ends in a frustrating dead end. It seems as though the Nightingale has been meticulously scrubbed from all official records, a ghost ship sailing the Mississippi unseen.
+Abby's deft fingers fly across the laptop keyboard, sifting through maritime records, private charter logs, and docking manifests. Yet, every lead we pursue ends in a frustrating dead end. It seems as though the Nightingale has been meticulously scrubbed from all official records, a ghost ship sailing the Old Blue unseen.
 
 Reine's frustration is palpable as she examines the maps. "They've covered their tracks well," she mutters, her eyes scanning the river's winding course. "It's like they knew we'd come looking."
 
@@ -150,7 +150,7 @@ Before stepping out into the night, I turn to Abby. I hand her a handgun, its we
 
 The night is dark, a [moonless](https://www.reddit.com/r/nosleep/comments/1581vef/our_search_for_a_missing_teen_uncovered_the/) canvas above us as Reine and I silently guide our small boat through the murky waters of the Mississippi. The only sounds are the gentle lapping of water against the hull and the distant hum of the city, a world away from the mission at hand.
 
-We're dressed in black, our gear meticulously chosen for stealth and efficiency. The air is thick with tension, our senses on high alert as we near the coordinates where the Nightingale is supposed to dock. The plan is simple yet fraught with unknowns: board the ship, locate the Void Whisperer, and neutralize it.
+The air is thick with tension, our senses on high alert as we near the coordinates where the Nightingale is supposed to dock. The plan is simple yet fraught with unknowns: board the ship, locate the Void Whisperer, and neutralize it.
 
 As we approach, the outline of the Nightingale emerges from the darkness, an ominous silhouette against the faint city lights. It's larger than we anticipated, its presence on the water imposing and foreboding. The ship is eerily silent, like a predator lying in wait.
 
@@ -240,9 +240,9 @@ Xuan, however, is conspicuously absent, raising questions about his role and int
 
 Reine and I exchange a glance, a silent conversation passing between us. We know what we have to do. Carefully, we maneuver to position ourselves above the main control panel, the heart of the Void Whisperer’s operations.
 
-I carefully remove the screws holding the grate in place. We need to be quick and precise; our window of opportunity is narrow. The grate comes away silently, and I set it aside, preparing for our descent.
+I carefully remove the screws holding the grate in place. The grate comes away silently, and I set it aside, preparing for our descent.
 
-The plan is high stakes and razor-edged: using a smoke grenade for diversion and C-4 to obliterate the Void Whisperer. The grenade, once deployed, will shroud the chamber in chaos, masking our movements as we plant the explosives. The escape, however, hinges on precision timing; we have to be swift, moving back through the ventilation system to the upper decks and then to our boat.
+Our window of opportunity is narrow. The plan is high stakes and razor-edged: using a smoke grenade for diversion and C-4 to obliterate the Void Whisperer. The grenade, once deployed, will shroud the chamber in chaos, masking our movements as we plant the explosives. The escape, however, hinges on precision timing; we have to be swift, moving back through the ventilation system to the upper decks and then to our boat.
 
 As Reine drops the smoke grenade through the opening, its hiss is almost immediately drowned out by the ensuing chaos. The chamber fills with thick, disorienting smoke, obscuring everything in a dense gray fog. The cultists are caught off guard, their ritualistic chants turning into shouts of confusion and alarm.
 

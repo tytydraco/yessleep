@@ -220,3 +220,6 @@ I nodded, but when Gale's voice quavered up from behind us, I felt a cold chill 
 
 
 "I've seen it too, that place. It's where you rescued me from, and it's where the Miasma store the power source for this place. The people they take into the ceiling are being used to power the Dollar General Beyond.
+
+
+Pt 17- https://www.reddit.com/r/nosleep/comments/17vmtt0/trapped_in_the_dollar_general_beyond_pt_17_escape/?utm_source=share&utm_medium=web2x&context=3
