@@ -1,0 +1,14 @@
+
+I'm a police officer, posting anonymously for obvious reasons. There's a missing persons case that has plagues our department for 7 and a half years now and we're all out of ideas. So I'm hoping that someone here may have an idea we overlooked or have any leads whatsoever as to what happened.
+
+It happened April 23, 2016. A rainy, otherwise uneventful night for my unit. I received a call from dispatch about a home invasion in the countryside, but they mentioned that the caller hung up before they could get the address so they only had an approximate location, but fortunately it was the only house in that area. It took us approximately 17 minutes to get to the house, due to those delayed as well as just the general remote location of the house. As we circled the house we could not find any indication of an invasion, but our yells were met with silence. After a minute or two we knocked down the door and went through the house. It was a very small house, so the sweep maybe took two minutes total with the three of us checking every room. As I opened the closet in the bedroom, I found the resident's phone, still active, but no other sign anywhere. He had typed up the following on his phone in his notes:
+
+"I just called 911 and I'm writing this down if something happens. There's someone outside my house. I woke up and I heard them walking on the porch, and then they started knocking on my window. Just tapping over and over. I'm hiding in the closet. I don't know what it is but my window is 12 feet off the ground. I'm scared. I hear the sirens down the road now. Oh God a window just broke please help"
+
+This has puzzled us since we found it. For starters, there was no broken window or anything broken in the house at all. The windows were shut, the doors were locked, there was nothing amiss. Also, the note was last edited at 2:33 AM. We did not arrive at the house until 2:46 AM. Between arriving at the house and finding the phone, there was a 6 minute gap. I retraced the route we took that night and at the time he would have heard the sirens and glass breaking, we were three roads and 7 minutes away.
+
+After finding the phone and checking the note, we went outside to check the window he heard the tapping. There was only one window that high,  directly outside the resident's bedroom, but there was no sign of a ladder or any indications of climbing. No indication of marks in the mud
+
+We investigated the house after daybreak as well with several other officers but there was nothing else of note found. It was classified as a missing persons case, but with no leads, it went cold fast. To date, there's been no more information about it.
+
+I'm hoping someone here may have an idea that we haven't thought of. We've scrambled our brains but nothing makes sense.

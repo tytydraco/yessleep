@@ -56,7 +56,7 @@ Reine and I huddle over the laptop, scouring through satellite images and city b
 
 My parents and the kids are asleep in the adjacent room, their gentle breathing a reminder of the innocence we're fighting to protect.
 
-Kira, looking over our shoulders, seems to shrink under the weight of our scrutiny. Her knowledge of the cultists is our best lead, and her cooperation is crucial. I gently coax her to recount everything she remembers about the group's discussions, their plans, and any details that might have seemed insignificant at the time.
+Kira seems to shrink under the weight of our scrutiny. Her knowledge of the cultists is our best lead, and her cooperation is crucial. I gently coax her to recount everything she remembers about the group's discussions, their plans, and any details that might have seemed insignificant at the time.
 
 "Kira," I begin, my voice steady despite the storm of emotions inside me, "think back to the consortium meetings. Was there ever any mention of a location, a specific place where they might be planning to use the Void Whisperer?"
 
