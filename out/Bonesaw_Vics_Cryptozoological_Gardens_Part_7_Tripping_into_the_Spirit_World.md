@@ -242,6 +242,6 @@ I snorted, “Oh, come on! Being a skinwalker is *not* part of your heritage. Yo
 
 “Well, you’re certainly in a mood, aren’t you?” Falling Sky grumbled. “It’s not my fault you can’t handle a little mug of tea. You even started crying! Don’t deny it, I saw you. You’re a wimpy little cry-monkey.”
 
-I gave him a sharp look and demanded, “What the hell is a cry-monkey? Do you mean crybaby? Yeah, maybe I cried a little, but at least I never spent any time living as a snake. Lemme ya something, man. That’s fucking weird. Slithering around in the sand and just, like, eating mice and lizards and... you know, fuckin’ scorpions and shit! Fucking why, man? That’s just weird.”
+I gave him a sharp look and demanded, “What the hell is a cry-monkey? Do you mean crybaby? Yeah, maybe I cried a little, but at least I never spent any time living as a snake. Lemme tell ya something, man. That’s fucking weird. Slithering around in the sand and just, like, eating mice and lizards and... you know, fuckin’ scorpions and shit! Fucking why, man? That’s just weird.”
 
 *cont'd below*
