@@ -394,6 +394,6 @@ But, I was a new person now. Someone who embraces herself, who faces her anxieti
 
 I glanced at the clock behind him. It was only a little past 7 a.m. Mom wouldn’t be back from her boyfriend’s for at least another hour.
 
-I looked back into Aaron’s eyes. A mischievous smile spread across his face, just as I felt one spread across mine. “Are you thinking what I’m thinking?” he asked.
+I looked back at Aaron. A mischievous smile spread across his face, just as I felt one spread across mine. “Are you thinking what I’m thinking?” he asked.
 
 I nodded. “Yes, I am.” I kissed him again before whispering gently, “I think it’s time for [round two](https://www.reddit.com/r/PeaceSim/).”
