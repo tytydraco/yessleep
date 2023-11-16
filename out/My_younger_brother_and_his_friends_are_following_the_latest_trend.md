@@ -10,11 +10,11 @@ I walked up to his door and was about to knock, but I thought I could hear somet
 
 "Yes." he said plainly.
 
-I talked time him for a few minutes to see if anything was going on. He kept saying everything was fine and that he was just 'tired or something'. I thought I would give him his space and left him alone. At diner he seemed okay and was talking normally to mom and dad, and seemed more aware than earlier.
+I talked to him for a few minutes to see if anything was going on. He kept saying everything was fine and that he was just 'tired or something'. I thought I would give him his space and left him alone. At dinner he seemed okay and was talking normally to mom and dad, and seemed more aware than earlier.
 
 I figured that he must have just been tired then, at least that was until a few days later. Mom said he was having friends over and that her and dad were going out so just keep an eye on them. Around 8, or so I went downstairs to check in on them. But when I got down there I was shocked.
 
-I figured they would be playing video games, or a board game, or watching a movie... but when I got downstairs I gasped. They were all just standing there doing weird poses starting at the TV. At first I thought the screen was off but then I took another glance and saw in the corner it said ''Mr. Troubles Challenge'.
+I figured they would be playing video games, or a board game, or watching a movie... but when I got downstairs I gasped. They were all just standing there doing weird poses staring at the TV. At first I thought the screen was off but then I took another glance and saw in the corner it said ''Mr. Troubles Challenge'.
 
 They were completely motionless, the five of them, and it seemed like they didn't even notice. I tried calling to them.
 
@@ -28,7 +28,7 @@ They still stood motionless. At that point I was a little freaked out and walked
 
 "BRO! You ruined it!" my brother shouted angrily.
 
-"Why are you just standing there like some freaks! And ignoring you older brother isn't cool bud."
+"Why are you just standing there like some freaks! And ignoring your older brother isn't cool bud."
 
 "Aghhh. It's the Mr. Troubles challenge! Your not supposed to move. You don't even get it!" his friends said nothing but they were sat on the couch clearly upset as well.
 
@@ -42,7 +42,7 @@ Mom said that the boys were at the park and asked if I could pick them up. I agr
 
 Not again I thought.
 
-They were all fixed on the center of the circle. I waved my arms at my brother in spite of how weird and creepy I thought there game was. I didn't want to upset him. He gave no response. I started to get frustrated, after a few minutes of attempting to get his attention I went over to him and lightly grabbed his arm and tried to pull him aside. As soon as the circle broke all the kids turned 180 degrees and starting running in straight lines.
+They were all fixed on the center of the circle. I waved my arms at my brother in spite of how weird and creepy I thought there game was. I didn't want to upset him. He gave no response. I started to get frustrated, after a few minutes of attempting to get his attention I went over to him and lightly grabbed his arm and tried to pull him aside. As soon as the circle broke all the kids turned 180 degrees and started running in straight lines.
 
 "What the..." I said out loud. "What are you guys doing out here! It's like 0 degrees right now! You should be moving around. Is this that 'Mr. Troubles' thing again? Tell me what this 'game' is about!" I was somewhat angry at the stupidity of it. Watching the kids run off like that in unison honestly gave me the shivers thinking about it.
 
@@ -62,13 +62,13 @@ It was different, it was no longer a black screen, it showed five figures doing 
 
 The video only showed longitude and latitude coordinates, but when I looked it up it was in the middle of nowhere in the woods. I told the police where I suspected the kids had went and got in my car and put my foot on the gas.
 
-When I got to the location I saw random teens walking along the highway, straggling along. The police where already there. I called out for my brother for the next hour and half. I saw some I recognized from the day at the park. They were just staring at trees blankly. Eventually I got a text; my brother was home.
+When I got to the location I saw random teens walking along the highway, straggling along. The police where already there. I called out for my brother for the next hour and a half. I saw some I recognized from the day at the park. They were just staring at trees blankly. Eventually I got a text; my brother was home.
 
 We spent hours asking him what he was doing there and who was Mr. Troubles. He barely said anything, he just kept nodding and shaking his head. At one point my mom started crying. He wasn't completely mute or anything but he just gave vague careless answers.
 
 "SHOW SOME RESPECT! WHAT'S WRONG WITH YOU!" my Dad yelled at him hammering the table and walking out of the room.
 
-That was hours ago now. My brother went back into his room. I went to check in on him, and went to knock on his door. Just like before I heard a sound. I listened more closely than before. It was my brother mumbling under his breath.
+That was hours ago now. My brother went back into his room. I went to check in on him, and was about to knock on his door. Just like before I heard a sound. I listened more closely than before. It was my brother mumbling under his breath.
 
 "*Today I watched Mr. Troubles. I won."*
 

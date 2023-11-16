@@ -6,11 +6,11 @@ But for whatever reason, I walked down the block to the Grab&Go that day. Cars w
 
 Which makes me think now, why did I choose that dump? Why didn't I go a few blocks over to where the nicer 7 stood?
 
-And it wasn't as if I didn't have enough cash in my pocket to get what I wanted. Just a bag of chips and a soda. So I can't really say why I decided to do what I did. Maybe it was to answer that burning question that kept searing itself into the back of my brain every night as I laid in front of the glow of my tv.
+And it wasn't as if I didn't have enough cash in my pocket to get what I wanted. Just a bag of chips and a soda. So I can't really say why I decided to do what I did. Maybe it was to answer that burning question that kept searing itself into the back of my brain every night as I laid in front of the glow bouncing off my tv.
 
 What if I...?
 
-And the moment that the words filled themselves in, there was no changing my mind, I have always been like that for some reason. So once I decided to do what I did, I realized that the best way to start it off was to cause a scene. And I couldn't think of a better way than to push the aisle over and watch all of the wine bottles crash onto the floor - dyeing the grime white tiles a dirty beige.
+And the moment that the words filled themselves in, there was no changing my mind. I have always been like that for some reason. So once I decided to do what I did, I realized that the best way to start it off was to cause a scene. And I couldn't think of a better way than to push the aisle over and watch all the bottles of wine crash onto the floor - dyeing the grime white tiles a dirty beige.
 
 Causing everyone to turn their eyes on me, and I was liking it.
 
