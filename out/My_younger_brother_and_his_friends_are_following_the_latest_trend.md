@@ -4,7 +4,7 @@ I am currently visiting family for Thanksgiving. I rarely see them so I don't al
 
 This time he just said 'Hi.' and nodded and went into his room. I asked my mom if anything had happened or if anything was wrong with him but she said he was fine. His grades were good and he had a group of friends that didn't get into trouble.
 
-I walked up to his door and was about to knock, but I thought I could hear something so I listened it, but then it stopped and it was silent. I lightly knocked on the door.
+I walked up to his door and was about to knock, but I thought I could hear something so I listened in, but then it stopped and it was silent. I lightly knocked on the door.
 
 "Hey dude, hows it going? Can I come in?"
 
@@ -64,11 +64,11 @@ The video only showed longitude and latitude coordinates, but when I looked it u
 
 When I got to the location I saw random teens walking along the highway, straggling along. The police where already there. I called out for my brother for the next hour and half. I saw some I recognized from the day at the park. They were just staring at trees blankly. Eventually I got a text; my brother was home.
 
-We spend hours asking him what he was doing there and who was Mr. Troubles. He barely said anything, he just kept nodding and shaking his head. At one point my mom started crying. He wasn't completely mute or anything but he just gave vague careless answers.
+We spent hours asking him what he was doing there and who was Mr. Troubles. He barely said anything, he just kept nodding and shaking his head. At one point my mom started crying. He wasn't completely mute or anything but he just gave vague careless answers.
 
 "SHOW SOME RESPECT! WHAT'S WRONG WITH YOU!" my Dad yelled at him hammering the table and walking out of the room.
 
-That was hours ago now. My brother went back into his room. I went to check in on him, and went to knock on his door. Just like before I heard a sounds. I listened more closely than before. It was my brother mumbling under his breath.
+That was hours ago now. My brother went back into his room. I went to check in on him, and went to knock on his door. Just like before I heard a sound. I listened more closely than before. It was my brother mumbling under his breath.
 
 "*Today I watched Mr. Troubles. I won."*
 
