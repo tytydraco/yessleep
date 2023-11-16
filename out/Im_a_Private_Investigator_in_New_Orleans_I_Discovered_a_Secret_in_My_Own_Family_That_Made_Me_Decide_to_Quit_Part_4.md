@@ -114,7 +114,7 @@ Kira's her face ashen, eyes lost to a memory that haunts her. "Xuan was convince
 
 Reine's face hardens with resolve, but there's a tremor in her voice when she asks, "Were they planning to recreate the ritual, Kira?"
 
-Kira nods slowly, a haunted look in her eyes. "They weren't satisfied with a recreation," she confesses, her voice barely more than a whisper. "They believed the being depicted in the manuscript was only a fragment of Lửa Đen's true power. They wanted to bring the Black Flame into this world, in his full, terrifying form."
+"They weren't satisfied with a recreation," Kira confesses, her voice barely more than a whisper. "They believed the being depicted in the manuscript was only a fragment of Lửa Đen's true power. They wanted to bring the Black Flame into this world, in his full, terrifying form."
 
 Kira's admission casts a shadow across the room, the very air seeming to grow colder with her words. "They talked about Lửa Đen as if he were... salvation," she continues, her gaze distant. "A cleansing fire to burn away the corruption of this universe and give rise to a new order."
 
@@ -138,7 +138,7 @@ She turns to face us, and in her eyes, I see a maelstrom of fear, guilt, and des
 
 Reine gasps, horror etched on her face. "He threatened you with your own children?" Her voice is a mix of shock and anger, her protective instincts flaring.
 
-Kira nods, tears streaming down her cheeks. "Yeah. And I... I believed him. He's not the man I married, not anymore. He's part of something else, something that's consumed him."
+Kira nods, tears streaming down her cheeks. "Yeah. And I... I believed him. He's not the man I married, not anymore. He's part of something else, something that's twisted."
 
 The unease in my gut twists tighter, the kind of instinctual warning that's saved my skin more times than I can count. I eye the manuscript, its [ancient](https://www.reddit.com/r/nosleep/comments/174jp2m/im_a_cop_on_the_navajo_reservation_i_investigated/) pages a stark reminder of the madness Kira's tangled up in. If Xuan's as deep in this as she says, why would he leave such a crucial piece of the puzzle in her hands?
 
@@ -250,7 +250,7 @@ Kira stands in the doorway, the attacker's pistol trembling in her hands. Her ey
 
 She drops the gun, the metallic sound of it hitting the floor punctuating the end of the encounter. She crumples, her knees buckling. Reine catches her before she hits the ground, her body wracked with sobs.
 
-The assassin's body hits the floor with a heavy thud, his breaths ragged and shallow. Despite everything, no one deserves to die without a chance. I crawl over to him, Reine's worried gaze following me.
+The assassin's body hits the floor with a heavy thud, his breaths ragged and shallow. I crawl over to him, Reine's worried gaze following me. I'm not going to let him die until he gives us answers.
 
 "Stay with me," I command, pressing my hands against the wound, trying to stem the tide of blood, but it’s like trying to hold back the ocean with a sieve. "Who sent you? Tell me about the Void Whisperer."
 
