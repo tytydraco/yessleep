@@ -20,7 +20,7 @@ The worker that was smoking behind the cash register ducked out of sight, the pl
 
 The wand inside the little glass window spun the slurry around and around - making me dizzy. The woman looked tired and terrified at the same time. And the boy, well...he looked like me.
 
-"Give me the money," I heard someone say. It took me a second to realize that that person was me. Everything was moving so slow now as I reached the front. The cash register was right next to the Bic lighters and it was made of thin steel and hard plastic.
+"Give me the money," I heard someone say. It took me a second to realize that that someone was me. Everything was moving so slow now as I reached the front. The cash register was right next to the Bic lighters and it was made of thin steel and hard plastic.
 
 I grabbed it, but before I could shake it. The cashier stood back up. The hard glint of gun metal bore its darkness into me, and for a second all I could see was down the barrel, it was like looking into a cave and knowing that something was back there. Waiting to come out. Spelling certain death.
 
@@ -36,7 +36,7 @@ I turned to take one more glance behind me. And there on the floor, that woman w
 
 They must have been trying to get out the door, I realized, they must have ran behind me.
 
-But I ducked and I made it.
+But I fell and I made it.
 
 The boy didn't.
 
