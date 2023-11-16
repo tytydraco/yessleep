@@ -96,7 +96,7 @@ I cut him off angrily, "This is a getaway man! There ain't going to be nothing f
 
 "Now shut up and keep driving."
 
-We barreled down the road to where there were more cars. For a second I thought the Driver would try to slow down, and then squeeze between the cars again. But unprompted he yanked a merging right and the passenger tire popped the curb. There was a girl walking her dog. She screamed and jumped out of the way.
+We barreled down the road to where there were more cars. For a second I thought the Driver would try to slow down, and then squeeze between the cars again. But unprompted he yanked a merging right and the passenger tire hopped the curb. There was a girl walking her dog. She screamed and jumped out of the way.
 
 The dog wasn't so lucky.
 
