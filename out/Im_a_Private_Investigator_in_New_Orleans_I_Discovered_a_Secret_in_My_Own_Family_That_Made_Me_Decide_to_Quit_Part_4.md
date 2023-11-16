@@ -62,7 +62,7 @@ We follow Kira down a narrow hallway lined with family photos, the progression o
 
 The office is a reflection of Kira’s world, a realm of ancient languages and histories long past. Bookshelves line the walls, crammed with tomes and papers, the musty scent of old books a familiar comfort. Her desk is cluttered with notes and texts, among which sits a state-of-the-art computer, a juxtaposition of the old and the new. Everywhere there are hints of her profession as a historical linguist – framed diplomas, a collection of rare dictionaries, and scattered artifacts that speak of a life dedicated to deciphering the secrets of bygone eras.
 
-As Kira flicks on the light, it casts a warm glow over the room, illuminating the artifacts of her scholarly pursuits. She unlocks a cabinet, her hands shaking ever so slightly as she retrieves a thick, leather-bound manuscript. It's ancient, the cover worn with age. She handles it with reverence of a holy relic.
+As Kira flicks on the light, it casts a warm glow over the room, illuminating the artifacts of her scholarly pursuits. She unlocks a cabinet, her hands shaking ever so slightly as she retrieves a thick, leather-bound manuscript. It's ancient, the cover worn with age. She handles it with the reverence of a holy relic.
 
 She lays the manuscript gently on the table, its pages yellowed with the passage of centuries. The room falls silent except for the faint creak of the leather as she opens the cover.
 
