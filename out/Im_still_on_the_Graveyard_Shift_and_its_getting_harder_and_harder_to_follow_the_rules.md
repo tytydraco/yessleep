@@ -121,3 +121,7 @@ I just wanted to finish telling you about some strange things. I'm now on the wo
 I struggled to contain myself as I felt the breath of whatever it was making a condensed sweat on my neck. I walked slowly to the counter and continued to act normally. That's when a shadow began to enter my peripheral vision, a dark mass moving slowly in front of me. The creature from the other night, with its oily hair in front of its face, came up to me, staring a few inches away. I grabbed one of the magazines and pretended to read, frozen with fear. This thing doesn't stop haunting me, whether in front of me or whispering in my ear how delicious Ryan was, disappearing when a customer appears and returning as soon as they leave. I'm taking advantage of the moments when it's out of sight to continue writing here.
 
 The problem is that it's becoming more brazen, and it started licking my face about 5 minutes ago; a customer is deciding which flavor of energy drink to take, so I'm taking the opportunity to finish writing and post this. I don't think I'm in trouble, but I'll be making updates between customers, until next time.
+
+&#x200B;
+
+Update: CRAP! I FORGOT TO PUT THE MEAT DISH IN THE OFFICE, I'M GOING TO CALL MR. GONZALES RIGHT AWAY!
