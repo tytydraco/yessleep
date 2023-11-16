@@ -40,7 +40,7 @@ I brought it up to my mom and asked if she knew anything about Mr. Troubles. She
 
 Mom said that the boys were at the park and asked if I could pick them up. I agreed and drove over to the local park. When I got there I couldn't believe it. There was my brother and his friends but there were also twenty other kids just standing in a circle staring at each other in silence.
 
-No again I thought.
+Not again I thought.
 
 They were all fixed on the center of the circle. I waved my arms at my brother in spite of how weird and creepy I thought there game was. I didn't want to upset him. He gave no response. I started to get frustrated, after a few minutes of attempting to get his attention I went over to him and lightly grabbed his arm and tried to pull him aside. As soon as the circle broke all the kids turned 180 degrees and starting running in straight lines.
 
@@ -50,7 +50,7 @@ They were all fixed on the center of the circle. I waved my arms at my brother i
 
 Today we woke up in a panic. Mom said my brother was gone and she had gotten several calls from other parents asking if they had seen their children. I looked through my brothers belongings but found nothing. That was until I saw his journal. I wouldn't have read it normally but did in the circumstance.
 
-All it said on every page was 'Today I watched Mr. Troubles. I won." I dropped the book in horror. What was the Mr. Troubles really and why was my brother seemingly so obsessed with him! Were all the kids like this? I quickly opened my phone and searched for the channel.
+All it said on every page was 'Today I watched Mr. Troubles. I won." I dropped the book in horror. What was this Mr. Troubles really and why was my brother seemingly so obsessed with him! Were all the kids like this? I quickly opened my phone and searched for the channel.
 
 Zero results.
 
