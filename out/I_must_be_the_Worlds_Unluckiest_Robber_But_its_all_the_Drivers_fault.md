@@ -6,7 +6,7 @@ But for whatever reason, I walked down the block to the Grab&Go that day. Cars w
 
 Which makes me think now, why did I choose that dump? Why didn't I go a few blocks over to where the nicer 7 stood?
 
-And it wasn't as if I didn't have enough cash in my pocket to get what I wanted. Just a bag of chips and a soda. So I can't really say why I decided to do what I did. Maybe it was to answer that burning question that kept searing itself into the back of my brain every night as I lay in front of the glow of my tv.
+And it wasn't as if I didn't have enough cash in my pocket to get what I wanted. Just a bag of chips and a soda. So I can't really say why I decided to do what I did. Maybe it was to answer that burning question that kept searing itself into the back of my brain every night as I laid in front of the glow of my tv.
 
 What if I...?
 

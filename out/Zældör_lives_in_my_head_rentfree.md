@@ -26,7 +26,7 @@ The video started off exactly like how the thumbnail looked, complete and utter 
   
 Still confused, I continued to stare at the two dots. The more I looked at it, the more the dots started to resemble eyes. I could even start to make out a lumpy inhuman silhouette that surrounded it. Here’s a screenshot that I took:
   
-https://i.imgur.com/Z5cfXnM.jpg
+[Untitled](https://i.imgur.com/Z5cfXnM.jpg)
   
 I chuckled. Was this someone’s poor attempt at making a scary video? It looked like the eyes and silhouette were sloppily drawn onto a still picture of their living room window that looked out onto their backyard. The title of the video didn’t even make any sense. Was Zældör supposed to be the “monster"?
   

@@ -134,4 +134,4 @@ Z4E1D0R3
 
 ZAELDORE
 
-ZÆLDÖRE.
+[ZÆLDÖRE](https://www.reddit.com/r/nosleep/s/B2XvRudCRK).

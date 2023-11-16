@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/s/oiiXWhgUkX)
+
 I woke up in a fog this morning, eyes heavy and dreary from the little sleep I got. I look over at the clock and sigh, realizing it is 8 AM and I need to go to work. I push the covers off my body, and slowly rise out of bed. I stretch before heading down my hall toward the bathroom. 
 
 I never liked mornings much, and this one was no exception. I dreaded the monotony of daily tasks, and found myself often bored by how mundane life can be. 
