@@ -110,8 +110,6 @@ At first, I thought it was a prank. They were just going to pop up, and try to s
 
 *They must have left already,* I told myself. But I never heard the door open. Regardless, I kept telling myself this, grabbed the papers, returned the room to normal, and got out of there. I managed to sneak into the crowd of parents and orchestra members as they were leaving the school.
 
----
-
 I tried calling Kyle and Taylor when I got home. They didn’t pick up. I tried calling again Saturday. Still no answer. On Sunday their parents picked up the phone, just as worried as I was. On Monday Kyle and Taylor were both declared missing.
 
 I heard it during the morning announcements, on the loudspeaker. Everyone began talking to each other, wondering what happened. Everyone except for me. I didn’t tell anyone what I saw. I don’t even know what I saw. I kept thinking about that night, wondering what exactly happened. My train of thought was interrupted when Mr. Penumbrum shushed all of us.
@@ -129,3 +127,5 @@ I began to raise hand to ask Mr. P for another copy, when I noticed something th
 It was a strange marking, almost like a smudge. Completely black, and an irregular shape. At first glance, it looked like just another printer failure. But as I squinted, I realized it looked like something else. Something that I saw that night.
 
 It looked like the shadows of Kyle and Taylor.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/17w8gvr/the_last_page_part_2/?utm_source=share&utm_medium=web2x&context=3)

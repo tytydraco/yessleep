@@ -26,11 +26,11 @@ And beyond them lay the shades of the newly-dead, not quite solid, their bodies 
 
 He yanked away my comforter, and the cold night air broke me out of my trance. Part of me wanted to smack him, but I knew how that would turn out. I was ten and rail-thin, the skinniest boy in my class. Jordan was twelve but built like a guy even older with a sheen of peach fuzz already starting to grow on his upper lip.
 
-I stood and walked to the window. Sure enough, across the vacant field behind our house, I spotted a small flashlight glinting from the nearby woods. 
+I stood and walked to the window. Sure enough, across the vacant field behind our house, I spotted a small flashlight glinting from the nearby woods.
 
 “Someone lost, you think?” I asked.
 
-“Maybe,” he said. 
+“Maybe,” he said.
 
 “Should we get dad?” I asked.
 
@@ -54,17 +54,17 @@ Jordan shrugged. “He’d deserve it. Fuck it. I’m not going out in the cold 
 
 “Or just trees breaking in the wind,” I guessed, but Jordan shook his head.
 
-There had always been rumors of people meeting in the forest. Hunters, sure. But sometimes kids told stories about a coven of witches. Or sometimes a cult of the town fathers, out in the full moon, crafting circles and runes out of dog blood. 
+There had always been rumors of people meeting in the forest. Hunters, sure. But sometimes kids told stories about a coven of witches. Or sometimes a cult of the town fathers, out in the full moon, crafting circles and runes out of dog blood.
 
 “It’s got to be dad,” I said, unsure.
 
-Jordan started putting on his jeans and gestured for me to do the same. 
+Jordan started putting on his jeans and gestured for me to do the same.
 
 “Let’s go find out,” he said. “But if it’s him and he’s in a hitting mood, I’m not getting near him.”
 
-I threw on my clothes and grabbed a flashlight. Down the hall, the soft sound of Callum’s snoring felt oddly reassuring. Part of me wanted to crawl into bed with him and go back to sleep like we had when we were both littler. 
+I threw on my clothes and grabbed a flashlight. Down the hall, the soft sound of Callum’s snoring felt oddly reassuring. Part of me wanted to crawl into bed with him and go back to sleep like we had when we were both littler.
 
-“Hey, Fuckface, come on,” said Jordan, and I followed him downstairs. 
+“Hey, Fuckface, come on,” said Jordan, and I followed him downstairs.
 
 Jordan led the way, sliding open the glass door to the back porch. It was mid-November, not cold enough to frost overnight yet, but the night air had a chill that made me reconsider going outside. I was about to say something, maybe call the whole thing off, when we heard a groan in the distance.
 
@@ -74,11 +74,11 @@ Jordan led the way, sliding open the glass door to the back porch. It was mid-No
 
 The figure was a bit closer now, maybe five hundred feet away. In the moonlight, I could just make out the figure of a man holding a light in one hand, the other arm clutched to his belly. He was hunched over, weaving as he walked toward us.
 
-A chill went through me. Everything in me wanted to run back inside and shut the door. 
+A chill went through me. Everything in me wanted to run back inside and shut the door.
 
-“Come on,” Jordan said, and despite my better instincts, I followed. At first, he walked carefully through the tall grass, goosestepping to avoid the star thistle and gopher holes. But when we heard the man moan again, we both started running. 
+“Come on,” Jordan said, and despite my better instincts, I followed. At first, he walked carefully through the tall grass, goosestepping to avoid the star thistle and gopher holes. But when we heard the man moan again, we both started running.
 
-We reached him a few seconds later. At first, blinded by his flashlight, I didn’t recognize him. Then, when he thought to point it at the ground, away from our eyes, I realized who he was: Gene Bowler, a man I’d grown up watching in a dozen cheesy car commercials, the owner of a big dealership near the edge of town. 
+We reached him a few seconds later. At first, blinded by his flashlight, I didn’t recognize him. Then, when he thought to point it at the ground, away from our eyes, I realized who he was: Gene Bowler, a man I’d grown up watching in a dozen cheesy car commercials, the owner of a big dealership near the edge of town.
 
 “Are you okay?” I asked. In response, he let out a bitter laugh that made him choke out blood. Looking down, I realized his entire shirt was sopping wet with blood.
 
@@ -96,15 +96,15 @@ Mr. Bowler pulled his hand back slightly.
 
 “Don’t get greedy,” he said. “That’s where I went wrong. One each.”
 
-Jordan took a coin from Mr. Bowler’s bloody hand. It looked slick and black in the moonlight. I thought of every bloodborne disease we’d learned about in school, all the warnings about needles and HIV. 
+Jordan took a coin from Mr. Bowler’s bloody hand. It looked slick and black in the moonlight. I thought of every bloodborne disease we’d learned about in school, all the warnings about needles and HIV.
 
 “Please,” said the man looking at me. “This one wasn’t even mine. I shouldn’t have tried to take it.”
 
-I hesitated for a moment more, and Mr. Bowler turned his head to choke out more blood. Then, finally, I reached forward and took it just as the sound of his wet breathing went quiet. 
+I hesitated for a moment more, and Mr. Bowler turned his head to choke out more blood. Then, finally, I reached forward and took it just as the sound of his wet breathing went quiet.
 
 I’m not sure if he was alive or dead when I grabbed the coin from his hand.
 
-Later, after we’d called the cops but before they arrived, Jordan and I stood side by side at the kitchen sink washing the blood from our hands. After I was finally clean, I rinsed off the coin as well. 
+Later, after we’d called the cops but before they arrived, Jordan and I stood side by side at the kitchen sink washing the blood from our hands. After I was finally clean, I rinsed off the coin as well.
 
 I’d thought it was just a quarter at first, but now I saw that the image was of an elk skull. On the flipside were the neatly engraved letters of that familiar chant:
 
@@ -121,3 +121,5 @@ Jordan just stood there, reading it over and over again.
 “I don’t know,” he said. “But when the cops get here, don’t say shit. To them. To dad. To anyone. This stays between us.”
 
 [I wish I hadn’t listened.](https://www.reddit.com/r/scarymaxx/comments/zwo5o8/welcome_to_the_world_of_scarymaxx/)
+
+[Update!](https://www.reddit.com/r/nosleep/comments/17w8tb2/i_got_a_coin_for_the_deathwish_well_i_found_out/)
