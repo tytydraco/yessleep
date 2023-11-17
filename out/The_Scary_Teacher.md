@@ -1,0 +1,13 @@
+The story begins, but first, Ignore the title- this scary tale is about no teacher; nay, a beast who lurked in Martin Junior High. My name is Danimal and I am now 28 years old, I will recount my middle school years... in all their ... horror glory ...  
+  
+'Twas 8 years ago and all throughout the school, the kids mocked me. I was never cool, more like a fool! But there was one teacher, my kindley, and well "endowed" english teacher, Mrs.Plumplebottom. She was always there to support me and help me learn, but nevertheless, she was shot at by a cannon and died.  
+  
+The Story begins with her replacement? Mizz Crabapple. Meaner than most, a cold heartless bitch as white as a ghost. She'd beat you and pinch you and pull on your hair, and hand out expulsions if she heard a swear. Now most kids would cry, would treat her with feer, but she hated me most, just cause I'm queer. Reader dearest, now listen, don't shout, don't cry, don't fret, you haven't heard "nothin'", no, reader, not yet! She spat in my eyes for being a gay, and left my hair in a frought disarray. She'd shave my head bald in front of the class, and when she was done, well, she'd grab my tight ass. I cried, "no more," tears streaming down cheeks, but that's when she'd hit me, and the marks lasted weeks. Now reader, you know, what did she did typically - but the next paragraph discusses true ... misery.  
+  
+The story begins, I saw mizz crabapple in the hallway and she saw me back. she looked at me with red eyes and said, "YOU!" With a single beckoning finger she seemed to pull me forth on astring, a veritable ragdolll ... If only I knew... she grabbed me by the scruff of the neck and screamed incoherently at my face. I felt her globules of spit mix with the salty tears which at this time were streaming down onto my engorged belly which was barely contained by my tweety bird tee ... she threw me to the ground then, like a rag sopping wet and heavy with milk, and stormed off. I saw her throw smaller students into lockers as she made her way to the principal's office. She was so tall her head scraped the ceiling and her shoes left marks on the solid concrete floors, by the way .  
+  
+The story begins, one early mourn when I was walking out of the girls bathroom with my at the time boyfriend (And as of now arch rival) Tyrone. Mizz Crabapple saw us walking and she flew at me like a ghost. Ahh. I was really scared but I knew I couldnt tell the principle about what Mizz Crabapple had done or else. I walked home that day and saw Mizz Crabapple dead, she had been triple T-boned by 6 school busses and she almost died but I could tell that she was gonna be O.K. in the end.  
+  
+Well, Ive ran out of pages, so I guess this is:  
+  
+THE END
