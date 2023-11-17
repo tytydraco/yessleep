@@ -82,7 +82,7 @@ Two days later, the CEO of the seemingly lucrative company dies at Mount Sinai. 
 
 The day I get the promotion, I am so thrilled and the only person I want to celebrate with is Elisa. She is also the reason I had gotten this unfathomable career escalation and I want to thank her. I find myself taking a cab over to her apartment and ignoring the one rule she asked of me. I get out of work unusually early, before sunset, and I honestly think she’ll be so happy with the news that she’ll understand why I’m breaking the rule. As my cab pulls up to her apartment, I see her exiting the building in a fitted black dress, and getting into her car, a Mercedes Benz 500 SEL AMG. She is being driven Ronaldo, her chauffeur, a Filipino guy in his late 20’s. Her car takes off before I can get out of the cab. Maybe she has to entertain for work or maybe she’s on her way to an office I don’t know about… I realize there is a lot I don’t know about her.
 
-This doesn’t make me worry or distrust her. Elisa is a woman of her word and she’s functioning on a level many of the best don’t even graze. I guess this is why I decide not to tell her I almost broke the rule. It will only upset her. 
+This doesn’t make me worry or distrust her. Elisa is a woman of her word and she’s functioning on a level many of the best don’t even graze. I guess this is why I decide not to tell her I almost broke the rule. It will only upset her.
 
 We celebrate my promotion over a brunch that next weekend. I ask her how she found out about the company’s declining profits because the CEO had gone through great lengths to hide the financials. She tells me that every first Tuesday of the month, several CEO wives, including the wife of CEO of the seemingly lucrative company, go to the Pierre for high tea -- which is code for coke and B-52s. So Elisa goes to the Pierre and follows Mrs. Seemingly Lucrative Company and a friend to the bathroom where the wife is distraught about having to sell their East End and Vail estates. This makes absolutely no sense because, with the housing market at a 14% interest, no one is selling unless they have to… which also doesn’t make sense… unless seemingly lucrative company is seemingly misreporting their quarterly earnings.
 
@@ -114,9 +114,9 @@ My mom gasps at my blasphemous statement. “She coulda fooled me…” Mom says
 
 That day, Elisa organically charms everyone the way she had charmed me. Or so I thought.
 
-The time comes for Elisa and I to leave, but I’m having a little trouble wrapping up conversations. Elisa tells me to stay, take the train back. She will ride with Ronaldo so she can get to work. She works every weekend. I appreciate how thoughtful she is and love her fiery independence. When I wave off to her in the car, the flood of family input on my girlfriend bubbles up.
+The time comes for Elisa and I to leave, but I’m having a little trouble wrapping up conversations. Elisa tells me to stay, take the train back. She will ride with Ronaldo so she can get to work. She works the weekend nights too. I appreciate how thoughtful she is and love her fiery independence. When I wave off to her in the car, the flood of family input on my girlfriend bubbles up.
 
-“*I’m* in love with her!” Mom says.
+“*I’m* in love with her! She is so exotic…” Mom says.
 
 “She’s definitely a keeper,” resounds Dad.
 
@@ -170,7 +170,7 @@ I was naive then and I took all the wrong sentiments from that lunch with my fam
 
 Shopping for a ring for your girlfriend is hard, but if your girlfriend is a millionaire who can buy herself anything she wants, it is damn near impossible. For me this isn’t about being showy or diamond cut and clarity (subjects I come to know intimately through the ring shopping process), it’s about finding a ring worthy of Elisa. This comes in the form of a three-carat, vintage, Asscher cut, yellow diamond set in white gold that I win in an auction at Christie’s. I outbid a countess and famous collector for it and I emerge from the auction house holding the box, feeling like a champion.
 
-As I walk up 5th Avenue, I run into a drunken Jimmy. The worst kind of Jimmy.
+As I walk up 5th Avenue, I run into a drunken Jimmy, the worst kind of Jimmy.
 
 “Well look at who we have here… William ‘never-has-time-for-a-martini-with-the boys’ Claiborne,” he says, a lot too loud.
 
