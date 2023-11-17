@@ -56,6 +56,12 @@ Frank’s eyes bulged.
 
 Obviously, I survived. But not everyone else did. That’s all I can bring myself to say for right now. I’ll have to [finish later](https://www.facebook.com/P-F-McGrail-181784199029462/).
 
+-----------
+
+[How it all ended](https://redd.it/17xe404)
+
+--------------
+
 [BD](https://www.reddit.com/r/ByfelsDisciple/)
 
 
