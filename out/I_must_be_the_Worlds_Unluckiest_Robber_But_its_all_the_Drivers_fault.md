@@ -10,7 +10,7 @@ And it wasn't as if I didn't have enough cash in my pocket to get what I wanted.
 
 What if I...?
 
-And the moment that the words filled themselves in, there was no changing my mind. I have always been like that for some reason. So once I decided to do what I did, I realized that the best way to start it off was to cause a scene. And I couldn't think of a better way than to push the aisle over and watch all the bottles of wine crash onto the floor - dyeing the grime white tiles a dirty beige.
+And the moment that the words filled themselves in, there was no changing my mind. I have always been like that for some reason. So once I decided to do what I did, I realized that the best way to start it off was to cause a scene. And I couldn't think of a better way than to push the aisle over and watch all the cheap bottles of wine crash onto the floor - dyeing the grime white tiles a dirty beige.
 
 Causing everyone to turn their eyes on me, and I was liking it.
 
@@ -70,7 +70,7 @@ His eyes disappeared from the rearview mirror as they aimed for the gap between 
 
 The look on the faces of the people in the other cars, were a mix of shock and horror as we jigsawed our way through them like a can of beans.
 
-When it got a bit narrow, we started to slow down and I shouted at him, "What are you doing?"
+When we were finally clear, the vehicle started to slow down so I shouted at him, "What are you doing?"
 
 "There's a red light."
 
@@ -78,7 +78,7 @@ When it got a bit narrow, we started to slow down and I shouted at him, "What ar
 
 I watched his head turn to the left to make sure that it was clear before he gunned it.
 
-A red Sentra came rushing towards my window as we split into the intersection. I could see the woman inside, her eyes widening as she let go of the wheel to shield her face.
+We got about 3 feet into the intersection before a red Sentra came rushing towards my window. I could see the woman inside, her eyes widening as she let go of the wheel to shield her face.
 
 She missed us by a hair.
 
@@ -140,13 +140,11 @@ I put my hand back in my pocket and jammed my jacket between his ribs. I could a
 
 "You're not to stop this car," I ordered. "You understand?"
 
-His shoulders loosened a little, "Oh no. Don't worry. We won't have to stop. She's a crossing guard."
+His shoulders loosened a little, "Oh no. No, no, no. Don't worry. We won't have to stop. She's a crossing guard."
 
-No sooner had he finished before the galvanized steel poles stuck up from the ground around us, their yellow signs warned of children ahead and to reduce speeds in a school zone. The Driver beeped his horns twice as he sped up towards the crosswalk. Kids in their tiny backpacks were already in the street. A woman in a bright yellow reflective jacket holding a stop sign turned and looked at us in utter horror. I watched as her mouth opened, I screamed for us both as the car slammed into her and proceeded to eat her under the hood as if she were being swallowed.
+No sooner had he finished before the galvanized steel poles stuck up from the ground around us, their yellow signs warned of children ahead and to reduce speeds in a school zone. The Driver beeped his horn twice as he sped up towards the crosswalk. Kids with their tiny backpacks were already in the street. A woman in a bright yellow reflective jacket holding a stop sign turned and looked at us in utter horror. The Driver smiled and waved. I watched as her mouth open, and I screamed for the both of us as the car slammed into her and proceeded to eat her under the hood as if she were being swallowed.
 
-The Driver smiled and waved.
-
-"This isn't real," I felt my mouth form.
+"This isn't real," I felt my lips form.
 
 "Hey, how about some music," he told me as the radio came over speakers. "No that's no good. We need something better." He flipped through the channels before finally settling on one. "Oh, I like this song. Never cared much for the album you know? But this number is pretty good."
 
@@ -170,15 +168,15 @@ The Driver smiled and waved.
 
 "I don't know," he told me. I could see his eyes staring back at me from the rearview mirror. Just his eyes. "I woke up this morning, like any other morning. Tired, and sick, and broke, but just needing to get to work you know. Any other, every other, day. But then you showed up." He laughed. "God knows what I would have done if you hadn't." He paused, "Or, you know, whoever it is that you believe in. Or don't. I don't really care, you know?" He laughed, "It's not like I'm that religious anyways. I haven't been to mass in years."
 
-I could feel my eyes widening in my sockets as he kept blabbing, the pressure from my brain trying to process what was happening began pushing against my eyeballs from a place behind my skull that I couldn't see. It felt as if the pain got any worse, they'd detach my retinas.
+I could feel my eyes widening in my sockets as he kept babbling, the pressure from my brain trying to process what was happening began pushing against my eyeballs from a place behind my skull that I couldn't see. It felt as if the pain got any worse, they'd detach my retinas.
 
 "Let me out," I shook his seat. "Stop the car and let me out!"
 
-He looked up at me again through the rearview mirror, there was a crazed look in his eyes. They almost looked happy I thought, right before I heard the doors click.
+He looked up at me again through the rearview mirror, and again all I saw were his eyes. They almost looked happy I thought, right before I heard the doors click.
 
 I pulled at the handle from the rear seat. The thing didn't notch. It was like a limp dick in my hands. I pulled it again, and all I felt was the spring action but still no click.
 
-"Child safety locks," he told me. Before he gushed with pleasure from his mouth, "Oooh," he said as a guy waiting for the bus appeared in our windshield.
+"Child safety locks," he told me. Before he gushed with pleasure from his mouth. And before I could do anything, I hear the words "Oooh," ooze out of his mouth as a guy waiting for the bus appeared between our windshield.
 
 The Driver ran him over.
 
@@ -198,11 +196,11 @@ But all he did was keep laughing, "10 points! 8! Oh that one's gonna be a 5 or a
 
 But the car kept bouncing and he kept laughing as I kept repeating, "This isn't real. This can't be real! Dear Lord, please make it stop," I moaned.
 
-And then as if it were godsent. I felt something ram into us. The Driver yelped angrily as he spun the wheel. I looked up and saw us heading for a couple of empty parking spaces. The cement parking blocks tossed our heads in the car as we ran over them.
+And then as if it were godsent. I felt something ram into us. The Driver yelped angrily as he spun the wheel. I looked up and saw us heading for a couple of empty parking spaces. The cement parking blocks jostled us like a half empty paint can as we ran over them.
 
-I looked back and saw a black pickup steaming from the hood as it gave chase.
+I looked back and saw the black pickup, steam spew out of its hood as it gave chase.
 
-The guy in the truck rammed us again from behind, sending the car into a parked handicap pole. Smoke was coming from our hood as the engine coughed. The Driver tried to put us into reverse but by then several squad cars had caught up. Each one smashing us in, crushing the car's frame like a soda can, cracking all the windows until I could barely see out of them. Over and over again we were hit until their front bumpers pinched us from all sides, to a dead stop.
+The black truck rammed us again from behind, sending the car into a parked handicap pole. Smoke began coming out the front as the engine coughed. The Driver tried to put us into reverse but by then several squad cars had caught up. Each one smashing into us, crushing the car's frame like a soda can, cracking all the windows until I could barely see out of them. Over and over again we were hit until their front bumpers crushing us from every direction until we came to a dead stop.
 
 "Put your hands up," I heard several angry voices shouting. Someone was attempting to kick the glass down. "Do not reach for your weapon!"
 
@@ -218,13 +216,13 @@ Several days later I woke up in a hospital bed, chained to the gurney as the ste
 
 For the next few weeks detectives and lawyers came in and out of my room to question me.
 
-And I admitted to everything. The gas station, the hijacking. And how I even felt absolutely devastated about the kid that got shot. And how I'd take full responsibility for the consequences of my actions. But what happened afterwards? What happened in that car? All those people? I told them that it wasn't me. That I didn't tell the Driver to run over all those people.
+And I admitted to everything. The gas station, the hijacking. And how I felt absolutely horrible about causing that kid getting shot. And how I'd take full responsibility for the consequences of my actions. But everything that happened after I left the store? What happened in that car? All those people? I told them that it wasn't me. That I didn't tell the Driver to run over all those people.
 
 Of course no one believed me. Especially not the jury after hearing everyone who suffered that day on the stand.
 
 Now because of that stupid, awful, split-second choice that I would have never made on any other, every other day. I'm sentenced to life. Which means that there's really no point if anyone actually believes my version of things. It's not as if I could get parole or anything. So I've mostly given up trying to convince anyone.
 
-But I thought I'd give it just one last try, not for myself or anything like that. But for all those people locked up out there with that Driver. Because yesterday I got a letter in the mail from him, and it was mostly blank, except for a few haunting scribbles that read, "Got a new car =\]."
+But I thought I'd give it just one last try, not for myself or anything like that. But for all those people locked up out there with that Driver. Because yesterday I got a letter in the mail from him, and it was mostly blank, except for a few haunting scribbles that read, "Got a new car ;)".
 
 &#x200B;
 
