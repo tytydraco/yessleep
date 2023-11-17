@@ -41,3 +41,6 @@ I remember in early December, my dad had gotten rid of every phone in the house.
 
 
 I still have some stories about these seven years to tell…I’m visiting my mom and Amy this weekend and I hate to bring these traumas back up…but I intend to ask them about this time of our life for more accurate details to relay. Hope to update you all soon.
+
+
+[Part 2](https://www.reddit.com/r/nosleep/s/PGHIZJ6Hux)

@@ -2,7 +2,7 @@
 
 [[Part 2]](https://www.reddit.com/r/nosleep/comments/17ape6a/something_vengeful_haunts_the_shores_of_loch/) First blood.
 
-[[Part 3]](https://www.reddit.com/r/nosleep/comments/17fig34/something_vengeful_haunts_the_shores_of_loch/) Was there **a monster** in [the trees](https://pbs.twimg.com/media/Fowp13LXsAA8RCM?format=jpg&name=small)?
+[[Part 3]](https://www.reddit.com/r/nosleep/comments/17fig34/something_vengeful_haunts_the_shores_of_loch/) Was there **a monster** in the trees?
 
 [[Part 4]](https://new.reddit.com/r/nosleep/comments/17lbpcu/something_vengeful_haunts_the_shores_of_loch/) Heartbreak.
 
@@ -534,4 +534,6 @@ The night that came next was the worst of my life.
 
 Final part to follow.
 
--- [Faux](https://www.reddit.com/user/Familiar_Faux)
+-- Faux
+
+[[Final]](https://www.reddit.com/r/nosleep/comments/17xi0wk/something_vengeful_haunts_the_shores_of_loch/)
