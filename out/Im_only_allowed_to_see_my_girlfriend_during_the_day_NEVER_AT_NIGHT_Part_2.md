@@ -72,7 +72,9 @@ Before she can finish, I interrupt, I need her to know, “I believe you.” Ev
 
 “Once the thing has sucked everything from me,” she braces herself, “ripped my baby out of me… It drops me back onto the bed and it… recoils… back to the roof. Then, I scream. I can finally scream, and Doug comes running in.” 
 
-The only thing I can be thankful for is that this is the end of the story – or so I think. I know it must have been brutal to live through, but helplessly listening to the people you love going through hell and back is its own special kind of torture. She looks off despondently and resigned. Not dead yet, but how Jean looks – well, like she had had the life sucked out of her. Then she speaks into a vacuum, like she’s going to the sunken place in that movie *Get Out.* She was here, but she’s moving further and further away. 
+The only thing I can be thankful for is that this is the end of the story – or so I think. I know it must have been brutal to live through, but helplessly listening to the people you love going through hell and back is its own special kind of torture. 
+
+She stares off despondently and resigned. Not dead yet, but how Jean looks – well, like she had had the life sucked out of her. Then she speaks into a vacuum, like she’s going to the sunken place in that movie *Get Out.* She was here, but she’s moving further and further away. 
 
 “Doug says he believes me but I know he doesn’t. There is a crack in the ceiling and the roof… where the tongue came in… Doug thinks he remembers the crack must have been there before.” 
 
