@@ -1,6 +1,4 @@
-[A Mission](https://www.reddit.com/r/nosleep/comments/qjwp3f/im_a_research_assistant_with_some_stories_to_tell/) Cursed Tapes: [Part 1](https://www.reddit.com/r/nosleep/comments/115ba99/the_cursed_contest_tapes/) [Part 2](https://www.reddit.com/r/nosleep/comments/11d7unm/the_cursed_contest_tapes_part_2/) [Part 3](https://www.reddit.com/r/nosleep/comments/13nnw6c/the_cursed_contest_tapes_part_3/) [Another Mission](https://www.reddit.com/r/nosleep/comments/1492den/im_a_research_assistant_with_some_stories_to_tell/) Cursed Tapes: [Part 4](https://www.reddit.com/r/nosleep/comments/152fo0p/the_cursed_contest_tapes_part_4/) [Part 5](https://www.reddit.com/r/nosleep/comments/15zz8ql/the_cursed_contest_tapes_part_5/) [The Mission In The Rain](https://www.reddit.com/r/nosleep/comments/16pkqv8/records_from_a_research_assistant_the_mission_in/) [The Game In The Rain](https://www.reddit.com/r/nosleep/comments/16w0tca/records_from_a_research_assitant_the_game_in_the/)  Cursed Tape: [Halloween](https://www.reddit.com/r/nosleep/comments/17dpgoh/the_cursed_contest_tapes_part_6_trick_r_treat/) [My Last Post](https://www.reddit.com/r/nosleep/comments/17i652m/im_a_research_assistant_with_some_stories_to_tell/)  
-  
-
+[A Mission](https://www.reddit.com/r/nosleep/comments/qjwp3f/im_a_research_assistant_with_some_stories_to_tell/) Cursed Tapes: [Part 1](https://www.reddit.com/r/nosleep/comments/115ba99/the_cursed_contest_tapes/) [Part 2](https://www.reddit.com/r/nosleep/comments/11d7unm/the_cursed_contest_tapes_part_2/) [Part 3](https://www.reddit.com/r/nosleep/comments/13nnw6c/the_cursed_contest_tapes_part_3/) [Another Mission](https://www.reddit.com/r/nosleep/comments/1492den/im_a_research_assistant_with_some_stories_to_tell/) Cursed Tapes: [Part 4](https://www.reddit.com/r/nosleep/comments/152fo0p/the_cursed_contest_tapes_part_4/) [Part 5](https://www.reddit.com/r/nosleep/comments/15zz8ql/the_cursed_contest_tapes_part_5/) [The Mission In The Rain](https://www.reddit.com/r/nosleep/comments/16pkqv8/records_from_a_research_assistant_the_mission_in/) [The Game In The Rain](https://www.reddit.com/r/nosleep/comments/16w0tca/records_from_a_research_assitant_the_game_in_the/)  Cursed Tape: [Halloween](https://www.reddit.com/r/nosleep/comments/17dpgoh/the_cursed_contest_tapes_part_6_trick_r_treat/) [My Last Post](https://www.reddit.com/r/nosleep/comments/17i652m/im_a_research_assistant_with_some_stories_to_tell/)
 
 &#x200B;
 
@@ -931,3 +929,9 @@ After the whole ordeal back then, the lawyer we provided helped her earn a huge 
 &#x200B;
 
 I’ll have to get Herbie an outfit if I’m going to be attending. I think I’ll hit Brice and Sheila up about it too. Have a Happy Halloween everyone, Until next time, this is [Zane,](https://www.reddit.com/r/StoriesFromRose/) logging [off.](https://www.threads.net/@rose_black2222)
+
+&#x200B;
+
+&#x200B;
+
+[https://www.reddit.com/r/nosleep/comments/17xr01w/im\_a\_research\_assistant\_with\_some\_stories\_to\_tell/](https://www.reddit.com/r/nosleep/comments/17xr01w/im_a_research_assistant_with_some_stories_to_tell/) (It's almost time for Thanksgiving) 
