@@ -118,7 +118,7 @@ I hang up.
 
 I’ve already lost Elisa, I can’t lose my job on top of that. I decide then and there to let this all go and try to plug up my sinking ship, steer it toward healthier waters. I beg one of the guys for a tranquilizer, anything that will let me sleep. I start taking them every night. I still have my nightmares, but in the cold light of day I can function and when I can’t, I get good at faking it. 
 
-For the next year, I focus into work. I get into racquetball and play at the most elite of clubs to improve my connections and social standing. I get a new place on the Upper East Side. Yeah it’s bigger but the main reason I do this is because every nook and cranny of my apartment reminds me of Elisa. I get all new furniture, but for some reason I can’t bring myself to get rid of the ring. 
+For the next year, I focus into work. I get into racquetball and play at the most elite clubs to improve my connections and social standing. I get a new place on the Upper East Side. Yeah it’s bigger but the main reason I do this is because every nook and cranny of my apartment reminds me of Elisa. I get all new furniture, but for some reason I can’t bring myself to get rid of the ring. 
 
 As the seasons change, Jean moves from holding to a mental health institution, and then eventually back home to Tuxedo Park. She spends most of her days fairly sedated from a steady dose of pills but her doctors say she’s making progress. Smithson tries to set me up with one of his wife’s friends, a pretty gal, Kelly. We go out a few times, sleep together a few more, but she’s no Elisa. She eventually breaks it off. I don’t blame her; it’s pretty obvious I’m trying to fill a void. 
 
