@@ -20,9 +20,4 @@ For days, I was plagued by nightmares of Lily, her face contorted in agony. I aw
   
 Desperation set in as I researched the history of that forsaken highway. It led me to a local legend—a young woman named Lily who died in a car accident while hitchhiking home. Her spirit, they said, wandered the road, forever seeking a way back.  
   
-Every night, Lily's ghostly presence haunted me. I could feel her cold gaze, her whispers echoing in the silence. It became too much to bear. I had to share my story, to warn others of the ghostly hitchhiker on the abandoned highway. If you find yourself on a desolate road and see a figure in the shadows, drive on. Don't stop, for the hitchhiker you pick up might not be as human as they seem.  
-  
-  
-  
-  
-  
+Every night, Lily's ghostly presence haunted me. I could feel her cold gaze, her whispers echoing in the silence. It became too much to bear. I had to share my story, to warn others of the ghostly hitchhiker on the abandoned highway. If you find yourself on a desolate road and see a figure in the shadows, drive on. Don't stop, for the hitchhiker you pick up might not be as human as they seem.

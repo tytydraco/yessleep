@@ -125,3 +125,6 @@ The problem is that it's becoming more brazen, and it started licking my face ab
 &#x200B;
 
 Update: CRAP! I FORGOT TO PUT THE MEAT DISH IN THE OFFICE, I'M GOING TO CALL MR. GONZALES RIGHT AWAY!
+
+  
+Update 2: Ok, I think everything is fine now, I got yelled at but I'm still in one piece. I'll bring more updates later  
