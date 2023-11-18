@@ -26,7 +26,7 @@ No sooner had I laid back down when the smell hits me. It's completely rancid an
 
 I couldn't quite figure out what could have been the cause for the smell as our dinner was light and didn't involve anything that could have smeared such an acidic taste into my mouth.
 
-I wanted to cough but I didn't. I was afraid that whatever made her pee smell this horrible was making her feel physically uncomfortable as well. And the smell was so strong, I was positive that she knew it too. So I didn't want to make her feel worse by addressing it.
+I wanted to cough but I didn't. I was afraid that whatever made her pee smell this horrible was also making her feel physically uncomfortable as well. And the smell was so strong, I was positive that she knew it too. So I didn't want to make her feel worse by addressing it.
 
 A few seconds later I hear the toilet seat drop.
 
@@ -48,17 +48,17 @@ Slowly I get up from the bed and walk towards the bathroom. I glance inside but 
 
 But the entire place seemed empty.
 
-It wouldn't be until I look over on her side of the room, do I find her curled up on the floor, sleeping like a baby.
+It wouldn't be until I looked over on her side of the room, do I find her curled up on the floor, sleeping like a baby.
 
 I touched her hair but it's wasn't wet.
 
-Then I put my face next to her mouth and smell her breath. And it's not pretty but it doesn't reek like the smell from earlier.
+Then I put my face next to her mouth and smelled her breath. And it's not pretty but it doesn't reek like the stench from earlier.
 
 I glance around the room again to make sure that we were alone before picking her up and setting her back into bed.
 
 That night, I left the lights on.
 
-In the morning, I told her what had happened. She only laughed and said that I had a good imagination. But when I pressed her about it she started to get angry, in fact she was so adamant about the whole thing that I dropped it. And since that night, it's not like it ever happened again. So I guess that means my girlfriend is sleepwalking but she just doesn't know it.
+In the morning, I told her what had happened. She only laughed and said that I had a good imagination. But when I pressed her about it she started to get angry, in fact she was so adamant about the whole thing never happening that I  chose to drop it. And since that night, it's not like it ever happened again. So I guess that means my girlfriend is sleepwalking but she just doesn't know it.
 
 &#x200B;
 
