@@ -129,4 +129,5 @@ I cast one last look back at the picture of the woman as I moved towards the sta
 
 
 I had no idea that the most terrifying and horrific things were still to come.  
-
+
+[Part 2](https://www.reddit.com/r/nosleep/s/tAfR3JtlHz)

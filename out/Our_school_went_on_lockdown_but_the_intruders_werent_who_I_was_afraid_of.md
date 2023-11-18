@@ -181,7 +181,7 @@ The other line on the radio said something, though I couldn't make out what. "Ro
 The doors and windows were barricaded, making escape impossible, and what he said about a fire... They were planning to burn this school down, along with anyone trapped inside. Every time I felt enough bravery inside of me to exit the desk, I would hear footsteps passing by, and the unbearable dread returned. I knew I should just walk up to one of them. It would be a fast death. But I was a coward, and would rather remain passive. The wound dealt to me by Cindy hurt, but it was remarkably shallow, meaning blood loss wasn't an option.
 
   
-To pass the time, I've been writing this for the past hour or so. It's 7 now, and I haven't seen another soldier enter 402. It's helping pass the time. Not really.
+Reddit seems to be one of the only social medias that hasn't been, so I've been writing this for the past hour or so. It's 7 now, and there's no signs of the metal plates being lifted.
 
   
 I don't want to burn. I don't want to die. I haven't even texted my parents to let them know I love them. Please, help me. Havenwood High School. Room 402. Please, send someone. I can start smelling smoke already.
