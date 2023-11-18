@@ -75,3 +75,5 @@ Some time after the officers had vanished into the woods the knocking began agai
 please,
 
 help.
+
+Part 2: https://www.reddit.com/r/nosleep/s/SOtkyjnXAK 
