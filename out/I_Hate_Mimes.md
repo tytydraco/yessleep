@@ -57,7 +57,7 @@ I swiped the beret out of the mime’s hand, and he began to clap with glee, exp
 
 I started to laugh. Finally, a mime that I found funny! After a few seconds, the mime slowly stood back up, brushed himself off, and removed the beret from his face to put it back on his head. That’s when I noticed that the mime no longer had a smile on his face. In fact, he no longer had a FACE.
 
-There were just two, bottomless pits where his eyes were, but I could still tell that he was somehow staring at me. This time, with malicious intent. He then started to claw at where his mouth used to be, and I watched in horror as he created a new “mouth”, by tearing off his skin, revealing several rows of disgustingly long sharp teeth underneath. The rest of his body started to morph in disgusting ways that you couldn’t even imagine, and a screeching sound filled the air.
+There were just two, bottomless pits where his eyes were supposed to be, but I could still tell that he was somehow staring at me. This time, with malicious intent. He then started to claw at where his mouth used to be, and I watched in horror as he created a new “mouth”, by tearing off his skin, revealing several rows of disgustingly long sharp teeth underneath. The rest of his body started to morph in disgusting ways that you couldn’t even imagine, and a screeching sound filled the air.
 
 Hell no, fuck that.
 
