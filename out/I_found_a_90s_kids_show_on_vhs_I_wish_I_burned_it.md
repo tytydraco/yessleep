@@ -1,3 +1,5 @@
+[PT 2](https://www.reddit.com/r/nosleep/s/c2glYypkVd)
+
 In my spare time, I am an avid vhs tape collector. For more nostalgic reasons, I try to find old shows from my childhood. Recently, I was in my city's local pawn shop, and I found a few different vhs tapes. Dexter's laboratory, hey arnold.... and one I didn't recognize...... Sunny's neighborhood. 
 
 The box cover had a poorly animated kid, with glasses, waving with a scene of houses behind him. Curiously, I looked it up on my phone, and I found no mention of it anywhere. I thought it might have been a local show for the local station. I decided to buy it, and that night, I put it in my VCR.

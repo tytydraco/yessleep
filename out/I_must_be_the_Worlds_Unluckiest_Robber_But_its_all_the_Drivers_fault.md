@@ -218,9 +218,9 @@ For the next few weeks detectives and lawyers came in and out of my room to ques
 
 And I admitted to everything. The gas station, the hijacking. And how I felt absolutely horrible about causing that kid getting shot. And how I'd take full responsibility for the consequences of my actions. But everything that happened after I left the store? What happened in that car? All those people? I told them that it wasn't me. That I didn't tell the Driver to run over all those people.
 
-Of course no one believed me. Especially not the jury after hearing everyone who suffered that day on the stand.
+Of course no one believed me. Especially not the jury after hearing everyone's testimonies on the stand.
 
-Now because of that stupid, awful, split-second choice that I would have never made on any other, every other day. I'm sentenced to life. Which means that there's really no point if anyone actually believes my version of things. It's not as if I could get parole or anything. So I've mostly given up trying to convince anyone.
+Now because of that stupid, awful, split-second choice that I would have never made on any other, every other day. I'm sentenced to life. Which means that there's really no point if anyone actually believes my version of things. No reason to use this burner phone that I traded 2 cartons of cigarettes for to post this. It's not as if I could get parole or anything. So I've mostly given up trying to convince anyone.
 
 But I thought I'd give it just one last try, not for myself or anything like that. But for all those people locked up out there with that Driver. Because yesterday I got a letter in the mail from him, and it was mostly blank, except for a few haunting scribbles that read, "Got a new car ;)".
 
