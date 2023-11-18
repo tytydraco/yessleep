@@ -211,3 +211,7 @@ Take care,
 &#x200B;
 
 Sophie
+
+&#x200B;
+
+Update, [Part 4](https://www.reddit.com/r/nosleep/comments/17yeawp/silver_whispers_part_4/)
