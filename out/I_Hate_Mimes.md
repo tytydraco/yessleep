@@ -79,7 +79,8 @@ The wait for the elevator doors to reopen felt like it took forever. I was worri
 
 Unfortunately, it was not to the first floor of my apartment building.
 
-With a *ding* the elevator doors slowly opened, and I stepped out, utterly confused. I was back inside of my apartment room. I turned around to go back into the elevator, but it was gone.I felt something softly tap my shoulder. I whipped around to see the mime.
+With a *ding* the elevator doors slowly opened, and I stepped out, utterly confused. I was back inside of my apartment room. I turned around to go back into the elevator, but it was gone.
+I felt something softly tap my shoulder. I whipped around to see the mime.
 
 “Goddamnit.”
 

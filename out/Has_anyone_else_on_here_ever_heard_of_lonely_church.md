@@ -207,6 +207,8 @@ Back at the condo, everything’s still dark… the porch light isn’t on… an
 
 
 It sounds like something between a laugh and a scream placed beyond me and a hundred concrete blocks… like true terror… like a child screaming before he knows he’s about to die… but deeper… heavier… still, there’s something feminine about it… like a boy alto… something rich, and sad… muffled… apologetic.  
+
+
 I turn up the TV. Someone’s fighting in another house, I think… A domestic disturbance… You’ve spent a thousand nights hearing the same kind of thing… Over and over… over and over… But there it is again. Softer… moaning… somewhere. But this time, I don’t hear the concrete. Not muffled, but still quiet. It’s closer this time. Near the back hallway. I walk. Maybe it’s the kids. Maybe they’re alone, and someone had a nightmare, and I need to call my dad. Maybe their mom took some pills to sleep and they need help.  
 
 
@@ -274,6 +276,8 @@ He sat back down, and hunched back over the drawer. Hold on a second, he said. I
 
 
 Then I heard the sound again. Loudly this time. As if it was right in the room with me… behind and before at the same time.  
+
+
 The man looks up at me and smiles again… Would you like to see her? She still hurts a little, but she's just down there… there… He points to a spot behind the desk, and… again… as if I don't have a say… my feet start to move without me… towards him.  
 
 
