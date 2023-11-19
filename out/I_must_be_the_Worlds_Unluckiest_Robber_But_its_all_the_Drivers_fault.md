@@ -12,7 +12,7 @@ What if I...?
 
 And the moment that the words filled themselves in, there was no changing my mind. I have always been like that for some reason. So once I decided to do what I did, I realized that the best way to start it off was to cause a scene. And I couldn't think of a better way than to push the aisle over and watch all the cheap bottles of wine crash onto the floor - dyeing the grime white tiles a dirty beige.
 
-Causing everyone to turn their eyes on me, and I was liking it.
+Causing everyone to turn their eyes on me, which I liked.
 
 Some woman saw the bulge coming from my jacket pocket as I walked up towards the cash register. She screamed, "He's got a gun," as she ran into the wired spinning rack full of candy before crashing through the double doors.
 
@@ -74,7 +74,7 @@ When we were finally clear, the vehicle started to slow down so I shouted at him
 
 "There's a red light."
 
-"Run it," I shouted. "Run the light! Run it!"
+"Run it," I shouted. "Run the light! Run the light"
 
 I watched his head turn to the left to make sure that it was clear before he gunned it.
 
@@ -142,7 +142,7 @@ I put my hand back in my pocket and jammed my jacket between his ribs. I could a
 
 His shoulders loosened a little, "Oh no. No, no, no. Don't worry. We won't have to stop. She's a crossing guard."
 
-No sooner had he finished before the galvanized steel poles stuck up from the ground around us, their yellow signs warned of children ahead and to reduce speeds in a school zone. The Driver beeped his horn twice as he sped up towards the crosswalk. Kids with their tiny backpacks were already in the street. A woman in a bright yellow reflective jacket holding a stop sign turned and looked at us in utter horror. The Driver smiled and waved. I watched as her mouth open, and I screamed for the both of us as the car slammed into her and proceeded to eat her under the hood as if she were being swallowed.
+No sooner had he finished before the galvanized steel poles stuck up from the ground around us, their yellow signs warned of children ahead and to reduce speeds in a school zone. The Driver beeped his horn twice as he sped up towards the crosswalk. Kids with their tiny backpacks were already in the street. A woman in a bright yellow reflective jacket holding a stop sign turned and looked at us in utter horror. The Driver smiled and waved. I watched as her mouth opened. And then screamed for us both as the car slammed into the woman, and proceeded to eat her under the hood as if she were being swallowed.
 
 "This isn't real," I felt my lips form.
 
@@ -176,7 +176,7 @@ He looked up at me again through the rearview mirror, and again all I saw were h
 
 I pulled at the handle from the rear seat. The thing didn't notch. It was like a limp dick in my hands. I pulled it again, and all I felt was the spring action but still no click.
 
-"Child safety locks," he told me. Before he gushed with pleasure from his mouth. And before I could do anything, I hear the words "Oooh," ooze out of his mouth as a guy waiting for the bus appeared between our windshield.
+"Child safety locks," he told me. And before I could do anything, I hear the words "Oooh," oozing out of his mouth as a guy waiting for the bus appeared in our windshield.
 
 The Driver ran him over.
 
@@ -200,7 +200,7 @@ And then as if it were godsent. I felt something ram into us. The Driver yelped 
 
 I looked back and saw the black pickup, steam spew out of its hood as it gave chase.
 
-The black truck rammed us again from behind, sending the car into a parked handicap pole. Smoke began coming out the front as the engine coughed. The Driver tried to put us into reverse but by then several squad cars had caught up. Each one smashing into us, crushing the car's frame like a soda can, cracking all the windows until I could barely see out of them. Over and over again we were hit until their front bumpers crushing us from every direction until we came to a dead stop.
+The truck rammed us again from behind, sending the car into a parked handicap pole. Smoke began coming out the front as the engine coughed. The Driver tried to put us into reverse but by then several squad cars had caught up. Each one smashing into us, crushing the car's frame like a soda can, cracking all the windows until I could barely see out of them. Over and over again we were hit until their front bumpers pinned us in from every direction until we came to a dead stop.
 
 "Put your hands up," I heard several angry voices shouting. Someone was attempting to kick the glass down. "Do not reach for your weapon!"
 
@@ -216,13 +216,13 @@ Several days later I woke up in a hospital bed, chained to the gurney as the ste
 
 For the next few weeks detectives and lawyers came in and out of my room to question me.
 
-And I admitted to everything. The gas station, the hijacking. And how I felt absolutely horrible about causing that kid getting shot. And how I'd take full responsibility for the consequences of my actions. But everything that happened after I left the store? What happened in that car? All those people? I told them that it wasn't me. That I didn't tell the Driver to run over all those people.
+And I admitted to everything. The gas station, the hijacking. And how I felt absolutely horrible about causing that kid to get shot. And how I'd take full responsibility for the consequences of my actions. But everything that happened after I left the store? What happened in that car? All those people? I told them that it wasn't me. That I didn't tell the Driver to run over all those people.
 
 Of course no one believed me. Especially not the jury after hearing everyone's testimonies on the stand.
 
 Now because of that stupid, awful, split-second choice that I would have never made on any other, every other day. I'm sentenced to life. Which means that there's really no point if anyone actually believes my version of things. No reason to use this burner phone that I traded 2 cartons of cigarettes for to post this. It's not as if I could get parole or anything. So I've mostly given up trying to convince anyone.
 
-But I thought I'd give it just one last try, not for myself or anything like that. But for all those people locked up out there with that Driver. Because yesterday I got a letter in the mail from him, and it was mostly blank, except for a few haunting scribbles that read, "Got a new car ;)".
+But I thought I'd give it just one last try, not for myself or anything like that. But for all those people locked up out there with that Driver. Because yesterday I got a letter in the mail from him, and it was mostly blank, except for a few hastily scribbled words which read, "Got a new car ;)".
 
 &#x200B;
 
