@@ -1,0 +1,25 @@
+I am a 27-year-old man (Dustin) and I’ve been living in northern Canada my whole life. With this, it means I have been hunting many times throughout my years. I’ve been hunting since I was able to walk, Sure it gets repetitive but there’s something about it I’ve always enjoyed. It may be the thrill of finding an animal I’ve hunted myself or just the thought of me being able to get out of the city and have some time to myself but whatever it is it keeps bringing me back to the sport. 
+
+
+I have a girlfriend who I’ve been with for the past 5 years who’s never really enjoyed the thought of me killing innocent animals but she never held it against me as her father was a hunter himself. One thing she does dislike is when I go out on my own as she fears for my safety as there are many bears around my land. Although she feels nervous about it I always assure her I will be ok and she does not need to worry about me.
+ 
+
+It was the same tonight as I got ready to start my drive to the country my girlfriend had asked me to be safe and to go drop a gift off at my father's house for his birthday we had not been able to attend, this was not a problem for me as he had lived on the edge of town towards where I would be going. I had told my girlfriend I loved her and then made my way to drop the gift off.
+
+
+Once I’d made it to my dad’s house I had given him his gift and began to talk with him for a little bit. During our conversation, I had brought up that I was going hunting which had instantly made my dad’s expression change. As he looked at me he said “Do you remember the rule”. I replied with some anger “Yes I know to never whistle while hunting”. My father apologized for telling me all the time and said he just wanted to keep me safe. I had asked him many times why I couldn’t whistle but he always said to listen to him and not ask questions which made me stay quiet this time. He wished me luck and I went on my way beginning the drive through the countryside. 
+
+
+As I was driving the way my dad's face changed when I told him I would be hunting stuck in the back of my mind with an uneasy feeling, I thought nothing of it once I had arrived at the approach into my field. As I got out of the truck I saw down the road in the ditch there had been a truck seemingly left abandoned. This was odd to me as there is no civilization close to here for someone to leave their truck. I brushed it off as someone just driving off the road while texting or not paying attention. As I made my way through my field it felt unnaturally quiet, usually a bird was chirping or the rustling of the trees blowing with the wind but today there was nothing but complete silence. 
+
+
+As I reached my hunting blind on the other side of the field I had sat down and began to wait. While waiting I decided to text my girlfriend that I had made it safe and that I had dropped off the gift. Looking down at my phone I saw I had no service “Weird” I thought to myself I had at least 1 bar here all the time which was just enough to get a message through. As I was looking at my phone I looked up and realized a deer was making its way towards my bait. I had gotten ready with my rifle as the deer approached. Once it had stopped moving I took the chance to shoot and hit it perfectly dropping it right where it had been standing. In celebration, I stood up and ran over to see my kill and put the tags on. 
+
+
+After that was finished I made my way back over to the truck. As I was walking the darkness approached and the silence of my surroundings made me feel uneasy. I had decided to ignore my dad’s silly rule and started humming as I didn’t have to worry about scaring anything away anymore. I continued humming until I hopped into the truck driving back to where I had shot the animal. Once I reached the spot I couldn’t see it anywhere this worried me as I thought the deer had not been dead and it had escaped, I was proved right when I saw a trail of blood leading into an unseen part of my field. 
+
+
+As I drove around the trees into this little unseen part my heart sank, in front of me was my deer but wrapped around it was a large mouth with teeth so sharp they could bite the thing in half. I looked in horror as this thing which had to of been at least 10 feet tall ate my deer and then stared directly at my truck. This was my sign to get the fuck out of there and with that I slammed my truck into drive and whipped it around to drive out of there. I  didn’t want to look back in fear of what I was going to see, right before I made it to the end of my field I felt my back tire get jerked which I can only assume was sliced open by that thing's claws or teeth. This had sent my truck rolling onto the roof deep into the bush this had ripped my leg open and I am bleeding very bad. I had then left and hid behind a tree. 
+
+
+I am writing this as I hear screeching and bushes being pushed over hoping I stay hidden long enough for someone else to come and scare it away. I don’t know if this will even publish but it’s the only way I may survive. If you see this please help because if I don’t bleed out soon this thing will find me.
