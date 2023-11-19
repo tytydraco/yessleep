@@ -242,7 +242,7 @@ When I get home, I open up the photos, fully intending to text them to the polic
 
 Every single photo is blurred or blacked out. Every. Single. One. You can’t make out any details. Not Gerard’s dead face or obviously decaying body or eye maggot or anything. It could be my lens, but—I snap a selfie, and it comes out clear. Snap a shot of Prometheus yowling. Also clear. Turn the lights off and snap severel more. All three dim but clear. But everything inside of Harmony Care Home…
 
-My skin crawls with that unbearable tingle that happens whenever I’m exposed to something that defies the natural order. The last time I encountered something like this, it put me in a coma.
+My skin crawls with that unbearable tingle that happens whenever I’m exposed to something that defies the natural order. The last time I encountered something like this, it [put me in a coma.](https://www.reddit.com/r/nosleep/comments/15wmuwv/i_have_a_million_dollars_and_one_week_to_live_how/)
 
 *So, do the smart thing, Jack. Don’t get involved. Darlene isn’t family. You don’t* have *family, remember? Gotta look out for number one. But you know who* does *have family? Darlene. Let* them *take the risk rescuing her.*
 
