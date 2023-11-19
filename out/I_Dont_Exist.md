@@ -1,63 +1,61 @@
-Well, that’s a misstatement. I walk, I talk, I eat, no other person or object can be in the same space as I am at the same time, I’m solid.
+My name is Tom, and I've worked as a maintenance guy at Walmart for the past three years. It's not the most glamorous job in the world, but it pays the bills. And besides, I'm a night owl, so I don't mind working the graveyard shift.
 
+Most of the night, I'm alone in the store with the security guard, Hank. The only sound is the hum of the freezers and the occasional beep of the checkout scanners.
 
-But according to the world that I hope this missive gets out to, I don’t. Never have.
+I usually start my night by cleaning up the restrooms and sweeping the floors. Then, I move on to the back room to check on the merchandise and make sure everything is in order.
 
+One night, I was in the back room when I heard a strange noise coming from the warehouse. It sounded like something heavy was being dragged across the floor.
 
-Do you remember seeing all the Ukraine people in your world, that wouldn’t leave during the war? Because it’s their home. I feel the same way about my home. I never had a need for your crass, conflict-filled world where some people aren’t so lucky as to have a home, a place, like me.  It’s only my products that make it out there, and some of your money, that I need.
+I cautiously approached the warehouse, and I saw a large shadowy figure hunched over a pile of boxes.
 
+The figure was tall and muscular with long gnarled arms and legs. Its head was hidden in the shadows, but I could see its eyes glowing with an eerie red light.
 
+I froze with fear, I didn't know what to do or even if I could move.
 
-I hope I’m writing well, and using this odd glass paper-not-paper that’s always expanding no matter how much I have to say, right. Because I’m twenty-two, and never used a phone or computer before. My girlfriend taught me how writing with one works, and showed me a story she wrote earlier for a forum like this. If it seems like she wrote this one, well, she didn’t. It’s me, Faith, instead.
+The figure raised its head, and I could smell something foul coming from it. It was like a mix of rotting flesh and sulphur.
 
+It turned its attention towards me, and I knew that I had to run.
 
+I turned and ran through the warehouse, the figure hot on my heels. I could hear its heavy footsteps echoing behind me, and I could feel its breath on my neck.
 
-People in your world have two names. I think I must as well, but I don’t know my second. People in your world have…cards? And bits of paper they carry with them, so they can tell each other apart. I never needed that. Until now.
+I ran through the aisles of the store, knocking over displays and shelves in my haste to escape. I could hear the crashing of merchandise behind me, and I knew that the figure was getting closer.
 
+I ran through the checkout lanes and into the manager's office, slamming the door behind me. I locked the door and pressed my back against it, listening for any sound from outside.
 
+I could hear the figure pounding on the door, its growls and snarls filling the office. I knew that it was only a matter of time before it broke down the door.
 
-I don’t live in your world. Until I was a teenager, I believed the island *was* the world. In any case, I never had much time to think about what was beyond the lake until lately. Survival takes a lot of time, here.
+I looked around the office desperately searching for a way out, there was a window on the far wall, but it was too high for me to reach.
 
+I was trapped.
 
+The door started to shake, and I knew that the figure was about to break in.
 
-My parents and I are the only ones on the island. See, the island was changed into something called a “national park” back when my great-grandfather was still alive. I don’t really know what that is, but the change meant that the community left, one by one, or were bought out generations ago.
+I closed my eyes and waited for the inevitable.
 
+But then, I heard a loud crash from outside the office.
 
+I opened my eyes and looked out the window, I saw the figure lying on the ground, a forklift’s forks protruding from its chest.
 
-But not our family. See, some people had built cabins on the island in the time before. And if you continue to pass the cabins down the family line, and actually live in and use them full-time, you can keep your home and scratch a living. Nothing has to change. That matters. A few years ago, my mom showed me a show about a nuclear accident. There was an old, old woman who refused to leave her home in Ukraine, even though it was radioactive. She tells a soldier “you’re not the first soldier to stand here with a gun and tell us to leave.” Then she recounts the history of that place, and how with war, famine, and revolution they never left. So why leave now because of some arbitrary order, for some reason she can’t see at all?
+I was stunned, I didn't know who had saved me, but I was grateful.
 
+I ran out of the office and found Hank standing beside the forklift, a look of satisfaction on his face.
 
+“I told you I’d keep an eye on you,” he said.
 
-I had never felt that connected to a person in the screen before. My family and I so desperately want to keep our home. We do what we’ve always done.
+I thanked him, and we walked out of the store together.
 
+As we drove away, I couldn't help but wonder what the figure was and why it was in a Walmart.
 
+The next day, I went straight to the security room to check the cameras. I searched for footage of the previous night, but there was nothing. No footage of the monstrous figure, no footage of Hank, no footage of the forklift's deadly strike.
 
-Oops. You’re going to just think I’m some stupid peasant girl, right? That’s NOT TRUE! My parents lived in the world long enough to go to college, and my mom studied to be a teacher. I speak German, English, and a scattering of Ojibwe. I can write and do math, and I love to read when I have the time and the light. Mostly classic literature and stories of adventures in nature. I can’t relate to the rest of it all.
+I was confused. I remembered everything so vividly, the fear, the chase, the rescue. But there was no proof of it happening.
 
+I decided to call the manager to see if he could shed some light on the situation. But when I told him my name, he had no idea who I was. He said that he had never heard of a Tom working at the store.
 
+I felt a chill run down my spine. Who was I? If I didn't exist, then who was the guy who was chased by the monster in the warehouse?
 
-But mostly, I know about surviving. The Permit allows my family to be here, pass down the home, and do “subsistence farming, fishing, and logging.” Subsistence is to take what you need from the island, or so my mom says. But we’ve modernized, too. Solar panels. A wind turbine. Adding a storage cellar, a boat dock, a well, additional wood and propane stoves, and wiring up for enough electricity to have a refrigerator/freezer, washing machine in a shed hooked to the well, and a few hours of lights, especially in the winter. And then there’s the livestock. Two goats, six chickens, and the hives.
+I left the Walmart, my mind reeling. I didn't know what to believe anymore. Was the whole thing a dream? Or was there something more sinister at play?
 
+I walked aimlessly through the streets, lost in my thoughts. I didn't know where I was going, or what I was going to do. But I knew that one thing was for sure: I couldn't shake the feeling that I was being watched.
 
-
-I milk the goats. I pick herbs. I sell the honey and homemade soap and candles from these things. Baskets from reeds. Beautiful woven rugs from animal skins and any cloth or clothing consigned to the rag bag. We don’t waste anything, here.
-
-
-
-My mom teaches sailing and fishing, and in the winter does something in her office all day. My dad teaches survival skills and runs boot camps on the island in summer. That’s how I met my girlfriend. My parents don’t want me to interact too much with these people from your world, but I just can’t describe what I felt when I first saw her. This is her fourth summer on the island, and yesterday she talked to my dad. She even wants to live here, with me! We’ll want a child. We can keep the home for another generation. She wants a simple life.
-
-
-
-To their credit, my parents don’t care that she’s a woman. But, they did say we can’t get married. I couldn’t think why. My girlfriend says that any two people can marry now, as long as they’re not related and old enough. You go into the world and they give you a bit of paper. Like the Permit.
-
-
-
-But she said I needed another bit of paper, one with a second name and a photo (what is that?) to prove I am for sure me. What a stupid idea! I’m Faith, I know who I am.
-
-
-
-I didn’t approach my mom, who was always the stricter one. Instead, I asked my dad for that paper of me. He sighed, knelt at my level, and said, “I’m sorry. But you don’t exist.”
-
-
-
-What he said made no sense to either of us, and I haven’t been sleeping as I puzzle it over. So I thought I might put my situation in a place called “no sleep.”
+So i took some of my medication to calm me down…
