@@ -1039,3 +1039,7 @@ She flipped it over in her hands, examining it.
 &#x200B;
 
 I gave her a nod and turned to the window. The sun was on the cusp of setting. I could see the colored leaves blowing in the wind.  The cold was back and the shiver that ran through my body told me that if we weren’t careful, we wouldn’t [have](https://www.reddit.com/r/StoriesFromRose/) a [Thanksgiving.](https://www.threads.net/@rose_black2222)
+
+&#x200B;
+
+[https://www.reddit.com/r/nosleep/comments/17yotx7/im\_a\_research\_assistant\_with\_some\_stories\_to\_tell/](https://www.reddit.com/r/nosleep/comments/17yotx7/im_a_research_assistant_with_some_stories_to_tell/)  (I wonder if Paulette still has that dreamcatcher?)
