@@ -326,9 +326,9 @@ It took me a disorienting moment to realise the wave that had enveloped my class
 
 When a sharp breath sounded next to me, and the girl with the water dropped to the ground, I thought it was just her. 
 
-But then it came again, another hiss of breath, and then another, students collapsing like dominoes, I knew exactly what was happening.
+But when it came again, another hiss of breath, and then another, students collapsing like dominoes, I knew exactly what was happening. It was pulling their breath from their lungs, teasing it, before tearing it from their lips. Bodies continued to drop around me. I could sense it, almost see it, wisps of dancing white being dragged from parted lips and disappearing into nothing. 
 
-It was pulling their breath from their lungs, teasing it, before tearing it from their lips. Bodies continued to drop around me. I could sense it, almost see it, wisps of dancing white being dragged from parted lips and disappearing into nothing. The lights flickered above me. 
+The lights flickered above me. 
 
 I saw feet moving toward me, dancing down the steps. 
 
@@ -366,7 +366,7 @@ I pretended not to see the scalding marks covering his arms. 
 
 The rugged flesh on the backs of his hands. 
 
-“Ruby.”
+“Ruuuuuuuuby.”
 
 From the look on his face, and the whispered giggles in my ear, him laughing with the fireflies buzzing around me tugging on my hair, I didn't have a choice. He made that clear when he violently ripped breaths from my lungs, one by one. I accepted his hand when I could move again, gulping in oxygen. 
 
@@ -442,15 +442,15 @@ He didn't reply, the sound of footsteps taking me off guard. They took their pla
 
 I recognised Levi immediately, still dressed in the remnants of his Adventure Time sweater. His hair was overgrown, skin blistered and burned resembling a Stray. Unlike Jude's, his crown looked like it had been forced onto his head, splinters of bone glued to his skull, threaded vines and flowers adorning his hair. Levi’s eyes were empty of that glitter I remembered, when he called fake Santa a meth head. 
 
-His smile was too wide. I could see blisters on his mouth where his lips had been sewn shut. I didn't want to see it, but I saw the exact transformation, slight points in his ears hiding behind thick reddish curls, his face narrower, malnourished cheeks sticking out.
+His smile was too wide. I could see blisters on his mouth where his lips had been sewn shut. I didn't want to see it, but I saw the exact transformation, slight points in ears hiding behind thick reddish curls, his face narrower, malnourished cheeks sticking out.
 
-Following those same inky black lines making his face, I wondered if male fae bore them. Just from looking at Levi Parish, the boy had fought a battle he had lost, ending in him bearing a crown forced on his head, and vacant eyes. 
+Following those same inky black lines marking his face, I wondered if male fae bore them. Just from looking at Levi Parish, the boy had fought a battle he had lost, ending in him bearing a crown forced on his head, and vacant eyes. 
 
 Next to him…Thalia. 
 
-She was perhaps the most transformed from the three. Her naked back had been twisted into something inhuman. I could see where her spine used to be, now something was growing from her flesh, something writhing up and down her skin, trying to burst out. Thalia’s hair was entangled in flowers and vines, a crown of thorn and flowers sitting on top of her head, instead of glued on like the boy's. 
+She was perhaps the most transformed from the three. Her naked back had been twisted into something inhuman. I could see where her spine used to be, now something was growing from her flesh, something writhing up and down her skin, trying to burst out. Thalia’s hair was entangled in flowers and vines, a crown of thorn sitting on top of her head, instead of glued on like the boy's. 
 
-Half of her pretty face had scorched, and then clawed away, ugly flaps of flesh where her cheek was supposed to be. 
+Half of her pretty face had been scorched, and then clawed away, ugly flaps of flesh where her cheek was supposed to be. 
 
 I could still see the claw marks on her neck, streaks of red. 
 
