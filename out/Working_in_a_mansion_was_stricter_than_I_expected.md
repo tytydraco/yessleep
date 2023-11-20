@@ -1,4 +1,4 @@
-“It wasn’t my fault.” I said with a determined tone as I clenched my hands.
+“It wasn’t my fault.” I said with a determined tone as I clenched my fists.
 
 The silence of the principal's office was stifling. The air seemed thick with anticipation as I sat opposite the stern-faced principal, Mr. Thompson, who gazed at me with a mixture of disappointment and frustration. I shifted uneasily in the uncomfortable wooden chair, my eyes focused on the intricately patterned rug that lay beneath my feet.
 
