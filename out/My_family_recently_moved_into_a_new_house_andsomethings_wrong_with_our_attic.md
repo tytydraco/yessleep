@@ -41,13 +41,4 @@ Whatever happens to me in those dreams.. I don't know how it does it but it happ
 The odd thing is, it always brings me back to the same place. The same old building, out in a field. I always try to find a way out but I can never find an exit.  It's the same story every time, it chases me through the dusty, broken down hallways until daybreak. The building itself looks almost like an old school, with a few desks left behind. The halls and rooms are littered with cobwebs, and the wood is rotting and splintering apart, with dust and mold floating through the air each time you disturb the area it was resting.   
 The dreams keep getting more and more vivid, and it's starting to catch up to me more and more often.  and I've started to stop sleeping to avoid them. I don't know what to do, my parents refuse to move, and I don't know why. When I try to press for answers they just change the subject uncomfortably, and won't respond.  
 I'm sorry, I need to lock my door now, I'm starting to hear it outside again. I'll update you as soon as I can, but for now, if anyone has any suggestions on what to do, please, I'll take anything.   
-Until then.  
-
-
-&#x200B;
-
-&#x200B;
-
-(this is my first shot at a r/nosleep story. i love listening to them and i decided to try and write a few of my own.  
-the events that follows are actually based off of true events, though they didn't take place in the USA.  
-if anyone reads this, thank you for taking the time to read my story, it really means a lot to me.)
+Until then.

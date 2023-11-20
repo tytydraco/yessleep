@@ -528,7 +528,7 @@ That was when my mind started to slowly break apart. 
 
 When the half human, half fae heirs began to rip flesh from bone, giggling manically, chewing through splattered scarlet dripping from the table. Jude handed me a goblet and told me to drink. It tasted like strawberry milk.  
 
-And the windchimes started in my head, growing louder until I was laughing myself, choking on a scream trying to claw its way up my throat. When my crown was lowered onto my head, pricks of glass and bone cutting into my scalp, warm blood slipping down my temple, I felt dizzying happiness and unbridled fear, my lips splitting into a grin that wasn't mine. 
+The windchimes started in my head, growing louder until I was laughing myself, choking on a scream trying to claw its way up my throat. When my crown was lowered onto my head, pricks of glass and bone cutting into my scalp, warm blood slipping down my temple, I felt dizzying happiness and unbridled fear, my lips splitting into a grin that wasn't mine. 
 
 I was *home*. 
 
