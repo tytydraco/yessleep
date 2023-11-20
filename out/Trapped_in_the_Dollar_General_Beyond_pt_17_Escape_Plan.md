@@ -170,3 +170,5 @@ Hopefully, there won't be many of these left to go, and I'll be back in the real
 
 
 Till then, pray for me.
+
+Pt 17- https://www.reddit.com/r/nosleep/comments/17zm72h/trapped_in_the_dollar_general_beyond_pt_18/?utm_source=share&utm_medium=web2x&context=3
