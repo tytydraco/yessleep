@@ -16,7 +16,7 @@ I looked up, down the road where he was staring and instantly understood. The ma
 
 “If I may ask... whereabouts is it that you come from Jaspar?” I said politely as I could.
 
-“Oh.” he said taking pause... “I am from Mertzagovia.”
+“Oh.” he said taking pause... “I am from Mertzegovia.”
 
 I was surprised because when I was young I would often study maps and geography to pass the time. I had never heard of it.
 
@@ -44,9 +44,9 @@ A few weeks had passed and I had almost forgotten about the strange man entirely
 
 "Apparently they're from Herzegovina or something. I don't know why they'd want to move here of all places." he was right, it made no sense. Suddenly the man from weeks ago came to mind.
 
-"Demetri, are you sure it wasn't *Mertzagovia*?"
+"Demetri, are you sure it wasn't *Mertzegovia*?"
 
-"Metzagovia! That's it! Yes, never heard of it myself but... money is money." he said laughing gleefully."Hey who knows maybe I'll go somewhere exotic!" revealing a missing toothed grin.
+"Mertzegovia! That's it! Yes, never heard of it myself but... money is money." he said laughing gleefully."Hey who knows maybe I'll go somewhere exotic!" revealing a missing toothed grin.
 
 I had forgotten about the strange place I had never heard of from weeks prior: *Mertzegovia*. How was it possible I had never heard of it? As a child I had spent countless hours reading encyclopedias and surveying maps, there was no way I would have missed it. I checked online and even stopped in at the library to browse the archives but there was no record of any 'Mertzegovia'.
 
@@ -74,7 +74,9 @@ I needed some space. Seeing the houses for sale and the new owner of the bakery 
 
 Two men in fancy coats were conversing in the middle of the sidewalk. They had the same meticulously styled look as the man I spoke to with Roman, and the woman from the bakery. The glanced at me with forced smiles and then continued talking in their language. It sounded vaguely Germanic, Latin and Slavic all at the same time. *Mertzegovian*?
 
-I put my head down and headed home. We had had people from out of town move here before, but... something about these people was different.I don't know why, but for the rest of the day I couldn't shake thoughts of the new residents. Why hadn't I ever heard of Mertzegovia and why couldn't I find it on a map? Why did they wear such strange ornate clothing? Did Beau really just up and leave in the middle of the night? None of it made sense...
+I put my head down and headed home. We had had people from out of town move here before, but... something about these people was different.I don't know why, but for the rest of the day I couldn't shake thoughts of the new residents. 
+
+Why hadn't I ever heard of Mertzegovia and why couldn't I find it on a map? Why did they wear such strange ornate clothing? Did Beau really just up and leave in the middle of the night? None of it made sense.
 
 I decided to call one of my old friends Elizabeth and ask if she had noticed.
 
@@ -86,19 +88,19 @@ I decided to call one of my old friends Elizabeth and ask if she had noticed.
 
 "Oh, sorry" I said kind of embarrassed.
 
-"Well the reason I'm calling is because... well did you know Beau sold the bakery and left town?" I almost couldn't believe it as I was saying it.
+"Well the reason I'm calling is because, well did you know Beau sold the bakery and left town?" I almost couldn't believe it as I was saying it.
 
 "Really?" she couldn't believe it either."Yeah... really. I know I was surprised as well. I saw Demetri was selling too, actually a bunch of people on his street are. Apparently people from 'Mertzegovia' think this back country town is all the rage."
 
 "Hmm... that's odd" she said thoughtfully.
 
-"Yeah... but... have you ever heard of Mertzegovia? Supposedly it's in the Alps or something." it felt foolish even asking.
+"Yeah, but... have you ever heard of Mertzegovia? Supposedly it's in the Alps or something." it felt foolish even asking.
 
 "Well no... no, I guess I haven't" she was clearly confused.
 
-"Yeah, me neither, and these people. I mean... I don't want to judge, and you know I'm not like THAT, but... there's something weird about them... I don't know maybe it's just their style or whatever... but..."
+"Yeah, me neither, and these people. I mean... I don't want to judge, and you know I'm not like THAT, but... there's something weird about them. I don't know maybe it's just their style or whatever, but..."
 
-"Huh, yeah... you know I did see someone at the bus today. He had on a really expensive suit and watch. I figured he was visiting town or something. You know what? Why don't you come over tomorrow morning and we'll catch up over tea?"
+"Huh, yeah. You know I did see someone at the bus today. He had on a really expensive suit and watch. I figured he was visiting town or something. You know what? Why don't you come over tomorrow morning and we'll catch up over tea?"
 
 After the call my weary thoughts started to disappear. It would be good to visit an old friend. Maybe that's what all my anxiety was all about? I was just cooped up. Once I talked with her I would realize I was overthinking the entire thing.
 
@@ -108,20 +110,20 @@ I woke up early and made my way over to Elizabeth's. We had grown up together an
 
 I knocked again, no answer. Suddenly the door opened. The figure standing in the doorway was not Elizabeth. I had never seen the man in my life. Perfectly manicured nails and slicked backed hair, he was one of them. Elizabeth lived alone and had just broken up with her boyfriend. Wouldn't she have mentioned having guests?
 
-"Hi... who are you? I'm here to see Elizabeth." I said hardly hiding my distrust.
+"Hi, who are you? I'm here to see Elizabeth." I said hardly hiding my distrust.
 
 "Sorry? Who?" the man said in that strange thick accent.
 
-"What!? Elizabeth? She lives here... Who are you!?' I said incredulously.
+"What!? Elizabeth? She lives here. Who are you!?' I said incredulously.
 
-"No... I'm sorry. You are mistaken. This is my home. No Elizabeth here." his voice flat.
+"No. I'm sorry. You are mistaken. This is my home. No Elizabeth here." his voice flat.
 
 "She invited me here! Where is she?!" I yelled, my rage boiling up.
 
-"I'm sorry... you are mistaken!" the man said sharply and slammed the door. I pounded on the door but he wouldn't answer. I looked around the block. Two men in top hats with canes looked at me concerned whispering to eachother. I yelled out to them.
+"I'm sorry, you are mistaken!" the man said sharply and slammed the door. I pounded on it but he wouldn't answer. I looked around the block. Two men in top hats with canes looked at me concerned whispering to eachother. I yelled out to them.
 
 "Hey! What is going on here? Where is Elizabeth!?" the men hurriedly walked away.
 
-"Get back here!" I said as I started running to the front gate back to the street to confront them. Then... in the garden. The garden Elizabeth had spent so many hours working in. I picked them up carefully, in disbelief. They were definitely hers, I was certain.
+"Get back here!" I said as I started running to the front gate back to the street to confront them. Then, in the garden, the garden Elizabeth had spent so many hours working in. I picked them up carefully, in disbelief. They were definitely hers, I was certain.
 
 I turned my head and looked back at the house. The man who had answered the door was staring at me ominously from the window. As soon as I made eye contact with him, he whipped the blinds closed. I looked back to my hand, at them covered in dirt... *Elizabeth's glasses.*
