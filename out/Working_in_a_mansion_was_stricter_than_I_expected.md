@@ -154,7 +154,7 @@ I couldn’t see her expression as she stood behind me, but I felt as if I had o
 
 “I see.” Was all I could reply to the heartfelt talk.
 
-As night came, I was assigned to take care of the east wing of the mansion. This place was even bigger than I thought. The other maids appeared to have retired for the evening, leaving me by myself. Make sure all the candles are lit by midnight, or so she said. I still had a few candles left to go but my attention drifted to the scenery outside.
+As night came, I was assigned to take care of the east wing of the mansion. This place was even bigger than I thought. The other maids appeared to have retired for the evening, leaving me by myself. *Make sure all the candles are lit by midnight*, or so she said. I still had a few candles left to go but my attention drifted to the scenery outside.
 
 A half moon illuminated the sky accompanied by many stars. Not a single cloud could be seen. I had gazed at that very same sky hundreds of times, always by myself. Amidst the isolation that defined my life, this view never ceased to amaze me. With a little luck, I could see it every night. It wouldn’t ask for anything in return, it was all mine to admire.
 
@@ -168,7 +168,7 @@ A cold sweat trickled down my back as the hairs on my neck stood on end. The cre
 
 What in God’s good name was going on? I attempted to rationalize the situation. Was this some kind of prank they played on the new guy? Surely it had to be. If that was the case, that was one hell of a costume. As I was calming myself down, a buzzing noise became apparent.
 
-A mosquito had entered the room through the open window, in the dead silence of the hall, even its small buzzing was enough to disrupt this silence. Snap. A third hand came out of its back and instantly killed the mosquito.
+A mosquito had entered the room through the open window, in the dead silence of the hall, even its small buzzing was enough to disrupt this silence. ***Snap***. A third hand came out of its back and instantly killed the mosquito.
 
 At that moment, I realized that thing wasn’t human. Panic started to rise within me once more, I had to get the hell out of here, right this instant. This thing was going to kill me if I didn’t.
 
