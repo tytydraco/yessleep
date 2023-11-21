@@ -159,8 +159,5 @@ Everything seemed like a blur because it seemed like a second later I was thrown
 
 Shortly after I woke up, I was surrounded by family and detectives. They both tried to ask me what happened to me and where Adam was. I tried to explain to the best of my abilities, because of course leaving out important details so they wouldn't think I was high on the painkillers or I was the reason I did something to Adam.  That really didn't work in my defense because I was still their number one suspect after they searched the place. They found no Monster, No man in the room. Just the half eaten body of my former best friend…  
 
-Of course, they couldn't charge me with anything, thank god. but many people back home still think I'm a cannibalistic murderer. Can't change it. it probably never will. The only thing anyone could do is move forward.   
-
-
-Edit: Added Spacing, Reddit messed up the formatting. 
+Of course, they couldn't charge me with anything, thank god. but many people back home still think I'm a cannibalistic murderer. Can't change it. it probably never will. The only thing anyone could do is move forward. 
    

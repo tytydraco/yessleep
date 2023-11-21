@@ -10,7 +10,7 @@ I shook my head and looked toward the hallway, wincing, knowing that two left tu
 
 
   
-She nodded before the two of us disbanded. As soon as I entered the girl’s washroom, I found a wall to lean on and closed my eyes.
+She nodded before the two of us disbanded. As soon as I entered the female washroom, I found a wall to lean on and closed my eyes.
 
 
   
