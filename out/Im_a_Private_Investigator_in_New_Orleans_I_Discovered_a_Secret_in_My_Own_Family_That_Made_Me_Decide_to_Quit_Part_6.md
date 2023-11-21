@@ -78,9 +78,7 @@ The cultists quickly surround her, their hands rough as they disarm her and push
 
 Xuan watches the scene with a twisted satisfaction, his eyes gleaming in the dim light. "Bravery and love, such quaint concepts," he mocks. "But they pale in comparison to the fortitude required to embrace the true nature of existence. The willingness to give up everything, to sacrifice all for a higher purpose."
 
-Xuan's eyes, dark and haunted, fix on me as I confront him. "Why, Xuan? Why are you doing this?"
-
-My voice is a mix of anger and desperation, seeking some semblance of reason in his madness.
+Xuan's eyes, dark and haunted, fix on me as I confront him. "Why, Xuan? Why are you doing this?" I ask, seeking some semblance of reason in his madness.
 
 He pauses, the chaos around us fading into a mere backdrop. His gaze turns inward, reflecting on memories long buried, and he begins to speak. His voice is a whisper, yet it carries the weight of a lifetime of pain.
 
