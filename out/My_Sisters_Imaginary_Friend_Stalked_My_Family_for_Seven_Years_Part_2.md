@@ -236,3 +236,5 @@ laid around what remained of his body… arranged into an awful, haunting senten
   
   
 “Merry Christmas, your one and only true friend”  
+
+[Welcome to Nowhere (Part 1)](https://www.reddit.com/r/nosleep/s/euSXi3RMkr)

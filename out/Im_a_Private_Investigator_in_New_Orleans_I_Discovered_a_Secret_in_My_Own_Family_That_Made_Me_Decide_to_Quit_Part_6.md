@@ -10,11 +10,11 @@
 
 The revelation hits me like a thunderbolt, a moment of clarity amidst the storm of gunfire and chaos. The words echo in my mind, a beacon of hope and fear in equal measure. Pregnant. The realization that Reine is carrying our child changes everything. Every protective instinct in me roars to life, an unyielding force that demands I ensure their safety at all costs.
 
-"Go, Reine!" My voice is a command, fueled by a newfound urgency. "Get to safety, for our child."
+"Go, Reine!" My voice is a command. "Get to safety, for our child."
 
 Reine's eyes are a whirlpool of emotions – fear, love, determination. She nods, gripping the detonator tightly. "I'll wait for you. Be there," she says, the promise in her voice an unbreakable vow.
 
-I give her one final nod, a silent promise of my own, and then turn to face the oncoming cultists.With this newfound resolve, I rise, my weapon in hand, my movements fueled by a desire to see my child, to hold Reine in my arms again.
+I give her one final nod and then turn to face the oncoming cultists. With this newfound resolve, I rise, my weapon in hand, my movements fueled by a desire to see my child, to hold Reine in my arms again.
 
 As I lay down a withering cover fire, my focus narrows to the task at hand. Each shot is a calculated effort to buy Reine time, to carve a path of survival for her. The cultists, undeterred by their fallen comrades, press on with a fervor that's chilling in its intensity.
 
@@ -76,7 +76,7 @@ After a tense, unbearable silence, Reine emerges from the shadows, her presence 
 
 The cultists quickly surround her, their hands rough as they disarm her and push her to the ground near me. "Reine!" I shout, struggling against the cultist who's holding me down. My protest is met with a sharp blow to the back, forcing me to the cold metal floor.
 
-Xuan watches the scene with a twisted satisfaction, his eyes gleaming in the dim light. "Bravery and love, such quaint concepts," he mocks. "But they pale in comparison to the fortitude required to embrace the true nature of existence. The willingness to give up everything, to sacrifice all for a higher purpose."
+Xuan watches the scene with a twisted satisfaction, his eyes gleaming in the dim light. "Bravery and love, such quaint concepts," he mocks. "But you lack the fortitude to do what is necessary. The willingness to give up everything, to sacrifice all for a higher purpose."
 
 Xuan's eyes, dark and haunted, fix on me as I confront him. "Why, Xuan? Why are you doing this?" I ask, seeking some semblance of reason in his madness.
 

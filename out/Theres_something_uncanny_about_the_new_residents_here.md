@@ -100,7 +100,7 @@ I decided to call one of my old friends Elizabeth and ask if she had noticed.
 
 "Huh, yeah... you know I did see someone at the bus today. He had on a really expensive suit and watch. I figured he was visiting town or something. You know what? Why don't you come over tomorrow morning and we'll catch up over tea?"
 
-"Okay sure, that sounds great! See you then!" After the call my weary thoughts started to disappear. It would be good to visit an old friend. Maybe that's what all my anxiety was all about? I was just cooped up. Once I talked with her I would realize I was overthinking the entire thing.
+After the call my weary thoughts started to disappear. It would be good to visit an old friend. Maybe that's what all my anxiety was all about? I was just cooped up. Once I talked with her I would realize I was overthinking the entire thing.
 
 \*\*\*
 

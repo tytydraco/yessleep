@@ -44,3 +44,5 @@ I still have some stories about these seven years to tell…I’m visiting my mo
 
 
 [Part 2](https://www.reddit.com/r/nosleep/s/PGHIZJ6Hux)
+
+[Welcome to Nowhere (Part 1)](https://www.reddit.com/r/nosleep/s/euSXi3RMkr)
