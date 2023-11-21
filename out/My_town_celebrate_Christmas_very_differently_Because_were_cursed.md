@@ -6,9 +6,9 @@ Sitting cross-legged in dirt, my classmate’s blood running down my face, I gul
 
 I didn't expect soda. 
 
-Town’s people were allowed to send pretty much anything to contestants. Whether that was food or stuffed toys to keep up morale. I had a plastic duck in my backpack from an anonymous donor who was definitely my neighbour. I wasn't sure why she stayed anonymous. 
+Town’s people were allowed to send pretty much anything to contestants. Whether that was food or stuffed toys to keep up morale. I had a plastic duck in my backpack from an anonymous donor who was definitely my neighbor. I wasn't sure why she stayed anonymous. 
 
-I guess if she gave her name, she would be actively participating in watching me kill to survive. My neighbour always said she was against The Event, refusing to look me in the eye when I was dragged into an awaiting van, my hands tied behind my back. Still though, it was nice of her to send me a rubber duck. 
+I guess if she gave her name, she would be actively participating in watching me kill to survive. My neighbor always said she was against The Event, refusing to look me in the eye when I was dragged into an awaiting van, my hands tied behind my back. Still though, it was nice of her to send me a rubber duck. 
 
 I'd had a lot of gifts over the last three days, but soda was a new one.
 
@@ -180,7 +180,7 @@ His smile widened. “You were chosen."
 
 “I don't like to broadcast it.”
 
-His manic giggle sent shivers down my spine. “Then you know what to do. Just like your father. We sinned as a town. We *killed* a sacred beast, and there's no running away. We will keep dying, offering our children  to darkness and despair that is endless! That will never stop! They will *keep* dying, and the survivors will be creating future murderers and corpses for a town that does not *fucking* deserve a second chance."
+His manic giggle sent shivers down my spine. “Then you know what to do. Just like your father. We sinned as a town. We *killed* a sacred beast, and there's no running away. We will keep dying, offering our children  to darkness and despair that is endless! That will never stop! They will *keep* dying, and the survivors will be creating future murderers and corpses for a town that does not deserve a second chance."
 
 Daniels’s expression twitched, and for the fraction of a moment I swear I saw coherence. He wasn't crazy. He was upset. It was enough to send me stumbling back, phantom bugs choking filling my mouth. “Unless…” He caught himself, exhaling a breath. “You end it.”.
 
@@ -202,9 +202,9 @@ Daniel was right.
 
 Dad was right. 
 
-We were all dead people walking. 
+We were *all* dead people walking. 
 
-I didn't mean to join a group, three kids I would never usually hang around with.  After being knelt in shit for hours and in losing my mind, however, I needed human interaction, even if it was fellow contestants capable of one-shotting me. 
+I didn't mean to join a group, three kids I would never usually hang around with.  After being knelt in shit for hours listening to kids being slaughtered, I needed human interaction, even if it was fellow contestants capable of one-shotting me in one single swoop. 
 
 Kenji, Clee, and Alex. 
 
@@ -262,7 +262,7 @@ The others didn't move, only hugging their bowls closer to them.
 
 Followed by his killer's maniacal laughter. 
 
-Alex nodded, squeezing his eyes shut when another sharp cry rattled the night, blood staining the icy wind hitting me in the face. I continued saying pasta. “Yeah. I know one.”
+Alex nodded, squeezing his eyes shut when another sharp cry rattled the night, blood staining the icy wind hitting me in the face. I continued eating pasta. “Yeah. I know one.”
 
 He started to sing, a melody which would forever be stuck in my head. 
 
@@ -284,7 +284,9 @@ But I knew the truth.
 
 He was… poisoned. 
 
-Not just by Blitzen’s original killers, but by a town who had fashioned him into a psychopath. I think both of us knew the moment Alex slashed the boy's throat and gently lowered him to the ground, exactly what we needed to do. Daniel was right, and I guess my Dad was too. 
+Not just by Blitzen’s original killers, but by a town who had fashioned him into a psychopath. I think both of us knew the moment Alex slashed the boy's throat and gently lowered him to the ground, exactly what we needed to do. 
+
+Daniel was right, and I guess my Dad was too. 
 
 I don't think he was *Jesus*, like his weird cult's rants. 
 
@@ -292,15 +294,19 @@ But I think my birth made him realise I was poisoned too.
 
 And my children would be poisoned. 
 
-And my children's children. 
+**And my children's children.**
 
-Movement behind me snapped me from my thoughts, and I almost choked on my Coke. Whipping around, I shot a startled looking Alice Jarret point blank in the head. Her tactics were clever, using the cokes. And I admit, I fell for it. But Alice didn't know I was armed. I made sure to let other participants know I had a single knife and nothing else, while keeping Kenji’s gun stuck down my pants. 
+Sudden movement behind me snapped me from my thoughts, and I almost choked on my Coke. Whipping around, I shot a startled looking Alice Jarret point blank in the head. The crack of the gunshot had definitely revealed my location. But there were only three of us left. Alice's tactics were clever, using the crate of Coke. I admit, I fell for it. 
 
-When Alice dropped to the ground, the crowd outside the barrier began a countdown. 
+But Alice didn't know I was armed. 
+
+I made sure to let other participants know I had a single knife and nothing else, while keeping Kenji’s gun stuck down my pants. 
+
+When Alice dropped into the dirt, the crowd outside the barrier began a countdown. 
 
 I could already see them, camera flashes behind the glass. I could imagine how nervous they all were, awaiting the last one standing. 
 
-There were 2 contestants left. 
+There were 3 contestants left. 
 
 Alex. 
 
@@ -310,11 +316,11 @@ And me.
 
 11:57. 
 
-A clock face was illuminated on the barrier every hour displaying the time. 
+A clock face was illuminated on the barrier every hour, displaying the time. 
 
 December 25th was looming, and so was my choice. 
 
-The three of us had already made our decision. I would make it painless, not them a warning. I could sense the two of them were stalling. Alex was helping himself to diet soda, and Romana was just vibing, stealing shiny things from dead contestants. In the town’s eyes, we were minutes from killing each other and the survivor saving them for another year.
+The three of us had already made our decision. I would make it painless and not give them a warning. I could sense the two of them were stalling. Alex was helping himself to diet soda, and Romana was just vibing, stealing shiny things from dead contestants. In the town’s eyes, we were minutes from killing each other and the survivor saving them for another year.
 
 Ring the bell, and grant Livingswood mercy. 
 
@@ -366,7 +372,7 @@ So, I made it fast.
 
 Painless. 
 
-I didn't give warning, twisting around and slicing Ramona’s throat open and shooting Alex in the perfect place to secure zero pain. The town started screaming at me behind the barrier, urging me to ring the bell. That it wasn't too late. Their fear made me scared too, but I didn't show it. Even when they threw things into the barrier. The mayor himself was at the front, his lips twisted into a furious yell, screaming at me to ring the bell. Instead, I gulped down soda. I could see my reflection on the surface of the barrier. I looked like shit. 
+I didn't give warning, twisting around, slicing Ramona’s throat open and shooting Alex in the perfect place to secure zero pain. The town started screaming at me behind the barrier, urging me to ring the bell. That it wasn't too late. Their fear made me scared too, but I didn't show it. Even when they threw things into the barrier. The mayor himself was at the front, his lips twisted into a furious yell, screaming at me to ring the bell. Instead, I gulped down soda. I could see my reflection on the surface of the barrier. I looked like shit. 
 
 I could barely see my face, splattered red covering every inch of me, my hair a mop hanging in front of my eyes. 
 
@@ -390,7 +396,15 @@ Ash.
 
 The ground was white when I was being dragged through startling nothing. 
 
-I could smell the stink of burning flesh, and risked a look back. But there was nothing to look back on. Several faces were pressed against the barrier, trying to force themselves through, when demonic with melted faces and pointy ears leapt onto them. There was an  explosion of red, and I turned back.
+I could smell the stink of burning flesh, and risked a look back. But there was nothing to look back on. Several faces were pressed against the barrier, trying to force themselves through, when tiny creatures with melted faces and pointy ears leapt onto them. There was an  explosion of red splattering the glass. 
+
+I turned back, thinking of my dead friends. 
+
+They were at peace. 
+
+Then what about me?! 
+
+Where was *my* peace? 
 
 The shadow tugged harder on the back of my sweater, and I stumbled. 
 

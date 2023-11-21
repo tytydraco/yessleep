@@ -229,4 +229,4 @@ It's now ten years later, and I never saw my friends again. A passing ship saw m
 
 The soda company ended up being sued by my friend's families, as they never came back. They won, and the company went bust. Even after all that, and how guilty I feel, their families gave me some of their settlement money. It's enough that I will never have to work again. I'm grateful, but I would trade it all in for a second just to see my friends again. 
 
-[I've never touched a can of soda since. It brings up too many bad memories.](https://www.youtube.com/@macabre_horror)
+[I've never touched a can of soda since. It brings up too many bad memories.](https://www.youtube.com/watch?v=DFKp6tgwzec)
