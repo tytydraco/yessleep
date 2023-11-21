@@ -42,3 +42,6 @@ The odd thing is, it always brings me back to the same place. The same old build
 The dreams keep getting more and more vivid, and it's starting to catch up to me more and more often.  and I've started to stop sleeping to avoid them. I don't know what to do, my parents refuse to move, and I don't know why. When I try to press for answers they just change the subject uncomfortably, and won't respond.  
 I'm sorry, I need to lock my door now, I'm starting to hear it outside again. I'll update you as soon as I can, but for now, if anyone has any suggestions on what to do, please, I'll take anything.   
 Until then.
+
+
+part 2: https://www.reddit.com/r/nosleep/comments/1806qf7/my_family_recently_moved_into_a_new_house/?utm_source=share&utm_medium=web2x&context=3

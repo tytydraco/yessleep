@@ -1,6 +1,6 @@
 November 17th 2023
 
-Part 1 -[https://www.reddit.com/r/nosleep/comments/17uxjat/help/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/17uxjat/help/?utm_source=share&utm_medium=web2x&context=3)
+[Part 1](https://www.reddit.com/r/nosleep/comments/17uxjat/help/?utm_source=share&utm_medium=web2x&context=3)
 
 So,
 
@@ -18,10 +18,10 @@ Then the girl spoke as if she hadn't just been dredged in seasoning  “ Can we 
 
 Then for the first time the little boy looked up and spoke. At that point I was sent out of whatever trance I was in, whatever fantasy that made me think getting rid of them would be easy. his eyes, no. its eyes were the darkest things I have ever seen. There was not a sliver of white. They looked like they were holes in his head. I say this because there was no glare, no reflection of any light on them. It stared as if it were pulling me apart piece by piece (As if I were some ghastly thing.) Then it spoke. As it stepped forward, I stepped back-  out of the door frame.
 
-“Why do you not let us in? We cannot come in if you say no.” its speaking patterns were strange and unnatural as if it hadn’t spoken for a very long time.
-
-At this point I fully came back to my senses, slammed the door, and locked it. Since this started (almost three weeks ago) I haven't left my house. Some of you said I should, but in all honesty I think I have this fear of breaching the threshold of my front door. I think it's more of a fear of the unknown. What would they do if there was nothing between us? What could I do?
+“Why do you not let us in? We cannot come in if you say no.” its speaking patterns were strange and unnatural as if it hadn’t spoken for a very long time.At this point I fully came back to my senses, slammed the door, and locked it. Since this started (almost three weeks ago) I haven't left my house. Some of you said I should, but in all honesty I think I have this fear of breaching the threshold of my front door. I think it's more of a fear of the unknown. What would they do if there was nothing between us? What could I do?
 
 I'm going to keep you updated.
 
 \-Josh
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/1807n7v/helppart_3/?utm_source=share&utm_medium=web2x&context=3)

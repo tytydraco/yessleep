@@ -76,4 +76,6 @@ please,
 
 help.
 
-Part 2: https://www.reddit.com/r/nosleep/s/SOtkyjnXAK 
+Part 2:https://www.reddit.com/r/nosleep/comments/17xrye5/help_part_2/?utm_source=share&utm_medium=web2x&context=3
+
+Part 3:https://www.reddit.com/r/nosleep/comments/1807n7v/helppart_3/?utm_source=share&utm_medium=web2x&context=3
