@@ -1,0 +1,15 @@
+his story is based on  incidents happened to me:
+
+I was a little boy who was fascinated with ghosts and spiritual experiences, i always heard stories from my grandfather about our farmhouse in Jammu (Jammu and Kashmir-India). the house was located in Harnota and was in a rural area, in 1998 i was only five and my grandfather told me about the farmhouse, particularly one room which was the room in which you could not even enter at the day time due to snakes often falling into the room through a crack in the roof, This might seem weird that he could just have fixed the roof right?, no, as every time the roof was fixed it broke again in hours this was something weird, my great grandfather(he passed away in 1987) at the age of 82 lived in that room and it was his favourite room.
+
+&#x200B;
+
+my grandfather told me that he would often sit in that room and sing songs or sleep, but here comes the scary part, his dead body was found on the bed, just a minute before my grandfather heard him singing "Tere bina zindagi se koi shikwa to nahin" and he died later, that farmhouse was like a curse to my family from then on around 5 of our servants died in that room cleaning or setting something up due to snake bite, we called many to solve our problem but they said to leave the house, my mother used to be sick all the time and my grand father suffered from addiction to drinking, many times he would sleep in that room and sing the same song waiting upon his death, and he died there in 2001 when i was 8 years old,.
+
+&#x200B;
+
+My father left that house and we never returned, but the problems never ended my mother was diagnosed with neurogenic bladder and problems escalated from then on, then we approached a saint and he told that we got "hatya" on our heads (black magic), the first time i was in shock when he told me this whole story above crystal clear without knowing anything, than he helped my family and we finally sold it to a couple
+
+we got many complains from that couple but we ignored them as said by the saint, and today i just got the knowledge that the house collapsed and the couple died there, many people to till this say that when the house collapsed the couple were blasting out music which was none other than "**tere bina zindagi se koi shiwka toh nahin"** I don't believe other people but still it could be very true as the land is wasted and nobody walks down to that road in the afternoon and night, still after the selling many cases of snake biting were seen in the same area but i could not do anything but ignore them with my very own eyes i have seen snakes falling from the roof and biting my servants i am still scared to snakes and its been a decade since i visited jammu which i never will
+
+This still haunts me today and i could still sometimes hear the song my grandfather sang in his death time, never wanting to hear that song again i wish u luck in sleeping at night

@@ -1,6 +1,19 @@
+#Part 1 - Slaughtering Day.[.](https://scottsavino.com/the-feast-of-midnight-stares-part-1-slaughtering-day).
+
+\_______________
+
+#####**Contents:**
+* [Part 1 - Slaughtering Day](https://redd.it/17zphxs)
+* [Part 2 - Ritual Night](https://redd.it/180ihvx)
+
+\_______________
+
+&nbsp;
+&nbsp;
+
 >***Monday, November 20th, 2023***
 
->*Father says that being thankless is a sin–the worst sin, but I haven't found much to be thankful for this past week and I'm trying really, really hard[.](https://scottsavino.com/the-feast-of-midnight-stares-part-1-slaughtering-day) I promise I have been and I've been praying too. Zygomar is usually the loudest so I started by invoking him–this all started in his name after all–and when that didn't work I even prayed to the lesser gods Yogtroth, Trula and Vaneshka for help or guidance. For bravery, retribution or wisdom anything at all they might bless me with too, but I haven't heard a single one of them since all of this started. I even lowered myself and called out to Vorgrath. I begged him to smite me for turning my back to him, to strike the old farmhouse with his bolts until it burned to the ground with all of us inside it. He wouldn't even punish me for what I've done in defiance of his gift. I think maybe none of them can hear me now or we've fallen so far from their favor that they've all gone quiet–or if they are replying, I just can't hear them anymore–not over the sound of everyone else whispering from the other side of the attic door.*
+>*Father says that being thankless is a sin–the worst sin, but I haven't found much to be thankful for this past week and I'm trying really, really hard. I promise I have been and I've been praying too. Zygomar is usually the loudest so I started by invoking him–this all started in his name after all–and when that didn't work I even prayed to the lesser gods Yogtroth, Trula and Vaneshka for help or guidance. For bravery, retribution or wisdom anything at all they might bless me with too, but I haven't heard a single one of them since all of this started. I even lowered myself and called out to Vorgrath. I begged him to smite me for turning my back to him, to strike the old farmhouse with his bolts until it burned to the ground with all of us inside it. He wouldn't even punish me for what I've done in defiance of his gift. I think maybe none of them can hear me now or we've fallen so far from their favor that they've all gone quiet–or if they are replying, I just can't hear them anymore–not over the sound of everyone else whispering from the other side of the attic door.*
 
 >*The sound of Father's murmurs at the cracks as he promises forgiveness for everything I've done and Mother's quiet laments that I've turned my back on my family but if I just let them in it will all be alright again. Caleb, Josiah, Leah and the twins, Rebekah and Tabitha are all saying things out there in hushed voices too. Everything they say crushes me just a bit smaller and cracks away another small piece of my heart, but I still don't let them come in. I* ***can't*** *let them come in.*
 
