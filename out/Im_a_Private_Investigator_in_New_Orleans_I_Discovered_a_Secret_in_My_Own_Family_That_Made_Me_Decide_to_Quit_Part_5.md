@@ -190,7 +190,7 @@ The sound of the crates toppling is like thunder in the silent night, a cacophon
 
 Seizing the moment, Reine and I dart from our hiding spot, moving with a swiftness born of desperation. We slip through the door leading to the lower decks just as the first of the guards reaches the scene of the accident. The door closes with a soft click, a whisper in the night that seals us inside the labyrinthine corridors of the ship.
 
-The narrow hallways of the Nightingale’s interior twist and turn like the innards of a great leviathan. The air is cooler here, the walls lined with pipes and cables that hiss and hum with the lifeblood of the ship. 
+The narrow hallways of the Nightingale’s interior twist and turn like the innards of a great leviathan. The air is cooler here, the walls lined with pipes and cables that hiss and hum with the lifeblood of the ship.
 
 Reine and I move in tandem, our steps silent, our senses heightened to the brink of paranoia. Every creak of the ship, every distant murmur of conversation, sends a surge of adrenaline through our veins. We are intruders in a world where discovery means certain death.
 
@@ -277,6 +277,8 @@ She shakes her head vehemently, her gray eyes fierce. "No way, Ash. We're in thi
 I grab her by the shoulders, forcing her to meet my gaze. "You have to go now! I'll be right behind you, I promise." My voice is urgent, desperate. The realization that we might not make it out of this alive is a bitter pill, but I can't let her sacrifice herself for me.
 
 Reine's eyes soften, and for a moment, the chaos around us seems to fade away. "Ash, I have to tell you something," she says, her voice breaking through the chaos, "I'm pregnant."
+
+[Part 6](https://www.reddit.com/r/nosleep/comments/180ei63/im_a_private_investigator_in_new_orleans_i/)
 
 [X](https://www.reddit.com/r/PageTurner627Horror/)
 

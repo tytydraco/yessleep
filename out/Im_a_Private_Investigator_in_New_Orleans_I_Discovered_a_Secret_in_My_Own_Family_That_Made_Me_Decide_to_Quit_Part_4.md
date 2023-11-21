@@ -270,6 +270,8 @@ Reine and I lock eyes, the unspoken question hanging between us. How many more? 
 
 [Part 5](https://www.reddit.com/r/nosleep/comments/17v3n58/im_a_private_investigator_in_new_orleans_i/)
 
+[Part 6](https://www.reddit.com/r/nosleep/comments/180ei63/im_a_private_investigator_in_new_orleans_i/)
+
 [X](https://www.reddit.com/r/PageTurner627Horror/)
 
 [Y](https://www.instagram.com/afterhourscontent2022/)
