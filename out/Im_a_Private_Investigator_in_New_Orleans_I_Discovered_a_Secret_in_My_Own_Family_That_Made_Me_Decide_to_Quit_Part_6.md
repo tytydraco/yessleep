@@ -18,9 +18,9 @@ I give her one final nod and then turn to face the oncoming cultists. With this 
 
 As I lay down a withering cover fire, my focus narrows to the task at hand. Each shot is a calculated effort to buy Reine time, to carve a path of survival for her. The cultists, undeterred by their fallen comrades, press on with a fervor that's chilling in its intensity.
 
-In the heat of the battle, a bullet, its aim true, hits me square in the chest. The impact is like a sledgehammer, the force of it staggering. My Kevlar vest absorbs the brunt of the blow, the ceramic plate shattering under the impact, but the force is enough to knock me off my feet. I hit the ground hard, the breath driven from my lungs, stars dancing before my eyes.
+As I turn to make my escape, following in Reine's wake, a sharp pain explodes across my back. A bullet, one of the countless flying through the chaos, finds its mark. The force of the impact against my Kevlar vest is staggering, like a sledgehammer to my spine. The porcelain plate  embedded underneath shatters, its fragments stabbing into my skin like a thousand needles. I stumble forward, the world tilting dangerously.
 
-Every sound becomes muffled, distant, as if I'm sinking into deep water. Through the haze of pain, I see Reine's figure receding, her movement swift and deliberate. The detonator is still in her hand, our last hope to stop Lua Den.
+I hit the ground hard, the air rushing out of my lungs. Pain radiates across my back, a reminder of how close I came to a fatal shot. For a moment, I lie there, dazed, the sounds of the battle a distant echo in my ears. 
 
 I struggle to reach for my weapon, my fingers scraping the [cold](https://www.reddit.com/r/nosleep/comments/14c93t1/im_an_arctic_researcher_we_accidentally_released/) floor of the ship, but a boot comes crashing down on my hand with brutal force. A sharp, excruciating pain shoots through my arm, the unmistakable sensation of bones breaking. I stifle a scream, gritting my teeth against the agony.
 
