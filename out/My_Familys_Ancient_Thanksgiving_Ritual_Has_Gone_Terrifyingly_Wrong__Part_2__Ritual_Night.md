@@ -2,9 +2,10 @@
 
 \_______________
 
-#####**Contents:**
+#####**Chapters:**
 * [Part 1 - Slaughtering Day](https://redd.it/17zphxs)
 * [Part 2 - Ritual Night](https://redd.it/180ihvx)
+* [Part 3 - Unholy Children](https://redd.it/181avp0)
 
 \_______________
 

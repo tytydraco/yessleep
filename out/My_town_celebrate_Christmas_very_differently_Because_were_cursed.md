@@ -1,4 +1,4 @@
-The crate of Coke just sitting there in a patch of dirt was definitely a trap. 
+The crate of Coke just sitting there in a patch of grass was definitely a trap. 
 
 But there was no way I was ignoring it. 
 
@@ -46,7 +46,11 @@ They thought they got away with it.
 
 A whole year passed, and Christmas came once again, our town filled with festive lights and decoration. On Christmas day, however, there were no presents in stockings. Instead, half of the senior class were found skinned of their flesh, still in their beds, with Blitzen’s murderers being reduced to reddish pulp staining their sheets. 
 
-Parents killed themselves over what was left of their children. Grammy described it as a massacre so bad they knocked down the high school, both ashamed of those five students, and horrified by the senior massacre of 1979. Santa sent a very clear message the following year. To make up for their children's sins, every child would spill blood in Blitzen’s name. If they refused, he would start picking off citizens himself. In the early 80’s, I don't think my town believed it. So, they went on as normal and attempted to hold both a holiday and a day of mourning for the dead. 
+Parents killed themselves over what was left of their children. 
+
+Grammy described it as a massacre so bad they knocked down the high school, both ashamed of those five students, and horrified by the senior bloodbath of 1979. Santa sent a very clear message the following year. To make up for their children's sins, every child would spill blood in Blitzen’s name. If they refused, he would start picking off citizens himself. In the early 80’s, I don't think my town believed it. 
+
+So, they went on as normal and attempted to hold both a holiday and a day of mourning for the dead. 
 
 Which was quickly interrupted by demonic elf-like creatures that ripped apart half of the mourners, parents and children alike. 
 
@@ -124,7 +128,9 @@ Unlike my father, who wanted his body to be found and remembered, my mother had 
 
 She took her own life minutes after I left for class.
 
-Mom’s death meant nothing to anyone but me, and the weird cult made up in my father's name. Neither the cops nor the coroner took her body. They were too busy hunting down chosen kids trying to escape town– and their fate. I wrapped Mom in sheets and left her on her bed. 
+Mom’s death meant nothing to anyone but me, and the weird cult made up in my father's name. Neither the cops nor the coroner took her body. They were too busy hunting down chosen kids trying to escape town– and their fate. 
+
+I wrapped Mom in sheets and left her on her bed. 
 
 Dad's cult broke into our house on the eve of the 23rd December, throwing themselves on the ground in front of me, their faces cast in candlelight. 
 
@@ -164,7 +170,11 @@ I didn't feel regret when I leapt onto the cult leader, already knowing exactly 
 
 “Do it,” he mouthed, rotten teeth stretching into a grin. 
 
-Daniel Oliver was like me. His Mom was the winner of the 1994 event. She had Daniel, and twin girls, killing the twins and then herself, leaving Daniel and his father behind. I wasn't surprised Daniel bought the bullshit that his parents did the right thing, and were in fact symbols of our dying town. I didn't choke him. 
+Daniel Oliver was like me. 
+
+His Mom was the winner of the 1994 event. She had Daniel, and twin girls, killing the twins and then herself, leaving Daniel and his father behind. 
+
+I wasn't surprised he bought the bullshit that his parents did the right thing, and were in fact symbols of our dying town. I didn't choke him. 
 
 Wrestling the kitchen knife from his struggling hands, I plunged the blade into his eye so I didn't have to look at him, at what he was trying to tell me. 
 
@@ -182,7 +192,7 @@ His smile widened. “You were chosen."
 
 His manic giggle sent shivers down my spine. “Then you know what to do. Just like your father. We sinned as a town. We *killed* a sacred beast, and there's no running away. We will keep dying, offering our children  to darkness and despair that is endless! That will never stop! They will *keep* dying, and the survivors will be creating future murderers and corpses for a town that does not deserve a second chance."
 
-Daniels’s expression twitched, and for the fraction of a moment I swear I saw coherence. He wasn't crazy. He was upset. It was enough to send me stumbling back, phantom bugs choking filling my mouth. “Unless…” He caught himself, exhaling a breath. “You end it.”.
+Daniel's expression twitched, and for the fraction of a moment I swear I saw coherence. He wasn't crazy. He was upset. It was enough to send me stumbling back, phantom bugs choking filling my mouth. “Unless…” He caught himself, exhaling a breath. “You end it.”.
 
 I opened my mouth to speak, before he cut me off. 
 
@@ -246,7 +256,13 @@ He was unarmed, and I could *easily* sever a vein with him that close.
 
 His words twisted my gut. I had never celebrated Christmas. I knew what the rest of the world did, watching movies and TV shows. Normal people's stockings weren't filled with candy canes marking them for death. In fact, it was just candy. 
 
-Normal people strung lights in trees and even brought in trees from the outside and decorated them. It was called a Christmas tree. Livingswood, however, was terrified of acknowledging the holiday. Alex folded his arms, still scowling. Though there was maybe the slightest quick of a smile trying to curve on his lips. “We’ve got food and lights,” he grumbled. “If you wanna join.”
+Normal people strung lights in trees and even brought in trees from the outside and decorated them. 
+
+It was called a Christmas tree.
+
+Livingswood, however, was terrified of acknowledging the holiday. 
+
+Alex folded his arms, still scowling. Though there was maybe the slightest quick of a smile trying to curve on his lips. “We’ve got food and lights,” he grumbled. “If you wanna join.”
 
 Clee nodded eagerly behind him. “Yes! We’re having our own holiday meal.”
 
@@ -356,7 +372,7 @@ A chance that we could be forgiven.
 
 Bullshit. 
 
-Blitzen wasn't just a reindeer, but a part of Chirtsmas. 
+Blitzen wasn't just a reindeer, but a part of Christmas. 
 
 We were fucking stupid to think Santa would ever offer us mercy. 
 
@@ -372,7 +388,9 @@ So, I made it fast.
 
 Painless. 
 
-I didn't give warning, twisting around, slicing Ramona’s throat open and shooting Alex in the perfect place to secure zero pain. The town started screaming at me behind the barrier, urging me to ring the bell. That it wasn't too late. Their fear made me scared too, but I didn't show it. Even when they threw things into the barrier. The mayor himself was at the front, his lips twisted into a furious yell, screaming at me to ring the bell. Instead, I gulped down soda. I could see my reflection on the surface of the barrier. I looked like shit. 
+I didn't give warning, twisting around, slicing Ramona’s throat open and shooting Alex in the perfect place to secure zero pain. The town started screaming at me behind the barrier, urging me to ring the bell. That it wasn't too late. Their fear made me scared too, but I didn't show it. Even when they threw things into the barrier. 
+
+The mayor himself was at the front, his lips twisted into a furious yell, screaming at me to ring the bell. Instead, I gulped down soda. I could see my reflection on the surface of the barrier. I looked like shit. 
 
 I could barely see my face, splattered red covering every inch of me, my hair a mop hanging in front of my eyes. 
 
