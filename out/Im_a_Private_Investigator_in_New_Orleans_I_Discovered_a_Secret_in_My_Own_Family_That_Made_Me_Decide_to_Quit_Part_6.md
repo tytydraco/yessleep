@@ -50,13 +50,13 @@ Before I can answer, a new voice joins the conversation. “He’s my brother-in
 
 Xuan steps into the dim light of the chamber, his figure draped in a heavy cloak that seems to absorb the scant light around him. As he moves closer, his presence is both familiar and utterly foreign, a man I once knew transformed by the path he's chosen. The cloak sways with his movements, and for a brief moment, I catch a glimpse of something beneath it – a glimpse of inhuman, shifting patterns that dance across his skin, dark and ominous, as if alive.
 
+Xuan approaches me with a chilling smile, his eyes glinting with [malevolence](https://www.reddit.com/r/nosleep/comments/1581vef/our_search_for_a_missing_teen_uncovered_the/). He reaches down, his fingers deftly finding the C-4 charge I had strapped to the Void Whisperer. His movements are precise, those of a man who knows exactly what he's doing.
+
 Xuan's voice echoes through the chamber, a twisted symphony of arrogance and provocation. "Chị Reine ơi," he calls out, his words dripping with a malicious glee. "I know you can hear me. You have the detonator, don't you? Go on, sister, press it. End this. End me. End the Void Whisperer."
 
 His taunt is a vile serpent, slithering through the air, reaching out to where I know Reine is hiding, listening. There's a venomous certainty in his tone, a confidence that knows its target too well. "But you won't, will you?" he continues, a cruel laugh punctuating his words. "Because doing so would mean killing your beloved Ash. And we both know you don't have the heart for that."
 
 The chamber is silent, a tense pause hanging in the air. I can almost feel Reine's turmoil, her desperation and rage a palpable force. It’s a twisted game, a cruel manipulation of her love for me.
-
-Xuan approaches me with a chilling smile, his eyes glinting with [malevolence](https://www.reddit.com/r/nosleep/comments/1581vef/our_search_for_a_missing_teen_uncovered_the/). He reaches down, his fingers deftly finding the C-4 charge I had strapped to the Void Whisperer. His movements are precise, those of a man who knows exactly what he's doing.
 
 With a few swift motions, Xuan disconnects the wires of the charge, his fingers moving with a sinister grace. He holds the explosive up, examining it with a perverse curiosity. As he does, something chilling happens. The dark, inhuman patterns that I glimpsed beneath his cloak begin to writhe and pulse, creeping out like tendrils of shadow.The patterns extend down his arms, reaching his hands. They encircle the C-4, and in a moment that feels both terrifying and mesmerizing, the dark force consumes the explosive. It's not just a simple destruction; it's an absorption, a controlled implosion that defies the laws of physics. The plastic explosive disintegrates, collapsing into itself in a spectacular display of dark energy, leaving no trace behind.
 
