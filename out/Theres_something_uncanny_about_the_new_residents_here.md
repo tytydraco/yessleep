@@ -58,7 +58,7 @@ It wasn't Beau.
 
 "Who... are you?" I said trying not to sound rude. I had never not seen Beau at the bakery. It was her life's passion, everyone in town went to her shop.
 
-"Hello" she said with a wry smile."My name is Ritzigale Luddenheimer... this is my bakery." her head turned slightly as the corners of mouth pushed upward into an unsettling smile. Her accent... it was the same as the man from before, her clothing as equally flamboyant. A flowy gray dress, the fabric layered and transparent. An elaborate gold necklace adorned with gems, and two large amethyst earnings.
+"Hello" she said, "My name is Ritzigale Luddenheimer... this is my bakery." her head turned slightly as the corners of mouth pushed upward into an unsettling smile. Her accent... it was the same as the man from before, her clothing as equally flamboyant. A flowy gray dress, the fabric layered and transparent. An elaborate gold necklace adorned with gems, and two large amethyst earnings.
 
 "Where is Beau? This is her establishment..." I said in disbelief.
 
