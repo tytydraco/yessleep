@@ -40,7 +40,7 @@ The name of the sender was "Forgotten Friend". Before I clicked the link, I made
 
 &#x200B;
 
-*The main focus is a young boy, estimated age eleven or twelve, named Bobby and his dog, a German shepherd rottweiler mix called Onyx.  The events in the tape take place on Halloween and begin with Bobby on the bus ride to go home. It pulls into his neighborhood, showing houses covered in decorations and some residents sitting outside, carving pumpkins.  The bus pulls to a stop, then Bobby and some other students get off.  When he gets up to the door, arguing can be heard inside as well as a baby crying.*
+*The main focus is a young boy, estimated age eleven or twelve, named Bobby. The events in the tape take place on Halloween and begin with Bobby on the bus ride to go home. It pulls into his neighborhood, showing houses covered in decorations and some residents sitting outside, carving pumpkins.  The bus pulls to a stop, then Bobby and some other students get off.  When he gets up to the door, arguing can be heard inside as well as a baby crying.*
 
 &#x200B;
 
