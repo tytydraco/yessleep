@@ -156,13 +156,13 @@ Aunt Marlie shared little tips and tricks as we went along, and I found myself g
 
 With Aunt Marlie gone, the house felt quieter, almost too big. I went back to chopping vegetables, but my attention kept drifting. My mind wandered to Casey and our last argument, and my stomach plummeted. I felt suddenly intensely lonely, and I had the munchies, too.
 
-I debated for a minute, then decided I was more sad and in need of company than angry, so I picked up my phone and texted my cousin: Come in for a sandwich?
+I debated for a minute, then decided I was more sad and in need of company than angry, so I picked up my phone and texted my cousin: *Come in for a sandwich?*
 
 I thought that was a nice enough peace offering, but I waited ten minutes, and my cousin didn't respond. I started making lunch regardless but caught sight of him through the kitchen window, walking in the backyard, dragging the old lawn mower. I tapped the window with the knife handle, loud enough that he looked up at me- and then looked away, putting on his headphones. I texted him again, just sending a few question marks to my earlier message. Through the window, I saw him look at his phone and put it back in his pocket, deliberately leaving me on read.
 
 A flash of irritation hit me, and I pounded at the window harder. He kept his head forward, avoiding looking at me.
 
-What a passive-aggressive little shit, I thought.
+*What a passive-aggressive little shit,* I thought.
 
 I felt a sudden, urgent burst of white-hot anger. I banged on the window hard, feeling the glass shake under my hand. I knew it was stupid, and there was even a chance I might break it, but I was full of pent-up frustration that needed an outlet.
 
@@ -278,13 +278,15 @@ I took his hand and tried to "gently guide him back to bed" like the wiki recomm
 
 His laptop was open, its screensaver casting a faint, eerie glow in the semi-darkness. His bed was a tangle of sheets and a crumpled comforter, like he'd been tossing around in it. I helped him sit in it, trying to control his fall the best I could as he outweighed me by at least fifty pounds. He curled up in an almost fetal position, facing the wall.
 
-"They say they'll never let me sleep again." He whispered. I stared at the back of his head for a minute before leaning over to check his face. His eyes were still wide open and staring, but he seemed calm enough.
+"They say they'll never let me sleep again." He whispered. I stared at the back of his head for a minute before leaning over to check his face. His eyes were still wide open and looking blankly at the wall, but he seemed calm enough.
 
 I deliberated on what to do next. I considered getting my aunt, but after the incredible stress of the last 24 hours coupled with my exhaustion, I eventually decided to just go back to my room and let him sleep off whatever was happening with him.
 
 I wish I hadn't left him.
 
-When I went back to bed, this time, I dreamed I was the one driving my car, and Tyler stood in the middle of the field, crying and begging me to stop. There was a high-pitched keening as if tinnitus could somehow be made of voices. I tasted the metallic tang of blood and spoiled apples.
+When I went back to bed, this time, I dreamed I was the one driving my car, and Tyler stood in the middle of the field, crying and begging me to stop. There was a high-pitched keening as if tinnitus could somehow be made of voices. 
+
+I tasted the metallic tang of blood and spoiled apples.
 
 It was a relief to wake up.
 

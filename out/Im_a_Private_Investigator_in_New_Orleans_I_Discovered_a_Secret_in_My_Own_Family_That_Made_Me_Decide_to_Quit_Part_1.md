@@ -142,7 +142,7 @@ On the other side, my younger cousins chatter excitedly in English, their eyes g
 
 My gaze drifts to the walls adorned with family photographs, moments of joy and milestones frozen in time, interspersed with stern portraits of me as a Marine.
 
-I'm drawn to the corner of the living room where the family altar stands. The soft glow of candles illuminates photographs of ancestors, their faces forever frozen in time. My eyes rest on the  picture of my bà ngoại (grandma) Kim, the woman who helped raise me.
+I'm drawn to the corner of the living room where the family altar stands. The soft glow of candles illuminates photographs of ancestors, their faces forever frozen in time. My eyes rest on the  picture of my bà ngoại (grandma), Kiều, the woman who helped raise me.
 
 I take a joss stick, igniting it from the altar's candle. The fragrant smoke slowly curls upwards, filling the air with a comforting, woody aroma. It mingles seamlessly with the savory scent of my mom's cooking wafting from the kitchen.
 
@@ -361,5 +361,9 @@ As we walk back towards the laughter and light of the living room, Kira's gaze f
 [Part 3](https://www.reddit.com/r/nosleep/comments/170lx9b/im_a_private_investigator_in_new_orleans_i/)
 
 [Part 4](https://www.reddit.com/r/nosleep/comments/17qk25h/im_a_private_investigator_in_new_orleans_i/)
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/17v3n58/im_a_private_investigator_in_new_orleans_i/)
+
+[Part 6](https://www.reddit.com/r/nosleep/comments/180ei63/im_a_private_investigator_in_new_orleans_i/)
 
 [X](https://www.reddit.com/r/PageTurner627Horror/)
