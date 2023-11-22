@@ -395,7 +395,7 @@ I practically throw the doll at Nada and frantically dial Kurt.
 
 When I saw him next he was in a hospital bed looking like he was put through a meat grinder, and missing three fingers on his right hand. 
 
-We moved to Washington once Kurt was out of the hospital. The murders made national news, and while we were not approached by police, or mentioned, distance seemed a good option. 
+We moved to Washington once Kurt was out of the hospital. The murders made local news, and while we were not approached by police, or mentioned, distance seemed a good option. 
 
 But all that is just the tip of the iceburg, a close call with a dangerous piece of equipment. Crow was never truly lost, just misplaced. 
 
