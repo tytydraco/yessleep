@@ -20,7 +20,7 @@ The package had a history. That was for sure. The thing had seemingly been bounc
 
 When I looked up the address, I was proven right. The last stop had only been about an hour drive away form my house. It was a normal looking townhouse, that area was pretty popular student housing for the local university and I had driven through the area multiple times, but that wasn't what jumped out to me. There were a couple of local articles detailing a recent tragedy at that exact address. A local undergrad named Sam Kelsey had been found dead in his home. Found was a generous term, apparently the state of the body was unidentifiable and they assumed he was the victim due to him living there alone.
 
-I was shocked and was really starting to get freaked out at this point, so I went back to the website. I had seen a courier note at all of the addresses but had not read through them due to their being so many. That was when I realized this was not just a sick prank, but something abiu the package was not normal.
+I was shocked and was really starting to get freaked out at this point, so I went back to the website. I had seen a courier note at all of the addresses but had not read through them due to their being so many. That was when I realized this was not just a sick prank, but something about the package was not normal.
 
 Order #0382 Courier Note
 
