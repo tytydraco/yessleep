@@ -18,9 +18,9 @@ I give her one final nod and then turn to face the oncoming cultists. With this 
 
 As I lay down a withering cover fire, my focus narrows to the task at hand. Each shot is a calculated effort to buy Reine time, to carve a path of survival for her. The cultists, undeterred by their fallen comrades, press on with a fervor that's chilling in its intensity.
 
-As I turn to make my escape, following in Reine's wake, a sharp pain explodes across my back. A bullet, one of the countless flying through the chaos, finds its mark. The force of the impact against my Kevlar vest is staggering, like a sledgehammer to my spine. The porcelain plate  embedded underneath shatters, its fragments stabbing into my skin like a thousand needles. I stumble forward, the world tilting dangerously.
+As I turn to make my escape, following in Reine's wake, a sharp pain explodes across my back. A bullet, one of the countless flying through the chaos, finds its mark. The force of the impact against my Kevlar vest is staggering, like a sledgehammer to my spine. The porcelain plate embedded underneath shatters, its fragments stabbing into my skin like a thousand needles. I stumble forward, the world tilting dangerously.
 
-I hit the ground hard, the air rushing out of my lungs. Pain radiates across my back, a reminder of how close I came to a fatal shot. For a moment, I lie there, dazed, the sounds of the battle a distant echo in my ears. 
+I hit the ground hard, the air rushing out of my lungs. Pain radiates across my back, a reminder of how close I came to a fatal shot. For a moment, I lie there, dazed, the sounds of the battle a distant echo in my ears.
 
 I struggle to reach for my weapon, my fingers scraping the [cold](https://www.reddit.com/r/nosleep/comments/14c93t1/im_an_arctic_researcher_we_accidentally_released/) floor of the ship, but a boot comes crashing down on my hand with brutal force. A sharp, excruciating pain shoots through my arm, the unmistakable sensation of bones breaking. I stifle a scream, gritting my teeth against the agony.
 
@@ -52,13 +52,15 @@ Xuan steps into the dim light of the chamber, his figure draped in a heavy cloak
 
 Xuan approaches me with a chilling smile, his eyes glinting with [malevolence](https://www.reddit.com/r/nosleep/comments/1581vef/our_search_for_a_missing_teen_uncovered_the/). He reaches down, his fingers deftly finding the C-4 charge I had strapped to the Void Whisperer. His movements are precise, those of a man who knows exactly what he's doing.
 
-Xuan's voice echoes through the chamber, a twisted symphony of arrogance and provocation. "Chị Reine ơi," he calls out, his words dripping with a malicious glee. "I know you can hear me. You have the detonator, don't you? Go on, sister, press it. End this. End me. End the Void Whisperer."
+Xuan's voice echoes through the chamber, a twisted symphony of arrogance and provocation. "Chị Reine ơi," he calls out, his words dripping with a malicious glee. "I know you can hear me. You have the detonator, don't you? Go on, sister, press it. End this. End me."
 
 His taunt is a vile serpent, slithering through the air, reaching out to where I know Reine is hiding, listening. There's a venomous certainty in his tone, a confidence that knows its target too well. "But you won't, will you?" he continues, a cruel laugh punctuating his words. "Because doing so would mean killing your beloved Ash. And we both know you don't have the heart for that."
 
 The chamber is silent, a tense pause hanging in the air. I can almost feel Reine's turmoil, her desperation and rage a palpable force. It’s a twisted game, a cruel manipulation of her love for me.
 
-With a few swift motions, Xuan disconnects the wires of the charge, his fingers moving with a sinister grace. He holds the explosive up, examining it with a perverse curiosity. As he does, something chilling happens. The dark, inhuman patterns that I glimpsed beneath his cloak begin to writhe and pulse, creeping out like tendrils of shadow.The patterns extend down his arms, reaching his hands. They encircle the C-4, and in a moment that feels both terrifying and mesmerizing, the dark force consumes the explosive. It's not just a simple destruction; it's an absorption, a controlled implosion that defies the laws of physics. The plastic explosive disintegrates, collapsing into itself in a spectacular display of dark energy, leaving no trace behind.
+With a few swift motions, Xuan disconnects the wires of the charge, his fingers moving with a sinister grace. He holds the explosive up, examining it with a perverse curiosity. As he does, something chilling happens. The dark, inhuman patterns that I glimpsed beneath his cloak begin to writhe and pulse, creeping out like tendrils of shadow.
+
+The patterns extend down his arms, reaching his hands. They encircle the C-4, and in a moment that feels both terrifying and mesmerizing, the dark force consumes the explosive. It's not just a simple destruction; it's an absorption, a controlled implosion that defies the laws of physics. The plastic explosive disintegrates, collapsing into itself in a spectacular display of dark energy, leaving no trace behind.
 
 He turns his attention now fully on me. "You and Reine, always playing the heroes. But this is beyond your comprehension, beyond your petty sense of justice."
 
@@ -66,7 +68,7 @@ He turns his attention now fully on me. "You and Reine, always playing the heroe
 
 My voice cuts through the tension, a desperate plea. "Don't listen to him! Get out of here, now!"
 
-Xuan's demeanor shifts as he turns to Lockhart, his expression darkening with an unspoken command. He hands her a syringe filled with the same alien, luminescent fluid we witnessed at the factory. Its glow is unsettling, casting eerie shadows across his face. "Prepare him," he orders, his voice cold and devoid of any emotion. "He will be our offering to the Black Fire."
+Xuan's demeanor shifts as he turns to Lockhart, his expression darkening with an unspoken command. He hands her a syringe filled with the same alien, luminescent fluid we witnessed at the factory. Its glow is unsettling, casting eerie shadows across his face. "You know what to do," he says, his voice cold and devoid of any emotion.
 
 Lockhart hesitates, her hand trembling as she takes the syringe. Her eyes meet mine, and in that brief moment, I see a flicker of doubt, a hint of the same fear that I've seen in Kira's eyes. It's a look that speaks of being trapped in a situation far beyond her control, a submissive fear that belies her earlier authority and composure.
 
@@ -88,7 +90,7 @@ His voice becomes a hypnotic cadence, and as he speaks, the very air around us s
 
 The cries and prayers of desperate refugees fill the air, their faces etched with fear and hope. Among them, a young Xuan huddles with his family, their faces illuminated by the faint light of a single lantern. The scene is one of haunting despair, a tableau of human suffering.
 
-"But we never made it," he continues, his voice cracking. "Pirates. They came in the night, like demons. They killed everyone... my parents, brothers, my sisters,... I watched them all die." The pain in his voice is raw, a wound that never healed.
+"But we never made it," he continues, his voice cracking. "Pirates. They came in the night, like demons. They killed everyone... my parents, brothers, my sisters... I watched them all die." The pain in his voice is raw, a wound that never healed.
 
 The horrific scene unfolds before us, the memories manifesting like ghosts in the dim light. The terror in the eyes of his family, the cruelty of the attackers, it's all painfully vivid, as if we're living through it with him. The young Xuan's helpless screams, his desperation, it resonates in the air, a haunting echo of a past that's scarred him deeply.
 
@@ -100,7 +102,9 @@ Xuan, a child among this chaos, watches in a mixture of terror and awe as the fl
 
 "I was alone, adrift," Xuan continues, his voice a haunted echo. "But the Black Flame, it surrounded me, protected me. It was warm, comforting in a way that defied its terrifying appearance. It spoke to me, not in words, but in... visions, feelings. It showed me a world beyond our understanding, a realm of infinite possibilities."
 
-The scene around us shifts again, morphing back to the chamber of the Nightingale. But now, there's an ethereal quality to everything, as if we're caught between two worlds – the tangible and the spectral.His gaze turns to the Void Whisperer, the monstrous device now pulsating with a sinister light. "Lửa Đen revealed my purpose – to be his harbinger, to bring him forth into this world. All my life, every action, every decision, has been to fulfill that purpose."
+The scene around us shifts again, morphing back to the chamber of the Nightingale. But now, there's an ethereal quality to everything, as if we're caught between two worlds – the tangible and the spectral.
+
+His gaze turns to the Void Whisperer, the monstrous device now pulsating with a sinister light. "Lửa Đen revealed my purpose – to be his harbinger, to bring him forth into this world. All my life, every action, every decision, has been to fulfill that purpose."
 
 He pauses, his eyes locking onto mine. "The Black Fire will cleanse this world, burn away the corruption, the lies, the pain. And from its ashes, a new order will rise."
 
@@ -182,7 +186,7 @@ Her eyes shift to us, a newfound determination replacing the fear. "But you... y
 
 "I can create a distraction," she says. "Something big enough to draw their attention away from the control panel, but it won't last long. You'll have a small window to act."
 
-Her words hang in the air, thick with a sincerity that I hadn't expected. "Why should we trust you?" I ask. "You're part of this madness."
+Her words hang in the air, thick with a sincerity that I hadn't expected. "Why should we trust you?" I ask. "You're part of this insanity."
 
 Lockhart's face hardens, a resolve shining in her eyes. "You don't have to trust me," she replies, her voice steady. "But if the Void Whisperer activates, there's no stopping what comes next. Lửa Đen will be unleashed, and everything we know, everything we are, will be consumed."
 
