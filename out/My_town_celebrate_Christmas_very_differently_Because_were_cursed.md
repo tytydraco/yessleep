@@ -380,7 +380,7 @@ Alex and Ramona stood by my side when the chance to ring the bell came and went.
 
 Outside the barrier, the town had erupted into chaos, trying to force themselves into the glass. Their wide, accusing eyes and snarls were the icing on the cake. “Ready?” Alex’s blood slicked hand entangled with mine. It was comfortable, and I was at peace. 
 
-Alex and Romana wanted it to be fast. 
+Alex and Ramona wanted it to be fast. 
 
 Painless. 
 
