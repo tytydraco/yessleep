@@ -294,4 +294,4 @@ For a few minutes, anyway.
 
 \-
 
-*Part II Posting Tomorrow 11/23/23*
+[**Part II**](https://www.reddit.com/r/nosleep/comments/1827xnf/my_family_believes_in_fairies_and_it_ruined/?utm_source=share&utm_medium=web2x&context=3)
