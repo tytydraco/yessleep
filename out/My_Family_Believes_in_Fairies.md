@@ -4,7 +4,7 @@ As I looked at what remained of the bumper of my car in my aunt's driveway in th
 
 The decision to come back to my tiny rural hometown in Pennsylvania had seemed reasonable at the time, as I had spent an exhausting month navigating the waters of an unexpected, messy breakup with someone I was supposed to spend the holidays with. A few days after I got here, feeling slightly less heartbroken, I realized what an idiot I was for not just enjoying the time to myself.
 
-I had been so scattered that I hadn't even remembered to pack socks, which my cold bare feet in the borrowed pair of my aunt's slippers reminded me of. To try to keep some semblance of warmth, I had my hands deep in the pockets of my frayed pajama pants, a pair I had left behind and forgotten about years ago that I had rediscovered in the back of a closet when I realized I had forgotten to pack any.
+I had been so scattered that I hadn't even remembered to pack socks, which my cold bare feet in the borrowed pair of my aunt's slippers reminded me of. To try to keep some semblance of warmth, I had my hands deep in the pockets of my frayed pajama pants, a pair I had left behind and forgotten about years ago that I had rediscovered in the back of a closet when I realized I hadn't packed any.
 
 My cousin kept going on and on, walking a few steps towards me and then turning back to the mess. Even though it was obvious what had happened from the crumbled hole in the garage door and the corresponding crumbled hole in my bumper.
 
@@ -284,7 +284,7 @@ I deliberated on what to do next. I considered getting my aunt, but after the in
 
 I wish I hadn't left him.
 
-When I went back to bed, this time, I dreamed I was the one driving my car, and Tyler stood in the middle of the field, crying and begging me to stop. There was a high-pitched keening as if tinnitus could somehow be made of voices. 
+When I went back to bed, this time, I dreamed I was the one driving my car, and Tyler stood in the middle of the field, crying and begging me to stop. There was a high-pitched keening as if tinnitus could somehow be made of voices.
 
 I tasted the metallic tang of blood and spoiled apples.
 
