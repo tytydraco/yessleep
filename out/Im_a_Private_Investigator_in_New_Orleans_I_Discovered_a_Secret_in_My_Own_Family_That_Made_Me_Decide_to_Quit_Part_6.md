@@ -12,7 +12,9 @@ The revelation hits me like a thunderbolt, a moment of clarity amidst the storm 
 
 "Go, Reine!" My voice is a command. "Get to safety, for our child."
 
-Reine's eyes are a whirlpool of emotions – fear, love, determination. She nods, gripping the detonator tightly. "I'll wait for you. Be there," she says, the promise in her voice an unbreakable vow.
+Reine pulls me close, her eyes a storm of emotions – fear, love, determination. For a fleeting moment, the world around us fades, the gunfire and chaos mere echoes against the closeness of our bond. Her lips meet mine in a intimate kiss.
+
+"I'll wait for you. Be there," she says, the promise in her voice an unbreakable vow.
 
 I give her one final nod and then turn to face the oncoming cultists. With this newfound resolve, I rise, my weapon in hand, my movements fueled by a desire to see my child, to hold Reine in my arms again.
 
