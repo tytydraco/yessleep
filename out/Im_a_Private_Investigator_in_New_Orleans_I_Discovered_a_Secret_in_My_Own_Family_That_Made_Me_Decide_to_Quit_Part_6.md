@@ -12,7 +12,7 @@ The revelation hits me like a thunderbolt, a moment of clarity amidst the storm 
 
 "Go, Reine!" My voice is a command. "Get to safety, for our child."
 
-Reine pulls me close, her eyes a storm of emotions – fear, love, determination. For a fleeting moment, the world around us fades, the gunfire and chaos mere echoes against the closeness of our bond. Her lips meet mine in a intimate kiss.
+Reine pulls me close, her eyes a storm of emotions – fear, love, determination. For a fleeting moment, the world around us fades, the gunfire and chaos mere echoes against the closeness of our bond. Her lips meet mine in an intimate kiss.
 
 "I'll wait for you. Be there," she says, the promise in her voice an unbreakable vow.
 
