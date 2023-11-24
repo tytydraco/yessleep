@@ -1,0 +1,29 @@
+All day, all night, the machine continued to beep. Sometimes slower, sometimes faster, but never stopping.
+
+The insidious apparatus was monitoring my vital signs and would alert a nurse if something went wrong. Countless tubes penetrated my body, leaving me to feel as though I was trapped inside some kind of medieval torture device. These dark thoughts weren’t helped by the fact that my intravenous drip bags were held up by chains, a macabre image for sure.
+
+Every now and then, the beeping would change tone. That’s when they rushed to my bed. Adjusting my medication, these masked strangers towered over me. I begged them to give me something stronger, so I could get some sleep, not to avoid any pain but to escape the wicked chime of the machine. Unfortunately, I was always told that my condition prevented them from administering certain drugs. I never believed them.
+
+I remember the night I was admitted. It was a Sunday in the middle of Summer, I had just gotten home from a long afternoon drive (a benefit I acquired due to my status as a 35-year-old man with no relationship and little family). Finishing my dinner, I took a sip of whisky before standing up. That’s when I felt it inside me.
+
+It’s practically impossible to express the feeling I had. Simply put, there was something moving in my stomach, and it scared me. This wasn’t indigestion, I had felt that before. Putting my hand on my belly, the motion beneath the surface was clear. I felt myself getting lightheaded and quickly called an ambulance. As I gave them my address, I rapidly slipped out of consciousness. The next time I opened my eyes, I was in my bed in the Intensive Care Unit, vulnerable.
+
+Premature death is a curse that has run rampant through my family, so hospitals have become a morbid home away from home in a way. I had watched both my parents wither away in these medical labyrinths. The windowless winding halls have always creeped me out. Many times I had gotten lost trying to find the ward where my loved one was dying. It often felt like I was going in a loop, before suddenly stumbling on the correct wing. I’ve never liked hospitals, they always felt like they existed within another dimension.
+
+They told me I had stage 4 colon cancer. Explaining the situation, the first doctor recommended an aggressive plan of chemotherapy. I knew he was wrong, so I pleaded with him to perform surgery right away. “The tumour is inoperable”, he said. After many meetings with several different physicians, I heard the same news over and over. Apparently, If I refused treatment, I would be dead in 3 months. I still declined. In my estimation, this could give them enough time to detect whatever was inside me.
+
+Month 4 arrived and I remained in the land of the living. As I expected, their diagnosis was incorrect. I had lost a lot of weight but being bedridden will do that to you. Surprisingly, I had little pain but that offered me no comfort from the movement in my stomach. The unsettling feeling could be best described as though there was a massive worm travelling through my intestines. I didn’t know what it was but I was confident in one thing… it was alive.
+
+Often making itself known at night, I would press the emergency button in a panic. Despite the clear presence of a foreign entity, the nurses said I was imagining things, even when I made them promise to tell me the truth. I knew they were lying. I could tell by the way they looked at me from across the room, blatantly gossiping about the “deranged” patient in bed 13.
+
+It became abundantly clear that I had to take matters into my own hands. It wasn’t going to be easy, after all, I had become a shell of my former self. To pass the time, I decided to take up the hobby of scrapbooking. Lying in bed, struggling to move, the nurses seemed happy that I had found something to take my mind off my situation. Despite their disdain, they provided me with all the materials I needed. This included a pair of scissors, just what I needed to finish my project.
+
+As visiting hours concluded, the medically trained reapers completed their last rounds for the night. With the lights dimmed, I waited a few hours for my fellow patients to fall asleep. It took some effort, but I was eventually able to push the heavy blanket off my body. Lifting my gown, I stared at my scrawny stomach, waiting for it to appear. It took only a few minutes for the movement to arrive. Touching my belly with my left hand, I strongly gripped the pair of scissors with my right. If the doctors weren’t going to remove the beast beneath my skin, I was going to have to do it myself.
+
+I raised the scissors above my body, pausing. My hesitation lasted only a second before I forced the blade down like a hammer. Entering the bottom of my stomach, I pushed the scissors as deep as they could go.
+
+There was zero pain, so it wasn’t difficult for me to pull the scissors along my torso. It felt like I was slicing a cake, a celebration I had planned for many weeks. Instantly, a gaping cavity was created and I could finally remove the monster inside me.
+
+Reaching through the self-inflicted wound, I searched for my unwelcome visitor. I could feel it writhing within, desperate to escape, but I was too quick. Grabbing onto what can only be described as a neck, I quickly ripped the parasite out from the hole. Covered in my blood, I looked into its lid-less eyes. A small head attached to a tail with no limbs, the wretched monstrosity snapped its sizable teeth at me before taking its last breath. It was gone.
+
+Breathing a sigh of relief, I placed the malignant growth on my bedside table. At this point, it was almost midnight, so I gently pulled up my blanket. As I slowly laid back down and closed my eyes, I noticed that the machine had stopped beeping. Finally, some peace and quiet.
