@@ -229,4 +229,6 @@ By any moral measure the choice I’ve made is the wrong one. And you know, I do
 
 But thank God for the amnesia so tomorrow I can wake up and look at myself in the mirror and at least until I read this not know [what an asshole I am.](https://www.reddit.com/r/QuincyLee/comments/11nxwz3/welcome_thanks_so_much_for_stopping_by/)
 
+[\[UPDATE!! Part 3!\]](https://www.reddit.com/r/nosleep/comments/182dejs/i_visited_a_care_home_and_ate_something_strange/?sort=new) 
+
 [\[Part 1\]](https://www.reddit.com/r/nosleep/comments/17yzpk0/i_visited_a_care_home_and_theres_something_wrong/)

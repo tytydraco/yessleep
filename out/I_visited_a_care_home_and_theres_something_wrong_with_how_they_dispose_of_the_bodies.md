@@ -186,7 +186,7 @@ I’ve got the photos. But… *Shouldn’t you,* says a small inner voice that I
 
 And everything in me is screaming that this is a *terrible* idea, but I inch closer, hovering my hand under his nostrils because if he’s breathing I’ll know he’s alive and in this dim light of the lamp I just can’t telll…
 
-***one****, two,* ***three****... five… ten… twenty seconds…*
+***one***\*, two,\* ***three***\*... five… ten… twenty seconds…\*
 
 No breath.
 
@@ -266,4 +266,4 @@ And unfortunately, for both of us, the only person she has who might be able to 
 
 [… is ***me!***](https://www.reddit.com/r/QuincyLee/comments/11nxwz3/welcome_thanks_so_much_for_stopping_by/)
 
-[\[UPDATE!!\]](https://www.reddit.com/r/nosleep/comments/181a7yh/i_visited_a_care_home_and_theres_something_wrong/)
+[\[Part 2\]](https://www.reddit.com/r/nosleep/comments/181a7yh/i_visited_a_care_home_and_theres_something_wrong/) [\[Part 3\]](https://www.reddit.com/r/nosleep/comments/182dejs/i_visited_a_care_home_and_ate_something_strange/?sort=new)
