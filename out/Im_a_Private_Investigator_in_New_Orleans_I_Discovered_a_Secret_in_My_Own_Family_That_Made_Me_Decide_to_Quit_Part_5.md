@@ -198,15 +198,11 @@ As we round a particularly narrow bend, the hair on the back of my neck stands u
 
 In the dimly lit corridor, the shadow of a guard emerges, his footsteps echoing in the cramped space. As he rounds the corner, his rifle at the ready, our eyes meet in a split second of mutual surprise and realization.
 
-Without hesitation, my survival instincts kick in. In one fluid motion, I step forward, my left hand shooting out to cover his mouth, muffling any potential cries for help. My right hand, gripping my MP5, rises swiftly. 
+Without hesitation, my survival instincts kick in. In one fluid motion, I step forward, my left hand shooting out to cover his mouth, muffling any potential cries for help. My right hand, gripping my MP5, rises swiftly.
 
-The submachine gun presses firmly against the guard's chest, a silent but unmistakable threat. I lean in close, my voice a harsh whisper. "Keep quiet," I order. The guard's eyes widen in fear, understanding the severity of his situation.  
-Reine, quick and efficient, moves to disarm him, expertly removing his rifle and radio. Her movements are precise, leaving no room for him to retaliate.  
-"Where is the Void Whisperer?" I ask, my voice low and urgent. The guard's eyes flicker with  defiance, but the cold steel against his chest is a persuasive argument.  
-"I'm going to let go of your mouth, but you better not make a sound above a whisper," I tell him.
+The submachine gun presses firmly against the guard's chest, a silent but unmistakable threat. I lean in close, my voice a harsh whisper. "Keep quiet," I order. The guard's eyes widen in fear, understanding the severity of his situation.Reine, quick and efficient, moves to disarm him, expertly removing his rifle and radio. Her movements are precise, leaving no room for him to retaliate."Where is the Void Whisperer?" I ask, my voice low and urgent. The guard's eyes flicker with  defiance, but the cold steel against his chest is a persuasive argument."I'm going to let go of your mouth, but you better not make a sound above a whisper," I tell him.
 
-He nods slightly, indicating his intention to comply.  
-Carefully, I remove my hand from his mouth. But the second my grip loosens, he betrays our agreement, shouting at the top of his lungs, "Intruders! Intruders on board!"
+He nods slightly, indicating his intention to comply.Carefully, I remove my hand from his mouth. But the second my grip loosens, he betrays our agreement, shouting at the top of his lungs, "Intruders! Intruders on board!"
 
 Without a second thought, I pull the trigger. The suppressed gunfire is nothing more than soft puffs in the close confines, each shot precise and fatal. The guard's body shudders with the impact, his attempts at resistance fading quickly. He collapses against me, his weight threatening to drag us both to the ground.
 
@@ -286,7 +282,7 @@ I grab her by the shoulders, forcing her to meet my gaze. "You have to go now! I
 
 Reine's eyes soften, and for a moment, the chaos around us seems to fade away. "Ash, I have to tell you something," she says, her voice breaking through the chaos, "I'm pregnant."
 
-[Part 6](https://www.reddit.com/r/nosleep/comments/180ei63/im_a_private_investigator_in_new_orleans_i/)
+[Part 6](https://www.reddit.com/r/PageTurner627Horror/comments/182g5ce/im_a_private_investigator_in_new_orleans_i/)
 
 [X](https://www.reddit.com/r/PageTurner627Horror/)
 

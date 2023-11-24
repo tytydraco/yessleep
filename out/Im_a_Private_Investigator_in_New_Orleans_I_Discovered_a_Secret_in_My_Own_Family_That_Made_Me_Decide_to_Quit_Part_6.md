@@ -186,6 +186,24 @@ Her eyes shift to us, a newfound determination replacing the fear. "But you... y
 
 "I can create a distraction," she says. "Something big enough to draw their attention away from the control panel, but it won't last long. You'll have a small window to act."
 
+Lockhart reaches into her jacket, pulling out something unexpected – my phone.
+
+She hands it back to me with a slight nod. "I made some modifications to it," she says. "Useful ones."
+
+"Hey, it actually still got bars," I quip sarcastically.
+
+She gives a half-smile. "More than that," she explains. "It's not just a phone now. It's the key to the Whisperer's destruction."
+
+Reine and I exchange a look of cautious hope. "What do you mean 'key'?" I ask, curiosity piqued despite the dire circumstances.
+
+Lockhart explains quickly, efficiently. "I installed a program, a backdoor into the Whisperer's control system. I've linked it to your phone. When you're in the core, you'll see a unique interface on the screen. It's designed to interact with the Whisperer's system directly. You'll need to enter the activation sequence for the self-destruct mechanism there."
+
+I hold the phone, feeling its familiar weight, now imbued with a new sense of purpose. "And the sequence? How will we know it?"
+
+She hands me a small piece of paper with a series of numbers and symbols. "Memorize this. It's the code you'll need."
+
+Reine takes the paper, studying it intently.
+
 Her words hang in the air, thick with a sincerity that I hadn't expected. "Why should we trust you?" I ask. "You're part of this insanity."
 
 Lockhart's face hardens, a resolve shining in her eyes. "You don't have to trust me," she replies, her voice steady. "But if the Void Whisperer activates, there's no stopping what comes next. Lửa Đen will be unleashed, and everything we know, everything we are, will be consumed."
