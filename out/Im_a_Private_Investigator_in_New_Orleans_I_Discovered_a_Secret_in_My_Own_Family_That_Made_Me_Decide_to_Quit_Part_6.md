@@ -38,7 +38,7 @@ The recognition in her eyes is immediate, a flicker of shock quickly veiled by h
 
 I look up at her, pain and defiance mixing in my gaze. "Don’t look so surprised," I spit out through gritted teeth, the effort sending waves of pain through my broken hand.
 
-She crouches beside me, her expression complex, a war of emotions playing out in the depths of her icy blue eyes.
+Lockhart's expression complex, a war of emotions playing out in the depths of her icy blue eyes.
 
 Her gaze softens, an unexpected vulnerability flashing across her face. "You've made a grave mistake coming here," she says, her voice tinged with a hint of sorrow.
 
@@ -52,7 +52,7 @@ Xuan steps into the dim light of the chamber, his figure draped in a heavy cloak
 
 Xuan approaches me with a chilling smile, his eyes glinting with [malevolence](https://www.reddit.com/r/nosleep/comments/1581vef/our_search_for_a_missing_teen_uncovered_the/). He reaches down, his fingers deftly finding the C-4 charge I had strapped to the Void Whisperer. His movements are precise, those of a man who knows exactly what he's doing.
 
-Xuan's voice echoes through the chamber, a twisted symphony of arrogance and provocation. "Chị Reine ơi," he calls out, his words dripping with a malicious glee. "I know you can hear me. You have the detonator, don't you? Go on, sister, press it. End this. End me."
+"Chị Reine ơi," he calls out, his words dripping with a malicious glee. "I know you can hear me. You have the detonator, don't you? Go on, sister, press it. End this. End me."
 
 His taunt is a vile serpent, slithering through the air, reaching out to where I know Reine is hiding, listening. There's a venomous certainty in his tone, a confidence that knows its target too well. "But you won't, will you?" he continues, a cruel laugh punctuating his words. "Because doing so would mean killing your beloved Ash. And we both know you don't have the heart for that."
 
