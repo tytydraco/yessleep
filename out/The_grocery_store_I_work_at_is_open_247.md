@@ -1,6 +1,7 @@
 I've been working at my local grocery store for about 2 weeks now, and I feel insane for staying this long. I think it's mainly out of worry for my best friend, wherever he is. My best friend Jack is the store manager. He was the one who called me about the job in the first place.
 
 >Phone ring
+
 >Jack: "Hey dylan, how's it going? Have you found a job yet?"
 
 It's been a month since I've unemployed after the incident at my last job. I've had 0 callbacks after applying to 4 jobs.
