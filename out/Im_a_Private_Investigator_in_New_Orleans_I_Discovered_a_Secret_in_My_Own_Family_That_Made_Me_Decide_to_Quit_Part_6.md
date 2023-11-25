@@ -212,6 +212,8 @@ Lockhart's face hardens, a resolve shining in her eyes. "You don't have to trust
 
 She reaches into the folds of her cloak and pulls out a metal object – my Beretta, the one I thought I'd lost in the fray. She hands it to me, the weight of the firearm familiar and reassuring in my grip. "You'll need this," she says, her eyes meeting mine. "For what's to come."
 
+[Part 7](https://www.reddit.com/r/nosleep/comments/183vo1o/im_a_private_investigator_in_new_orleans_i/)
+
 [X](https://www.reddit.com/r/PageTurner627Horror/)
 
 [Y](https://www.instagram.com/afterhourscontent2022/)
