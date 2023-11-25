@@ -198,4 +198,6 @@ Signing our names at the check-in desk doesn’t mean we’re safe.
 
 No. It means that [we’re *next.*](https://www.reddit.com/r/QuincyLee/comments/11nxwz3/welcome_thanks_so_much_for_stopping_by/)
 
+[**UPDATE!!! Part 4**](https://www.reddit.com/r/nosleep/comments/183ni4d/i_visited_a_care_home_and_i_found_a_terrifying/?sort=new)
+
 [\[Part 1\]](https://www.reddit.com/r/nosleep/comments/17yzpk0/i_visited_a_care_home_and_theres_something_wrong/) [\[Part 2\]](https://www.reddit.com/r/nosleep/comments/181a7yh/i_visited_a_care_home_and_theres_something_wrong/)
