@@ -138,7 +138,7 @@ I showed her the sore between my toes. She moved a bit closer and lifted her gla
 
 She laughed. “Oh, I love you Karl.”
 
-After dinner she poured us some wine and we sat down for more easy watching. We had started The Bear the night before so we continued with that. By the time it got to around 10 I could barely keep my eyes open.
+After dinner she poured us some wine and we sat down for more easy watching. We had started *The Bear* the night before so we continued with that. By the time it got to around 10 I could barely keep my eyes open.
 
 “That wine has gone straight to my head,” I said.
 
@@ -218,7 +218,7 @@ I called work to apologise and explain how I felt. I have a decent attendance re
 
 “Honestly Jess, I’m just gonna take it easy.”
 
-I got a message from Stu asking if I was still alive. I replied Barely with a zombie emoji. He offered to stop by later if I needed sick day supplies or wanted company. I put some of the anti-fungal cream I’d bought the day before on my foot, feeling icky. Then I shuffled over to Mr. Harris’ in my dressing gown.
+I got a message from Stu asking if I was still alive. I replied *"Barely"* with a zombie emoji. He offered to stop by later if I needed sick day supplies or wanted company. I put some of the anti-fungal cream I’d bought the day before on my foot, feeling icky. Then I shuffled over to Mr. Harris’ in my dressing gown.
 
 “You look like shit,” he said when he opened the door.
 
