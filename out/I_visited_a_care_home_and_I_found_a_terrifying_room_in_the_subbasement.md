@@ -242,4 +242,4 @@ I seize her wrist. No. No. Do not look for Lucas. Do not. Shake my head vehement
 
 But I know what’s wrong with me now and I put her hands on my face so she can *feel* the stitches holding shut my lips, my eyes, and a moment later I know the illusion is broken because Emma is screaming and screaming and screaming and I would be too if my mouth weren’t sewn [tightly shut.](https://www.reddit.com/r/QuincyLee/comments/11nxwz3/welcome_thanks_so_much_for_stopping_by/)
 
-[\[Part 1\]](https://www.reddit.com/r/nosleep/comments/17yzpk0/i_visited_a_care_home_and_theres_something_wrong/) [\[Part 2\]](https://www.reddit.com/r/nosleep/comments/181a7yh/i_visited_a_care_home_and_theres_something_wrong/) [\[Part 3\]](https://www.reddit.com/r/nosleep/comments/182dejs/i_visited_a_care_home_and_ate_something_strange/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/17yzpk0/i_visited_a_care_home_and_theres_something_wrong/)| [Part 2](https://www.reddit.com/r/nosleep/comments/181a7yh/i_visited_a_care_home_and_theres_something_wrong/) | [Part 3](https://www.reddit.com/r/nosleep/comments/182dejs/i_visited_a_care_home_and_ate_something_strange/?sort=new) 
