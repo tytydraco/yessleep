@@ -34,9 +34,9 @@ As Xuan's attention shifts towards the unfolding [ritual](https://www.reddit.com
 
 True to her word, Lockhart, stationed at the main control panel, initiates a devastating sequence of events. The distant power conduits begin to overload, creating a spectacle of sparks and energy that erupts violently. A cultist, too close to one of the conduits, is caught in the explosion, disintegrating instantly. The horrifying event captures the attention of the surrounding cultists, drawing their eyes and bodies away from us, leaving only two to guard us.
 
-The explosion serves as our cue. In one fluid motion, I slip out of the loosely fastened shackles and launch myself at the nearest guard. His surprise is evident, but I waste no time. With a quick, practiced move, I disarm him, wrenching the gun from his grasp. In the same motion, I pivot, turning the dying guard towards his companion to use as a human shield.
+The explosion serves as our cue. In one fluid motion, I slip out of the loosely fastened shackles and launch myself at the nearest guard. His surprise is evident, but I waste no time. With a quick, practiced move, I disarm him, wrenching the gun from his grasp. In the same motion, I pivot, turning the guard towards his companion to use as a human shield.
 
-The response from the [other](https://www.youtube.com/watch?v=MGd1F6Ay8ho) cultist is immediate. Gunfire erupts, the sound deafening in the confined space. I can feel the impact of the bullets as they strike their comrade’s body, each hit a jarring reminder of how little the cultists value life. The guard's body jerks with each impact, a morbid puppet in my hands.
+The response from the [other](https://www.youtube.com/watch?v=MGd1F6Ay8ho) cultist is immediate. Gunfire erupts, the sound deafening in the confined space. I can feel the impact of the bullets as they strike his comrade’s body, each hit a jarring reminder of how little the cultists value life. The guard's body jerks with each impact, a morbid puppet in my hands.
 
 I pull the trigger of my Beretta, the bullet finding its mark with lethal efficiency. The cultist's head snaps back, a spray of blood painting the metallic wall behind him. He crumples to the ground, lifeless.
 
@@ -52,7 +52,7 @@ Reine finishes entering the sequence into the phone with frantic urgency, her ey
 
 With a burst of adrenaline-fueled determination, she lunges at Xuan from behind. She uses the chain of her shackles as an improvised weapon, looping it around his neck in a desperate attempt to strangle him. Her actions catch Xuan off guard, his grip loosening on me as he grapples with the unexpected assault.
 
-I drop to the ground, coughing and gasping for air, my throat aching. Reine, her face a mask of fierce determination, pulls the chain tight, using all her strength to constrict Xuan's movements. For a moment, it seems she might overpower him, her leverage and surprise giving her a fleeting advantage.
+I drop to the ground, coughing and gasping for air, my throat aching. Reine pulls the chain tight, using all her strength to constrict Xuan's movements. For a moment, it seems she might overpower him, her leverage and surprise giving her a fleeting advantage.
 
 But Xuan's inhuman strength quickly turns the tables. With a growl of rage, he reaches back, grabbing Reine by the hair. With a violent jerk, he throws her against the bulkhead of the ship. She hits the metal wall with a sickening thud, her body crumpling to the ground in a heap. Dazed but still conscious, she struggles to rise, her eyes blurry with pain.
 
@@ -70,7 +70,7 @@ The chamber suddenly shakes violently, a deep rumbling that emanates from the co
 
 As the chamber shakes violently, the realization of what's happening dawns on Xuan's twisted face. In a fit of rage and panic, he releases his grip on me, dropping me towards the violent vortex below.
 
-I feel the stomach-churning sensation of freefall as I plummet towards the chasm below the parapet.But instinct and survival kick in. Desperately, I flail, reaching out for anything to halt my descent. My fingers find the edge of the parapet, the cold metal biting into my skin as I cling for dear life. My aching muscles and broken fingers scream in protest, the weight of my body pulling me towards the inevitable drop.
+I feel the stomach-churning sensation of freefall as I plummet towards the chasm below. But instinct and survival kick in. Desperately, I flail, reaching out for anything to halt my descent. My fingers find the edge of the parapet, the cold metal biting into my skin as I cling for dear life. My aching muscles and broken fingers scream in protest, the weight of my body pulling me towards the inevitable drop.
 
 As I struggle to pull myself up, my strength waning, I hear the sound of footsteps. It's Reine, bruised and battered but not beaten. She reaches the edge, her hands grasping mine in a firm, unyielding grip.
 
@@ -224,7 +224,9 @@ The warm water washes over us, mingling with the tears that flow freely from Rei
 
 The water courses down our bodies, tracing the lines of our cuts and bruises, the physical reminders of the harrowing ordeal we've just survived. I feel the roughness of her skin where it's been grazed, the tender spots where bruises are forming. My own injuries, a patchwork of pain and resilience, resonate with hers. We are a tapestry of survival, each wound a story, each scar a testament.
 
-In this intimate space, the steam wraps around us like a cocoon, creating a world where only we exist.As we stand there, holding each other, the gravity of our situation becomes unavoidably clear. The life we lead, fraught with danger and uncertainty, is not conducive for raising a child. There's a new life growing, utterly reliant on our choices and actions.
+In this intimate space, the steam wraps around us like a cocoon, creating a world where only we exist.
+
+As we stand there, holding each other, the gravity of our situation becomes unavoidably clear. The life we lead, fraught with danger and uncertainty, is not conducive for raising a child. There's a new life growing, utterly reliant on our choices and actions.
 
 The thought of bringing a child into this world, our world, is both exhilarating and terrifying. The risks we routinely take, the shadow of death that follows us - these are not things we can easily set aside. The responsibility of parenthood, especially in our line of work, is a heavy mantle to bear.
 
@@ -242,7 +244,7 @@ We also made sure Abby, our steadfast secretary, wasn't left behind in our trans
 
 Amidst these significant life changes, Reine and I were in for another surprise. We found out were expecting twins. The news brought a mix of joy, excitement, and a touch of apprehension. On September 25th of this year, we welcomed our beautiful healthy children into the world, a boy, Tristan Bao Tran, and a girl, Brigitte Kieu Tran. Holding them for the first time, feeling their tiny hands clasp our fingers, was a profoundly life-changing moment.
 
-So anyways, it's been an incredibly humbling journey sharing this story. However, I hope y’all understand that as much as I've enjoyed writing this account, I hope I never get the chance to write another one.
+So anyways, it's been an incredibly humbling journey sharing this story. However, I hope y’all understand that as much as I've enjoyed writing this account, I hope I never get the opportunity to write another one.
 
 [—Ash](https://www.reddit.com/r/PageTurner627Horror/)
 

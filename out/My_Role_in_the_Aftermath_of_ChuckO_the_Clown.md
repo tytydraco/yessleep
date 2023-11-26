@@ -1,4 +1,6 @@
-(Part 1/2)
+Part 1:
+
+[Part 2 (Final): ](https://www.reddit.com/r/nosleep/s/tSIMEURegq)
 
 A lot of you will be too young to remember. Maybe a lot of you didn’t even exist. I certainly wish I was that fortunate, but as it appears this story has reared its ugly head again, I feel obliged to explain my side of events and re-tell what happened in the summer of ‘74. 
 
