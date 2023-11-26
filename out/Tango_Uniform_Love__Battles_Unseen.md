@@ -74,7 +74,7 @@ The nurse, startled by my sudden alertness, hesitated, avoiding my gaze. "Where'
 
 “You’re finally awake,” she said, her voice carrying a weight that seemed to mirror my own. “You’ve been in a coma for weeks.”
 
-Coma? The word echoed in my mind, disjointed and surreal. My thoughts raced back to Ethan, the town, the church. But as I tried to grasp those memories, they slipped away like sand through my fingers, leaving only fragments, a sense of dread without form.
+Coma? The word echoed in my mind, disjointed and surreal. My thoughts raced back to Ethan. But as I tried to grasp those memories, they slipped away like sand through my fingers, leaving only fragments, a sense of dread without form.
 
 “You’ve been through a lot,” she began, her tone measured. “There was an IED explosion. We thought we might lose you too.”
 
