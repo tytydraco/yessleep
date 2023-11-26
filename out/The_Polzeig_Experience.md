@@ -200,4 +200,4 @@ After  that, my luck started to turn, but I held out, bleeding chips and then  r
 
 By the time things closed  down for the night, I was ahead of where I started. Judging by the faces  of the people filing out of the Yellow Tent alongside me, I was  probably one of a select few.
 
-TO BE CONTINUED
+[TO BE CONTINUED](https://www.reddit.com/r/nosleep/comments/1847t4e/the_polzeig_experience_part_two/)

@@ -74,7 +74,7 @@ As I entered the woods I noticed how oddly quiet it was (except for the sound of
 
 I continued to follow Josie as we went deeper into the woods.
 
-We walked for what seemed like an hour before she stopped in front of an enormous Oak Tree that was pulsating with these strange colorful lights.
+We walked for what seemed like an hour before she stopped in front of an enormous Oak Tree that was pulsating with these strange colored lights.
 
 There was a weird vibration too, that caused me to feel sick to my stomach.
 
@@ -94,6 +94,10 @@ Last night, I heard screaming coming from the living room.
 
 Now, I keep myself locked inside my room because I fear for my life.
 
-I'm thinking about taking Josie into the woods and taking matters into my own hands... 
+Lately here, I haven't been feeling well and I seem to be forgetting things too.
+
+Anyway, I'm thinking about taking Josie into the woods and maybe, taking matters into my own hands... 
 
 I don't know yet, but I'll try to keep you guys updated when I decide what to do with her...
+
+I have to act fast, before it's too late for me...
