@@ -76,7 +76,7 @@ I continued to follow Josie as we went deeper into the woods.
 
 We walked for what seemed like an hour before she stopped in front of an enormous Oak Tree that was pulsating with these strange colored lights.
 
-There was a weird vibration too, that caused me to feel sick to my stomach.
+I felt a weird vibration too, that caused me to feel sick to my stomach.
 
 I also noticed, there was an altar of some sort in front of the tree.
 
@@ -94,7 +94,7 @@ Last night, I heard screaming coming from the living room.
 
 Now, I keep myself locked inside my room because I fear for my life.
 
-Lately here, I haven't been feeling well and I seem to be forgetting things too.
+Lately here, I haven't been feeling well and I seem to be forgetting things a lot too.
 
 Anyway, I'm thinking about taking Josie into the woods and maybe, taking matters into my own hands... 
 
