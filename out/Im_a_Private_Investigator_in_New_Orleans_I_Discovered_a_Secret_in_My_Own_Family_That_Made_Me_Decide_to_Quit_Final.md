@@ -50,7 +50,11 @@ His inhuman strength threatens to crush my windpipe. I can barely see, my vision
 
 Reine finishes entering the sequence into the phone with frantic urgency, her eyes flickering between the screen and the struggle unfolding between Xuan and me. The moment she presses the final button, she launches herself into the fray.
 
-With a burst of adrenaline-fueled determination, she lunges at Xuan from behind. She uses the chain of her shackles as an improvised weapon, looping it around his neck in a desperate attempt to strangle him. Her actions catch Xuan off guard, his grip loosening on me as he grapples with the unexpected assault.I drop to the ground, coughing and gasping for air, my throat aching. Reine, her face a mask of fierce determination, pulls the chain tight, using all her strength to constrict Xuan's movements. For a moment, it seems she might overpower him, her leverage and surprise giving her a fleeting advantage.But Xuan's inhuman strength quickly turns the tables. With a growl of rage, he reaches back, grabbing Reine by the hair. With a violent jerk, he throws her against the bulkhead of the ship. She hits the metal wall with a sickening thud, her body crumpling to the ground in a heap. Dazed but still conscious, she struggles to rise, her eyes blurry with pain.
+With a burst of adrenaline-fueled determination, she lunges at Xuan from behind. She uses the chain of her shackles as an improvised weapon, looping it around his neck in a desperate attempt to strangle him. Her actions catch Xuan off guard, his grip loosening on me as he grapples with the unexpected assault.
+
+I drop to the ground, coughing and gasping for air, my throat aching. Reine, her face a mask of fierce determination, pulls the chain tight, using all her strength to constrict Xuan's movements. For a moment, it seems she might overpower him, her leverage and surprise giving her a fleeting advantage.
+
+But Xuan's inhuman strength quickly turns the tables. With a growl of rage, he reaches back, grabbing Reine by the hair. With a violent jerk, he throws her against the bulkhead of the ship. She hits the metal wall with a sickening thud, her body crumpling to the ground in a heap. Dazed but still conscious, she struggles to rise, her eyes blurry with pain.
 
 Xuan, his face twisted with a fury that seems barely human, turns his attention back to me. He picks me up by the shoulder, his grip like steel. The power coursing through him makes him seem more monster than man. He holds me over the edge of the parapet, the void below a gaping maw waiting to swallow me whole.
 
@@ -86,9 +90,9 @@ Xuan, his fury palpable, raises his hand, dark energy crackling at his fingertip
 
 "Xuân!" I yell, my voice cutting through the chaos.
 
-His head snaps towards the sound, his eyes burning with a black flame.
-
 “Quay lại và nhìn vào sự chết,” (Turn around and look upon your death,) I say coldly.
+
+His head snaps towards the sound, his eyes burning with a black flame.
 
 He abandons Lockhart for the time being, who lies trembling on the ground, and turns his full wrath on Reine and me. As he advances, I raise my pistol, firing shot after shot. Each bullet strikes him, but they seem to only slow him down, not stop him. His body absorbs the impact, the dark patterns on his skin shimmering with each hit.
 
@@ -146,7 +150,7 @@ We dock at a secluded pier, far enough from the chaos we left behind and from pr
 
 Lockhart stands up, her movements stiff and mechanical. She stands before us, her figure silhouetted against the rising sun. The intensity of the previous hours has etched lines of fatigue and regret on her face. She looks at Reine and me, her expression a complex mix of relief, sorrow, and an unspoken apology for her part in the night's horrors.
 
-"I... I don't know how to thank you," she begins, her voice low and steady. "You've changed the course of... of everything. I was a part of that death cult, but you... you gave me a second chance."
+"I... I don't know how to thank you," she begins, her voice low and steady. "You've changed the course of... of everything. I was a part of that death cult, but you... you still gave me a second chance."
 
 Reine, her arm around my waist, gives a small nod. "We did what we had to do," she says simply. Her tone carries the weight of the night, the burden of choices made and lives irrevocably altered.
 
@@ -228,7 +232,9 @@ Reine's voice, barely above a whisper, breaks the silence. "We can't keep doing 
 
 I nod, feeling the truth of her words resonate deep within me. "I know," I reply, my voice thick with emotion. "I've been thinking the same thing. We've been lucky so far, but luck runs out."
 
-The decision to step away from our lives as private eyes, once unfathomable, now crystallizes into a firm resolution.—
+The decision to step away from our lives as private eyes, once unfathomable, now crystallizes into a firm resolution.
+
+—
 
 Embracing this new chapter, Reine pursued and obtained her real estate license, showcasing her knack for understanding people and spaces in a more peaceful setting. I, on the other hand, leveraged my background and connections to become a security consultant, offering advice and strategies to those looking to protect themselves from the kinds of dangers we once faced head-on.
 

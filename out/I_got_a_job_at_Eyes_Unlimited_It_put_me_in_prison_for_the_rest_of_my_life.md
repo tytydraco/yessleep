@@ -94,7 +94,7 @@ I opened it and found an empty, half-lit hallway lined with statues and painting
 
 She had a thin, white-gold necklace with a strange symbol hanging from the bottom. It looked like a grim reaper’s scythe with a slashing, diagonal line through it. The white metal of the pendant sparkled over her red blouse, and a sense of trepidation rose inside of me. Something about that symbol…
 
-“Hi, Gabriel, I’m happy to finally meet you. I really like these statues with cameras you have here,” I lied. She smiled, absolutely beaming with pride.
+“Hi, I’m happy to finally meet you. I really like these statues with cameras you have here,” I lied. She smiled, absolutely beaming with pride.
 
 “Yes, thank you. This is a lifetime’s work. Each piece is personally designed by an artist. Some are specially ordered by wealthier customers who don’t want gaudy cameras all over their property, so they had them hidden within statues and turned an eyesore into an aesthetic triumph,” she said. “Other times, we even have very special works go up on auction, especially the ones made by Mr. Bower.”
 
