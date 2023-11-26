@@ -595,3 +595,5 @@ Despite the calligraphy, the words are quite clear:
 &#x200B;
 
 “…*Die Eintausend*”, Manny reads aloud, and a slow, cold chill shivers across my body.
+
+[\[Part 2/3\]](https://www.reddit.com/r/nosleep/comments/184km19/the_nazis_built_six_underwater_bunkers_during_the/)

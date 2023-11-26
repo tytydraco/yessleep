@@ -402,3 +402,8 @@ But all that is just the tip of the iceburg, a close call with a dangerous piece
 But as of yesterday, the worst has happened. Because of the actions of some idiot, Crow is lost, and we need to find him. 
 
 Next time, I’ll tell you about how that happened, till then, keep an eye out for us, if you can.
+
+
+Link to part 2
+
+https://www.reddit.com/r/nosleep/s/0GOmQ9F6hM
