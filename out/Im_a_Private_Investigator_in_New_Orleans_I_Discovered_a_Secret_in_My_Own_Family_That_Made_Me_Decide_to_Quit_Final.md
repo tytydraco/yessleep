@@ -54,7 +54,7 @@ With a burst of adrenaline-fueled determination, she lunges at Xuan from behind.
 
 I drop to the ground, coughing and gasping for air, my throat aching. Reine pulls the chain tight, using all her strength to constrict Xuan's movements. For a moment, it seems she might overpower him, her leverage and surprise giving her a fleeting advantage.
 
-But Xuan's inhuman strength quickly turns the tables. With a growl of rage, he reaches back, grabbing Reine by the hair. With a violent jerk, he throws her against the bulkhead of the ship. She hits the metal wall with a sickening thud, her body crumpling to the ground in a heap. Dazed but still conscious, she struggles to rise, her eyes blurry with pain.
+But Xuan's inhuman strength quickly turns the tables. With a growl of rage, he reaches back, grabbing Reine by the hair. With a savage jerk, he throws her against the bulkhead of the ship. She hits the metal wall with a sickening thud, her body crumpling to the ground in a heap. Dazed but still conscious, she struggles to rise, her eyes blurry with pain.
 
 Xuan, his face twisted with a fury that seems barely human, turns his attention back to me. He picks me up by the shoulder, his grip like steel. The power coursing through him makes him seem more monster than man. He holds me over the edge of the parapet, the void below a gaping maw waiting to swallow me whole.
 
@@ -66,9 +66,9 @@ I look back at Xuan, a sardonic smile playing on my lips despite the imminent da
 
 His expression falters, confusion momentarily replacing his rage.
 
-The chamber suddenly shakes violently, a deep rumbling that emanates from the core of the ship. Alarms blare, red lights flashing, signaling the imminent destruction of the Void Whisperer.
+The chamber suddenly shakes wildly, a deep rumbling that emanates from the core of the ship. Alarms blare, red lights flashing, signaling the imminent destruction of the Void Whisperer.
 
-As the chamber shakes violently, the realization of what's happening dawns on Xuan's twisted face. In a fit of rage and panic, he releases his grip on me, dropping me towards the violent vortex below.
+The realization of what's happening dawns on Xuan's twisted face. In a fit of rage and panic, he releases his grip on me, dropping me towards thewi vortex below.
 
 I feel the stomach-churning sensation of freefall as I plummet towards the chasm below. But instinct and survival kick in. Desperately, I flail, reaching out for anything to halt my descent. My fingers find the edge of the parapet, the cold metal biting into my skin as I cling for dear life. My aching muscles and broken fingers scream in protest, the weight of my body pulling me towards the inevitable drop.
 
@@ -120,7 +120,7 @@ Lockhart's progress is agonizingly slow, but she keeps moving, driven by a survi
 
 Reine and I don't waste a second. We pull her to her feet, supporting her as we continue our desperate race through the disintegrating riverboat. The Nightingale is a labyrinth of chaos, but we push forward, driven by the need to survive, to see the light of day once more.
 
-As we navigate the twisting corridors, the ship lurches violently, throwing us against the walls. We cling to each other, steadying ourselves as best as we can. The sound of the ship tearing itself apart is deafening, a cacophony of destruction that threatens to overwhelm us.
+As we navigate the twisting corridors, the ship lurches suddenly, throwing us against the walls. We cling to each other, steadying ourselves as best as we can. The sound of the ship tearing itself apart is deafening, a cacophony of destruction that threatens to overwhelm us.
 
 Surviving cultists scatter in all directions, some in a blind panic, others seemingly entranced, embracing the cataclysm with open arms as if it were the divine rapture they had been promised.
 
@@ -132,7 +132,7 @@ Reine and I hit the water hard, the impact knocking the wind out of us. But we k
 
 We haul ourselves into the boat, exhausted but alive. I start the engine, steering us away from the Nightingale as fast as I can.
 
-As I throttle the engine, pushing our small boat to its limits, the Nightingale, once a majestic and ominous vessel, now convulses in its death throes. The river around it churns violently, reflecting the chaos that consumes the ship.
+As I throttle the engine, pushing our small boat to its limits, the Nightingale, once a majestic and ominous vessel, now convulses in its death throes. The river around it churns chaotically, reflecting the chaos that consumes the ship.
 
 Reine, Lockhart, and I watch in stunned silence as the Nightingale begins to implode. The sounds of rending metal and explosive decompressions create a terrifying symphony. The ship, a massive structure of steel and dark intentions, crumples in upon itself like a house of cards caught in a gale. Its once formidable silhouette collapses, the Void Whisperer’s unstable energy turning the vessel into a whirlpool of destruction.
 
@@ -220,7 +220,7 @@ Reine turns within my embrace, her eyes meeting mine. There's so much in those e
 
 The warm water washes over us, mingling with the tears that flow freely from Reine's eyes. Her body, pressed against mine, trembles with the weight of all we've endured.
 
-The water courses down our bodies, tracing the lines of our cuts and bruises, the physical reminders of the harrowing ordeal we've just survived. I feel the roughness of her skin where it's been grazed, the tender spots where bruises are forming. My own injuries, a patchwork of pain resonate with hers.
+The water courses down our bodies, tracing the lines of our cuts and bruises, the physical reminders of the harrowing ordeal we've just survived. I feel the roughness of her skin where it's been grazed, the tender spots where bruises are forming. My own injuries, a patchwork of pain, resonate with hers.
 
 In this intimate space, the steam wraps around us like a cocoon, creating a world where only we exist.
 
