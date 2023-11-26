@@ -1,3 +1,9 @@
+I don't have time to write this, but this is all I've got. 
+
+I'm a murderer. 
+
+But I'm just a kid. I didn't want to kill, I was forced. 
+
 The crate of Coke just sitting there in a patch of grass was definitely a trap. 
 
 But there was no way I was ignoring it. 
@@ -22,9 +28,9 @@ The who, what, why, and how a crate of eight perfectly plastic wrapped diet Coke
 
 Except I was tired, hungry, and would commit murder for a fresh can of soda. 
 
-I didn't care, crawling over to them and tearing into the packaging like a rabid animal. The soda felt perfect in my hands. I didn't think about my fingers caked with fleshy pink, my skin that would never be clean again. I think I stopped coherently thinking after my third or fourth kill. 
+Jumping into action,I crawled over to them, tearing into the packaging like a rabid animal. The soda felt perfect in my hands. I didn't think about my fingers caked with fleshy pink, my skin that would never be clean again. 
 
-Which meant, despite being fully aware of human brains splattered all over me, I just enjoyed my drink. I was on my third can, half aware of the barrier standing several yards away from me. I could sense their faces pressed against it, eager eyes awaiting the next kill. In my training, I was told to never look at the barrier that sealed us from the outside.
+I think I stopped coherently thinking after my third or fourth kill. Terror had taken a whole other level, throwing my body into fight or flight. Which meant, despite being fully aware of human brains splattered all over me, the still human part of me enjoyed my drink. I was on my third can, half aware of the barrier standing several yards away from me. I could sense their faces pressed against it, eager eyes awaiting the next kill. In my training, I was told to never look at the barrier that sealed us from the outside.
 
 We were like zoo animals, a yearly festive attraction for all to see. 
 
@@ -58,7 +64,7 @@ The more our town resisted, Santa tightened his iron fist.
 
 Babies were born with contorted bodies and heads, choking up tinsel. The town was overridden with festering bugs on every sidewalk, the lake turning blood red, and a plague hitting the preschool. 
 
-So, yeah. Santa wasn't fucking around. 
+Santa wasn't fucking around. 
 
 Which meant Livingswood had to find a way to spill the blood of several dozen children a year, to save themselves. 
 
@@ -188,7 +194,7 @@ I cocked my head, curious. “And what is *right*, exactly?”
 
 His smile widened. “You were chosen."
 
-“I don't like to broadcast it.”
+I nodded, a sour paste in my throat. 
 
 His manic giggle sent shivers down my spine. “Then you know what to do. Just like your father. We sinned as a town. We *killed* a sacred beast, and there's no running away. We will keep dying, offering our children  to darkness and despair that is endless! That will never stop! They will *keep* dying, and the survivors will be creating future murderers and corpses for a town that does not deserve a second chance."
 
@@ -282,7 +288,9 @@ Alex nodded, squeezing his eyes shut when another sharp cry rattled the night, b
 
 He started to sing, a melody which would forever be stuck in my head. 
 
-I never knew how the lyrics went though, because Kenji stood up, pulled out his gun, and shot Clee in the head. 
+I never knew how the lyrics went though, because Kenji stood up, pulled out his gun, and shot Clee in the head. I felt something snap inside me, an unearthly darkness twisting my mind. 
+
+I felt numb, wrong, like a puppet, still watching. 
 
 Alex kept singing the melody, like he knew it was going to happen. 
 
@@ -290,7 +298,7 @@ No lyrics, I thought, staring wide eyed at the cavern between Clee’s brows.
 
 Just the melody. 
 
-Before it stopped, and Clee hit the ground. 
+Before his singing stopped, and Clee hit the ground. 
 
 Alex was slowly standing up, and reaching for Kenji, who's expression was flat, eyes vacant and wrong. He was stock still, not even shaking, his fingers perfectly cinched around the butt of his gun. I don't know what it was. 
 
@@ -302,7 +310,7 @@ He was… poisoned.
 
 Not just by Blitzen’s original killers, but by a town who had fashioned him into a psychopath. I think both of us knew the moment Alex slashed the boy's throat and gently lowered him to the ground, exactly what we needed to do. 
 
-Daniel was right, and I guess my Dad was too. 
+Daniel was right, and my Dad was too. 
 
 I don't think he was *Jesus*, like his weird cult's rants. 
 
@@ -312,15 +320,21 @@ And my children would be poisoned.
 
 **And my children's children.**
 
-Sudden movement behind me snapped me from my thoughts, and I almost choked on my Coke. Whipping around, I shot a startled looking Alice Jarret point blank in the head. The crack of the gunshot had definitely revealed my location. But there were only three of us left. Alice's tactics were clever, using the crate of Coke. I admit, I fell for it. 
-
-But Alice didn't know I was armed. 
+Sudden movement behind me snapped me from my thoughts, and I almost choked on my Coke. Oh, God, not again. So much killing. I didn't want to do it anymore. But my body worked like a robot, like I was no longer in control. Whipping around, I shot a startled looking Alice Jarret point blank in the head, my own gasp slicing through the night. I dropped to my knees and sobbed. I wasn't a fucking killer. I REFUSED to be a killer. The crack of the gunshot had definitely revealed my location. But there were only three of us left. Alice's tactics were clever, using the crate of Coke. I admit, I fell for it. But Alice didn't know I was armed. 
 
 I made sure to let other participants know I had a single knife and nothing else, while keeping Kenji’s gun stuck down my pants. 
 
 When Alice dropped into the dirt, the crowd outside the barrier began a countdown. 
 
 I could already see them, camera flashes behind the glass. I could imagine how nervous they all were, awaiting the last one standing. 
+
+Bugs filled my mouth, unbridled fear forcing me to look away from them. 
+
+*Go away*. I wanted to scream at them. 
+
+Who saw my friends deaths as sacrifices
+
+FUCK. 
 
 There were 3 contestants left. 
 
@@ -350,9 +364,11 @@ But…
 
 I was covered in Alyssa. 
 
+I didn't want to continue. 
+
 Fractured pieces of Kenji's  skull clung to my sweater. 
 
-I was cold. 
+I was so cold. You have no idea how cold it gets in Northern Canada. I was wearing a t-shirt. I could see my breath. 
 
 Tired. 
 
@@ -388,21 +404,19 @@ So, I made it fast.
 
 Painless. 
 
-I didn't give warning, twisting around, slicing Ramona’s throat open and shooting Alex in the perfect place to secure zero pain. The town started screaming at me behind the barrier, urging me to ring the bell. That it wasn't too late. Their fear made me scared too, but I didn't show it. Even when they threw things into the barrier. 
+I'm sorry. My breath came out in sharp hisses. 
 
-The mayor himself was at the front, his lips twisted into a furious yell, screaming at me to ring the bell. Instead, I gulped down soda. I could see my reflection on the surface of the barrier. I looked like shit. 
+I didn't give warning, twisting around, slicing Ramona’s throat open and shooting Alex in the perfect place to secure zero pain. The town started screaming at me behind the barrier, urging me to ring the bell. That it wasn't too late. Their fear made me scared too, but I didn't show it. Even when they threw things into the barrier. The mayor himself was at the front, his lips twisted into a furious yell, screaming at me to ring the bell. Instead, I gulped down soda. I could see my reflection on the surface of the barrier. I looked like shit. 
 
 I could barely see my face, splattered red covering every inch of me, my hair a mop hanging in front of my eyes. 
 
- But I was smiling.
+When jingling bells sounded from above, horrified cries erupting behind the barrier, I remember smiling, breaking down in front of Santa's looming shadow, and a skin prickling oblivion creeping across an already pitch black sky. Tipping my head back, this darkness was impenetrable, swallowing up the sky above our town. His maniacal, bloodthirsty grin and tragic eyes. I dropped to my knees, and raised my Coke to Blitzen. My body told me to run. It told me something worse loomed. 
 
-When jingling bells sounded from above, horrified cries erupting behind the barrier, I just smiled at Santa's looming shadow, and a skin prickling oblivion creeping across an already pitch black sky. Tipping my head back, this darkness was impenetrable, swallowing up the sky above our town.
+I jumped, dropping the can of soda, when cold, skeletal fingers wrapped around my neck and yanked me back. 
 
-His maniacal, bloodthirsty grin and tragic eyes. 
+I knew who it was, a sharp cry ripping from my lips. 
 
-I dropped to my knees, and raised my Coke to Blitzen. 
-
-Only for cold, skeletal fingers to wrap around my neck and yank me back. 
+No. 
 
 “Thank you,” his voice thundered in my mind, when the first snow of the winter started to fall, lightly grazing my face. 
 
@@ -412,11 +426,7 @@ I blinked, coughing.
 
 Ash. 
 
-The ground was white when I was being dragged through startling nothing. 
-
-I could smell the stink of burning flesh, and risked a look back. But there was nothing to look back on. Several faces were pressed against the barrier, trying to force themselves through, when tiny creatures with melted faces and pointy ears leapt onto them. There was an  explosion of red splattering the glass. 
-
-I turned back, thinking of my dead friends. 
+The ground was white when I was being dragged, kicking and screaming, through startling nothing. I could smell the foul stink of burning flesh, and looked back, only for my head to be violently twisted around. “Get off me,” I said into nothing, my words pulled from my lips. “Get off of me!” But there was nothing to look back on. Several faces were pressed against the barrier, trying to force themselves through, when tiny creatures with melted faces and pointy ears leapt onto them. There was an  explosion of red splattering the glass. My body felt weighted and wrong. I turned back, thinking of my dead friends. 
 
 They were at peace. 
 
@@ -434,20 +444,24 @@ I wish I could tell you I too died with Livingswood.
 
 But I'm still here writing this, aren't I? 
 
-Currently, we’re in Switzerland. We do a trial run with the sleigh before the real thing. Just to make sure everything is fine, and the reindeers are good. I found a phone, and I'm not being monitored. 
+Currently, we’re in Switzerland. We do a trial run with the sleigh before the real thing. Just to make sure everything is fine, and the reindeers are good. I need help. I need someone to get me away from here. I've tried, but he punishes us if we disobey him. I found a phone, and I'm not being monitored. 
 
 *Anymore.*
 
-There is a tracking device in my neck but I don't think it can tell I'm writing this. Unless it can. In that case, I'm a dead boy walking. Jinx, the moody kid who orders me around, is MIA. I think he's checking on the naughty list. So, I think I'm good. 
+There is a tracking device in my neck but I don't think it can tell I'm writing this. Unless it can. In that case, I'm a dead boy walking. Can someone help me? I want my Mom. I want to go home. Jinx, the moody kid who orders me around, is MIA. Poppy is…somewhere. Probably smoking weed. She thinks HE doesn't know. 
 
-Poppy is…somewhere. 
+But he does. 
 
-Probably smoking weed. 
-
-She thinks the big guy doesn't know. 
-
-I can assure you he does. 
+He's planning on severing her tongue. 
 
 Just like other naughty kids who tried to bear the sins of their town, we are stuck. 
 
 As Santa's little helpers.
+
+But you can help me, right? 
+
+It wasn't even my fault! My town burned, and now I'm a prisoner. 
+
+Please. 
+
+Help me!
