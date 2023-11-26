@@ -178,7 +178,7 @@ I exchange a brief look with Reine, a silent agreement passing between us. "He's
 
 Kira's reaction is a mixture of sorrow and relief. Her eyes, brimming with tears, reflect the turmoil of losing someone she once loved, yet also the liberation from the shadow he had cast over her life.
 
-Just then, the sound of the cabin door creaking open breaks the moment. Kira's children appear, their faces brightening upon seeing us. "Cậu Ash! Chị Reine!" they exclaim, running towards us.
+Just then, the sound of the cabin door creaking open breaks the moment. Kira's children appear, their faces brightening upon seeing us. "Cậu Ash! Mợ Reine!" they exclaim, running towards us.
 
 Kira's hand finds mine, her grip tight with urgency. "Please, Anh," she pleads, her eyes imploring, "don't tell them what really happened to their father. They shouldn't have to live with that."
 
