@@ -1,0 +1,45 @@
+It’s 1:46pm on a Wednesday and I should be heading to my genetics class, but my body isn’t cooperating with me. I’m in the middle of nowhere and I’m scared out of my mind. I need help. Here’s what I know-
+
+This all started last Saturday. My friend, Iris, had invited me over, saying she had gotten her hands on some acid and wanted to trip together. She’s a bit older than me, but we met at work and have been inseparable ever since. I trusted her like I would an older sister. I had a pretty sheltered childhood and hadn’t ever drank or done drugs. An ex introduced me to weed and besides one weak trip on shrooms, that was the extent of my experience. I’d heard stories from Iris about past acid trips and wanted to try it out so she said she would see if she could find tabs for us to take. What a mistake. 
+
+When I got to her place, there was already someone else parked in the driveway. Her boyfriend, Jessie, sold weed as a side gig, usually to our coworkers, so it wasn’t atypical. I let myself in and she greeted me with a squeal.
+
+“Took you long enough! Jessie’s in the garage with Tom. He’s got some good shit. Really pure… have you met Tom?” She asked. 
+
+“I don’t think so. Wait is he the chemist friend?” They had mentioned him before. Tom was a childhood friend of Jessie’s and on track to get his phd in chemistry. His research was on psychedelics. The dots were starting to connect. 
+
+“Yes! I can’t believe you guys haven’t met yet! He’s been working on a compound variation and swears this shit is the best the lab has ever made” She led me to the garage, where the guys were smoking a blunt. The familiar skunky sweet smell enveloped me and we joined their rotation. Iris introduced us and Tom was friendly. 
+
+“Bout time I put a name to the face. Iris never shuts up about you!” This was something I’d heard often when meeting Iris’ other friends. I had never had such a loving friendship. She would often joke that we’d run away together and Jessie and I would share a look, bonding over her nonsense. 
+
+We stayed in the garage for a while, chatting and smoking, before Tom got ready to leave. He passed a ziplock containing a single strip to Jessie. “Have fun and be careful! Just remember, don’t look in the mirror on this stuff, it’ll mess you up.” He said the last part with a tinge of seriousness. We all said our goodbyes, and he drove away. 
+
+“What did he mean about the mirror?” I asked Jessie. Despite my excitement, I was a little nervous. Jessie laughed, “Don’t worry, just a general precaution. Things get weird on acid and you won’t look like yourself. It can be easy to get spooked and ruin the trip, but you’ll be fine.” I was satisfied with his reassurance. Jessie had begun dabbling with drugs at a young age and I trusted his vast knowledge. 
+
+“Alright it’s time, let the trip begin” Iris held up the bag and excitedly danced around us. Iris and I ceremoniously placed a tab under our tongues and waited for it to dissolve. Jessie, ever the gentleman, would wait to take his until after our come-up to make sure I reacted okay. 
+
+After about 45 minutes, things started moving in my peripheral. A non-existent breeze making everything sway ever so slightly. Colors started becoming more vibrant and I couldn’t stop giggling. “It’s happening!” Iris exclaimed, joining my laughter. Jessie left to take his tab, taking my surge of joy as a good sign. 
+
+Iris had prepared for the trip with an arsenal of activities for us to enjoy. We blew bubbles, listened to records, tried an assortment of fruits, painted, and watched cartoons. We were having a great time. 
+
+Hours had passed when suddenly I became very aware of my full bladder. I stood up and announced to the pair that I needed to pee. Iris and Jessie doubled over in laughter. 
+
+“Don’t get lost in there!” Iris responded in a silly, singsong voice. What a fitting warning that would turn out to be. 
+
+I entered the bathroom, stumbling a little as if I was drunk. Using the toilet was the strangest feeling I’d had yet that night and I giggled to myself. I went to the sink to wash my hands and noticed my reflection in front of me. I was looking at the bottom of the mirror, watching the print on my shirt dance before my eyes. I slowly took in more of my reflection, moving up to my mouth, staring at the distorted reflection of my smile. It seemed too wide, but I had gotten accustomed to everything being a little off throughout the trip. Warning bells started ringing in my mind and Tom’s words came back to me. As I was processing, my gaze shifted upwards involuntarily, as if someone was lifting my chin. I made eye contact with myself. 
+
+My eyes were… wrong. They contained empty blackness with an impossible depth instead of the amber they were supposed to be. A feeling of panic set in, quickly replaced by the rush of movement. Kind of like when you drift asleep and wake up to the feeling of falling. I blinked and when I opened my eyes all I could see was a metal door maybe 20 feet away. It was lit by a white orb in front of it. I whimpered. I was completely sober in that moment and looked around. Impossible darkness, blacker than black, was behind and below me. I closed my eyes again, hoping that when I opened them I’d be back in the bathroom, but sadly I had the same view. My mind raced with possible explanations until I noticed the orb was moving, ever so slightly, the consistency like a blob in a lava lamp. I stepped closer and the orb grew brighter, only illuminating the vast darkness around me. 
+
+“I must be having a bad trip” I thought to myself. I walked towards the orb until I was only a foot away. The light was incredibly bright now and the orb looked like it was made up of thousands of tiny, independently moving lights. It was beautiful and I wanted nothing more than for the orb to envelope me in its glow. 
+
+I reached out a hand, and the orb seemed to mirror me, sending out a small tendril of light. It wrapped around one finger, so cold my brain registered it as a searing pain. I tried to jerked my hand away but it was stuck now, covering more and more of me. I started to scream from the pain, and before I knew it, my mouth was covered, muffling the sound. The frigid white matter moved up over my eyes, rendering me blind with its brightness. It blanketed my entire body. I felt my feet moving, then my hand opening the door that I forgot existed.  
+
+After crossing the threshold, my vision partially returned. I could see the bathroom again, but it was like there was a white veil over my eyes. I wasn’t in pain, but felt covered in a cold numbness. I was sitting in the bathtub and could hear banging on the door faintly, Iris yelling my name. I willed my body to move, but it was as if my body was disconnected from me. I got up and walked back to the sink, facing the mirror. I didn’t want to look at my reflection again, fearing I’d end up in the same strange darkness, but I felt myself forced to look up into my eyes. The blackness was still there, for a moment, before shifting to its regular amber. I felt relieved before seeing the sickly wide smile that was still plastered on my face. My heart dropped into my stomach and I felt myself involuntarily moving to open the door. 
+
+“What the fuck?!” Iris yelled upon seeing me. Jessie looked concerned. I was relieved to see them. I wanted nothing more than to give Iris a hug and tell her the nightmare I had just endured. Instead I heard myself speak, “Sorry about that!” It was my voice, but it sounded almost mechanical, void of any emotion. My body left the bathroom. “Did you fall into the toilet or something? We’ve been knocking forever!” She exclaimed, her voice a mix of worry and anger. 
+
+“I think I’m going to call it a night” I heard myself say. “What? No… You probably shouldn’t drive right now…” Jessie started to say. “It’s okay, I’m fine” My voice responded. I tried to scream, to stop myself from moving farther away from my friends, but nothing happened. I was trapped in my own body, my own mind. I was walking towards their door when I blacked out. 
+
+I “woke up” in my apartment. I was standing in my kitchen. I tried to rub my eyes, but my arm didn’t move and the memory of what happened Saturday night came rushing back to me. My vision still had the foggy veil and I saw myself approaching my front door. The clock in my living room read 1:07pm, Wednesday November 29th, 2023. I have no idea what’s happened in the last four days. My hand grabbed my keys and continued out the door. I realized I had a briefcase in my other hand. I’ve never owned a briefcase in my life. 
+
+I got into my car and started driving. I left my small college town in a direction I’ve never traveled. Highway turned into back roads, then gravel roads. The car stopped. There’s nothing around indicating where I am, just endless forest on both sides of the road. My dashboard reads 1:46pm. My body exited the car, walking towards the tree line, briefcase in hand. I should be heading to my genetics class. I’d give anything to hear the boring drone of my professor’s lecture right now. If you’re reading this, please help me.
