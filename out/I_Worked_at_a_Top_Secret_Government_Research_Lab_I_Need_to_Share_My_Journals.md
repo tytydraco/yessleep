@@ -238,4 +238,4 @@ It's also tough not knowing what became of all of that. Did they ever make it to
 
 Anyway, as I sit here with a half-empty bowl of pho and jerk chicken on the side, I've decided to go public. Well, somewhat. I'll absolutely be using an alias or a proxy account to post all of this. But these experiences need to be shared. I've done enough damage to contribute to hell on Earth. Let's see if we can do some good by giving people a heads-up about what's happening, right? The truth is going to come out sooner or later.
 
-Sorry, I've been rambling for a bit now, and honestly, there's another shot of whiskey calling my name. This will likely be the last entry for a long while. And that's a good thing. Cheers. Thank you.
+Sorry, I've been rambling for a bit now, and honestly, there's another shot of whiskey calling my name. This will likely be the last entry for a long while. And that's a good thing. Cheers. And thank you for being here with me.
