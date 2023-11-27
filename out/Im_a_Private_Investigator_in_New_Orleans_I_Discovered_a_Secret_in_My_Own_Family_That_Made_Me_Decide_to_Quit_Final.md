@@ -238,7 +238,7 @@ The decision to step away from our lives as private eyes, once unfathomable, now
 
 Embracing this new chapter, Reine pursued and obtained her real estate license, showcasing her knack for understanding people and spaces in a more peaceful setting. I, on the other hand, leveraged my background and connections to become a security consultant, offering advice and strategies to those looking to protect themselves from the kinds of dangers we once faced head-on.
 
-We also made sure Abby, our steadfast secretary, wasn't left behind in our transition to a safer life. Using our network, we helped her secure a well-deserved position as a digital forensics analyst. Her sharp intellect and resourcefulness were a perfect fit for the field.
+As for Abby, our ever-reliable secretary and friend, we made sure she wasn't left behind in our transition to a safer life. We supported her decision to go back to college. We helped her navigate the application process and even secured a part-time job for her at a local law firm.
 
 Amidst these significant life changes, Reine and I were in for another surprise. We found out were expecting twins. The news brought a mix of joy, excitement, and a touch of apprehension. On September 25th of this year, we welcomed our beautiful healthy children into the world, a boy, Tristan Bao Tran, and a girl, Brigitte Kieu Tran. Holding them for the first time, feeling their tiny hands clasp our fingers, was a profoundly life-changing moment.
 
