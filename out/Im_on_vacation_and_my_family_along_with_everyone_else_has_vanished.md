@@ -53,3 +53,5 @@ There are two other hotels on this property that are a short walk away. One of t
 [Pic 1](https://www.reddit.com/u/tropical_rabbit/s/XsUuaZso3C)
 [Pic 2](https://www.reddit.com/user/tropical_rabbit/comments/183uapo/pic_2/)
 [Pic 3](https://www.reddit.com/user/tropical_rabbit/comments/183ubei/pic_3/)
+
+[Part 2](https://www.reddit.com/r/nosleep/s/siYTe3GINW)

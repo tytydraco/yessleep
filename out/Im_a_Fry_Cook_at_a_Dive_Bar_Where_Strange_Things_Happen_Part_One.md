@@ -40,14 +40,54 @@ I put my hand on his mouth to shush him and whisper-screamed into his ear, “Sh
 “They didn’t. Every once in a while Davy J will appear on our screen. It will ask for a seafood dish that we don’t serve. When that happens, anyone who has it on their screen must go hide in the walk-in. No one rings it up, it just appears there.” Henry seemed to be processing what I was saying for a while. Then, he laughed
 
   
-“Oh I see. Nice try but I’m not so gullible.” His smug expression slowly changed to skepticism when he saw how serious I was. “What? You expect me to believe this? I know the new guy should expect to get pranked, but this is just obviously fake.”  
-“It’s not.” I thought I saw his armor of disbelief crack slightly with the piercing matter-of-fact way I responded.
+“Oh I see. Nice try but I’m not so gullible.” His smug expression slowly changed to skepticism when he saw how serious I was. “What? You expect me to believe this? I know the new guy should expect to get pranked, but this is just obviously fake.” 
+ 
+
+“It’s not.” 
+
+I thought I saw his armor of disbelief crack slightly with the piercing matter-of-fact way I responded.
 
   
 “Well what happens to the people who don’t hide?... Nathan looked really traumatized.”
 
   
-“I shook my head. You will most likely experience that in the next couple of weeks while I train you. He comes around every few weeks to torment us. When that happens, do what I say and everything will be fine.” I didn’t know if Henry was actually listening to me or just pretending to. Like I said, most people don’t last here. Many of them leave voluntarily. The rest of them? Well…they tend to just go missing. But they never end up in the news or on the missing persons registry. I know what happened to a few of them. The other’s…I have my suspicions…
+I shook my head, “you will most likely experience that in the next couple of weeks while I train you. He comes around every few weeks to torment us. When that happens, do what I say and everything will be fine.” I didn’t know if Henry was actually listening to me or just pretending to. Like I said, most people don’t last here. Many of them leave voluntarily. The rest of them? Well…they tend to just go missing. But they never end up in the news or on the missing persons registry. I know what happened to a few of them. The other’s…I have my suspicions…
 
   
 The rest of the night went off without a hitch. I hope to see Henry tomorrow. I could see him becoming a good addition to the team. But a part of me doesn’t want to see him again because I don’t want anything to happen to him.
+
+
+After a couple weeks, Henry was doing really well. He was either ignoring or not noticed all the weird things that happen around him. He even talked to our resident ghost, Heather. She’s dressed as a server and will appear every few days and take orders from guests. The issue is, she never rings them up. So when a table tells their actual server that they already ordered from Heather, the servers make up an excuse to take their order again. No one really knows where she came from. If you ask anyone at the restaurant, you’ll get a different story depending on who you ask. Some say she worked here when it first opened in the 90s. They say she was locked in the walk-in freezer and froze to death. Others say she was killed by Dave when she threatened to blackmail him for something or another. While I think it’s possible that Dave could have done that, I think it’s unlikely. Dave is too good at covering his tracks when he commits crimes to be able to be blackmailed. Anyway, Henry didn’t seem to notice after Heather disappeared right when he turned away from her. I watched it happen. He looked confused for a second, shrugged, then walked off.
+
+
+One thing he couldn't ignore happened the other day though. I felt comfortable enough to leave him on his own while I went to take a piss. That was definitely my mistake, but in my defense, there were no orders on the screen and a lot of the things in the bar are harmless. I knew I messed up when I walked back and saw him staring into the fryer. Even though nothing was dropped in the fryer, it was bubbling and swirling. “Shit,” I muttered to myself as I quickly approached Henry. I talked to him as gently as possible as I grabbed his shoulder, “Heeyyyy Henry, what are you doing?”
+
+
+He didn’t seem to notice I approached. I was about to say something else when he spoke up. “D-do you hear that?” He said pointing into the churning oil.
+
+
+I knew what he was talking about, “No…I can’t…what can you hear?” I said slowly. I don’t know what he was hearing, but the look on his face told me it wasn’t great.
+
+
+“My girlfriend’s voice. It sounds like it’s coming from the fryer.” His eyes seemed unfocused and his voice was monotone.
+
+
+“What’s it saying?” It seemed like he was too deep into it at this point. I noticed the bubbling grow in intensity.
+
+
+“She’s saying the oil is cold. Is that true? She keeps saying I have to test it.” I stood next to him. I knew what would come next. I wanted to try to talk him out of it.
+
+
+“Don’t listen to her Henry. Is she a fry cook? Would she know how hot the oil is? Hell do you even see her around here?” I tried to add that last part to get him to look around. He was too focused on the oil to break his gaze away.
+
+
+“But she’s so smart, Levi… She would know… I trust her…” As he said that he leaned back, never taking his eyes off the fryer. This was what I was preparing for. As he rocketed forward, aiming his head at the swirling liquid, I slammed into him. He was thrown against the wall and slid down to a sitting position. I stood over him and watched him. Usually that was enough to knock some sense into people, but not always.
+
+
+I turned to look at the fryer. The swirling was slowly winding down. But before it fizzled out I heard a familiar voice, “next time Levi.”
+
+
+I turned back to Henry. He was looking up at me as if he had just woken up. His eyes were half closed and his mouth hung open slightly. Suddenly a look of fear washed over his face. “Levi? W-what just happened?” He drew his knees up to his chest and grabbed the sides of his head with his hands. He rocked back and forth slightly. I hated to see him like this. His ignorant bliss was finally stripped from him. “The bubbles…they talked to me. It was my girlfriend, but it wasn’t my girlfriend. I was about to…oh God.” The words spilled out like a waterfall. His rocking grew quicker and his eyes were wild.
+
+
+I crouched next to him and put my hand firmly on his shoulder. “Henry, breathe.” I started taking deep rhythmic breaths as an example. He began to mimic me as he looked at me. Wet streaks trailed from his red, puffy eyes and down his cheeks. Eventually his shoulders relaxed. We were quiet for a long time. I watched his expression, looking for any sign that he wasn’t ready to talk. He sniffed every once in a while.”The fryer does that sometimes Henry. It will try to talk to you. You need to ignore it. It’s hard because it has a certain…hypnotic pull to it…but you MUST ignore it. I’m sorry I didn’t tell you. I didn’t think you’d believe me. There are some things in this place that are better to learn from experience. If you choose to come back after this. I will tell you everything that you need to be ready for, because I know you will believe me now.” He had a blank expression as he nodded. I slowly helped him to his feet. At this point a few orders had come in and Jose had taken over my station while he ran his as well. I nodded my thanks as I led Henry to Dave’s office. Dave was going to give him only a few days of paid time off, but I stepped in and made him give him two weeks. I know Dave can handle it with all his shady business dealings. I don’t know if Henry will come back. Part of me hopes he does, but he seemed pretty shook up.
