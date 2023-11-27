@@ -8,13 +8,15 @@ I must’ve obviously looked confused because he leant back again and waved his 
 
 “Ah, what the hell. You’re hired.”
 
+&#x200B;
+
 And so, I work in a library. I woke up this morning with stars in my eyes, sweat on my butt and a very weird email from my boss, the man who’d taken my interview the previous night. His name was Simon Cohen, and he ran the only library in a radius of three towns with his twin brother, Peter.
 
 I’d just moved out here to the middle of nowhere, to get away from my past. I was 20, with only a high school diploma, and the library was the only place willing to hire me. I was so grateful to simply just go in for the interview. And well, if the town it was situated in was a bit weird, well…I had to eat.
 
 Also, when I say weird, I mean *weird*\-weird. Not just the one I’m staying in, but all the three towns and even the villages surrounding us seem to be permanently bathed in some sort of cool-tone filter. The house I’m inhabiting right now isn't mine. I doubt Mr. Cohen knew I was living in an old mansion that was in shambles, or he wouldn’t have hired me.
 
-I woke to a sheen of sweat clinging to my entire body. It was maybe 5:45 a.m, and it was already raining. But I was sweating in my shabby clothes, a thin makeshift blanket/cardigan hanging off the edge of my feet. Somewhere in the house I could hear a tap dripping, and I paid it no mind. I was happier than I’d been in almost two years. Weird things happen in weird old houses in weird, secluded towns.
+I woke to a sheen of sweat clinging to my entire body. It was maybe 5:45 a.m, and it was already raining. But I was sweating in my shabby clothes, a thin makeshift blanket/cardigan hanging off the edge of my feet. Somewhere in the house I could hear a tap dripping, and I paid it no mind. I was happier than I’d been in almost two years. Nightmares hadn't eaten up my sleep. Weird things happen in weird old houses in weird, secluded towns.
 
 Every day looks like Halloween, and all the people smell weird but whatever, I needed to get away, you know? Fuck, I haven't even explained anything yet.
 
@@ -22,9 +24,9 @@ I'm Mary. My parents, Cyrus and Evelyn, were extremely rich and philanthropists,
 
 I don’t believe in an all-knowing lovecraftian creature that lives in the sky and dishes out punishment whenever it sees fit.
 
-So, as soon as school let out and my parents were planning to formally introduce me into society ( what is this, the ‘30s?) I ran away. I only had my phone and a couple hundred in cash that I’d saved up from the living expenses money they used to send me. Threw out the sim, got a new one after a mild spree of pick-pocketing. I caught the first train from France, snuck onto a ship and lived in absolute shit conditions for a bit. I was 18 then, and met quite a few interesting people. Somehow, I stumbled into America.
+So, as soon as school let out and my parents were planning to formally introduce me into society ( what is this, the ‘30s?) I ran away. I only had my phone and a couple hundred in cash that I’d saved up from the living expenses money they used to send me. I stuffed it all in a duffel bag, that'd soon become home to all of my belongings (a blue shirt I stole in Nevada, a white cardigan I bought at a thrift store, a single polaroid of my friend Sarah and I). My phone could be tracked, so I threw out the sim, got a new one after a mild spree of pick-pocketing. I caught the first train from France, snuck onto a ship and lived in absolute shit conditions for a bit. I was 18 then, and met quite a few interesting people. Somehow, I stumbled into America.
 
-I went through the entire coast, trying to escape someone I met on the boat. Finally, I managed to shake him off, and came to the middle of Nowhere, Nothingswhere to “settle down”. It was my only option. I’d like to think I was brave, but my anxiety always stuck around with me. Like a thin, woollen cardigan. I was always a frightened child.
+I went through the entire coast, trying to escape the monster I met on the boat. Finally, I managed to shake it off, and came to the middle of Nowhere, Nothingswhere to “settle down”. Mainly, it was because there were no signs of the monster here. It was my only option. I’d like to think I was brave, but my anxiety always stuck around with me. Like a thin, woollen cardigan. I was always a frightened child.
 
 The email Mr. Cohen had sent me was honestly peculiar. He started off with the usual, “We’re so glad to welcome you to our humble organization” schtick, but he added a set of rules. I was working the night shift, which alone would be terrifying because I was scared of the dark, but a list of rules too?
 
@@ -48,9 +50,9 @@ The email Mr. Cohen had sent me was honestly peculiar. He started off with the u
 
 There were almost 30+ rules there, but I had to stop reading. They freaked me out. Low setting? Flickering lights? And what in Stephen Hawking’s seven circles of hell did he mean by laughter? It had to be a joke.
 
-In fact, I’m writing this draft to post later so I can laugh about how dramatic I was.
+In fact, I’m writing this draft to post later so I can laugh about how dramatic I was. Because, yeah, this was my first decent job, and employers tend to be fun, right? Me getting freaked out over this is honestly stupid. 
 
-Nevertheless, I felt so queasy I had to go throw up. By the time I finished reading his extensive email, along with added links to lamps/torches and the kind of clothing I had to wear, I was exhausted. To make matters worse, it was 6:30 a.m and I was starved. I was perfectly famished. I’d only slept for about two hours because of the stifling heat in this old ass house. I suspected something was wrong with the heater.
+Nevertheless, I felt so queasy I had to go throw up. By the time I finished reading his extensive email, along with added links to lamps/torches and the kind of clothing I had to wear, I was exhausted. To make matters worse, it was 6:30 a.m and I was perfectly famished. I’d only slept for about two hours because of the stifling heat in this old ass house. I suspected something was wrong with the heater. But still, I was grateful. A night of sleep without any nightmares, even two hours of it, was blissful. I'd woken up in a good mood, despite my sweating. 
 
 I tried to fall back asleep but to no avail. My phone screen still lay open with the email showcased across it, and I felt extremely uncomfortable. Again, so dramatic.
 
@@ -64,7 +66,7 @@ It doesn’t matter, oh my gosh. I need to control my brain’s wandering though
 
 I hadn’t spoken in two years, and I wasn’t going to start now.
 
-“Holy shit, are you okay?” He questioned, rushing out from behind the counter to try and help. Panicked, I pushed his hands off of me and darted out. Well, there goes my soup. I didn’t even get to pay for it.
+“Holy shit, are you okay?” He questioned, rushing out from behind the counter to try and help. Panicked, I pushed his hands off of me and darted out. Well, there goes my soup. I didn’t even get to pay for it. Kind of glad about that, actually. Lord knows what was in that soup to make it smell that terrible. 
 
 I spent the rest of the day just wandering around town, stomach grumbling. I hoped Mr. Cohen stuck to the words he’d written in his joke-email about food. I didn’t want to eat at any of the other places, scared it’d be too overpriced. My ratty shirt was stained. I had one other shirt, a blue eye-sore meant to be worn only as pajamas.
 
@@ -72,7 +74,7 @@ Already a terrible start to a day. But whatever, I was going to start working at
 
 At around 7:00-ish, I popped by the abandoned house. I couldn’t be sure of the exact time since I’d left my phone back at the kitchen and well…I was way too embarrassed to go back. I succumbed to the idea that my phone has probably been sold by now, for alarmingly cheap rates.
 
-I walked into the library at around 8:30, the starting time for my shift. I smiled at Mr. Cohen, who waved me over.
+I walked into the library at around 8:30, half an hour or so before the starting time for my shift. I smiled at Mr. Cohen, who waved me over.
 
 “Now then, did’ya read through the email?” He was seated behind the main desk, an angel’s trumpet shaped lamp, the red register he’d mentioned, and polished mahogany staring back at me. I grabbed a pad of sticky notes and quickly scribbled down my response.
 
@@ -88,13 +90,13 @@ He opened the closet door and grabbed a heavy black coat, and a red umbrella.
 
 “Remember the rules. Do not forget even a single one. I’ve taped a printed out copy of them and stuck them under the desk.”
 
-I nodded, feeling the color drain out of my face. I had seen a lot of things, and I knew when someone meant what they said. And Mr. Cohen meant every single word he’d written in that email.
+I nodded, feeling the color drain out of my face. I had seen a lot of things, and I knew when someone meant what they said. And I feel like Mr. Cohen meant every single word he’d written in that email. But still, I'd like to believe that it was a joke. I was running from my own monster. I needed this place to be safe. 
 
 I’m sure I’m being dramatic again, but something feels terribly wrong. Or right?
 
 I shrugged the coat on, the ends heavy and poufy and trailing after me. “You can keep them until I can buy you ones in your size.” His eyes had turned softer, and he clapped me on the back. I pulled the hood over my head, smiling goofily under it. It was warm, contrasting the cold of the library.
 
-“You’re going to do well. Just keep the ru-”
+“You’re going to do well. Most people think it's a joke, so it's all alright. Just keep the ru-”
 
 He was interrupted by a slow, deliberate clap. I turned around to see a boy in a similar black coat, all buttoned up. He had charcoal eyes that no doubt matched his disgusting soul. I disliked him from the get-go.
 
@@ -108,9 +110,13 @@ Mr. Cohen seems to be fuming, but says nothing except to tell him not to use the
 
 I eat the food Mr. Cohen has left out on the main desk, seeming to inhale the food as Joshua mutters and laughs at me, but I’m way too hungry to care. At around 9:45 I tried to go to the washroom to wash my plate, but he grabbed my arm. He solemnly tells me it smells rotten.
 
-I sit back down, next to him. The list of rules seem to be missing, but I shrug it off. They can't be real, and whatever feeling I was feeling when Mr. Cohen was "warning" me was probably just from a lack of food.
+I sit back down, next to him. The list of rules seem to be missing, but I shrug it off. They can't be real, and whatever feeling I was feeling when Mr. Cohen was "warning" me was probably just from a lack of food. Right? It had to be. I needed it to be. 
+
+All throughout the night, Joshua would keep making fun of me. He'd be mean about me not speaking, mean about how I gobbled my food down. He even made fun of my shoes, which were dirty with the soup from today morning. I ignored it all, because he was most definitely trying to scare me off. I would not be scared off by this literal man-child. 
 
 We switch off the lights at 11:45, walking all over the library. At the back wall, I finally spotted the Jesus window. All the other ones have only one of the Apostles, but this has two figures that I understand to be Jesus and Judas. Joshua walks back over to me. We stare at it in silence for a few minutes, the moonlight falling through. We went and sat back down. The rest of the night will be mostly smooth sailing now.
+
+&#x200B;
 
 It's not smooth-sailing. I've done something terrible. This was originally supposed to be a cutesy, fun, life update post where I talk about my new job. But things have gone so horribly wrong.
 
@@ -128,7 +134,7 @@ As though sensing my growing hesitance, the voice behind the door suddenly stopp
 
 I can’t move. The hood has fallen over my shoulders and I know they can see me. I don’t have protection. I’ve broken Rule 10 and Rule 18. I can feel them coming closer.
 
-I pull up my phone and see a dozen texts, all from Mr. Cohen. They change before my eyes, going from reassuring messages to all caps texts saying the same thing–let me in.
+I pull up my phone and see a dozen texts, all from Mr. Cohen. They change before my eyes, going from reassuring messages to all caps texts saying the same thing–*let me in*.
 
 I am shaking. I feel like throwing up. All I can think of right now as I update this draft, as I type as fast as I can, knowing, feeling, that I’m going to die–all I can think of is my mother patting me on the head as a 5 year old. I’m thinking of the state of delirious joy I was in this morning, thinking I had an easy job before reading the email.
 
