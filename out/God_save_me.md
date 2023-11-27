@@ -50,9 +50,9 @@ The email Mr. Cohen had sent me was honestly peculiar. He started off with the u
 
 There were almost 30+ rules there, but I had to stop reading. They freaked me out. Low setting? Flickering lights? And what in Stephen Hawking’s seven circles of hell did he mean by laughter? It had to be a joke.
 
-In fact, I’m writing this draft to post later so I can laugh about how dramatic I was. Because, yeah, this was my first decent job, and employers tend to be fun, right? Me getting freaked out over this is honestly stupid. 
+In fact, I’m writing this draft to post later so I can laugh about how dramatic I was. Because, yeah, this was my first decent job, and employers tend to be fun, right? Me getting freaked out over this is honestly stupid.
 
-Nevertheless, I felt so queasy I had to go throw up. By the time I finished reading his extensive email, along with added links to lamps/torches and the kind of clothing I had to wear, I was exhausted. To make matters worse, it was 6:30 a.m and I was perfectly famished. I’d only slept for about two hours because of the stifling heat in this old ass house. I suspected something was wrong with the heater. But still, I was grateful. A night of sleep without any nightmares, even two hours of it, was blissful. I'd woken up in a good mood, despite my sweating. 
+Nevertheless, I felt so queasy I had to go throw up. By the time I finished reading his extensive email, along with added links to lamps/torches and the kind of clothing I had to wear, I was exhausted. To make matters worse, it was 6:30 a.m and I was perfectly famished. I’d only slept for about two hours because of the stifling heat in this old ass house. I suspected something was wrong with the heater. But still, I was grateful. A night of sleep without any nightmares, even two hours of it, was blissful. I'd woken up in a good mood, despite my sweating.
 
 I tried to fall back asleep but to no avail. My phone screen still lay open with the email showcased across it, and I felt extremely uncomfortable. Again, so dramatic.
 
@@ -66,7 +66,7 @@ It doesn’t matter, oh my gosh. I need to control my brain’s wandering though
 
 I hadn’t spoken in two years, and I wasn’t going to start now.
 
-“Holy shit, are you okay?” He questioned, rushing out from behind the counter to try and help. Panicked, I pushed his hands off of me and darted out. Well, there goes my soup. I didn’t even get to pay for it. Kind of glad about that, actually. Lord knows what was in that soup to make it smell that terrible. 
+“Holy shit, are you okay?” He questioned, rushing out from behind the counter to try and help. Panicked, I pushed his hands off of me and darted out. Well, there goes my soup. I didn’t even get to pay for it. Kind of glad about that, actually. Lord knows what was in that soup to make it smell that terrible.
 
 I spent the rest of the day just wandering around town, stomach grumbling. I hoped Mr. Cohen stuck to the words he’d written in his joke-email about food. I didn’t want to eat at any of the other places, scared it’d be too overpriced. My ratty shirt was stained. I had one other shirt, a blue eye-sore meant to be worn only as pajamas.
 
@@ -90,7 +90,7 @@ He opened the closet door and grabbed a heavy black coat, and a red umbrella.
 
 “Remember the rules. Do not forget even a single one. I’ve taped a printed out copy of them and stuck them under the desk.”
 
-I nodded, feeling the color drain out of my face. I had seen a lot of things, and I knew when someone meant what they said. And I feel like Mr. Cohen meant every single word he’d written in that email. But still, I'd like to believe that it was a joke. I was running from my own monster. I needed this place to be safe. 
+I nodded, feeling the color drain out of my face. I had seen a lot of things, and I knew when someone meant what they said. And I feel like Mr. Cohen meant every single word he’d written in that email. But still, I'd like to believe that it was a joke. I was running from my own monster. I needed this place to be safe.
 
 I’m sure I’m being dramatic again, but something feels terribly wrong. Or right?
 
@@ -110,9 +110,9 @@ Mr. Cohen seems to be fuming, but says nothing except to tell him not to use the
 
 I eat the food Mr. Cohen has left out on the main desk, seeming to inhale the food as Joshua mutters and laughs at me, but I’m way too hungry to care. At around 9:45 I tried to go to the washroom to wash my plate, but he grabbed my arm. He solemnly tells me it smells rotten.
 
-I sit back down, next to him. The list of rules seem to be missing, but I shrug it off. They can't be real, and whatever feeling I was feeling when Mr. Cohen was "warning" me was probably just from a lack of food. Right? It had to be. I needed it to be. 
+I sit back down, next to him. The list of rules seem to be missing, but I shrug it off. They can't be real, and whatever feeling I was feeling when Mr. Cohen was "warning" me was probably just from a lack of food. Right? It had to be. I needed it to be.
 
-All throughout the night, Joshua would keep making fun of me. He'd be mean about me not speaking, mean about how I gobbled my food down. He even made fun of my shoes, which were dirty with the soup from today morning. I ignored it all, because he was most definitely trying to scare me off. I would not be scared off by this literal man-child. 
+All throughout the night, Joshua would keep making fun of me. He'd be mean about me not speaking, mean about how I gobbled my food down. He even made fun of my shoes, which were dirty with the soup from today morning. I ignored it all, because he was most definitely trying to scare me off. I would not be scared off by this literal man-child.
 
 We switch off the lights at 11:45, walking all over the library. At the back wall, I finally spotted the Jesus window. All the other ones have only one of the Apostles, but this has two figures that I understand to be Jesus and Judas. Joshua walks back over to me. We stare at it in silence for a few minutes, the moonlight falling through. We went and sat back down. The rest of the night will be mostly smooth sailing now.
 
@@ -138,4 +138,4 @@ I pull up my phone and see a dozen texts, all from Mr. Cohen. They change before
 
 I am shaking. I feel like throwing up. All I can think of right now as I update this draft, as I type as fast as I can, knowing, feeling, that I’m going to die–all I can think of is my mother patting me on the head as a 5 year old. I’m thinking of the state of delirious joy I was in this morning, thinking I had an easy job before reading the email.
 
-I can hear footsteps behind me. I feel like opening the door would solve my issues, would take away my fear. God, save me.
+I can hear footsteps behind me. I feel like opening the door would solve my issues, would take away my fear. [God, save me](https://www.reddit.com/r/nosleep/comments/1853gap/god_save_mebethanys_diner/?utm_source=share&utm_medium=web2x&context=3).

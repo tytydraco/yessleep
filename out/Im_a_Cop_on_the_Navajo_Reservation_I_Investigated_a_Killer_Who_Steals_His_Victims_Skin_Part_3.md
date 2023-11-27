@@ -76,7 +76,7 @@ An agonizing pause follows, during which every rustle and whisper in the room se
 
 After what seems like an eternity, the voice responds, “Shimásání biyi'dizíílgo hózhǫǫgi.” (As welcoming as grandmother's embrace.)
 
-Relief floods through me. I motion for the others to unbar the door and let them in. The entrance swings open to reveal Lieutenant Tahoma, his familiar face etched with concern and determination. Behind him stands the department's heavily armed SWAT team, their gear and weapons indicating they’re prepared for the worst.
+Relief floods through me. I motion for the others to unbar the door and let them in. The entrance swings open to reveal Lieutenant Tahoma, his familiar face etched with concern. Behind him stands the department's heavily armed SWAT team, their gear and weapons indicating they’re prepared for the worst.
 
 The survivors erupt in a chorus of relieved cries and whispers.
 
@@ -142,7 +142,7 @@ The rapid, rhythmic beating of hooves grows louder, drowning out the sounds of t
 
 He wears an eerie black mask that completely shrouds his face, making it impossible to discern any human features. The mask seems to absorb the moonlight, its surface shimmering with an unsettling darkness. His body is covered in a stark white paint, the patterns reminiscent of ancient tribal markings. His clothes, made of what appears to be coarse fur and interwoven with rawhide, ripple as he rides, giving him a feral and primal appearance. Clutched in one hand is a gleaming lever-action rifle, reflecting the sparse light and contrasting sharply with the obsidian darkness of his attire.
 
-Despite the unsettling visage, it's the horseman's eyes that capture my attention. They burn with a fiery intensity, glowing like red-hot embers in the depths of a furnace. Those eyes, filled with a fierce determination and something profoundly ancient, lock onto mine, and an icy shiver runs down my spine.
+Despite the unsettling visage, it's the horseman's eyes that capture my attention. They burn with a fiery intensity, glowing like red-hot embers in the depths of a furnace. Those eyes, is fierce determination and and filled with something profoundly ancient, lock onto mine, and an icy shiver runs down my spine.
 
 As the distance between us narrows, the desert landscape seems to warp and shift, as if reality itself is bending in the presence of this otherworldly figure. The horse on which he rides is equally disturbing, with smoky tendrils of mist curling up from its hooves, leaving no trace of their passage on the ground below.
 

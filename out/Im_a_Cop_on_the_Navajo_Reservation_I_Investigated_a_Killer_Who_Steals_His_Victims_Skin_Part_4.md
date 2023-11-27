@@ -78,7 +78,7 @@ I pull out a map of the reservation, spreading it across the hood of the armored
 
 "The great rock," Ben murmurs, leaning in. His eyes scan the map, pausing over specific landmarks. "I remember hearing stories about a colossal stone formation near the southern edge of the reservation. Townsfolk call it 'Chronicle Ridge' because of the ancient petroglyphs on it."
 
-Izzy points to a spot on the map, "And look, there's a river that bends right around it. If Chester's words are to be believed, this could be the place where the Demon Slayer is hidden."
+Izzy points to a spot on the map, "And look, there's a river that bends right around it. If Chester's words are to be believed, this could be the place where the Water-Born is hidden."
 
 A spark of hope ignites within me. "We need to go there. If there's even a chance that we can find this Child of Water and bring her to brother's side, we have to take it."
 

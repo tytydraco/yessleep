@@ -4,9 +4,9 @@ As morning came, I hadn’t slept a wink. No matter how tired I felt, who knew w
 
 “Why, of course.”
 
-“Last night, as I was lighting the candles, something very odd happened.” Her expression remained unchanged. “Some… creature appeared and attacked me. Does any of this… sound familiar?” My tone simmered with anger as I paid close attention to her reaction.“You must have not lit all the candles by midnight like I instructed you.” Her voice was devoid of emotion. This confirmed it, she set me up.
+“Last night, as I was lighting the candles, something very odd happened.” Her expression remained unchanged. “Some… creature appeared and attacked me. Does any of this… sound familiar?” My tone simmered with anger as I paid close attention to her reaction. “You must have not lit all the candles by midnight like I instructed you.” Her voice was devoid of emotion. This confirmed it, she set me up.
 
-“Oh, my apologies, but ***YOU FORGOT TO MENTION THAT MY LIFE WOULD BE IN DANGER HAD I NOT LIT UP THE FUCKING CANDLES ON TIME!***” I snapped as rage coursed through me.
+“Oh, my apologies, but ***YOU FORGOT TO MENTION THAT MY LIFE WOULD BE IN DANGER HAD I NOT LIT UP THE FUCKING CANDLES ON TIME!”*** I snapped as rage coursed through me.
 
 She, on the other hand, remained composed. “I believe you were informed that this job would be very strict.”
 
@@ -36,7 +36,7 @@ After walking for a couple of minutes, I came across ‘*Bound by Duty. Freed by
 
 My stomach growling snapped me out of my immersion. It seemed stress was getting to me. Despite having eaten 20 minutes ago, I felt hungry once more. Glancing at the watch Sophie had provided, shock coursed through me.
 
-***It had been 5 hours since I entered the library.*** “Impossible” I muttered in disbelief, as I had only read up to page 40. I wasn’t that slow of a reader, so the watch must have malfunctioned. My confusion grew as I looked around.The library seemed to have grown exponentially, its aisles stretching out like endless roads and the towering bookshelves casting long, imposing shadows. All the lights had gone out and I couldn’t even see the ceiling anymore.
+***It had been 5 hours since I entered the library.*** “Impossible” I muttered in disbelief, as I had only read up to page 40. I wasn’t that slow of a reader, so the watch must have malfunctioned. My confusion grew as I looked around. The library seemed to have grown exponentially, its aisles stretching out like endless roads and the towering bookshelves casting long, imposing shadows. All the lights had gone out and I couldn’t even see the ceiling anymore.
 
 Panic seized me as I made a dash toward the exit, hoping to escape whatever the hell was taking place in this library. As I reached the doors, I slammed into them with all my might, but they remained resolutely shut, mocking my futile attempts to break free. Breathless and disheartened, I turned around, my eyes landing on the unchanged display cases.
 
@@ -50,7 +50,7 @@ Thankfully, the library’s basic structure remained unchanged, so I could at le
 
 As I ascended the staircase, I started to believe I could once again make it through. The giant’s thunderous stomps made it easy to sneak by and also helped me keep track of its position at all times. Not to mention, the library provided plenty of cover to hide behind.
 
-As I reached the top, an unsettling hush enveloped the air, shattering my sense of security. I scanned the surroundings frantically only to realize the giant had disappeared from sight. Its absence was eerie, as though it had been erased from existence, leaving behind an unnerving void.I don’t know where the hell it had gone, but I better take advantage of this opportunity before it comes back. To my surprise, I found the final book within a minute. “Alright, now to head bac-“
+As I reached the top, an unsettling hush enveloped the air, shattering my sense of security. I scanned the surroundings frantically only to realize the giant had disappeared from sight. Its absence was eerie, as though it had been erased from existence, leaving behind an unnerving void. I don’t know where the hell it had gone, but I better take advantage of this opportunity before it comes back. To my surprise, I found the final book within a minute. “Alright, now to head bac-“
 
 ***The eyes.*** People refer to them as the gateway into the soul. Maintaining eye contact is usually considered a way of showing respect or confidence, yet as a multitude of wide-open eyes fixated upon me, I was gripped by an overwhelming sense of dread. The giant’s eyes were all-consuming, unblinking, as if they belonged to an entity devoid of any known existence.
 
@@ -188,7 +188,7 @@ As the evening came, so did the guests. A couple in their 40s accompanied by the
 
 “Are you alright?” I snapped out of my drowsiness. The father faced my direction with a look of concern. I assumed all hell would break loose if I were to tell him what was actually on my mind. “I’m fine sir, thank you for your consideration.” I replied, adopting my best formal tone.
 
-“ Daddy, I’m bored.” The little girl interrupted, nudging her father.
+“Daddy, I’m bored.” The little girl interrupted, nudging her father.
 
 He shifted his attention. “Mrs. Montague, would it be alright if my daughter explores your estate? She was very excited about coming to a mansion of this size."
 
@@ -244,7 +244,7 @@ She fidgeted with her left leg. “I assure you… that is not the case.”
 
 “Then what is?” I demanded, growing more agitated by the minute.
 
-“Ben, will you please answer some questions I have?” Her persistence grated on my already frayed nerves. She never seemed to address my most pressing concerns, no matter how hard I tried.“What is your job, Ben?”
+“Ben, will you please answer some questions I have?” Her persistence grated on my already frayed nerves. She never seemed to address my most pressing concerns, no matter how hard I tried. “What is your job, Ben?”
 
 After a few seconds of tense silence, I sighed deeply. “Fine…I’ll play along, just this once. In the ad, I thought my job was going to be that of a butler, but… you know the rest.”
 
@@ -268,9 +268,7 @@ Suddenly, it dawned on me. It was subtle, a faint whisper of realization. My job
 
 “Do you also have rules of conduct?” I hesitantly asked. Her expression relaxed, as if I had hit the jackpot.
 
-“Ben, does the earth rotate around the sun?” I believed that to be a yes. I found the tension in my body fading from this pleasant surprise. I had misunderstood her all along. Still, she had her own list of rules and apparently couldn’t talk about them directly. Despite that, something remained missing here.
-
-Why would the mansion head have her own set of rules? Wasn’t she the leader here? If so-
+“Ben, does the earth rotate around the sun?” I believed that to be a yes. I found the tension in my body fading from this pleasant surprise. I had misunderstood her all along. Still, she had her own list of rules and apparently couldn’t talk about them directly. Despite that, something remained missing here. Why would the mansion head have her own set of rules? Wasn’t she the leader here? If so-
 
 ***“Well, aren’t the two of you getting along nicely now?”*** A voice interrupted from my left, and to my surprise an overgrown eyeball had materialized in the middle of the wall. It felt as though it was staring into my very soul. My body tensed as I prepared for the consequences. Had I broken the rules again? This time, the creature could talk as well.
 
