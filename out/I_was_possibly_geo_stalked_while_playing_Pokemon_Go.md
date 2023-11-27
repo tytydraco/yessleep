@@ -1,0 +1,14 @@
+Please pardon my grammar and spelling I am truly just in so much shock right now and can't sleep because of the adrenaline. I'm writing this to get some advice and see if this has happened to anyone else and to spread awareness! This is my first Reddit post so I hope I'm doing this right. I thought this might be a good place to post because the Pokémon go subreddit won’t let me post until I have more karma.
+
+My (27F) sister(24F), mom(60F), boyfriend (24M), and I were just playing at a local outlet mall and participating in a party to complete to special field research around 9pm-10pm tonight. We were driving and parking and playing from our car 
+because it's a cold colorado night in November. 
+
+While we were playing we noticed a man in his white 4 runner pull up behind us with his brights on. We found it weird and decided to drive away and he continued to follow us. We decided to park elsewhere and he stopped following us but then he looped around the mall and came back and drove slowly near us then parked across the way where it was far enough that we weren't too concerned, but we could definitely still see him. 
+
+We continued to keep an eye on him for about 5 minutes and then he decided to come closer and point some sort of object at us. It had some sort or laser or reflective light and truly scared the crap out of me and I thought it was a gun and screamed at my sister to drive. He then started chasing us and I thought he was going to either crash into us or shoot us. I was calling the police and my boyfriend was directing my sister and my mom was also calling the police (we were all scared for our lives with no real sense of what was going on). He was ridding our bumper with his brights on so aggressively, it truly felt like we were going to die. I sunk down to the ground and told my boyfriend to get down because I thought we were going to get shot.
+
+Thankfully my sister somehow lost him and/or he just drove away. The cops got there incredibly fast and took our statements and are trying to get security footage but there's not much they can do since we didn't get the license plate (I know I am so upset but he had is brights on and I was so afraid to look after I thought had a gun). Also, most of the stores don't have outdoor cameras.
+
+My boyfriend talked to his sisters and they brought up geo stalking because I guess that happens with Pokémon go sometimes? This is the first I’m hearing of this and I guess that people can stalk you from the app which I didn’t know that was even possible.
+
+I just want to see if anyone has any advice or if this has happened to you. Most importantly I want to spread awareness to please be careful and be aware of your surroundings! There are some truly scary people out there. Thanks for reading and PLEASE stay safe!
