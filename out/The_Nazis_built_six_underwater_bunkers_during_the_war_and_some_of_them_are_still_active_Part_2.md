@@ -365,3 +365,5 @@ Utterly lifeless.
 &#x200B;
 
 And just like that, he’s gone.
+
+[\[Part 3/3\]](https://www.reddit.com/r/nosleep/comments/185dxle/the_nazis_built_six_underwater_bunkers_during_the/)

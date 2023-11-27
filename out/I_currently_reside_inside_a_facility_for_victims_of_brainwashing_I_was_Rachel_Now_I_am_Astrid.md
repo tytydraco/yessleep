@@ -248,7 +248,7 @@ With the meds, all of my fear is stripped away. I can dig into the recesses of m
 
 Tella didn't spike our drinks with mind rotting hallucinogens and sedatives. She just gave us weed.
 
-“Fuck.” Harvey's voice sounded like he was in a tunnel, a tangled slur rolling off his tongue. I was half aware of Zach on his hands and knees… laughing. 
+“Fuck.” Harvey's voice sounded like he was in a tunnel, a tangled moan rolling off his tongue. I was half aware of Zach on his hands and knees… laughing. 
 
 “What did you put in those…. drinks?”
 
