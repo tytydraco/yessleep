@@ -1,4 +1,4 @@
-My grandmother was a serious woman. She used to take me to the Black River running through the [Gorge](https://youtube.com/playlist?list=PL2EZyd5nNhlp7AtqSbWkKVgAjBz-jLkUG&si=n1lqbYJ0j04zGCq1). When I saw others fishing, she shook her head before I could ask why we never fished.
+My grandmother was a serious woman. She used to take me to the [Black River](https://youtu.be/iIT5_tctoYM?si=zSa5M_GJwut8c_6N) running through the Gorge. When I saw others fishing, she shook her head before I could ask why we never fished.
 
 "There’s more than fish in the Black River, girl. If the conditions are right, if the mist is low on the water and if it's not too windy, you can see them down there."
 
