@@ -34,3 +34,5 @@ She flipped a couple pages and stopped and looked at me and smiled really big an
 
 Now I’m stuck in what seems like a hospital room and I’ve tried to leave but they always get me back.
 I have no idea where I am or what this is and I want help. They are very adamant that I stay where I am. I want help and need out. Please help me. Please
+
+Edit: don’t worry guys they are taking very good care of me and they assure me I’ll be out in no time (:
