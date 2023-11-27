@@ -30,20 +30,20 @@ The email Mr. Cohen had sent me was honestly peculiar. He started off with the u
 
 &#x200B;
 
-1. Don’t open the front door to the library after 12:00 a.m. If either me or Peter wish to enter, we’ll knock three times on the back door. Or we'll use the key. Don't make copies of the key we give you. 
+1. Don’t open the front door to the library after 12:00 a.m. If either me or Peter wish to enter, we’ll knock three times on the back door. Or we'll use the key. Don't make copies of the key we give you.
 2. Carry a small stick, or a rock at all times.
-3.  If you see food lying on the main desk, it is safe to eat and we’ve probably left it for you. Eat it within the first hour, or don’t eat it at all. 
-4. If you hear footsteps, you hear nothing. Do not acknowledge it. 
-5. The red register should stay open the entire night. 
-6.  When someone calls on the main desk phone, the tiny light will blink red. If something calls, it will not light. Do not pick up. 
-7.  The stairs seem to move sometimes. Always test if they're real by throwing the rock on the third step–gently let it fall from your hands. 
-8. No one visits at night. If you hear a familiar voice, or even a desperate one, do not let it in. No matter the cost. 
-9.  Do not trust the texts. Any texts or phone calls you get while working the night shift are not to be trusted. 
-10. You will work with one other person. If you hear laughter from behind you or feel someone’s eyes on you, do not acknowledge it. Call for them. Should they respond anything at all, shut your eyes. If they come in front of you and grip your arms, you are safe. Stay near them the entire night. DO NOT LEAVE THEIR SIDE. 
-11.  There should be no loose threads in any of the bookshelves. If you find one, leave a sticky note for us at the end of your shift with the exact shelf number, section, and a weird anecdote about your life. 
-12.  Stay. Away. From. Anything. Rotten. Floorboards, shelves, heck even the smell coming from the bathroom. Stay away. Stick to the main desk area. 
-13.  If your partner smiles a bit too much in the first five minutes, understand that they are in danger and thus, so are you. Drag them under the main desk and switch off your torchlights. The lights may flicker, but you will be safe. Do not look up. 
-14. Switch off the lights before or at 12:00 a.m. You can sleep, but make sure to sleep in your chairs or under the desk. 
+3. If you see food lying on the main desk, it is safe to eat and we’ve probably left it for you. Eat it within the first hour, or don’t eat it at all.
+4. If you hear footsteps, you hear nothing. Do not acknowledge it.
+5. The red register should stay open the entire night.
+6. When someone calls on the main desk phone, the tiny light will blink red. If something calls, it will not light. Do not pick up.
+7. The stairs seem to move sometimes. Always test if they're real by throwing the rock on the third step–gently let it fall from your hands.
+8. No one visits at night. If you hear a familiar voice, or even a desperate one, do not let it in. No matter the cost.
+9. Do not trust the texts. Any texts or phone calls you get while working the night shift are not to be trusted.
+10. You will work with one other person. If you hear laughter from behind you or feel someone’s eyes on you, do not acknowledge it. Call for them. Should they respond anything at all, shut your eyes. If they come in front of you and grip your arms, you are safe. Stay near them the entire night. DO NOT LEAVE THEIR SIDE.
+11. There should be no loose threads in any of the bookshelves. If you find one, leave a sticky note for us at the end of your shift with the exact shelf number, section, and a weird anecdote about your life.
+12. Stay. Away. From. Anything. Rotten. Floorboards, shelves, heck even the smell coming from the bathroom. Stay away. Stick to the main desk area.
+13. If your partner smiles a bit too much in the first five minutes, understand that they are in danger and thus, so are you. Drag them under the main desk and switch off your torchlights. The lights may flicker, but you will be safe. Do not look up.
+14. Switch off the lights before or at 12:00 a.m. You can sleep, but make sure to sleep in your chairs or under the desk.
 15. Bright lights freak them out. Keep the lamp on a low setting, at all times.
 
 There were almost 30+ rules there, but I had to stop reading. They freaked me out. Low setting? Flickering lights? And what in Stephen Hawking’s seven circles of hell did he mean by laughter? It had to be a joke.
@@ -98,7 +98,7 @@ I shrugged the coat on, the ends heavy and poufy and trailing after me. “You c
 
 He was interrupted by a slow, deliberate clap. I turned around to see a boy in a similar black coat, all buttoned up. He had charcoal eyes that no doubt matched his disgusting soul. I disliked him from the get-go.
 
-“Simon, Simon, Simon. Another newbie? Really?” He laughed, a sharp, derisive sound. He gave me a once-over and my skin prickled under the weight of his gaze. “How long will she last? Fifteen minutes?”
+“Simon, Simon, Simon. Another newbie? Really?” He laughed, a sharp, derisive sound. He gave me a once-over and my skin prickled under the weight of his gaze. “How long will he last? Fifteen minutes?”
 
 Mr. Cohen frowned disapprovingly as we moved to the front desk. “Stop it, Joshua. Let the girl breathe.”
 
@@ -132,4 +132,4 @@ I pull up my phone and see a dozen texts, all from Mr. Cohen. They change before
 
 I am shaking. I feel like throwing up. All I can think of right now as I update this draft, as I type as fast as I can, knowing, feeling, that I’m going to die–all I can think of is my mother patting me on the head as a 5 year old. I’m thinking of the state of delirious joy I was in this morning, thinking I had an easy job before reading the email.
 
-I can hear footsteps behind me. I feel like calling opening the door would solve my issues, would take away my fear. God, save me.
+I can hear footsteps behind me. I feel like opening the door would solve my issues, would take away my fear. God, save me.
