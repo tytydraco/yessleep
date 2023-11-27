@@ -47,7 +47,7 @@ I put my hand on his mouth to shush him and whisper-screamed into his ear, “Sh
 “Well what happens to the people who don’t hide?... Nathan looked really traumatized.”
 
   
-“I shook my head. You will most likely experience that in the next couple of weeks while I train you. He comes around every few weeks to torment us. When that happens, do what I say and everything will be fine.” I didn’t know if Henry was actually listening to me or just pretending to. Like I said, most people don’t last here. Many of them leave voluntarily. The rest of them? Well…they are in the news as a missing person case. I know what happened to a few of them. The other’s…I have my suspicions…
+“I shook my head. You will most likely experience that in the next couple of weeks while I train you. He comes around every few weeks to torment us. When that happens, do what I say and everything will be fine.” I didn’t know if Henry was actually listening to me or just pretending to. Like I said, most people don’t last here. Many of them leave voluntarily. The rest of them? Well…they tend to just go missing. But they never end up in the news or on the missing persons registry. I know what happened to a few of them. The other’s…I have my suspicions…
 
   
 The rest of the night went off without a hitch. I hope to see Henry tomorrow. I could see him becoming a good addition to the team. But a part of me doesn’t want to see him again because I don’t want anything to happen to him.
