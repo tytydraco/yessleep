@@ -56,7 +56,7 @@ She offered me some.
 
 &#x200B;
 
-“Wait, I never told you that. How do you know about that?”
+"Wait, how do you know about that? I never told you.”
 
 &#x200B;
 
@@ -98,7 +98,7 @@ She offered me some.
 
 &#x200B;
 
-She extended the joint to me. I was hesitant at first, then accepted it and took a drag. I damn near coughed up a  lung much to the amusement of  Stella. Eventually, I got the hang of it.
+She extended the joint to me. I was hesitant at first, then accepted it and took a drag. I damn near coughed up a lung much to the amusement of  Stella. Eventually, I got the hang of it.
 
 &#x200B;
 
