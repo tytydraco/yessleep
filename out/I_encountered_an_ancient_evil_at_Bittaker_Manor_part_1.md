@@ -174,7 +174,7 @@ Her stomach had been cut wide open, and her intestines hung down, uncoiling from
 
 “Run, baby,” she gurgled through a mouthful of blood that overflowed from her mouth and dripped onto the floor far below her. Her head drooped. Yet her eyes continued to stare intently at Alexander. “Run.”
 
-The shadow creatures stopped all at once, and though they had no eyes, he felt their gazes turning to look at him. Dozens of them glistened like an obsidian void, and the sharp claws on their fingers looked as sharp as broken glass.
+The shadow creatures stopped all at once, and though they had no eyes, he felt their gazes turning to look at him. Dozens of them glistened like an obsidian void, and the claws on their fingers looked as sharp as broken glass.
 
 So he ran out the door as if demons from Hell were chasing him- which, perhaps, they were. He felt cold, spongy hands grabbing at him, and claws raked his back, slicing deep into his clothes and skin.
 
