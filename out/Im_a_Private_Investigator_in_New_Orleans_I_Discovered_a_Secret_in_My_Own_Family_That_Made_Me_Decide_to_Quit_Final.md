@@ -180,7 +180,7 @@ Just then, the sound of the cabin door creaking open breaks the moment. Kira's c
 
 Kira's hand finds mine, her grip tight with urgency. "Please, Anh," she pleads, her eyes imploring, "don't tell them what really happened to their father. They shouldn't have to live with that."
 
-Kira's request echoes in my ears, a plea for decency for someone who didn’t deserve it. Her hand in mine is a tether to a reality that feels both distant and painfully immediate. I look into her eyes, seeing the depth of her pain and fear, the desperate hope for a shred of normalcy for her children.
+Kira's request echoes in my ears, a plea for decency for someone who doesn’t deserve it. Her hand in mine is a tether to a reality that feels both distant and painfully immediate. I look into her eyes, seeing the depth of her pain and fear, the desperate hope for a shred of normalcy for her children.
 
 I look at Theo and Mia. Their laughter, their unburdened smiles, they remind me of what we fought for, of the innocence that needs protection in this often cruel and unforgiving world.
 
