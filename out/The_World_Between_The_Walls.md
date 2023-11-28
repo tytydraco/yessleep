@@ -87,3 +87,5 @@ Stupid dress code! I mentally cursed, giving the high heels a hate filled glance
 The makeshift soda can stove has almost exhausted the bits of wood, fibers and oil I’ve been using as a fuel source, and my first meal in nearly three days is steaming hot. So I’ll continue my recollection later, after I’ve eaten, and shared what little there is with my companion, and perhaps risk a few hours of uneasy rest, grateful for the windowless supply closet we’ve managed to squeeze ourselves into.
 
 Assuming in the days to come I can yet again find a location that grants me a faint signal on my phone, I’ll check my messages and continue with another update, darkness willing.
+
+**Entry #2 of ?:** [https://www.reddit.com/r/nosleep/comments/185rxe7/the\_world\_between\_the\_walls\_entry\_2\_of/](https://www.reddit.com/r/nosleep/comments/185rxe7/the_world_between_the_walls_entry_2_of/)
