@@ -1,21 +1,21 @@
-We heard the warnings in the news.
-
-The anchor delivered the news with piercing eyes and a dramatic voice. He did a great job of expressing the severity of the situation. There was a malfunction in the nearby prison security system, which we know now is largely due to the prison warden's attempts to be more eco-friendly. Batteries die and solar panels suck in states where there are more clouds than sunlight.
-
-We weren’t the only ones who chose to stay home and wait it out. There were a few families who simply had nowhere to go. Some would rather die than leave home - their names you might have seen briefly in the news. We bought some food in excess and boarded up windows and doors, the same stuff we all see in movies. Only, we didn’t have any guns - my girlfriend, Lucy, hated them. She is a firm believer in gun-control.
-
-The orange jumpsuits had fled into the forest and left in every direction. Being the closest town, it made sense to pack up and leave, but as I said, not everybody thought so. With a total of seventeen escapees running in every direction, there would be about five, at most, hitting the town. All of this was theory, of course, but our false confidence established this theory as fact in our minds.
-
-Let them come, the police would stop them before they reached us.
-
-Yes, with hindsight, we were idiots. I’ve thought up several excuses for what we did, from simply having never experienced any real crime to thinking we never would. At the end of the day, we were still fools for staying. We realized it when we heard voices outside our home that night.
-
-Lucy became stiff as if shocked by a jolt of electricity. At some point, it was like a constant current was running through her as she started moving around so fast and shaking like a leaf. I was no better. I couldn’t figure out which side of the house the voices were coming from, my first idea being that we leave the house and make a run for the car. Another dumb move we luckily didn’t make.
-
-Instead, we took advantage of the crawl space beneath our floor. It wasn’t a protected basement or a bunker, but it was something. We had the hatch beneath the carpet in our living room. The handle was removed, so I had to use a screwdriver to pry it open. Together, we put our fingers beneath the lip and lifted it. It was heavier than it looked, but the wood floor was old and thick, so it made sense.
-
-Lucy crawled under their first, taking a bag of food and a few water bottles with her. I followed after, draping the carpet on top of the hatch and lowering it carefully. I didn’t want the carpet to bunch up anywhere. With a thud, the hatch was in place and I was crawling along the dusty ground to the still form of my Lucy.
-
+We heard the warnings in the news.  
+  
+The anchor delivered the news with piercing eyes and a dramatic voice. He did a great job of expressing the severity of the situation. There was a malfunction in the nearby prison security system, which we know now is largely due to the prison warden's attempts to be more eco-friendly. Batteries die and solar panels suck in states where there are more clouds than sunlight.  
+  
+We weren’t the only ones who chose to stay home and wait it out. There were a few families who simply had nowhere to go. Some would rather die than leave home - their names you might have seen briefly in the news. We bought some food in excess and boarded up windows and doors, the same stuff we all see in movies. Only, we didn’t have any guns - my girlfriend, Lucy, hated them. She is a firm believer in gun control.  
+  
+The orange jumpsuits had fled into the forest and left in every direction. Being the closest town, it made sense to pack up and leave, but as I said, not everybody thought so. With a total of seventeen escapees running in every direction, there would be about five hitting the town at most. All of this was theory, of course, but our false confidence established this theory as fact in our minds.  
+  
+Let them come, the police would stop them before they reached us.  
+  
+Yes, with hindsight, we were idiots. I’ve thought up several excuses for what we did, from simply having never experienced any real crime to thinking we never would. At the end of the day, we were still fools for staying. We realized it when we heard voices outside our home that night.  
+  
+Lucy became stiff as if shocked by a jolt of electricity. At some point, it was like a constant current was running through her as she started moving around so fast and shaking like a leaf. I was no better. I couldn’t figure out which side of the house the voices were coming from, my first idea being that we leave the house and make a run for the car. Another dumb move we luckily didn’t make.  
+  
+Instead, we took advantage of the crawl space beneath our floor. It wasn’t a protected basement or a bunker, but it was something. We had the hatch beneath the carpet in our living room. The handle was removed, so I had to use a screwdriver to pry it open. Together, we put our fingers beneath the lip and lifted it. It was heavier than it looked, but the wood floor was old and thick, so it made sense.  
+  
+Lucy crawled under their first, taking a bag of food and a few water bottles with her. I followed after, draping the carpet on top of the hatch and lowering it carefully. I didn’t want the carpet to bunch up anywhere. With a thud, the hatch was in place and I was crawling along the dusty ground to the still form of my Lucy.  
+  
 The front door was bashed in by the time I reached her. She took my hand in hers and I held it as the door finally gave way. Crappy nails and a few planks didn’t offer much in the way of security.  
   
 We were terrified. We knew we were in a vulnerable position, one we didn’t know how long we had to be in before help found us - if it ever did. That was the start of our torture.  
@@ -112,6 +112,7 @@ The two ran towards the part of the room where the hatch was located. We were fr
   
 The light faded and darkness returned.  
   
+  
 Lucy and I were found by the police much later. We were asleep when they did, still holding onto each other. We wouldn’t wake up, no matter how much they prodded us and yelled. Eventually, they thought something was wrong and with the help of paramedics, they pulled us out of the crawlspace.  
   
 We finally woke up in the back of an ambulance before it ever left, oxygen masks attached to our faces. After removing them, they gave us a once-over before concluding we were in good health. The police started to talk with us next and we told them as much as we could remember. It seemed our information wasn’t that useful, as there wasn’t an escaped prisoner named Samuel and neither of us had seen the orange clothes of the prisoners.  
@@ -122,4 +123,4 @@ While driving through the town, the police saw the door was open. Deciding to in
   
 And yes, people closer to us have questioned our sanity, not just cops who needed concrete proof to believe anything. Lucy and I still get angry about it to this day, having those who love us occasionally look at us as if we are crazy.  
   
-We talk about it sometimes. We write down what we experienced, and read it over, but it only raises more questions than it answers. What was the initiation all about? How did they know where we were hiding? What happened after? And why…[why did they have to choose our house?](https://www.reddit.com/user/theAURORAfiles)
+We talk about it sometimes. We write down what we experienced, and read it over, but it only raises more questions than it answers. What was the initiation all about? How did they know where we were hiding? What happened after? And why…[why did they have to choose our house?](https://www.reddit.com/user/theAURORAfiles)  
