@@ -86,7 +86,7 @@ She took another good look at my face and visibly winced. “Jesus, you'll give 
 
 “Right.” I could still feel the blood leaking out of my nose. Before any more could hit the tile, I scrambled to grab some paper towels and disinfectant from the closet. (A closet that I was allowed to go in. Obviously.)
 
-Later that day, when I had shown up to my second job with bloody paper towel scrunched against my face, Jason and Penny had shepherded me back into my car and demanded that I go to urgent care. And when the nurses at urgent care asked how I broke my nose, I told them exactly what I told Jada: I fell. No one had pushed me. No one could have.
+Later that day, when I had shown up to my second job with bloody paper towel scrunched against my face, Jason and Penny had shepherded me back into my car and demanded that I go to urgent care. And when the nurses at urgent care asked how I'd broken my nose, I told them exactly what I told Jada: I fell. No one had pushed me. No one could have.
 
 \_\_\_\_\_\_\_\_\_\_
 
