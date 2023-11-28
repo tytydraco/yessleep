@@ -26,7 +26,11 @@ Using the crowd to our advantage, we exit the car and meander towards Lockhart's
 
 As Reine is about to attach the tracker, a voice calls out from behind us, startling both of us.
 
-As we approach Lockhart's car, I feel the tension in Reine's grip on my arm. Every step is calculated, her eyes constantly scanning for an opening. The tracker is subtly palmed in her hand, ready for the opportune moment.But just as Reine is about to make her move, a voice calls out from behind us. "Excuse me, miss?"We both freeze. Turning around, we see Lockhart standing a few steps away, an unreadable expression on her face. She's holding an indigo scarf in her hand, extending it towards Reine. "I believe you dropped this."
+As we approach Lockhart's car, I feel the tension in Reine's grip on my arm. Every step is calculated, her eyes constantly scanning for an opening. The tracker is subtly palmed in her hand, ready for the opportune moment.
+
+But just as Reine is about to make her move, a voice calls out from behind us. "Excuse me, miss?"
+
+We both freeze. Turning around, we see Lockhart standing a few steps away, an unreadable expression on her face. She's holding an indigo scarf in her hand, extending it towards Reine. "I believe you dropped this."
 
 Reine quickly regains her composure, a surprised and grateful smile flashing across her face. “Oh, my God! Thank you so much!” Reine quickly replies, feigning a thick New York accent, her voice filled with exaggerated gratitude. “I’d hate to come back from vacation and find out I lost it!”
 
@@ -34,7 +38,11 @@ As she reaches out to take the scarf, her fingers deftly slide the tracker back 
 
 I quickly catch on, and chiming in, I add, “Thanks, ma’am. Always losin’ something, this one. Can't take her anywhere!” My voice is thick with the Bronx twang, striving to mask any recognizable traits of my true voice.
 
-"You're welcome," Lockhart replies, her voice as smooth as silk. "Be more careful next time. It's a beautiful piece."Reine nods, wrapping the scarf around her neck. "I certainly will. Thank you again."Lockhart gives us a curt nod before turning back towards her car. As we watch the car disappear into the distance, the weight of the moment pressing heavily upon us.
+"You're welcome," Lockhart replies, her voice as smooth as silk. "Be more careful next time. It's a beautiful piece."
+
+Reine nods, wrapping the scarf around her neck. "I certainly will. Thank you again."
+
+Lockhart gives us a curt nod before turning back towards her car. As we watch the car disappear into the distance, the weight of the moment pressing heavily upon us.
 
 Despite failing to plant the tracker, we breath a sigh of relief knowing we didn't raise Lockhart's suspicions. Sometimes, in the shadowy world of private investigation, an unnoticed failure is the next best thing to a quiet victory.
 
@@ -127,5 +135,9 @@ The air is thick with a sensation that's hard to describe – a mix of dread, so
 [Part 4](https://www.reddit.com/r/nosleep/comments/17qk25h/im_a_private_investigator_in_new_orleans_i/)
 
 [Part 5](https://www.reddit.com/r/nosleep/comments/17v3n58/im_a_private_investigator_in_new_orleans_i/)
+
+[Part 6](https://www.reddit.com/r/PageTurner627Horror/comments/182g5ce/im_a_private_investigator_in_new_orleans_i/)
+
+[Part 7](https://www.reddit.com/r/nosleep/comments/183vo1o/im_a_private_investigator_in_new_orleans_i/)
 
 [X](https://www.reddit.com/r/PageTurner627Horror/)
