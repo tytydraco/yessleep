@@ -120,27 +120,27 @@ Reine looks at me with wide eyes, aware of the gravity of the situation. "What a
 
 I hand one of the earbuds to Reine, and she hastily inserts it into her ear. We can just make out snippets of the conversation inside the diner. The audio is not perfect, the ambient noise from the street making it harder to discern the words, but we hold our breath, straining to listen.
 
-A crystal-clear voice breaks through the ambient noise. “... Dr. Le, I trust the preparations for the Void Whisperer are on schedule?” The woman’s tone is refined, with a clipped British accent, a stark contrast to the rustic diner setting.
+A crystal-clear voice breaks through the ambient noise. “... Ms. Lockhart, I trust the preparations for the Void Whisperer are on schedule?” Xuan's muffled voice comes through.
 
-Xuan’s response comes through muffled, “Yes, Ms. Lockhart. Everything is prepared. In two days, the world will know of Lửa Đen.”
+The woman’s tone is refined, with a clipped British accent, a stark contrast to the rustic diner setting. “Yes, Dr. Xuan. Everything is prepared. In two days, the world will know of Lửa Đen.”
 
 My mind races at the mention of the ominous name, Lửa Đen, the Black Fire. What is Xuan getting himself into? What is the Void Whisperer?
 
 Both Reine and I lean in, as if physically getting closer would somehow make the fractured conversation clearer through the earpiece. The woman's voice is calm, but there's a steely undertone that sends shivers down my spine.
 
-"... His flames will bathe the world in darkness and from the ashes, a new era will rise…" Ms. Lockhart's words come through the earpiece, a mix of fervor and devotion in her voice.
+"... His flames will bathe the world in darkness and from the ashes, a new era will rise…" Xuan's words come through the earpiece, a mix of fervor and devotion in her voice.
 
 Reine and I exchange worried glances. "Is this some kind of a cult?" she whispers, her voice quivering. The concern in her eyes mirrors my own.
 
 The conversation continues, fragments of words and phrases filtering through the static interference of the earpiece. Xuan's voice comes through again, sounding almost distorted and unsettlingly distant.
 
-“...I-I’m not sure,” Xuan's voice trembles through the earpiece, the uncertainty clear. “Is there no other way?”
+“...I-I’m not sure,” Lockhart's voice trembles through the earpiece, the uncertainty clear. “Is there no other way?”
 
-“There is no room for doubt, brother. We are the harbingers of a new eon. Each one of us must be willing to sacrifice everything on the altar of the Dark Flame.” She urges, her tone chillingly gentle.
+“There is no room for doubt, sister. We are the harbingers of a new eon. Each one of us must be willing to sacrifice everything on the altar of the Dark Flame.” Xuan urges, his tone chillingly gentle.
 
 "Sacrifice?" Reine mouths silently to me, a line of worry etching her features. The questions multiply in my mind, each one more disturbing than the last.
 
-There's a pause, and the muffled sound of Xuan's deep, shuddering breath filters through the ambient noise. “I understand, Ms. Lockhart,” he concedes, a hint of despair in his voice. “Nothing can stand in our way. I apologize for my moment of doubt.”
+There's a pause, and the muffled sound of Xuan's deep, shuddering breath filters through the ambient noise. “I understand, Dr. le,” she concedes, a hint of despair in her voice. “Nothing can stand in our way. I apologize for my moment of doubt.”
 
 The conversation between Xuan and Lockhart continues, but their words become harder to discern. They talk in hushed tones, whispering about arrangements, people in place, and a device capable of breaching barriers beyond human comprehension. It’s a puzzle, each piece more intricate and confusing than the last.
 
@@ -161,5 +161,11 @@ But we know differently. We stumbled into a web far more intricate and dangerous
 [Part 3](https://www.reddit.com/r/nosleep/comments/170lx9b/im_a_private_investigator_in_new_orleans_i/)
 
 [Part 4](https://www.reddit.com/r/nosleep/comments/17qk25h/im_a_private_investigator_in_new_orleans_i/)
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/17v3n58/im_a_private_investigator_in_new_orleans_i/)
+
+[Part 6](https://www.reddit.com/r/nosleep/comments/180ei63/im_a_private_investigator_in_new_orleans_i/)
+
+[Part 7](https://www.reddit.com/r/nosleep/comments/183vo1o/im_a_private_investigator_in_new_orleans_i/)
 
 [X](https://www.reddit.com/r/PageTurner627Horror/)

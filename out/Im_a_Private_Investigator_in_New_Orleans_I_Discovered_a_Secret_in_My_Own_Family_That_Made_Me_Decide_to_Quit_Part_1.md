@@ -366,4 +366,6 @@ As we walk back towards the laughter and light of the living room, Kira's gaze f
 
 [Part 6](https://www.reddit.com/r/nosleep/comments/180ei63/im_a_private_investigator_in_new_orleans_i/)
 
+[Part 7](https://www.reddit.com/r/nosleep/comments/183vo1o/im_a_private_investigator_in_new_orleans_i/)
+
 [X](https://www.reddit.com/r/PageTurner627Horror/)
