@@ -6,11 +6,11 @@ By the time dad stumbled home from the bar a little after two in the morning, th
 
 My father screamed toward us and shouted obscenities. At some point, luckily, he must have realized we were only *witnesses* to something horrible, and he turned his rage on the cops.
 
-They held my father back, and he stumbled as he tried to fight past them. You could tell he wasn’t quite there–something in his eyes told you–but he was still straining to get to us. Soon, he was berating them for questioning minors without an adult present, shouting about Miranda rights and attorneys not being present. 
+They held my father back, and he stumbled as he tried to fight past them. You could tell he wasn’t quite there–something in his eyes told you–but he was still straining to get to us. Soon, he was berating them for questioning minors without an adult present, shouting about Miranda rights and attorneys not being present.
 
 My father certainly had never been to law school, only made it through a year of junior college. But something he said must have clicked, because before too long they stopped asking questions.
 
-Dad rushed past us, hugging us close, and for once I wasn’t afraid of him, even though his breath and his gray beard stunk of Coors Lite. 
+Dad rushed past us, hugging us close, and for once I wasn’t afraid of him, even though his breath and his gray beard stunk of Coors Lite.
 
 “We’ll be okay,” he said as the cops exited our porch. “You’ll be okay. Did he say anything to you? Mr. Bowler, I mean?”
 
@@ -18,17 +18,17 @@ Jordan gave me a hard look as I fingered the coin in my pocket.
 
 “Nothing,” I said. “By the time we got to him, he was past the point of talking.”
 
-I looked past my father at the police, who had gathered on the street. It wasn’t just our local cops, I realized. There were Sheriff’s deputies too, a whole lot of them. One pointed past the back field and over to the forest beyond, where I could see half a dozen flashlights sweeping the darkness. Someone far away was shouting. All the cops were on their walkie-talkies, talking in hushed voices. 
+I looked past my father at the police, who had gathered on the street. It wasn’t just our local cops, I realized. There were Sheriff’s deputies too, a whole lot of them. One pointed past the back field and over to the forest beyond, where I could see half a dozen flashlights sweeping the darkness. Someone far away was shouting. All the cops were on their walkie-talkies, talking in hushed voices.
 
 “They found another one,” my brother whispered. “Another body.”
 
-He was right. 
+He was right.
 
-By the end of the night, including Mr. Bowler, they’d find a total of four. 
+By the end of the night, including Mr. Bowler, they’d find a total of four.
 
-Of course, there were all kinds of rumors about the people that died that night. The murdered men were all good friends. Well, apparently not that good of friends. They’d all come armed when they arrived at the forest that night, meeting close to the Mitchell Well, which stood at the end of an abandoned road a half mile into the woods. 
+Of course, there were all kinds of rumors about the people that died that night. The murdered men were all good friends. Well, apparently not that good of friends. They’d all come armed when they arrived at the forest that night, meeting close to the Mitchell Well, which stood at the end of an abandoned road a half mile into the woods.
 
-Of course, that was only the official name of it. Every kid in town knew its real name: the Deathwish Well. 
+Of course, that was only the official name of it. Every kid in town knew its real name: the Deathwish Well.
 
 The dead men had lived in town all their lives. Gene Bowler ran the car dealership. Travis Willing was a successful realtor. Bill Knobbs managed a construction company that built the new mall over in Medford. Doug Reddy had grown a regional empire of fifty-eight sandwich shops.
 
@@ -48,11 +48,11 @@ I wish I could say that I didn’t know what he was talking about. But I did. Ev
 
 “No idea what you’re talking about,” I told him.
 
-He haucked up something yellow and spit onto the road. 
+He haucked up something yellow and spit onto the road.
 
 “Whatever,” he said. “I was mostly telling you as a favor. I’m heading in with or without you.”
 
-I looked to my right, out at the treeline. Half a mile in, the Well waited. I’d never been to it myself, but a lot of the older boys had, my brother included. Visiting it at night was kind of a rite of passage, the culmination of a hundred different games of Truth or Dare. 
+I looked to my right, out at the treeline. Half a mile in, the Well waited. I’d never been to it myself, but a lot of the older boys had, my brother included. Visiting it at night was kind of a rite of passage, the culmination of a hundred different games of Truth or Dare.
 
 “Last chance,” he said, but I shook my head. We had reached the old dirt road that veered off into the forest toward the well. Time and rain had carved the road with scars deep enough that even an F250 with four-wheel drive couldn’t get far into the woods, but it was easy on foot, or so people said.
 
@@ -90,7 +90,7 @@ My dad laughed.
 
 “Yeah,” I said.
 
-We waited in silence for a few seconds after that. Callum still hadn’t reappeared, and it had gotten long enough that I was starting to worry. Black bears walked through that field from time to time, not to mention mountain lions. 
+We waited in silence for a few seconds after that. Callum still hadn’t reappeared, and it had gotten long enough that I was starting to worry. Black bears walked through that field from time to time, not to mention mountain lions.
 
 “Should I go check on him?” I asked, but my father shook me off.
 
@@ -98,13 +98,13 @@ We waited in silence for a few seconds after that. Callum still hadn’t reappea
 
 I didn’t say another word. My father’s drink was almost empty. When it was gone, he’d be angry in a way he wouldn’t understand, and he’d be looking for someone to blame. I was already planning  my next moves. I’d make some ramen for everyone and get the bath running for Callum. I’d make sure the TV was on. I was pretty sure the Blazers had a game starting at 5:30, hopefully against a team they’d spank. Close games were dangerous at our house, even if we were winning.
 
-My father finished his last sip. 
+My father finished his last sip.
 
 Too much time had passed. I imagined a mountain lion pouncing, the sharp turn of Callum’s neck as the animal’s jaws bit through his pale skin. Blood everywhere, just like there’s been the other night when Mr. Bowler bled to death in front of me.
 
-And then his little hand popped up, the green ball clutched triumphantly in his small fingers. 
+And then his little hand popped up, the green ball clutched triumphantly in his small fingers.
 
-Jordan got home a couple of hours later. By then, Callum was asleep and dad was sitting on the couch, ranting about bad refs and the Fucking Lakers. 
+Jordan got home a couple of hours later. By then, Callum was asleep and dad was sitting on the couch, ranting about bad refs and the Fucking Lakers.
 
 “Where you been?” my dad asked as Jordan took off his coat.
 
@@ -126,13 +126,13 @@ Under his breath, so that dad couldn’t hear, Jordan whispered, *“One for a t
 
 My father leaned deeper into the cabinet, and as he did, a cold draft filled the room. Then, all of a sudden it was almost as if my father’s feet were lifted into the air by some unseen hand. He topped forward into the panty, bottles and bags clanging all around, jars shattering to pieces at his feet.
 
-In his drunkenness, my father tried to get up to his feet, and as he did one of his bare feet landed directly in the thick, broken shards of a jar of olives, the glass burying itself an inch or more into the flesh. My father screamed and screamed, crawling toward us, trailing blood behind him as he came. 
+In his drunkenness, my father tried to get up to his feet, and as he did one of his bare feet landed directly in the thick, broken shards of a jar of olives, the glass burying itself an inch or more into the flesh. My father screamed and screamed, crawling toward us, trailing blood behind him as he came.
 
 For a moment, I just stood there paralyzed, not knowing quite what to do. And when I looked over at Jordan, I saw that he hadn’t quite succeeded in suppressing a smile.
 
 Later, in the dark of our bedroom, I asked Jordan what he’d done.
 
-“I made my wish,” he said. 
+“I made my wish,” he said.
 
 “You wished for dad to cut up his feet?”
 
@@ -146,7 +146,7 @@ I was still trying to have it all make sense in my mind. Had something really li
 
 “So you can only wish for bad stuff?”
 
-He shrugged. 
+He shrugged.
 
 “I don’t know. I just got there, to the well I mean. And I had this like… this urge to throw my coin in. So I did. Then I sat there like an idiot for a minute or two. I was about to turn around and head home but then I swear I heard something. Like breath. From way deep down in the well. And it said it needed a name.”
 
@@ -164,11 +164,11 @@ I reached into my pocket and felt the coin. Even for metal it was surprisingly c
 
 Jordan smiled. “Worth it,” he said.
 
-Late that night, the first big storm of winter hit. Rain pelted the house sideways, and the wind knocked the bare branches of the maples against our windows. At some point, half asleep, I looked out as lightning flashed across the sky and saw the head of a massive elk staring in at me, inches from the window glass. 
+Late that night, the first big storm of winter hit. Rain pelted the house sideways, and the wind knocked the bare branches of the maples against our windows. At some point, half asleep, I looked out as lightning flashed across the sky and saw the head of a massive elk staring in at me, inches from the window glass.
 
 I knew what I’d seen couldn’t exist. After all, we were on the second story, and elk didn’t climb trees. Still, I took a step toward the window, waiting for another flash to illuminate the dark. Then, all at once, the wind gusted harder than ever and the windows blew open.
 
-I took a step back now. Though everything was dark, I was keenly aware of something in the room with me. A rank, animal smell filled the room, and I heard the unmistakable sound of footsteps on the hardwood floor. I took another step back and fell into my bed. 
+I took a step back now. Though everything was dark, I was keenly aware of something in the room with me. A rank, animal smell filled the room, and I heard the unmistakable sound of footsteps on the hardwood floor. I took another step back and fell into my bed.
 
 The footsteps continued across the room, over toward Jordan’s bed. Somehow, he was still dead asleep. It had grown deathly cold. I wanted to shout out to my sleeping brother, to wake him, but I feared any sound I made would startle whatever thing was in the room with us.
 
@@ -192,10 +192,12 @@ We didn’t talk about what had happened until we left for school the next day. 
 
 *Four for a kill.”*
 
-“That was just a trick,” he said. “But if we both use our coins together… or find a couple more of them…” 
+“That was just a trick,” he said. “But if we both use our coins together… or find a couple more of them…”
 
 “No,” I started. “What would we even do with two? I mean, dad already got really hurt.”
 
 “Right,” Jordan said. “You’re right. Forget about it. We’ll both forget about it.”
 
 [But of course, we both knew he was lying.](https://www.reddit.com/r/scarymaxx/comments/zwo5o8/welcome_to_the_world_of_scarymaxx/)
+
+[Update!](https://www.reddit.com/r/nosleep/comments/1862cd4/we_got_coins_for_the_deathwish_well_my_brother/)

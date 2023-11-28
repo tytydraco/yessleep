@@ -38,7 +38,7 @@ Her eyes were the color of honey and the dark makeup that lined them made her lo
 
 “Good,” she said and pointed to her flat.
 
-We stepped inside a spartan living room. That surprised me, I’d thought that someone like her would have a much more decorated dwelling. I had a cup of tea and I stumbled through a nerve-fueled casual talk before Aubrey asked me if I wanted to head upstairs. The time for chitchat was over, I strode towards her and took her hand as she led me to her room. Once again eerily barren except for a bed and a nightstand, but I quickly overlooked it as Noami unwrapped herself from her coat. Her shirt had a deep v-shaped neckline that caused something deep within the pit of my stomach to stir.
+We stepped inside a spartan living room. That surprised me, I’d thought that someone like her would have a much more decorated dwelling. I had a cup of tea and I stumbled through a nerve-fueled casual talk before Aubrey asked me if I wanted to head upstairs. The time for chitchat was over, I strode towards her and took her hand as she led me to her room. Once again eerily barren except for a bed and a nightstand, but I quickly overlooked it as Aubrey unwrapped herself from her coat. Her shirt had a deep v-shaped neckline that caused something deep within the pit of my stomach to stir.
 
 “Nervous? Don’t be, I’ll show you the ropes,” she said.
 
