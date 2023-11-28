@@ -187,3 +187,7 @@ And as a little boy, crying and traumatized and covered in urine, he went to the
 &#x200B;
 
 &#x200B;
+
+Part 2
+
+https://www.reddit.com/r/nosleep/comments/185ykt2/i_encountered_an_ancient_evil_at_bittaker_manor/
