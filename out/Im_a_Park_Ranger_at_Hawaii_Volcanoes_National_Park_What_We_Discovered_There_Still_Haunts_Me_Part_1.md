@@ -1,4 +1,4 @@
-As the first light of dawn touches the rugged landscape of Hawai'i Volcanoes National Park, I stand among my fellow rangers, the [chill](https://www.reddit.com/r/nosleep/comments/14c93t1/im_an_arctic_researcher_we_accidentally_released/) of the morning mingling with a sense of anticipation.
+As the first light of dawn touches the rugged landscape of Hawai'i Volcanoes National Park, I stand among my fellow rangers at the base camp, the [chill](https://www.reddit.com/r/nosleep/comments/14c93t1/im_an_arctic_researcher_we_accidentally_released/) of the morning mingling with a sense of anticipation.
 
 My name's Koa. I’m a park ranger who's walked these [trails](https://www.reddit.com/r/nosleep/comments/174jp2m/im_a_cop_on_the_navajo_reservation_i_investigated/) and climbed these ridges more times than I can count. Today, though, the familiar terrain feels different, shadowed with uncertainty.
 
