@@ -100,6 +100,6 @@ Silence.
 
 “Where are the names of the people?” I asked while I pinched my nose from the putrid smell nearby 
 
-“Right over here , take a look!” She pointed at the bark of the tree , and sure enough , there were dozens upon dozens of names printed all over it , the list was so large that it led right to where the treehouse sat . I climbed up to keep reading the names until I found Andrew’s name carved into the top of the tree , and as I read the name that was carved just above his my heart sank . It was my name...
+“Right over here , take a look!” She pointed at the bark of the tree , and sure enough , there were dozens upon dozens of names printed all over it , the list was so large that it led right to where the treehouse sat . I climbed up to keep reading the names until I found Andrew’s name carved into the top of the tree , and as I read the name that was carved just above his , my heart sank . It was my name...
 
  [James Robinson](https://www.reddit.com/r/Dreadful_Nightss/)
