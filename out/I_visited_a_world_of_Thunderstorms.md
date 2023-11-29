@@ -1,0 +1,23 @@
+I raced blindly through the barren forest, the downpour of rain made it difficult to see any measurable distance ahead. A single flash of lightning, quickly followed by crashing thunder, revealed a dilapidated cabin ahead. I hurried my step, finally something to shield me from the angry sky. I approached the door with a modicum of trepidation but a mound of hope to finally be dry.
+
+There's no memory of how I got here, perhaps my previous life was naught but a dream and this world of thunderstorms and isolation was the reality. Not once had I spotted any other forms of life, though I had been here for three days. Well, what I assumed were three days as the night and crashing thunderstorm seemed never ending. I had slept fitfully with the rain falling atop me three separate times, my only way to even guess a semblance of passing time.
+
+Each time I slept, I hoped dearly to awaken back in the world I once believed was the truth. What I would give to again hear my kids screaming as they played and argued with one another. If I ever returned, I would never again complain about their incessant chatter. I think I might just revel in it.
+
+I smiled wistfully as I forcefully rammed my shoulder into the door to get it open. A bit of hope arose at finding the first appearance of shelter in all my time here. Perhaps in time I would also find other life forms and could gain understanding of the world I now resided in. For now, I cherished the thought of having a dry resting place. It required a heap of exhaustion in order to sleep with rain pelting down upon your face.
+
+A sneeze tore through me as I slammed my body against the door to force it closed. Already warmth had begun to course through me which caused my body to shiver more violently. Dread chilled my veins as I realized how close I had come to hypothermia. I remembered reading once, in my old life, that being naked was better than wearing wet clothing and began to remove the items one by one.
+
+They clung to my body as I peeled them off, and I glanced around the room for something to wring the water into. In the far corner was a small basin that looked sound enough to hold liquid and I carefully wrung everything a few times. Above the basin was a thin strand of wire attached to the walls and I hung my clothes upon it, completely filling the space available.
+
+There was little to explore in the cabin, but I checked that all entrances were secured. I feared being stumbled upon in my vulnerable state and quickly put my mind at ease. Though my stomach rumbled, the cabin contained nothing more than dust. I decided that if I slept in the nude then the water I had wrung in the basin would remove the dust from my body.
+
+I laid on the floor nearby the door so that if any were to enter, the door would bump into me and alert me to their presence. I fell asleep without realizing it and when I woke up I wondered what it was that awoke me. My eyes slowly adjusted to the dim glow in the room and eventually I was able to pick out shapes and objects flickering about.
+
+I shot up. I had finally found the life that lived in that accursed place, and I wanted nothing more than to get as far away as quickly as possible. I raced over to grab my clothes I had hung in the farthest corner. As I rushed past the sinister beings, one reached out and sliced at my arm, in fear I now believe. I cried out in pain and recoiled from the jagged figure. I decided I didn't need my bra.. in fact I only needed my shirt and pants.
+
+I rushed out onto the porch, yanking the door shut with all my weight behind me, then began to dress myself. I looked up as I finished while I aimed myself to run away and saw several more grotesque forms standing around. There would be no way to get past without getting close. Perhaps if I was fast enough I could pass by them unharmed, I took a deep breath and took off as quickly as I could.
+
+A cut on my shoulder, another on my leg, a final one landed on my cheek. I collapsed to the ground, panting with my vision fading. Three days with no food, improper sleep, and now deep slashes finally took its toll on me. The darkness closed in around my vision as the swarm closed in around me.
+
+“Bubba, stop! That's not your drink, this is your drink,” I heard my daughter calling out from the front room. Was it all a dream? I winced as I pushed myself up. Cuts.. My body had cuts that were not there when I went to bed. My clothes were damp, and I noticed I had only a shirt and pants on. I went to the mirror and stared at the slash on my cheek. The memories rushed back to me, the rain, the unnerving entities, the isolation. It wasn't a dream, it was all [real](https://www.reddit.com/r/Cryptid_Musings/s/bfxt6rYsRv).
