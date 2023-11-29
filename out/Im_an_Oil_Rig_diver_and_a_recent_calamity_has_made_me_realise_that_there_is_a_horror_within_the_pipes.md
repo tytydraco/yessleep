@@ -2,7 +2,7 @@ If you’re reading this, then it means that I escaped.
 
 My story is a brutal one, and I will share it in the style it was intended to be read, so that you might understand. So that you might see it through the eyes of one who suffered.
 
-Please consider this a cautionary tale. It is- I admit- *unlikely* you will very find yourself in such a situation… 
+Please consider this a cautionary tale. It is- I admit- *unlikely* you will very find yourself in such a situation…
 
 But hey. You never know, right?
 
@@ -743,3 +743,5 @@ On our journey through the pipe.
 &#x200B;
 
 Inch by inch, as the hours pass by. The timeless hours in the perpetual watery darkness.
+
+[\[Part 2/2\]](https://www.reddit.com/r/nosleep/comments/1872c6l/im_an_oil_rig_diver_and_a_recent_calamity_has/)
