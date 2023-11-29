@@ -30,7 +30,7 @@ Remember how I mentioned that everything seemed perfect including the people ? W
 
 Ashley and Daniel both started laughing
 
-“No silly ! They’re out grandparents.” She said.
+“No silly ! They’re our grandparents.” She said.
 
 I nearly chocked on my drink when she said that .
 
@@ -46,58 +46,60 @@ I nearly chocked on my drink when she said that .
 
 I left their house that day very confused and the idea of Rockvilles secret kept popping up into my head . I was determined to get to the bottom of this, not knowing I wouldn’t have to wait long to do so .
 
-School had started the week after and everything was going just fine until the second week of school  when I met Andrew , the second oddity inside of Rockville . He was a slim , short kid with curly brown hair and blue eyes , but he wasn’t like everyone else . The expression on his face and eyes was as if all the life had been sucked out of him and was instead replaced with nothing but  emptiness and sadness . During the following weeks I started to notice something else that was off about Andrew, he was starting to gain weight at an incredibly fast pace , he seemed to be gaining 3 pounds every single day and due to this it didn’t take very long for him to reach the point of obesity.
+School had started the week after and everything was going just fine until the second week of school  when I met Andrew , the second oddity inside of Rockville . He was a slim , short kid with curly brown hair and blue eyes , but he wasn’t like everyone else . The expression on his face and eyes was as if all the life had been sucked out of him and was instead replaced with nothing but emptiness and sadness . During the following weeks I started to notice something else that was off about Andrew, he was starting to gain weight at an incredibly fast pace , he seemed to be gaining 3 pounds every single day and due to this it didn’t take very long for him to reach the point of obesity.
 
 I noticed how everyone avoided him like he was some sort of walking pest . I felt bad for him but I didn’t know how I was supposed to help him  , and then one day he just stopped coming …
 
-He was never mentioned in school , the town never mentioned anything about him either . It was like he vanished off the face of the earth . Then I remembered what Daniel had said a couple weeks prior to Andy’s disappearance and my heart sank, “You’ll see, you’ll see very soon.”
+He was never mentioned in school , nor did the town ever make mention of him . It was like he vanished off the face of the earth . Then I remembered what Daniel had said a couple weeks prior to Andy’s disappearance and my heart sank, “You’ll see, you’ll see very soon.”
 
-I realized that their had to be some connection between Andrew’s disappearance and Rockvilles secret . The curiosity was consuming me daily so one day during lunch I brought up the question to both of them
+I realized that their had to be some sort of connection between Andrew’s disappearance and Rockvilles “secret” . The curiosity was consuming me day and night ,  so one day during lunch I brought up the question to both of them
 
 “Hey do you guys know what ever happened to that kid , Andrew I think his name was ?”
 
-They both looked at each other and I saw Ashley’s face grow pale for a second , then Daniel looked at me and said
+They both looked at each other and I saw Ashley’s face grow pale for a second , then Daniel looked at me dead in the eye and said
 
-“ He was one of the chosen ones and he has now fulfilled his purpose in life , to protect Rockville.” Daniel said as he looked down at his food plate
+“ He was one of the chosen ones and he has now fulfilled his purpose in life , to protect Rockville.” He said as he immediately looked down towards his plate .
 
 “Wh-What do you mean he fulfilled his purpose?! What the hell is going on here ?” I said with a quivering voice
 
 “Come over to our place and we’ll explain everything there , this isn’t the place for this type of talk , they could hear us…” Ashley said as she started to glance from side to side to make sure noone was nearby
 
-That same day,  after I wrapped up my homework I went over to their place just like we agreed upon . We spoke in whispers because we didn’t want any of the grownups to hear our conversation , I pulled a chair in close to them and said
+That same day,  after I wrapped up my homework I went over to their place just like we agreed upon . We spoke in whispers because we didn’t want any of the grownups to hear our conversation . I pulled a chair in close to them and simply asked 
 
-“So what’s going on here?”
+“What’s going on here?”
 
-Daniel let out a heavy sigh and said , “  Rockville offers all of it’s inhabitants a chance at eternal life and happiness , that’s why you see that there are no funeral homes here nor do people age past their prime . We have everything , food , a beautiful place to live, perfect health but it all comes at a price. In order to conserve this state of life , every couple months , a family is visited by the town committee and whoever is the youngest within that home is chosen to go with them to perform what they call “God’s work”. It’s an honor to be chosen but –” Daniel fell quiet .
+Daniel let out a heavy sigh and said, “  Rockville’s secret is that it  offers all of it’s inhabitants a chance at eternal life and happiness , that’s why you see that there are no funeral homes here nor do people age past their prime , like our grandparents . We have everything here , food , a beautiful place to live, perfect health but it all comes at a price. In order to conserve this state of life , every couple months , a family is visited by the town committee and whoever is the youngest within that home is chosen to go with them to perform what they call “God’s work”. It’s an honor to be chosen but –” Daniel fell quiet .
 
-“You lose everything” Ashley said with a low voice “ We honor those people forever in -”
+“You lose everything” Ashley said with a low voice “We honor those people forever in -” Another silence
 
 “In?” I asked
 
-“Rockville’s treehouse , not everyone knows of it but we found it a couple years ago when we were playing in the woods with a couple of our friends.”
+“Rockville’s treehouse , it’s located in a trail not many people have traversed but we accidentally stumbled upon it when we were playing tag in the woods a couple years back with our other friends …”Ashley grew quiet for a second and I watched as a tear trickled down her face. “ That are no longer with us. They were also chosen to do “God’s work”. She let out a heavy sigh and started to sob.
 
-“ Can we go?”
+“O God … I am really sorry to hear that , do you think there’s anyway we can go to this treehouse ?”
 
-“Yes, I think we can. Meet us tomorrow after school and we’ll go over there its not too far”.
+“Ye- Yes I think we can. Meet us tomorrow after school and we’ll go over there its not too far”. She said 
 
-I didn’t know what to think after that conversation , I wanted to get out of there but I decided that I was going to stay until they showed me where the treehouse was . The next day , after classes had ended we rode our bikes straight into the woods of Rockville , but something was different about the area we were going in , it was dirty , the trees had no leaves on any of their branches and an awful smell filled the area .
+I didn’t know what to think after that conversation , I wanted to get out of Rockville as soon as possible but I decided that I was going to stay until they showed me where the treehouse was . 
 
-“God that smells awful! This is where you guys remember those people?”. I said feeling disgusted
+The next day , after classes had ended we rode our bikes straight into the woods of Rockville , but something was different about these woods , they weren’t vibrant and filled with life  like the rest  instead  it was dirty , the trees had no leaves on any of their branches and an awful smell emanated from it , a smell of death .
 
-“It wasn’t like this last time we were here…” Ashley said
+“God that smells awful! This is where you guys honor those people?”. I said feeling disgusted
 
-“I forgot to ask yesterday but what even is “God’s work?” is that a code name for something?”
+“It wasn’t like this last time we were here…” Ashley said. “Somethings changed …”
+
+“I forgot to ask yesterday , but what even is “God’s work?” is that a code name for something?”
 
 Silence.
 
 “What is it?” I asked again this time more scared of the answer.
 
-“It means they die … their purpose in life has been fulfilled and by doing the ultimate sacrifice they guarantee the protection of our town. They do “God’s work” , I hate the idea too but that’s the way it is, trust me , when we found out about it we also reacted the same way as you.  ”
+“It means they die … their purpose in life has been fulfilled and by doing the ultimate sacrifice they guarantee the protection of our town. They do “God’s work” in that sense .  I hate the idea too but that’s the way it is, trust me , when we found out about it we also reacted the same way as you.  ”
 
-“That can’t be possible” I said , we rode our bikes for another couple minutes until we had finally arrived . A massive treehouse stood above us , it looked like it had been abandoned and neglected for a long time .
+ We rode in silence  for another couple minutes until we had finally arrived . A massive treehouse stood right  above us and by looking up  I could tell it had been abandoned and neglected for a long time .
 
-“Where are the names of the people?” I asked
+“Where are the names of the people?” I asked while I pinched my nose from the putrid smell nearby 
 
-“Right over here , take a look!” She pointed at the bark of the tree , and sure enough , there were dozens upon dozens of names printed all over it , the list was so large that it led right to where the treehouse sat . I climbed up to keep reading until I found Andrew’s name carved into the top of the tree , and as I read the name that was carved just above his my heart sank . It was my name...
+“Right over here , take a look!” She pointed at the bark of the tree , and sure enough , there were dozens upon dozens of names printed all over it , the list was so large that it led right to where the treehouse sat . I climbed up to keep reading the names until I found Andrew’s name carved into the top of the tree , and as I read the name that was carved just above his my heart sank . It was my name...
 
  [James Robinson](https://www.reddit.com/r/Dreadful_Nightss/)
