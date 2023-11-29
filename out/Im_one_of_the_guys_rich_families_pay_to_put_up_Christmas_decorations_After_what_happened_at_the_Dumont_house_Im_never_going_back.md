@@ -10,13 +10,13 @@ Katie held up a cup full of wooden stirring sticks. “Come on, don’t be shy.�
 
 Marco sucked his teeth. “Looks like I’m on the naughty list this year.” 
 
-Chris, the first official victim of the Dumont house, elbowed Marco in the ribs. “Nice knowing ya, bud.” A year after Chris’s concussion, another employee broke his back at the very same property. We’ve been pulling straws for jobs on there ever since.
+Chris, the first official victim of the Dumont house, elbowed Marco in the ribs. “Nice knowing ya, bud.” A year after Chris’s concussion, another employee broke his back at the very same property. We’ve been pulling straws for jobs over there ever since.
 
 “Should be two. Who else has it?” Katie asked.
 
 “That’d be me.” I held up my stick, marked with a black tally. 
 
-Every year I took part in the Dumont Drawing as a show of faith to my staff. But this was the time I’d actually go out on the job.
+Every year I took part in the Dumont Drawing as a show of faith to my staff. But this was the first time I’d actually go out on the job.
 
 “Hey boss, if you don’t make it I’ll take great care of the place, I promise.” Chris flashed a wide smile. 
 
@@ -200,7 +200,7 @@ When the door finally opened, I pushed past Dumont, grabbed Marco by the front o
 
 “What other guy?”
 
-Dumont pushed us apart with a degree of strength that didn’t match his frail frame. “This isn’t his fault, it’s mine. Mine and Mary’s.”
+Dumont pushed us apart with a degree of strength that didn’t match his frail frame. “This isn’t his fault, it’s mine. Mine and Mary’s.”
 
 He led us down the hall to a black and white wedding photograph. Didn’t take much imagination to see the man was a younger Dumont. The woman could’ve been a movie star. She had a gorgeous heart-shaped face framed by  long, curly hair.
 
