@@ -272,7 +272,7 @@ Reine and I lock eyes, the unspoken question hanging between us. How many more? 
 
 [Part 6](https://www.reddit.com/r/PageTurner627Horror/comments/182g5ce/im_a_private_investigator_in_new_orleans_i/)
 
-[Part 7](https://www.reddit.com/r/nosleep/comments/183vo1o/im_a_private_investigator_in_new_orleans_i/)
+[Part 7](https://www.reddit.com/r/PageTurner627Horror/comments/187kqhb/im_a_private_investigator_in_new_orleans_i/)
 
 [X](https://www.reddit.com/r/PageTurner627Horror/)
 
