@@ -22,7 +22,7 @@ Before she can elaborate, Captain Corceiro, a robust figure with years of experi
 
 A collective murmur of concern ripples through the group. Mount Kīlauea, one of the most active volcanoes on Earth, is a sleeping giant that we respect and fear in equal measure.
 
-"Looks like Pele is stirring," Lani mutters, referring to the Hawaiian goddess of volcanoes and [fire](https://www.reddit.com/r/nosleep/comments/16texdg/im_a_private_investigator_in_new_orleans_i/). Her tone is one of respect mixed with caution.
+"Looks like Pele is stirring," Lani mutters, referring to the Hawaiian goddess of volcanoes and [fire](https://www.reddit.com/r/nosleep/comments/16texdg/im_a_private_investigator_in_new_orleans_i/). Her tone is one of reverence.
 
 "There's more,” the team leader continues. “We've got a missing persons report. A family of Haoles. A woman named Sara Jenkins, and her two young boys, Tyler and Ethan, went for a hike yesterday near the Chain of Craters Road and haven't returned."
 
