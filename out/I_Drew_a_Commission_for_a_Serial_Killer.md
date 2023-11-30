@@ -1,3 +1,7 @@
+[Part 1](https://www.reddit.com/r/nosleep/comments/17wz2zu/i_found_an_old_creepypasta/)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/187qvbn/i_killed_a_serial_killer/)
+
 I draw porn for folks who pay me money. Honestly, it’s not the worst way to make a few bucks. People are gonna be horny, and if you have the stomach they’ll pay you to indulge their weird kinks. If you’re lucky, you can get commissioned by a suspiciously wealthy furry and have your rent paid for a few months. Sure, you’ve got to draw their seven foot wolf OC farting on Pikachu, but hey, money’s money.
 
 I’ve dealt with all kinds of weird fetishes and kinks as a part of my career. Farting, pissing, scat, burping, egg laying, hypermuscle, inflation, guro, sounding, vore, diapers, and feet, just to name a few. At this point, I know the designs and anatomy of the *Overwatch* gals and Rouge the Bat like the back of my hand.
@@ -18,7 +22,7 @@ Ok, that’s a new one, I’ll admit. I’ve done gore stuff, but the woodchippe
 
 I asked WoodyChuck for more details. How should the woman look, what background did they want, that sort of thing. WoodyChuck replied that the woman should be slightly chubby, have dark skin, black hair, green eyes, and a scar on her left cheek. The background should be an abandoned cabin.
 
-I said ok, and asked for payment. I like to get payment first, as I’d rather not spend hours doing a Sonic the Hedgehog inflation pic only for some schmuck to just ghost me (which has happened before). WoodyChuck did pay though. I got some money from a Paypal account with the email [](mailto:chippr@yahoo.com), and then got to work.
+I said ok, and asked for payment. I like to get payment first, as I’d rather not spend hours doing a Sonic the Hedgehog inflation pic only for some schmuck to just ghost me (which has happened before). WoodyChuck did pay though. I got some money from a Paypal account with the email , and then got to work.
 
 Over the course of a week, I sent WoodyChuck various sketches and images of my progress as the commission progressed. Honestly, WoodyChuck was a bit of an annoying client. They kept asking for very minute changes, and would sometimes want me to redo an aspect of the image they already approved. Sure, they weren’t the worst client I’ve ever dealt with (that would be a guy who asked me to do a pic of some character buying Wonderbread, of all things), but they weren’t my favorite kind of client.
 
