@@ -124,7 +124,7 @@ I turned, and for a moment didn’t understand what I was seeing. And then I was
 
 *My* screams.
 
-It’s been almost six months since I tore from the water that morning. As soon as I was free of the waves, I sprinted for the parking lot, stopping only to snatch up the keys to Vaughn’s Jeep. I’d been delirious as I’d crashed through the bushes. According to the hiker who’d found me frantically trying to unlock the driver’s door I’d barely been able to speak, but when I babbled about my friends and the water, he’d called the cops. When they’d come, I’d calmed down just enough to be able to tell them what happened.
+It’s been almost six months since I tore from the water that morning. As soon as I was free of the waves, I sprinted for the parking lot, stopping only to snatch up the keys to Vaughn’s Jeep. I’d been delirious as I’d crashed through the bushes. According to the hiker who’d found me frantically trying to unlock the driver’s door, I’d barely been able to speak, but when I babbled about my friends and the water, he’d called the cops. When they’d come, I’d calmed down just enough to be able to tell them what happened.
 
 They, of course, didn’t believe me. They thought I’d had a mental break. They searched the beach, even bringing a diver in to check the bay. But they found nothing. No sign of Vaughn or Theo. And no monster buried in the sand and muck. Only depressions which the diver noted looked a bit unnatural.
 
