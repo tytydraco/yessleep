@@ -38,7 +38,7 @@ As Corceiro's orders sink in, a flurry of activity erupts among the rangers. The
 
 I turn to gather my equipment. As a seasoned tracker, my backpack is filled with essentials: a GPS, a detailed topographical map of the park, high-powered binoculars, and various other tools for navigating and surviving in rugged terrain.
 
-Beside me, Lani, a trained EMT, is equally focused. Her bag is a compact but comprehensive kit designed for rapid response. She checks each item: bandages, antiseptics, splints, and emergency medications.
+Beside me, Lani, a skilled technical rescue expert, meticulously checks her gear, ensuring that everything is in perfect condition for whatever complex rescue scenarios we might encounter in the park's challenging terrain. Her bag is filled with specialized equipment: ropes, pulleys, carabiners, and safety harnesses.
 
 As I strap my boots tightly, ensuring they are fit, I glance at Lani. She catches my eye, offering a nod of solidarity.
 
