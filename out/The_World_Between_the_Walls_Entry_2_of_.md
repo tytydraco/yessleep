@@ -4,13 +4,13 @@
 
 Another sleep cycle, another intermittent signal, this time our place of refuge is a dented and partially collapsed storage container, jutting from the busted wall of a rusted out warehouse interior, the vaguely unsettling faint odor of baked beans and hydraulic fluid lingering on every surface.
 
-It’s source isn’t something I wish to dwell on at this hour, focusing my remaining energy on this update having finished sewing the lacerations to my skirt and jacket, the ones in my flesh unable to benefit from such treatment, lest trapped infection and ensuring sepsis end my journey in short order.
+It’s source isn’t something I wish to dwell on at this hour, focusing my remaining energy on this update having finished sewing the lacerations to my jacket, the ones in my flesh unable to benefit from such treatment, lest infection and sepsis end my journey in short order.
 
-Those who assume sharp fangs can only puncture and not slice are truly blissful in their ignorance, but I’m drifting from the point, last time I had a connection I told you how I first came to find myself here, what some of you call The Backrooms, though halls of the damned feels more apt, a rats warren of corridors and maze like halls without seeming purpose or end.
+Those who assume sharp fangs can only puncture and not slice are truly fortunate in their ignorance, but I’m drifting from the point, last time I had a connection I told you how I first came to find myself here in these halls of the damned feels more apt, a rats warren of corridors and maze like halls without seeming purpose or end.
 
-Tonight I'll share with you my first encounter with one of the native inhabitants that call this place home.
+Tonight I'll share with you my first encounter with some of the native inhabitants that call this place home.
 
-**\* \* \***
+\* \* \*
 
 According to my phone it had been over twenty three hours since I’d found myself lost in this place, the majority of it spent exploring the countless corridors and empty rooms behind the doors that lined them.
 
@@ -60,6 +60,6 @@ Wishing for a stiff drink to steel my nerves I slowly poured the entirety of one
 
 A pair of maxi pads from my purse coupled with antibiotic ointment and quarter roll of waterproof tape from the first aid kit made for effective coverings which I hastened to apply, wishing to find a safe place to rest once the pain took hold, rather than crawling down the curving stretch of tunnel before me on my hands and knees. I just needed somewhere secure where I could sleep, and steel myself for the days ahead.
 
-**\* \* \***
+\* \* \*
 
-My dear companion is silently insisting I join them near the fire, their expression a gaze of deep sorrow and loneliness that is no doubt mirrored by my own, so this is where I will leave my recollections for now. Darkness willing, next time fortune favors me with a signal, I’ll tell you how I came to meet my companion, and how much we have come to depend on each other in this forgotten place of crawling shadows and flickering hopes.
+My dear companion is silently insisting I join them near the fire, a gaze of deep sorrow and loneliness that is no doubt reflected in my own, so this is where I will leave my recollections for now. Darkness willing, next time fortune favors us with a signal, I’ll tell you how I came to meet my companion, and how much we have come to depend on each other in this forgotten place of crawling shadows and darker hopes.
