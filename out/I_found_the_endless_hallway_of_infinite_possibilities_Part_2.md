@@ -48,4 +48,4 @@ As I stepped back into the hallway, I couldn't help but wonder if there was a pu
 
 One thing was certain—I was no longer the same person who had stumbled into this strange and wondrous place. I had been transformed by the knowledge I had gained, and I was determined to continue my journey, to explore the infinite possibilities that lay before me, and to seek the answers that had eluded me for so long.
 
-[Part 3](https://www.reddit.com/r/nosleep/comments/187bez4/i_found_the_endless_hallway_of_infinite/)
+[Part 3](https://www.reddit.com/r/nosleep/comments/188bpdk/i_found_the_endless_hallway_of_infinite/)
