@@ -48,4 +48,4 @@ But what truly terrified me was the story’s final line:
 
 [Part 2](https://www.reddit.com/r/nosleep/comments/185c0g2/i_drew_a_commission_for_a_serial_killer/)
 
-[Part 3](https://www.reddit.com/r/nosleep/comments/187qvbn/i_killed_a_serial_killer/)
+[Part 3](https://www.reddit.com/r/creepypasta/comments/188hrd3/i_did_it_for_marilyn/)

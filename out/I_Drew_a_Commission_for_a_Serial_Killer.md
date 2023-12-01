@@ -1,6 +1,6 @@
 [Part 1](https://www.reddit.com/r/nosleep/comments/17wz2zu/i_found_an_old_creepypasta/)
 
-[Part 3](https://www.reddit.com/r/nosleep/comments/187qvbn/i_killed_a_serial_killer/)
+[Part 3](https://www.reddit.com/r/creepypasta/comments/188hrd3/i_did_it_for_marilyn/)
 
 I draw porn for folks who pay me money. Honestly, it’s not the worst way to make a few bucks. People are gonna be horny, and if you have the stomach they’ll pay you to indulge their weird kinks. If you’re lucky, you can get commissioned by a suspiciously wealthy furry and have your rent paid for a few months. Sure, you’ve got to draw their seven foot wolf OC farting on Pikachu, but hey, money’s money.
 
