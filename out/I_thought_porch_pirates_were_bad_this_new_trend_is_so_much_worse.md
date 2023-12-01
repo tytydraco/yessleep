@@ -2,11 +2,11 @@ I woke up handcuffed to the radiator in my own basement. From down here, no one 
 
 Perfect.
 
-Everything burns around me, and I wonder if the smoke will get me before the flames do – although frankly, either is fine with me.
+Everything burns around me, and I wonder if the smoke will eventually get me before the flames do – although frankly, either is fine with me.
 
-I try to just focus on typing – it’s going slowly since I only have one free hand, so I’m grateful I wrote most of it during a moment of clarity the day before. I’m almost finished, at least.
+I try to just focus on posting this – I’m grateful that I thought to write my account of the prior days during a moment of clarity yesterday. 
 
-It’s too late for me, but maybe sharing this will help someone out there.
+It’s too late for me, but maybe sharing this will help someone else out there.
 
 I think it’s afraid now – it realizes what’s about to happen. Its attention must have shifted elsewhere, which is how I even regained control over one of my hands in the first place.
 
@@ -18,7 +18,7 @@ If anything, this is my final gift to them, to myself. It is the season of givin
 
 My preparations the night before seem to be working nicely. The music has fallen silent, replaced by a roar indicating that the flames have reached the trail of gasoline leading down the wooden basement stairs.
 
-I guess the time has come. My body –  and the thing in control of it most of it –  struggles to breath through stinging lungs, fights against the metal, increasingly warm as it digs into my wrist. It wants to *live*. It wants to *spread*.
+I guess the time has come. My body –  and the thing in control of it most of it –  fights against the metal, increasingly warm as it digs into my wrist. It wants to *live*. It wants to *spread*.
 
 Too damn bad.
 
