@@ -8,7 +8,9 @@ Flashes of light sporadically cut through the darkness like strobes, each moment
 
 I can barely process the scenes before they're swallowed up by darkness again. Each flash of light feels like a gamble, a momentary advantage that could also paint a target on the one holding it. But without them, the darkness is complete, and in the darkness, the skinwalkers have the upper hand.
 
-In the thick, suffocating darkness, every sound becomes a potential threat. It's impossible to discern friend from foe, human from skinwalker. I realize with a chilling certainty that without some form of organization, we risk becoming our own worst enemy. The last thing we need is friendly [fire](https://www.reddit.com/r/nosleep/comments/16texdg/im_a_private_investigator_in_new_orleans_i/) in our panic.
+The sound of gunfire erupts from all directions. The panic is palpable, with people firing in desperation, not knowing if they're aiming at a skinwalker or one of their own. 
+
+I realize with a chilling certainty that without some form of organization, we risk becoming our own worst enemy. The last thing we need is friendly [fire](https://www.reddit.com/r/nosleep/comments/16texdg/im_a_private_investigator_in_new_orleans_i/) in our panic.
 
 “Form a circle! Everyone, form a circle! Lights outwards!” I bellow, hoping my voice cuts through the chaos.
 
@@ -18,9 +20,8 @@ Clutching my radio, I quickly press the transmit button, desperate to establish 
 
 Static answers my call. My heart sinks, but I try again, adjusting the frequency in hopes of finding a clear channel. “Anyone, please! We're being attacked by...” I hesitate, knowing how it would sound, “...by something not human!”
 
-Grasping for any sense of direction in the pitch black, my fingers finally find Izzy's. I grip her hand tightly, the [coldness](https://www.reddit.com/r/nosleep/comments/14c93t1/im_an_arctic_researcher_we_accidentally_released/) of her skin evidence of the horror we're both experiencing. "Izzy," I rasp, my voice barely audible over the echoing screams and the growing pandemonium, "we need to get the lights back on."
-
-My heart pounds loudly in my ears as we make our way through the disorienting, enveloping darkness. Every step is a gamble; the floor is littered with the debris of panic — overturned chairs, dropped personal items, and worse, bodies. The feeling of vulnerability is suffocating. The skinwalkers can be anywhere, waiting for their next prey, and in this black void, we won't see them until it's too late.
+Grasping for any sense of direction in the pitch black, my fingers finally find Izzy's. I grip her hand tightly, the [coldness](https://www.reddit.com/r/nosleep/comments/14c93t1/im_an_arctic_researcher_we_accidentally_released/) of her skin evidence of the horror we're both experiencing. "Izzy," I rasp, my voice barely audible over the echoing screams and the growing pandemonium, "we need to get the lights back on."  
+I find myself ducking instinctively at every shot, my heart racing with the realization that a stray bullet from a well-meaning defender could be just as deadly as an attack from the skinwalkers. 
 
 We move as silently as we can, our hands brushing against walls to guide our path. The faint, haunting murmurs of the creatures are our only indication of their proximity. Their sounds are maddeningly elusive, echoing from all directions. We can't tell if they're close or far, but the sense of being hunted, of being watched, is palpable.
 
