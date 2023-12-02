@@ -1,4 +1,8 @@
-Part 2: https://www.reddit.com/r/nosleep/comments/151yd76/my\_husband\_went\_to\_india\_two\_weeks\_agowhat\_came/?utm\_source=share&utm\_medium=web2x&context=3
+Part 2: [https://www.reddit.com/r/nosleep/comments/151yd76/my\_husband\_went\_to\_india\_two\_weeks\_agowhat\_came/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/r/nosleep/comments/151yd76/my_husband_went_to_india_two_weeks_agowhat_came/?utm_source=share&utm_medium=web2x&context=3)
+
+Part 3:
+
+https://www.reddit.com/r/nosleep/comments/189015o/my\_husband\_went\_to\_india\_two\_weeks\_agowhat\_came/
 
 I'm scared.
 
