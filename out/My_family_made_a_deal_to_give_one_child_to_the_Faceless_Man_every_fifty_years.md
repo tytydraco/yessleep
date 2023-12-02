@@ -24,7 +24,7 @@ I could never explain the true horror of the thing lurking behind its costume of
   
 It had eyes like two smoldering cigarette burns. Its mouth was a slashed, disgusting thing. The lips looked eaten away, with ragged patches of flesh surrounding them that seemed to make the smile seem much larger, reminding me of how a clown would do his make-up. I saw that grinning mouth filled with countless needle-sharp teeth above black, sore-ridden gums that writhed and shivered in its lipless mouth. Even through the window, a smell like sulfur and reeking, spoiled meat filtered into the house, seeming to fill the air like a physical presence.  
   
-Its body looked flipped inside-out. I could see the quivering muscles on the skinless figure. It looked deathly thin, and veins ran along the outside of its face and body like thick, dark worms, pulsating with each beat of the Satanic heart that lay inside that thing’s chest, beating sickness and evil through every pore of its gleaming body.   
+Its body looked flipped inside-out. I could see the quivering muscles on the skinless figure. It looked deathly thin, and veins ran along the outside of its face and body like thick, dark worms, pulsating with each beat of the Satanic heart that lay inside that thing’s chest, emanating sickness and evil through every pore of its gleaming body.   
   
 As it stared into my soul with its black, lidless eyes, I saw in that face all the worst nightmares of the universe. I saw mountains of corpses festering under a hot sun, black holes eating worlds as masses screamed. I saw mothers drowning their children in bathtubs, and animals eating each other alive. I saw into eternity, and it looked so dark and empty that I fell to my knees, pleading.  
   
@@ -58,7 +58,7 @@ After that, we barricaded the doors and locked all the windows. I knew it wouldn
   
 “So why don’t you just tell him no?” I asked in my childish way. “We don’t need all this money.” The left side of my father’s face began twitching. He stomped towards me, shouting as tears ran down his face.  
   
-“I don’t give a shit about money!” he cried. “The deal was drawn in blood and cursed from the first day. Do you think if I could get him to go away by giving him everything I own, I wouldn’t? I would do it in a heartbeat. I would live in a goddamn trailer and eat instant noodles if I had to. But there is no escape.” He looked around, as if expecting to see the Faceless Man standing right behind him. He began looking out of the windows, seeing nothing but a bright, summer’s day.  
+“I don’t give a shit about money!” he cried. “The deal was drawn in blood and cursed from the first day. Do you think if I could get him to go away by giving him everything I own, I wouldn’t? I would do it in a heartbeat. I would live in a goddamn trailer and eat instant noodles if I had to. But there is no escape.” He looked around, as if expecting to see the Faceless Man standing right behind him. He began looking out of the windows, seeing nothing but a bright summer’s day.  
   
 “We need to go,” my mother whispered. “Now. Let’s just take Susan and go. He won’t find us if we keep moving…”  
   
