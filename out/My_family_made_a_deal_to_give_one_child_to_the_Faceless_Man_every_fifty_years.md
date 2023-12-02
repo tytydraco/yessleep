@@ -78,7 +78,7 @@ We took off from the property, and my father told me more about the deal as we f
   
 “But why would great-grandpa make a deal like that anyway?” I asked.  
   
-“Because, at the time, he had ten children and all of them were starving. A few had dysentery and he didn’t have a penny to his name at the time. He chose the sickest one, the one closest to death, and gave it to the Faceless Man to save the other nine.” My father shrugged. “I don’t know if we can understand it. I certainly don’t agree with it. I’m not sure he realized at the time that our family would suffer eternally afterwards, and that the contract could not be voided except through death.” He laughed bitterly. “We should have just let our family line die out, maybe. That would have solved the problem.”  
+“Because, at the time, he had ten children and all of them were starving. A few had dysentery and he didn’t have a penny to his name at the time. He chose to sacrifice one and give it to the Faceless Man to save the other nine.” My father shrugged. “I don’t know if we can understand it. I certainly don’t agree with it. I’m not sure he realized at the time that our family would suffer eternally afterwards, and that the contract could not be voided except through death.” He laughed bitterly. “We should have just let our family line die out, maybe. That would have solved the problem.”  
   
 “What about those words at the end, daddy?” I asked. “What did those mean?”  
   
