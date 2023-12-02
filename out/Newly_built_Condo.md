@@ -1,0 +1,19 @@
+My family moved to Abu dhabi around 2004-2006, cant really remember the exact year. We moved to a condo near Al salama hospital, not really near but its a land mark the taxi drivers knew. Our unit is on the 8th floor, the building was built 2 years prior our move-in date. No one lived in that unit before us. So it's weird that it's haunted, but only for me, my mom and 2 siblings never felt anything. It's a 2 bedroom, two floor condo, 1 bathroom upstairs, 1 toilet on the first floor.
+
+Its started with sounds, like something scratching my bed's head rest in the middle of the night. hearing air/breathing from under my bed. Sound of barefoot foot steps, it sounded like feet sticking to a tiled floor. I told my mom, she's superstitious, but didn't believed me because the condo is newly built.
+
+I couldn't take it so I started sleeping on our couch in the living room. Never felt or hear anything so I thought it's gone so I decided to go back to my bedroom. well, it got worse.
+
+The very night I moved back to my bedroom, curtains are moving like there's wind. Its a condo with a whole glass wall with a small window you can open/close. I never opened it, I thought my mom opened the window when I started sleeping on our couch. The curtains are huge,thick and heavy. I got up, moved the curtain a bit so I can close the window, but its close. The aircon was nowhere near the curtains nor facing it. It never once waved like it did that night. It stopped for a while, I went back to bed, then started waving again few minutes later. then a heard a whisper on my right ear. like its mouth was close to my ear. I ran to the bathroom as fast as I can. I slept there, sitting on the floor.
+
+The next morning, my mom saw me and woke me up. I can see she's worried but still refused to believe me. She offered to exchange rooms but I refused. She offered to sleep with them in their room, I also refused as my two younger siblings also sleeps in that room.
+
+I decided to go back to our living room to sleep. Again, it was peaceful nights. I never went back to that bedroom but have to pass by it whenever I need to go the bathroom. I always close my bedroom door whenever I get the chance. 
+
+I felt or hear nothing for months, until one day when I got back home from school. Btw, the entrance door is facing our kitchen. I opened the door and saw my mom in the kitchen, cooking facing left, so I can see half her face. I looked down, removed my shoes, look up, mom is gone. As I walk towards the kitchen, I saw her on the side of my eye, sitting on the farthest part of our dinning table, with her laptop infront of her, working. Our dining table is in the living room beside our couches. I was shocked, I went to the kitchen to look for the person who was cooking, nothing, then asked my mom if she was in the kitchen few seconds ago like she can teleport. of course she said no. I shrugged it off as if maybe I was just tired from school.
+
+Few nights later, as I was trying to sleep on the couch facing the back rest. I felt like the couch slowly sink like someone was sitting behind me. I wanted to look back but I was so scared. It "stood up" few seconds later or minutes I dont really know how long. Im still too scared to look back.
+
+Thats the last time I felt or see anything weird in that place. My mom's cousin moved in with us few months later, he slept in THAT room. I dont really know him so we didn't really talk to each other. I moved out for college few months later.
+
+They moved to a smaller condo a year later. as the government started cutting budgets (UAE was very generous back then, all our expenses was paid by their government). One day on a family gathering, I brought up that experience of mine, I told my mom what happened. She now believed me, maybe, I don't really know. I asked my mom if her cousin felt anything, her answer was no. That entity must've hate me or want something from me.
