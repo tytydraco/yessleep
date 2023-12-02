@@ -33,7 +33,7 @@ I took off my coat and then walked down the narrow steps to the basement. Our ba
   
 Abby was wearing a cute little dress and a crown and kept giggling.   
   
-"What's going on here?" I said in my best older brother's voice. Abby was 13 years younger than me, so we always had a very playful relationship.  
+"What's going on here?" I said in my best older brother's voice. Abby was 16 years younger than me, so we always had a very playful relationship.  
   
 "A puppet show!" Abby answered excitedly.   
   
