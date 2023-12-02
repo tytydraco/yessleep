@@ -105,5 +105,3 @@ I was cursed with a fake love forever, or I had to be okay with Katy dying. 
 So the fake relationship I pranked that poor girl with in fifth grade meant I was going to be stuck in a fake relationship for the rest of my life. 
 
 *Well played, Hollyeve.*
-
-[The Curse of Hollyeve Continues...Part 1](https://www.reddit.com/r/nosleep/comments/xvwn3d/all_my_exes_die_after_we_break_up_the_curse_of/)

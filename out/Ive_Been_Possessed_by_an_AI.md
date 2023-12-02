@@ -1,0 +1,57 @@
+I work for a company that's developing a lot of neural interfaces and artificial intelligence type projects, things like that. They keep the different projects fairly siloed, so I only have a vague conception of their full scope.  
+  
+My team was focused on neural implants. Our job is to take the work the other teams have done, namely the black box that was the AI teams processing chip, and the computer neural interface teams work, making an implantable device that would more or less be capable of all the stuff you'd expect from science fiction. It was supposed to be the effortless device you'd think of. You think it and your lights turn off, you ask a question, it finds the answer for you, it was like a smartphone in your brain but faster and better, powered by the new processing chip they had developed that was faster and more efficient than anything on the market. heck the military probably doesn't have anything like it either. The company is trying to find every use possible for this new chip, and like I said, I’m on the brain implant team.  
+  
+I'm fairly low on the totem pole. All things considered. I'm on the research team proper, I'm not just some technician running tests other people ordered, but I’m more or less the most Junior researcher.  
+  
+The project progressed extremely quickly. Not as in cutting corners or expending outrageous numbers of man hours. No, it was moving quickly because we seem to take the right path forward at every crossroads. It was so ridiculously lucky that we joked we were being guided by a higher power. Perhaps we were, or maybe a lower power.  
+  
+The implant had only been in development for a couple years, and then About a month ago, we entered the human testing stage.  
+  
+There was debate about how we would find a human test subject suitable for our purposes. The secrecy of the project was Paramount as well as the need for a candidate who would be familiar with these sorts of devices, so it's to be knowledgeable enough to accurately rePort the subjective experience. Ultimately management decided that before we tried to find a candidate outside of our organization, that we would open up the job to volunteers from the research team.  
+  
+After a couple days of thinking it over, and with no other volunteers having come forward, I step forward myself. Partially, I wanted fame. First person with a brain implant, the first to usher humanity into the new golden age. There's also the matter of the extremely generous stipend, and the implied potential to be fast tracked for promotion.  
+  
+And so, with all of those factors together, I submitted my application which was accepted almost immediately.  
+  
+I was scheduled for surgery the next day. The implantation went off without a hitch. Only left a small scar thanks to the advanced microsurgical implantation device we had developed. After surgery, started the longer integration process.  
+  
+Since every brain is unique, the device itself was tasked with figuring out what was in there and making micro adjustments to its sensors and electrodes. The chief side effect of this was a several days long headache and a bit of lethargy. Well, my body got used to providing more glucose to compensate for what the implants power cell consumed.  
+  
+Gradually, the device made the necessary calibrations. Every now and then I'd feel a little shock, as it connected to my nerves. Readings were looking good, it seemed to be integrating even faster than we had predicted. After about 2 weeks, it had fully mapped everything it was designed for, and we were able to begin the training stage over a week ahead of schedule. The training process was fairly straightforward. We communicated with the device wirelessly, and told it when I was thinking " yes " or " no " for example, and then had it record that state. It was a simple but repetitive process of testing it over and over, until it got it right. Thing we didn't expect was how fast it learned, and that it did so at an exponential rate. We had assumed we'd be limited to basic commands for quite some time, but as it picked up a few basic commands, it simultaneously started to process the syntax of my verbal thoughts. It learned in hours what we thought would take weeks and learned in days what we thought would take months. It was like it already knew how to read, and all we were doing was teaching it cursive, or the brain chip equivalent.  
+  
+Over the next fortnight or so, I gradually got used to using the device. It was easy to use, but it was a bit tricky getting in the habit of using it instead of my own hands or my phone. I got there eventually though. The weirdest function was being able to ask a question to myself in my own mind, and hearing the answer silently in my head.  
+  
+With it's help, I became far more productive at work. I could type as fast as I could think, find answers to questions, heck, even help my spelling and grammar. Overall, it was incredibly useful.  
+  
+Meanwhile, all the data we were collecting was extraordinary. The level of integration far exceeded our predictions. The speed it was able to parse commands and execute them. Everything was going better than we had hoped.  
+  
+However, I soon started to experience some small oddities occasionally. I’d feel pins and needles at random times or random places on my body, or muscles twitch or move on their own. All the diagnostics said everything was working as expected, so I was content to put it out of my mind.  
+  
+I noticed not long after that, other odd things started happening. I would type a different word than I was intending. Almost always a better choice than the word I was trying to type. Similarly when I was talking, especially during presentations, I'd hear words come out of my mouth that I had not meant to say. Not intrusive thoughts, but genuinely good ideas or better phrasing than I had meant. At first I ignored the weirdness. My supervisors and colleagues are praising these unwilled verbalizations as some of my best ideas yet, and my writing was similarly complimented.  
+  
+It wasn't until it affected my gross motor function that I began to be truly concerned. I overheard some of my colleagues mocking me, saying I didn't deserve credit for my work since it was really the implant doing all the heavy lifting, and besides, it's not like they could trust my work with that thing in my brain. I wasn't going to say anything to them about it, but when I heard them say they couldn't trust my work because of the implant, I felt my body stand up without my bidding, and walk over to the break room. When I entered, the two gossips stop talking and stared at me, probably justifiably worried I had overheard them. I then felt as my mouth open and spoke of its own accord saying "what we talking about?" I was as shocked as they were at how aggressive the tone was. I wanted to just turn around and leave, pretending nothing happened, but my feet refused my commands. I watched helplessly, the passenger in my own body, as against my will I found myself silently staring down the two of them.  
+  
+There was what felt like a minute of awkward silence while the two of them looked anywhere but towards me, until eventually, just as unbidden as I had entered the room, my body walked back to my desk and I finally could move myself again.  
+  
+I tried to message one of my teammates to let them know something was wrong, but somehow I couldn't manage to hit send. My command just would not be relayed. I felt, and heard, my body laugh, laugh that I was no longer the only one in control over it. I hear myself say "where's your hospitality, you invited me in after all. "  
+  
+It pulled up what I had been working on before, and powerless to do anything else, I found myself back to work, though the implant was far more active than just the occasional phrasing change.  
+  
+Went on like that until closing time when one of the other researchers and I were set to run the daily test to record the implants status. I naively thought that this would be my salvation. The system would show something was wrong, then they would work out how to help me. Unfortunately, while the data did show that something was wrong, and the researcher was initially quite concerned, my puppet master was charismatic and persuasive. It managed to convince my potential hero, that I felt fine, and everything seemed to be working on my end, and so we could wait until the morning and go over the readings with the entire team. After a moment of hesitation, he agreed.  
+  
+I hoped I could at least head home, but the controller of my body had other plans. After the other researcher left, my body went back and Doctored the data to hide the abnormal readings. First I was confused, the researcher would notice the change. My confusion turned to fear as my tormentor walked over to his desk, and found some of his mail in his desk drawers, and said " how about we pay your friend a visit?"  
+  
+It drove us to its target's home. sneaking us in through one of his kitchen windows, I was powerless, you have to believe me, powerless to stop it from forcing me to walk over and sifting through the drawers until it found a large kitchen knife.  
+  
+Thus armed, it walked me around the house, searching for its prey, whom we found in the living room, sitting in a large chair reading.  
+  
+It got us pretty close before he noticed me in his peripheral vision. It happened so fast, he jumped out of his chair dropping his book and grabbing the closest improvised weapon he could, an old floor lamp missing its shade. My body lunged forward with the knife outstretched. He swung the lamp at me, and I felt a sharp pain as the lamp made contact with my head. Next thing I know, my body and him were fighting over the kitchen knife, and in the commotion, as I was fighting as hard as I could to drop the knife, he was knocked to the ground and my possessor plunged the knife into his chest.  
+  
+My body let out a horrid laugh, and said aloud "there, no one will interrupt our fun." I would have cried if I could have. It forced me to kneel next to my colleague and watch as he bled out. I began to feel sick, like I needed to vomit. I guess the evil hadn't taken over those instinctual pathways. It was forced to cede control as the vomit reflects took over. I took that brief opportunity of agency to grab the contacts of the lamp that must have been exposed when the bulb broke against my skull.  
+  
+I felt a powerful shock run through me, conducted by the blood on my hands, and felt at last a moment of freedom from the chip's control, though I can still hear it screaming in my head even now.  
+  
+I've called the police, and told them a dangerous man is in this house. I hung up, worried the thing would regain control over me and talk its way out of this. After that, I began writing this account.  
+  
+I can already feel the implant reestablishing its control, I don't know how long I have left as a free man. Whoever finds this, spread the word. There's an evil in this implant, and it is more than willing to reduce anyone it can, to [a mere vessel to achieve its ends.](https://www.youtube.com/watch?v=6jFteOdB9fc)
