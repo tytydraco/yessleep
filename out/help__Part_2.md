@@ -24,4 +24,6 @@ I'm going to keep you updated.
 
 \-Josh
 
-[Part 3](https://www.reddit.com/r/nosleep/comments/1807n7v/helppart_3/?utm_source=share&utm_medium=web2x&context=3)
+Part three: [https://www.reddit.com/user/ExistentiallyTired-/comments/182hhbm/help\_part\_3/?utm\_source=share&utm\_medium=web2x&context=3](https://www.reddit.com/user/ExistentiallyTired-/comments/182hhbm/help_part_3/?utm_source=share&utm_medium=web2x&context=3)
+
+Part four: https://www.reddit.com/r/nosleep/comments/189nlgd/help\_part\_4/?utm\_source=share&utm\_medium=web2x&context=3

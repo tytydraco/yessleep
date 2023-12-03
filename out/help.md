@@ -78,4 +78,7 @@ help.
 
 Part 2:https://www.reddit.com/r/nosleep/comments/17xrye5/help_part_2/?utm_source=share&utm_medium=web2x&context=3
 
-Part 3:https://www.reddit.com/r/nosleep/comments/1807n7v/helppart_3/?utm_source=share&utm_medium=web2x&context=3
+Part 3:
+https://www.reddit.com/user/ExistentiallyTired-/comments/182hhbm/help_part_3/?utm_source=share&utm_medium=web2x&context=3
+
+Part 4: https://www.reddit.com/r/nosleep/comments/189nlgd/help_part_4/?utm_source=share&utm_medium=web2x&context=3
