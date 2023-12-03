@@ -174,7 +174,7 @@ His eyes were blank and his pupils blown wide open, pure black orbs that roved c
   
 There was only one person who I believed had the power to bring us back to our world from Scarville. He sat on a throne of silver laid on top of thousands of bones, tripping on a high dose of LSD. As soon as we had unchained ourselves, we began moving towards Smiley. Every time I looked at the army following the Wandering King, they seemed closer and closer- not more than a few minutes away by this point.  
   
-Smiley’s personal guards and priests had all drank the mead, and most had wandered off or laid on the ground, talking to themselves. Some just ran away like demons from Hell were hot on their heels. I knew the soldiers of Koras could not formulate any real defense in this condition. Our only chance to survive was to rouse Smiley and have him take us out of here.  
+Smiley’s personal guards and priests had all drunk the mead, and most had wandered off or laid on the ground, talking to themselves. Some just ran away like demons from Hell were hot on their heels. I knew the soldiers of Koras could not formulate any real defense in this condition. Our only chance to survive was to rouse Smiley and have him take us out of here.  
   
 “Smiley!” Isabella cried as she reached his massive throne. He looked at us blankly. I took Mr. Grin out of my shirt. The skull grinned up at me, its black eyes excited and pulsating. “It’s us, Isabella and China Cat and Jay. We’re here, man. We’re finally here.” Her voice broke, and she started to cry.  
   

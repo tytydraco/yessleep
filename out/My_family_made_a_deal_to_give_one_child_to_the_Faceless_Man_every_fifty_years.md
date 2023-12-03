@@ -54,7 +54,7 @@ After that, we barricaded the doors and locked all the windows. I knew it wouldn
   
 “What do you mean, a sacrifice?” I asked, my child’s mind not comprehending the magnitude of the situation yet. My father hesitated.  
   
-“He eats the souls of people,” my father said. “My great-grandfather and him drew up a contract a long, long time ago, and ever since, our family has had great wealth. You’re young, so you don’t really understand fully yet, but not everyone lives in mansions like us. Not everyone vacations in Paris and Buenos Aires during summer vacation. Not everyone has a garage full of Porsches and Mercedes.”  
+“He eats the souls of people,” my father said. “He and my great-grandfather drew up a contract a long, long time ago, and ever since, our family has had great wealth. You’re young, so you don’t really understand fully yet, but not everyone lives in mansions like us. Not everyone vacations in Paris and Buenos Aires during summer vacation. Not everyone has a garage full of Porsches and Mercedes.”  
   
 “So why don’t you just tell him no?” I asked in my childish way. “We don’t need all this money.” The left side of my father’s face began twitching. He stomped towards me, shouting as tears ran down his face.  
   
