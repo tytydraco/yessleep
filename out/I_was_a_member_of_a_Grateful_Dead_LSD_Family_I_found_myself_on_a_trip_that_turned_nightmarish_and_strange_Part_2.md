@@ -121,3 +121,11 @@ I saw it all happening in slow motion. He had to crouch to get out, and it gave 
 “Daddy, no!” the little girl from the beginning of the tunnel cried, rushing out of the small room and holding her bleeding father as his paint mask continued to suck in and out with his last few breaths. I looked at it all, feeling dissociated, as if I were watching someone else’s life.
 
 “That was a close one,” I whispered, looking down to see a knife sticking out of my leg. The pain hit me all at once as blood poured from the wound, making my jeans stick to my skin. I fell down, yelling out for help. China Cat ran over to me, and I wondered, at that moment, if I was dying.
+
+&#x200B;
+
+Part 3
+
+[https://www.reddit.com/r/nosleep/comments/189u6bh/i\_was\_a\_member\_of\_a\_grateful\_dead\_lsd\_family\_i/](https://www.reddit.com/r/nosleep/comments/189u6bh/i_was_a_member_of_a_grateful_dead_lsd_family_i/)
+
+&#x200B;
