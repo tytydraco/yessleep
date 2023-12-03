@@ -1,0 +1,33 @@
+Ok, weird question, BUT hear me out: when I was a kid, I had the ability to make small objects disappear, and also one time I took a peek into the future me.
+
+The small objects disappearance power: So I remember several occasions where I would make something disappear in my hand when I close it, but never on command. Usually I wouldn't take my eyes off my hand and then, the small object would disappear. 
+
+I don't quite remember very well all the times I made it disappear. I remember two occasions where that happened and I recall the frustration feeling because I did it again, but don't remember other times.
+
+One of the occasions where that I was in this kind of a simple stroller for bigger kids, that you just fold it once and you can carry it around with you. So I was seated in one of those when I was maybe four or five years old. I had this small hard rubber doll of Mulan. She was in her green/yellow dress, and at that time I was really obsessed with it. 
+
+So I was being pushed in Carrefour, we just got in. My stroller didn't had an opening for my back, it was just one whole fabric that went from my seat to my head. I was playing with my Mulan doll on my lap, and I liked how it felt on my hand. Out of nowhere, I closed it on my hand, holding it very very tight, and put my both hands on my back, still holding it (don't ask me why, I just wanted to do it). It stayed like this for like 3 seconds, and I brought my hands back to my lap, but suddenly my hands were empty. I looked back on the floor, to see if my doll was on the floor. Didn't see anything, but then I thought (but I was still feeling it in my hand, it didn't fall, it's not gonna be on the floor). The thing was that while I was bringing my hands to my front, I was still feeling it in my hand, then suddenly not anymore. It was not like losing the grip of feeling it fade away. It was just not there anymore.
+
+I understand that it could have been dropped and I didn't see it - but I can believe in this story because the second occasion was really clear to me that it happened before.
+
+This is the second occasion: I had a small velvet little jewellery empty bag to play with. Probably had an earring that my mom had once and she gave it to me to play with it.
+
+It made me remind a pixie dust bag from a fairy. I had some random little decoration you use to make a friendship bracelet from a kit, and I got the prettiest ones to place it on the velvet bag. I use to pretend that I was a fairy and I used the pixie dust for everything. I used to take it out, but never throwing it to the floor, as I was too afraid to lose it all. It had probably 10 bracelet decoration loose in the bag. Never lost one.
+
+I was playing in my room alone, until my mom came up stares and told me it was time to my ballet lesson, and she was going to make a bun on my head. She came around and started to style my hair, while I was looking at the bag and taking it out into my hand and placing it back. Then I took all of them out into my hand and, again, I liked the feeling in my hand very much. I pressed the decorations in my hand so tightly that my fingers were getting white. The feeling of the little plastic decorations were very nice and kinda pointy. I pressed it for a few seconds, looking at my hand turning colors. Once I opened, there was nothing in my hand.
+
+I looked at my hand astonished, seeing my skin take the normal form again, but the decoration marks faded away very quickly. Immediately I said "Mom!! The pixie dust vanished in my hand!". To that, she said "Probably you just dropped it", and still looking at my hand I replied "No, it was in my hand just now!", so she said "Maybe it's on the bag, I don't know what you did with it". I looked into the bag and it was completely empty. I felt terribly sad. I really fancied that pixie dust, and then I remember feeling frustrated as I did it again without knowing or by command, but I don't recall other times.
+
+Because of the second occasion, I'm not sure if I can just follow logic and say that I probably just dropped Mulan, because it happened before. I never saw Mulan doll again, and surely not my pixie dust.
+
+About the future peek: I remember it PERFECTLY. It was a dream. I remember I was 5 years old, and I was dreaming. I was dreaming that I was standing up in the middle of my room, but not the one I had currently, I just knew it that it was mine. I had my bed in front of me, and at the end of it, there was a brown mirror. I wanted to check how I looked. I started walking to it and I got scared. I looked at me and I was taller, short hair and older. I was wearing a red dress, and looking surprised and a bit scared. I felt tall and older, like if I was 10 years old, or something around that.
+
+I woke up in the middle of the night, and I was back in my room, feeling small again. And young. I turned back to sleep.
+
+Fast forward 5 years (yes, we're going exactly where you think we are) and I never forgot that dream and seeing myself older. We had a major moving. We lived in south Spain for 6 years, and that's the childhood house I remember the most. I had my own bedroom. We moved back to Brazil, to a house my grandmother had. We used to visit that house a bit before moving to Spain, but I don't remember it at all, we just have pictures. The house also changed a lot, so for me it was a complete new house. At that time, I was nine years old. 
+
+I always had very very long straight hair, and I loved a Brazilian character very much, and that character had short hair. So I begged my mom to had it cut for my birthday party. I had it short for a few days before my party, and of course I looked at myself very often into my bedroom mirror. But not until the day of the party that I realised that I had picked a red dress for it, had my dream hair, that I was actually and finally my future self. I just had finished dressing myself up, and of course I wanted to check myself.
+
+And again, I was in the middle of my bedroom, and I walk up to the mirror, and suddenly it comes back to me. I looked surprised and I feel chills. I remember looking at myself like this, EXACTLY like this. I keep staring at myself for a moment and then I shake it off a bit. I finish checking myself up, but I feel very strange. Kinda proud of how old I was now, and remembering myself waking up having 5 years old, making that very moment very vividly in my mind for the rest of my life.
+
+I need to know if as a kid you had this very weird moments that adults don't bought it at the time, but you swear it happened. Please tell me I'm not the only one.

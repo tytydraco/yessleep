@@ -262,15 +262,9 @@ SNAP
   
 
   
-An arm rolled towards me , then a leg . I started backing away slowly but just when I started to do so , a ball shaped object rolled towards me , I shined my flashlight at it and i-it wasn’t a ball 
+An arm rolled towards me , then a leg . I started backing away slowly but just when I started to do so , a ball shaped object rolled towards me , I shined my flashlight at recognize it immediately 
   
-
-  
-O god 
-  
-
-  
-It was a head …
+  It was a head …
   
 
   
