@@ -298,7 +298,7 @@ Was I being praised? Even so, I wasn’t happy in the slightest. This whole time
 
 My fear was being replaced with disgust, the malice carried in those words resonated within me.
 
-***“As Eleanore will explain in a moment, I have occupied this mansion for many years. As you can imagine, it grows dull, simply waiting for my next meal to arrive. Even the taste grows bland and so, I seek entertainment before I dine.”***
+***“As Eleanor will explain in a moment, I have occupied this mansion for many years. As you can imagine, it grows dull, simply waiting for my next meal to arrive. Even the taste grows bland and so, I seek entertainment before I dine.”***
 
 Amidst my hopelessness, I smirked, as I tried to mask my shivering body. “Yeah? Well, you can go fuck yourself for all I care. I’ll only die on my own terms.”
 
