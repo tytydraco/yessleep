@@ -1,0 +1,39 @@
+I'm having trouble writing this right now. My vision is clouded with tears and my hands just won't stop shaking. My mind feels like it's evaporating, and I just can't get enough air in my lungs. I don't have any friends or any family to talk to anymore. They all think I'm crazy. So all I have is him now, but I don't know what he wants, and that terrifies me to my core.  No one believes me and I don't expect you to believe me either. I'm writing this here and I've written multiple notes and left them throughout my apartment. All in hopes that if something does happen to me, finally in death, I'll be believed.
+
+It started 9 years ago. I lived in a 2 bedroom duplex with my dad, my stepmom, my sister, and my aunt. My dad had lost his job and had fallen on hard times. We had to move in with his sister to avoid being homeless.
+
+I had fallen asleep in the living room one night upstairs and woke up around 2:30 a.m. freezing. Someone had left the window next to the TV cracked open so I got up and shut it. Once I did, I looked for my phone throughout the living room before I remembered I had left it in my "room." I placed room in quotations because I didn't technically have a bedroom. My aunt had a master bedroom that she shared with her girlfriend. The guest room was upstairs across the hall from her, and that was my sister's room. Dad wanted us to share it, but I had grown tired of sharing a room with her. So I didn't. I passed by the entryway to their rooms, made my way past the dining room with only the TV in the living room illuminating my path, and reached the stairs.
+
+Up until that day, I wasn't scared of much. The dark had never really bothered me, hell, I remember before that day I used to find it soothing. But that night before I made my way down the stairs, I stopped in my tracks. The darkness down the steps seemed to be denser, almost fog-like, removing detail from everything it touched. My heart started beating faster and I felt like I should turn back. But I didn't. God, why didn't I just fucking turn back.
+
+I went down the stairs, and immediately turned left into my "room."  A futon and one of those huge rear projection TVs were placed right next to the front door. Home sweet home. My phone was on a charger next to the futon, I grabbed it and turned back towards the stairs to make my way up. Then, I saw my dad in the laundry room.
+
+I positioned myself a short distance from the entrance to the laundry room situated at the base of the stairs I had recently descended. Through that doorway all I could see at first was the short stocky outline of my dad standing in front of the washer, staring out the window, shrouded in darkness. I knew my father wasn't doing well mentally so I figured he might be having trouble sleeping.
+
+"Dad? You ok?" I started slowly walking towards him. No answer, no movement. The air itself became colder and my skin tightened with goosebumps. I knew *something* was off, I just didn't know what.
+
+I get next to the stairs right at the entryway. Looking back, I should've just run up and woken up my aunt then. But instead, I say "Dad?" And I then take a step into the laundry room. Nothing.
+
+Immediately when you enter the laundry room a few feet to the right is the "storage room." That's what it was before Dad remodeled it into a 3rd bedroom for him and my stepmom at least. I take my second step in, and as I say "Dad?" this time, I look to my right. My father's door was cracked open, the TV was left on and my stepmother was sprawled on the mattress. But so was my dad.
+
+I look back at the dark shadow I was just calling Dad and it started slowly turning towards me. Everything in me screamed to run, but I felt frozen. As if the darkness around me was holding me in place.
+
+My breath was shaky but completely removed from my lungs when the shadow man locked its glowing red eyes with mine. At that moment, it said so much without speaking a word. I saw hate and murderous intent in those eyes. It took a step and I felt as though the invisible bonds I had around me were broken and I fled up the stairs faster than I had ever before. I tripped on the last step and slammed into the wall.
+
+I sat against the wall, rubbing my head after the fall, and I looked down the stairs again. The darkness once again seemed even denser than last time, knowingly harboring a darker entity within it. Until within that darkness, the red eyes peeked around the corner of the laundry room, directly up the stairs at me. I rushed myself to the bathroom and locked myself in. I was just so scared, I didn't know what to do. I fell asleep in there that night and was startled awake when My aunt knocked on the door later that morning.
+
+I told my dad about it. Know what he did? Laughed. Thought it was just some joke. I was angry for a while, but as more time passed from that night, I thought maybe my mind had just played some tricks on me. I never forgot it though.
+
+Fast forward to yesterday, I woke up inside the bedroom of my small apartment to my dog growling at my closed door. I checked the time and it was 2:43 a.m. I tried to get him to calm down so I could go back to sleep but he looked at me as if to indicate that something was really out there. I tensed up a bit and felt that fear from that day rise inside my chest again. But I just pushed it down and went to the door. I opened it up and was met with the wall of dense darkness I had only seen once before. My dog's growling got more intense and he took it upon himself to walk out and see what was out there. He walked into the hallway a few steps but stopped in his tracks and went completely silent.
+
+He stared into the abyss and I peeked from behind the door to see if there was anything actually there. There was. It was him. Standing in my living room staring back at us. He then crouched down, and my dog walked over to him with his head bowed and tail tucked between his legs. I tried calling him back but it was like he just couldn't hear me anymore. And then, the shadow dragged my dog into the kitchen out of my sight. As I ran to help him, I heard a yelp, and when I turned the corner the shadow's eyes were directly in front of mine.
+
+I ran back to my bedroom, locked the door, and searched for my phone to call 911. I couldn't find it though so I did the next best thing. I opened my window, jumped from my second-story apartment, and almost beat my neighbor's door off its hinges trying to get help.
+
+The cops said there were no signs of any forced entry and asked if I was sure that my dog hadn't just run out of the apartment. Of course, also, it's no help to them when I  have no description except for red glowing eyes. I told my mom, with whom I barely have a relationship anymore, and she said she agreed with the cops. It might just be my mind playing tricks on me, and my dog is probably just out roaming the city right now. I wish someone would just believe me.
+
+I had trouble sleeping the whole night, and I had stirred back awake around 2 hours ago. I went to the bathroom, and when I came back out and looked to my right, the shadow stood in my living room again. I teared up instantly and ran back into my room locking it. I had a feeling it would be back for me. That's why I wrote the notes.
+
+When in the bedroom, I start hyperventilating, and I can't find my phone again. I went to run for the window but when I pulled back the curtain all that was there was my wall. It took my fucking window. My only escape.  Then the knocking started.
+
+Every 60 seconds on the dot, it knocks on the door, taunting me. Just a few minutes ago he decided to start mimicking my dog's whine. I know it's the shadow because the noise and the pitch are just slightly off. Regardless though, I feel I need to open the door to check. If I can save my dog, I'm going to. Maybe the shadow man isn't as bad as I think. Wish me luck.
