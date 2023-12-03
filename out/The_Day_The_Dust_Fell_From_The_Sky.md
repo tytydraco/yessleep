@@ -1,8 +1,8 @@
-Hi everybody, I like to share a story with you about an incident that happened in my town over 40 years ago.
+I'd like to tell you a story about something  that happened in my town over 40 years ago.
 
 The incident in question included a government cover-up and my town being virtually erased from all maps.
 
-The incident I speak of began on July 4th, 1982 during my town's annual Independence Day Parade.
+It all began on July 4th, 1982 during my town's annual Independence Day Parade.
 
 Besides the sweltering heat, the day was like any other day with the whole town in attendance.
 
