@@ -1,14 +1,10 @@
 As morning came, I hadn’t slept a wink. No matter how tired I felt, who knew what would happen if I were to fall asleep. Instead, I had plenty of time to think over what happened last night. Was I going to encounter more monsters as I continued to work here? Would that security guard be able to help me? I could not decide on what the right answer was.A soft knock echoed through the attic, disrupting my restless thoughts. Startled, I turned toward the sound. “Ben, are you awake? May, I come in?” Sophie’s voice on the other side.“Sure.” I replied flatly. She entered, holding a tray of food, in what I assumed was breakfast. As she placed it down, she greeted me with a warm smile that seemed out of place amidst my swirling confusion.Was she unaware of this mansion’s nature? No, that didn’t make sense. She has been in this mansion for God knows how long. Surely, she must have come across something. “Good morning Ben, it seems you didn’t sleep very well. I discourage you from staying up late as that will affect your performance.” She said with a condescending tone. That bitch, she definitely knew what was going on. “Today, we’re going to continue-“
 
-“Would you entertain a question I have?” I interrupted, frustration echoing in my voice.
-
-“Why, of course.”
+“Would you entertain a question I have?” I interrupted, frustration echoing in my voice. “Why, of course.”
 
 “Last night, as I was lighting the candles, something very odd happened.” Her expression remained unchanged. “Some… creature appeared and attacked me. Does any of this… sound familiar?” My tone simmered with anger as I paid close attention to her reaction. “You must have not lit all the candles by midnight like I instructed you.” Her voice was devoid of emotion. This confirmed it, she set me up.
 
-“Oh, my apologies, but ***YOU FORGOT TO MENTION THAT MY LIFE WOULD BE IN DANGER HAD I NOT LIT UP THE FUCKING CANDLES ON TIME!”*** I snapped as rage coursed through me.
-
-She, on the other hand, remained composed. “I believe you were informed that this job would be very strict.”
+“Oh, my apologies, but ***YOU FORGOT TO MENTION THAT MY LIFE WOULD BE IN DANGER HAD I NOT LIT UP THE FUCKING CANDLES ON TIME!”*** I snapped as rage coursed through me. She, on the other hand, remained composed. “I believe you were informed that this job would be very strict.”
 
 ***“THERE’S A VERY BIG DIFFERENCE BETWEEN LIFE THREATENING AND STRICT! SERIOUSLY, WHAT IS WRONG WITH YOU?”*** I replied, as I breathed heavily.
 
@@ -16,9 +12,7 @@ She leaned closer, her words sharp like daggers. “And what will you do now Ben
 
 ”Her face was now inches from mine. “Will you perish Ben? Or will you continue your duties, to see another day?”
 
-My anger was replaced with sheer dread. What the hell was wrong with this woman? How could she be so cruel to someone she’s only just met? Yet, she was right. I had no choice but to comply, until that security guard helped me escape, that is.
-
-She seemed to understand my submission as she stepped back. “If you’ve made your decision, please finish your breakfast and meet me downstairs in 15 minutes.” Her cheerful tone now returned, as if nothing had happened. As she was about to exit, she turned around to face me, inches away from the door.
+My anger was replaced with sheer dread. What the hell was wrong with this woman? How could she be so cruel to someone she’s only just met? Yet, she was right. I had no choice but to comply, until that security guard helped me escape, that is. She seemed to understand my submission as she stepped back. “If you’ve made your decision, please finish your breakfast and meet me downstairs in 15 minutes.” Her cheerful tone now returned, as if nothing had happened. As she was about to exit, she turned around to face me, inches away from the door.
 
 "Oh, I almost forgot to mention, guests will be arriving tonight. So be on your best behavior.” And with that, she left. Leaving me alone with my thoughts once more.
 
@@ -78,9 +72,9 @@ Amongst the chaos, a solitary picture frame rested between the monitors. It disp
 
 “Hey! You actually made it!” he exclaimed, extending his hand. I ignored the pleasantries.
 
-“Tell me how to get out of here.”
+“Tell me how to get out of here.” Recognizing he was overstepping boundaries, he took a step back. 
 
-Recognizing he was overstepping boundaries, he took a step back. “Listen, I don’t want to raise your hopes. There is a very high chance this plan might not succeed.” He said with a hint of nervousness in his tone.
+“Listen, I don’t want to raise your hopes. There is a very high chance this plan might not succeed.” He said with a hint of nervousness in his tone.
 
 “It’s fine, even a small chance is better than nothing.”
 
@@ -326,6 +320,6 @@ Her eyes somewhat lit up. “Why, of course. But Ben… why are you so merciful 
 
 As I laid down, a recollection of today’s events replayed in my mind. I still hadn’t fully digested this surreal environment. Part of me desperately wished it was all a dream, something from which I could wake up. My life was in danger with pain and suffering lurking around the corner, just like my old life.
 
-A somber expression overtook me as I unclasped my metal charm, the moonlight casting its glow upon it. *“Dad.”* I whispered, my voice barely audible in the quiet room. That night, I had no pleasant dreams. Only memories I had long tried to bury.
+A somber expression overtook me as I unclasped my metal charm, the moonlight casting its glow upon it. *“Dad.”* I whispered, my voice barely audible in the quiet room. That night, I had no pleasant dreams. Only [memories](https://www.reddit.com/r/nosleep/comments/189w8o2/working_in_a_mansion_was_stricter_than_i_expected/) I had long tried to bury.
 
 [Part 1](https://www.reddit.com/r/nosleep/comments/17zpxav/working_in_a_mansion_was_stricter_than_i_expected/)

@@ -14,7 +14,7 @@ The people in the cavern who had their limbs amputated continued to moan and whi
   
 “Make way for the Herald,” someone shouted in a deep, gravelly voice that echoed through the stone tunnels. “You swine, you subhumans, move aside.” I looked down the dark tunnel, seeing lanterns heading in our direction. Men in purple robes walked in our direction. Soldiers armed with swords surrounded them on both sides, swearing at anyone who didn’t move fast enough, pushing and shoving people.  
   
-Occasionally, I would hear a whispering, emotionless voice say, “Take that one, he’s good for the Master,” or, “That child there. Grab her.” By the time they got to us, the procession had dozens of prisoners, bound up in chains and linked together. I saw the soldiers grabbing an old man from a small cavern forking off the side of the main tunnel, punching him in the side of the head for no reason. He crumpled to the ground. One soldier with a face like an angry bulldog knelt down, chaining the old man’s hands and roughly lifting him to his feet. The old man swayed, like a boxer before a knockout, and the soldier slapped him hard across the face.  
+Occasionally, I would hear a whispering, emotionless voice say, “Take that one, he’s good for the Master,” or, “That child there. Grab her.” By the time they got to us, the procession had dozens of prisoners, bound up in chains and linked together. I saw the soldiers grabbing an old man from a small cavern forking off the side of the main tunnel, punching him in the side of the head for no reason. He crumpled to the ground. One soldier with a face like an angry bulldog knelt down, chaining the old man’s hands and roughly lifting him to his feet. The old man swayed like a boxer before a knockout, and the soldier slapped him hard across the face.  
   
 China Cat had cut Isabella’s bindings with the same knife I had used to kill the man in the filthy paint mask. She knelt over me as he began to cut away part of my jeans to look at the wound closer.  
   
@@ -40,7 +40,7 @@ I rose slowly, looking at the knife embedded in my leg. It hadn’t struck the b
   
 I looked back, seeing the old man who the soldiers had beat stood almost directly next to me. The right side of his face had already begun to swell, a rapidly darkening purple bruise giving him a squinted, one-sided look.  
   
-But it was clear that this wasn’t the first indignity heaped upon his face. His right cheek had deep, melted scars that ran in keloid folds down to his jaw. The eye on that side had withered like a shrunken grape. It stared out blindly without a pupil or iris, as smooth and white as a pebble worn smooth by a river.  
+But it was clear that this wasn’t the first indignity heaped upon his face. His right cheek had deep, melted scars that ran in keloid folds down to his jaw. The eye on that side had withered like a shrunken grape. It stared out blindly without a pupil or iris, as smooth and white as a pebble worn by a river.  
   
 “Good fortune, friend,” he said in a quivering voice, “though I don’t know how good it will be for any of us now.”  
   

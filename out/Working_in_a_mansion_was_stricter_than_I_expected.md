@@ -205,3 +205,5 @@ I slumped against the wall, drawing the blanket around myself. My eyes darted ar
 Mrs. Montague, Sophie and that security guard. They were my enemies, and they wanted to see me suffer. I truly couldn’t understand why they hated me so much. Were they just looking for a sacrifice or something? Did they enjoy deceiving me with this ‘work’ opportunity? I had no idea what was going on anymore.
 
 I gripped the old metal hanging from my neck. Should I just end it all? I wanted to at least have the freedom of dying on my own terms, not other people’s. Then again, there still could be [a way out](https://www.reddit.com/r/nosleep/comments/185229f/working_in_a_mansion_was_stricter_than_i_expected/) of this deathtrap and I was going to find that, no matter what.
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/189w8o2/working_in_a_mansion_was_stricter_than_i_expected/)
