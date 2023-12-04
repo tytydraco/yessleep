@@ -22,7 +22,7 @@ Ok, that’s a new one, I’ll admit. I’ve done gore stuff, but the woodchippe
 
 I asked WoodyChuck for more details. How should the woman look, what background did they want, that sort of thing. WoodyChuck replied that the woman should be slightly chubby, have dark skin, black hair, green eyes, and a scar on her left cheek. The background should be an abandoned cabin.
 
-I said ok, and asked for payment. I like to get payment first, as I’d rather not spend hours doing a Sonic the Hedgehog inflation pic only for some schmuck to just ghost me (which has happened before). WoodyChuck did pay though. I got some money from a Paypal account with the email , and then got to work.
+I said ok, and asked for payment. I like to get payment first, as I’d rather not spend hours doing a Sonic the Hedgehog inflation pic only for some schmuck to just ghost me (which has happened before). WoodyChuck did pay though. I got some money from a Paypal account with the email [chippr@yahoo.com](mailto:chippr@yahoo.com), and then got to work.
 
 Over the course of a week, I sent WoodyChuck various sketches and images of my progress as the commission progressed. Honestly, WoodyChuck was a bit of an annoying client. They kept asking for very minute changes, and would sometimes want me to redo an aspect of the image they already approved. Sure, they weren’t the worst client I’ve ever dealt with (that would be a guy who asked me to do a pic of some character buying Wonderbread, of all things), but they weren’t my favorite kind of client.
 
