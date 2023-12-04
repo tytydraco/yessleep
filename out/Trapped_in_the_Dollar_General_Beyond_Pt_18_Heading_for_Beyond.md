@@ -200,3 +200,5 @@ Celene gripped my hand tightly, "I hope your couch is comfy, because I think I c
 
 
 We all grasped hands tightly and stepped into the dark space that we hoped would take us home.
+
+pt 19- https://www.reddit.com/r/nosleep/comments/18afuxv/trapped_in_the_dollar_general_beyond_pt_19_the/?utm_source=share&utm_medium=web2x&context=3
