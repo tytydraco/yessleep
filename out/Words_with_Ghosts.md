@@ -198,7 +198,7 @@ My girlfriend blew out all the candles and we both slept on the couch that night
 
 Next morning I walked into the room and found the Boggle box still in there. Asked my girlfriend why it was still there and she said that she couldn’t move her grandma’s stuff.
 
-I shrugged my shoulders and walked out, not bothering to do one final game of Boggle with grandma.
+I shrugged my shoulders and took a photo with my phone. I'll leave this last game of Boggle with my girlfriend's grandma for someone else to solve for now. I might do it later.
 
 |P|M|A|R|
 |:-|:-|:-|:-|
