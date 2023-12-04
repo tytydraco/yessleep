@@ -106,7 +106,7 @@ I instinctively reach out, gently touching Lani's arm to draw her attention. My 
 
 Lani's eyes meet mine, a mixture of confusion and caution reflected in her gaze. With a slight nod, we agree to approach carefully, mindful of the potential risks.
 
-The figure moves with an uncanny grace, almost floating across the forest floor. Its movements are fluid yet disjointed, creating a unreal image against the backdrop of the verdant forest.
+The figure moves with an uncanny grace, almost floating across the forest floor. Its movements are fluid yet disjointed, creating a unreal image against the backdrop of the green forest.
 
 As we inch closer, the air around us grows noticeably hotter, a stifling heat that seems to radiate from the figure itself. The ground beneath its feet is scorched, leaving a trail of smoldering embers and blackened earth in its wake. The underbrush, parched from the recent dry weather conditions, catches fire at the slightest touch of the entity's burning footsteps.
 
