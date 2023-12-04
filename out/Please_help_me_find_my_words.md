@@ -60,4 +60,4 @@ I tried to scream as loud as I could. Nothing came out. I tried to plead with he
 
 The next morning I woke up completely mute. I’ve been to every doctor and specialist my health insurance will pay for, but no one knows why I’m no longer able to speak.
 
-Having exhausted every traditional medical route I turned to sub-reddis and online forums, but no one has been able to help me. All I can do is hope every night as I drift off to sleep that I’ll dream of her again and take my words back.
+Having exhausted every traditional medical route I turned to sub-reddits and online forums, but no one has been able to help me. All I can do is hope every night as I drift off to sleep that I’ll dream of her again and take my words back.
