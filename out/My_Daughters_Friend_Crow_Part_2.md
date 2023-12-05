@@ -346,3 +346,9 @@ I didn’t go to school that day, and when my parents asked how I got hurt, all 
 I’m smarter about our little 2am trips now, I understand I’m not some kind of superhero. I watch, and I learn, and I try and figure out what the hell I can do to save my family from this curse. 
 
 Looks like I never did get around to telling you how I lost Crow. Going to call accident on purpose on that one. I still feel really stupid about it, and maybe I will just let Dan do the breakdown.  Somehow he doesn’t think it was my fault.
+
+
+
+Link to part 3
+
+https://www.reddit.com/r/nosleep/s/c7Ktr3ZrK3
