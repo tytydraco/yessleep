@@ -12,6 +12,4 @@ They think it's really funny to have a celebratory barbecue for the us right aft
 
 On that last night, we were forced to sleep next to the dead we cut up earlier. But that night, even though I was asleep next to this guy's body parts, it was the best sleep I got in those 3 weeks. I knew I made it. I was in the cartel. No more getting woken up to gunfire, them rushing into the cold, dark room yelling. They kept us cold and tired those 3 weeks. But they were worth it.  I made it, though. If hell is real, then this is it. We tortured, dismembered, and burned our enemy. We lost the fear of blood and were capable of doing horrific things to our opponents without feeling guilty or sad. We have no consciousness, no heart. I made it, though.  I'm in the cartel 
 
-This is my cousins story. I think it belongs here.  I have more on him and his adventures as a Hitman for the cartel. His career was short, 2 years before he was captured, and they tortured him by slicing his face off while he was alive. My aunt and uncle couldn't have an open casket for him. They only had his head  his hands and one of his legs. They never found his face or the rest of him.  RIP Checo!  
-
-Let me know if you guys want to hear more.
+.  RIP Checo!  
