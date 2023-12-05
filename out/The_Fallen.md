@@ -18,4 +18,8 @@ In their solemn recollection, they spoke of a war that once raged in the heavens
 
 As they spoke, the air grew dense with their ominous presence, a tangible darkness that seemed to distort reality itself. "We are the fallen that do not follow," they proclaimed, their tone a blend of an invitation and a forewarning. "You, who have felt our cold touch since childhood, are you prepared to embrace your destiny? Will you lead us?"
 
+Then, with a gravity that seemed to bend the very air around us, they presented their ultimatum. "You have six days," they declared, "six days to decide whether you will join us in our eternal wanderings, to lead us, to shape the destinies of both the living and the dead."
+
 In that moment, the magnitude of their proposition loomed over me. Leading them could mean a descent into a realm of shadows and sorrow, a journey beyond the mortal understanding. Yet, there was an allure, a call to unravel the full extent of my connection to these enigmatic entities. The choice lay before me, shrouded in darkness and uncertainty, yet beckoning me towards a destiny that had been echoing my name since I was a child.
+
+The clock was ticking, each second a whisper from the past, each day a step closer to a decision that would define my existence. Will I accept their offer and lead the the fallen, or will I turn away from this shadowed path and seek a different destiny?
