@@ -103,7 +103,7 @@ Suddenly, I could hear his footsteps approach outside. I slammed the fridge door
 
 &#x200B;
 
-I’ve been lying on my bed in the darkness ever since. I’m not sure if Greg already knows I broke his rules and I’m not sure if he knows that *I know*. I just don’t know what to do. I’m too terrified to move and too terrified to call for help. All I can see is the blonde hair and the one blue eyeball.
+I’ve been lying on my bed in the darkness ever since. I’m not sure if Greg already knows I broke his rules and I’m not sure if he knows that *I know*. Greg's cooking again now, right in front of the door.  I’m too terrified to move and too terrified to call for help. The whole room smells like vinegar. I don't know what to do. All I can see is the blonde hair and the one blue eyeball.
 
 &#x200B;
 
