@@ -66,7 +66,7 @@ After the front-of-house was finished and gone, I called Dave and told him what 
 “Yes. Larry. It’s what I named him.”
 
   
-Dave chuckled at this and nodded, “Larry…I like it.” He seemed to ponder on the name a little bit with a smile. “Well,” He put his hand on my shoulder, “I will clean up anything you’ve missed and I will handle ‘Larry.’” He said his name in a mocking town before growing serious again. “Now go home. I’ll see you tomorrow.” His voice told me he would hold firm in me leaving, so I did. As I walked out, I heard Dave lock the door behind me.
+Dave chuckled at this and nodded, “Larry…I like it.” He seemed to ponder on the name a little bit with a smile. “Well,” He put his hand on my shoulder, “I will clean up anything you’ve missed and I will handle ‘Larry.’” He said his name in a mocking tone before growing serious again. “Now go home. I’ll see you tomorrow.” His voice told me he would hold firm in me leaving, so I did. As I walked out, I heard Dave lock the door behind me.
 
   
 The next morning I checked the news. We’ve lost a few employees before and every time they never end up in the news or the missing person’s registry. I don’t know how Dave does it but it’s like they ceased to exist. This time was no different. I’m sure I will go back to the restaurant where everyone will only mention Lydia in hushed whispers from the people who didn’t quit.  
