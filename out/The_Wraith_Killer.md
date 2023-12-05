@@ -1,4 +1,4 @@
-*Wraith Killers* was the best game of 1993, according to the nerds at my high school. You’ve probably never heard of it because it was the last batch in a defunct shareware group run out of a garage and never ascended to internet immortality like most games. I think that was intentional. 
+*Wraith Killers* was [the best game of 1993](https://youtu.be/tC_7PGjXSK4?si=NwK_p7bttZyjUuvd), according to the nerds at my high school. You’ve probably never heard of it because it was the last batch in a defunct shareware group run out of a garage and never ascended to internet immortality like most games. I think that was intentional. 
 
 I secretly liked video games too, but it wasn’t cool back then to talk about them in public. You would be grouped with the nerds if you did, and while I certainly wasn't popular, I had worked hard at being left alone through exercise, weights, diet, and a cold, hard stare. 
 
@@ -216,7 +216,7 @@ I grabbed him by the throat and pushed him against the lockers. "I know where yo
 
 I only saw them a handful of times around school after that. I don't know for sure if they kept playing the game but I think so. 
 
-They abandoned their lockers, but I'd see them every so often through the years of high school. They gained a reputation too: [Weirdos, Satanists, future serial killers (https://youtu.be/tC_7PGjXSK4?si=6wnQuOMhz9s1hory).
+They abandoned their lockers, but I'd see them every so often through the years of high school. They gained a reputation too: [Weirdos, Satanists, future serial killers] (https://youtu.be/tC_7PGjXSK4?si=6wnQuOMhz9s1hory).
 
 None of these labels quite described what they were or what they'd become. 
 
