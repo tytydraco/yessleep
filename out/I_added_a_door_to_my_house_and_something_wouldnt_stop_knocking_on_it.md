@@ -22,7 +22,7 @@ The next night, after I put our son to bed, I was gaming with some friends in th
 
 It was dark, but the exterior door that led from the garage to the side yard was open, swinging slightly from what I thought was wind. But when it came to a stop all the way open, it fell still. I stepped into the door frame and looked around, and didn’t feel any breeze. Just the cold, still November air.
 
-I had a moment of genuine fear, but felt incredibly stupid when I realized: my wife was screwing with me. We enjoy horror, and occasionally will try to scare each other. Remember that one guy whose wife who wouldn’t stop smiling at him? I shared that with her back then, and for a while we pranked each other by hiding in weird places with big smiles. It was a good gag, but it had been a while since either of us had done something like this.
+I had a moment of genuine fear, but felt incredibly stupid when I realized: my wife was screwing with me. We enjoy horror, and occasionally will try to scare each other. Remember that one guy whose wife wouldn’t stop smiling at him? I shared that with her back then, and for a while we pranked each other by hiding in weird places with big smiles. It was a good gag, but it had been a while since either of us had done something like this.
 
 I went out to find her in the living room, pretending to watch Great British Bake Off or something but really just doom scrolling, and said “nice one, you really had me there.” She played dumb, exactly as I expected, but I was confident I’d figured it out.
 
