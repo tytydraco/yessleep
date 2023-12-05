@@ -1,0 +1,15 @@
+I was devastated. My best friend, Matt, dead. He was killed in a motorcycle accident on the way home from track practice. It was so bad, there weren't even remains to show at the funeral. Just a sad picture of my best bud and an empty casket.  
+  
+As a Christian, I never believed in ghosts, but now I can say with definite confidence that ghosts are real. They are a very real part of my life now, and I'm not sure what to do.  
+  
+Yesterday, after Matt's funeral, I was lying in my bed thinking of ways that I could have saved my friend, an act that was starting to become more habitual. Maybe if I had asked him to go out to dinner together, he wouldn't have been hit. Maybe if I had talked to him for a little longer, he would have left a little later and avoided the fatal crash. My mother, who is a grief therapist, says that this is called the third stage of grief: bargaining.  
+  
+Anyways, as I was lying in my bed, I heard a sort of blowing sound in my room. Nothing to worry about, the wind was just battering my curtains. I got up to close my window, and then I realized something was wrong: my window was already closed. I already knew something was wrong, and it wasn't too surprising when my curtains started billowing in the "wind" again. In what I can only describe as an act of pure fear, I pulled back my curtains, hoping that nothing was there. I was met with nothing.  
+  
+Breathing a sigh of relief, I fell back into bed, and tried to sleep off whatever just occurred. And then it happened again. My curtains began to billow in a nonexistent wind, and a chill came over my body. "What the fuck?" I thought. Just to be sure, I checked behind the curtains again. There was nothing out of the ordinary. And then I heard a rustle behind me, like leaves being pushed around by a gentle breeze.  
+  
+I whipped around, and that's when I saw him: Matt, sitting on my bed, as he always did whenever he came over. He was only there an instant, and before I could even comprehend what I saw, he disappeared with a wink and a smirk. He was there one second, and gone the next. In disbelief, I ran over to my bed and patted it down to make sure that I wasn't missing anything. The only thing that was weird was a red stain where I saw Matt sitting, and thin layer of frost in the general vicinity of that red stain. It looked like the frost was only where he was sitting in that brief moment.  
+  
+I've spent all of last night trying to come up with a reasonable explanation for what happened that night. I have nothing. I have no history of hallucinations, no mental illnesses, nothing of the sort. I know what I saw was real. After I told Matt's girlfriend(ex-girlfriend now?) about what happened, she could provide no reason as to what happened, but suggested that I turn to the kind people of Reddit to help me with my situation.  
+  
+I'll keep you guys posted if anything new arises. Cheers, and TIA.
