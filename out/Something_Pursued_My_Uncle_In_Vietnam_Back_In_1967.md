@@ -8,11 +8,11 @@ My uncle who never got married or, had kids of his own treated me like a daughte
 
 He taught me how to ride a bike and to always tell the truth.
 
-Oh, and my uncle wasn't the type of man who was scared easily either.
+Oh, and my uncle wasn't the type of man who scared easily either.
 
-As he began to tell me his story I could hear the fear in his voice (which was unusual for him) so, I knew everything that he was saying was true.
+Anyway, as he began to tell me his story I could hear the fear in his voice (which was unusual for him) so, I knew everything that he was saying was true.
 
-Anyway after taking a sip of water, he began his story...
+After taking a sip of water, he began his story...
 
 It was the summer of 67.
 
