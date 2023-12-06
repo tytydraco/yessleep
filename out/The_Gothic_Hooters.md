@@ -107,7 +107,7 @@ Deciding to go to the bathroom as a pretense so I could snoop around, I went ins
 
 &#x200B;
 
-I'd only been in the bathroom for less than a minute. They probably thought I would be there for a couple more minutes, which meant I had time so long as I was careful. I crept out of the bathroom and was about to make my way outside when I saw the teenager was still here. Her hands were on her hips and her back was turned to me, but it was clear she was a lookout. I reached out and took the knife from her skirt. She must have felt my hand because she gasped and wheeled around, but by then I'd already put her neck in a chokehold with my arms. "help," she tried to shout, but her voice was muffled. I held on until she went limp, but I checked to make sure she was still breathing. I didn't want to kill anyone, just knocking her out was my goal and I succeeded. I lifted up her body and put her inside the men's bathroom in one of the toilet stalls, a good place to hide her.
+I'd only been in the bathroom for less than a minute. They probably thought I would be there for a couple more minutes, which meant I had time so long as I was careful. I crept out of the bathroom and was about to make my way outside when I saw the teenager was still here. Her hands were on her hips and her back was turned to me, but it was clear she was a lookout. As I approached, she sang a creepy song under her breath. "Greedy capitalist farmers poisoning our women & men with nitrates & preservatives, we're going to kill you..." I reached out and took the knife from her skirt. She must have felt my hand because she gasped and wheeled around, but by then I'd already put her neck in a chokehold with my arms. "help," she tried to shout, but her voice was muffled. I held on until she went limp, but I checked to make sure she was still breathing. I didn't want to kill anyone, just knocking her out was my goal and I succeeded. I lifted up her body and put her inside the men's bathroom in one of the toilet stalls, a good place to hide her.
 
 &#x200B;
 
@@ -143,6 +143,7 @@ I turned to run, terror going through me. There was no way I could beat her. I d
   
 I made it to the door, slamming it open just in time to hit her hard between the eyes. "OOF!" she grunted and clung to the side of the truck, blood running down her face as I turned the key and shifted to drive. Her face contorted in rage, she hit the window with her fist, cracking it. I jigged back and forth, but she held on and her hand reached into the window.
 
+
 &#x200B;
 
 &#x200B;
@@ -151,6 +152,8 @@ I accelerated and drove straight for the restaurant. I swerved at the last secon
   
 
   
+
+
 
 
 I reported all of this to the police the next day, but when they went to investigate, the building was empty of everything, including the sign. Who were those people and what did they want?

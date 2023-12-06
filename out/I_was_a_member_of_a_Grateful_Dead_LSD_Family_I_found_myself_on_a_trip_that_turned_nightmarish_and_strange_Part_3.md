@@ -36,7 +36,7 @@ I rose slowly, looking at the knife embedded in my leg. It hadn’t struck the b
   
 “You won’t have long to eat it if it is,” he said cryptically. “You’re better off sharing it with us now if it is.”  
   
-“It isn’t food,” he responded. The man turned back around as the line began to move forwards. I leaned heavily on China Cat as waves of fire ran up and down my bleeding leg.  
+“It isn’t food,” he responded. The man turned back around as the line began to move forwards. I leaned heavily on China Cat as waves of fire ran up and down my bleeding leg.China Cat saw the glances other prisoners gave him, and he handed me the head of Mr. Grin. I tucked it into my shirt.
   
 I looked back, seeing the old man who the soldiers had beat stood almost directly next to me. The right side of his face had already begun to swell, a rapidly darkening purple bruise giving him a squinted, one-sided look.  
   
