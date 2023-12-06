@@ -16,7 +16,7 @@ It was the summer of 67.
 
 I was in the army and just arrived in Vietnam a month earlier.
 
-I was a naive 20-year-old and it was the first time I was this far away from home.
+I was a naive 20-year-old and it was the first time being this far away from home.
 
 I remember it was unbearably hot my first month there.
 
