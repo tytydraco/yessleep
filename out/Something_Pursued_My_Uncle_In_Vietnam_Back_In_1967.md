@@ -8,7 +8,7 @@ My uncle who never got married or, had kids of his own treated me like a daughte
 
 He taught me to always tell the truth and wasn't the type of person who scared easily either.
 
-Anyway, as he began to tell me his story I could hear the fear in his voice (which was unusual for him) so, I knew everything he was about to tell me was true.
+Anyway, as he began to tell me his story I could hear the fear in his voice (which was unusual for him) so, I knew then that everything he was about to tell me  was going to be true.
 
 After taking a sip of water, he began his story...
 
@@ -16,7 +16,7 @@ It was the summer of 67.
 
 I was in the army and just arrived in Vietnam a month earlier.
 
-I was a naive 20-year-old and it was the first time being this far away from home.
+I was a naive 20-year-old and my first time being this far away from home.
 
 I remember it was unbearably hot my first month there.
 
