@@ -150,4 +150,4 @@ Devin seemed like he was going to crack a joke but stopped when he saw the look 
 
 No, I didn't remember. I didn't even know what was real. I gathered my things and left without a word. Didn't really speak to anyone for months.
 
-Eventually, I just told myself that it was a bad trip that wiped my memory and replaced it with something worse. But every time I try to convince myself of that, it just took one glance inside that bag of stained clothing to tell me that it was more than just a bad trip.
+Eventually, I just told myself that it was a bad trip that wiped my memory and replaced it with something worse. But every time I try to convince myself of that, it just takes one glance inside that bag of stained clothing to tell me that it was more than just a bad trip.
