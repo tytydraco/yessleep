@@ -1,22 +1,20 @@
 Several years ago, while my Uncle Bob was dying of cancer, he told me a story about an incident that happened to him while serving in Vietnam.
 
-A sort of bedside confession if you will.
+A sort of a death bed confession if you will.
 
 Now, my Uncle Bob (my dad's younger brother) was a good Christian man who would have given you the shirt off his back, if it helped you (sorry to sound so cliche).
 
 My uncle who never got married or, had kids of his own treated me like a daughter and tried to instill good values in me.
 
-He taught me how to ride a bike and to always tell the truth.
+He taught me to always tell the truth and wasn't the type of person who scared easily either.
 
-Oh, and my uncle wasn't the type of man who scared easily either.
-
-Anyway, as he began to tell me his story I could hear the fear in his voice (which was unusual for him) so, I knew everything that he was saying was true.
+Anyway, as he began to tell me his story I could hear the fear in his voice (which was unusual for him) so, I knew everything he was about to tell me was true.
 
 After taking a sip of water, he began his story...
 
 It was the summer of 67.
 
- I was in the army and just arrived in Vietnam a month earlier.
+I was in the army and just arrived in Vietnam a month earlier.
 
 I was a naive 20-year-old and it was the first time I was this far away from home.
 
