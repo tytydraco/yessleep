@@ -123,7 +123,7 @@ I made my way outside. I followed the Goth who had been examining my truck, and 
 
 &#x200B;
 
-I turned and saw one of the waitresses, but it was a new one. She was broad shouldered from working out and because of the tank top I could see every muscle on her arms. She was also taller than me, taller than six feet. 
+I turned and saw one of the waitresses, but it was a new one. She was broad shouldered from working out and because of the white tank top I could see every muscle on her arms. She was the only one of the waitresses wearing a pants instead of a skirt, a black sweatpants. She was also taller than me, which means she was taller than six feet. 
   
 
   
@@ -141,14 +141,14 @@ I turned to run, terror going through me. There was no way I could beat her. I d
   
 
   
-I made it to the door, slamming it open just in time to hit her hard between the eyes. "OOF!" she grunted and clung to the side of the truck, blood running down her face as I turned the key and shifted to drive. Her face contorted in rage, she hit the window with her fist, cracking it. I jigged back and forth, but she held on and her hand reached into the window.
+I made it to the door, slamming it open just in time to hit her hard between the eyes. "OOF!" she grunted and clung to the side of the truck, blood running down her face as I turned the key and shifted to drive. Her face contorted in rage, she hit the window with her fist, cracking it. I jigged the truck back and forth, shaking her grunting form colliding with the truck but she held on, her balance perfect. 
 
 
 &#x200B;
 
 &#x200B;
 
-I accelerated and drove straight for the restaurant. I swerved at the last second, but we were close enough that the wall hit the buff Goth, scraping her off with a sickening crunch. Before it hit her, there was a split-second where her eyes widened in terror as the reality of her situation came down on her. Her mouth opened wide to scream but then the wall hit her and that was that. I drove off and never looked back. There was a splatter of blood on my truck from where the wall had scraped buff Goth off. 
+Even those muscles got to get tired sometime, I thought as I twisted & turned the truck, noting the way she gritted her teeth in pain as she collided repeatedly. She roared in anger and punched the glass, shattering it. I twisted the wheel again, and her shoulder involuntarily slammed into the broken window. Teeth clenched, she reached her hand into the car. I accelerated and drove straight for the restaurant. I swerved at the last second, but we were close enough that the wall hit the buff Goth, scraping her off with a sickening crunch. Before it hit her, there was a split-second where her eyes widened in terror as the reality of her situation came down on her. Her mouth opened wide to scream but then the wall hit her and that was that. I drove off and never looked back. There was a splatter of blood on my truck from where the wall had scraped buff Goth off. 
   
 
   

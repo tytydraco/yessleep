@@ -1,10 +1,10 @@
-It was the 4th of July, a few years back. I was in Santa Barbara with my then gf for her dad's retirement party. A friend of his was letting us stay in her house during the week.
+It was the 4th of July a few years back. I was in Santa Barbara with my then gf for her dad's retirement party. A friend of his was letting us stay in her house during the week.
 
    
-I'd only been to Santa Barbara one other time, and only for a few hours, spending a whole week there, in this gorgeous house overlooking the ocean was like a dream come true.  
+I'd only been to Santa Barbara one other time, and only for a few hours, spending a whole week there in this gorgeous house overlooking the ocean was like a dream come true.  
 
 
-If you've never been, you really should, it's such a lovely city. I expected some of the oppressive nature of L.A. but there is none of that, there. It almost seem like a small town, in the way people acted and even how the city looks from the outside. I'm from the Midwest, so maybe I'm just better suited to cities without towering skyscrapers, I don't know. Somebody told me, "the sun is nearer, here", and I thought that was silly, but it really does feel that way.  
+If you've never been you really should, it's such a lovely city. I expected some of the oppressive nature of L.A. but there is none of that there. It's almost seem like a small town in the way people acted and even how the city looks from the outside. I'm from the Midwest, so maybe I'm just better suited to cities without towering skyscrapers, I don't know. Somebody told me, "the sun is nearer, here", and I thought that was silly, but it really does feel that way.  
 
 
 In any case, my gf and I had planned out the entire trip. We were, of course, expected to be at and help set up/tear down the retirement party when that happened, but other than that, we were free to do as we pleased. So we spent each day doing different things. We went to the zoo, we went to Knott's Berry Farm (not in Santa Barbara, I know) and every day we woke up in a gorgeous house, had one of the very best breakfast burritos I've ever had, and overlooked the ocean from the home owner's spacious back patio.  
@@ -23,6 +23,7 @@ So we stopped at a Walgreens and picked up a few more bottles to be on the safe 
 
 
 It was a perfect day. Warm, but not hot, even the ocean was warm and so clear you could see the bottom everywhere you went. We'd swim for a bit, then go and get in some shade and smoke.   
+
 After a while the acid kicked in, and everything was  heightened. Colors brighter, sensations more vivid. I buried my feet in the sand, loving the feel of it's soothing heat against my damp skin and looked out onto what was to become a core memory; Shimmering blue waters, stretching out forever, laughter bubbling through the air from the other beach goers, a dog or two joyfully bounding by, and the woman I loved sitting in the shade next to me, laughing at me, while I played in the sand like a child, and sharing this moment with me.  
 
 

@@ -157,4 +157,6 @@ If anyone reads this, can anyone help us? We’re only fisherman, who’ve dealt
 Oh, and one final thing. I don’t know if it’ll help, but when I went for my walk to prove to myself nobody else is here, I found a life ring which had the name of this ship stamped into it. Maybe someone can look to see if the ship has been labeled missing or something, which would work to try and get someone to know where we are. The name of the ship bears the same name as the huge, almost creepy looking painting on the wall that, in the dark, I try not to look at.  
 
 
-*R.M.S. Queen Elizabeth*.
+*R.M.S. Queen Elizabeth*.
+
+[Part 2](https://www.reddit.com/r/nosleep/s/gT4Mnp4ZsB)
