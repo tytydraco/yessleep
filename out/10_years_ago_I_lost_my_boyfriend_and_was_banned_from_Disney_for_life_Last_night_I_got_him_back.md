@@ -122,7 +122,7 @@ Something in the kid’s expression twisted. He turned away from me, focusing on
 
 “Back when I was Charming, the bastards slaughtered me and kept him.” The kid’s words were not what I was expecting, immediately taking me off guard. Suddenly, his odd fashion sense was significant. The boy’s lip curled, eyes narrowing, like he too was looking for something. It felt like the ground had been ripped from my feet. If this kid was implying what I thought he was implying, then my therapist was wrong. My mom was wrong. Everyone was wrong. 
 
-It was so cold, and yet warmth was slowly spreading through me, bile making its way up my throat. The boy jumped up and down on his heels. “Now, I'm standing here in the freezing cold when I *should* be home, trying to find Flynn’s little brat of a brother, who just *had* to get himself caught.”
+It was so cold, and yet warmth was slowly spreading through me, bile making its way up my throat. The boy jumped up and down on his heels. “Now, I'm standing here in the freezing cold when I *should* be home, trying to find his little brat of a brother, who just *had* to get himself caught.”
 
 I was breathless, suddenly. “You were *one* of them?”
 
@@ -178,7 +178,9 @@ But I needed to see it for myself. “I lost Roman and Maya,” the kid continue
 
 I had a hard time figuring out what he meant by *this body*. 
 
-The kid caught my eye, lips quirking into a smile that was human, despite everything else about him being anything but.  “I'm Dylan, by the way!” 
+The kid caught my eye, lips quirking into a smile that was human, despite everything else about him being anything but.  “I'm Dylan, by the way! Kidnapped in 2011, and turned into a fucking doll."
+
+That explained his fashion sense. 
 
 Ignoring his half hearted salute, I focused on the boy’s words. “You were one of those things, and they let you go.”
 
@@ -196,11 +198,11 @@ I chose my words very carefully, backing away in one single step.
 
 The guy's lip curled. “I told you. I made a promise.”
 
-“To Flynn?”
+“To Roman?”
 
 He nodded. “Those bastards took his little bro,” Dylan arched his neck, pressing his head against the fence. “But I haven't seen him in a while. Last time I saw him was two or three weeks ago, and even then, he looked kinda…”
 
-He drifted off, leaning back and focusing on me. “There's a back entrance if you want to see your boyfriend. They open the doors after midnight to do a headcount with the higher ups.” Dylan jutted his chin toward Hook and Jack Frost still standing immobile. Hooks grin was unnerving. “You can easily get through without being noticed.” he twisted to me. “But you gotta do me a favour.”
+He drifted off, leaning back and focusing on me. “There's a back entrance if you want to see your boyfriend. They open the doors after midnight to do a headcount with the higher ups.” Dylan jutted his chin toward Hook and Jack Frost still standing immobile. Hooks grin was unnerving. “You can easily get through without being noticed.” he twisted to me. “But you gotta do me a favor.”
 
 I found myself nodding, breathless once again at the thought of seeing him again. Even if he wasn't there anymore, even if he had been cruelly scooped out of his body, I needed closure. “What do you want me to do?”
 
@@ -216,7 +218,7 @@ Something ice cold slithered down my spine. “And what is the favour?”
 
 His gaze found the ground, hands tightening on the bars. 
 
-“If you see Peter and Wendy, I want you to kill them for me.” he didn't wait for me to respond. “Trust me, it's a mercy.” his eyes found mine, and I saw guilt, an agony I could and never would understand tightening his jaw. “Romans brother is–was– sixteen years old,” he said in a hiss. “I didn't know him, but Zach did. Roman’s little bro was a fucking child and they took him, just like his brother, and ripped out his soul.” 
+“If you see Peter and Wendy, I want you to kill them for me.” he didn't wait for me to respond. “Trust me, it's a mercy.” his eyes found mine, and I saw guilt, an agony I could and never would understand tightening his jaw. “Roman's brother is–was– sixteen years old,” he said in a hiss. “I didn't know him, but Zach did. Roman’s little bro was a fucking child and they took him, just like his brother, and ripped out his soul.” 
 
 “Who's Zach?” I whispered, phantom crawlies filling my mouth. 
 
