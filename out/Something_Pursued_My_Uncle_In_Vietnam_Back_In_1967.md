@@ -8,7 +8,7 @@ My uncle who never got married or, had kids of his own treated me like a daughte
 
 He taught me to always tell the truth and wasn't the type of person who scared easily either.
 
-Anyway, as he began to tell me his story I could hear the fear in his voice (which was unusual for him) so, I knew then that everything he was about to tell me  was going to be true.
+Anyway, as he began to tell me his story I could hear the fear in his voice (which was unusual for him) so, I knew then that everything he was about to tell me was going to be true.
 
 After taking a sip of water, he began his story...
 
@@ -38,7 +38,7 @@ That night while getting drunk, we were ambushed by some invisible force.
 
 One by one we were taken out until I was the only one left.
 
-I lay there pretending to be dead.
+I lay there while pretending to be dead.
 
 I was on the for about 2 hours before I found the courage to get up.
 
