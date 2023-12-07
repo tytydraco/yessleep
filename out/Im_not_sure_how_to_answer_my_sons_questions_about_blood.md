@@ -80,6 +80,12 @@ But the reality is that my kid creeps me out.
 
 [Advice](https://www.facebook.com/P-F-McGrail-181784199029462/)?
 
+-------
+
+[Well that didn't help](https://redd.it/18cv6rj)
+
+--------
+
 [BD](https://www.reddit.com/r/ByfelsDisciple/)
 
 [W](https://www.youtube.com/channel/UCcn_pa1QfNMRzbTuJqXSoRQ)
