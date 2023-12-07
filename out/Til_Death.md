@@ -1,0 +1,18 @@
+February 10th 2004. 
+I can’t stand her any longer. The woman I married and the mother of my child. I never wanted this life. I only asked her to marry me out of shame and fear of being disinherited. I knocked her up at 19 and my uptight Christian parents forced me to propose after finding out the child was indeed mine. She told me she didn’t want children. Was she lying? Did she have a change of heart? No, it was no secret my family was religious AND rich. She planned it all from the very beginning. Forcing me to play father to a child I didn’t want and now she conviently has me forever at her finger alongside my family’s wealth. She doesn’t even love the child I bet. The baby was nothing more than a key to her. A key to a life she envied. She humiliates me, nags me, yells at me and then wonders why I won’t even touch her. Wonders why my attention has been drawn to more beautiful and younger eyes. These past 4 years have been enough. I have to get rid of her. 
+
+February 29th 2004. 
+I’ve given it tremendous thought. I must be calculating and cautious. There’s a reason why police always look at the spouse of a corpse first, it’s so obvious but without proof and a good lawyer I truly think I can do it.  I can get away with this. 
+
+March 15th 2004. 
+I’ve made the arrangements. $15,000 with no paper trail that I’ve saved up in cash all paid to a “friend of a friend”. I am to go somewhere public with my son where I can be witnessed preferably by CCTV at the designated time and date. A robbery gone terribly wrong. 
+
+
+March 29th 2004. 
+Tomorrow’s the day. The day I’ll finally be freed from this pathetic excuse for a wife. Nothing can go wrong as long as I stick to the plan. I’ll be heading to our local clinic with my son for his monthly check up while my wife prepares lunch at 3:30 sharp. My associate will send a photo of her face to my burner phone once it’s done. After the hour is up I am to drive back home and call the police immediately from outside the house “the side window is shattered and my wife won’t answer my calls. I’m too afraid to go inside with my son” let the police see I haven’t even stepped foot inside since I got home and break down after they tell me of her fate. The real hard part  is going to be pretending I actually cared about that bitch. 
+
+March 30th 2004. 
+I don’t understand what’s going on. I did everything my associate told me to. I even received the photo on my burner of her mangled and bloody face. I went back home with my son and called the police as instructed after seeing the shattered side window. The police arrived and I told the officer I was afraid someone had broken in. He cautiously led me in through the house. I was prepared to start crying once we turned to the kitchen except one thing stopped me. My wife. There she was. Alive. Cooking dinner with a smile on her face. The officer seemed confused but unknowingly less confused than me. He explained to her my worry of a break in but she laughed and called me silly. I don’t understand what’s happening. We ate dinner and she later kissed me on my cheek as if nothing had happened. What do I do. 
+
+March 31st 2004. 
+I think I’m loosing my mind. Nothing makes sense and I can’t freak out without arrosuing suspicion. My wife is still here…how. How is this possible. My paranoia is only paused when she kisses me and I notice something about her smile seems off. I’m terrified. What do I do.
