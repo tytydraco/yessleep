@@ -66,7 +66,9 @@ As we navigate through the inferno, trying to stay ahead of the ever-advancing f
 
 The voices aren't speaking in English, nor in the familiar Pidgin that's like second nature to us. Instead, they're in Hawaiian – the language of our [ancestors](https://www.reddit.com/r/nosleep/comments/174jp2m/im_a_cop_on_the_navajo_reservation_i_investigated/), a language we've heard in school, in cultural celebrations, but never fully mastered. Despite our limited understanding, the tone of desperation is unmistakable. They're cries for help.
 
-The voices, haunting and persistent, draw us like a siren's call. We exchange a glance, the same thought mirrored in our eyes – we can't ignore this. With the fire closing in, time is our enemy. We push forward, each step a battle against the relentless heat and smoke.The ground slopes sharply, leading to a steep ravine that cuts through the park like a scar. It's a natural barrier, one that the fire hasn't yet crossed, but the flames are close, hungrily licking at its edges.
+The voices, haunting and persistent, draw us like a siren's call. We exchange a glance, the same thought mirrored in our eyes – we can't ignore this. With the fire closing in, time is our enemy. We push forward, each step a battle against the relentless heat and smoke.
+
+The ground slopes sharply, leading to a steep ravine that cuts through the park like a scar. It's a natural barrier, one that the fire hasn't yet crossed, but the flames are close, hungrily licking at its edges.
 
 Lani and I cautiously approach the precipice of the ravine. The voices grow louder, clearer. They seem to be emanating from the depths of the ravine itself, rising up through the billowing smoke like a chorus of lost souls.
 
@@ -110,7 +112,7 @@ We move swiftly from the edge of the ravine, the heat of the inferno still press
 
 As soon as we reach relative safety, still shaken by the harrowing sight of the Lava Walkers being swallowed by the earth, I pull out my radio, my hands still trembling from the intensity of what we just witnessed. I know our immediate priority is to prevent whatever is back there from spreading.
 
-"Base, this is Saito. We need air support immediately on these coordinates." I relay the exact location of the ravine, emphasizing the necessity of a rapid response.
+"Base, this is Saito. We need immediate air support on these coordinates." I relay the exact location of the ravine, emphasizing the necessity of a rapid response.
 
 The response from dispatch is swift and professional. "Copy that, Saito. Air support is en route. Hold your position and stay safe. Over."
 
