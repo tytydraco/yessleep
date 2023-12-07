@@ -8,7 +8,7 @@ Nobody had heard of the pandemic of 1928 because not a soul, if you can call the
 
  I didn't wish to bury them in an empty grave that once belonged to someone else, so I chose to bury them in tye yard of our house. I wish to be buried next to them when my time comes, I love them still so dearly. I always will. I did of course find another wife and had more children. 3 more, they knew of their brother, and his mother, my first wife.
 
-  My second wife died at the age of 57, when I was 59, we had 41 years together, I miss her sometimes. Its been 30 years since she passed. I
+  My second wife died at the age of 57, when I was 59, I miss her sometimes. Its been 30 years since she passed. I
 
  I'm now 89, the year is 1991, a few months ago I was diagnosed with lung cancer from asbestos from the war. I was given two months to live, I' writing this in my journal for the hope that one of my grandkids or great grandkids finds this and tells the world, tells the world that not a single person alive now, should be.That there should be different people in their places. 
 
