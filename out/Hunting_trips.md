@@ -1,0 +1,23 @@
+Not my story but my fathers…
+This takes place in the late 90s during 2 separate occasions. my dad only got interested in hunting when he got out of high school.
+He started going with his friend to northern Canada. this was their 3rd trip near this spot so they picked out a spot. they then set up their tent and started setting up camp as night crept in. they slowly got more and more tired and then suddenly they heard…
+
+Plop!
+
+They look over and see this big splash half way across the lake. confused and standing in the dim sunlight they looked for something that could have caused this then suddenly…
+
+Plop!
+
+In front of his face but he saw what this was…
+
+ it was a 50 pound rock that made it across this 200 hundred yard lake. confused dazed and terrified. he then ran into his tent grabbed his binoculars and looked. and he saw what threw a 50 pound rock…
+A 6’9 person he could not tell if he was hairy but he saw it couldn’t fit in a doorway. and he new it was strong cause well yeah…
+ then he heard a loud scream it was a deep bellowing loud roar. so like any rational person he grabbed his gun and started shooting at it. it didn’t run away instantly like he was telling him “you’re not the boss I am” then he slowly walked into the woods. they saw no other animals that trip and they were to afraid to leave the camp. he said he still doesn’t know what it was so he chalked it up to big foot. But before he had never even heard of Bigfoot and he couldn’t really figure out what that was. but I don’t know I need to hear other peoples opinion…
+
+
+This was at the same time but not the same place.
+This trip he was with a guide in western Alaska 
+It had been raining for 4 days and he was sleeping in his tent. when he heard rustling and snarling coming from behind him. so he grabbed his gun from his case and aimed at the door. then on the side of the tent he saw knuckles press against the wall and slowly walk towards. him and rubbed against his arm. then he left. my dad again chalked this up to Bigfoot but I’m still open to what anyone thinks this is.
+ reminder this is in north west Quebec so local folktales will help.
+
+This last story Is in late fall hunting for deer with his brother at the age of 15 sitting in a ground blind. in front of them they saw something move tall it was 7 feet tall or somewhere around there. he turns to his brother who is trying to figure out what that was then about 30 yards away they hear a scream like a roar. like before they both try to get out of the blind but he’s to close now my father never got a good look at it so that’s the reason he’s never heard of Bigfoot. then rocks start getting thrown at them they both hide behind trees. then my dad just starts shooting at it and it runs away I still don’t know what this is so I need help.

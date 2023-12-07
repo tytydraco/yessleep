@@ -168,4 +168,6 @@ I think, in the morning, I’ll see about getting myself some kind of weapon. A 
 Please…if you’re still there, if you end up reading this. Please, let me know what we should do tomorrow. Should we try and find the keys to the radio room like the Captain suggested? Or should we do something else? Is there anything that I might be missing here? Does anyone know anything more about the *Queen Elizabeth*, anything that might give me a clue as to why this is happening, or just to direct us to any important places? Anything you can think of might help us.  
 
 
-And God knows…right now, we need *all* the help we can get
+And God knows…right now, we need *all* the help we can get
+
+[Part 3](https://www.reddit.com/r/nosleep/s/bq57yJrVIs)

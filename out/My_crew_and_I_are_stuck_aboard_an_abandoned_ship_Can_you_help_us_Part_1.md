@@ -160,3 +160,4 @@ Oh, and one final thing. I don’t know if it’ll help, but when I went for my 
 *R.M.S. Queen Elizabeth*.
 
 [Part 2](https://www.reddit.com/r/nosleep/s/gT4Mnp4ZsB)
+[Part 3](https://www.reddit.com/r/nosleep/s/bq57yJrVIs)

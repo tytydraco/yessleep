@@ -1,4 +1,4 @@
-“Drowning people die smiling”. That was a popular “Did you know-?” when I was a kid. It was the right amount of strange and scary that helped it spread around during recess. It stuck with me but I always wondered, if true, do all people who are dying and know they are dying smile?
+“Drowning people die smiling”. That was a popular “Did you know-?” when I was a kid. It was the right amount of strange and scary that helped it spread around during recess. It stuck with me but I always wondered, if true, do all people who are dying, and know they are dying, smile?
 
 The answer is no. I can say that for a fact. 6 weeks ago I was in a car accident and a man was killed. It wasn’t my fault. That’s what I logically know to be true, it’s what the police kept telling me and what the witnesses corroborated. It helps some but it certainly doesn’t take all the pain and guilt away.
 
