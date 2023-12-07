@@ -23,3 +23,7 @@ As the icy grip of fear tightened, we realized that our only chance of survival 
 I am writing this in my room with Emily at my side, barricaded in with whatever heavy objects we could find within the station. A plane is set to arrive in February to pick us up, but by that time I fear that it will be too late.
 
 I'll let you guys know any updates about our perilous situation.
+
+&#x200B;
+
+[PART 2](https://www.reddit.com/r/nosleep/comments/18cn2vz/im_stuck_in_an_arctic_research_station_with_my/)
