@@ -134,7 +134,7 @@ Izzy takes a moment, then crouches near the body, carefully avoiding disturbing 
 
 "I wasn't informed of any [other](https://www.youtube.com/watch?v=MGd1F6Ay8ho) murders," I reply, slightly taken aback.
 
-She shrugs, "Jurisdictional complications. But when I got the details of your 419, the similarities were...striking."
+She shrugs, "Jurisdictional complications. But when I got the details of your 419... I just knew they were related."
 
 I feel a [cold](https://www.reddit.com/r/nosleep/comments/14c93t1/im_an_arctic_researcher_we_accidentally_released/) [chill](https://www.youtube.com/watch?v=baUKK0y48QE&t=2990s) run down my spine. "So, what are we looking at? Some kind of serial killer?"
 
@@ -226,13 +226,13 @@ She hesitates for a moment, her eyes distant. "His features were obscured, but t
 
 Izzy kneels, examining the footprints left on the floor, the same elongated shape that transitions into a paw-like pattern. "These prints," she murmurs, "they're the same as the ones we found at the crime scene."
 
-Maggie shifts uncomfortably as Izzy examines the footprints. Her gaze flits between us, an unease growing in her eyes.
+Maggie shifts uncomfortably as Izzy. Her gaze flits between us, an unease growing in her eyes.
 
-I watch intently as Izzy's fingers trace the outline of the footprints. The room is tense, the only sound the distant hum of a ceiling fan. A realization slowly dawns on me, a cold, sinking feeling in my stomach. The footprints lead into the house, but none lead out.
+I watch intently as Izzy's fingers trace the outline of the prints. The room is tense, the only sound the distant hum of a ceiling fan. A realization slowly dawns on me, a cold, sinking feeling in my stomach. The footprints lead into the house, but none lead out.
 
 If the intruder had come in but hadn’t left, where was he now?
 
-The realization hits me like a ton of bricks. My heart races, and I instinctively reach for my sidearm. Izzy, sensing the shift in the atmosphere, quickly stands and locks eyes with me. We both scan the room, the weight of our earlier observation settling heavy on our shoulders.
+My heart races, and I instinctively reach for my sidearm. Izzy, sensing the shift in the atmosphere, quickly stands and locks eyes with me. We both scan the room, the weight of our earlier observation settling heavy on our shoulders.
 
 "Maggie?" I call out, trying to keep the tremor out of my voice.
 
