@@ -16,7 +16,7 @@ It was the summer of 67.
 
 I was in the army and just arrived in Vietnam a month earlier.
 
-I was a naive 20-year-old and my first time being this far away from home.
+I was a naive 20-year-old and it was my first time being this far away from home.
 
 I remember it was unbearably hot my first month there.
 
@@ -24,7 +24,7 @@ Anyway, to pass the time at the camp we would drink, smoke, and listen to great 
 
 It was during my 2nd week there when we received a distress call from a platoon that had gone missing 2 weeks earlier.
 
-I, along with several other men were given the mission to retrieve them.
+I, along with several other men were given the task to retrieve them.
 
 We immediately left camp without any incident.
 
