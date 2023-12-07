@@ -1,3 +1,7 @@
+Hello, my name is Mary Wallace. I have posted the letters below on behalf of a former client who left them in my keeping. He passed away in July 2022. 
+
+*
+
 I remember the final time I heard her voice. My wife. We were face to face a few paces from the door, eyes locked, hands grasping others shoulders.
 
 “Don’t look away.” my voice repeating, over and over as we took another step. “I love you.” I told her that, I know I did.
@@ -12,9 +16,9 @@ Should be a simple thing to tell the truth, don’t you think? Should be. Yet he
 
 I’ve heard it said that the truth is often ugly but lies can be as pretty as you like. Well, my lies sure weren’t pretty but they were still better than the truth. Not that they helped me any.
 
-I’m on death row in this penitentiary and have been for 8 years. As I write this I’ll be executed in 6 weeks time, not long at all. And now, at the end, I have a story I need to tell. A true story.
+I’m on death row in this penitentiary and have been for 8 years. As I write this I’ll be executed in 6 weeks time, not long at all. And now, at the end, I have a story I need to tell.
 
-You may wonder why I’m doing this, wonder who this is even for? Who will read these words? I’ll be a dead man before anyone ever does. Well, when I’m finished I’ll leave these letters for Mary Wallace, the law student who was assigned to my appeal till I made her quit. You’re a wonderful woman Mary, I could tell, but I was a lost cause from the start. I wish you all the best and whatever you want to do with these words I believe you’ll make the right choice. Hell, maybe no-one will ever read this. Just be forgotten pages in a drawer somewhere, a paper ghost, last words of a man long gone. So be it.
+You may wonder why I’m doing this, wonder who this is even for? Who will read these words? I’ll be a dead man before anyone ever does. Well, when I’m finished I’ll leave these letters for Mary, the law student who was assigned to my appeal till I made her quit. I've asked her to post them online for me, somewhere for true stories. Better than just being forgotten pages in a drawer somewhere, a paper ghost, last words of a man long gone. So be it.
 
 Now, before I begin, a confession. Very little of what happens in here is about justice. It’s one of the reasons for sure but it ain’t high on the list. Anger, revenge, regret, hate, power, money. Lot of people just want to see a man die, whether you’re willing to believe that or not. Innocent men and women been executed here and more will be, murdered by a system that ought to protect them. But as for me? Well, I’m as guilty as they come, no doubt. And I deserve to die.
 
