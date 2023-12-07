@@ -8,7 +8,7 @@ As I navigate the Land Rover through the park's winding paths, my mind races wit
 
 She doesn't answer immediately, her gaze fixed on the passing landscape. Finally, she turns to me, her expression serious. "I think it was a Lava Walker," she says.
 
-"Lava Walker?" I repeat, incredulous. The term sounds like something out of a myth or a horror story.
+"Lava Walker?" I repeat, unfamiliar with the term. The term sounds like something out of a myth or a horror story.
 
 "Yeah, I just... made it up," Lani admits, a slight shrug accompanying her words. "It's like a skinwalker, but for volcanoes."
 
@@ -64,7 +64,7 @@ The ground under our feet shifts unpredictably, the earth cracked and uneven fro
 
 As we navigate through the inferno, trying to stay ahead of the ever-advancing flames, a haunting sound pierces through the chaos. At first, it seems like another trick of the fire – a howl of the wind, perhaps, or the creaking of burning trees. But while we pause, panting and disoriented, the sound crystallizes into something unmistakably human: voices, distant and ghostly, floating through the smoke.
 
-The voices aren't speaking in English, nor in the familiar Pidgin that's like second nature to us. Instead, they're in Hawaiian – the language of our [ancestors](https://www.reddit.com/r/nosleep/comments/174jp2m/im_a_cop_on_the_navajo_reservation_i_investigated/), a language we've heard in school, in cultural celebrations, but never fully mastered. Despite our limited understanding, the tone of desperation in these ethereal cries is unmistakable. They're cries for help.
+The voices aren't speaking in English, nor in the familiar Pidgin that's like second nature to us. Instead, they're in Hawaiian – the language of our [ancestors](https://www.reddit.com/r/nosleep/comments/174jp2m/im_a_cop_on_the_navajo_reservation_i_investigated/), a language we've heard in school, in cultural celebrations, but never fully mastered. Despite our limited understanding, the tone of desperation is unmistakable. They're cries for help.
 
 The voices, haunting and persistent, draw us like a siren's call. We exchange a glance, the same thought mirrored in our eyes – we can't ignore this. With the fire closing in, time is our enemy. We push forward, each step a battle against the relentless heat and smoke.The ground slopes sharply, leading to a steep ravine that cuts through the park like a scar. It's a natural barrier, one that the fire hasn't yet crossed, but the flames are close, hungrily licking at its edges.
 
@@ -110,15 +110,15 @@ We move swiftly from the edge of the ravine, the heat of the inferno still press
 
 As soon as we reach relative safety, still shaken by the harrowing sight of the Lava Walkers being swallowed by the earth, I pull out my radio, my hands still trembling from the intensity of what we just witnessed. I know our immediate priority is to prevent whatever is back there from spreading.
 
-"Base, this is Saito. We need air support immediately. Drop fire retardant on these coordinates." I relay the exact location of the ravine, emphasizing the necessity of a rapid response.
+"Base, this is Saito. We need air support immediately on these coordinates." I relay the exact location of the ravine, emphasizing the necessity of a rapid response.
 
 The response from dispatch is swift and professional. "Copy that, Saito. Air support is en route. Hold your position and stay safe. Over."
+
+Pulling off our masks, we take in deep, desperate gulps of the fresher air now available. The sensation of breathing without the constraints of our gear is profoundly relieving.
 
 As we catch our breath, a faint, distant hum grows progressively louder. I look up, straining my eyes against the smoke-filled sky. The sound intensifies, a deep, resonating thrum that vibrates through the air. I catch sight of the unmistakable silhouette of a C-130, its powerful engines cutting through the chaos of the wildfire.
 
 As the aircraft unleashes its payload onto the ravine, a cascade of fire retardant billows down in a massive cloud, blanketing the area in a surreal pink hue. The inferno below begins to subside under the deluge, the flames dampened by the torrent of chemicals.
-
-Pulling off our masks, we take in deep, desperate gulps of the fresher air now available. The sensation of breathing without the constraints of our gear is profoundly relieving.
 
 Lani turns to me, her eyes reflecting a myriad of emotions. My hand reaches out, gently touching her cheek, smudged with soot and sweat.
 
