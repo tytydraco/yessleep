@@ -56,7 +56,7 @@ The early morning light filters through the dense canopy as we load the Land Rov
 
 As I navigate the familiar route towards the Kalapana trail, the connection I feel to this land pulsates through me. This place, with its rugged beauty and untamed wilderness, has been a part of my life for as long as I can remember. It's more than just a job; it's a calling, a deep-rooted bond with the land that nurtures and challenges me in equal measure.
 
-Lani, sitting beside me, is lost in her own thoughts, her gaze fixed on the passing scenery. Growing up, we spent countless summers exploring the hidden corners of this paradise, from diving into the crystal-clear waters of hidden coves to racing each [other](https://www.youtube.com/watch?v=MGd1F6Ay8ho) up the ancient lava trails.
+Lani, sitting beside me, is lost in her own thoughts, as we pass our old stomping grounds. Growing up, we spent countless summers exploring the hidden corners of this paradise, from diving into the crystal-clear waters of hidden coves to racing each [other](https://www.youtube.com/watch?v=MGd1F6Ay8ho) up the ancient lava trails.
 
 The closer we get the base of Kīlauea, the more evident the signs of recent volcanic activity become. Thin wisps of steam rise from cracks in the ground, a stark reminder of the raw power beneath our feet.
 
@@ -139,6 +139,8 @@ Climbing in, I start the engine, and we drive away from the inferno, putting dis
 Lani, still coughing from the smoke inhalation, manages to grab the radio and report back to base.
 
 Her voice is hoarse but urgent as she relays the situation. "Base, this is Lennox. We've got a wildfire situation. The area around the Kalapana trail is engulfed. We need immediate backup and fire containment units!"
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/18czkf2/im_a_park_ranger_at_hawaii_volcanoes_national/)
 
 [X](https://www.reddit.com/r/PageTurner627Horror/)
 
