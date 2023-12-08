@@ -263,3 +263,7 @@ Bless you,
 &#x200B;
 
 Sidonia
+
+&#x200B;
+
+Update: [Part 6](https://www.reddit.com/r/nosleep/comments/18dpil0/silver_whispers_part_6/) 
