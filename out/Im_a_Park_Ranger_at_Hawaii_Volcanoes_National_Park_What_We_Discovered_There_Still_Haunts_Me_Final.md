@@ -50,13 +50,13 @@ Panic sets in as I realize I'm alone. The heat is so intense it feels like my sk
 
 The world around me is a terrifying landscape of fire and smoke. Trees, once towering and majestic, are now monstrous torches, their branches reaching out like fiery claws.
 
-I stumble over a fallen log, the wood crumbling under my weight, embers scattering like fiery rain. My heart pounds in my chest, a rapid drumbeat echoing the chaos around me.
+I stumble over a fallen log, the wood crumbling under my weight, embers scattering like fiery [rain](https://www.reddit.com/r/nosleep/comments/1581vef/our_search_for_a_missing_teen_uncovered_the/). My heart pounds in my chest, a rapid drumbeat echoing the chaos around me.
 
 Then, out of the corner of my eye, I spot a figure moving through the flames. For a moment, I think it's Lani, but as it comes closer, I realize it's something else entirely. The figure moves with an eerie grace, untouched by the fire that rages around it.
 
 As it approaches, the air around it seems to warp and ripple, the intense heat bending light itself. The flames seem to dance around it, converging into a swirling vortex of fire and ash.
 
-Just as the figure nears, a hand grabs mine, pulling me back to the harsh reality of the firestorm. I turn to see Lani, her face obscured by the visor of her protective gear. For a moment, in the surreal, smoky haze, she looks alien, a [creature](https://www.reddit.com/r/nosleep/comments/1581vef/our_search_for_a_missing_teen_uncovered_the/) from another world in her fire-resistant suit. But it's her grip, firm and determined, that grounds me, convincing me she's very much human.
+Just as the figure nears, a hand grabs mine, pulling me back to the harsh reality of the firestorm. I turn to see Lani, her face obscured by the visor of her protective gear. For a moment, in the surreal, smoky haze, she looks alien, a creature from another world in her fire-resistant suit. But it's her grip, firm and determined, that grounds me, convincing me she's very much human.
 
 "Koa, we have to move, now!" Her voice cuts through the roaring fire.
 
@@ -141,6 +141,10 @@ In the aftermath of the wildfire, the efforts of the emergency response teams gr
 The missing Jenkins family - Sara, Tyler, and Ethan - are officially listed as tragic victims of the fire. Within the ranks of the rangers and the emergency teams, whispers about the Lava Walkers circulate in hushed tones. But in the official reports, there is no mention of the mysterious figures we encountered.
 
 As the weeks pass and the charred landscape gradually begins its slow recovery, life for Lani and I gradually returns to familiar rhythms — patrolling the trails, guiding tours, and educating visitors about the park's unique ecosystem and geological features.
+
+Though life has seemingly returned to its regular patterns, there's an undeniable shift between Lani and me that's impossible to ignore. In the quiet moments, when our glances meet, there's a hint of something profound and unspoken that's blossomed between us.
+
+—
 
 Despite everything that unfolded, I would never discourage anyone from visiting this majestic place. Kīlauea, with her raw and untamed beauty, holds a special kind of magic that everyone should witness at least once in their lifetime.
 
