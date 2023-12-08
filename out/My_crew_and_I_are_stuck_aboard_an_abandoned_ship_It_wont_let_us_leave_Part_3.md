@@ -123,3 +123,5 @@ The second, was what was on the left-hand page, under the *Notices* bulletin.
 *We would like to welcome aboard our newest passengers. Gabriel Lerner, Wyatt Strosky, Vincent Guytano, William Jenkins, Andrew Webber, Spencer Michaels, and Nathan Rodgers. We hope you enjoy your stay with us!*
 
 God help us…
+
+[Part 4](https://www.reddit.com/r/nosleep/s/9xPE36dOCB)

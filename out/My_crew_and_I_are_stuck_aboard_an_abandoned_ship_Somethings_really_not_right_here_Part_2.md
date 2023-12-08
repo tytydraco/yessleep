@@ -171,3 +171,4 @@ Please…if you’re still there, if you end up reading this. Please, let me kno
 And God knows…right now, we need *all* the help we can get
 
 [Part 3](https://www.reddit.com/r/nosleep/s/bq57yJrVIs)
+[Part 4](https://www.reddit.com/r/nosleep/s/9xPE36dOCB)

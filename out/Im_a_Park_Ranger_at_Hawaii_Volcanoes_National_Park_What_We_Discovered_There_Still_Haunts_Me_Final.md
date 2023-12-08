@@ -92,7 +92,7 @@ In our haste, we don't realize how close we are to the precipice. Lani stumbles,
 
 Acting on instinct, I lunge forward, grabbing her firmly around the waist. With a desperate heave, I pull her back from the brink, both of us falling to the ground in a heap.
 
-I desperately search for any route of escape. Then, my eyes catch sight of a large, charred tree, its base weakened by the fire and the intense heat of the volcanic activity.
+I frantically search for any route of escape. Then, my eyes catch sight of a large, charred tree, its base weakened by the fire and the intense heat of the volcanic activity.
 
 I motion to Lani, pointing towards the tree. "Lani, the tree!" I shout over the roar of the flames. Understanding flashes in her eyes, and without another word, we spring into action.
 
