@@ -40,7 +40,7 @@ He gestures towards the medical tent. "Head over to the medics. Get yourselves c
 
 —
 
-After a brief rest and rehydration, we don our fire-resistant gear, feeling the weight of responsibility on our shoulders. The afternoon sky is aglow with the raging fire, casting an eerie light over the park.
+After a brief rest and rehydration, we don our firefighting gear, feeling the weight of responsibility on our shoulders. The afternoon sky is aglow with the raging fire, casting an eerie light over the park.
 
 We join a small team of rangers and firefighters, ready to venture into the heart of the wildfire. Helicopters and drones overhead coordinate our movement, but the journey is perilous. The air is thick with smoke, reducing visibility to mere feet. The heat is stifling, like walking through an open furnace. Embers whirl around us, carried by the hot winds, threatening to ignite anything remotely flammable.
 
@@ -66,7 +66,7 @@ As we navigate through the inferno, trying to stay ahead of the ever-advancing f
 
 The voices aren't speaking in English, nor in the familiar Pidgin that's like second nature to us. Instead, they're in Hawaiian – the language of our [ancestors](https://www.reddit.com/r/nosleep/comments/174jp2m/im_a_cop_on_the_navajo_reservation_i_investigated/), a language we've heard in school, in cultural celebrations, but never fully mastered. Despite our limited understanding, the tone of desperation is unmistakable. They're cries for help.
 
-The voices, haunting and persistent, draw us like a siren's call. We exchange a glance, the same thought mirrored in our eyes – we can't ignore this. 
+The voices, haunting and persistent, draw us like a siren's call. We exchange a glance, the same thought mirrored in our eyes – we can't ignore this.
 
 We push forward towards the voices, time being our greatest enemy. The ground slopes sharply, leading to a steep ravine that cuts through the park like a scar. It's a natural barrier, one that the fire hasn't yet crossed, but the flames are close, hungrily licking at its edges.
 
