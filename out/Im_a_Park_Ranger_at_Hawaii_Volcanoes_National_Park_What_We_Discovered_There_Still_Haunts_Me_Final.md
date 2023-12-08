@@ -114,7 +114,7 @@ As soon as we reach relative safety, still shaken by the harrowing sight of the 
 
 "Base, this is Saito. We need immediate air support on these coordinates." I relay the exact location of the ravine, emphasizing the necessity of a rapid response.
 
-The response from dispatch is swift and professional. "Copy that, Saito. Air support is en route. Hold your position and stay safe. Over."
+The response from dispatch is swift and professional. "Copy that, Saito. Air support is en route. Hang tight and stay safe. Over."
 
 Pulling off our masks, we take in deep, desperate gulps of the fresher air now available. The sensation of breathing without the constraints of our gear is profoundly relieving.
 
