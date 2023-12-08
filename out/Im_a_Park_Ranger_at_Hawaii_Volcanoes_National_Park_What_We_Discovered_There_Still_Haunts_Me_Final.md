@@ -42,7 +42,7 @@ He gestures towards the medical tent. "Head over to the medics. Get yourselves c
 
 After a brief rest and rehydration, we don our fire-resistant gear, feeling the weight of responsibility on our shoulders. The afternoon sky is aglow with the raging fire, casting an eerie light over the park.
 
-We join a small team of rangers and firefighters, ready to venture into the heart of the wildfire. Helicopters and drones overhead coordinate our movement, but the journey is perilous. The air is thick with smoke, reducing visibility to mere feet. The heat is stifling, like walking through an open furnace. Embers whirl around us, carried by the hot winds, threatening to anything remotely flammable.
+We join a small team of rangers and firefighters, ready to venture into the heart of the wildfire. Helicopters and drones overhead coordinate our movement, but the journey is perilous. The air is thick with smoke, reducing visibility to mere feet. The heat is stifling, like walking through an open furnace. Embers whirl around us, carried by the hot winds, threatening to ignite anything remotely flammable.
 
 Suddenly, without warning, a massive flare-up erupts. A wall of fire explodes from the underbrush, fueled by a pocket of trapped gas. The force of the blaze is like a physical blow, knocking me off my feet. In the chaos, I'm separated from the rest of the team. I shout Lani's name, but my voice is lost in the cacophony of crackling flames and collapsing trees.
 
@@ -96,7 +96,7 @@ I desperately search for any route of escape. Then, my eyes catch sight of a lar
 
 I motion to Lani, pointing towards the tree. "Lani, the tree!" I shout over the roar of the flames. Understanding flashes in her eyes, and without another word, we spring into action.
 
-I grab my chainsaw, a tool I carry for creating firebreaks. As I rev up the chainsaw, the roar of its engine cuts through the crackling of the flames, a man-made growl against nature's fury.
+I grab my chainsaw, a tool I carry for creating firebreaks. As I rev up the chainsaw, the roar of its motor cuts through the crackling of the flames, a man-made growl against nature's fury.
 
 The chainsaw bites into the charred bark, sending a shower of embers into the air. I work quickly, the blade slicing through the weakened wood, the smell of burnt timber filling my nostrils.
 
