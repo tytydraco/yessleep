@@ -1,0 +1,1 @@
+[Link to the polls and the original stories](https://www.reddit.com/r/NoSleepOOC/comments/17yjdxg/2023_halloween_contest_voting_thread/?utm_source=share&utm_medium=web2x&context=3)

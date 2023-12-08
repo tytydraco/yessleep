@@ -58,7 +58,7 @@ As it approaches, the air around it seems to warp and ripple, the intense heat b
 
 Just as the figure nears, a hand grabs mine, pulling me back to the harsh reality of the firestorm. I turn to see Lani, her face obscured by the visor of her protective gear. For a moment, in the surreal, smoky haze, she looks alien, a creature from another world in her fire-resistant suit. But it's her grip, firm and determined, that grounds me, convincing me she's very much human.
 
-"Koa, we have to move, now!" Her voice cuts through the roaring fire.
+"We can't stay here!" Her voice cuts through the roaring fire.
 
 The ground under our feet shifts unpredictably, the earth cracked and uneven from the intense heat. We dodge falling branches and leap over smoldering debris, the air thick with the acrid smell of burning wood and [ash](https://www.reddit.com/r/nosleep/comments/16texdg/im_a_private_investigator_in_new_orleans_i/).
 
@@ -66,9 +66,9 @@ As we navigate through the inferno, trying to stay ahead of the ever-advancing f
 
 The voices aren't speaking in English, nor in the familiar Pidgin that's like second nature to us. Instead, they're in Hawaiian – the language of our [ancestors](https://www.reddit.com/r/nosleep/comments/174jp2m/im_a_cop_on_the_navajo_reservation_i_investigated/), a language we've heard in school, in cultural celebrations, but never fully mastered. Despite our limited understanding, the tone of desperation is unmistakable. They're cries for help.
 
-The voices, haunting and persistent, draw us like a siren's call. We exchange a glance, the same thought mirrored in our eyes – we can't ignore this. With the fire closing in, time is our enemy. We push forward, each step a battle against the relentless heat and smoke.
+The voices, haunting and persistent, draw us like a siren's call. We exchange a glance, the same thought mirrored in our eyes – we can't ignore this. 
 
-The ground slopes sharply, leading to a steep ravine that cuts through the park like a scar. It's a natural barrier, one that the fire hasn't yet crossed, but the flames are close, hungrily licking at its edges.
+We push forward towards the voices, time being our greatest enemy. The ground slopes sharply, leading to a steep ravine that cuts through the park like a scar. It's a natural barrier, one that the fire hasn't yet crossed, but the flames are close, hungrily licking at its edges.
 
 Lani and I cautiously approach the precipice of the ravine. The voices grow louder, clearer. They seem to be emanating from the depths of the ravine itself, rising up through the billowing smoke like a chorus of lost souls.
 
@@ -106,7 +106,7 @@ We scramble across the fallen tree, the wood creaking and groaning under our wei
 
 The mother, still reaching out towards us, and her two smaller companions, are swallowed by the collapsing ground. They tumble into the abyss of the ravine, their forms dissolving into the molten rock below. A profound sadness grips me as I watch them disappear.
 
-Lani grabs my arm, pulling me away from the edge. "Koa, we can't stay here," she urges, her voice thick with emotion.
+Lani grabs my arm, pulling me away from the edge. "Koa, we have to keep moving," she urges, her voice thick with emotion.
 
 We move swiftly from the edge of the ravine, the heat of the inferno still pressing against our backs. Lani leads the way, her familiarity with the park's topography guiding us toward an elevated position, a rocky outcrop that offers a vantage point.
 
@@ -124,7 +124,7 @@ As the aircraft unleashes its payload onto the ravine, a cascade of fire retarda
 
 Lani turns to me, her eyes reflecting a myriad of emotions. My hand reaches out, gently touching her cheek, smudged with soot and sweat.
 
-“Are you okay?” I ask.
+“You okay?” I ask.
 
 Without saying a word, she pulls me close, her lips meeting mine in a passionate kiss. It's as if she's always wanted to do this. In the face of the unpredictable and fleeting nature of life, she seizes the opportunity, knowing it might never come again.
 
@@ -142,7 +142,7 @@ The missing Jenkins family - Sara, Tyler, and Ethan - are officially listed as t
 
 As the weeks pass and the charred landscape gradually begins its slow recovery, life for Lani and I gradually returns to familiar rhythms — patrolling the trails, guiding tours, and educating visitors about the park's unique ecosystem and geological features.
 
-Though life has seemingly returned to its regular patterns, there's an undeniable shift between Lani and me that's impossible to ignore. In the quiet moments, when our glances meet, there's a hint of something profound and unspoken that's blossomed between us.
+Though life has seemingly returned to its regular patterns, there's an undeniable shift between Lani and me that's impossible to ignore. In the quiet moments, when our glances meet, there are hints of something profound and unspoken that's blossomed between us.
 
 —
 
