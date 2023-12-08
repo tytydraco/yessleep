@@ -8,11 +8,11 @@ As I navigate the Land Rover through the park's winding paths, my mind races wit
 
 She doesn't answer immediately, her gaze fixed on the passing landscape. Finally, she turns to me, her expression serious. "I think it was a Lava Walker," she says.
 
-"Lava Walker?" I repeat, unfamiliar with the term. The term sounds like something out of a myth or a horror story.
+"Lava Walker?" I repeat, unfamiliar with the term. It sounds like something out of a myth or a horror story.
 
 "Yeah, I just... made it up," Lani admits, a slight shrug accompanying her words. "It's like a skinwalker, but for volcanoes."
 
-“Seriously, Lani?" I can't help but let out a skeptical laugh.
+“Seriously, Lani? Come on..." I can't help but let out a skeptical laugh.
 
 Lani gives me a look, one that's both challenging and serious. "Okay, wise guy, you come up with a better explanation. What else could it have been?"
 
@@ -56,7 +56,7 @@ Then, out of the corner of my eye, I spot a figure moving through the flames. Fo
 
 As it approaches, the air around it seems to warp and ripple, the intense heat bending light itself. The flames seem to dance around it, converging into a swirling vortex of fire and ash.
 
-Just as the figure nears, a hand grabs mine, pulling me back to the harsh reality of the firestorm. I turn to see Lani, her face obscured by the visor of her protective gear. For a moment, in the surreal, smoky haze, she looks alien, a creature from another world in her fire-resistant suit. But it's her grip, firm and determined, that grounds me, convincing me she's very much human.
+Just as the figure nears, a hand grabs mine, pulling me back to the harsh reality of the firestorm. I turn to see Lani, her face obscured by the visor of her protective gear. For a moment, in the surreal, smoky haze, she looks alien, a creature from another world in her fire-resistant suit. But it's her grip, firm and reassuring, that grounds me, convincing me she's very much human.
 
 "We can't stay here!" Her voice cuts through the roaring fire.
 
@@ -140,7 +140,7 @@ In the aftermath of the wildfire, the efforts of the emergency response teams gr
 
 The missing Jenkins family - Sara, Tyler, and Ethan - are officially listed as tragic victims of the fire. Within the ranks of the rangers and the emergency teams, whispers about the Lava Walkers circulate in hushed tones. But in the official reports, there is no mention of the mysterious figures we encountered.
 
-As the weeks pass and the charred landscape gradually begins its slow recovery, life for Lani and I gradually returns to familiar rhythms — patrolling the trails, guiding tours, and educating visitors about the park's unique ecosystem and geological features.
+As the weeks pass and the charred landscape gradually begins its slow recovery, life for Lani and I returns to familiar rhythms — patrolling the trails, guiding tours, and educating visitors about the park's unique ecosystem and geological features.
 
 Though life has seemingly returned to its regular patterns, there's an undeniable shift between Lani and me that's impossible to ignore. In the quiet moments, when our glances meet, there are hints of something profound and unspoken that's blossomed between us.
 
