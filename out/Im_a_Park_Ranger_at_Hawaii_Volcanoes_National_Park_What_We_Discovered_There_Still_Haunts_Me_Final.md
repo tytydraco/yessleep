@@ -4,7 +4,7 @@ The radio crackles to life, and Captain Corceiro's voice comes through, tense an
 
 As I navigate the Land Rover through the park's winding paths, my mind races with thoughts of the figure we encountered. I glance over at Lani. She's deep in thought, her eyes distant.
 
-"What was that thing, Lani?" I ask, my voice barely above a whisper. The image of the fiery figure, moving through the forest with an otherworldly grace, is seared into my mind.
+"What was that thing?" I ask, my voice barely above a whisper. The image of the fiery figure, moving through the forest with an otherworldly grace, is seared into my mind.
 
 She doesn't answer immediately, her gaze fixed on the passing landscape. Finally, she turns to me, her expression serious. "I think it was a Lava Walker," she says.
 
@@ -126,13 +126,13 @@ Lani turns to me, her eyes reflecting a myriad of emotions. My hand reaches out,
 
 “Are you okay?” I ask.
 
-Without saying a word, she pulls me close, her lips meeting mine in a passionate kiss. It's as if she's always wanted to do this. In the face of the unpredictable and fleeting nature life, she seizes the opportunity, knowing it might never come again.
+Without saying a word, she pulls me close, her lips meeting mine in a passionate kiss. It's as if she's always wanted to do this. In the face of the unpredictable and fleeting nature of life, she seizes the opportunity, knowing it might never come again.
 
 As quickly as Lani kisses me, she pulls back, a flush of embarrassment coloring her cheeks. She starts to apologize, her words tumbling out in a rush. "Koa, I'm sorry, I shouldn't have—I just..."
 
 Before she can finish, I close the distance between us, returning her affections with equal fervor. It's a kiss filled with all the unsaid things, the emotions that have been simmering beneath the surface for far too long.
 
-The world around us seems to pause, the crackling of the fire and the distant sounds of the emergency response fading into the background. It's just Lani and me, surrounded by wake of our ordeal.
+The world around us seems to pause, the crackling of the fire and the distant sounds of the emergency response fading into the background. It's just Lani and me, surrounded by the wake of our ordeal.
 
 —
 

@@ -12,7 +12,7 @@ I nod, forcing a half-smile. "Yeah, you know me, sistah, I'm solid. Just... got 
 
 Lani leans in, her voice lowering to a whisper. "I feel it too. Something's off today."
 
-"You ever get one feeling when something not right?” I ask.
+"For real?” I ask.
 
 “Yeah, this morning, as I wake up, I see..." Her voice trails off as she glances around, ensuring no one else is within earshot. She leans in so close I can hear the breath of her whisper, "I saw something weird by the old lava flow. Like... shadows moving. Not normal."
 
