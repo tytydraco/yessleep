@@ -1,4 +1,4 @@
-So about a couples of months ago I was taking the T home (I commute to work) and I left my phone behind on my seat. I was especially exhausted and didn't even notice until the next day because I fell asleep right when I got home. When I woke up the sun was beaming in on my face, my cat lounging in the stream of sunlight on the corner of my bed.
+So about a couple months ago I was taking the T home (I commute to work) and I left my phone behind on my seat. I was especially exhausted and didn't even notice until the next day because I fell asleep right when I got home. When I woke up the sun was beaming in on my face, my cat lounging in the stream of sunlight on the corner of my bed.
 
 &#x200B;
 
@@ -6,7 +6,7 @@ So about a couples of months ago I was taking the T home (I commute to work) and
 
 &#x200B;
 
-When I get to work, I use my work computer to connect to the Find My Phone app and see it's nowhere near my job or home. *I'll just get a new one.* I log into my social medias to change my passwords and right when I am about to log out of my all of my emails, my curiosity got the best of me. I go to my browser history and who could've guessed the last things searched,
+When I get to work, I use my work computer to connect to the Find My Phone app and see it's nowhere near my job or home. *I'll just get a new one.* I log into my social medias to change my passwords and right when I am about to log out of my all of my emails, my curiosity got the best of me. I go to my browser history and who could've guessed the last thing searched,
 
 &#x200B;
 
