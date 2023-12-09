@@ -8,9 +8,7 @@ Mei insisted she was cool with tent life. I, on the other hand, had grand plans 
 
 Ah, the sweet irony of it all. Here's how it unfolded in reality:
 
-**DAY 1**
-
-Rolling past the Austrian border, six hours into our journey. The radio hits a snag, moments of pure static fill the air, and then a voice cuts through—an anchor speaking in Italian.
+September 12, 2023. Rolling past the Austrian border, six hours into our journey. The radio hits a snag, moments of pure static fill the air, and then a voice cuts through—an anchor speaking in Italian.
 
 Mei scrolls through her phone, legs propped up on the car's dashboard.
 
@@ -321,3 +319,9 @@ It takes me a moment to shake off my slumber, as if emerging from deep water.
 "Are you okay? You're breathing so hard," Mei asks.
 
 "I...I'm like... I'm probably just glitching. But damn. I think I saw the license plates of that blue Ford for a second. And I think – yeah, I know how that sounds – I think it had the exact same plates as us."
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/18e2594/stay_far_away_from_the_a41_motorway_will_dawn/?utm_source=share&utm_medium=web2x&context=3)
+
+&#x200B;
+
+&#x200B;
