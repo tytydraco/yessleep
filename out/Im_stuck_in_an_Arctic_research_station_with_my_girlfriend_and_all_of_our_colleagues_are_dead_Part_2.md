@@ -17,3 +17,5 @@ The subtlety of Emily's actions became a labyrinth of doubt, obscured by the har
 As the anticipated arrival of the rescue plane approached excruciatingly slowly, Emily became more and more empty. Nonetheless, I have upheld my vow to myself and Emily to protect her in our predicament, no matter what. The sounds that we hear every night seem to get louder and louder as the days pass. I've started sleeping with a chef's knife under my pillow that I took from the station kitchen. Although it's not much, it may be enough to protect Emily and myself.
 
 The tapping isn't getting any quieter, so I think I'll just go to sleep. Good night everyone, and I'll let you guys know any updates tomorrow night. That is, if I live through the night.
+
+[PART 3](https://www.reddit.com/r/nosleep/comments/18eoydr/im_stuck_in_an_arctic_research_station_with_my/)

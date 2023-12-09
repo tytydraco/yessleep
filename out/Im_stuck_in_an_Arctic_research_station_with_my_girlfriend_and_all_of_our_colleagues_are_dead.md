@@ -24,6 +24,6 @@ I am writing this in my room with Emily at my side, barricaded in with whatever 
 
 I'll let you guys know any updates about our perilous situation.
 
-&#x200B;
-
 [PART 2](https://www.reddit.com/r/nosleep/comments/18cn2vz/im_stuck_in_an_arctic_research_station_with_my/)
+
+[PART 3](https://www.reddit.com/r/nosleep/comments/18eoydr/im_stuck_in_an_arctic_research_station_with_my/)
