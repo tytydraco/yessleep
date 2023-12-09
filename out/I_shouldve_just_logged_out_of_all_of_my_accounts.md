@@ -58,7 +58,7 @@ Sunday holds the same eventfulness. I check back in on my new friend and the loc
 
 &#x200B;
 
-I smile and shake my head, that app must've revealed something of curiosity and they're pursuing it like I am to them. I named them Jordan in my head since it was a unisex name and decided to check on them regularly.
+I smile and shake my head, that app must've revealed something of curiosity and they're pursuing it like I am to them. I named them Jordan in my head since it was a gender neutral name and decided to check on them regularly.
 
 &#x200B;
 
@@ -126,7 +126,7 @@ I finally found an apartment that's closer to my job, rent is a little pricier b
 
 &#x200B;
 
-It was my mail. 
+It was my mail.
 
 &#x200B;
 
