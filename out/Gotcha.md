@@ -2,7 +2,7 @@ You have to tell someone what's eating away at you from the inside, at least tha
 
 Instead of doing what my therapist wants, I usually just drink until I pass out, but this time I'm willing to try and do what she wants even though I'm not expecting too feel better afterwards. 
 
-Thankfully, I can go back to drinking if this doesn't work out, the bottles of hard liquor don't really help my mind heal, but they do help my it forget a thing or two, which is more than I could wish for.
+Thankfully, I can go back to drinking if this doesn't work out, the bottles of hard liquor don't really help my mind heal, but they do help it forget a thing or two, which is more than I could wish for.
 
 I'm sure it's better if I stop beating around the bush, so let me start at the beginning.
 
@@ -22,9 +22,9 @@ I'm sure it's better if I stop beating around the bush, so let me start at the b
 
 *Outstanding my trick will be.*
 
-*Frightened, it might make you, causing you to flee*
+*Frightened, it might make you, causing you to flee.*
 
-*Forever in your memory this night's trickery will be etched, I already told you what I plan to do and yet you don't understand me yet.*
+*Forever in your memory this night's trickery will be etched, I already told you what I plan to do, alas, you don't understand me yet.*
 
 *I didn't have a strong opinion about it, but I saved the greeting card anyway, It was so out of place that it made me chuckle.*
 
