@@ -125,3 +125,4 @@ The second, was what was on the left-hand page, under the *Notices* bulletin.
 God help us…
 
 [Part 4](https://www.reddit.com/r/nosleep/s/9xPE36dOCB)
+[Part 5](https://www.reddit.com/r/nosleep/s/Sijl6bjRpR)

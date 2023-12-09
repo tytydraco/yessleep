@@ -232,4 +232,6 @@ Someone began softly knocking a few minutes ago on the cabin door. And then bega
 To Will, this ship was…*is*, heaven. A place where he can eternally spend frozen in the time period he wanted to go back to.  
 
 
-To me, it’s hell.
+To me, it’s hell.
+
+[Part 5](https://www.reddit.com/r/nosleep/s/Sijl6bjRpR)

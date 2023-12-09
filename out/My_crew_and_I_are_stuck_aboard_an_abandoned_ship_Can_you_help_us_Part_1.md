@@ -162,3 +162,4 @@ Oh, and one final thing. I don’t know if it’ll help, but when I went for my 
 [Part 2](https://www.reddit.com/r/nosleep/s/gT4Mnp4ZsB)
 [Part 3](https://www.reddit.com/r/nosleep/s/bq57yJrVIs)
 [Part 4](https://www.reddit.com/r/nosleep/s/9xPE36dOCB)
+[Part 5](https://www.reddit.com/r/nosleep/s/Sijl6bjRpR)
