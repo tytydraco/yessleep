@@ -79,7 +79,7 @@ Once outside, I took in the hallway. A whole line of portraits hung on the wall 
 The gentleman in question appeared to be a local individual wearing a traditional dress and a turban. His giant moustache was the main highlight of the painting. I slowly walked towards the stairs, noticing that the paintings slowly started becoming older and worn out as I passed each art piece to the point that their faces were no longer identifiable. The only thing that stayed consistent was that their eyes looked fresh and alive, as if they were just painted.   
 
 
-The whole inn was now dimly light with old light bulbs. A lizard scurried away on the wall as I reached near the stairs.  I walked past the paintings in silence and made my way downstairs to the lobby.   
+The whole inn was now dimly lit with old light bulbs. A lizard scurried away on the wall as I reached near the stairs.  I walked past the paintings in silence and made my way downstairs to the lobby.   
 
 
 Mr. Kabeer was watching something on an old TV. It was difficult to see what he was watching due to all the static noise. As I entered, he looked at me and asked.  
