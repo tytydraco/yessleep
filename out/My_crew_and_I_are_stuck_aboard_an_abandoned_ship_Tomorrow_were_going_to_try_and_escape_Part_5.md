@@ -256,4 +256,6 @@ But…if we don’t make it…thank you for helping give us a fighting chance at
 I do ask you one thing, though. Please.  
 
 
-Wish us luck.
+Wish us luck.
+
+[FINAL ](https://www.reddit.com/r/nosleep/s/cvVtPuuqfb)
