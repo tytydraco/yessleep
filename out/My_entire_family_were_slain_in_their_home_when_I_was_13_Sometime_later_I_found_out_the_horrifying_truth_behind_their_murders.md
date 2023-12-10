@@ -1,0 +1,27 @@
+To anyone reading this, hello. My name is Hana. I'm currently 31 and residing in the United States; Well New York City to be exact. It's a harsh environment, and I'm still getting used to it, but it's overall been a somewhat welcoming city. 
+
+Ten years ago, I was at a sleepover with one of my friends, a sleepover I was looking forward to at the time. As we were getting ready for bed, my friend's mother came in, with a somber expression on her face. After requesting that I come with her, I was greeted by cops downstairs. I soon found myself in the back of a police cruiser, speeding towards the police station in my neighborhood. As soon as I walked in the station, I began to ask questions. Why was I here? Where were my parents? That's when a detective dropped the truth to 13 year old me: my parents and two older brothers were found slain in my house. Their throats were slit to the point of near decapitation, and there were claw marks all over their body
+
+"I'm sorry, but they're gone"
+
+Those words hit me like a truck. The tears rolled down my face as I began to plead with the detective to say it was a joke, that he was lying. Everyone in the room was visibly heartbroken, seeing me break down completely in front of them. Even the criminals in the station had a glint of sadness in their eyes. The detective looked somber, and all he did was silently take my hand and hold it. For nearly half an hour I cried the hardest I ever did. Soon, I had no more tears to shed, and through gasps, I thanked the detective and left the building. My uncle was standing outside, and all I could remember was immediately hugging him, the uncontrollable sobbing, and my uncle's warm embrace. 
+
+The transition was hard, to say the least. I grew up in a very rich family. My family lived in one of the wealthiest neighborhoods of South Korea, so after my family died, I found myself in a more middle class environment, and I wasn't used to it at the time. However, my uncle's compassionate and warm nature helped me through this transition period. All the while, the cops investigated my family's murder. However, there was barely anything to go off of. The security cameras in my family's home were mysteriously stolen, and as a result there was no footage to go off of. After a year, it was declared a cold case and the investigation was dropped. 
+
+Shortly after graduating high school, I moved to the United States for college, saying goodbye to my uncle in the process. I eventually saved up enough money to purchase my own apartment alongside my friend  Daniel, where I still reside to this day. 
+
+One day, after returning to my apartment, I found a box sitting outside my door. It didn't have anything written on it. Just a brown cardboard box. Curious, I unlocked my apartment door and set the box down. After opening the box, I saw that inside there was a singular DVD with a note attached to it:
+
+**The Truth**
+
+I carefully took out the DVD and put it inside my DVD player. Daniel had just arrived around this time and I explained the current situation to him. He agreed to watch the contents of the DVD with me, so we both sat down on the couch and pressed play.
+
+As soon as the DVD started, I saw that it was the security footage from my old house. At first it was normal. 13 year old me with my brothers, my parents spending time together. I began tearing up, the memories coming back to me full force. Daniel seemed to recognize me in the video, and asked me why someone had this with them. I didn't answer. After collecting myself, I continued to watch the video. However, there was a sudden skip in the video, and the footage skipped to a week later, at midnight. There was absolute silence. Daniel looked visibly confused at this point.
+
+"Who sent this?" Daniel asked. "Cause this is a very..."
+
+"I don't know," I said, cutting him off. The footage continued. There was a sudden blur that rushed across the screen, followed by a audible scream. I saw my dad rush out with my brothers. All three of them were covered in blood. The blur rushed across the screen again, and my brother's head fell backwards, and he fell to the ground. I turned to Daniel, who had a look of pure horror on his face. As the footage continued, I saw my other brother also fall the ground, until it was just my father.
+
+"Why are you doing this to us?" I heard my father say in the footage. The blur returned, and my dad's head fell backwards and he fell to the ground. The footage went black, and the DVD player opened the tray for me to collect the DVD. Daniel's eyes were fixed on the screen, still a look a horror on his face. I was ready to vomit. But the tears came first. I began sobbing uncontrollably. It was as if I was just transported to that night ten years ago when the detective broke the news to me. Daniel snapped out of his trance and warmly embraced me, promising to turn over the DVD to the cops the next day and get to the bottom of this. 
+
+The next day, me and Daniel went to look for the DVD. But it was gone. There was no sign of it anywhere. To this day, I still have no clue where it went. But the footage is still ingrained in my head. I find myself rewinding the footage in my head, and often asking myself, who sent me this and why?
