@@ -13,3 +13,6 @@ I took my dog back inside to find my dad sitting on the couch watching tv. That 
 It was some kind of creature. It’s skin was pitch black, it had an extremely muscular build, and it’s face was just bone. It still had skin on his head but it was almost like it only grew around its face, like a lions mane. The skeleton part of it didn’t look human at all. Its face structure was all different and alien looking. 
 
 We kept staring at each other for what felt like an eternity. The next thing I know I’m waking up on my bedroom floor 4 hours later. I don’t even remember falling asleep. I’m hoping it was all just a dream, but everything felt real. If it was real I wonder if my dad knows about it, and I wonder why he wouldn’t tell me. Was my dad just playing a sick prank on me? I really have no answers so far. If anyone knows anything about what it was that I might have saw please leave a comment. I don’t know what I prefer, that monster being real or me going crazy. Do I confront my dad? Should I check the shed? I’m almost certain that this really did happen, I just need proof. I need to know I’m not insane. Any suggestions?
+
+(Part 2): 
+https://www.reddit.com/r/nosleep/s/Vid4gP0xy9
