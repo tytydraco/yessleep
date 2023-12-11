@@ -124,6 +124,8 @@ Every few hundred metres, I come to a stop, taking sips from my canteen, rationi
 
 Each pause is also an opportunity to check the compass from my survival kit to ensure that I'm still heading in the right direction.
 
+—
+
 Finally, after what seems like an eternity, I reach the waterfall. The sound of cascading water is a welcome relief. The shade provided by the surrounding trees offers a respite from the searing sun. I collapse near the water's edge.
 
 I crawl towards the water, the sound of it a soothing balm to my frazzled nerves. I carefully unscrew the cap of my canteen and dip it into the clear, cool water, filling it to the brim.
