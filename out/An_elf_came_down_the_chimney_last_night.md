@@ -1,3 +1,5 @@
+Part 1 | [Part 2](https://www.reddit.com/r/nosleep/comments/18fzmyl/an_elf_came_down_the_chimney_last_night_part_2/)
+
 This is all going to sound ridiculous. I know that Christmas is two weeks away, but I swear to god an elf really did come down my chimney last night. I'm terrified.
 
 My son shook me awoke this morning saying that there was this thing in the fireplace. At first, I thought was that it was a stinkbug, since he's scared of those and they tend to get in the house around this time of the year, but he was quickly followed by my daughter who told me that it was this "wrinkly thing." So I thought maybe a squirrel or a bird.
@@ -55,3 +57,7 @@ I was surfing Reddit on my phone a bit ago when I saw a green light out of the c
 It was staring straight at me, silently, green eyes boring into me like laser beams.
 
 It hasn't said anything yet, but I'm afraid it's a bomb that could go off at any time. I can't call the police. I don't know what to do. Should I wake up the kids and leave, or k5lqafa
+
+&#x200B;
+
+&#x200B;
