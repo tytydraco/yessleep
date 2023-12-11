@@ -62,7 +62,7 @@ We didn't see Darren or the new kid after that day.
 
 Come to think of it now, none of us had ever even gotten his name or he just never told us. But it didn't matter then, a new frenzy had taken over our school. Kids were sent to the hospital with broken and burst eye vessels, scratches, and even chaffing on the skin around their eyes. The students who hadn't succumbed to the Eye-Rub High were kept home as if it were some kind of infectious disease and not a game we were all choosing to partake in.
 
-There were claims from parents and students that some of them were found smiling and laughing, as if they had reached some kind of ascension. One kid was found unconscious, his nail beds protruding from his eyelids and brows.
+There were claims from parents and students that some of them were found smiling and laughing, as if they had reached some kind of ascension. One kid was found unconscious, his nails protruding from his eyelids and brows.
 
 I never got far myself, but I can admit it was a feeling unlike anything. Darren was right, in that it was this beautiful release; better than scratching an itch or cleaning the inside of your ear with a Q-tip. I never saw anything myself, but felt I came close a few times.
 
