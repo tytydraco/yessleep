@@ -12,7 +12,7 @@ The bad news is…what started this morning as the four of us…has now ended as
 Shit.  
 
 
-Let me…let me get to what you’ve said first and foremost. I feel myself beginning to precariously dangle near to insanity, and focusing on your comments will help keep me from going to way of Wyatt. Of mentally breaking.  
+Let me…let me get to what you’ve said first and foremost. I feel myself beginning to precariously dangle near to insanity, and focusing on your comments will help keep me from going the way of Wyatt. Of mentally breaking.  
 
 
 To the person who made the biggest and most detailed comment, many of the ideas you suggested, along with others, are what is going to ultimately go into our plan. So, for that, thank you. Unfortunately, your idea about crossing out our names in the activity programme, as good an idea as it was, is impossible to do. When we returned to our cabin to hole up for the night, I noticed that it had been taken. Whether that’s because an action like that would’ve worked or not, I don’t know.  
@@ -235,7 +235,7 @@ Vinny…I’m so sorry…I’m so, *so* sorry.
 I’m staring out the porthole now. As I type this out. I watch the moon rise in the sky and glimmer off the waves. It’s all I feel like I mentally *can* do now. But I know I have to pull myself together before dawn. If we want to have any chance to escape off the *Queen Elizabeth* alive.
 
   
-And there’s no choice *but* for it to be tomorrow. Because as I sat here typing this, another programme was jammed underneath the cabin door, flying under our barricade. When I flicked on my flashlight, I saw that someone had written in black ink at the bottom For Nathan Only. And when I flipped it open, I noted two things. The first was that the date on this one doesn’t say 2023, like the last one. The date says *Monday, June 25th, 1956*.
+And there’s no choice *but* for it to be tomorrow. Because as I sat here typing this, another programme was jammed underneath the cabin door, flying under our barricade. When I flicked on my flashlight, I saw that someone had written in black ink at the bottom *For Nathan Only*. And when I flipped it open, I noted two things. The first was that the date on this one doesn’t say 2023, like the last one. The date says *Monday, June 25th, 1956*.
 
   
 The second, is the first notice at the top of the left page. *Two days until arrival in New York City. If you have not already brought your travel papers to the Purser’s Office, please do it no later than 4PM tomorrow evening. Thank you!*
