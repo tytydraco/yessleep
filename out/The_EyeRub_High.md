@@ -2,7 +2,7 @@ I don't know how to start this story. There's so much I wanna say, lots I haven'
 
 I was a teenager when everything happened, so the memories are kinda fuzzy. My parents don't remember anything and the few people I still keep in contact with from that school have only small recollections of what transpired. If it weren't for them, I'd have thought I dreamt everything up somehow. Despite my research and scavenging, local news came up dry: no obituaries, articles, or otherwise discussing the Eye-Rub High game.
 
-The people I knew from then claimed their parents didn't remember anything, with some chalking it up to it having been an exaggeration: "You know how we were at that age, always coming up with a new way to give our parents a scare."
+The people I knew from then claimed their parents didn't remember anything, with one chalking it up to it having been an exaggeration: "You know how we were at that age, always coming up with a new way to give our parents a scare."
 
 But this was more than a scare. It was real. It had happened. And I'm finally ready, I think, to really talk about it.
 
@@ -72,6 +72,8 @@ His wife first called the police after she found him face-deep in the carpet, fr
 
 She had later found a letter from him in his office, with only one sentence: "Please, don't mourn me."
 
-It was my mother who had spoken to the poor woman after everything happened. She was still trembling as she told my mom the story, despite it having happened two weeks before. I listened in as best I could, and the way she told the story, the terror she felt; how his screams of agony turned into a laugh, and then a wide smile. She said she could feel the joy emanating from him; tempting her to break into a smile. to laugh with him. Had it not been for the police knocking at her door... She left shortly after. And that's all I remember of her.
+It was my mother who had spoken to the poor woman after everything happened. She was still trembling as she told my mom the story, despite it having happened two weeks before. 
+
+I listened in as best I could, and the way she told the story, the terror she felt; how his screams of agony turned into a laugh, and then a wide smile. She said she could feel the joy emanating from him; tempting her to break into a smile, to laugh with him. Had it not been for the police knocking at her door... She left shortly after. And that's all I remember of her.
 
 I haven't played or heard of the game since. And I'm ready to finally be done with it all. But before I finish up, I just ask, please don't mourn me.

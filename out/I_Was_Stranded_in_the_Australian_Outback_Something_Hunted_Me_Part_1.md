@@ -8,17 +8,17 @@ With a sense of nostalgia, I reach into the glove compartment and pull out a wea
 
 My parents divorced when I was just a kid. So, my life was split between their two worlds. Growing up, I spent the weekdays with my mum in the stifling urban sprawl of Perth. But the weekends were my escape. My dad would come whisk me away to a different reality. We’d go exploring the national parks all across Western Australia, hiking through dense bushland and camping under starlit skies.
 
-The trips were a much-needed escape from the confines of city life and the constant tension between me and mum's new boyfriend, Mark, a prick who never could never seem to hide his disdain for me. The feeling was mutual...
+The trips were a much-needed escape from the confines of city life and the constant tension between me and mum's new boyfriend, Mark, a prick who could never seem to hide his disdain for me. The feeling was mutual...
 
 As I flip through the images, I see myself growing up, from a curious child in awe of the natural world to a teenager, more confident and assured, always by my dad's side.
 
-One particular photo catches my eye. It's of me, at about 9 or 10 years old. I'm standing with dad by a serene lake, our smiles as wide as the horizon behind us. We’re proudly holding up a fish we caught together.
+One particular photo catches my eye. It's of me, at about 9 or 10 years old, around the time of the divorce. I'm standing with dad by a serene lake, our smiles as wide as the horizon behind us. We’re proudly holding up a fish we caught together.
 
 I gently turn the photo over. There, in my dad's familiar, slanted handwriting, is a message that strikes a chord in my heart: "The wilderness is where you'll find yourself."
 
 The last photo in the collection, taken on the weekend of my 15th birthday, is one I rarely look at, but today, I feel compelled to. We're sitting on a rocky outcrop, our faces turned towards the setting sun. Dad's arm is around my shoulders, and I'm leaning into him, a half-smile on my face.
 
-But it's his expression that catches my eye. There's a shadow that hangs over him. He was a man haunted by demons that he never spoke with me about, and that I was always too afraid to ever ask him about.
+But it's his expression that catches my eye. There's a shadow that hangs over him. He was a man haunted by demons that he never spoke with me about, and that I was always too afraid to ever ask.
 
 Despite the darkness that seemed to cling to him, my love for him was unwavering. His complexities, in a way, made me love him more.
 
@@ -122,7 +122,9 @@ Every few hundred metres, I come to a stop, taking sips from my canteen, rationi
 
 Each pause is also an opportunity to check the compass from my survival kit to ensure that I'm still heading in the right direction.
 
-As I trudge on, a nagging sensation begins to gnaw at the edges of my consciousness. It's a feeling of being watched, a prickling at the back of my neck that I can't quite shake off. At first, I dismiss it as paranoia, a side effect of the stress and isolation. But the feeling persists, growing stronger with each step.
+As I trudge on, a nagging sensation begins to gnaw at the edges of my consciousness. It's a feeling of being watched, a prickling at the back of my neck that I can't quite shake off.
+
+At first, I dismiss it as the jitters, but the feeling persists. I catch fleeting glimpses of shadows moving at the edge of my vision, too quick to be just tricks of light. Every rustle of the underbrush, every snap of a twig sends a shiver down my spine. It's as if the landscape itself is watching me, a silent stalker just out of sight.
 
 —
 
@@ -172,7 +174,7 @@ But the serenity shatters in an instant.
 
 The ground beneath me starts trembling, sending ripples through the water, a subtle vibration at first that quickly escalates into a violent shudder.
 
-The joey, sensing the danger before I fully grasp it, bolts into the darkness, his powerful legs carrying it swiftly away. For a moment, I'm frozen, my mind struggling to make sense of the sudden shift in the peaceful night.
+The joey, sensing the danger before I fully grasp it, bolts into the darkness, his powerful legs carrying him swiftly away. For a moment, I'm frozen, my mind struggling to make sense of the sudden shift in the peaceful night.
 
 "Wait!" I call out instinctively, though I know the kangaroo is far beyond hearing me.
 
