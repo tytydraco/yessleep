@@ -26,4 +26,4 @@ They’re closing in, chanting, “Eat the filthy thief, don’t make him leave.
 
 **EDIT 2:**
 
-Please, anyone. What can I do? I can’t make calls. I can’t contact anyone. My eyes hurt so much. They're chanting louder and louder, and the smell is becoming unbearable. I have my back against the door, and it won't open no matter what. I don’t want to die here. My eyes are drying out and I dare not blink.
+Please, anyone. What can I do? I can’t make calls. I can't contact anyone. My eyes hurt so much. They're chanting louder and louder, and the smell is becoming unbearable. I have my back against the door, and it won't open no matter what. I don’t want to die here. My eyes are drying out and I dare not blink.
