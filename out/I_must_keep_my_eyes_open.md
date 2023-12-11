@@ -2,7 +2,7 @@ Please don’t judge me harshly when you read this. I really didn’t mean to do
 
 At this very moment, I’m trapped inside an abandoned hospital. I came here with my dslr to take some pics and... maybe to take stuff to sell. But I swear I didn’t mean to disturb anything. It’s abandoned, after all. I mean, if they left it here, it's not really stealing, right? I came here for the thrill and for the karma first. Oh God. I regret everything.
 
-You may not know that but abandoned buildings always stink. It's usually a mix of 80% mold and 20% dust or the other way around. This time, though, it reeked of decay. As if the walls were full of rot or something. I didn't think anything of it because it used to be an actual hospital after all.
+You may not know that but abandoned buildings always stink. It's usually a mix of 80% mold and 20% dust, or the other way around. This time, though, it reeked of decay. As if the walls were full of rot or something. I didn't think anything of it because it used to be an actual hospital after all.
 
 It was dark and eerily silent inside. I had a flashlight, but the silence creeped me out. No idea how they built this place, but it prevented any sound from the outside world from seeping in. I could almost hear my own heartbeat if it wasn’t for my footsteps reverberating in the empty corridor.
 
