@@ -34,7 +34,7 @@ A feeling of relief washed over me, and I pulled the walkie-talkie from my belt 
 
 “Come on guys, this way” I said, pointing to a sign at the start of the left hallway. *Verandah Grill, this way*.
 
-The four of us made our way down the hallway. An porthole stood open halfway down it, and as we passed it, the smell of the ocean filtered in. I slowed to take a deep breath of it, letting it invigorate me a bit.
+The four of us made our way down the hallway. A porthole stood open halfway down it, and as we passed it, the smell of the ocean filtered in. I slowed to take a deep breath of it, letting it invigorate me a bit.
 
 And froze.
 
