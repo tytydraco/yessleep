@@ -391,7 +391,7 @@ I awoke sitting on a patchy couch.
 
 My arms were too long, my body contorted into a giant, bulging *thing* that I could barely move. Looking down at my hands, they were huge, weighing me down. I had bright pink skin and orange polka dots. I recognised the colourful backdrop around me, cartoonish furniture, walls that collapsed into liminal spaces that went on forever, custard dripping from the ceiling. 
 
-It was kids show I grew up with. 
+It was the kids show I grew up with. 
 
 Bigsby’s Little World. 
 
@@ -411,11 +411,12 @@ My parents weren't dead, or the kids who fell victim to TX flu. They were here.
 
 Inside the static. 
 
+As if obeying, Bellamy’s mouth opened impossibly wide, his eyes screaming at me to run. 
 
-As if obeying, Bellamy’s mouth opened impossibly wide, his eyes screaming. 
+Run… *where?!*
 
 “It's tiiiiiiiime to play!”
 
 … 
 
-sorry, that's all can write for now. Coming *out* of the wave, fucked up my physical body, so typing is hard. I've been stewing inside a facility for the majority of us for a while, and I just got Internet. It feels good to talk about it.
+sorry, that's all can write for now. Coming *out* of the wave, fucked up my physical body, so typing is hard. I've been stewing inside a facility with the majority of us for a while, and I just got Internet. It feels good to talk about it.

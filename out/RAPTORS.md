@@ -441,3 +441,4 @@ Inspired by the thread made by twitter use Archesuchus.
 
   
 Thanks for reading!
+If you want to read more of my work, find my stories on AO3, my username is SomeDudeThatLikesToWrite.
