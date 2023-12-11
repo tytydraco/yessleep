@@ -228,7 +228,7 @@ I watched, paralysed, as Alice was eaten out of existence, consumed by pins and 
 
 That same day, I say at home with a gnawing feeling in my gut, watching our mayor address the town with a strained smile. I kept checking my face in the mirror. I became obsessive, checking and rechecking to see if I was bleeding pins and needles. 
 
-Offering condolences to Alice's family, the mayor reassured us that it was an isolated incident. He ignored questions about the barrier of galvanic blue that had appeared overnight, splitting the town in half. This thing was opaque, and impenetrable, a giant wall of buzzing static. The mayor told us not to panic, and that he had everything under control. By the end of the week, half of my class were dead, socommbing to the exact same headache, static seeping from their nose. The outbreak soon had a name. TX Flu (90210 syndrome) named after the TV show that was broadcasted during the so-called anomaly. 
+Offering condolences to Alice's family, the mayor reassured us that it was an isolated incident. He ignored questions about the barrier of galvanic blue that had appeared overnight, splitting the town in half. This thing was opaque, and impenetrable, a giant wall of buzzing static. The mayor told us not to panic, and that he had everything under control. By the end of the week, two kids in my class were dead, socummbing to the exact same headache, static seeping from their nose. The outbreak soon had a name. TX Flu (90210 syndrome) named after the TV show that was broadcasted during the so-called anomaly. 
 
 The mayor announced two symptoms to look out for. 
 
@@ -239,11 +239,11 @@ The mayor announced two symptoms to look out for.
 
 The infected weren't random. Rosie Mclure dropped dead right in front of me on the school grounds. Rosie was known for being a bully, and had been screaming at Callen Holland to show her his nose. Apparently, he had a nosebleed. 
 
-Ironically, that was when she swiped at the own nose, and sure enough, her sleeve was stained black. I think this thing was already learning as it infected and killed more kids. She was dead before the static started eating her. We were all thinking it, but it wasn't confirmed until the mayor addressed us one evening, after confirming the death toll had reached 1,300. 
+Ironically, that was when she swiped at the own nose, and sure enough, her sleeve was stained black. I think this thing was already learning as it infected  more kids. She was dead before the static started eating her. We were all thinking it, but it wasn't confirmed until the mayor addressed us one evening, after confirming the death toll had reached 300.
 
-Adults and children (mainly children) with parents and loved ones who were taken by the anomaly, were the majority infected. This thing wasn't contagious to anyone but the children of the disappeared. Which meant I was a ticking time bomb. The first time I became terrified of my own reflection. I stopped looking in mirrors, and they slightest pain in my head made me spiral. There was no cure, nothing to soften the blow. Not even an answer. Officially, it was TX flu. Not even the CDC were touching it. In my aunts words, they were going to cover it up. 
+Adults and children (mainly children) with parents and loved ones who were taken by the anomaly, were the majority infected. This thing wasn't contagious to anyone but the children of the disappeared. Which meant I was a ticking time bomb. The first time I became terrified of my own reflection. 
 
-So, the real world have no idea about a body eating virus lurking in their TV's. 
+I stopped looking in mirrors, and they slightest pain in my head made me spiral. There was no cure, nothing to soften the blow. Not even an answer. Officially, it was TX flu. Not even the CDC were touching it. In my aunts words, they were going to cover it up from the rest of the world. So, the real world have no idea about a flesh  eating virus lurking in their TV's. 
 
 I didn't blame them. I was starting to feel like the background character in a disaster movie. 
 
@@ -251,7 +251,7 @@ You know, the random, no-name middle schooler who succumbed to the virus off scr
 
 I spent the next few years forcing myself to live normally, even when normal had crashed and burned. I kept expecting to catch TX flu, but I was lucky not to.
 
-School wasn't really *school* anymore, after fifty percent of kids in town were dead. It was called *Learning Time* and was a mandatory two hour class that educated us on the basics if we happened to survive. The CDC announced we were in quarantine until further notice. Four years later, and it was still *until further notice*. There were six surviving kids in my class. Five of them were considered not infected, their parents still intact, while I was the ticking time bomb they were expecting to *pop!* one day. Just like my parents. 
+School wasn't really *school* anymore, after a group of kids in town dead. It was called *Learning Time* and was a mandatory two hour class that educated us on the basics if we happened to survive. The mayor announced we were in quarantine until further notice. Four years later, and it was still *until further notice*. There were a bunch of kids in my class. Five of them were considered not infected, their parents still intact, while I was the ticking time bomb they were expecting to *pop!* one day. Just like my parents. 
 
 Led by Bellamy Croft, known for despising *infected* kids, these guys loved getting under my skin. Unlike me, they did watch TV. They thought they were invincible by not having a parent that had been eaten by the static. So, they regularly watched my Dad and Mom. For them, it was a fucking joke. 
 
@@ -291,7 +291,7 @@ Emma had her hand over my mouth, and I struggled to pull it away, trying to scre
 
 “Please! I didn't do anything, I swear!”
 
-The voice was a man. When I arched my neck, looking closer, I glimpsed an oldish guy on his knees in front of the barrier. Behind him were two soldiers pointing their guns at the back of his head. “Walk.” one of them grunted, protruding the weapon into his skull. 
+The voice was a man. When I arched my neck, looking closer, I glimpsed an oldish guy on his knees in front of the barrier. Behind him were two local soldiers pointing their guns at the back of his head. “Walk.” one of them grunted, protruding the weapon into his skull. 
 
 “But I can't just–” 
 
@@ -405,6 +405,12 @@ Half of Emma’s head was sticking out of his skull, her blinking eyes begging m
 
 It sounded like a little girl, a screech rattling my skull. 
 
+It hit me. 
+
+My parents weren't dead, or the kids who fell victim to TX flu. They were here. 
+
+Inside the static. 
+
 
 As if obeying, Bellamy’s mouth opened impossibly wide, his eyes screaming. 
 
@@ -412,4 +418,4 @@ As if obeying, Bellamy’s mouth opened impossibly wide, his eyes screaming.
 
 … 
 
-sorry, that's all can write for now. Coming *out* of the wave, fucked up my physical body, so typing is hard. Thanks for reading my experience.
+sorry, that's all can write for now. Coming *out* of the wave, fucked up my physical body, so typing is hard. I've been stewing inside a facility for the majority of us for a while, and I just got Internet. It feels good to talk about it.
