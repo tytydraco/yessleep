@@ -8,7 +8,7 @@ With a sense of nostalgia, I reach into the glove compartment and pull out a wea
 
 My parents divorced when I was just a kid. So, my life was split between their two worlds. Growing up, I spent the weekdays with my mum in the stifling urban sprawl of Perth. But the weekends were my escape. My dad would come whisk me away to a different reality. We’d go exploring the national parks all across Western Australia, hiking through dense bushland and camping under starlit skies.
 
-The trips were a much-needed escape from the confines of city life and the constant tension between me and mum's new boyfriend, Mark, who never could never seem to hide his disdain for me. The feeling was mutual...
+The trips were a much-needed escape from the confines of city life and the constant tension between me and mum's new boyfriend, Mark, a prick who never could never seem to hide his disdain for me. The feeling was mutual...
 
 As I flip through the images, I see myself growing up, from a curious child in awe of the natural world to a teenager, more confident and assured, always by my dad's side.
 
