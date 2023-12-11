@@ -80,7 +80,7 @@ I fumble for the radio, my hands shaking. "Base, this is Ranger Arnhem," I croak
 
 The radio remains silent, leaving me with a sinking feeling of isolation.
 
-Panic rises in my chest. I'm tens of kilometres away from the nearest ranger station, in a rarely patrolled part of the park. My water supply is limited, and with the harsh Outback sun climbing higher, the heat becomes suffocating.
+Panic rises in my chest. I'm tens of kilometres away from the nearest ranger station, in a rarely patrolled part of the park. My water supply is limited, and with the harsh sun climbing higher, the heat becomes suffocating.
 
 The old fear, that gnawing sense of abandonment, starts creeping back, threatening to paralyse me. It's a ghost I thought I'd left behind, but here, in the vastness of the Outback, it looms large once more.
 
@@ -96,7 +96,7 @@ I awkwardly manoeuvre out of the driver's seat, grabbing the first aid kit as I 
 
 Sitting on the ground, I lean against the vehicle, trying to steady my breathing. I give myself a more thorough examination, checking for other injuries I might have missed in the initial shock.
 
-There's a deep cut on my leg from the collision. It's bleeding, but not profusely. I clean the wound as best as I can with the limited supplies in the kit and bandage it tightly. The pain in my wrist is persistent, but I manage to wrap it in a makeshift splint.
+The throbbing in my head is intense, and I feel a warm trickle of blood down my temple, maybe a concussion. There's a deep cut on my leg from the collision. It's bleeding, but not profusely. I clean the wounds as best as I can with the limited supplies in the kit and bandage them tightly. The pain in my wrist is persistent, but I manage to wrap it in a makeshift splint.
 
 As I sit there, gathering my thoughts, I remember passing a waterfall about a kilometre away on my patrol route. The thought of its shade and fresh water gives me a sliver of hope in this dire situation. I know I need to get there if I want to increase my chances of survival.
 
@@ -104,7 +104,7 @@ Gathering my wits, I turn my attention to the GPS mounted on the dashboard, hopi
 
 I turn to the glove compartment, rummaging through its contents until my fingers find the familiar, slightly worn edges of a map.
 
-Laying it flat on the hood of the damaged vehicle, I try to pinpoint my current location.Using landmarks I remember passing, like the distinctive shape of a nearby gorge and the direction I was heading, I estimate my position. It's not exact, but it should be close enough.
+Laying it flat on the hood of the damaged vehicle, I try to pinpoint my current location. Using landmarks I remember passing, like the distinctive shape of a nearby gorge and the direction I was heading, I estimate my position. It's not exact, but it should be close enough.
 
 I trace the contours and landmarks with my finger. The waterfall is marked clearly, a blue squiggle amidst a sea of browns and greens.
 
@@ -144,7 +144,9 @@ As the sun begins its descent, painting the sky in hues of orange and pink, I fi
 
 The process of starting a fire is arduous, especially with my injured wrist, but I persevere. Using a flint from my survival kit, I finally manage to spark a flame. I feed the fire with small twigs and branches, watching as the flames grow stronger.
 
-As the temperature drops rapidly, I wrap myself in a thermal blanket, huddling close to the fire's comforting glow.Underneath the star-studded sky, I can't help but feel a sense of vulnerability. The vastness of the wilderness and the isolation it brings are both awe-inspiring and terrifying. Yet, the fire serves as a beacon of hope, a signal to any rescue aircraft that may be scouring the park for me.
+As the temperature drops rapidly, I wrap myself in a thermal blanket, huddling close to the fire's comforting glow.
+
+Underneath the star-studded sky, I can't help but feel a sense of vulnerability. The vastness of the wilderness and the isolation it brings are both awe-inspiring and terrifying. Yet, the fire serves as a beacon of hope, a signal to any rescue aircraft that may be scouring the park for me.
 
 As night falls, the sounds of the Outback become more pronounced. The distant calls of nocturnal animals, the rustling of leaves in the gentle breeze, and the continuous murmur of the waterfall create a symphony of wilderness.
 
