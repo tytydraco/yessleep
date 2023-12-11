@@ -110,11 +110,9 @@ I trace the contours and landmarks with my finger. The waterfall is marked clear
 
 I plot my course, mentally calculating the distance and the direction I need to head. The sun, now a fiery orb in the sky, will be my guide. I need to head east, towards the rising sun, then veer slightly north.
 
-Gathering my strength, I stand up, wincing at the sharp pain in my leg and wrist. I grab my backpack and fill it with supplies from the car: a water canteen, emergency rations, a small survival kit, and most importantly my notebook. It's not much, but it's something.
+Gathering my strength, I stand up, wincing at the sharp pain in my leg and wrist. I grab my backpack and fill it with supplies from the car: water canteens, emergency rations, a small survival kit, and most importantly my notebook. It's not much, but it's something.
 
-I put on a pair of sunglasses and a hat to shield myself from the relentless sun. Using a compass from my survival kit, I orient myself towards the direction of the waterfall.
-
-I scour the area around the wreck, searching for anything that could serve as a makeshift walking stick. After a few minutes of searching, I find a sturdy, fallen branch. It's not perfect, but it's solid enough to support my weight and help me maintain my balance.
+I put on a pair of sunglasses and a hat to shield myself from the relentless sun. I scour the area around the wreck, searching for anything that could serve as a makeshift walking stick. After a few minutes of searching, I find a sturdy, fallen branch. It's not perfect, but it's solid enough to support my weight and help me maintain my balance.
 
 The trek is gruelling, each step a test of endurance. My sprained wrist throbs with every movement, and the cut on my leg stings sharply, but I push through the pain. The rugged terrain is unforgiving, with rocky outcrops and uneven ground making the journey more challenging.
 
