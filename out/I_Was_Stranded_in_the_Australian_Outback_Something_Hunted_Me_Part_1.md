@@ -4,7 +4,7 @@ I check my gear one last time. Radio, check. Map, check. Water and supplies, all
 
 The Australian Outback stretches out before me, vast and unyielding. I can't help but think about how far I've come to be here.
 
-With a sense of nostalgia, I reach into the glove compartment and pull out a weathered, leather-bound notebook. Flipping it open, I'm greeted by a collage of [notes](https://www.reddit.com/r/PageTurner627Horror/comments/14kagjn/i_found_a_time_capsule_with_a_letter_inside_that/), sketches, and photographs. More than half of the photos feature me and my father in various outdoor settings, snapshots of our shared adventures.
+With a sense of nostalgia, I reach into the glove compartment and pull out a weathered, leather-bound notebook. Flipping it open, I'm greeted by a collage of notes, sketches, and photographs. More than half of the photos feature me and my father in various outdoor settings, snapshots of our shared adventures.
 
 My parents divorced when I was just a kid. So, my life was split between their two worlds. Growing up, I spent the weekdays with my mum in the stifling urban sprawl of Perth. But the weekends were my escape. My dad would come whisk me away to a different reality. We’d go exploring the national parks all across Western Australia, hiking through dense bushland and camping under starlit skies.
 
@@ -34,7 +34,7 @@ I pick up the radio and press the button, my voice steady but with an undercurre
 
 "Remember, kiddo, this park's a wild place. Keep your wits about you and don't take unnecessary risks," he advises.
 
-"Absolutely! I promise I won't do anything you wouldn't," I reply with a playful tone that elicits a chuckle on the [other](https://www.youtube.com/watch?v=MGd1F6Ay8ho) end.
+"Absolutely! I promise I won't do anything you wouldn't," I reply with a playful tone that elicits a chuckle on the other end.
 
 "Good, that's what I like to hear. And hey, Willow," he adds, a hint of warmth breaking through his usually stoic demeanour, "your old man would be proud of you. You've got this."
 
@@ -52,11 +52,11 @@ However, as I approach the remote area near Weano Gorge, something catches my ey
 
 It's a subtle disturbance, a flicker of movement or a shade out of place – hard to discern at first, but unmistakably unusual. Weano Gorge, while known for its breathtaking views, is rarely visited, its beauty guarded by the ruggedness of its terrain.
 
-It could be anything – a lost hiker, a rare animal sighting, or perhaps just a trick of light and shadow. But as a park ranger in this unforgiving expanse, every possibility warrants attention. Curiosity piqued, I decide to take a detour to [investigate](https://www.reddit.com/r/nosleep/comments/16texdg/im_a_private_investigator_in_new_orleans_i/).
+It could be anything – a lost hiker, a rare animal sighting, or perhaps just a trick of light and shadow. But as a park ranger in this unforgiving expanse, every possibility warrants attention. Curiosity piqued, I decide to take a detour to investigate.
 
 The stillness is shattered by the ominous rumble of shifting earth. My eyes dart upwards, catching sight of a massive boulder breaking free from the cliff above. Time seems to slow as I watch it tumble, gaining momentum, its path unmistakably aimed at my Land Cruiser.
 
-My heart pounds in my chest, a primal instinct to survive kicking in. Gripping the steering wheel, I swerve the vehicle with all the might I can muster. The [landscape](https://www.reddit.com/r/nosleep/comments/174jp2m/im_a_cop_on_the_navajo_reservation_i_investigated/) blurs as I make a desperate attempt to evade the impending collision.
+My heart pounds in my chest, a primal instinct to survive kicking in. Gripping the steering wheel, I swerve the vehicle with all the might I can muster. The landscape blurs as I make a desperate attempt to evade the impending collision.
 
 But the boulder, like a relentless predator, seems to follow my every move. The distance between us rapidly closes. With a final, futile twist of the wheel, I brace for impact.
 
@@ -160,7 +160,7 @@ After a while, I set aside the notebook and focus on staying warm and alert. I p
 
 I wrap myself in my thoughts, the crackling of the fire a soothing backdrop, when suddenly, a rustling sound cuts through the silence. It's coming from the dense brush just beyond the firelight's reach.
 
-I tense up, every muscle in my body on high alert. You’ve no doubt seen all those memes about how Australian wildlife is out to murder you. While mostly gross exaggerations, there's always a kernel of truth in them. The Outback is home to some of the most unique and, yes, potentially dangerous [creatures](https://www.reddit.com/r/nosleep/comments/1581vef/our_search_for_a_missing_teen_uncovered_the/) in the world.
+I tense up, every muscle in my body on high alert. You’ve no doubt seen all those memes about how Australian wildlife is out to murder you. While mostly gross exaggerations, there's always a kernel of truth in them. The Outback is home to some of the most unique and, yes, potentially dangerous creatures in the world.
 
 My mind races through the possibilities. Could it be a snake? A dingo, perhaps? Or something larger? The rustling grows louder, more insistent.
 
@@ -192,7 +192,7 @@ Instinct kicks in, and I know I have to move. I stumble backwards, my injured le
 
 I dodge to the side, barely avoiding its snapping jaws.
 
-I scramble back to the fire, my breath ragged with fear and exertion. The creature is relentless, its every movement filled with predatory purpose. In a desperate bid for defence, I grab a flaming branch from the fire, the [embers](https://www.reddit.com/r/nosleep/comments/18czkf2/im_a_park_ranger_at_hawaii_volcanoes_national/) scattering in a shower of sparks.
+I scramble back to the fire, my breath ragged with fear and exertion. The creature is relentless, its every movement filled with predatory purpose. In a desperate bid for defence, I grab a flaming branch from the fire, the embers scattering in a shower of sparks.
 
 With every ounce of strength I have, I swing the branch at the monster. The flames lick at its grotesque skin, and it recoils with a hideous screech that pierces the night air. The smell of burning flesh and singed hair fills my nostrils, a nauseating reminder of the surreal danger I'm facing.
 
@@ -210,7 +210,7 @@ Just as I reach the overhang, a terrifying realisation hits me: it's a dead end.
 
 Panic grips me, the fear so intense it's almost paralysing. My mind races through every possible scenario, but none offer a way out. I brace myself, ready to face the creature, when suddenly…
 
-A pair of strong, calloused hands grabs me from behind, covering my mouth. My initial impulse is to struggle, to fight against this new threat, but the hands are insistent, pulling me towards the cascading waterfall. I plunge into the veil of water, a [cold](https://www.reddit.com/r/nosleep/comments/14c93t1/im_an_arctic_researcher_we_accidentally_released/), blinding torrent that disorients me further.
+A pair of strong, calloused hands grabs me from behind, covering my mouth. My initial impulse is to struggle, to fight against this new threat, but the hands are insistent, pulling me towards the cascading waterfall. I plunge into the veil of water, a cold, blinding torrent that disorients me further.
 
 Is this another threat, or an unexpected ally?
 

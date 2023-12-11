@@ -1,4 +1,4 @@
-When I first opened the package, I was bamboozled to find something completely unlike the product I’d seen in the IKEA store. A clock with the number 13 unwillingly wedged between 12 and 1.
+When I first opened the package, I was bamboozled. I found something completely unlike the product I’d seen in the IKEA store. A clock with the number 13 unwillingly wedged between 12 and 1.
 
 As I would soon learn, however, it was *exactly* as intended.
 
@@ -6,14 +6,15 @@ After overcoming the initial annoyance, I hung the inaccurate clock on the wall,
 
 Later, we found ourselves slumped on the sofa, binge-watching episodes of The Office way past midnight. Every few minutes, I’d glance at the IKEA clock and chuckle to myself. I was bemused at the thirteen numbers crammed uneasily and unevenly around the outer perimeter. Silly sardines in a tin can.
 
-There was nothing silly about what happened when the clock struck 13.  
+There was nothing silly about what happened when the clock struck 13.
+
 In a moment of harrowing horror, Reya vanished. And then the lights in my house followed suit, as did the lights of every house outside my window, in rapid succession.
 
 I sprinted from room to room in a frenzy, calling for Reya, but there was no answer.
 
 After ten minutes of fruitless searching, I ran into the street. My neighbourhood had been plunged into darkness. And it was no isolated event. Even as I headed farther into the town, I found no signs of life. Not a light. Not a car on the road. Not a soul.
 
-I started to scream maniacally, succumbing to the terrifying concept of being perpetually alone in an icy, lifeless version of Earth. I truly thought the world had ended.
+I started to scream manically, succumbing to the terrifying concept of being perpetually alone in an icy, lifeless version of Earth. I truly thought the world had ended.
 
 And then, just as suddenly as it stopped, everything sprang back to life. I had returned home at that point, and I was sitting on the sofa, head in my hands. The lights suddenly returned. So did The Office. And so, most reassuringly of all, did Reya. The horrifying hour in an apocalyptic world suddenly made sense.
 
@@ -159,7 +160,7 @@ More time? What a twisted, evil lie. I’d been robbed of a life with my family.
 
 Fuelled by hatred, I rang the IKEA branch, fully intending to exact some form of retributive justice on the man responsible for my years of torment. But I received some ghastly news.
 
-Jacob had gone missing several years before I even stepped into the store. He wasn’t even an employee at that time. Apparently, his family members — well, their teeth and ashes — were found in the man’s living room.
+Jacob went missing several years before I even stepped into the store. He wasn’t even an employee at that time. Apparently, his family members — well, their teeth and ashes — were found in the man’s living room.
 
 It’s clear that Jacob suffered the same punishment as me, but what happened to him? Why did he return to the store to pass this horrifying curse onto an unsuspecting soul?
 
