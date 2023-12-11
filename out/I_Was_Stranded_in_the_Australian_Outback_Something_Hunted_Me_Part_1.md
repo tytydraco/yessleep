@@ -122,6 +122,8 @@ Every few hundred metres, I come to a stop, taking sips from my canteen, rationi
 
 Each pause is also an opportunity to check the compass from my survival kit to ensure that I'm still heading in the right direction.
 
+As I trudge on, a nagging sensation begins to gnaw at the edges of my consciousness. It's a feeling of being watched, a prickling at the back of my neck that I can't quite shake off. At first, I dismiss it as paranoia, a side effect of the stress and isolation. But the feeling persists, growing stronger with each step.
+
 —
 
 Finally, after what seems like an eternity, I reach the waterfall. The sound of cascading water is a welcome relief. The shade provided by the surrounding trees offers a respite from the searing sun. I collapse near the water's edge.
