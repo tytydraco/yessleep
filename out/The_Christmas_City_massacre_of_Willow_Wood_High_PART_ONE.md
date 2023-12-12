@@ -222,4 +222,4 @@ The entire car ride, I couldn't hear anything except the world around me. That i
 
 When we got home, I immediately hopped out and went inside. My mind was on autopilot. One track, one goal in mind, and that was to simply go and bunker myself into my room. I couldn't have told you why exactly; maybe it was stress, exhaustion, confusion, or a mix of the three, and many more, but I wanted nothing more than to lock myself away and pass out.
 
-I didn't even make it to my bed, in fact, before I passed out. It didn't even feel like I had. Just before my face would've met the bed, I wasn't even standing in my room anymore.
+I didn't even make it to my bed, in fact, before I passed out. It didn't even feel like I had. Just before my face would've met the bed, I wasn't even standing in my room anymore[.](https://www.corpsechildssanctuary.com)
