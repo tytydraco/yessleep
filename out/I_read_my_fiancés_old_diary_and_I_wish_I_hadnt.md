@@ -1,7 +1,3 @@
-A/N: Feel free to let me know what I could’ve done better! Your feedback is really helpful and appreciated ❤️ 
-
-____I read my fiancé’s old diary and I wish I hadn’t___
-
 I was a young woman on the cusp of 21, happily engaged to the love of my life Seb (23M) and mother- to - be.
 
 I will always remember the day Seb sat me down and proposed his uncle’s house as a venue for the baby shower. I’d never so much as set foot on the property, and was understandably nervous.
@@ -16,11 +12,15 @@ The drive stretched on- four hours through the deep, sullen woods. I winced at e
 
 The house was a ugly, misshapen thing, cobbled together with little more than planks and sheer desperation. I shot a horrified glance at Seb, but he merely took my hand and led me indoors.
 
-The parlor was decorated tastefully, if a little old, and he’d already set everything up as per my request. I smiled, our lips brushing as he wrapped his arms around me. “Better?”
+The parlor was decorated tastefully, if a little old, and he’d already set everything up as per my request. Not so bad, if compared to the outdoors. I smiled, our lips brushing as he wrapped his arms around me. “Better?”
 
 “Thank you! Thank you!” I kissed him eagerly. “A perfect shower for our perfect baby!” I teared up a little thinking of the small human inside me, who all too soon would be a young woman with thoughts and opinions and beliefs of her own. Yet I would have her with me for 18 years, 18 beautiful years- what more did I want, need?
 
 The guests filtered in, presenting gifts and congratulations which I accepted gratefully. At some point my SIL, Cecilya, pulled me aside.
+
+Now, Seb and Cecilya were never close. Growing up, she’d been the luckiest of the two: she was adopted by a wealthy upper- class family right off the bat and lived a privileged life while Seb was left with only his uncle for company. She loved to dress up even for casual events such as hiking, cave exploration, etc. And then complain to no end that she wasn’t comfortable.
+
+Even at my baby shower, she wore a ruffled, layered dress with taffeta that gave the illusion of a gentle, shimmering mist and “Hey, I’m The Baby Aunt” embroidered in iridescent letters over a v- necked corset, her elegant white- blonde waves braided back and pinned up in some elaborate twist at the nape of her neck. I looked drab by comparison, in my lilac maternity dress and little to no makeup.
 
 “Did you know Seb used to keep a diary, when he lived here?”
 
@@ -44,7 +44,7 @@ I exhaled shakily, pressing a hand to my swollen belly, a gesture of reassurance
 
 “Love you! Call if you need help!”
 
-I smiled to myself, bending to pick up the drawer, when a splash of orange caught my eye. An old school notebook was somehow dislodged from beneath a pile of documents- badly wrapped in colorful Christmas wrapping paper.
+I smiled to myself, bending to pick up the drawer, when a splash of orange caught my eye. An old school notebook was somehow dislodged from beneath a pile of documents- badly wrapped in colorful Christmas wrapping paper. I noted a crisp sheet of paper beneath it, a copy of our marriage certificate with both our names: Ever Serens, née Reyes, and Sebastian Serens. What was that doing here?! And that diary, too…
 
 I’m still unsure *why* I did it. All I really know is, in that moment, I knew I had to. I reached for the bundle, trembling.
 
@@ -142,19 +142,27 @@ I wept harder. He cupped our girl’s face with one hand and smiled. “Give her
 
 He let go of my hand and I jumped. Thankfully the house wasn’t very high and I was able to protect myself and my baby. I struggled to my feet, choking back a sob, and limped to the car. I managed to get in, to stuff the key in the ignition. I turned and saw it… saw it, and Seb’s slumped body, the eyes staring and staring, boring into me, and the Thing ravaging him.
 
-I drove away at full speed, barely able to see the road through my tears, clinging to her like my lifelin in a storm.
+I drove away at full speed, barely able to see the road through my tears, clinging to her like my lifeline in a storm.
 
-A pair of hikers discovered me passed out in my car the next morning and took me under their wing. My daughter was sent to the hospital for evaluation, as was I. Once we’d been treated, a investigation was opened to find Seth’s killer… though knew they never would.
+A pair of hikers discovered me passed out in my car the next morning and took me under their wing. My clothes were ripped and soaked with blood, face bruised and swollen. I screamed incoherently at them, tryingto run away, screaming that it was out to get us. I slammed the car door in their faces but thankfully, they calmed me down and got me out of there. My daughter was sent to the hospital for evaluation, as was I. Once we’d been treated, a investigation was opened to find Seb’s killer… though I knew they never would.
 
-Our beautiful baby, Alazne, is 5 now. Her name means “miracle” which just seems fitting given everything that happened. She has Seb’s green eyes and my blonde curls. I love her more than anything… yet since the day we left the hospital I have known we are being followed. And in the last months, the faintest scratches can be heard from her room and mine.
+They determined he had died of countless lacerations to the head, neck, and upper body for the most part. The coroner noted the presence of savage bite marks but could not decide what had attacked him. I filed multiple reports stating we were attacked by an “unidentified creature” in the woods and finally convinced them to shut down the investigation after one cop working on the crime scene found his car wrecked, torn apart.
 
-I tell myself it is nothing, that my fear if losing her like I lost Sev is making me paranoid. But deep down, I *know* it is coming for us. We will never be safe. It will come for us one day.
+I later did my own research on his Uncle Jensen. He’d been married once before to a certain Rachel Allen- their marriage was reportedly an unhappy one, arranged when they were little more than children. Rachel was suspected of having poisoned their only child, Carl, and of wilful neglect, but the charges were dropped despite her husband’s protests. He was very vocal about her release and filed for a divorce. They got into a huge argument and she disappeared. Rachel Allen was found dead weeks later and her case remains unsolved despite a quantity of evidence pointing towards Jensen being her murderer. After she was discovered, visitors began noticing strange occurences around the house and Jensen’s erratic behavior. Welfare checks were called off when he assured them he was doing just fine
+
+He was arrested briefly after cops found him burning Rachel’s belongings as they believed this might be relevant to the case, but could find no correlation whatsoever and they let him go.
+
+About a year later, Seb’s parents were involved in a fatal hit- and- run and tragically died, leaving Seb orphaned with nobody to turn to but Jensen, who proved himself to be all too happy to adopt the child, and barely mourned his sister Violeta. He however refused to take in Seb’s orphaned sister Cecilya, who was fortunately adopted into a wonderful household.
+
+According to police reports of the scene, Violeta, Seb’s mother, was driving “recklessly” though her friends were outraged: Violeta Iriye Serens, known as Vi to friends and Lettie to family, was described as “a sweet, responsible young woman very aware of safety standards and a loving young mother.”
+
+If Carl had lived, he would’ve been Seb’s age… I can’t help but feel there is a connection here, that Seb served as some form of “replacement”.
+
+Our beautiful baby, Alazne Iriye, is 5 now. Her name means “miracle” which just seems fitting given everything that happened, and she has the same middle name as her grandmother- Seb always wanted that. She has Seb’s chocolate eyes and my blonde curls. Her skin is tanned, and secretly I can’t help but wish it would be the lovely smooth ebony of Seb’s skin. I love her more than anything… yet since the day we left the hospital I have known we are being followed. And in the last months, the faintest scratches can be heard from around the house.
+
+Occasionally, a voice can be heard murmuring “I didn’t… I didn’t…” but never for long. It is always silenced.
+
+I tell myself it is nothing, that my fear of losing her like I lost Seb is making me paranoid. But deep down, I *know* it is coming for us. We will never be safe. It will come for us one day.
 
 I can feel it.
-
-
-
-_________________________________________
-
-PART 2? 
 
