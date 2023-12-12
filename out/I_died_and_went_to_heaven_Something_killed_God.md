@@ -1,0 +1,34 @@
+
+I was never a religious man although I was raised in a religious household. I never did drugs, hit my wife or killed anyone. Most folk would have described me as a decent human being. I guess I must’ve been because when I had a near death experience many years ago, I went to heaven… it’s not a place I ever want to go back to. It was some 30 years ago, I was out on the town with my soon to be wife and a drunk driver hit us hard. 
+
+We swerved and crashed into a tree. I don’t personally remember the next part because I was knocked unconscious, but I was told I was thrown out of the car windshield and landed several feet from the crash site. The next thing I remember was waking up and seeing only darkness. I could hear myself yelling out only to be responded by the echoes of my screams. I could tell my eyes were open, but there was nothing to see in this infinite darkness. 
+
+I stopped panicking for a moment and remembered I was in some sort of accident. I knew then and there I was dead, and there was nothing now but oblivion. I was wrong, of course. Somewhere deep in the dark void, something replied to my whales of despair. An inhuman chorus of screams and moans exploded somewhere far away, and it was slowly getting louder…closer to me.
+
+ I ran but I couldn’t tell if I was going anywhere. Everything I did to try and get away seemed fruitless until a small speck of light appeared in the distance. The longer and faster I ran, the bigger it got until it resembled a bright doorway. The light emanating from it allowed me to see my body once agai. Howeverr, I did not dare look back and see what was chasing me in the dark. The sounds of maybe millions of unholy things appeared like they were right on top of me. 
+
+Somehow, I managed to outrun whatever was chasing me and escape through the doorway of light… what I saw made me feel like I was safer in the void. 
+Before me laid destroyed a gate and beyond it a city in flames. Its architecture is something that my brain still could not decipher, and in its prime, it must’ve been a sight that would have taken anyone’s breath away. But now the city streets were painted red with blood and loitered with corpses. What bodies were still complete had a beautiful pair of wings attached to their backs. 
+
+It was obvious to me now, no matter in how much disbelief I was, that I was in heaven, and something had gone horribly wrong. 
+ What happened to heaven and what could’ve caused so much destruction and slaughter… most importantly, where was God. As if to answer all my lingering questions, a familiar chorus of unholy screams and sounds exploded all around me. I panicked and ran as fast as I could to a large structure resembling a palace in the distance. With every step I took, I could hear how a new scream would join the howls behind me.
+
+ Whatever they were, they knew that not everything was dead here now. As I reached the palace steps I desperately crawled to the entrance, only to be greeted by two huge, closed doors. “Please somebody open up!"The doors remained closed, and I could hear the screaming and moaning getting closer all around me. I began to pray as I waited for the inevitable, and just as I had lost all hope for salvation, one of the doors opened slightly, enough for me to squeeze inside the palace doors.
+
+ “Thank you… I don’t know what would’ve happened to me if you hadn’t answered.” Once inside, a man secured the door behind me. He had very tired eyes, eyes you would find on a man who has seen horrors few ever get the misfortune of witnessing in life. “We need to move. These doors won’t keep them out for long now.” The man signaled for me to follow him as the things on the other side of the doors started to bang on them hard.
+
+ I followed the man deeper into the palace until we reached a fantastical throne room where the man seemed to be living in. He sealed the entrance door behind us, this time I noticed he took out something from a bag he was carrying and place it on the door. I attempted to get some answers from him. “Can you tell me what’s going on? What the hell are those things? 
+
+I asked him, hoping he was not as uninformed as I was. “They came out of nowhere. One day, I was greeting souls into our kingdom, and then the great horns of war were blown. Before anyone could react, we were invaded by dark creatures. Once the archangels fell, it was a massacre. There were rumors these creatures were primordial, as old or older than God. Whatever the case was, they eventually overcame our defenses and had their way with everyone…including our lord.” 
+
+The man pointed to the throne in the middle of the room. There lay a skeleton  missing various ribs. “Is… is that God?” A sense of overwhelming fear and panic came over me in waves. “Yes, what’s left of him. Even he was no match for their overwhelming numbers. I’ve been using his ribs to bless every entrance in this palace, but whatever power they hold is fading with time.”
+
+ We could hear the screaming and banging noises grow louder as the creatures made their way deeper into the palace. “Have you ever tried escaping this place?” I mainly asked to know if there was any hope of surviving this horrendous situation. “It doesn’t work like that for me. I would need a body on earth to be able to leave heaven. However, I think you might still have a chance to survive.” 
+
+He walked over to God’s throne, where his bones laid. “There might just be enough power left in these old bones to send you back to the living world.” He gathered the bones and began to chant in a language I’ve never heard before. While he worked on his spell, I could hear them trying to break down the doors right outside our room. “What about you? They’re going to bust through that door any second now!” 
+
+As I said that, black stained arms broke several holes into the doors. “Its alright, just remember this last act of mercy from heaven. Enjoy your new lease on life and remember not to be too good…there’s nothing good waiting for you on the other side.” When they broke into the room, I was finally able to see what had been chasing me since I woke in the black void. The only thing I was able to comprehend in front of me was their twisted smiles. I screamed.
+
+I screamed so long and hard the next time I opened my eyes, I was strapped down inside of an ambulance. The EMT’s had just finished resuscitating me. My girlfriend was next to me crying and thanking the people around me for bringing me back. I was taken to the hospital, and after a few months of rehabilitation, I was able to live a full and long life. My only regret is that I never told a soul about what I saw after I died, not even to my precious wife. 
+
+I can feel my time left on earth is short, and I have no intentions of going back to heaven. Once I finish writing this letter, I’m going to shoot myself in the head. With any luck, hell hasn’t suffered the same fate as heaven did.
