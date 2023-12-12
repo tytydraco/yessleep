@@ -131,7 +131,7 @@ I didn’t make it far until I stopped. The silence of the corridor was broken, 
   
 My legs grew stiff, my spine grew rigid, and my breath faltered. It stood a few inches away from me. The figure’s swarthy and gorey skin blanketed bones, and ribs splayed out from its chest. Threads of flesh and membrane held together two wide iron cylinders in the center of its body. As it breathed, the mechanical cylinders rattled and beat together.  
   
- I screamed at the sight of this monster. It lunged out as I bolted down the corridor. I ran as fast as I could, trying to keep track of the footprints left behind. Sprinting down the labyrinth, the clash and clang of the beast vibrated against the back of my neck, as the rattle of its metal lungs mere inches behind me. I took one last turn as I saw beams of light raining down from the broken floor.   
+ I screamed at the sight of this monster. It lunged out as I bolted down the corridor. I ran as fast as I could, trying to keep track of the footprints left behind. Sprinting down the labyrinth, the clash and clang of the beast vibrated against the back of my neck, as the rattle of its metal lungs were mere inches behind me. I took one last turn as I saw beams of light raining down from the broken floor.   
   
 “Jake! Please! Jake!” I yelled.   
   
