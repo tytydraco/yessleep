@@ -278,7 +278,7 @@ I screamed and cried at the pain, feeling death slither closer to me by the seco
   
 
   
-But not before I try to survive one last time. I swung my backwards with all my strength and my knife, by some miracle, managed to slash it. The raptor snarled as it jumped off me and the moment its claw left my body, my adrenaline rush pumped into my heart and I pushed myself up with new found strength, pilling my bear spray out anf claied it around behind me. The raptor made a noise of agitation, but I didn’t want to wait and see if it was effective before I ran.
+But not before I try to survive one last time. I swung my backwards with all my strength and my knife, by some miracle, managed to slash it. The raptor snarled as it jumped off me and the moment its claw left my body, my adrenaline rush pumped into my heart and I pushed myself up with new found strength, pulling my bear spray out and flailed it around behind me. The raptor made a noise of agitation, but I didn’t want to wait and see if it was effective before I ran.
   
 
   
@@ -441,4 +441,4 @@ Inspired by the thread made by twitter use Archesuchus.
 
   
 Thanks for reading!
-If you want to read more of my work, find my stories on AO3, my username is SomeDudeThatLikesToWrite.
+If you want to read more of my work, find my stories on AO3, my username is SomeDudeThatLikesToWrite
