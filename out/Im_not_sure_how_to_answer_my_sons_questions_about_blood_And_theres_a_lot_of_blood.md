@@ -62,6 +62,12 @@ But it didn’t matter. The scaly hand drew the door shut. The daylight streamin
 
 [I made it out alive, but not everyone did](https://www.facebook.com/P-F-McGrail-181784199029462/).
 
+-------
+
+[As shit, this is what happened next](https://redd.it/18hfd8c)
+
+-------------
+
 [BD](https://www.reddit.com/r/ByfelsDisciple/)
 
 
