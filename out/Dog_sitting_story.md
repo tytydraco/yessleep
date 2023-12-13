@@ -1,0 +1,22 @@
+I would consider myself a pretty normal and well adjusted person, I studied physics at university, got a decent job and a good social life. What I'm trying to say is that I'm not the sort to go about talking about ghosts and monsters, but what I saw, I saw.
+
+I had met Alice at university. She kept to herself and didn't seem to have many friends so I thought I'd try talking to her. We quickly became friends and still talk to this day. One afternoon around 2014-2015 I got a call from Alice. She asked if I could look after her dog, a large doberman, the next day as she was going to a family gathering and wouldn't be back until the next morning. Obviously I agreed and the next day at noon I arrived.
+
+I knocked on the translucent glass door and saw Alice's silhouette dash forward, opening it halfway and greeting me while trying to pack up to leave. She left about half a minute later telling me something about a parcel I assumed I was to expect later before making her exit.
+
+I took the dog on a walk through the local park and when I returned,  there was a strange 3 sided pyramid shaped package jammed cruedly into Alice's parcal box. I set it on the counter and went to settle down in the living room.  I turned on whatever crap was on TV that evening, some game show with trivia or something, you know the sort, the security light outside switching on and off whenever a group of drunk teens or someone returning from work walked past. 
+
+At some point I fell asleep.
+
+A few hours later I woke up to a knocking on the door. I pulled myself from the seat and walked, dazed, to the door. There was an odd silhouette through the door, a trick of the light or maybe just my own sleepiness, but it seemed as if there were 3 or 4 people at the door but when I opened it, just one man stood before me, his face back-lit from the street. I only had the living room  light on and I found it strange that the reflection of this on what I assumed to be his eyes seemed misplaced, as if one was higher and further from the center of his face than the other. He, or I suppose it, produced a noise that seemed like exaggerated breathing, like a demonstration of some form of meditation. It spoke 5 words: "Do you have my parcel?" It's voice seemed to come frorm just behind it, the breathing continuing even as he spoke. I had spent enough time around people to know that this was not a question. Nontheless, I answered with a firm no and tried to shut the door but it placed it's hand in the way. I hit it away but when I touched it's skin it felt as though it was not flesh I was touching but some soft, otherworldly material like a rotten vegetable that failed to hold form when I pushed it away. I locked the door and ran back to the living room,  trying to settle down but not quite falling asleep.
+
+As I finally began to drift asleep again I was pulled back to consciousness by a clicking, rattling sound from across the room. I was freaked out, especially remembering what happened earlier that night, and rightly so as when I looked towards the source of this noise I saw the thing from before scratching at the unlocked window. Just as it began to open I ran to it, slamming it shut, making brief contact with the creatures flesh once more but, worse of all, I saw it's face.I don't know that any description can really explain what I saw, only that it resembled an underdeveloped photograph that seemed to sit wrong on it's head, like the image of the face was stretched flat over it's malformed skull and the shadows seemed wrong, like they covered too mutch of the skin. After a few seconds the creature, whatever it was, returned to the darkness.
+
+I somehow fell asleep after taking some time to think, not daring to leve the sofa untill Alice came home in the morning. 
+
+After what felt like an eternity of nightmares about whatever I'd seen earlier, I was woken by Alice's return. She asked me where the parcel was.
+"I left it on the counter," I explained, 
+"Where abouts?" She asked.
+"Just on the counter."
+"Are you sure? Theres nothing there." I got up, confused. 
+"See, no parcel." Alice stated. I began to search the house, checking the hallway that liknked the kitchen, bedroom and the garden when I felt a cool breeze rush through the corridor and, to my horror, realised that the back door was wide open, the sound of exaggerated breathing barely audable from Alice's bedroom.
