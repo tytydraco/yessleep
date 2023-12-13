@@ -366,6 +366,4 @@ Hah. And now the lights are flickering.
 
 Let me guess! Next a *zap* an a *snap*, and lights go out? Hah. right.
 
-Thx for reading.
-
 \[[MW](https://twitter.com/moewanders)\]
