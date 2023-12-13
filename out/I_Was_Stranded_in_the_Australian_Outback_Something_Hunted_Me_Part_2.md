@@ -2,13 +2,15 @@
 
 As I'm pulled through the cascading waterfall, the icy water envelopes me, sending shockwaves through my already exhausted body. The sensation is disorienting, like being caught in a relentless storm. I can hardly see or breathe, but the strong grip on my arms guides me steadily through the torrent.
 
-After what feels like an eternity, we emerge into a narrow, cramped crevice, hidden behind the waterfall. The space is barely large enough for two people, and I’m pressed close to the stranger in the confined area. The sound of the fall roars just outside, muffling any other noise.
+We emerge into a narrow, cramped crevice, hidden behind the waterfall. The space is barely large enough for two people, and I’m pressed close to the stranger in the confined area. The sound of the fall roars just outside, muffling any other noise.
 
 The stranger, still gripping my arms, finally releases me and spins me around to face him. I find myself face to face with a young Aboriginal man. His features are strong, weathered by the elements. His eyes are alert, his expression serious but not unkind.
 
 He's dressed like a traditional hunter-gatherer, reminiscent of the figures I've seen in history textbooks. His skin is painted with intricate designs, symbols that speak of a deep connection to the land and its lore.
 
-He’s armed with traditional weapons, including a spear and a boomerang, hanging from a belt made of woven plant fibres. He seems like a man out of time.For a moment, we just stare at each other, both catching our breath. He gestures to me to stay silent, his finger to his lips.
+He’s armed with traditional weapons, including a spear and a boomerang, hanging from a belt made of woven plant fibres. He seems like a man out of time.
+
+For a moment, we just stare at each other, both catching our breath. He gestures to me to stay silent, his finger to his lips.
 
 The young man, his movements swift and deliberate, reaches into a small leather pouch at his side. He pulls out a handful of fine, ochre-coloured powder. Without a word, he spits into the powder, mixing it with practised ease.
 
@@ -146,7 +148,9 @@ Jirra watches me with a mix of curiosity and confusion. He doesn't understand th
 
 I reach back into my backpack, gingerly pulling out my notebook. It's a bit damp from our earlier plunge through the waterfall, but the contents are mostly intact. Flipping through the pages, I find what I'm looking for: photos of me in Perth.
 
-I show Jirra the pictures, pointing to the tall buildings, the crowded streets, and the images of me in various urban settings. I tap the photo and then point to myself, trying to convey that this is where I come from.“Home,” I say slowly. "That's where I'm from."
+I show Jirra the pictures, pointing to the tall buildings, the crowded streets, and the images of me in various urban settings. I tap the photo and then point to myself, trying to convey that this is where I come from.
+
+“Home,” I say slowly. "That's where I'm from."
 
 Jirra leans in, his eyes scanning the images with a mix of wonder and perplexity. He touches the photos lightly, tracing the outlines of the skyscrapers and the unfamiliar faces in the pictures. He looks up at me, then back at the photo, a flicker of understanding in his eyes.
 
