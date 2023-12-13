@@ -14,7 +14,7 @@ For a moment, we just stare at each other, both catching our breath. He gestures
 
 The young man, his movements swift and deliberate, reaches into a small leather pouch at his side. He pulls out a handful of fine, ochre-coloured powder. Without a word, he spits into the powder, mixing it with practised ease.
 
-He starts to smear the gritty paste over my face, hair, and clothes. His hands are gentle yet efficient, covering every exposed bit of skin. The paste smells like a blend of native plants and herbs, an earthy and almost comforting aroma.
+He starts smearing the gritty paste over my face, hair, and clothes. His hands are gentle yet efficient, covering every exposed bit of skin. The paste smells like a blend of native plants and herbs, an earthy and almost comforting aroma.
 
 As he works, he pauses ever so slightly over my face. There's a flicker of surprise in his eyes, a brief but unmistakable reaction to my fair complexion, so different from his own. But he quickly regains his composure and continues his task.
 
@@ -58,9 +58,9 @@ Taking a hesitant step forward, I clear my throat softly. "Thank you," I say, my
 
 I try again, a bit louder this time. "Can you tell me your name?”
 
-“Do you know what was that thing we just saw?" My questions hang in the air, unanswered.
-
 He looks up at me with a perplexed expression, his brow furrowing slightly. In a low, cautious tone, he mutters something in a language I don't recognise. The words are fluid, rich with inflections that are unfamiliar to my ears.
+
+“Do you know what was that thing we just saw?" My questions hang in the air, unanswered.
 
 Garnering nothing but a blank stare from me, he returns to the tracks his eyes widen as he picks up a piece of tattered fabric from one of the creature's paw prints. It's a small scrap, but clearly part of a garment, frayed and stained with what looks like dried blood. He holds it up, examining it closely, his expression one of concern.
 
@@ -68,7 +68,7 @@ Suddenly, he turns to me and becomes animated, speaking rapidly in his native to
 
 I watch him, trying to decipher his meaning through his gestures and the urgency in his voice. It's clear he's trying to convey something crucial, something about the creature and perhaps its recent activities.
 
-"I'm sorry, I don't understand," I say, my voice tinged with frustration. "Can you just speak to me in English?"
+"I'm sorry, I don't understand," I say, my voice tinged with frustration. "Can you please just speak to me in English?"
 
 It doesn't even occur to me at the time that he might not know English.
 
@@ -106,7 +106,7 @@ The last thing I remember is the sensation of being carried, the steady rhythm o
 
 —
 
-As I slowly regain consciousness, the world comes back into focus with a soft blur. The gentle sway of leaves above me creates a kaleidoscope of light and shadow. I'm lying on a makeshift cushion under a sprawling eucalyptus tree, its distinct, aromatic scent filling the air around me.
+As I slowly regain consciousness, the world comes back into focus with a soft blur. The gentle sway of leaves above me creates a kaleidoscope of light and shadow. I'm lying on a bed of green foliage under a sprawling eucalyptus tree, its distinct, aromatic scent filling the air around me.
 
 I try to sit up, but a sharp pain in my head forces me back down. That's when I notice the stranger sitting beside me, his watchful eyes fixed on my face. He holds out a container, crafted from the bark of a tree, filled with clear, cool water.
 
@@ -128,13 +128,13 @@ As I lie there, pondering our communication barrier, I observe him more closely.
 
 A thought begins to form in my mind, a possibility so incredible that it borders on the fantastical. Could he be from an uncontacted people?
 
-I sit there, contemplating the possibility, my mind racing. I've heard stories about the Pintupi Nine, the group of indigenous Australians who walked out of the desert in 1984, having lived in isolation from the outside world. But that was nearly 40 years earlier, and the idea of stumbling upon an uncontacted tribe in Australia in 2023 seemed almost as unbelievable as the monstrous creature we'd just encountered.
+I sit there, contemplating the possibility, my mind racing. I've heard stories about the Pintupi Nine, the group of indigenous Australians who walked out of the desert in 1984, having lived in isolation from the outside world. But that was nearly 40 years earlier, and the idea of stumbling upon an uncontacted tribe in Australia in 2023 seems almost as unbelievable as the monstrous creature we'd just encountered.
 
 Yet, as I watch him methodically tend to the surrounding area – arranging stones, checking the wind direction, and occasionally glancing at the sky – I can't help but wonder.
 
 He notices my scrutiny and meets my gaze. There's a brief moment where our eyes lock, a silent exchange.
 
-Humouring the hypothesis, I point to myself, using slow, deliberate gestures. "Willow," I repeat, tapping my chest. He watches, his expression thoughtful. Then, mimicking my action, he taps his own chest and says, "Jirra." My companion has a name, and it’s Jirra.
+Humouring the possiblity, I point to myself, using slow, deliberate gestures. "Willow," I repeat, tapping my chest. He watches, his expression thoughtful. Then, mimicking my action, he taps his own chest and says, "Jirra." My companion has a name, and it’s Jirra.
 
 Ecstatic at the breakthrough, my heart leaps. "Jirra," I repeat, a smile breaking through my pain and exhaustion. It's a small connection, but it feels monumental, like a bridge across the unfathomable chasm between us.
 
