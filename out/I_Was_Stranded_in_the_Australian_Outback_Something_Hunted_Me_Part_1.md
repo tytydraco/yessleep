@@ -98,7 +98,7 @@ Sitting on the ground, I lean against the vehicle, trying to steady my breathing
 
 The throbbing in my head is intense, and I feel a warm trickle of blood down my temple, maybe a concussion. There's a deep cut on my leg from the collision. It's bleeding, but not profusely. I clean the wounds as best as I can with the limited supplies in the kit and bandage them tightly. The pain in my wrist is persistent, but I manage to wrap it in a makeshift splint.
 
-As I sit there, gathering my thoughts, I remember passing a waterfall about a kilometre away on my patrol route. The thought of its shade and fresh water gives me a sliver of hope in this dire situation. I know I need to get there if I want to increase my chances of survival.
+As I sit there, gathering my thoughts, I remember passing a waterfall a few kilometres away on my patrol route. The thought of its shade and fresh water gives me a sliver of hope in this dire situation. I know I need to get there if I want to increase my chances of survival.
 
 Gathering my wits, I turn my attention to the GPS mounted on the dashboard, hoping for a glimmer of guidance. But my heart sinks as I find it damaged beyond use, its screen a spider web of cracks, lifeless and unresponsive.
 
