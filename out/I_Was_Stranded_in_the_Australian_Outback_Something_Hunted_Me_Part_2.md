@@ -4,7 +4,7 @@ As I'm pulled through the cascading waterfall, the icy water envelopes me, sendi
 
 We emerge into a narrow, cramped crevice, hidden behind the waterfall. The space is barely large enough for two people, and I’m pressed close to the stranger in the confined area. The sound of the fall roars just outside, muffling any other noise.
 
-The stranger, still gripping my arms, finally releases me and spins me around to face him. I find myself face to face with a young Aboriginal man. His features are strong, weathered by the elements. His eyes are alert, his expression serious but not unkind.
+The stranger, still gripping my arms, finally releases me and spins me around to face him. I find myself face-to-face with a young Aboriginal man. His features are strong, weathered by the elements. His eyes are alert, his expression serious but not unkind.
 
 He's dressed like a traditional hunter-gatherer, reminiscent of the figures I've seen in history textbooks. His skin is painted with intricate designs, symbols that speak of a deep connection to the land and its lore.
 
