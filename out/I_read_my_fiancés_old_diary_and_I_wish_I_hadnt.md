@@ -158,7 +158,7 @@ According to police reports of the scene, Violeta, Seb’s mother, was driving �
 
 If Carl had lived, he would’ve been Seb’s age… I can’t help but feel there is a connection here, that Seb served as some form of “replacement”.
 
-Our beautiful baby, Alazne Iriye, is 5 now. Her name means “miracle” which just seems fitting given everything that happened, and she has the same middle name as her grandmother- Seb always wanted that. She has Seb’s chocolate eyes and my blonde curls. Her skin is tanned, and secretly I can’t help but wish it would be the lovely smooth ebony of Seb’s skin. I love her more than anything… yet since the day we left the hospital I have known we are being followed. And in the last months, the faintest scratches can be heard from around the house.
+Our beautiful baby, Alazne Iriye, is 5 now. Her name means “miracle” which just seems fitting given everything that happened, and she has the same middle name as her grandmother- Seb always wanted that. She has Seb’s beautiful eyes and my blonde curls. Her skin is tanned, and secretly I can’t help but wish it would be the lovely smooth ebony of Seb’s skin. I love her more than anything… yet since the day we left the hospital I have known we are being followed. And in the last months, the faintest scratches can be heard from around the house.
 
 Occasionally, a voice can be heard murmuring “I didn’t… I didn’t…” but never for long. It is always silenced.
 

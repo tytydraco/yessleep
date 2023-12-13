@@ -22,4 +22,4 @@ I managed to block its mouth with my shotgun, but this one was much bigger than 
 
 That’s when the worn down door in the hallway swung open, and an older looking man came out to me. He helped me up, and began to drag me into the room. “Quickly… I’m sure more will be coming up soon,” he said as we made our way down the hall. We entered the room, and the man blocked off the door with some large furniture. It wasn’t super secure, but they clearly weren’t the brightest bunch.
 
-I surveyed the room. One older man, a middle-aged woman, and their two children. I stood up slowly and blocked off the door as I began to laugh, gripping my machete tightly. I could see the realization wash across their faces all too late. This trip was worth it after all. I’d be eating well for the couple of weeks.
+I surveyed the room. One older man, a middle-aged woman, and their two children. I stood up slowly and blocked off the door as I began to laugh, gripping my machete tightly. I could see the realization wash across their faces all too late. This trip was worth it after all. I’d be eating well for the next couple of weeks.

@@ -214,6 +214,8 @@ A pair of strong, calloused hands grabs me from behind, covering my mouth. My in
 
 Is this another threat, or an unexpected ally?
 
+[Part 2](https://www.reddit.com/r/nosleep/comments/18h5umt/i_was_stranded_in_the_australian_outback/)
+
 [X](https://www.reddit.com/r/PageTurner627Horror/)
 
 [Y](https://www.instagram.com/afterhourscontent2022/)
