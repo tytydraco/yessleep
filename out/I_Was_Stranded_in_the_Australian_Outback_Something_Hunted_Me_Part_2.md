@@ -62,7 +62,7 @@ I try again, a bit louder this time. "Can you tell me your name?”
 
 He looks up at me with a perplexed expression, his brow furrowing slightly. In a low, cautious tone, he mutters something in a language I don't recognise. The words are fluid, rich with inflections that are unfamiliar to my ears.
 
-Garnering nothing but a blank stare from me, he returns to the tracks His eyes widen as he picks up a piece of tattered fabric from one of the creature's paw prints. It's a small scrap, but clearly part of a garment, frayed and stained with what looks like dried blood. He holds it up, examining it closely, his expression one of concern.
+Garnering nothing but a blank stare from me, he returns to the tracks his eyes widen as he picks up a piece of tattered fabric from one of the creature's paw prints. It's a small scrap, but clearly part of a garment, frayed and stained with what looks like dried blood. He holds it up, examining it closely, his expression one of concern.
 
 Suddenly, he turns to me and becomes animated, speaking rapidly in his native tongue. His words are a torrent of sounds and syllables that dance around me, completely foreign and incomprehensible. He points emphatically at the scraps, then to the tracks, and finally towards the dense bushland.
 
