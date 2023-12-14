@@ -141,4 +141,4 @@ Within a meter, it slowly lifted its head, and I found myself locked in the pier
 My parents rushed into the room, their own horror mirrored in their expressions as they beheld the gruesome sight. We endured one more month in that house before relocating. Fifteen years had passed since that harrowing encounter, and it was far from the last time I would cross paths with that mysterious creature.
 
 
-but The story has grown longer than anticipated, and family duties call. If you found this intriguing, leave an upvote, and I'll share part 2 of the aftermath soon. Until then, I bid you farewell – duty beckons, and tonight, I must protect my family from IT. Wish me luck.
+but The story has grown longer than anticipated, and family duties call. Until next time, I bid you farewell – duty beckons, and tonight, I must protect my family from IT. Wish me luck.
