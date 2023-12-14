@@ -128,7 +128,7 @@ As I lie there, pondering our communication barrier, I observe him more closely.
 
 A thought begins to form in my mind, a possibility so incredible that it borders on the fantastical. Could he be from an uncontacted people?
 
-I sit there, contemplating the possibility, my mind racing. I've heard stories about the Pintupi Nine, the group of indigenous Australians who walked out of the desert in 1984, having lived in isolation from the outside world. But that was nearly 40 years earlier, and the idea of stumbling upon an uncontacted tribe in Australia in 2023 seems almost as unbelievable as the monstrous creature we'd just encountered.
+I sit up, contemplating the possibility, my mind racing. I've heard stories about the Pintupi Nine, the group of indigenous Australians who walked out of the desert in 1984, having lived in isolation from the outside world. But that was nearly 40 years earlier, and the idea of stumbling upon an uncontacted tribe in Australia in 2023 seems almost as unbelievable as the monstrous creature we'd just encountered.
 
 Yet, as I watch him methodically tend to the surrounding area – arranging stones, checking the wind direction, and occasionally glancing at the sky – I can't help but wonder.
 
@@ -162,7 +162,7 @@ A village emerges on the page. He adds several huts, arranged in a circle, and a
 
 He adds a figure, presumably himself, depicted as walking away from the village. The figure is alone, separate from the other elements of the drawing, imparting a sense of solitude and departure.
 
-I'm no cultural anthropologist, but through my schooling and cultural sensitivity training as a ranger, I've learned about various aspects of Aboriginal cultures. One concept that comes to mind is that of the "walkabout," a rite of passage in which young Aboriginal men embark on a journey into the wilderness, living off the land for a period to transition into manhood and gain spiritual enlightenment.
+I'm no anthropologist, but through my schooling and cultural sensitivity training as a ranger, I've learned about various aspects of Aboriginal cultures. One concept that comes to mind is that of the "walkabout," a rite of passage in which young Aboriginal men embark on a journey into the wilderness, living off the land for a period to transition into manhood and gain spiritual enlightenment.
 
 As I ponder over Jirra's drawing, the eerie encounter with the creature still looms large in my thoughts. I decide to communicate this experience with Jirra, hoping he might have some insight or knowledge about what we faced.
 
@@ -170,7 +170,7 @@ I start sketching the creature as best as I can recall. The grotesque features, 
 
 “Do you know what this is?” I ask.
 
-His reaction is immediate and intense. His eyes widen, and he recoils slightly, a look of recognition and fear crossing his face. He begins speaking rapidly in his language, his voice urgent.
+His reaction is immediate and intense. His eyes widen, and he recoils slightly, a look of recognition and fear crossing his face. He begins speaking rapidly, his voice urgent.
 
 One word stands out, repeated several times with emphasis: "Bunyip."
 
