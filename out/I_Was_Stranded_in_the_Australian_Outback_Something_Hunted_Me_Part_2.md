@@ -1,6 +1,6 @@
 [Part 1](https://www.reddit.com/r/nosleep/comments/18fgw6v/i_was_stranded_in_the_australian_outback/)
 
-As I'm pulled through the cascading waterfall, the icy water envelopes me, sending shockwaves through my already exhausted body. The sensation is disorienting, like being caught in a relentless storm. I can hardly see or breathe, but the strong grip on my arms guides me steadily through the torrent.
+As I'm pulled through the cascading waterfall, the cool water envelopes me, sending shockwaves through my already exhausted body. The sensation is disorienting, like being caught in a relentless storm. I can hardly see or breathe, but the strong grip on my arms guides me steadily through the torrent.
 
 We emerge into a narrow, cramped crevice, hidden behind the waterfall. The space is barely large enough for two people, and I’m pressed close to the stranger in the confined area. The sound of the fall roars just outside, muffling any other noise.
 
