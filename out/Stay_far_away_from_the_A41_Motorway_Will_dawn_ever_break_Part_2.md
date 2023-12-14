@@ -207,3 +207,9 @@ I emit a nervous chuckle, then consider the situation.
 "What are you suggesting?"
 
 "We'll navigate through the woods."
+
+&#x200B;
+
+[PART 3](https://www.reddit.com/r/nosleep/comments/18i4kji/stay_far_away_from_the_a41_motorway_theres/?utm_source=share&utm_medium=web2x&context=3)
+
+&#x200B;
