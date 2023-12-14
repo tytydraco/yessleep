@@ -58,9 +58,9 @@ Taking a hesitant step forward, I clear my throat softly. "Thank you," I say, my
 
 I try again, a bit louder this time. "Can you tell me your name?”
 
-He looks up at me with a perplexed expression, his brow furrowing slightly. In a low, cautious tone, he mutters something in a language I don't recognise. The words are fluid, rich with inflections that are unfamiliar to my ears.
-
 “Do you know what was that thing we just saw?" My questions hang in the air, unanswered.
+
+He looks up at me with a perplexed expression, his brow furrowing slightly. In a low, cautious tone, he mutters something in a language I don't recognise. The words are fluid, rich with inflections that are unfamiliar to my ears.
 
 Garnering nothing but a blank stare from me, he returns to the tracks his eyes widen as he picks up a piece of tattered fabric from one of the creature's paw prints. It's a small scrap, but clearly part of a garment, frayed and stained with what looks like dried blood. He holds it up, examining it closely, his expression one of concern.
 
