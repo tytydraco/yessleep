@@ -178,6 +178,8 @@ Jirra's hand shakes as he takes the notebook from me, his eyes locked on the ske
 
 He taps the line repeatedly, his eyes meeting mine with a piercing intensity. It's clear to me now why he was in such a rush. He fears the Bunyip is heading towards his village, or worse, that it might already be there.
 
+[Part 3](https://www.reddit.com/r/nosleep/comments/18iapnx/i_was_stranded_in_the_australian_outback/)
+
 [X](https://www.reddit.com/r/PageTurner627Horror/)
 
 [Y](https://www.youtube.com/watch?v=MGd1F6Ay8ho)
