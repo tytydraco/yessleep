@@ -146,7 +146,7 @@ While I sit there, drying off in the sun, I start to formulate a plan. I know th
 
 As the sun begins its descent, painting the sky in hues of orange and pink, I find a suitable spot near the waterfall to set up a temporary camp. I clear the ground of debris and lay down a layer of leaves and branches to sit on. Gathering stones, I create a small circle for a fire, ensuring it's far enough from the trees and brush to prevent any risk of a wildfire.
 
-The process of starting a fire is arduous, especially with my injured wrist, but I persevere. Using a flint from my survival kit, I finally manage to spark a flame. I feed the fire with small twigs and branches, watching as the flames grow stronger.
+The process of starting a fire is arduous, especially with my injured wrist, but I persevere. Using a lighter from my survival kit, I finally manage to spark a flame. I feed the fire with small twigs and branches, watching as the flames grow stronger.
 
 As the temperature drops rapidly, I wrap myself in a thermal blanket, huddling close to the fire's comforting glow.
 
@@ -215,6 +215,8 @@ A pair of strong, calloused hands grabs me from behind, covering my mouth. My in
 Is this another threat, or an unexpected ally?
 
 [Part 2](https://www.reddit.com/r/nosleep/comments/18h5umt/i_was_stranded_in_the_australian_outback/)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/18iapnx/i_was_stranded_in_the_australian_outback/)
 
 [X](https://www.reddit.com/r/PageTurner627Horror/)
 
