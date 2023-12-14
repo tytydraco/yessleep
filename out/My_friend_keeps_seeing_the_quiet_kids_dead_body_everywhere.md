@@ -16,7 +16,7 @@ Then it got...a little personal. You see, Galvin would pick someone in our class
 
 The things he would say to Trevor, for example, was ask about his life in the country. Trevor and his family used to live on a horse farm. Galvin would joke about how he basically had to be covered in horse shit all day and even if he left, the smell would never leave him. Or how Trevor could be so pale if he worked on a farm, basically calling him lazy. I think it really got to Trevor because of what happened a month ago.
 
-I wasn't there at school that day, I had a doctor's appointment that day because the fly was going around and I caught I so I had to stay at home. I remember laying in bed, groaning in annoyance as I grabbed another tissue to blew into when my phone pinged with a text.
+I wasn't there at school that day, I had a doctor's appointment that day because the flu was going around and I caught I so I had to stay at home. I remember laying in bed, groaning in annoyance as I grabbed another tissue to blew into when my phone pinged with a text.
 
  It was Cheryl, though we never called her that, so our friend group nicknamed her "Cherry." Usually she would text me and we talk for hours about school, life at home, what stupid stuff our friends were doing. I will admit, I do have a crush on her so I got a little excited despite my sickness and picked up my phone to see what she had texted. 
 

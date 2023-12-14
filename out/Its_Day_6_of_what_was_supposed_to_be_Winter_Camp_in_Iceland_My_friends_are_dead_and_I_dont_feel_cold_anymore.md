@@ -96,7 +96,7 @@ I expected at least some signs of life, traffic on the roads, or maybe convenien
 
 I wouldn't be able to differentiate the ground from the sky if it weren't for the snow. Aurora, for once, was not helping. 
 
-She was making me more nervous, repeatedly telling us that it wasn't normal for there to be no streetlights, no sign of civilization in any direction I turned, my breath caught in wisps of white. When we boarded a rickety  coach, she commented that her vast knowledge of Iceland landed right there. 
+She was making me more nervous, repeatedly telling us that it wasn't normal for there to be no streetlights, no sign of civilization in any direction I turned, my breath caught in wisps of white. When we boarded a rickety  coach, she commented that her vast knowledge of Iceland ended right there. 
 
 She had no idea where the fuck we were, or where we were going. 
 
@@ -226,13 +226,13 @@ The British guy nodded grimly. “Bingo. Do you want to guess where their doomed
 
 He didn't wait for a response. “Yep, you got it! Iceland. The middle of fucking nowhere,” the guy screwed up his face. “I'm talking about the parts of Iceland that haven't even been discovered yet. They did find help eventually, and promise of shelter, a youth retreat with a steaming pool, both inside *and* outside.” I was slowly taking in his words. 
 
-They were kind of familiar. The boy leaned back, running his hand through his hair. “First…” he paused for effect, “they had to survive the bitter chill of night, and come morning, they would be taken to safety.” the boy held his finger to his lip. “But they came to realise that being left out to freeze was just the beginning of adaptation.” he jumped up, curling around our group. 
+They were kind of familiar. The boy leaned back, running his hand through his hair. “First…” he paused for effect, “they had to survive the bitter chill of night, and come morning, they would be taken to safety.” the boy held his finger to his lip. “But they came to realise that being left out to freeze was just the beginning of adaptation.” he jumped up, circling around our group. 
 
-“One by one, they started to succumb to the cold,” his voice grew louder, “But this wasn't the usual cold, man. This is the type of cold that becomes part of you.” he stepped in front of Penn, reached out, and poked the boy on the face. “The leader was first,” he mocked. 
+“One by one, they started to succumb to the cold,” his voice grew louder, “But this wasn't the usual cold, man. This is the type of cold that becomes part of you.” he stepped in front of Penn, reached out, and poked the boy in the face. “The leader was first,” he mocked. 
 
 “He was so tired. Tired of having hope, tired of trying to keep himself alive.”
 
-I started to wonder if this guy was more than a hallucination. When he moved, the show seemed to dance with him. 
+I started to wonder if this guy was more than a hallucination. When he moved, the snow seemed to dance with him. 
 
 “Others followed,” he continued. “All of them dropping, one by one, breath by breath. Until only one was left standing.”
 
