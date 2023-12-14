@@ -116,9 +116,9 @@ The dining hall where we sat had bay windows looking out onto the hedge-row maze
 
 \*\*\*
 
-Katherine and I got to the Bittaker Manor sometime around dark. My little sedan was filled to the brim with her belongings. Everything seemed slow and the lights seemed too bright. I think the sleep deprivation had begun to affect me more than I knew.
+Katherine and I got to the town sometime around dark. My little sedan was filled to the brim with her belongings. Everything seemed slow and the lights seemed too bright. I think the sleep deprivation had begun to affect me more than I knew.
 
-I felt like I was passing through water as I got out of the car. Bone-tired, I could only think of my soft bed. But Katherine wanted to talk, and she had many questions as we carried her luggage inside. She especially wanted to know about the murders. I sighed, knowing this would turn into a long conversation.
+I felt like I was passing through water as I got out of the car. Bone-tired, I could only think of my soft bed. But Katherine wanted to talk, and she had many questions. She especially wanted to know about the murders. I sighed, knowing this would turn into a long conversation.
 
 “Has Alexander ever told you what happened to his grandparents and parents?” she asked. “I heard a bunch of people died in this house. And not a natural death, either.”
 
