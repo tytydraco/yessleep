@@ -36,7 +36,9 @@ It happens suddenly. Jirra steps onto a loose stone on a narrow ridge, his foot 
 
 Without thinking, I lunge forward, grabbing his arm and pulling him back with all my strength. The sudden motion sends a jolt of pain through my injured wrist, but I barely register it. We both tumble to the ground, a tangle of limbs just centimetres from the precipice.
 
-For a moment, we lie there, panting heavily, the realisation of what almost happened settling in.Jirra sits up slowly, his gaze lingering on the edge of the ridge, then turns to me. There's a newfound respect in his eyes, an acknowledgment of our mutual reliance. He nods slowly, conceding to the necessity of rest.
+For a moment, we lie there, panting heavily, the realisation of what almost happened settling in.
+
+Jirra sits up slowly, his gaze lingering on the edge of the ridge, then turns to me. There's a newfound respect in his eyes, an acknowledgment of our mutual reliance. He nods slowly, conceding to the necessity of rest.
 
 We find a small, sheltered area nestled between two large boulders, providing some protection from the elements and any roaming wildlife. Jirra sets to work immediately, gathering dry twigs and leaves while I use my lighter to start a fire. The flames catch quickly, casting a warm, reassuring glow in the encroaching darkness.
 
@@ -118,7 +120,9 @@ I stumble upon a small clearing, and there, in the dirt, are footprints. They're
 
 As I follow the tracks, the terrain becomes more rugged, the earth giving way to limestone. The footprints lead directly to a cliff face, the ground ending abruptly in a sheer drop to the ocean below.
 
-There, at the edge, the footprints come to an abrupt halt. No signs of return, no further path to follow.My breath catches in my throat, a silent sob trapped in the cage of my ribs. The implications hang in the air, heavy and unspoken. The cold, grey light of dawn casts long shadows across the ground, shadows that seem to stretch into the void below.
+There, at the edge, the footprints come to an abrupt halt. No signs of return, no further path to follow.
+
+My breath catches in my throat, a silent sob trapped in the cage of my ribs. The implications hang in the air, heavy and unspoken. The cold, grey light of dawn casts long shadows across the ground, shadows that seem to stretch into the void below.
 
 I inch closer, peering over the edge with a mix of fear and desperation. But there's nothing to see – just the endless expanse of water meeting sky, a horizon that offers no answers, only questions.
 
