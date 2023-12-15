@@ -1,0 +1,15 @@
+“Here she is! She’s coming in for a cuddle!”   
+I found my boyfriend Paul’s habit of referring to me in the third person odd at first, but I got used to it and as our relationship grew stronger and I fell more and more deeply in love with him, it became one of those essential quirky habits that endears lovers to each other. I couldn’t imagine him not talking like that, and when he exclaimed things like “Look at her! Isn’t she gorgeous!” in that special soft lover voice while beaming at me all starry-eyed, my heart would flutter with joy, every time.   
+It wasn’t all the time- I should add, he’s not mad! I had to explain this to Annie, my close friend, after I made the mistake of mentioning this little linguistic quirk to her. “That’s so weird!” she exclaimed, "Does he always talk to you like that? Like, ‘she’s making pasta- can she add pepper to the sauce?’ “   
+I frowned “Of course not! He talks normally - mostly- only when” I couldn’t help giggling “-um, you know, when we’re going to bed.” Annie had made rude barfy noises, and I left soon after- I wanted to be with Paul, I was missing him so much, even though I had been with him only a couple of hours ago. Yes, I admit, I had become that annoying girlfriend who leaves her friends to only hang out with her boyfriend.    
+And he felt the same way. "There she is, my lovely!” he cried delightedly on seeing me. Maybe my conversation with Annie had rattled me- was I imagining that he glanced to his side, where there was no-one, before descending on me all hugs and kisses?   
+My slight unease vanished as I melted into the pleasure of being with him, and when he murmured “Oh I missed her so much! Where has my sweetheart been all this time!” I only felt love and joy at being so desired. I barely noticed then that he didn’t quite whisper those words directly in my ear.    
+What did Annie know about love anyway- she had never had a real relationship in her life.   
+Shortly after that conversation I caught the flu that’s going around, and was bedridden with a high temperature. I couldn’t see Paul.   
+“I miss my sweetheart so much! I have to see her!” he texted on the third day, and even though I was still feverish, we were missing each other badly enough that when he said he is coming over for a brief visit, I didn’t have the strength to refuse.   
+“There’s my poor baby!” he said upon seeing me, flushed with fever in bed. He turned to a man who had followed him in, just standing by his shoulder. “Look at her, all flushed and fevery!”   
+The man looked at me with blank eyes, and my heart skipped a beat. I blinked. I had never seen him before.   
+Paul came close for an embrace, the man standing motionlessly by over his shoulder, looking down on us expressionlessly.   
+I shrank away. “You’ll get sick” I whispered.   
+“I don’t care, I want to hug my sweetheart!” he said. He bent over my bed and drew me close. Over his shoulder, I could see his friend, now fully visible to me in the throes of fever, looking down at us, and I knew he had been there all the time.   
+ 
