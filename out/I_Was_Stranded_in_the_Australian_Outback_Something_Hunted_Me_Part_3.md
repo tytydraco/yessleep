@@ -6,7 +6,7 @@ Jirra and I sit in silence for a while, each lost in our own thoughts. The revel
 
 As I test my strength, I find the sharp pains have dulled to a manageable ache. My head still throbs, but the world no longer spins uncontrollably. I nod to Jirra, signalling that I'm ready to move. He offers me a hand, pulling me to my feet.
 
-We set out at a steady pace, Jirra leading the way. He moves with a quiet confidence, each step purposeful, his eyes scanning the horizon and the ground for signs of the Bunyip or other dangers. I follow closely, relying on my ranger training to keep up.
+We set out at a steady pace, Jirra leading the way. He moves with a quiet confidence, each step purposeful. I follow closely, relying on my ranger training to keep up.
 
 Our journey is mostly silent, the only sounds being our footsteps and the distant calls of birds and insects. Every so often, Jirra pauses to examine the ground or the brush, ensuring we're not walking into danger. His vigilance is both reassuring and a reminder of the perils we face.
 
