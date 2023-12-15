@@ -42,7 +42,7 @@ Jirra sits up slowly, his gaze lingering on the edge of the ridge, then turns to
 
 We find a small, sheltered area nestled between two large boulders, providing some protection from the elements and any roaming wildlife. Jirra sets to work immediately, gathering dry twigs and leaves while I use my lighter to start a fire. The flames catch quickly, casting a warm, reassuring glow in the encroaching darkness.
 
-As the fire crackles and pops, Jirra reaches into his pouch and brings out something wrapped in leaves. He unwraps it carefully, revealing a small portion of smoked meat and some native berries. He hands me a portion with a simple nod.
+As the fire crackles and pops, Jirra reaches into his pouch and brings out something wrapped in leaves. He unwraps it carefully, revealing a small portion of smoked meat and some native berries. He hands me a portion with a nod.
 
 I humbly accept his offering. The food, though simple, tastes delicious to my empty stomach.
 
@@ -60,7 +60,7 @@ Jirra looks at the knife, his eyes tracing its contours. He takes it, turning it
 
 In response, Jirra reaches for something tied to his belt. It's his boomerang, its surface smooth and worn from use. The wood is dark, rich in colour, and adorned with intricate carvings that tell a story I can't decipher. He offers it to me with solemn dignity.
 
-I accept the boomerang with a sense of awe and reverence, my fingers gently tracing the intricate carvings etched into its surface.
+I accept the weapon with a sense of awe and reverence, my fingers gently tracing the intricate carvings etched into its surface.
 
 "Thanks, mate," I say, my voice thick with emotion. "I promise to cherish this."
 
