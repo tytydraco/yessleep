@@ -129,3 +129,5 @@ The transcription finished and I leaned forward toward the laptop, opened a web 
 I took a drag of coffee and burned my mouth, almost spilling it on the sofa. I set the cup down and scrolled to the bottom of the transcription page. Last note to copy and paste. I highlighted it, and the words took shape in my mind before I could paste them into the browser. I forgot about the burning in my mouth.
 
 *Exterior building two north wall rusted siding near ground, open hole through wall. Remainder of building structurally sound. Don't go. You will die, John.*
+
+| [Part 2](https://www.reddit.com/r/nosleep/comments/18j65ny/my_voice_recorder_dictation_picked_up_something/) |

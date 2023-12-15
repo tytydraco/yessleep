@@ -156,7 +156,7 @@ Its eyes, glowing a deep, malevolent red, fix on me with a terrifying intensity.
 
 Desperation and fear grip me, but they also bring a lucid clarity. This isn't real. I’m having a nightmare. I need to wake up.
 
-Just as the creature, a nightmarish version of my father, prepares to lunge at me, a primal, instinctive part of my mind screams at me to take drastic steps to jolt myself awake.
+Just as the ghoulish creature prepares to lunge at me, a primal, instinctive part of my mind screams at me to take drastic steps to jolt myself awake.
 
 I glance over the edge of the cliff, the drop seeming like an endless chasm into the abyss. It's a terrifying choice, but it's the only way I can think of to break free from this horrific dream.
 
