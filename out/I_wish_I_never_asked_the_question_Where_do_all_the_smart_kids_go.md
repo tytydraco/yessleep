@@ -2,7 +2,11 @@ I know there's a swarm of giant robots looming over New York right now, and the 
 
 I didn't mean to kill them. 
 
-I'm too big. I can't get through doors anymore. 
+I'm too big. I can't get through doors anymore. But I'm smaller than them. 
+
+Human sized... if I duck. It's taken me a while to get onto this laptop, I still have muscle memory.. 
+
+See! I'm still here, I promise. 
 
 All I have is this stupid website, so please listen to me. 
 
