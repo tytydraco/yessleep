@@ -1,0 +1,31 @@
+I had a lover long ago who cared for me deeply. We will call him Trent.  
+
+
+Me and Trent knew eachother from our early years of high school, spending time together often in person talking about different things that teenage boys tend to talk about. Everything tended to wrap back to either gaming or boobs. We always would shoot the shit, have some fun. I have vivid memories of how we used get on the old Xbox 360 to play the a game of Zombies. We were obsessed with finding the easter eggs. Eventually, as I grew older into high school, I started to feel differently around Trent. I found him more interesting. Whenever I was around him my heart began to rush. I noticed how I would sweat and get nervous at what he thinks of me. I was growing my first ever gay crush.   
+
+
+I remember when I told Trent, I was surprised to find that he felt the same. I never took him for the type, but I guess people would never suspect me neither. I am more muscular. Well-built. Fratty. I remember how we used to secretly date behind our friends backs. I remember what fun it was to kiss those sweet lips of his. He was my first true love, it felt like. Eventually when high school ended we moved in with eachother and worked. I worked in construction and he worked at a local business. Life was sweet. Everything was going perfect for us. That was when he got into an accident at work.  
+
+
+We didn't live in the best area. Crime wasn't common, but when it happened it tended to happen. A lot of the crime was drug involved. Something along the lines of needing money or being unable to pay the money back. Unfortunately for us, Trent found himself stuck in the middle of one of these mishaps at work. He was robbed at gunpoint, and when he leaped over the counter to try and subdue the assailant, he was shot twice. I remember I was what felt like miles off the ground when I got the call. I remember how dizzy I was when I looked down from the scaffolding to the ground below. I felt sick. Nausea consumed me and I needed help from my coworkers to get down. He died in the hospital a few hours after being brought in without me by his side. The assailant was charged with manslaughter, but was ultimately found not guilty. It sickened me so much that I moved states in the wake of it all.   
+
+
+That was 3 years ago, it still haunts me to this day, but that isn't why I am here now. Ever since the day he died, I have an occasional reoccurring dream of us together. We tend to have a picnic at the start of the dream, with him in the middle of setting up coming over to kiss my lips softly and touch my cheek like he used to. I always remember how cold his hands were while he touched me. They felt icy, even clammy at times. His lips lacks warmth, being chapped and cracked. These are things I could care less about however since I get to see him again. I remember how in the dream he would pour a glass of wine, taking a sip before passing the glass for me to enjoy. It is always my favorite type too, a 2014 Alcance Gran Reserva Carménère. I would softly sip on the wine, savoring it as he slowly would unbutton his shirt. I tend to react to it with intrigue, reaching over to touch him. As my hand presses against his chest, my body without fail always has a rush of coldness wash over me. My eyes would shoot open at this point awakening me, finding myself out of my bed and somewhere else in the house. After the dream, I always just head back to bed and sleep it off. I think nothing of it until tonight.  
+
+
+Tonight, I opened my eyes right after we kissed. I don't know how or what I did, but when I opened my eyes I found myself outside in a place I don't know. I don't know where my house is. I don't know where I am right now. There are trees around me, most of the pine variety, and snow on the ground. If you are reading this, that means I must have found some sort of shelter, but right now I am huddled under a tree with only my oversized shirt as warmth. I will update when my situation has changed 
+
+
+Edit:   
+I have found shelter, ignore everything above I am just crazy. Trent is dead, he is not alive. Trent can't come across multiple states to see me. He is dead. I am just making things up.  
+
+
+Edit 2:   
+I had that dream again. This time was different too. I decided to stay in the dream and push past me touching his chest. I continuously tried to get further into the dream, seeing what lies past this barrier. As I tried to keep my eyes shut and hold onto the dream, Trent kept telling me that I need to wake up. He kept saying that I need to open my eyes. I don't know why he would say this. I just want to see him a bit longer. He said that I need to open my eyes and face reality, and that is when I woke up to my front door banging.   
+
+
+I went to go check it out after adjusting myself to being awoken, and found it wide open. Snow was trickling into my front entry and there were a pair of footprints leading into the snowy night. Maybe I am not that crazy, or maybe I was robbed. I don't know yet, but nothing seems to have been stolen. What if? Is that crazy to ask? I just want to see his face again.  
+
+
+Edit 3:  
+I woke up today to Trent in the doorway to my room. Something about seeing him stand there lifeless has me shaking. His body was so badly decomposed I felt the chunks from dinner come up and back down my throat. His jaw hung lifelessly and he was missing an eye. The stench was unbearable as well. He stood there and stared at me for a while quietly at first, before walking to the bedside. I closed my eyes with terror, I don't think he saw me awake. I laid motionless as he leaned over, touching my cheek with his cold lifeless hands and pressed his dead lips against mine. That is when my eyes shot open. We stared at eachother before it set in for both of us. I covered myself in the sheets as I heard the closet topple. The doors banged against the walls and dishes shattered. The house is trashed, but I could care less. His rampage through the house proved three things to me tonight. 1. He is not gone. 2. Move somewhere else, anywhere else. 3. Never sleep again.
