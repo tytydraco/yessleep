@@ -122,7 +122,7 @@ I already knew where he was.
 
 Or where *part* of him was. 
 
-When a needle was forced into the back of my neck, I was told I was going to be part of something amazing; the world's very first sentient AI. I would be given a me body, a *better* body, while my mind would be donated to the program. 
+When a needle was forced into the back of my neck, I was told I was going to be part of something amazing; the world's very first sentient AI. I would be given a new body, a *better* body, while my mind would be donated to the program. 
 
 I was going to help people, they told me, showing me what my new body would look like. There was no flesh, only metallic twisted bones and steel. “But will I feel it?” I asked them, to which they ignored me, only flashing sympathetic smiles. 
 
