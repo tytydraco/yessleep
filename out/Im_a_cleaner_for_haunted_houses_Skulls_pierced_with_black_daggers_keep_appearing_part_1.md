@@ -158,7 +158,7 @@ In the light of the rising sun, something dark green and slimy slithered out of 
   
 \*\*\*  
   
-We pulled up next to the swampy waters before towards the front door into the idyllic log cabin. It had a brownstone brick chimney and an open porch. A few rocking chairs lay there, wavering in the slight breeze.  
+We pulled up next to the swampy waters before the front door into the idyllic log cabin. It had a brownstone brick chimney and an open porch. A few rocking chairs lay there, wavering in the slight breeze.  
   
 Xavier went first, muttering to himself. When he took a step up on the porch in front of me, his blue button-down shirt rode up on his skinny body. I caught a flash of a concealed pistol tucked tightly into a hidden holster around his waist.  
   
