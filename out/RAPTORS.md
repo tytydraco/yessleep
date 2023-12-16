@@ -419,26 +419,3 @@ As for you, the person reading this, I leave you with this warning. Don't just a
 
   
 Hopefully they will.
-  
-
-  
-
-  
-
-  
-
-  
-
-  
-
-  
-
-  
-Inspired by the thread made by twitter use Archesuchus. 
-  
-
-  
-
-  
-Thanks for reading!
-If you want to read more of my work, find my stories on AO3, my username is SomeDudeThatLikesToWrite
