@@ -1,0 +1,29 @@
+I think I just had the worst dream of my entire life. Bro, I'm not even trying to be funny by saying that, this shit scared me to my core. I don't mean to sound like my dad when I say this, but I honestly think it's the good lord trying to tell me something. Warn me about something, I don't know what it is, but message fucking received. I'm gonna sound crazy when I say this, but I think I saw a glimpse into hell itself.
+
+I was trying to get into this “club”? I don't know what to call it. It was a massive building that must've been made out of steel or brick. It had no windows, at least it didn't have that I saw. One of the first things I've noticed is that the “people” trying to get into that club, were really ugly. Grotesquely ugly, and grotesquely fat. I don't mean kinda chubby, I mean “My 600 pound life” level of obese. 
+
+I honestly think that those “things” were Demons. Legit Demons. They don't deserve to be called people. Because people, don't partake in what those things partook in. People, no matter how mentally fucked they are, at one point in their lives, could tell the difference between right and wrong.
+
+The Godless building was called “Pleasure”, for some unbeknownst reason, I was trying to get inside. I thought it was just a regular nightclub with a pretentious sounding name. I should've known something was wrong the first minute. I don't just go out clubbing. And never will now. The second thing that should've tipped me off was when I was stopped by some guard. He was “normal” looking. Not big and ugly like the rest of them. He stopped me before I could enter, I should've listened to him. I should've turned tail and ran. Ran as fast as I could. But I wouldn't be writing this if I did.
+
+I insisted to the guard that I was invited by the club’s owner. I didn't know what the name was, but it might as well have been the demon Asmodeous. The “owner” was a morbidly fat, hideous “woman”? To be honest, I didn't know what it was. It had a shaved head, and it looked like it's head was burnt. The owner told the guard to let me inside, and he repented. 
+
+You know how housing blocs in ex soviet countries look? All stone and grey with floors of stairs? Pleasure looked like one of those once you were inside. Why would you even want to be inside is unbeknownst to me, but once you're on the inside, I hope you stretched, because you're going to need to run.
+
+It was a god damn slaughter house. A slaughter house for human beings. Imagine every sickening, repulsive, disgusting fetish and kink humanity has, every niche one, and put it under one roof. There were people screaming, people being mutilated, people were crying, people were bleeding, people were walking around naked. It felt like my stomach fell out of a plane. I've had my share of bad dreams before, but this was something else. I don't know how else to describe it. It was like God himself was trying to tell me something. 
+
+You're probably thinking I'm some schizo who forgot to take his normal pills before sleeping. I will admit, that I was high before falling asleep. Just weed, and I drank a soda. I heard somewhere that sugar before bed makes you have bad dreams. I don't know what I saw was, but it was no normal bad dream. The worst thing that ever happened to me while going to bed high before was waking up to the room spinning. I rather have that than the fresh glimpse into Hell I took.
+
+This primal sense of fear washed over me. Not usual fear, but a deep, animal like fear I didn't know I was capable of feeling. It was like a rabbit running for it's life from a pack of wolves. I ran before Pleasure could show me anything else. I ran through this locker room and, my God. I saw this woman walk torwards me, she was fat but not ugly. She was human. She was completely naked and there was blood on her face. She was whimpering. It looked like she was mourning. Besides the crimson on her face, there was also a purple hue. Like a massive bruise.
+
+I didn't have time to think, I just ran. I ran through this corridor, and in this corridor were mutilated people. One man had his chest exposed. Before I begin, I should ask this. Any of you know how they castrate bulls? My dad taught me, they put little rubber hands on their balls until they just popped off. That's what this man’s chest looked like. His pectorals were stretched out to look almost feminine. They look like the packaging they used for ground beef. Long and bright red. 
+
+I was angry. Beyond angry. I was about ready to beat that pug fugly “owner” to death with my bare hands if he tried to stop me. 
+
+The hallway I bolted down was called the “quitter’s longue”. I wasn't the only one trying to get the hell out of Dodge, there were other normal people there with me. They had this thousand yard look in their eyes. A lot were sobbing, and a lot were shivering. They looked like how I felt, like I've seen Hell. I was going to bulldoze people out of my way if I had to, I didn't give a shit, I was getting out. 
+
+I was spat out through the front. The parking lot was deserted. The freaks and their ringleader were nowhere to be found. The sounds of torture and lamentation behind me stopped the moment I stepped out the door. Like it never happened. I heard a metal door gently shut behind me. I turned around and Pleasure looked like an abandoned warehouse. Completely devoid of life. 
+
+I think that's the worst part. How quiet everything was after stepping outside. It was like it never happened. 
+
+I woke up at 3:40, still reeling. I'm not joking when I say this, but I don't think that was just a bad dream. Call me crazy, call me schizo, call me whatever you want. But I genuinely believe that was either God, or the Universe, or some other higher force out there trying to tell me something. Worn me about something. If that's the case, you don't have to tell me twice. I'm listening.
