@@ -2,7 +2,7 @@ This is the first part of a series of events that I experienced over the course 
 
 I grew up in northern Montana, hiking in the summer, snowboarding in the winter. It was one of the most beautiful states in my opinion. The versatility of the state was one of the best parts. It had vast trees, wild life, historic cities, farm lands, lakes, the list could go on and on.Even the people are amazing if you’re a local.
 
-Everyone has a story to tell whether good or bad but they were all interesting.I love Montana, but recently there's been something going on.When it started it was nothing too out of the ordinary. Usually you’ll run into an odd human here and there, someone who fell victim to the ever growing drug problems. 
+Everyone has a story to tell whether good or bad but they were all interesting.I love Montana, but recently there's been something going on.When it started it was nothing too out of the ordinary. Usually you’ll run into an odd human here and there, someone who fell victim to the ever growing drug problems.
 
 Or maybe an off looking animal walking on the side of the road late at night. You could never really tell if it was a dog, or maybe a coyote, or maybe even something else.
 
@@ -16,7 +16,7 @@ He was with two people that I'm sure he didn’t know very well based on their c
 
 The couple walked to go look at our products. He stayed behind looking at our community board.I didn’t pay much attention to him at first. He seemed overly normal. Forgettable.
 
- I remember even thinking that, glancing at him. ‘He’s painfully normal looking.’ That was one of my first mistakes.He snapped his head from the board to me. Almost as if he had heard my thoughts about him. It kind of felt like I was the first human he had interacted with in a while. He approached the cash register robotically.
+I remember even thinking that, glancing at him. ‘He’s painfully normal looking.’ That was one of my first mistakes.He snapped his head from the board to me. Almost as if he had heard my thoughts about him. It kind of felt like I was the first human he had interacted with in a while. He approached the cash register robotically.
 
 He no longer seemed painfully normal.
 
@@ -40,7 +40,7 @@ A week later we could smell something rotting coming from the small crawl space/
 
 He wasn't there.
 
-The only thing I found was blood and an old pocket knife that was looked like it was dropped by someone doing maintenance. 
+The only thing I found was blood and an old pocket knife that was looked like it was dropped by someone doing maintenance.
 
 The rotting scent disappeared in the days after, being forgotten by the rest of the staff.
 
@@ -58,9 +58,11 @@ That fear of people who look to normal will always be stuck in the back of my mi
 
 Days later I had to go back to that attic. Something was calling me. I'm not sure what or who.
 
-My accention up the ladder was slow, too slow. 
+My accention up the ladder was slow, too slow.
 
-It was like moving through syrup.I had to know what or who was up there.
+I had to know what or who was up there.
+
+ It was like moving through syrup.
 
 He was there.
 
