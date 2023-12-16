@@ -2,7 +2,7 @@ I honestly don't know how to even begin to explain this. I don't know whether to
 
 Trevor was your typical quiet kid. Nothing about him was weird to say the least, he just preferred to be alone and keep himself. Honestly, I had no problem with him. He seemed kinda cool. He loved to draw and sketch cartoons. I even saw some myself and would comment that he could a artist someday. He was a great student.
 
-Trevor was in our homeroom class in our freshman year. He and his family had moved from the country side and into a new town to start a fresh beginning after his dad got a new paying job. Trevor had a older brother who I met as well, Dillon. He was a senior and couldn't always be there for Trevor, but I could tell the two were very close. But like I said, Trevor was alone and sometimes wouldn't say anything when someone talked about him. 
+Trevor was in our homeroom class in our freshman year. He and his family had moved from the country side and into a new town to start a fresh beginning after his dad got a new paying job. Trevor had a older brother who I met as well, Dillon though everyone calls him "Dill" for short. He was a senior and couldn't always be there for Trevor, but I could tell the two were very close. But like I said, Trevor was alone and sometimes wouldn't say anything when someone talked about him. 
 
 Even when Galvin started "joking" with Trevor. 
 
@@ -40,13 +40,13 @@ He never turned the gun on our classmates, or the teacher, or even at Galvin. In
 
 It was the most horrible thing that had happened to our school and that whole month was hell, but mostly on Galvin. 
 
-I know I said he's a jerk, but I don't think he meant for this to happen. How do I know? Galvin hasn't been the same since. He's more quiet, looks more tired barely speaks, and never eats lunch at school like normal. I think he believes it's his fault. Though Trevor's parents say Trevor was struggling from depression and he took medication for it. But Dillon took it the hardest. 
+I know I said he's a jerk, but I don't think he meant for this to happen. How do I know? Galvin hasn't been the same since. He's more quiet, looks more tired barely speaks, and never eats lunch at school like normal. I think he believes it's his fault. Though Trevor's parents say Trevor was struggling from depression and he took medication for it. But Dill took it the hardest. 
 
 Galvin took a week off school because the trauma of seeing his classmates shoot himself. He was there when it happened and was sitting two seats from him when Trevor pulled the gun on himself and some of the blood had gotten on Galvin. Cherry says Galvin looked...blank, numb, shock. He just sat there was everyone cried and screamed as Trevor's limp body fell on the floor. 
 
-When Galvin returned, Dillon snapped at him. He kept screaming and punching Dillon, saying "You killed him, you bastard! My brother is dead! What did he ever do to you?! Why?! Just why?!" Galvin said nothing as some students and a teacher tried  to restrain Dillon. 
+When Galvin returned, Dill snapped at him. He kept screaming and punching Galvin, saying "You killed him, you bastard! My brother is dead! What did he ever do to you?! Why?! Just why?!" Galvin said nothing as some students and a teacher tried to restrain Dill. 
 
-To be honest, I don’t fault Dillon for his reaction. That was his baby brother and he wanted to take it out on the person that insulted Trevor every single day, whether it was intentional or not. After the news, I kinda just strayed away from Galvin. Not because I hated him or anything, but because of the circumstances of Trevor's death. 
+To be honest, I don’t fault Dill for his reaction. That was his baby brother and he wanted to take it out on the person that insulted Trevor every single day, whether it was intentional or not. After the news, I kinda just strayed away from Galvin. Not because I hated him or anything, but because of the circumstances of Trevor's death. 
 
 It's a tragic end for Trevor, whatever was going through his head. I think about why he decided to end his life the day at school. Did he snap? Did Galvin's comment broke something in him? Or was everything else that had happen in his life just came a toll into a bloody end? Why at school? Why there? Was it because that's where all his problems began? The sad part is I'll never get a answer. The reason why he shot himself at school will be a mystery. 
 
@@ -86,7 +86,7 @@ He grabs my shoulders, gripping them tightly as I stare at him in shock as he lo
 
 "What do I do Dylan? How do I make him stop? Can't he see I'm sorry? What do I do?!" 
 
-God, it's so hard to type this in. I never seen Galvin so desperate, so miserable in my life. I didn't know what to say. What could you say to someone who sees a dead teenager everywhere? So I didn't say anything. I think Galvim knew I had no answer because he let go, apologized, and walked away from me. 
+God, it's so hard to type this in. I never seen Galvin so desperate, so miserable in my life. I didn't know what to say. What could you say to someone who sees a dead teenager everywhere? So I didn't say anything. I think Galvin knew I had no answer because he let go, apologized, and walked away from me. 
 
 I did think about what he said. Could it be possible? I always had a neutral take on paranormal stuff. I knew demons and angels were real due to my belief. But ghosts? I always thought those paranormal shows were tacky and fun to watch, but one of my friends just claimed to see the ghost of Trevor. 
 
