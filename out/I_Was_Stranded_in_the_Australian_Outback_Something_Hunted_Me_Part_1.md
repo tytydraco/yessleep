@@ -178,7 +178,7 @@ The joey, sensing the danger before I fully grasp it, bolts into the darkness, h
 
 "Wait!" I call out instinctively, though I know the kangaroo is far beyond hearing me.
 
-Pushing aside my blanket, I scramble to my feet, my pain momentarily forgotten in the adrenaline rush. I grab my flashlight and stumble forward, trying to follow the kangaroo, driven by an inexplicable urge to not be alone in this unsettling moment.
+Pushing aside my blanket, I scramble to my feet, my pain momentarily forgotten in the adrenaline rush. I grab my torch and stumble forward, trying to follow the kangaroo, driven by an inexplicable urge to not be alone in this unsettling moment.
 
 Suddenly, the earth in front of me ruptures with a violence that knocks me off my feet. I scramble backwards, my heart pounding in my chest.
 
