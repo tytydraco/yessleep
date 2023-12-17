@@ -291,3 +291,7 @@ Take care of you and your loved ones. Hope to see you soon.
 &#x200B;
 
 Sidonia.
+
+&#x200B;
+
+Update: [Part 7](https://www.reddit.com/r/nosleep/comments/18kfjcm/silver_whispers_part_7/)
