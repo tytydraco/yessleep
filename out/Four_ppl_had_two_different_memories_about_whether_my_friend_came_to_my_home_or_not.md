@@ -4,7 +4,7 @@ Before I start, I would like to apologize in advance sincerely. Since I am not a
 
 \----------------------------------------------------divider here----------------------------------------------------
 
-This happened during my high school years. At that time, I had very few friends. Due to class transfer, I met a new desk mate, who is a beautiful girl but isolated by the others. Her name is Taozi, or we can call her Apri. Her face looks very much like an famous asian actress Tang Wei and is also very small in stature. This makes her looks like a pocelain doll. I was very proud to have such a beautiful new friend in those days and had a strong desire to show her off to my famillies.
+This happened during my high school years. At that time, I had very few friends. Due to class transfer, I met a new desk mate, who is a beautiful girl but isolated by others. Her name is Taozi, or we can call her Apri. Her face looks very much like an famous asian actress Tang Wei and is also very small in stature. This makes her looks like a pocelain doll. I was very proud to have such a beautiful new friend in those days and had a strong desire to show her off to my famillies.
 
 In our daily talks, Apri revealed sorts of splinters of her own family life. Such as her mother always be mean to her and her parents has been doing business in other cities for years. Being left alone in her teenage in this small village and being bullied by other local girls made her very eagered for family solicitude and friendship. So when she saw my loving mom cooked and delivered my bentos to school every day, she expressed her wish to visit my mom and have dinner with us. (It should be added that parents could only temporarily store bento boxes or other stuff in the gatehouse, but were not allowed to enter the campus or directly interact with students, so Apri and my mother did not meet  face-to-face before.)
 
@@ -20,7 +20,7 @@ Afterwards, we had a very pleasant meal. After dinner, my mother chatted with Ap
 
 They also privately exchanged phone numbers that day. I knew this on the next day. After the evening self-study (around 10.30pm), **Apri showed me the text messages she received from my mom.** My mom called her ***Gan- Yao\`er*** **(the youngest goddaughter)** ,and wished her **"a good dreamie"**. She kept praising my mother for her childlike kindness, and solemnly wrote this message down on our shared diary book.
 
-It was at the end of that winter holiday, Apri was bullied by girls from other school. The bully girls even stalked to her residence for harassment and intimidation. So her parents took her away from our village and sent her to a new school in another city. From then on she never revisit my home again. After that, I was in my nervous senior year of high school. And my phone was confiscated and I lost contact with Apri since then on.
+It was at the end of that winter holiday, Apri was bullied by girls from other school. The bully girls even stalked to her residence for harassment and intimidation. So her parents took her away from our village and sent her to a new school in another city. From then on she never revisit my home again. After that, I was in my nervous senior year of high school. And my phone was taken away and I lost contact with Apri since then on.
 
 &#x200B;
 
