@@ -130,4 +130,4 @@ I took a drag of coffee and burned my mouth, almost spilling it on the sofa. I s
 
 *Exterior building two north wall rusted siding near ground, open hole through wall. Remainder of building structurally sound. Don't go. You will die, John.*
 
-| [Part 2](https://www.reddit.com/r/nosleep/comments/18j65ny/my_voice_recorder_dictation_picked_up_something/) |
+| [Part 2](https://www.reddit.com/r/nosleep/comments/18j65ny/my_voice_recorder_dictation_picked_up_something/) | [Part 3](https://www.reddit.com/r/nosleep/comments/18k3hmm/my_voice_recorder_dictation_picked_up_something/) |

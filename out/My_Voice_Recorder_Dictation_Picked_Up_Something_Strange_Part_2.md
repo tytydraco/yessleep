@@ -184,4 +184,4 @@ The mirror had a spider's web of cracks emanating from a central impact point, l
 
 *You will die, John. You will die, John. You will die, John.*
 
-| [Part 1](https://www.reddit.com/r/nosleep/comments/18idn3t/my_voice_recorder_dictation_picked_up_something/) |
+| [Part 1](https://www.reddit.com/r/nosleep/comments/18idn3t/my_voice_recorder_dictation_picked_up_something/) | [Part 3](https://www.reddit.com/r/nosleep/comments/18k3hmm/my_voice_recorder_dictation_picked_up_something/) |
