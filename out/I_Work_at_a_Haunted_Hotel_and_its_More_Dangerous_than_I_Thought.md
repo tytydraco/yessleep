@@ -237,6 +237,8 @@ I couldn't help myself as I asked, “Did you get the footage you wanted?”
 
 My smile widened as they refused to make eye contact. As crazy as this shift was, it couldn't have ended in a better way.
 
+**Part 1** - [Part 2](https://www.reddit.com/r/SkittishReflections/comments/187oxua/i_work_at_a_haunted_hotel_and_the_tenants_saved/)
+
 \-----
 
 [SR](https://www.reddit.com/r/Skittishreflections)

@@ -196,6 +196,8 @@ She may have chosen to look like a succubus, but the only emotion she was elicit
 
 “I am now, thanks to you two and Wd. Rowena,” I said, still trembling despite my smile. “Can one of you untie me while the other finds my phone? There's an officer I need to call.”
 
+[Part 1](https://www.reddit.com/r/SkittishReflections/comments/180550l/i_work_at_a_haunted_hotel_and_its_more_dangerous/) - **Part 2**
+
 \-----
 
 [SR](https://www.reddit.com/r/Skittishreflections)
