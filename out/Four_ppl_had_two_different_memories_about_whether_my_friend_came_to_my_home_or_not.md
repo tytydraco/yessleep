@@ -26,7 +26,7 @@ It was at the end of that winter holiday, Apri was bullied by girls from other s
 
 After graduating from university, about 5 years later, Apri and I recontacted with each other by a stroke of luck. I recalled that dinner to her and invited her to my house again. I asked her if she still remembered my grandma and her cooking skills.  Unexpectedly, Apri denied it ASAP, **saying that she had never been to my grandma's house before and never ate anything she cooked.** I was particularly shocked because the details of that gathering were very vivid and realistic. Then I asked **my mother** for proof, **she also said that Apri has never come to our home or my grandmother's.**
 
-I was very puzzled. If they never meet before, how could they exchange phone numbers? Then, how did Apri show me the "dreamie" message from my mom?
+I was very puzzled. If they never met before, how could they exchange phone numbers? Then, how did Apri show me the "dreamie" message from my mom?
 
 More even, Apri has always advocated that her memory surpasses that of ordinary people. She **recalled a lot of details of that winter**. Such as, my mother once missed her very much, and worried about her diet when she was alone. So mom cooked several dishes and asked me to bring them over. Apri swallow them like in one breath, and said that foods from a mom was the most delicious thing, even the onions, ginger, and garlic were tasty as hell.(She hates those seasonings at ordinary times)
 
