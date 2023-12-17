@@ -1,4 +1,4 @@
-Every Christmas Eve, I buy the bloodiest, rawest steak I can find and leave it out on my front porch. I tuck my daughter in tight, steal a cookie or two from the cheesy, mouse-themed Christmas plate we've used since I was her age, and set the slab of fine rare meat on the step. The choice cut, wrapped in dripping butcher paper, is always gone without a trace in the morning. 
+Every Christmas Eve, I buy the bloodiest, rarest steak I can find and leave it out on my front porch. I tuck my daughter in tight, steal a cookie or two from the cheesy, mouse-themed Christmas plate we've used since I was her age, and set the slab of fine rare meat on the step. The choice cut, wrapped in dripping butcher paper, is always gone without a trace in the morning. 
 
 I’ve been doing it since I was a little girl, nabbing change from my parents’ couch cushions and car trays the other eleven months out of the year. I’d collect it all in a pickle jar until I could afford the big purchase a week before Christmas. The thievery never seemed to count, as long as the money was going toward that. 
 
