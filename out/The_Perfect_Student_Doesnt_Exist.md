@@ -140,3 +140,5 @@ Help me, Mr. [Cleriot](https://www.reddit.com/u/APCleriot?utm_medium=android_app
 
 
 Anyone. Help me. What should I do about Roy?
+
+This story has received an unexpected [update](https://www.reddit.com/r/nosleep/comments/18ko4tz/i_only_see_roy/?utm_medium=android_app&utm_source=share).
