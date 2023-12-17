@@ -28,6 +28,8 @@ I understand his concern, but I know too well the dangers of pushing our bodies 
 
 Jirra hesitates, clearly torn between the need to press on and the reality of our physical limits. His eyes betray a moment of vulnerability, a silent acknowledgement of my words. Yet, he nods curtly, signalling his decision to continue regardless.
 
+Navigating under the starlit sky, Jirra often pauses, tilting his head upwards. In these moments, I notice him aligning our path with the Southern Cross, using the constellation as a guide through the dark.
+
 As the darkness deepens, our journey becomes increasingly perilous. The lack of light turns every shadow into a potential threat, every rustle in the bush a cause for alarm.
 
 I keep a close eye on him, aware that in this state, even a seasoned tracker like Jirra is susceptible to the dangers of the wilderness.
