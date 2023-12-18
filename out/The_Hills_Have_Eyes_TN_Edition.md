@@ -1,0 +1,28 @@
+A group of us were shooting and camping on private land in Appalachia Tennessee. Towards the end of the night we started to hear gunfire back at our camp. It was very dark but we had some pretty gucci gear such as nightvision and thermal imaging devices. The camp was maybe a few hundred yards off to the left of the range. Hearing the gunfire I got tasked with seeing why someone was shooting at camp.  
+
+
+I arrived alone at camp. Camp consisted of a cabin to the rear most point and several tents. Beyond that was a clearing that was maybe 100 yards long with woods lines on either side. I went down through the clearing where I expected to see one of our guys shooting where he wasn't suppose to. I instead was met with gunfire very close and just inside the woods. They seemed to be firing down towards the range as I could hear the bullets crack through the air.  
+  
+Discovering this I dipped back to camp and grabbed my armor as well as my MP5SD and went to the edge of the woods right outside camp to wait and see what these guys were going to do. While waiting I could hear them moving about and talking. There seemed to be 2 or 3 of them based on the voices I could hear. They seemed to be just inside the woods line just off to the left and certainly trespassing.  
+  
+Soon after a guy with our group showed up to see what the gunfire was about. He had a nightvision recorder and captured one of the most terrifying camping trips I have ever been on.  
+  
+We went back down the clearing to try and locate exactly where the trespassers were. They were clearly armed since we kept hearing close range rifle shots from them. After going down the clearing we identified their location. We were trying to decide if we should confront them or not since the wanton shooting was very much dangerous to our guys back on the range(several reported hearing snaps over their head from these guys shooting towards us after the fact). Soon after they let out a volley of shots back towards the range.   
+  
+Not wanting to engage in a gun battle we fell back to cover behind our vehicles at camp and a few other guys showed up . The next hour these guys messed with us pretty good. They had finally stopped firing but they were now stepping into the clearing. I think they may have been confused on our exact location as they seemed to be looking around with flashlights. This went on for a little bit with them just standing in the clearing.
+
+Fearing they may fire at camp we eventually hit them with white light and I yelled at them. They returned some white light from a flashlight, hollered something illegible and then dipped back into the woods to conceal themselves. We could largely see their positions since we had nightvision and thermal. They then started hooting, hollering, and moving about the woods lines on either side of us. They were screaming about witches and burning them to make the world right or something or another. It was pretty spooky truth be told. This went on for a good hour or so. Just these cries and hooting from less than a football field away. It very much reminded me of something out of The Hills Have Eyes(2006) movie.
+
+They then started moving to the back end of the range. The guy with the Nightvision recorder ran back to the range to let the rest of the guys know what was going on. They kept up the hooting and hollering to try and scare everyone I suppose. Eventually they started trekking back through the woods in the direction they originally came from. I still being at camp snuck back into the woodsline to ensure they were leaving. At this point we finally had radios up and running and gave word back to camp and the range that it was over.
+
+Several guys that were camping ended up leaving due to this event. Unfortunately one of them was the guy with the nightvision recorder so this is where the footage I have ends. They were worried the trespassers might go back home and get (more)intoxicated and come back to provoke something further. I stayed the night figuring they were done. I didn't even move my tent which happened to be the last tent before the clearing.
+
+Little later after a few guys left the people in the woods came back and started reving chainsaws for a short while. Although they sounded a bit more distant. They kept that up for about 30 minutes before all sounds from the simple ceased. I figured it was certainly all over with now. I was exhausted from the excitement. I thought I would have problems sleeping but I fell right asleep.  
+  
+Daybreak I was awoken to a close range rifle shot. I collected myself and grabbed my MP5SD again. I thought again about confronting this person but they again were armed, trespassing and obviously had no problems approaching an area ripe with rifle fire from the range just the day before. I heard this person scuffle away again through the woods. I soon collected my stuff and got out of there.  
+  
+Anyways when you pull up a Google map there was a few trailers a few miles away through the woods. I figure we annoyed them with gunfire and this was them messing with us over it. 
+
+I am going to post a few pics in the comments as well as a link to the video from the recorder. It was over an hour of footage that got condensed down to under 10 minutes. Its a little choppy but verifies my creepy story.
+
+You never know when the woods is going to come alive on you. Stay safe out there.
