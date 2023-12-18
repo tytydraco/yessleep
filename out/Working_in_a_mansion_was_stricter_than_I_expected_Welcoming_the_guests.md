@@ -2,25 +2,15 @@ As morning came, I hadn’t slept a wink. No matter how tired I felt, who knew w
 
 “Would you entertain a question I have?” I interrupted, frustration echoing in my voice. “Why, of course.”
 
-“Last night, as I was lighting the candles, something very odd happened.” Her expression remained unchanged. “Some… creature appeared and attacked me. Does any of this… sound familiar?” My tone simmered with anger as I paid close attention to her reaction. “You must have not lit all the candles by midnight like I instructed you.” Her voice was devoid of emotion. This confirmed it, she set me up.
-
-“Oh, my apologies, but ***YOU FORGOT TO MENTION THAT MY LIFE WOULD BE IN DANGER HAD I NOT LIT UP THE FUCKING CANDLES ON TIME!”*** I snapped as rage coursed through me. She, on the other hand, remained composed. “I believe you were informed that this job would be very strict.”
+“Last night, as I was lighting the candles, something very odd happened.” Her expression remained unchanged. “Some… creature appeared and attacked me. Does any of this… sound familiar?” My tone simmered with anger as I paid close attention to her reaction. “You must have not lit all the candles by midnight like I instructed you.” Her voice was devoid of emotion. This confirmed it, she set me up. “Oh, my apologies, but ***YOU FORGOT TO MENTION THAT MY LIFE WOULD BE IN DANGER HAD I NOT LIT UP THE FUCKING CANDLES ON TIME!”*** I snapped as rage coursed through me. She, on the other hand, remained composed. “I believe you were informed that this job would be very strict.”
 
 ***“THERE’S A VERY BIG DIFFERENCE BETWEEN LIFE THREATENING AND STRICT! SERIOUSLY, WHAT IS WRONG WITH YOU?”*** I replied, as I breathed heavily.
 
-She leaned closer, her words sharp like daggers. “And what will you do now Ben? You must have realized by now that the rules hold more importance than you thought.
+She leaned closer, her words sharp like daggers. “And what will you do now Ben? You must have realized by now that the rules hold more importance than you thought." Her face was now inches from mine. “Will you perish Ben? Or will you continue your duties, to see another day?”
 
-”Her face was now inches from mine. “Will you perish Ben? Or will you continue your duties, to see another day?”
+My anger was replaced with sheer dread. What the hell was wrong with this woman? How could she be so cruel to someone she’s only just met? Yet, she was right. I had no choice but to comply, until that security guard helped me escape, that is. She seemed to understand my submission as she stepped back. “If you’ve made your decision, please finish your breakfast and meet me downstairs in 15 minutes.” Her cheerful tone now returned, as if nothing had happened. As she was about to exit, she turned around to face me, inches away from the door. "Oh, I almost forgot to mention, guests will be arriving tonight. So be on your best behavior.” And with that, she left. Leaving me alone with my thoughts once more.
 
-My anger was replaced with sheer dread. What the hell was wrong with this woman? How could she be so cruel to someone she’s only just met? Yet, she was right. I had no choice but to comply, until that security guard helped me escape, that is. She seemed to understand my submission as she stepped back. “If you’ve made your decision, please finish your breakfast and meet me downstairs in 15 minutes.” Her cheerful tone now returned, as if nothing had happened. As she was about to exit, she turned around to face me, inches away from the door.
-
-"Oh, I almost forgot to mention, guests will be arriving tonight. So be on your best behavior.” And with that, she left. Leaving me alone with my thoughts once more.
-
-Looking at myself in the mirror, I looked like a mess. Or should I say an elegant mess. The suit made me look the part of a butler, but the dark circles forming under my eyes betrayed my predicament.
-
-I hesitated before stepping into the library, feeling a peculiar sense of apprehension gnawing at the edges of my resolve. The grand double doors creaked slightly as I pushed them open, revealing a world of knowledge and mystery within. Sunlight filtered through the tall windows, casting elongated rays that danced across the antique, mahogany shelves.
-
-The air carried the scent of old books, musty and rich with the passage of time. Tall bookcases lined the walls, filled to the brim with leather-bound tomes, some with fading spines and others with gilded lettering that caught the sparse rays of daylight. The ambiance was simultaneously cozy and haunting, with the library's vast expanse inducing both a sense of wonder and a flicker of fear.
+Looking at myself in the mirror, I looked like a mess. Or should I say an elegant mess. The suit made me look the part of a butler, but the dark circles forming under my eyes betrayed my predicament. I hesitated before stepping into the library, feeling a peculiar sense of apprehension gnawing at the edges of my resolve. The grand double doors creaked slightly as I pushed them open, revealing a world of knowledge and mystery within. Sunlight filtered through the tall windows, casting elongated rays that danced across the antique, mahogany shelves. The air carried the scent of old books, musty and rich with the passage of time. Tall bookcases lined the walls, filled to the brim with leather-bound tomes, some with fading spines and others with gilded lettering that caught the sparse rays of daylight. The ambiance was simultaneously cozy and haunting, with the library's vast expanse inducing both a sense of wonder and a flicker of fear.
 
 As I took a few cautious steps forward, the floorboards creaked beneath my feet, echoing softly in the otherwise silent room. Apparently, the guests were going to purchase some books from Mrs. Montague and the library had to be reorganized with the main books showcased on the display at the library’s front. This time, I hadn’t received any odd instructions regarding this task. Perhaps, I didn’t have anything to worry about, at least for the time being.
 
@@ -72,7 +62,7 @@ Amongst the chaos, a solitary picture frame rested between the monitors. It disp
 
 “Hey! You actually made it!” he exclaimed, extending his hand. I ignored the pleasantries.
 
-“Tell me how to get out of here.” Recognizing he was overstepping boundaries, he took a step back. 
+“Tell me how to get out of here.” Recognizing he was overstepping boundaries, he took a step back.
 
 “Listen, I don’t want to raise your hopes. There is a very high chance this plan might not succeed.” He said with a hint of nervousness in his tone.
 
@@ -323,3 +313,5 @@ As I laid down, a recollection of today’s events replayed in my mind. I still 
 A somber expression overtook me as I unclasped my metal charm, the moonlight casting its glow upon it. *“Dad.”* I whispered, my voice barely audible in the quiet room. That night, I had no pleasant dreams. Only [memories](https://www.reddit.com/r/nosleep/comments/189w8o2/working_in_a_mansion_was_stricter_than_i_expected/) I had long tried to bury.
 
 [Part 1](https://www.reddit.com/r/nosleep/comments/17zpxav/working_in_a_mansion_was_stricter_than_i_expected/)
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/18lcvmd/working_in_a_mansion_was_stricter_than_i_expected/)

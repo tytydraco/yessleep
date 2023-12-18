@@ -280,7 +280,7 @@ After I finished repeating those words, I felt a surging heat concentrating arou
 
 ***“And with that, I bid you goodnight Ben. Rest well, for you have earned it.”*** The host retreated to the darkness, disappearing from view. What the hell had I just done? Never mind that, I was escaping tomorrow no matter what.
 
-The thought of the host watching me as I slept kept me from resting, so I decided a change of scenery was necessary.
+The thought of the host watching me as I slept kept me from resting, so I decided [a change of scenery](https://www.reddit.com/r/nosleep/comments/18lcvmd/working_in_a_mansion_was_stricter_than_i_expected/) was necessary.
 
 [Part 1](https://www.reddit.com/r/nosleep/comments/17zpxav/working_in_a_mansion_was_stricter_than_i_expected/)
 
