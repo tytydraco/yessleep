@@ -597,7 +597,7 @@ Over the next few days, I found myself in the most unlikely of situations – as
 
   
   
-In a gesture of gratitude, the Wendigo returned several of my chickens. They were a bit ruffled and — to put it slightly — transformed, but otherwise unharmed. Mr. Henderson, ever the inventor, set about designing a new coop for my farm. This wasn't just any coop; it was equipped with his latest inventions, gadgets specifically tailored to care for these special chickens that had experienced the supernatural.
+In a gesture of gratitude, the Wendigo returned several of my chickens. They were a bit ruffled and — to put it lightly — transformed, but otherwise unharmed. Mr. Henderson, ever the inventor, set about designing a new coop for my farm. This wasn't just any coop; it was equipped with his latest inventions, gadgets specifically tailored to care for these special chickens that had experienced the supernatural.
 
 
   
