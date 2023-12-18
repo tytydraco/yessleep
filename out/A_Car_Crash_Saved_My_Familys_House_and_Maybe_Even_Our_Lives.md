@@ -1,6 +1,6 @@
 A recounting of a pivotal event in my
 childhood. An event that has made me
-question reality, faith, & the ides of a coincidence versus something more spiritual.
+question reality, faith, & the idea of a coincidence versus something more spiritual.
 
 When I was a child, I grew up in the country side between small Southern Ontario towns. Open farmland, and long open roads. Although we lived out of the way of any major cities, we lived on a main artery regional road that connected small cities and towns. Not quite a highway, as it was just two lanes, but served a similar purpose of getting you between places faster, avoiding the country roads. So although it was very open and quiet, cars would rush past.
 
