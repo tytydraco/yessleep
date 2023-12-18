@@ -138,9 +138,9 @@ The heat is relentless, and my body aches for relief. With a deep breath, I begi
 
 The shock of the coolness is immediate, sending shivers through my overheated body. I wade deeper, submerging myself up to my shoulders. The water soothes my aching muscles and the sting of my injuries. I immerse my head, letting the water flow over me, washing away the dust and fear that clung to me since the crash.
 
-As I float in the water, I allow myself a moment of vulnerability, letting the tears flow. They're tears of pain, frustration, but also of determination.
+Floating there, I close my eyes and let the water cradle me, a temporary escape from the pressing reality of my situation.
 
-But there's no time to linger in these emotions. I have to be practical, to think about survival. I emerge from the water and dress. I redo my bandaging, making sure they're secure.
+But there's no time to linger. I have to be practical, to think about survival. I emerge from the water and dress. I redo my bandaging, making sure they're secure.
 
 While I sit there, drying off in the sun, I start to formulate a plan. I know they'll send out a search party once I don't report back, but with the vastness of the park, it could be a while before they find me. I need to make myself as visible as possible.
 
