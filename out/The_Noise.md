@@ -138,7 +138,7 @@ Then again, I was currently tied to a hospital bed because I perforated my own e
 
 *Shhrrr-shhrrr-shhrrr*.
 
-For God’s sake. I tried to ignore it, but it was here too? Part of me was hoped that it was something in the house we hadn’t found yet. Did John sneak the coffee maker in under his arm? There was nothing from home here other than—
+For God’s sake. I tried to ignore it, but it was *here* too? Part of me hoped that it was something in the house we hadn’t found yet. Did John sneak the coffee maker in under his arm? There was nothing from home here other than—
 
 Wait.
 
@@ -178,7 +178,7 @@ It was different this time; it sounded wet.
 
 I felt my blood turn to ice.
 
-“John?” I said. My heart was pounding, but my feet shuffled forward on their own. Squish. There was a pool of crimson running from the kitchen and soaking into the edges of the living room carpet. I braced myself as I rounded the corner.
+“John?” I said. My heart was pounding, but my feet shuffled forward on their own. *Squish*. There was a pool of crimson running from the kitchen and soaking into the edges of the living room carpet. I braced myself as I rounded the corner.
 
 John’s body was lying on the kitchen table.
 
