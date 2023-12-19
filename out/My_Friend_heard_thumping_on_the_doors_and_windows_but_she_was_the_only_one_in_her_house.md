@@ -36,6 +36,6 @@ And she knew it was not her friend banging on the door, because she just texted 
 
 The banging felt like going on for an eternity...
 
-What happened next was unknown, at least, it was to me. But my friend said that all she remembered was waking up to her parents and grandmother's voice, sign that they were home. She also described it as a " safe feeling..." the weird type...one that feltlike it'll protect you from all evil. 
+What happened next was unknown, at least, it was to me. But my friend said that all she remembered was waking up to her parents and grandmother's voice, sign that they were home. She also described it as a " safe feeling..." the weird type...one that feltlike it'll protect you from all evil.
 
 She also mentioned that after her parents were home, all that banging and knocking were never to be heard again...
