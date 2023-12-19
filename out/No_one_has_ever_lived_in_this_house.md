@@ -64,7 +64,7 @@ I decided to ignore the message for the time being, instead focusing on finding 
 
 Then again, there was firewood, and I did have a lighter. I quit smoking about two years prior, but I always kept it around, just in case. Breaking off a piece of bark, and lighting it, I double-checked to make sure the smoke cleared and went up. Surprisingly, it did.
 
-Glancing at my phone, I figured I could use it for a flashlight as well, but I didn’t want to drain the battery. Instead, I lit a fire, and left the front door open just in case the smoke didn’t entirely clear out. Carbon dioxide poisoning ain’t no joke.
+Glancing at my phone, I figured I could use it for a flashlight as well, but I didn’t want to drain the battery. Instead, I lit a fire, and left the front door open just in case the smoke didn’t entirely clear out. Carbon monoxide poisoning ain’t no joke.
 
 &#x200B;
 
@@ -102,7 +102,7 @@ He proceeded to discuss, at length, the part of his history that he did remember
 
 At some point, the author recalled something happening. He couldn’t explain what, or why, or where, but he could recall something upsetting his routine. Something came to him, and it made him upset. He spoke about putting up barricades, keeping a loaded shotgun at the ready, and locking himself inside for days on end.
 
-*“It might have been here that I made my stand,”* he wrote*. “It could be. It should be. But I can’t say that it was.”*
+*“It might have been here that I made my stand,”* he wrote\*. “It could be. It should be. But I can’t say that it was.”\*
 
 &#x200B;
 
