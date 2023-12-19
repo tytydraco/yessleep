@@ -1,0 +1,62 @@
+It’s 3am and I wake up again. It’s always the same every single night. At 3am, even if I am in a deep sleep, I will wake up and now it feels more like a routine than an annoyance. I go to the bathroom and stay there for five minutes, or is it ten? Damn, I guess I forgot to buy toilet paper again. Well I’ll do it tomorrow.
+
+  
+I take a look out of the window and what I see is just the rainy neon lit streets of my city. It’s been raining for a few days now and there is no sign of it stopping anytime soon. I gotta say, I do enjoy the rain. It means I am not obligated to go out to enjoy the “sun” as people like to call it. I’d rather stay in this shithole of an apartment that I pay way too much for than go out to socialise. Why even socialise nowadays when everyone is connected through the power of the internet. Seeing people wandering around the streets this time reminds me that some people like to go out. It’s been a while since I was out with someone. Maybe a few years? Well it doesn’t matter at this point.
+
+  
+Walking to my computer, I am reminded that the table needs some cleaning. All that I can see are the empty takeout boxes here and there also that damn dust. I just cleaned it a few days ago. Why does there have to be dust? It’s so annoying. Booting up the PC, the first thing I am met with is an update. Again?! I just updated this fucking machine yesterday and again a new update?! Guess I’ll wait then. What else was there that must be done each night? Oh yeah, I have to take out the trash. Looking around, gathering all the bits and pieces that are on the floor just reminds me of how lazy I am. This must be the depression that haunts half of the population nowdays. I have no energy to do this but it must be done before I can sleep again.
+
+  
+Putting on my winter jacket feels really warm and comfy. Almost like a soothing, warm blanket. Feels like I am being hugged. Well, if I could remember what that actually feels like. Going outside is not easy, the rush of anxiety that fills my body every time before I know I have to leave, paralyses me. I can’t move my feet nor can I turn the door handle with my hands. It’s always been like this and I hate it. What if I forgot to leave my keys? No, they are in the pockets. Did I forget the stove on? No, I didn’t use it. All these thoughts invade my mind and I just can’t move. “Okay, it’s fine. I’ll just go quickly outside and throw the trash into the bin and run back” I said to myself, trying to convince my brain that it’s okay to go.
+
+  
+With a sudden jolt that I felt in my legs, I managed to open the door and leave my apartment. Now I am in this old hallway. I have always hated this. The tapestry on the walls is peeling off, the smell of piss and trash fills the hallway so badly that it almost makes me want to throw up. But it’s fine that I can do this. While walking down the hallway, I can hear most of the conversations in the other apartments. The walls here are so thin that you can hear a lot if you pay attention enough. My neighbour, Jane, seems to be arguing with her boyfriend. It isn’t the first time since I heard them argue. Never actually seen the guy but since they argue about money, I guess he isn’t loaded either.  
+Next up is the lovely stalker granny who likes to put her nose in everyone's business, Mrs. Mollins. Never caught her first name but I have had a few run-ins with her. Really don’t like her. I like my privacy and she should just mind her own business.
+
+  
+Last one on the same floor that I have heard talking is Mr. Delgado. Our lovely handyman who is wasting his life away in this shithole. Or at least I think so. Needed some help with a leaking pipe in my shower and he did help but he seems to be too kind to live here. To be honest, he must be the only person here who I like. But again, never have been one to socialise too much but with Mr. Delgado, it's always nice to chat with.
+
+  
+I always use the stairs since that elevator is not trustworthy at all. I don’t have enough fingers to count how many times that elevator has gone stuck and some poor bastard had to wait for hours for the repairman to come get them out from there. Getting into the lobby area of this shithole, all I can always see is the two men just laying on the floor next to the door, from the looks of it they seem to be high on drugs. Never have been too sure if they actually live here or maybe they are just homeless.
+
+  
+Stepping outside, into the rain I feel like I have been cleansed of that filth that I just walked through. As the rain droplets hit my face, I feel like I want to stay here. Just stand in the rain and let it wash all of my worries away. But unfortunately, life does not work that way. Suddenly, I lose my footing as a much taller person than me bumps into me but walks past me into the building that I came from. “Could have at least said something” I thought to myself, feeling quite irritated. Turning to my left I saw the trash bins in a fenced out area. Opening the fence with my apartment keys, I went in and threw the trash into the bins and closed the fence door behind me.
+
+  
+Looking past the fenced out area I saw the alleyway leading around the building. I don’t know what but that alleway has always given me bad feelings. It feels really irrational but always when I look in that direction, I feel like there are a pair of eyes looking back at me. Never actually seen anyone there but still, it feels weird. Just as I am touching the handle of my apartment door, CLANK!! A loud noise echoes in the alleway like something had hit against something metallic. Panic goes through my whole body as I open the door to the building quickly and without a second thought, rush towards my apartment.
+
+  
+When I get inside, exhausted, collapsing next to my bed, I feel safe again. Anxiety slowly exiting my body as my breathing stedies. Maybe it was just a cat, knocking over a trash bin. Or maybe just a wind blew something over. Well, it doesn’t matter, it's fine now. Let’s see if that update has finished. As I slowly get up and walk to my PC I am greeted with a blank screen and no power. Am I actually this unlucky and the power went out? Trying to flip a light switch does not turn the lights on. Well fuck. I can’t go to sleep before checking my PC so I guess I need to go wake up Mr. Delgado. I hate this. I have to leave the apartment again. Well, it must be done.
+
+  
+As I walk closer to the door, a sudden dread fills me up. For some reason my body is telling me not to go close to that door at the moment. I have never felt this scared in my whole life. What the fuck is going on? It’s just a door. Getting closer and closer to it makes me want to throw up. Is my brain now just fucking with me for laughs? No, I will go to the door, I need to if I want to sleep tonight. Every step I take feels like the door is moving away from me. Like it doesn’t want me to get close to it. Door don’t move, this is just my brain playing tricks on me. This has literally never happened before. Why now? I have done as I always do. This night is no different from the other nights. Wait? A sudden realisation hits me like a bolt of lightning when I remember that this night DOES feel different. The man that bumped into me. That has not happened before. Of course not because it’s not like I get bumped into every night but something about it feels different.
+
+  
+Like a blink of an eye, I am at the door to my apartment. My body is trembling. My legs won’t stop shaking and my hands shake so much that I could shake a cocktail with these. As my head is pressed against the door, I can hear something. It’s loud, like heavy footsteps. Heavier than normal. They seem to be coming from the direction where the stairs are. Maybe they are going down? I really don’t want anyone else other than Mr. Delgado to see the state that I am in. He is just on the other side of this hallway. Just need to open the door and walk over to the other side.  
+WAIT?! The footsteps. Why are they getting louder? Are they walking in this direction? There is nothing else here other than me and Mr. Delgado and Jane? Maybe it’s the boyfriend? No it can’t be since I would have heard those footsteps before. Fuck, is my brain again lying to me? I need to check. The peephole is just there but for some reason I really don’t want to look there. My body tells me to not look. Footsteps stop. Just outside of my door. Between me and Mr. Delgado. It’s so quiet now…Why? I need to look. Come on, Mike. You NEED to look. I look. What do I see?  
+An eye staring back at me from the other side.
+
+  
+I can’t move. I am scared to move. This yellowish eye keeps just staring at me. Can they see me? I need to leave, NOW! I force myself to move away from the door and grab my phone quickly. Only way out is through the fire escape that leads to the alleway. The fire escape has not been maintained in a while, making it really unsafe to descend. But it’s my only choice. As I am moving towards the window, I can hear the person whistling on the other side of my apartment door. A low, playful whistle, almost like they are just playing with me. Why me? I have not done anything to anyone. Am I just a random victim now? Or is this just an elaborate prank? I can’t stop, I have to leave. As I push up the window, I realise that it doesn’t move. Why? There is nothing weighing it down or anything. Am I trapped here now? I need to hide, now! Under the bed is the only place I can fit…fuck it’s so obvious but it has to do now. Before I hid myself under the bed, I grabbed a knife from my kitchen to make sure to protect myself if I am found.
+
+  
+It was so dusty and dirty under the bed. I have not cleaned it in a while and I can see some candy wraps and some clothing here, all covered in dust. It doesn’t matter now, I can’t keep thinking that now. Moving my glance towards the door, I can see it’s wide open. When? I didn’t hear anyone unlock it at anypoint. As I am moving my head around under the bed trying to see if I can spot the person who broke in, I can only hear that fucking whistling. And then I hear them speak in an unnaturally soft voice.
+
+  
+“Finders keepers. I keep what I find, even if it doesn’t belong to me. Be it an object or a person, they will be forever mine. As a man that walks, I take what is not mine.” Says the person in my apartment that I can’t see.  
+Moving my glance towards my feet where the foot of my bed is, I see a pair of large feet. Fuck… do they know that I am here? My breathing pauses and it feels like my heart is not beating in the moment as the only thoughts running through my head is what this person is going to do to me. Looking back at the foot of the bed, the feet of the person are gone and only visible things are the pair of those yellowish human eyes staring right at me. Flight or fight kicks in through my body as I quickly crawl from under the bed and bolt towards my apartment door. As I get to the hallway, I can still hear the intruder talking like they are next to me.
+
+  
+“Finders keepers. You belong to me now. Don’t run and let me hug you like no one ever has before” Says the soft voice in my ear as I frantically run downstairs and exit the building into the rainy night.
+
+  
+This all feels like a fever dream. Maybe I am dreaming? No, that can’t be. I would have woken up by now but it doesn’t matter, I need to call the police now. As I am beginning to dial 911, I look up at my apartment window and I see a face, it’s pale white with those damn yellow eyes, piercing my very soul. But what gets me is that wide grin, it’s unnatural. Normal human mouth can’t stretch that much. It’s almost like their grin is going from ear to ear, exposing those pure white teeth.
+
+  
+I ran away to a nearby hotel, 10 blocks away from my apartment. I am scared to call the police since I feel like they are not going to survive if they go back to my apartment. Now I am in a dark hotel room that I paid too much for. They can’t possibly find me from here, I made sure that I wasn’t followed. I’ll think about it tomorrow, not now. As my eyes felt heavier by each second, at some point I just fell asleep due to the pure exhaustion. I slept well enough to sleep the whole day.
+
+  
+It was 3am when I woke up again to a whistling in the hotel hallway.
+
+  
+“Finders keepers” echoed in the hallway in the soft, playful tune.
