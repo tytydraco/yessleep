@@ -40,7 +40,7 @@ That night while getting drunk, we were ambushed by some invisible force.
 
 One by one we were taken out until I was the only one left.
 
-I lay there while pretending to be dead.
+I lay there pretending to be dead.
 
 I was on the ground for about 2 hours before I found the courage to get up.
 
