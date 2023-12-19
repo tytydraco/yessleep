@@ -254,7 +254,7 @@ As it said that, beneath the eye, a giant mouth formed within the wall, with an 
 
 “What kind of trade are you talking about?...”
 
-The mouth formed into a smile. ***“Ah, I knew you would understand Ben! It is a straightforward proposition: I want you to retrieve something for me, and in return, your will exit this attic with your life intact.”***
+The mouth formed into a smile. ***“Ah, I knew you would understand Ben! It is a straightforward proposition: I want you to retrieve something for me, and in return, you will exit this attic with your life intact.”***
 
 “…What is it?”
 
