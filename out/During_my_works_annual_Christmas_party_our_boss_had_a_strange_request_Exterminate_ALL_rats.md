@@ -98,7 +98,7 @@ Soren, however, was convinced this guy was a vampire.
 
 “*Déjà Brew,”* Lev said our name like a tongue twister, folding his arms across his chest. I noticed his gaze strayed on Soren. “What can I do for you?” His lips quirked into a smug smirk. “You've brought a friend. That's kinda cute.”
 
-Soren made a sputtering noise. His face was already tomato red. “Yeah? Well, do are *you*.” he was speaking on the defence, but his words were tangling into an incomprehensible mess as usual. Soren didn't take confrontation well. Last month, he accidentally said yes to a date with the manager of a rival coffee store who came to intimidate us. 
+Soren made a sputtering noise. His face was already tomato red. “Yeah? Well, so are *you*.” he was speaking on the defence, but his words were tangling into an incomprehensible mess as usual. Soren didn't take confrontation well. Last month, he accidentally said yes to a date with the manager of a rival coffee store who came to intimidate us. 
 
 I think he was expecting to be insulted, already primed to spit out a comeback. 
 
@@ -378,7 +378,7 @@ I was bent over in my chair, howling, red splattering the ground.
 
 Christmas music started up once again. Louder. Deafening in my ears, a blend of Fairytale and Last Christmas. I was spinning around and around on the dance floor, my chest aching. I was wearing the same dress, but it was tighter on me, and my hair was longer. 
 
-I was laughing, giggling, sputtering into my drink that tasted like bleach mixed with blood. The others were around me. Phoebe, still attached to my hip. She had a scar on her lip. Her smile was thin. Her dancing, robotic. Soren, leaning against the wall. His hair was shorter, arms. This time his crown of fairy lights were dimmer. His lips were a straight line, eyes piercing right through me. 
+I was laughing, giggling, sputtering into my drink that tasted like bleach mixed with blood. The others were around me. Phoebe, still attached to my hip. She had a scar on her lip. Her smile was thin. Her dancing, robotic. Soren, leaning against the wall. His hair was shorter, arms by his sides. This time his crown of fairy lights were dimmer. His lips were a straight line, eyes piercing right through me. 
 
 “The boss has a plan!” Wylan was directly in front of me. His voice was no longer slurred, eyes hardened. 
 
@@ -466,7 +466,9 @@ Nose is still bleeding, and I can't go home.
 
 They know where I live. 
 
-I think my boss just tried to turn me into a weapon. I don't understand the passage of time. I've been to multiple Christmas parties. Which was the real one that led to all of this? Why can't I feel my mental and physical trauma??
+I think my boss just tried to turn me into a weapon. I don't understand the passage of time. I've been to multiple Christmas parties. Which was the real one that led to all of this? Why can't I feel my mental and physical trauma??. 
+
+**December 19th, 2023**.
 
 Why am I just numb? 
 
