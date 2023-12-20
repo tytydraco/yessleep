@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/18mt0aq/im_a_worker_for_the_nyc_subway_here_are_some_of/)
+
 Hello! My name is Bennett, and for the last 12 years, I have worked as an MTA employee for the New York City subway system.
 
 During that time, I've had a fairly substantial number of odd occurrences, reports, and stories happen on the job. The things I've seen and heard about down in the tunnels have always made for pretty good workplace banter, but I figured it'd also be worth a shot to share some of the more unusual tales here on Reddit. If you have any questions, I'll be happy to answer them down in the comments.
