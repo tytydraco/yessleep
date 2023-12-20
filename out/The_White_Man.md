@@ -51,3 +51,5 @@ I looked at her again. She was now in the middle of the cornfield jumping up and
 I asked Mel later if she had ever seen the girl. She said no, but she was very freaked out about the boys' behavior. So we said we would never go back and we tried to forget about it. Two weeks later, I started noticing something following me. All I could ever see was a face. The rest of his....sorry ITS body was always hidden behind something and it was all very far away.
 
 I'm sorry, but I am starting to get weak again. I need to forget about him for a while. But as soon as I have the energy I will tell you the rest. He has been a problem for too long. I can't take it anymore. I just pray that when I am finished someone can offer me help. And I pray that if I can't make it, at least I can help one of you.
+
+Part 2: https://www.reddit.com/r/nosleep/s/THv4OmwfZq

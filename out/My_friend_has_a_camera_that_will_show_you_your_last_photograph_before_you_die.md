@@ -203,3 +203,7 @@ She looked up at me, her eyes wide.
 “My neighbor’s.”
 
 [+](http://www.reddit.com/r/blairdaniels)
+
+---
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/18mq2cm/my_friend_has_a_camera_that_will_show_you_your/)
