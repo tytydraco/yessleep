@@ -246,9 +246,9 @@ After a few seconds, I carefully stepped outside. I was unsure if he actually me
 
 Did he even understand how important this moment was for me? I could finally escape death, I could finally go home.
 
-While I considered what to do next, my eyes wondered at an unexpected sight. A black spider stood amidst the snowy field. It stood out like a sore thumb due to the overwhelming contrast in colors.
+While I considered what to do next, my eyes wondered at an unexpected sight. A black spider popped out of the snowy field. It stood out like a sore thumb due to the overwhelming contrast in colors.
 
-I was startled by a familiar sensation in my chest. The cold air was unable to nullify the heat growing in my chest. Was I having a heart attack? No, that heat was exactly the same as last night. ***That is what one calls a pact. A soul contract if you will.***
+I was startled by a familiar sensation in my chest. The cold air was unable to nullify the heat growing around my heart. Was I having a heart attack? No, that heat was exactly the same as last night. ***That is what one calls a pact. A soul contract if you will.***
 
 I held down my chest as the spider retreated into the woods. Had the time come to honor our ‘deal’?
 
