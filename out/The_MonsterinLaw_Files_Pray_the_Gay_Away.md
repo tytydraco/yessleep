@@ -1,7 +1,6 @@
-
 Previous instalment here: https://redd.it/1786bgt
 
-History has a habit of repeating itself.  You've all heard the story of the time Maura sold her own sister to a deranged former psychologist who was keeping "wayward girls" captive in order to "treat" them.  Well, today you gt to read the story about the equally fucked-up thing she did to said sister's own son.
+History has a habit of repeating itself.  You've all heard the story of the time Maura sold her own sister to a deranged former psychologist who was keeping "wayward girls" captive in order to "treat" them.  Well, today you get to read the story about the equally fucked-up thing she did to said sister's own son.
 
 Jane, Maura's sister, had one child with her husband Colin: a boy named Stephen.  Growing up, he saw his cousins almost daily (they all attended the same elementary school, and often got together for play dates), but had very little direct contact with his aunt and uncle.  Unsurprising, given how much Jane hated her sister.  She knew better than anyone else how dangerous Maura could be, and she didn't want her evil poisoning her son.
 
@@ -39,7 +38,7 @@ He began advancing on Stephen, who slid his hand into his pocket and wrapped his
 
 "G-get away from me," he barked.  "Don't think I won't fight you."
 
-Father Maurier paused.  His face went cold and angry, his blue eyes glinting a hard, icy blue.  Then his expression turned to one of sorrow, and when he spoke, his voice was sad and low.
+Father Maurier paused.  His face went cold and angry, his eyes glinting a hard, icy blue.  Then his expression turned to one of sorrow, and when he spoke, his voice was sad and low.
 
 "I was told you might resist. I had hoped it wouldn't come to this, but you have left me no choice."
 
