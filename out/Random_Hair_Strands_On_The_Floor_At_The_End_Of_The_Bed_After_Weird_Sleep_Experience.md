@@ -1,0 +1,15 @@
+Hello everyone!! This is a story from my boyfriend’s last night’s experience. I hope this reaches everyone and could help us figure out what the heck is this. This is weird as ffff.
+
+We were watching The Huger Games in google meet last night so we’re not physically together. We finished the movie at around 1:00am. We decided sleep at 2:30am but I dozed off so we slept at 2:00am. According to his story, he woke up at 3:00am, pitch black in his room and the sensation of paralysis but mostly because he doesn’t want to move. He is half asleep and to be woken up only 1 hour in is weird because he is a super duper heavy sleeper. While trying to look around and adjust to the darkness, he made out a figure of a woman, bowing down and moving on the end of his bed. His curtains oddly slightly moved to the side when he remembered closing it. His window and his door is locked so no one’s going to move the curtains besides him. He just slept through it maybe because he couldn’t process it since he’s half asleep. Another weird thing is humans tend to take a few seconds to a few minutes to adjust to the darkness or at least to picture out the surroundings a little but oddly, the darkness lingered for a little longer than usual or than normal or than it should be.
+
+While in his room this afternoon, he happened to step on something soft or weird in texture at the end of his bed only to find out a thick section of a woman hair. At the same spot where he pictured out the woman last night. That’s his own room, the only female in their household is his Mom and his mom barely goes to his room and most of the time it is only to clean his room. If his Mom went to his room, the hair wouldn't be there because she would clean it FOR SURE. Also, his mom is aware that the only female in there house is her and she would be weirded out too if she saw that in his room.
+
+He can’t have any girl or anyone who has long hair in his room because we’re asian, that’s 1:00am - 3:00am, he’s 18 and he doesn’t cheat. We’re also on the phone almost the whole night. I know that that's not his mom's hair or any girl's hair. That just randomly appeared which is really really weird.
+
+I am hoping that someone can help us figure out what this is or what anyone thinks about this because we’re really freaked out about this. I don’t know if we should put rosaries or crosses in his room lol. Thank youuu!! I don't know how to put photos in posts yet but up until now the hair is still in his room and yes we have photos.
+
+I'm sorry if the story is a little confusing and messy. I wrote this right after he told me about the hair and i really spooked me. Please help us figure this out. Thank youu!!!
+
+&#x200B;
+
+https://scontent.fcrk1-3.fna.fbcdn.net/v/t1.15752-9/410582046\_1040069037270452\_7117738562648129254\_n.jpg?\_nc\_cat=100&ccb=1-7&\_nc\_sid=8cd0a2&\_nc\_eui2=AeF6sV6GrMZ2U2s6gBW\_ZZf93VZWsQI89MDdVlaxAjz0wGvxFVOJWSfg2OnbD0x0MyV71yH\_tY3LQw4uIxAGKp\_G&\_nc\_ohc=gO7vFN3HHIcAX9V3-qn&\_nc\_ht=scontent.fcrk1-3.fna&oh=03\_AdSkmzhScrftZp9KYm8\_BStelXeo4i\_z7iUICUXoFlw3Gg&oe=65AA853E
