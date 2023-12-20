@@ -8,8 +8,6 @@ I made a vow with the rest of the village that I would keep silent. I don’t pl
 
 All right, here it goes…
 
-**This is the true story of the Christmas that led to the Silent Night in my village.**
-
 I was born in a small snowy mountain village somewhere up north. I don’t want to say the name of the town or country for reasons that will become clear later. Suffice it to say, that it is incredibly beautiful and idyllic. Especially during Christmas time. It’s a veritable Winter Wonderland.
 
 I always fucking hated it with every fiber of my being.
@@ -44,7 +42,7 @@ That’s the best way that I can describe it. There was a loud clap and then Mr.
 
 I immediately crouch down next to a stall selling traditional pastries. It obscured the view of the tower so at least I wouldn’t been seen. I look out towards the open square and people were starting to look around, curious as to what happened and why Mr. Hansen was laying face up on the middle of the ground. 
 
-A few villagers looked at me and I didn’t know what to do. My adrenaline had kicked in and my hear felt strange.  It was racing like it never had before. What could I do at that moment? I pointed up towards the direction of the Bell Tower.
+A few villagers looked at me and I didn’t know what to do. My adrenaline had kicked in and my heart felt strange.  It was racing like it never had before. What could I do at that moment? I pointed up towards the direction of the Bell Tower.
 
 That’s when the screams started. It was a few at first but then the panic set in. Everyone was trapped in the middle of the expansive plaza with precious few spots for cover. 
 
@@ -58,8 +56,6 @@ A few more screams occasionally with people collapsing. I couldn’t see why or 
 
 This was around 11PM. That’s when the next horrifying stage of the night took place.
 
-THE WAITING
-
 Several of us tried to call for help but the inclement weather was messing with the cell service. We tried and tried again to call but no communication could make it out of town. Some even tried to yell up to the Bell Tower to reason with the unknown assailant but no response ever came back.
 
 The cold crept into every part of my body. I shivered constantly through the night while I cracked several teeth in their uncontrollable chattering. My light clothing was meant for a quick dinner, not an overnight stay in a below freezing Christmas market. 
@@ -68,7 +64,7 @@ It was 3:17AM on the dot when I noticed Elias staring at me. Elias was an engine
 
 Eventually he smiled slightly and took a deep breath and exhaled. The condensation billowing from his mouth.
 
-Then he stood up. He didn’t say a single word. I yelled and pleaded at him to get down, but he didn’t budge. He stood there stoically and checked his watch. Others started to shout at him to duck as well but he continued to look at his wristwatch. Then he looked back at me and smiled again. 
+Then he stood up. He didn’t say a single word. I yelled and pleaded at him to get down, but he didn’t budge. He stood there stoically and checked his watch. Others started to shout at him to duck as well, but he continued to look at his wristwatch. Then he looked back at me and smiled again. 
 
 “Listen, Everyone. Do not say or do anything for the rest of the night. It looks as if …”
 
