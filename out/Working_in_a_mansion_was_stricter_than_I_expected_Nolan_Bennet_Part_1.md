@@ -58,8 +58,6 @@ Ah, I see what he meant. “Rules won’t let you?”
 
 He gave the most satisfied expression I had ever seen, accompanied by a gentle slap on the shoulder.
 
-&#x200B;
-
 “There’s another reason. The pay is good here, remember?”
 
 I was skeptical. Would he really endanger his life for that amount of money?
