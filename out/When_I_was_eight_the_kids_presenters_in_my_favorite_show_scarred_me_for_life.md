@@ -102,7 +102,13 @@ A chorus of laughter followed, the sound of teeth gnashing together. I couldn't 
 
 When I did, poking my head through the gap, I glimpsed something bright red on the carpeted floor. It looked like one of them had spilled a drink. Still though, I was so excited to introduce myself. 
 
-I readied myself, pulling my ponytail from my hood and brushing down my sweater. But the red was moving, I noticed, thick red pooling across the carpet. I looked closer, and there was someone curled up on the floor. *Sleeping, maybe?* Maybe their show was tiring. What I did notice was a crown of flowers adorning their hair. The flowers were pretty, wild roses and even mushrooms tangled into an entanglement of vine.
+I readied myself, pulling my ponytail from my hood and brushing down my sweater. But the red was moving, I noticed, thick red pooling across the carpet. I looked closer, and there was someone curled up on the floor. 
+
+*Sleeping, maybe?* 
+
+Maybe their show was tiring.
+
+What I did notice was a crown of flowers adorning their hair. The flowers were pretty, wild roses and even mushrooms tangled into an entanglement of vine.
 
 “Fuck.” Phoebe surprised me by saying a bad word. Her mouth sounded like it was full. I could see her sparkly heels. “He's bleeding all over my new shoes!”
 
@@ -130,19 +136,23 @@ Two.
 
 Mum would come get me. I reached into my pocket, but my hands were shaking too much. 
 
-*Do you guys smell that?”*
+*"Do you guys smell that?”*
 
 Cora’s voice sent me into a run, the others murmuring in agreement.
 
-*It's a child.”*
+*"It's a child.”*
 
 My mouth opened in an attempt to call for Mum, but my feet tangled and I tripped. 
 
 “Hey, kid.”
 
-The familiar voice forced me back kbpg trembling feet. I took two steps back, and remembering what was *behind* me, I came to an abrupt halt, panting into my hand. I couldn't breathe. The lights were too bright, and my breath smelled like barf. In front of me, bathed in top-bright light, was my favorite member Nicholas. Initially, Nicholas looked like he always did on Dazzle, and on stage. 
+The familiar voice forced me back to my trembling feet. 
 
-He was still in his costume. The sparkly purple looked exactly the Nicholase as it did thirty minutes ago. There was no red, no *chicken* dripping from his chin. But the more my eyes adjusted to the light, there were small things that jumped out at me. The teasing smile I thought I knew was curled, eyes narrowed, raking me up and down. Slowly, the boy cocked his head. “You look lost, kid.” He started towards me in a saunter. “Do you mind helping me out?” His head stayed cocked at an unnatural angle. “I haven't eaten since this morning. Do you have, like, a protein bar or something?”
+I took two steps back, and remembering what was *behind* me, I came to an abrupt halt, panting into my hand. I couldn't breathe. The lights were blinding, and my breath smelled like barf. In front of me, bathed in too-bright light, was my favorite member Nicholas. Initially, Nicholas looked like he always did on Dazzle, and on stage. 
+
+He was still in his costume. The sparkly purple looked exactly the same as it did thirty minutes ago. There was no red, no *chicken* dripping from his chin. 
+
+But the more my eyes adjusted to the light, there were small things that jumped out at me. The teasing smile I thought I knew was curled, eyes narrowed, raking me up and down. Slowly, the boy cocked his head. “You look lost, kid.” He started towards me in a saunter. “Do you mind helping me out?” His head stayed cocked at an unnatural angle. “I haven't eaten since this morning. Do you have, like, a protein bar or something?”
 
 I shook my head, but he kept coming, quickening his pace. 
 
@@ -266,13 +276,15 @@ Where was Nicholas?
 
 Falling through the door, Cora caught up to me, her fingers entangling in my hair. 
 
-She yanked me back, her hands coming to wrap around my throat, fingers my flesh. Before she howled, falling back. I didn't see what had hit her. But I did see Felix and Phoebe quicken their pace toward me. Their faces were no longer human, contorting into those of monsters. Phoebe's teeth were on full show. I slammed the door on them, pressing myself against it. The door rattled under my weight, and I slammed my hand over my mouth to muffle my screams. “Go.” Nicholas’s voice was behind the door. I could see the exit ahead. 
+She yanked me back, her hands coming to wrap around my throat, fingers stabbing into my flesh. Before she howled, falling back. I didn't see what had hit her. But I did see Felix and Phoebe quicken their pace toward me. Their faces were no longer human, contorting into those of monsters. 
+
+Phoebe's teeth were on full show. I slammed the door on them, pressing myself against it. The door rattled under my weight, and I slammed my hand over my mouth to muffle my screams. “Go.” Nicholas’s voice was behind the door. I could see the exit ahead. 
 
 My chest ached. 
 
 Mum. 
 
-I flinched when Nicholas’s weight slammed into rough wood. 
+I flinched when the boy's weight slammed into rough wood. 
 
 “Did you hear me?” He yelled. “Fucking run!”
 
@@ -306,7 +318,7 @@ My hands were clean.
 
 The security guard was already speaking into his talkie, and I was looking around in confusion. The posters of all five members decorating the walls were gone. The plush carpet leading into the stage, was gone. “I've got a hysterical kid with me in Zone 4. I need backup. Right now.” His arms were coming down on my shoulders, and I was hyperventilating. I didn't remember this hallway we were in. I didn't remember the yellow tape everywhere, or the mangled metal doors. Half an hour earlier, I had been inside a venue watching my favourite show. Now, I didn't know where I was. 
 
-I didn't know where my Mom was. 
+I didn't know where my Mum was. 
 
 I looked for anything familiar, a stage, or any Dazzle fans. But there was nothing. 
 
@@ -352,7 +364,7 @@ My fingers grasped at strands of my hair.
 
 Before they caught me.
 
-“We went to see them perform.” I told Mum. Then when more police came to our door, I told them the Nicholase thing. 
+“We went to see them perform.” I told Mum. Then when more police came to our door, I told them the same thing. 
 
 I told the woman with the weird smelling office who said she was going to scan my brain that Dazzle! were still out there. She just gave me a sympathetic smile and a hard candy. 
 
