@@ -242,7 +242,7 @@ A few minutes later, I saw a half-dressed man and woman run out the front door. 
   
 
   
-I started the car and drove away quickly after seeing the bodies collapse on the lawn. The figures standing over the limb bodies knelt down and stabbed them over and over, dozens of times. That was the last thing I saw as I turned down off the street, hyperventilating, a rising sense of panic overtaking my mind.
+I started the car and drove away quickly after seeing the bodies collapse on the lawn. The figures standing over the limp bodies knelt down and stabbed them over and over, dozens of times. That was the last thing I saw as I turned down off the street, hyperventilating, a rising sense of panic overtaking my mind.
   
 
   
