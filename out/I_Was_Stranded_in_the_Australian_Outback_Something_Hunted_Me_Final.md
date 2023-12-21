@@ -12,7 +12,7 @@ It's early morning, the first light of dawn casting a soft glow on the surroundi
 
 But a new panic sets in as I quickly realise that Jirra is nowhere to be seen. His sleeping spot is empty, the ground still bearing the imprint of his body. My eyes dart around the campsite, searching for any sign of him, any clue to where he might have gone.
 
-Jirra's belongings are still here, just like my dad's were that morning when I discovered he was gone. My heart sinks, and a wave of desolation washes over me. Did Jirra, too, choose to walk away? Why would he leave without a word, especially after everything we've been through together?
+His belongings are still here, just like my dad's were that morning when I discovered he was gone. My heart sinks, and a wave of desolation washes over me. Did Jirra, too, choose to walk away? Why would he leave without a word, especially after everything we've been through together?
 
 My mind races through possibilities, each more disheartening than the last. Did he sense some danger and go to investigate? Or did he simply decide that our paths no longer aligned, leaving me to face the wilderness alone?
 
