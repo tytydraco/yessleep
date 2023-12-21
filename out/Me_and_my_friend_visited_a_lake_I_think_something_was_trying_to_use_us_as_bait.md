@@ -120,9 +120,7 @@ Bubbles carrying the last remaining breath of the beast popped along the surface
   
 With precision matching that of a doctor's, the wire unravelled itself from the wooden vessel, retracting back into the foggy depths. Along with the creature's cries, the bodies littering the water began to disappear as well, along with the mist. I looked up to see Caitlyn's face regain an ounce of life, bright eyes wet with unshed tears as her lips moved. A smile broke out, and I could only guess the relief I was experiencing was reflected in her face.  
   
-My head lolled to the side as my eyes met the water. Unlike mere seconds ago, it looked so deep, the water a murky abyss. The shallow silhouette of a massive figure loomed beneath the surface, but by the time I noticed it leaving, my eyelids could no longer hold, and darkness enveloped my vision.  
-  
-"Boo!" She yelled out, gripping my shoulders. I let loose a high-pitched scream unfitting of someone my size, my muscles spasming and letting go of the fishing rod. The kayak we were in shook, letting in a small amount of water that drenched my already wet feet. I then turned around to see her face, a mixture of smugness mixed with amusement. "Got you." Caitlyn cooed, sticking her tongue out.ond what the cloth could hold.  
+My head lolled to the side as my eyes met the water. Unlike mere seconds ago, it looked so deep, the water a murky abyss. The shallow silhouette of a massive figure loomed beneath the surface, but by the time I noticed it leaving, my eyelids could no longer hold, and darkness enveloped my vision.
   
 Apparently, according to Caitlyn, the boat was but a few minutes away from the shore. She was able to paddle there herself, where she found her parents. She had made the excuse that I managed to cut my hand on a broken part of the frame and, though that was far from the best excuse she could've offered, my family was much more keen on worrying about my state rather than the cause. While the events were still playing in my mind, I eventually found myself forgetting more and more about the mist, that creature, and the wire which ensnared it.  
   
