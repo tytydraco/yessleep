@@ -446,7 +446,11 @@ I definitely shut it.
 
 Standing in front of my bathroom mirror, there it was. 
 
-My tribute crown, drowned in blood, sitting on my head, rivulets of red beading down my face. 
+My tribute crown, drowned in blood, sitting on my head, rivulets of red beading down my face. Looking at my arms, yellowish bruises marked my skin. 
+
+I could see exactly where they had grabbed me, clawing at my flesh.
+
+Playing with me. 
 
 They've come for me again. 
 
