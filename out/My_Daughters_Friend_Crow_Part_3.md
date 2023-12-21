@@ -379,3 +379,7 @@ It was Nada who started the conversation that night. But after a few hours, we a
 We need to find out what Crow is and how to stop Goodall. This kind of shit can’t keep happening. And whether it kills us or not, we have to be the ones to end this. 
 
 But I’m hoping to have a little help from you all, so if you have any clue what Crow could be, or any ideas on things we could do, tell me in the comments. I don’t want to be in this alone.
+
+Link to part 4
+
+https://www.reddit.com/r/nosleep/s/unafrc29gI
