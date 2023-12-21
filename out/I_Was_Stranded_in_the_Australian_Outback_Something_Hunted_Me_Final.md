@@ -66,8 +66,6 @@ Jirra's steps grow heavier, laden with an unspeakable pain. He finally falls to 
 
 His anguished prayers, spoken in his native tongue, fill the air – a haunting melody of sorrow and despair. His grief is a tangible force, a raw, open wound that transcends language and culture.
 
-Standing beside him, I feel a profound sense of empathy mixed with my own sense of powerlessness.
-
 I recall the day I lost my dad, the confusion and heartache that followed. But Jirra's loss is on a scale I can't even begin to comprehend. He's not just mourning a single person; he's grieving for his entire world, a community and way of life that has been torn away from him in the most brutal manner.
 
 Gently, I kneel beside him, offering my presence as a silent source of support. I place a tentative hand on his shoulder, unsure if my touch is welcome but feeling the need to bridge the gap of isolation that surrounds him.
@@ -272,7 +270,7 @@ The survivors, having lived in isolation, were suddenly thrust into a reality fa
 
 The government and various cultural preservation organisations stepped in, offering support and resources to facilitate their integration.
 
-Anthropologists and other researchers worked closely with Jirra and his people to learn more about their culture and background.
+Researchers worked closely with Jirra and his people to learn more about their culture and background.
 
 It was later discovered that this group belongs to a previously unknown Aboriginal clan, which call themselves the Kaelani.
 
