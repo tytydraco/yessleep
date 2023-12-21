@@ -6,9 +6,9 @@ The first major change that our family has had is that our daughter is in her fi
 
 At first, our daughter was devastated that she would be changing schools and losing friendships. However, a few of the girls in her new class went out of their way to befriend her, and after a few days she went back to her happy, normal self. A change for me in all of this is that I work from home, and have been used to having my wife around a fair amount. The school is a half hour commute each way and many times she works late to do grading or meeting with the other teachers. It's been lonely, not gonna lie, and I guess that leads me to change number 2.
 
-Some background here before I get into it - I'm a cheater. Yes, I know I'm an awful person. It was especially bad early in our marriage (we've been married 11 years). I have deep-seated addiction issues, low self-esteem, low confidence, some abuse in my early days, and for many years found my value in whether or not women wanted to sleep with me. I know all this because I went to counseling for many years.
+Some background here before I get into it - I'm a cheater. Yes, I know I'm an awful person. It was especially bad early in our marriage (we've been married 11 years). I have deep-seated addiction issues, low self-esteem, low confidence, some abuse in my early days, and for many years found my value in whether or not women wanted to sleep with me. I know all this because I have countless sessions of therapy and counseling under my belt.
 
-I know I said earlier our family has been a happy, cohesive unit but I guess that's not always true. My wife did find out about the affairs. She found out about one, I came clean about everything, she took some time to process and eventually she (and her parents) forgave me. Therapy and counseling helped, and I thought I was in the clear.
+I know I said earlier our family has been a happy, cohesive unit but I guess that's not always true. My wife did find out about the affairs. She found out about one, I came clean about everything, she took some time to process and eventually she (and her parents) forgave me. The therapy and counseling that I enrolled in seemed to help, and I thought I was in the clear.
 
 But then I met this girl and everything changed.
 
