@@ -64,6 +64,13 @@ I stared at the stab wound near my stomach as it stitched itself back together.
 
 Obviously, I made it out alive, but not everyone did. I’ll update more [when I’m feeling up to it](https://www.facebook.com/P-F-McGrail-181784199029462/).
 
+--------
+
+[More](https://redd.it/18nmge9)
+
+
+-----------
+
 [BD](https://www.reddit.com/r/ByfelsDisciple/)
 
 
