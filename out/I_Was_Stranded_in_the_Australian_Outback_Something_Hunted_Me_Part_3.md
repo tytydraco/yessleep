@@ -88,7 +88,7 @@ He doesn't react immediately, his expression unreadable. Then, he sighs, a sound
 
 He looks at me, his eyes reflecting the flickering flames, a mix of emotions playing across his features. “I hope he makes her happy,” he adds, his voice tinged with a bittersweet edge. His heart is so torn that it breaks mine.
 
-I rush in, the words tumbling out in a torrent. "I can't stand him! Mark, he's just..." I struggle to find the right words to express how much I loathe my future step-father, but they all fall short. "He's not you," I finish lamely, feeling a profound sadness.
+I rush in, the words tumbling out in a torrent. "I can't stand him! Mark, he's a fucking arsehole!" I struggle to find the right words to express how much I loathe my future step-father, but they all fall short. "He's just... He's not you," I finish lamely, feeling a profound sadness.
 
 "You know, Wren," he says, using his special nickname for me, "sometimes people come into our lives, and we don't get to choose. What matters is how we respond to them."
 
