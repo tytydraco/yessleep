@@ -166,6 +166,8 @@ Taking a deep breath, I step back, gathering every ounce of courage and resolve 
 
 With a final, defiant glance at the monster, I sprint off the cliff's edge…
 
+[Part 4](https://www.reddit.com/r/nosleep/comments/18nfs2s/i_was_stranded_in_the_australian_outback/)
+
 [X](https://www.reddit.com/r/PageTurner627Horror/)
 
 [Y](https://www.youtube.com/watch?v=MGd1F6Ay8ho)

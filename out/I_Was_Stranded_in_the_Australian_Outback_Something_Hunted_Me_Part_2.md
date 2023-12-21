@@ -180,6 +180,8 @@ He taps the line repeatedly, his eyes meeting mine with a piercing intensity. It
 
 [Part 3](https://www.reddit.com/r/nosleep/comments/18iapnx/i_was_stranded_in_the_australian_outback/)
 
+[Part 4](https://www.reddit.com/r/nosleep/comments/18nfs2s/i_was_stranded_in_the_australian_outback/)
+
 [X](https://www.reddit.com/r/PageTurner627Horror/)
 
 [Y](https://www.youtube.com/watch?v=MGd1F6Ay8ho)

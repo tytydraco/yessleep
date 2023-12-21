@@ -286,7 +286,7 @@ In the aftermath of the incident, Karijini National Park became the centre of a 
 
 During this time, I was subjected to a series of extensive interviews. The authorities were particularly interested in every detail of my encounter with the Bunyip, how Jirra and I managed to survive, and ultimately how we defeated it.
 
-I wasn’t privy to the details of their operation or what they discovered in the depths of the park. There were whispers and rumours, of course – talk of strange findings, mysterious artefacts, and the remnants of the Bunyip. But nothing was confirmed publicly.
+I wasn’t privy to the details of their operation or what they discovered in the depths of the park. There were whispers and rumours, of course – talk of strange findings, mysterious artefacts, and entities other than the Bunyip. But nothing was confirmed publicly.
 
 Eventually, the park was deemed safe, and the restrictions were lifted.
 
