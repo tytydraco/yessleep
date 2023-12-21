@@ -200,13 +200,13 @@ The Bunyip doesn't notice me regaining my footing.My eyes dart around, desperate
 
 In that moment, time seems to slow down. I can hear my heart pounding in my ears, the sound of my breath ragged and quick. I think of my father, of the lessons he taught me about facing fear head-on. Channelling every ounce of strength and focus I possess, I hurl the boomerang with all my might.
 
-The boomerang cuts through the air, whistling as it arcs towards its target. My heart races as it nears the stalactite, the moment stretching out, each second a lifetime.
+The boomerang cuts through the air, whistling as it arcs towards its target. My heart races as it nears its target, the moment stretching out, each second a lifetime.
 
 With a resounding crack, the boomerang strikes the stalactite. The impact sends a shudder through the cavern, a vibration that resonates through the very bones of the earth. The stone, already teetering on the edge of stability, begins to break free from the ceiling.
 
 The Bunyip, sensing the danger, looks up just as the massive formation detaches, plummeting towards it with the force of gravity. There's no time for it to react, no time to escape. The stalactite crashes down upon the creature with a thunderous roar, engulfing it in a cloud of dust and debris.
 
-The jagged edges of the fallen stalactite pierce through the Bunyip's tough, scaly skin. The creature lets out an earth-shattering roar, a sound filled with pain and fury. It writhes violently, its massive body struggling under the weight of the stone protruding from it, exposing its soft underbelly in a desperate attempt to free itself.
+The jagged shards of stone pierce through the Bunyip's tough, scaly skin. The creature lets out an earth-shattering roar, a sound filled with pain and fury. It writhes violently, its massive body struggling under the weight of the stone protruding from it, exposing its soft underbelly in a desperate attempt to free itself.
 
 Jirra, seizing the moment, retrieves his spear from where it had fallen. He sets it in a spear thrower, a simple but effective tool that amplifies the force and distance of his throw.
 
@@ -222,7 +222,7 @@ The illusion is so convincing, so heartbreakingly real, that for a moment, I'm f
 
 Tears well up in my eyes, a mix of grief and anger. This creature, this abomination, dares to use my father's voice, to prey on my deepest sorrows and fears.
 
-"You're not him," I say, my voice trembling but resolute. "He's gone. You can't use his memory against me."
+"You're not him," I say. "He's gone. You can't use his memory against me."
 
 The creature, sensing my wavering, continues in my father's voice. "Willow, it's me. I'm here. I've always been here for you."
 

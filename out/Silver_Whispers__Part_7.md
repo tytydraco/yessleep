@@ -251,3 +251,7 @@ I came to you to ask forgiveness. Not just for what I did with Sophie and Artani
 &#x200B;
 
 I kept my head down to the floor and, finally, bursted into tears. I felt no shame for crying in front of the ladies now, it felt liberating. Mrs Marinescu came and caressed the top of my head. Sophie came soon after next to me, then I dared to look into her eyes. I feared she would look harsh at me. But she was not looking too harsh, just a little abashed. Artanis cried a little, then started smiling and giggling at me. How could I ever refused this great gift, this miracle from The Lord? I smiled back at Artanis, then she reached her little hand and touched the top of my head. My heart was engulfed in a sweet peace.
+
+&#x200B;
+
+Update: [Part 8](https://www.reddit.com/r/nosleep/comments/18nhf8g/silver_whispers_part_8/)
