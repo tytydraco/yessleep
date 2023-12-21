@@ -194,7 +194,9 @@ But it's not enough. The creature, though wounded, is still a formidable force, 
 
 Holding the boomerang in my hands, I feel its weight and balance in my hands. It's nothing like the toy boomerangs I've thrown before; this is a weapon honed for survival.
 
-The Bunyip doesn't notice me regaining my footing.My eyes dart around, desperately seeking an advantage. Then I see it – a massive, jagged stalactite hanging precariously above where the Bunyip stands. It's a long shot, but it's all we have.
+The Bunyip doesn't notice me regaining my footing.
+
+My eyes dart around, desperately seeking an advantage. Then I see it – a massive, jagged stalactite hanging precariously above where the Bunyip stands. It's a long shot, but it's all we have.
 
 In that moment, time seems to slow down. I can hear my heart pounding in my ears, the sound of my breath ragged and quick. I think of my father, of the lessons he taught me about facing fear head-on. Channelling every ounce of strength and focus I possess, I hurl the boomerang with all my might.
 
