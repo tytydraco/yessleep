@@ -22,7 +22,7 @@ I had never met this woman in my life.
 
 “You must be confused,” I said. 
 
-Joan tilted her head to her shoulder and rubbed the back of her fingers through my hair. 
+She tilted her head to her shoulder and rubbed the back of her fingers through my hair. 
 
 “Oh dear, I think you’re the one who is a tad confused. You’ve been in a nasty accident,” she said, the pleasantry of her words undercut by the chainsaw of her voice. 
 
@@ -127,7 +127,8 @@ David got up and stormed over to the woman. He shook his head. It looked like he
 
 But then he crumpled into her embrace. His shoulders shuddered as he let out bellowing cries. She rubbed his back gently, eyes firmly fixed on me. A gentle smile on her face. 
 
-I ripped off the oxygen mask, trying with all my might to scream, but only rasping gargles came out.   
+I ripped off the oxygen mask, trying with all my might to scream, but only rasping gargles came out.
+
 David ran over, drying his face with his shirt. He looked at me with genuine concern, a deep pain, as he held onto my shoulders firmly.
 
  “Shhh. It’s okay. You’re here now,” he said. 
