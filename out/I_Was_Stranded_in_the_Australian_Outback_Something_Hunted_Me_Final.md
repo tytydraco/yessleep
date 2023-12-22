@@ -144,7 +144,7 @@ Jirra quickly assesses the situation and instructs the survivors to head down on
 
 He then turns to me, his expression resolute. He points down the tunnel the survivors are taking, signalling for me to follow them.
 
-I nod in understanding, ready to follow the survivors to ensure their safety. But as I turn to leave, I notice Jirra isn’t joining us. Instead, he heads down another tunnel, banging his spear loudly against the walls.
+I nod in understanding, ready to follow the survivors to ensure their safety. But as I turn to leave, I notice Jirra isn’t joining us. Instead, he heads down the other tunnel, banging his spear loudly against the walls.
 
 The understanding of what he's doing hits me instantly. He's acting as a decoy, drawing the Bunyip's attention away from the group to give them a chance to escape.
 
