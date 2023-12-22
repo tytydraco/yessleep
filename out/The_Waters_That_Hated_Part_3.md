@@ -134,4 +134,4 @@ Suddenly, I saw the tarp move. At first, I thought it was just the wind, but the
 
 I turned around and made my way as inconspicuously as possible away from the docks and the crates, away from the sailors and their musty, stinking thing they had foolishly pulled from the abyss. I didn't want to know how the situation would unfold, but the panicked, piercing scream and loud yelling behind me hastened my steps until I couldn't smell the stench and couldn't hear the roaring sea anymore...
 
-*\[Next part soon\]*
+[\[Part 4\]](https://www.reddit.com/r/nosleep/comments/18o1nv1/the_waters_that_hated_part_4/)
