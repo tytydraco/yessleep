@@ -8,7 +8,7 @@ Raven wanted me to come with her to the toy store to find a present for her youn
 
 We went to the new toy store and started looking around. Raven told me that Halle really wanted more dolls so that might be our best bet. I was surprised at how many dolls they had. So many in different rows and all kinds of stuff that came with them too. I guess that’s why this store was so popular despite not being around long.
 
-Even though there were a lot of dolls, I spotted one that took my interest in particular. I
+Even though there were a lot of dolls, I spotted one that took my interest in particular. 
 
 It was a doll in a black dress that looked to be holding some kind of sword. She didn’t have a smile on her face like a lot of them tend to do, it was more like a smirk. 
 
@@ -91,3 +91,5 @@ I looked at where he was cut and he wasn’t bleeding anymore. In fact there was
 I looked at his emotionless face. Still in shock at the black eyes.
 
 But I swear, I could still hear him calling for help.
+
+Part 2: https://www.reddit.com/r/nosleep/comments/18oewoh/cut_of_the_toys_part_2/
