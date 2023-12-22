@@ -1,0 +1,205 @@
+I gripped the fishing rod with laser focus, the lure bopping up and down as if restless. I narrowed my eyes and squinted against the soft summer breeze that blew through the forest clearing, seeking movement in the oddly still lake water. It was only a matter of time before one fish or another decided that this new shiny object floating just under the surface could be dinner, and the familiar plink of the lure sinking emanated from the depths.
+
+  
+The sun hung low on the horizon, teetering on the edge of day and night; its light glistened off the rippling waves like streaks of fire. The wind had picked up a little, causing the water's surface to ripple slightly more than it would have at this hour. Otherwise, it was hushed. I suppose it was the lack of noise that was to blame for Caitlyn getting the genius idea of scaring me.
+
+  
+"Boo!" She yelled out, gripping my shoulders. I let loose a high-pitched scream unfitting of someone my size, my muscles spasming and letting go of the fishing rod. The kayak we were in shook, letting in a small amount of water that made my already wet feet drenched. I then turned around to see her face, a mixture of smugness mixed with amusement. "Got you." Caitlyn cooed, sticking her tongue out.
+
+  
+"What the hell was that for? I was just about to catch something!" I protested, rubbing my sore shoulder. She laughed loudly, clapping her hands together.
+
+  
+"Oh man, your reactions are priceless," She finally breathed once her fit of giggles met their ends. "Sorry, but after an hour of watching you glare at the water like it owed you something, I kind of got bored."
+
+  
+"Shut up, Caitlyn," Though I tried to appear angry, I couldn't stop the smirk that was so stubbornly insisting on spreading across my lips. Caitlyn noticed this immediately, and her smile grew wider. "If I hadn't known any better, I'd have assumed you wanted to kill me. But considering I’m the one doing most of the work rowing, and the fact you swim as good as my dog, you’d probably just starve if I wasn’t…" My joke trailed to an end as I saw her attention gradually switch to beyond me, and the sudden lack of noise prompted her to raise a pointed finger facing the lake.
+
+  
+"Uh, your fishing rod is kinda drifting away." Instantly, I turned toward the front of the kayak and saw that, indeed, the rod was at least fifteen feet behind us and heading further down the shoreline.
+
+  
+"Great, now we have to paddle back!" I groaned, picking up the paddle and beginning to row. Caitlyn let out a quick apology before following suit. We pushed hard against the waves, each stroke taking us closer and closer to the fishing rod. My arms began to ache from the effort, but with every passing minute, our destination drew nearer.
+
+  
+"Aaaand," My voice trailed as the rod was just barely out of arm's reach. "Gotcha!" I snatched it off the water and raised it in the air victoriously, only for my victory to be sullied by Caitlyn's mocking tone.
+
+  
+"You sure showed the water! I'm so proud!" She placed a hand over her heart and fluttered her eyelashes. All it took to get the smug expression off of her face was dipping the paddle into the water and splashing it onto her shirt. "Hey! It's going to take me hours to dry this out, you know!"
+
+  
+"Then you better get back to paddling," I snarked, dipping the lure into the water again. "Unless you actually want to swim back to shore. Then we can see how far those doggy paddles will get you." I imitated the paddling motion and laughed. She didn't share in the joke. I thought either she didn't find it funny or she was upset, but in reality, she was simply looking beyond me, her interest in our banter all but faded. Her brown eyes carefully studied the shore behind me, confusion and worry making rounds on her face.
+
+  
+"Where's the shore?" She asked, her voice unintentionally coming out in a quivering. I glanced over my shoulder once more and realized that the sight of our family's tents was no longer visible. Not even the smoke of the barbeque my dad had cooked earlier could be seen, as a heavy mist found itself blanketing the landscape. Nothing aside from a few meters in front of us remained visible, the once brilliant rays of gold that struck the vibrant hues of blue and green unable to bypass the haze. Although I opened my mouth to brush aside her worries or take jabs at them, I found myself unable to dampen my mood.
+
+  
+It wasn't just the lack of vision that made my stomach churn, it was the fact neither of us spotted the mist until now. Had it been coming for hours without us knowing, or did the past few minutes really give it enough time to materialize? As I thought, it dawned on me just how quiet it was. Caitlyn, who never missed a second of eye contact, waited patiently for my answer.
+
+  
+"You're right," I muttered, trying to see past the fog. A smile broke across my face as genuine worry decayed into a sense of excitement. "Now that we're stranded, I guess we'll have to decide what and whose limbs we have to eat first. I nominate me since there's at least some meat on my bones." Nothing. Her gaze is unflinching, Caitlyn didn't so much as react to my quips. Only when her eyes finally peeled off of the water and met mine did a smile crack through her facade.
+
+  
+"Hm?" She asked, as though I had just woken her from a nap. "Did you say something?"
+
+  
+"I... Ugh, no, nothing. Repeating a joke twice feels pathetic," I switched the paddle in my hand for a fishing rod, casting the lure into the water. "Well, the fog'll wear off in a bit. We shouldn't paddle blindly into the fog since, y'know, that'd be a dumb move and all. In the meantime, I'll show you who exactly is the more useful of us in a survival scenario."
+
+  
+"Oh, that would be you, no doubt," She chimed, and though her voice still carried an edge of fear, her mood had been somewhat lifted. "After all, if I didn't have you failing to catch anything, I'd die of boredom."
+
+  
+"Gee thanks," I deadpanned. "That'll be great for a resume. 'Entertainer for stuck-up Country girls who think-' Ow, hey! No kicking!"
+
+  
+"Oh, sorry. Must have slipped," Her tone was innocent, but the mischievous glint in her eyes told a different story. "I'll be more careful next time. Assuming I don't accidentally push you into the water." Our shared laughter descended into silence.
+
+  
+And then an hour passed. The first half was mostly spent waiting for the fish to bite, which didn't happen, periodically interrupted by Caitlyn's dry remarks. But once we exhausted all jokes and puns, she began to fidget. Her fingers tapped at the wooden frame, and she shifted her weight every few seconds. Though I noticed, I dared not make any jokes about her inability to sit still. After all, the wait was starting to get to me.
+
+  
+"We should start rowing," Her voice was a meek shell of the bravado she usually held. "I mean, it's getting darker, and it's probably not good for us to stay out here much longer. The mist isn't going away anytime soon. Maybe if we paddle back the way we came, we can reach land." I sighed, looking up from the lure, which had sat as still as the moment I threw it in. Because our boat hadn't moved an inch since we stopped, and I already knew that the shore was generally in the direction behind me, there really wasn't a reason to continue waiting.
+
+  
+"Alright, fine. But I swear if we get lost, I'll make sure you..." Though my words were intended to be a joke, the sudden mention of us getting lost caused her eyes to widen, the whites taking over her brown irises. "Er, hey, that was a joke. We're obviously not getting lost. The shore is at most a half hour away."
+
+  
+"Yeah, of course," She nodded quickly, her eyes not leaving mine. "Let's just go, please." I complied, putting the rod down. Picking up my paddle, I began to row in the direction we last saw the shore, Caitlyn mimicking my movements on the opposite side.
+
+  
+The water became unnaturally still, even when our paddles broke the surface and passed through it. The only thing that moved was the ripples caused by our rowing. No sign of life, not birds nor fish, was evident, leaving us isolated. Though the lake spanned for kilometres on end, I found myself claustrophobic, the thick, impassable mist seemingly closing in on us. As we pushed on, the fog became denser, making it impossible to discern anything beyond a few yards. We should've reached land at this point, but with the mist and the fact the shore was notoriously uneven, finding the right angle to look for land was nothing more than a gamble, a shot in the dark.
+
+  
+"It's my fault," My mind, enraptured by the mist, seemed to forget about Caitlyn's presence. Her trembling voice, as soft as it was, caused me to flinch. "We wouldn't be out here if it wasn't for me. If I didn't scare you, we wouldn't have had to row out so far. Stupid, stupid-"
+
+  
+"Hey, hey, Caitlyn," I tried my best to balance my voice between stern and calm, but even I could feel the anxiety that threatened to creep in. "There's no reason for you to beat yourself up about this. Nothing bad happened to either of us yet, and it's gonna stay that way. It's just a little bit of fog. Worst case scenario, we get back late and our parents get mad, okay? Say it with me; we're going to make it out alive."
+
+  
+"W-we're going to make it out alive." She croaked out, her voice quivering. Then, a small smirk made its way onto her face as she wiped her tears. "You're right, I'm just overexaggerating. There's no need to be so dramatic, right?"
+
+  
+That's when I noticed that the paddle Caitlyn was holding onto had managed to slip out of the kayak, most likely as a result of Caitlyn using both her hands to dry her eyes. My heart raced as I thought we would have to reenact the scenario with the fishing rod. However... The paddle didn't move. Though we had been rowing for some time now, gaining moderate speed, the paddle was floating idly. The mist, the paddles, the complete lack of movement... Something felt horribly wrong.
+
+  
+"What the hell?" I whispered, trying to test out this theory by rowing the boat with my paddle. As I thought, the kayak remained at arm's length within the paddle, stationary. "Caitlyn, can you check the front? The water should be moving, right?" She looked over her shoulder and then turned back.
+
+  
+"There's nothing, not even a ripple," Her voice was hollow, and she gripped her knees tight. "What's happening, James? Why isn't it moving? A-are we going to have to swim back to shore?"
+
+  
+"No, we're not," I replied firmly, trying to push aside the fear and keep a brave face. "We'll freeze if we do. Look, maybe there's something here that's keeping the boats from moving." The idea didn't seem to make any sense; the only thing that could completely stop the boat was if something was holding it back. However, I needed to keep Caitlyn from freaking out if we were to make it out.
+
+  
+"Something is pulling the boat down, maybe. Or holding it back." I continued, trying to think of any other logical explanation.
+
+  
+"So we're trapped?" Caitlyn whimpered, tears threatening to spill from her eyes. She poked her head over the wooden frame, eyes narrowed both to hold back her tears and attempt to see through the mist. "I-I really don't see anything, James. There's nothing here that should be keeping us from moving."
+
+  
+"Maybe there's a strong current." I paused for a moment, realizing that none of those reasons didn't make any sense. Caitlyn was right; nothing about this made any sense, and the longer I tried to think of a logical explanation, the more my stomach churned. In a last-ditch effort to prove my theory, I shoved the paddle into the water. The wooden oar searched the murky depths, and yet it never collided with anything. Even as it raked the bottom, an ear-grating screech that forced Caitlyn to close her ears, nothing impeded its progress.
+
+  
+"We have to get out," Caitlyn pleaded, her body shivering. "James, please. We need to swim, now. Whatever is happening here is dangerous. I don't like it."
+
+  
+"What difference will it make if we swim than if we paddle? I know you're nervous, but we can't just start-" My words died out in my throat as the familiar sound of something breaching the surface emanated from beyond the fog, both of our heads bolting to the direction it came from. Nothing. Before we could even begin to process the noise, another plop followed, and another, and another, and soon, they became a continuous rhythm.
+
+  
+Then the first fish appeared. It was a carp, mouth agape, and hollow eyes that stared vacantly into the void. The water was dyed crimson, blood leaking from an invisible wound. More and more bloated carcasses rose to the surface, belly up, and more blood than water could be seen. I couldn't tell where the lake ended and the red began as the sickening scent of rot and iron filled the iron. Caitlyn's repeated cries of my name went unheard, my eyes glued to the cadaver bopping uselessly up and down. Since when did the lake have carp?
+
+  
+"I-it's okay, Caitlyn. Don't worry." I replied, words coming out in pathetic, shallow breaths. "This is just nature. I'm sure, uh..." My brain frantically searched for an explanation, and when one didn't make it, I went back to the only one that seemed reasonable. "...I'm sure something is causing the fish to float to the surface. A lot of fish die in these sorts of conditions, so there's probably a science to it. Don't worry, we're gonna make it back to the camp, find out that this sort of thing is completely normal, and this'll just be a scary story we can tell to people." Caitlyn's face didn't change, though she did manage a tiny nod.
+
+  
+"Yeah," She breathed, her lack of enthusiasm betraying her words. "I think you're..." Her tiny voice ended abruptly as her eyes, previously glued to my face, drifted up and behind my head. I turned around, trying to find the source of her gaze. The moment I did, a flash of light aimed directly at my eyeballs forced my eyelids closed and a string of curse words to fall out of my lips.
+
+  
+As my vision adjusted, I was finally able to make out the source. A wire, impossibly thin, ran from the back of the boat to the expanses of the lake, disappearing along with everything into the haze. A glare, reflected on the fine, silver string, was the cause of the blinding light, the particles of water reflecting whatever remained of the sun's rays into my retinas. Though the sight would have brought confusion in many situations, the only thing filling my chest was relief; This was the cause of our boat's halt.
+
+  
+"Should I... Try to pull it?" Though I asked, my hand had already reached out, wrapping around the wire. It was warm, a sharp contrast to the frigid waters, and the instant my finger made contact, the hairs on the back of my neck stood straight up. Enveloping the width of the string, I reeled my arm back and gave it a hard tug. The moment my hand began to move, however, a searing pain shot through my veins and a hideous darkness enveloped my eyes for a split second. Blood, along with a good chunk of my palm, landed into the already crimson water.
+
+  
+"Jesus Christ!" She cried, taking her jacket off and wrapping it tightly around my wrist, cutting off the blood flow. The massive gash finally stopped leaking, one final spurt of red coating her hands before stopping completely. Caitlyn's frantic eyes looked over me. "James, what the hell is going on?" It might have been the stinging pain making me more irritable, the nerves building up over the span of the evening, or something else entirely, but the next words that came out of my mouth weren't what I wanted.
+
+  
+"I don't fucking know!" I snapped, Caitlyn's sudden flinch causing the boat to shake. "Do you think we would still be here if I did?" The words hung in the air like an executioner's axe, a suffocating tension blanketing us. Another splash, which I assumed came from yet more lifeless fish, rang out. I buried my face into my hands before pulling them off, realizing I had coated my face in my own blood. I prepared to retract my words but before I could, another splash echoes. This time, it came from the same direction, and it was louder.
+
+  
+I assumed it might have been a coincidence, but as the speed faintly picked up, like a motorboat's engine gradually gaining power, my instincts yelled at me to peddle, jump, do anything so long as it meant getting away from that thing.
+
+  
+The sound got louder and louder until, from beyond the fog, a figure. Though this would have been a miracle not too long ago, now the sight of the silhouette did nothing to alleviate the dread building up in my stomach. In fact, it only served to make the nausea worse. Because, as its form became less and less obscure, clarity revealing its nature, I realized it was neither human nor animal.
+
+  
+It was hulking, abnormal lumps of flesh dotting its body like a waterlogged corpse. Yet, it was moving, swimming at an alarming rate despite its grotesque physique. Scales, some as big as a plate, others the size of my palm, adorned its skin-like armour. What I thought were eyes rested on the creature's face which, as it drew closer, revealed itself to be nostrils, seemingly the only sense it had. And the arms…
+
+  
+They weren't nearly as distorted or misshapen as the rest of the body, but that was exactly what caused the most concern. The two slender limbs stroked the water with terrifying grace, carrying it at speeds that should've been impossible considering its size. The water desperately parted to avoid its gargantuan form, creating a path that it followed. Its face, however, did not turn to watch its destination, for its nose led the way. The same one that had been following the scent of blood. My blood.
+
+  
+I looked back to notice Caitlyn's mouth was agape, her chest expanding as an inhale of air meant a shriek would certainly follow. My hand clasped over her mouth, her eyes meeting mine. I shook my head and her scream turned into a muffled whimper.
+
+  
+The creature was getting closer, the ripples that followed its path rocking the kayak, forcing us to hold the sides just to avoid being thrown overboard. I was half expecting it to tear through the wood and swallow us whole, but that wasn't the case. Instead, once it reached the red liquid flowing right in front of the boat, the creature paused, allowing us to take in its form. I knew it was large, but only now was the true size revealed. It was easily three times my height, towering over us like a human would an ant. A stench of death emanated from every vile porous opening that lined the decrepit beast, threatening to pull a cough from my lips. I managed to hold it back.
+
+  
+Caitlyn, however, did not.
+
+  
+She heaved and, despite my attempt at muffling the sound, the creature reacted instantly. Its head shot toward the noise, nostrils dilating, its breathing becoming heavier and faster. It sniffed the air, its entire body tensing, as if the smell alone sent its brain into a frenzy. Its head, easily the size of a bed, stretched forward, following the scent of blood with sloppy accuracy; the creature couldn't quite pinpoint the source, but that didn't matter, not when it was so close.
+
+  
+Touching the edge of the boat, it slowly started using it as leverage. Just the mere motion of pushing it down almost caused the entire kayak to flip. Slowly but surely, it dragged the wooden vessel closer to its face, a series of garbled grunts and slobber escaping its maw. My body, its strength already fading due to the crippling fear latching onto my heart, ached with numbness as blood seeped out from the bandage and down my arm.
+
+  
+I felt lightheaded and the pain in my hand began to dull which, while allowing me to endure the pain, meant that my fingers were slipping from their clutches. As the world around me began to blur, I realized the monster had brought the kayak near its mouth, shaking it in an attempt to bring us out, like a dog with a toy. Those moments, staring at the beast, its maw unhinged with rows of teeth as long as my body lining its rotten gums, only one thought came to mind; we were going to die.
+
+  
+I couldn't keep holding on. The moment I let go, it would devour me. If I was lucky, its jaws would snap shut too fast for me to feel a thing. If not, I would be devoured hole, where its stomach acids would do the rest, leaving me to fester and rot in its bowels. Despite how awful of a fate that sounded, I would be fine enduring it if it meant Caitlyn made it out. My eyes widened as I recalled just who I was protecting, who was sitting behind me, next in line to meet her untimely demise.
+
+  
+My knuckles turned white as I clung to the boat with one hand and used the other to grab the paddle and force it deep within the monster's nostril.
+
+  
+A blood-curdling screech tore through the air, the sheer volume of which made my ears ring and the kayak vibrate. The creature, taken aback by the sudden shock, retreated, its hands clutching its nose as the paddle was lodged deeper yet. The boat shot back up, causing me to land on Caitlyn with an audible groan. Despite the best possible outcome for my attack, all this seemed to do was aggravate it. My pathetic attempts at heroism had only sealed our fates. I looked at Caitlyn, my eyes conveying an emotion she could immediately recognize.
+
+  
+"I'm sorry," I croaked, my voice weak and hoarse. "I'm so sorry." I tensed as another violent roar escaped from the depths of the creature's chest, expecting a swipe of the claw to follow. Though pain did follow, it was not from the newly carved scars or gashes. Instead, the feeling originated from the blades of frost penetrating my open wound.
+
+  
+The piece of cloth, sopping wet from my blood, was unwrapped from my hand, a wave of chilling wind replacing the pressure. Caitlyn reeled her hand back before tossing it into the open lake, where it landed atop one of the many cadavers that littered the surface. The creature's head darted toward the direction the smell originated, its attention no longer on us. It swivelled to its right before pouncing atop the fabric, tearing it to shreds. I could tell Caitlyn was about to yell at me to jump, but the words couldn't even manage to leave her throat before another visceral noise echoed from the creature. But this wasn't one of anger or agony; it was a cry of fear.
+
+  
+The appendage, impossibly bulky and covered in jagged slabs of scales, was cleaved from its body, a fountain of dark, purple blood pouring from the stump. The familiar glare of the wire caught my eye, several thin lines appearing from every possible angle of the mist, all heading towards the beast. Its cries reached a new crescendo as the fine string wrapped around its body, lacerating its skin but keeping it whole. With one final terrified squeal, it was dragged into the depths of the opaque waters.
+
+  
+Bubbles carrying the last remaining breath of the beast popped along the surface, a trail of opaque blood left behind in the wake of its descent. We watched, horrified, as the creature disappeared, its cries and shrieks becoming less and less audible the deeper it went. We refused to utter a single word, as we now realized the wire wrapped around the end of the boat wasn't just a single, continuous thread; it belonged to a web. A trap.
+
+  
+With precision matching that of a doctor's, the wire unravelled itself from the wooden vessel, retracting back into the foggy depths. Along with the creature's cries, the bodies littering the water began to disappear as well, along with the mist. I looked up to see Caitlyn's face regain an ounce of life, bright eyes wet with unshed tears as her lips moved. A smile broke out, and I could only guess the relief I was experiencing was reflected in her face.
+
+  
+My head lolled to the side as my eyes met the water. Unlike mere seconds ago, it looked so deep, the water a murky abyss. The shallow silhouette of a massive figure loomed beneath the surface, but by the time I noticed it leaving, my eyelids could no longer hold, and darkness enveloped my vision.
+
+  
+I awoke in the hospital, surrounded by worried faces. A barrage of questions was sent my way, varying from "What happened?" to "Are you okay?" I gave Caitlyn a look, one that told her not to speak a word of the events we had just been through. I wasn't even sure if the events of the experience had actually transpired until I saw the bandages around my hand, now only faded gashes.
+
+  
+Apparently, according to Caitlyn, the boat was but a few minutes away from the shore. She was able to paddle there herself, where she found her parents. She had made the excuse that I managed to cut my hand on a broken part of the frame and, though that was far from the best excuse she could've offered, my family was much more keen on worrying about my state rather than the cause. While the events were still playing in my mind, I eventually found myself forgetting more and more about the mist, that creature, and the wire which ensnared it.
+
+  
+That is until we left town a few days ago. Caitlyn lived in a seaside town with her family, which is why we always went camping practically every month. Whenever we leave, we stop by the market, talking to the folks and seeing if there is anything to buy. This time was no different; the open area, a clearing that had been repurposed as a parking lot, was filled with vendors, some selling trinkets and knick-knacks, others selling produce. The bustle of the crowd was drowned out by the ocean waves crashing against the pier. But there was something off about the atmosphere. The scent of aqua life had increased tremendously since we last visited, and the locals' banter was missing as my mother approached Mrs. Thompson, the owner of the local flower shop.
+
+  
+I decided to visit the furthest end of the markets, where Caitlyn's father usually set his station, selling bait, rods, hooks, and the like. But with each step, the rancid stench of rot bloated the air, forcing my hands to cover my nose. When I finally managed to reach his stand, it was no longer in place, and where the usual array of silver hooks and bobbers had rested was replaced by a fish. Or, what I assumed was a fish. It had scales, but they weren't dainty; they jutted out like pieces of rock forced in. Bulbous blots of flesh lined its body, a few patches even falling off. Its entire carcass couldn't even fit atop the counter, limbs having been cleaved off, spewing viscous, purple blood.
+
+  
+But what caused my heart to lurch forward in recognition and my hand to pulse with the familiar pain of being slashed were the eyes. Or, rather, the lack thereof.
+
+  
+"Wh-where... Where did you find this?" I asked, forcing my meek voice out of my throat. The man, a bushy white beard speckled with the same dark blood that oozed from the creature, glared at me. Only one eye was good, as the other was entirely white, with hideous tendrils of red snaking from the very ends.
+
+  
+"Caught it myself."  
