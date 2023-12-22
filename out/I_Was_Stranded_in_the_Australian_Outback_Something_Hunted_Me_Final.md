@@ -168,9 +168,7 @@ Suddenly, without warning, the ground in front of us explodes in a shower of roc
 
 The Bunyip circles us, its movements deceptively agile for its size. It's toying with us, enjoying the game of predator and prey. Jirra and I, despite our determination, are painfully aware of our disadvantage. We're fighting a creature of legend, a being that embodies the very essence of the wilderness's unforgiving nature.
 
-We dash through the maze of stalagmites, our breaths coming in ragged gasps. The Bunyip manoeuvres through the labyrinth with terrifying agility.
-
-Our strategy is simple yet fraught with risk: keep moving, stay unpredictable, and look for an opening to strike. The stalagmites provide temporary cover, but they also hinder our movement, forcing us to weave and dodge through the tight spaces.
+We dash through the maze of stalagmites, our breaths coming in ragged gasps. Our strategy is simple yet fraught with risk: keep moving, stay unpredictable, and look for an opening to strike. The stalagmites provide temporary cover, but they also hinder our movement, forcing us to weave and dodge through the tight spaces.
 
 I glance back, catching a glimpse of the Bunyip closing in. Its massive body scrapes against the stone, its claws leaving deep gashes in the earth.
 
