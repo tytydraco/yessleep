@@ -290,7 +290,7 @@ Eventually, the park was deemed safe, and the restrictions were lifted.
 
 —
 
-Returning to my duties as a park ranger after the events in the park is like stepping into a familiar painting that has had its colours subtly altered.
+Returning to my duties as a park ranger after the events that transpired is like stepping into a familiar painting that has had its colours subtly altered.
 
 There's an unspoken understanding among the rangers. We tread more carefully, speak more softly, and listen more intently to the whispers of the Outback. There's a respect, a reverence almost, for what may still lie hidden in its depths.
 
