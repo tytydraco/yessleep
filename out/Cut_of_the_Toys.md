@@ -90,6 +90,14 @@ I looked at where he was cut and he wasn’t bleeding anymore. In fact there was
 
 I looked at his emotionless face. Still in shock at the black eyes.
 
-But I swear, I could still hear him calling for help.
+But I swear, I could still hear him calling for help. I ran out of the room, dropping Greg’s body in the process and caught up to Tommy. “Hey man, what the hell-“
 
-Part 2: https://www.reddit.com/r/nosleep/comments/18oewoh/cut_of_the_toys_part_2/
+I stopped as I almost jumped out of my skin when the doll jumped out of Tommy’s hands and lunged straight at me. I narrowly got out of the way before it almost poked my eye out with the sword.
+
+Then I was tackled down. I looked up to see Greg’s now pitch black eyes staring down at me. I was able to push him off. He went for me again Tommy grabbed his shoulder. He had the doll his hands once again. Suddenly they were disappearing in a poof of smoke.
+
+“See you soon…” Tommy said with a sinister chuckle. And before I knew it, they were gone. And you know what? So was I. Fuck this.
+
+I ran around in a panic, looking for my girlfriend like a mad man. When I found her, I practically dragged her as we ran the fuck out of there.
+
+As we did all I could hear in my head was that some sound of Greg calling out to me. 
