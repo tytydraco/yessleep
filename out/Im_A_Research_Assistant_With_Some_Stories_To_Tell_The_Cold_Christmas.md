@@ -557,3 +557,7 @@ Brice and Sheila were probably wondering where I was. In preparation, I cocked t
 &#x200B;
 
 It made another lunge. I raised the barrel of the [shotgun](https://www.reddit.com/r/StoriesFromRose/) and [fired.](https://www.threads.net/@rose_black2222)
+
+&#x200B;
+
+[https://www.reddit.com/r/nosleep/comments/18ou5wj/im\_a\_research\_assistant\_with\_some\_stories\_to\_tell/](https://www.reddit.com/r/nosleep/comments/18ou5wj/im_a_research_assistant_with_some_stories_to_tell/)   (That holiday fucked me up, but at least I dealt with that threat)

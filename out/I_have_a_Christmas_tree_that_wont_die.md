@@ -8,7 +8,7 @@ At 19, Sarah was practically still a kid herself, but she was dead-set on keepin
 
 Sarah was a wild teenager, and our grandmother was constantly chasing after her. Gram hadn't liked Sarah's boyfriend, Mark, at all. Before she passed, Gram had frequently tried to convince Sarah that she really shouldn't be dating a man ten years her senior, and especially not someone with such a volatile temper.
 
-I didn't learn about this until Sarah told me when I was much older because I had never known either of my parents, but my biological father had been like Mark. He had sucked my mother into a whirlpool of all the things that ruin a young woman's life before she even graduated high school.  By the time I was six months old, my father and my mother had both passed from overdoses within a year of each other. I knew Gram was perpetually afraid that what happened to her daughter would happen to Sarah and me, too.
+I didn't learn about this until Sarah told me when I was much older because I had never known either of my parents, but my biological father had been like Mark. He had sucked my mother into a whirlpool of all the things that ruin a young woman's life before she even graduated high school. By the time I was six months old, my father and my mother had both passed from overdoses within a year of each other. I knew Gram was perpetually afraid that what happened to her daughter would happen to Sarah and me, too.
 
 If it was possible, I liked Sarah's boyfriend even less than our grandmother did, with that kind of instant, unadulterated hate that kids have. I hated that he stole away my sister's time, I hated how he always smelled like cigarettes and cheap cologne, and I really hated all the times I had heard her crying on the phone with him.
 
