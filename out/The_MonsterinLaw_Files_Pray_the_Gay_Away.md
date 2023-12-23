@@ -1,6 +1,6 @@
 Previous instalment here: https://redd.it/1786bgt
 
-History has a habit of repeating itself.  You've all heard the story of the time Maura sold her own sister to a deranged former psychologist who was keeping "wayward girls" captive in order to "treat" them.  Well, today you get to read the story about the equally fucked-up thing she did to said sister's own son.
+History has a habit of repeating itself.  You've all heard the story of the time Maura sold her own sister to a deranged former psychologist who was keeping "wayward girls" captive in order to "treat" them.  Well, today you get to read the story about the equally fucked-up thing she did to said sister's own son.  Now, this happened long before I met Amy, so I obviously wasn't there, but I have been able to piece together what happened from what she and her family have told me.  Strap yourselves in, folks; this is a wild one.
 
 Jane, Maura's sister, had one child with her husband Colin: a boy named Stephen.  Growing up, he saw his cousins almost daily (they all attended the same elementary school, and often got together for play dates), but had very little direct contact with his aunt and uncle.  Unsurprising, given how much Jane hated her sister.  She knew better than anyone else how dangerous Maura could be, and she didn't want her evil poisoning her son.
 
