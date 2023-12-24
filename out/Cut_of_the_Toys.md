@@ -94,7 +94,7 @@ But I swear, I could still hear him calling for help. I ran out of the room, dro
 
 I stopped as I almost jumped out of my skin when the doll jumped out of Tommy’s hands and lunged straight at me. I narrowly got out of the way before it almost poked my eye out with the sword.
 
-Then I was tackled down. I looked up to see Greg’s now pitch black eyes staring down at me. I was able to push him off. He went for me again Tommy grabbed his shoulder. He had the doll his hands once again. Suddenly they were disappearing in a poof of smoke.
+Then I was tackled down. I looked up to see Greg’s now pitch black eyes staring down at me. I was able to push him off. He went for me again Tommy grabbed his shoulder. He had the doll his hands once again. Suddenly they were disappearing in a puff of smoke.
 
 “See you soon…” Tommy said with a sinister chuckle. And before I knew it, they were gone. And you know what? So was I. Fuck this.
 
