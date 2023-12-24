@@ -43,3 +43,6 @@ I ran home as fast as I could. and let me tell you I was a wreck in the next cou
 
   
 I got more stories if people are interested but I am new to this kind of storytelling so don’t expect too much.   
+
+
+Edit: part 2 https://www.reddit.com/r/nosleep/s/DcO93nSYkb 
