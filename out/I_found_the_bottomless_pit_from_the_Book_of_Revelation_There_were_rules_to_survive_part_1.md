@@ -96,7 +96,7 @@ Bear ran forwards, laughing. He stopped at the first cluster of gems he saw. The
 
 “We still don’t even know how to get out of here,” I reminded him. I kept checking our backs, and I thought I had glimpsed that white, staring face with the black eyes again. But it moved like a ghost. Every time I tried to shine the light where I thought I glimpsed something, there was nothing there. I felt like I was losing my mind.
 
-We kept walking for a few minutes. Smaller tunnels branched off the large ones periodically. We would soft moaning sounds and whispers coming from them. I could never pick out any words, as it came across as more of a low susurration, but it had the cadence and rhythm of speech.
+We kept walking for a few minutes. Smaller tunnels branched off the large ones periodically. We would hear soft moaning sounds and whispers coming from them. I could never pick out any words, as it came across as more of a low susurration, but it had the cadence and rhythm of speech.
 
 “That is so creepy,” Stephanie whispered after we had passed our fourth branching tunnel. “It sounds just like voices and people whimpering, as if there were some medieval torture chamber over there.”
 
