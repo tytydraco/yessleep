@@ -209,3 +209,5 @@ I gripped the old metal hanging from my neck. Should I just end it all? I wanted
 [Part 3](https://www.reddit.com/r/nosleep/comments/189w8o2/working_in_a_mansion_was_stricter_than_i_expected/)
 
 [Part 4](https://www.reddit.com/r/nosleep/comments/18lcvmd/working_in_a_mansion_was_stricter_than_i_expected/)
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/18pvnob/working_in_a_mansion_was_stricter_than_i_expected/)

@@ -276,7 +276,7 @@ Before I could ask any questions, the door was broken down. In walked an overwei
 
 I was about to comment on his rash decision, when the man started crawling towards us. *His back was completely gone*, as if someone had opened him up and removed all his insides. I gagged as the smell of decay began to fill the air.
 
-Looking through the windows one thing became clear. ***We were completely surrounded.***
+Looking through the windows one thing became clear. ***We were completely*** [surrounded.](https://www.reddit.com/r/nosleep/comments/18pvnob/working_in_a_mansion_was_stricter_than_i_expected/)
 
 [Part 1](https://www.reddit.com/r/nosleep/comments/17zpxav/working_in_a_mansion_was_stricter_than_i_expected/)
 

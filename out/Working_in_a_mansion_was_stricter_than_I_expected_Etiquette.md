@@ -285,3 +285,5 @@ The thought of the host watching me as I slept kept me from resting, so I decide
 [Part 1](https://www.reddit.com/r/nosleep/comments/17zpxav/working_in_a_mansion_was_stricter_than_i_expected/)
 
 [Part 2](https://www.reddit.com/r/nosleep/comments/185229f/working_in_a_mansion_was_stricter_than_i_expected/)
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/18pvnob/working_in_a_mansion_was_stricter_than_i_expected/)
