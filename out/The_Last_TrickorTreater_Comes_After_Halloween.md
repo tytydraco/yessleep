@@ -1,4 +1,4 @@
- Christmas is coming. I clean my gun. 
+ [Christmas](https://youtu.be/F7o6qyxZf28?si=rydiL8U-aOZY7Mrj) is coming. I clean my gun. 
 
 
 It's only a week since Halloween, but people in the neighborhood have already switched their decorations. Where a fifteen foot skeleton with raging red eyes stood, there's a nutcracker inflatable that's even more disturbing. 
