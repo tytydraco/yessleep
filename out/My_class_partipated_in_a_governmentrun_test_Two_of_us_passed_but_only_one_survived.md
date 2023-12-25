@@ -150,7 +150,7 @@ Taz’s lip curled. “I’d give it a zero out of ten.”
 
 I settled him with a smile. “You should be sitting with me.”
 
-His lips split into a grin. I liked it when he smiled like that. I remember my teenage hormones held my hostage over this boy's one smile, the dimples in his cheeks. Taz made my chest kind of ache. 
+His lips split into a grin. I liked it when he smiled like that. I remember my teenage hormones held me hostage over this boy's smile, the dimples in his cheeks. Taz made my chest kind of ache. 
 
 “Hey, it's not like I had a choice!” 
 
@@ -286,7 +286,7 @@ But the ghostly faces that stared back were strangers.
 
 I did, sitting as if I was in class. 
 
-“Congratulations.” a voice came from above. 
+“Congratulations.” an announcement came from above. 
 
 It was mechanical, an inhuman text-to-speech. 
 
@@ -308,7 +308,7 @@ And again.
 
 And again. 
 
-Behind me, a boy dropped to the ground, pooling crimson seeping around around his head.
+Behind me, a boy dropped to the ground, pooling crimson seeping around his head.
 
 *Was I going to end up like that?*
 
@@ -364,7 +364,7 @@ Kaian’s red slicked hands, his wide grin, when he slammed a glass paper weight
 
 Behind me, Emma Cline threw her Macbook against the wall with a shriek.  “What the fuck?!” 
 
-I wanted to laugh, giggles already creeping up my throat. I scrolled further down, expecting more names, more scandalous secrets. There was a name at the very bottom. When I saw it, something sour crept up my throat. 
+I wanted to laugh, giggles already threatening an appearance. I scrolled further down, expecting more names, more scandalous secrets. There was a name at the very bottom. When I saw it, something sour crept up my throat. 
 
 **Wendy Atlas.**
 
@@ -450,7 +450,7 @@ The room was quiet, and I was panting, swiping my knife on my dress.
 
 Lucas Warner was perched on a desk, his legs dangling. He caught my eye, lips curling into a smile. The bastard opened his mouth, but I was already moving across the room. He had a gun, but judging from the way he was playing with it like a toy, I was sure he was out of ammo. Clearly, he thought he had the advantage. When I stabbed at him, he just slid across the desk. 
 
-“Brave,” he said in a chuckle. “Are you *sure* you want to do that to someone like me?”
+“Brave,” he murmured. “Are you *sure* you want to do that to someone like me?”
 
 He was doing it again. 
 
@@ -516,7 +516,9 @@ I didn't listen, plunging the knife into the bastard’s throat. Warm wet rednes
 
 No, the bastard called me *poor*. 
 
-Luke knew about my past. He knew I was a welfare kid. The bastard would take pleasure in telling Kaian. So, I kept going, singing over the orders for me to stop. I stabbed, sliced, and ripped onto him, ignoring glistening innards. But even when he was dead, even with his body reduced to scarlet mush, I could see the *reflection* of the Google doc in his glassy eyes. *Oh God, I could still see it.* 
+Luke knew about my past. He knew I was a welfare kid. The bastard would take pleasure in telling Kaian. 
+
+So, I kept going, singing over the orders for me to stop. I stabbed, sliced, and ripped onto him, ignoring glistening innards. But even when he was dead, even with his body reduced to scarlet mush, I could see the *reflection* of the Google doc in his glassy eyes. *Oh God, I could still see it.* 
 
 I could see myself burying myself in shit, fishing for high end fashion. I could see my desperate grin, my fingers gripped around the Diana Mini. 
 
@@ -528,7 +530,7 @@ And again.
 
 AND AGAINANDANDAGAINANDAGAIN–
 
-*”Miss Michael's!”*
+*”Miss Michaels!”*
 
 The door flew open, a stampede of footsteps drowning my ears. 
 
@@ -536,7 +538,11 @@ There was a familiar murmur in my mind, a soft, soothing voice.
 
 “Mara, it's me. It's okay, you can stop now.”
 
-I shoved the shadow away, continuing with the knife, carving into my best friend’s face. I needed all of him gone, every piece that had watched that video, and seen the expose. I didn't stop until a sharp prick was slicing into my neck, and I was screaming, fear finally taking hold. Fear that had been removed to assure I would kill, with the rest of my emotions. Reality started to contort back into shape. Lucas Warner wasn't real, and the body underneath me had a face I knew.  I wasn't in a classroom at a prestigious school. 
+I shoved the shadow away, continuing with the knife, carving into my best friend’s face. I needed all of him gone, every piece that had watched that video, and seen the expose. I didn't stop until a sharp prick was slicing into my neck, and I was screaming, fear finally taking hold. Fear that had been removed to assure I would kill, along with the rest of my emotions. Reality started to contort back into shape. 
+
+Lucas Warner wasn't real, and the body underneath me had a face I knew.  
+
+I wasn't in a classroom at a prestigious school. 
 
 I was still inside the room I had been taken to when I was kidnapped and dragged off of the bus. 
 
