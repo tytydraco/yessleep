@@ -8,7 +8,7 @@ I wasn't interested in animals, or petting them. I couldn't afford the trip, any
 
 Money that she couldn't afford to give me. 
 
-We could barely afford to eat the night before, scrounging on microwave  meals and expired convenience food, and somehow my mother now had some real cash. I tried to give it back, but Mom was insistent on me joining my classmates and having a good time. 
+We could barely afford to eat the night before, scrounging on microwave  meals and expired convenience food, and somehow my mother had some real cash. I tried to give it back, but Mom was insistent on me joining my classmates and having a good time. 
 
 “At a petting zoo?” Spooning stale cereal into my mouth, I was still frowning at the envelope of cash. *How did she get it?* Mom had lost her job. 
 
@@ -126,7 +126,9 @@ I couldn't resist a smile. “I'm not talking to polkadot seats. Show yourself, 
 
 “Wait, what?”
 
-Taz Eaton poked his head through the gap in my seat. I could just glimpse his sandy coloured hair, sleepy eyes regarding me with bemusement. Taz and I had known each other from way back, since our mother’s were friends, and we were forced together through playdates. I vaguely remember being self aware yet, and this other kid who picked at his nose and stole my toys. 
+Taz Eaton poked his head through the gap in my seat. I could just glimpse his sandy coloured hair, sleepy eyes regarding me with bemusement. 
+
+Taz and I had known each other from way back, since our mother’s were friends, and we were forced together through playdates. I vaguely remember not even being self aware yet, and this  other kid was always at my house, who picked at his nose and stole my toys. 
 
 As we grew older, our friendship became natural. I was twelve when I stopped seeing Taz as a gross disease. 
 
@@ -260,9 +262,9 @@ I thought I was hallucinating when Connor let out a harsh laugh, crossed with a 
 
 I woke up, being shoved off of the bus and straight into dirt. 
 
-Barely conscious, my vision was one big confusing blur, before rough hands were grasping hold of my shoulders and pulling me to unsteady feet. I went back to sleep, but my body was carried, dragged, while my head bounced up and down. When I was fully awake, I was sitting in a large room, my arms chained to a desk. There was something attached to my ear. It felt like an Airpod, but this time it was glued to the inside of my ear. 
+Barely conscious, my vision was one big confusing blur, before rough hands were grasping hold of my shoulders and pulling me to unsteady feet. I went back to sleep, but my body was carried, dragged, while my head bounced up and down. When I was fully awake, I was sitting in a large room, my arms chained to a desk. There was something stuck to my ear. It felt like an Airpod, but this thing was glued to me. 
 
-There was a tallish man who smelled like axe spray flitting from desk to desk, prodding the devices on our ears. 
+There was a tallish man who smelled like axe spray flitting from desk to desk, prodding the devices attached to us. 
 
 I started to ask what was happening, but my mouth tasted metallic, and I threw up instead. 
 
@@ -306,15 +308,21 @@ And again.
 
 And again. 
 
-Behind me, a boy dropped to the ground, pooling crimson seeping around him. 
+Behind me, a boy dropped to the ground, pooling crimson seeping around around his head.
+
+*Was I going to end up like that?*
 
 It wouldn't stop. 
 
-It wouldn't fucking stop. Above me, the lights were flickering. I watched them, dazedly, blood spilling from my lips. I remember my head hit the desk, and it was still there, still leeching inside of me. It was going to fucking kill me. 
+It wouldn't fucking stop. Above me, blinding lights flickerered. I watched them, dazedly, blood spilling from my lips. I remember my head hit the desk, and it was still there, still leeching inside of me. It was going to fucking kill me. 
 
 It wouldn't stop.
 
 Next to me, a girl was trying to pry her earpieces off by dragging her head against the wood of her desk. I tried to copy her, but the thing only grew louder, a shrill, intense wail in my skull. 
+
+Until my head was tipped back, my eyes squeezed shut. 
+
+I was begging, my tears felt thicker, salty blood on my lips. 
 
 *It was never going to fucking—*
 
@@ -366,9 +374,11 @@ There was a picture of me, a selfie taken straight off of my Instagram. I had me
 
 My first reaction was to delete the document. But I couldn't. I couldn't just press a button, it wasn't mine to delete. I wasn't even watching the attached video, and my trembling hands were already stabbing at my laptop's tracking pad trying to delete it from existence. 
 
-I had to keep a poker face. Wendy Atlas did not *care* about what people thought of her. 
+I had to keep a poker face. 
 
-Except my carefully moulded facade was splintering pieced by piece the longer I stared at thd Google doc, not just detailing my lies, but also exposing them in HD on every screen. There I was, caught in gritty camera footage standing in a dumpster full of shit, my filthy hands wrapped around a Gucci Diana Mini. I was grinning, and I could see the greed on my face, my wide eyes glued to the bag. 
+Wendy Atlas did not *care* about what people thought of her. 
+
+Except my carefully moulded facade was splintering piece by piece the longer I stared at the Google doc, not just detailing my lies, but also exposing them in HD on every screen. There I was, caught in gritty camera footage standing in a dumpster full of shit, my filthy hands wrapped around a Gucci Diana Mini. I was grinning, and I could see the greed on my face, my wide eyes glued to the bag. 
 
 I sacrificed everything, even the relationship with my father, to maintain my lie. I came from dirt. My father never worked, and we barely scraped by on government handouts. Our apartment stunk of rot, and my room didn't have a carpet. I used to pick lice from my hair because dad refused to run the hot water. I did *everything* to become a perfectly made up lie. I cleaned rich people's houses, trying on their wardrobe, snapping pictures of myself. 
 
@@ -378,7 +388,9 @@ Then it became an obsession. I wanted these clothes, these material things, so m
 
 I dug in the trash and pulled it out, making it mine. 
 
-The Google doc exposed everything. My cleaning job, stealing clothes, and dumpster diving for high end fashion. There were grainy pictures of my real apartment, my bedroom covered in filth, my father staring dazedly at a television that wasn't even on. They even knew about my mother’s death, throwing herself off of a bridge when I was six years old. But I think the worst part was the collection of images of me when I was at my worst. 
+The Google doc exposed everything. My cleaning job, stealing clothes, and dumpster diving for high end fashion. 
+
+There were grainy pictures of my real apartment, my bedroom covered in filth, my father staring dazedly at a television that wasn't even on. They even knew about my mother’s death, throwing herself off of a bridge when I was six years old. But I think the worst part was the collection of images of me when I was at my worst. 
 
 Inside the convenience store, baggy jeans and a vomit coloured sweater, my hair in my face. I was buying one dollar ramen. 
 
@@ -392,7 +404,9 @@ The Google doc said one thing at the bottom, and those words were still in my he
 
 **The only ones you have seen this are you.**
 
-Daddy used to say he had killed people for hurting his family. Bad people used to come to the door and ask for cash, and he would get rid of them. Before he lost his mind, Daddy told me I would *never* be like him. He made me promise I would grow up to be better than him. I never thought I would be capable of *truly* hurting someone, until the reality of the situation slammed into me. Lucas Warner was digging inside the bag and grabbing a gun, swinging it towards us, eyes wild. 
+Daddy used to say he had killed people for hurting his family. Bad people used to come to the door and ask for cash, and he would get rid of them. Before he lost his mind, Daddy told me I would *never* be like him. He made me promise I would grow up to be better than him. I never thought I would be capable of *truly* hurting someone, until the reality of the situation slammed into me. Lucas Warner was digging inside the bag and grabbing a gun, swinging it towards us, his eyes wild. He would kill to hide his secrets. 
+
+It's not like I blamed him. 
 
 I would do *anything* to keep that disgusting part of me hidden. 
 
