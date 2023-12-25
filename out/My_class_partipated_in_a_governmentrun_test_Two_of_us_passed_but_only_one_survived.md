@@ -178,7 +178,7 @@ This time Taz kicked my seat, and I jumped. He stuck his head through the gap. �
 
 *Rhymes with blim.*
 
-“What's so funny?” I could hear the smile in his voice. “You think rabies is funny?”
+“What's so funny?” I could hear the smile in his voice. “You think rabies is something to laugh about, Mar?"
 
 I laughed at that too. 
 
@@ -224,7 +224,7 @@ Like he had inhaled helium.
 
 Connor straightened up. “I was making sure she was inebriated, sir. Agent Mac ordered me to make sure my sister is out cold.”
 
-The shadow blurred, before disappearing. I could still hear his voice long after he'd left, his barking command still rattling on my skull. 
+The shadow blurred, before disappearing. I could still hear his voice long after he'd left, his barking command still rattling in my skull. 
 
 *“You may continue. Express emotion, and face deactivation and execution. Are we clear?”*
 
@@ -326,7 +326,7 @@ I was begging, my tears felt thicker, salty blood on my lips.
 
 *It was never going to fucking—*
 
-Class 7B were considered our school’s royalty. 
+Class 7B were considered St. Claire High School royalty. 
 
 We were the smart kids, the ones with connections. I used these kids for my own benefit. Scarlet Janus was the daughter of the head of the school board. I was already in talks with her mother about tutoring. 
 
@@ -466,11 +466,11 @@ He chuckled, rivulets of red already beading down his chin.
 
 Luke was already hurt. 
 
-I glimpsed the red stain on his shirt, pressing weight onto it. 
+I glimpsed the red stain on his shirt, pressing weight onto his wound. 
 
 He screamed, but it was more of a laugh. Luke spluttered deep red, giggling. “*You* dumpster dive?!” he snorted. “Wendy Atlas?” Inclining his head, his venomous eyes drank me in, as if for the first time. “The same Wendy who forced a girl to kill herself last year for wearing thrifted clothes?”
 
-Luke barked out a laugh, shivers creeping down my spine. I lost my grip on my knife. “You're fucking poor?”
+Luke barked out a laugh, and shivers crept down my spine. I lost my grip on my knife. “You're fucking poor?”
 
 I found myself responding in an attempt to defend myself. “That wasn't me.”
 
@@ -558,7 +558,15 @@ His name hit me in a wave of ice cold water, real pain beginning to thread throu
 
 Taz. 
 
-Once the thing was removed, I was dragged into the biting cold. 
+Once the thing was removed, I was dragged into the biting cold, screaming, my cry raw in my throat. 
+
+They made me kill him. 
+
+Fighting against them, I repeated the same thing until I was heaving, suffocating. 
+
+*You made me kill him.*
+
+Taz. 
 
 I could remember parts of him, but his blood slicked my cheeks, staining my hands. 
 
