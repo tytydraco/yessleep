@@ -48,15 +48,25 @@ His eyes were shadowed with sleep circles.
 
 Had he even slept? 
 
-He looked like he might speak, before Mom dumped my backpack in my lap with a wide smile, and he went back to frowning down at his breakfast. “You should hurry up,” she hummed, maintaining a fake smile, pulling me to my feet. Both of us knew she was forcing it. Connor rolled his eyes, stuffing a waffle into his mouth, chewing mechanically. Mom ignored his glare. “You don't want to miss the bus.”
+He looked like he might speak, before Mom dumped my backpack in my lap with a wide smile, and he went back to frowning down at his breakfast. 
+
+“You should hurry up,” she hummed, maintaining a fake smile, pulling me to my feet. Both of us knew she was forcing it. Connor rolled his eyes, stuffing a waffle into his mouth, chewing mechanically. Mom ignored his glare. “You don't want to miss the bus.”
 
 Mom excused herself to go grab her bag, and I was left alone with my brother. When the door slammed, Connor downed his glass of chocolate milk before turning to me, his eyes were dark and confusing, a hollowness to them I didn't understand. I couldn't read his expression. He was supposed to be coming on the field trip too, but Mom could only afford for me. I didn't think he’d be *this* salty about it. 
 
-“There's dishwasher soap behind you,” he grumbled, forking up waffles and stuffing them into his mouth. I don't think he was enjoying them. It was almost like he was trying to gag himself. “If I were you, I'd drink it.”
+“There's dishwasher soap behind you,” he grumbled, forking up waffles and stuffing them into his mouth. I don't think he was enjoying them. It didn't look like he was trying to gag himself. 
 
-Connor’s half lidded eyes flicked to the door. He swallowed his food, which looked painful, washing it down with more chocolate milk. I don't think he noticed it dribbling down his chin. Connor’s eyes pierced right through mine, finding oblivion, his movements almost robotic. He gestured to the washing detergent sitting on the faucet, and something sickly twisted in my gut. 
+“If I were you, I'd drink it.”
 
-“Before…” He burped loudly, covering his mouth. Connor seemed to come to life for a moment, eyes growing frenzied, his gaze flicking to the ceiling. I had never seen my brother look so desperate, and yet helpless. He didn't move. I knew he wanted to, but I don't think he could, his body rocking back and forth. “Before Mom comes back.”
+Connor’s half lidded eyes flicked to the door. He swallowed his food, which looked painful, washing it down with more chocolate milk. He didn't seem to  notice it dribbling down his chin. 
+
+Connor’s eyes pierced right through mine, finding oblivion, his movements almost robotic. 
+
+He gestured to the washing detergent sitting on the faucet, and something sickly twisted in my gut. 
+
+“Before…” He burped loudly, covering his mouth. Connor seemed to come to life for a moment, eyes growing frenzied, his gaze flicking to the ceiling. 
+
+I had never seen my brother look so desperate, and yet helpless. He didn't move. I knew he wanted to, but I wasn't sure he could, his body rocking back and forth. “Before Mom comes back.”
 
 I laughed, even when his words tangled my gut.
 
@@ -80,7 +90,7 @@ I turned back to Connor, who slumped in his chair with a scoff. “I'm fine,” 
 
 Instead of questioning my brother’s strange behaviour, I turned away from him and followed my mother out into the yard. 
 
-I felt Connor’s glare watching me leave. 
+I felt Connor’s glare following me out of the door. 
 
 I never saw that version of my brother again. 
 
@@ -88,7 +98,13 @@ Maybe that's a good thing though.
 
 If I ever *do* see my older brother again, the boy I left that day, who watched me walk away and didn't say a thing, I will blow the fucker’s brains out. 
 
-I was still thinking of my brother’s words when I boarded the school coach a few hours later. Mom told me he was just tired, but I couldn't call *that* tired. I texted him with a question mark, but it didn't send. *Did he block me?* Ignoring my brother’s weird behaviour, I found a window seat and slumped down. The bus was nicer than normal, plush seats and velvet curtains. It reminded me of a night bus. I get motion sickness, so I corked in my music and closed my eyes. 
+I was still thinking of my brother’s words when I boarded the school coach a few hours later. Mom told me he was just tired, but I couldn't call *that* tired. 
+
+I texted him with a question mark, but it didn't send. 
+
+*Did he block me?* 
+
+Ignoring my brother’s weird behaviour, I found a window seat and slumped down. The bus was nicer than normal, plush seats and velvet curtains. It reminded me of a night bus. I get motion sickness, so I corked in my music and closed my eyes. 
 
 “You're awfully quiet.”
 
@@ -112,7 +128,9 @@ I couldn't resist a smile. “I'm not talking to polkadot seats. Show yourself, 
 
 Taz Eaton poked his head through the gap in my seat. I could just glimpse his sandy coloured hair, sleepy eyes regarding me with bemusement. Taz and I had known each other from way back, since our mother’s were friends, and we were forced together through playdates. I vaguely remember being self aware yet, and this other kid who picked at his nose and stole my toys. 
 
-As we grew older, our friendship became natural. I was twelve when I stopped seeing Taz as a gross disease. When his hair grew out and he lost his baby fat, I started to avoid him in class, trying to hide burning cheeks and an unsettled stomach. But he was yet to get the memo. Taz was my usual seatmate on class field trips, but that particular coach ride had a strict seating plan. Which meant we couldn't sit at the back and throw peanuts at other kids like usual. 
+As we grew older, our friendship became natural. I was twelve when I stopped seeing Taz as a gross disease. 
+
+When his hair grew out and he lost his baby fat, I started to avoid him in class, trying to hide burning cheeks and an unsettled stomach. But he was yet to get the memo. Taz was my usual seatmate on class field trips, but that particular coach ride had a strict seating plan. Which meant we couldn't sit at the back and throw peanuts at other kids like usual. 
 
 Luckily, Lily Myers had the flu. So, I had the luxury of a seat to myself. 
 
@@ -270,7 +288,7 @@ The voice was drowned out, suddenly, by a screech in my ears.
 
 No, not my ears. 
 
-It was directly inside my skull, a rooted thing creeping it's way into my mind. 
+It was directly inside my skull, a rooted thing creeping its way into my mind. 
 
 I remember screaming, my cry joining the cacophony around me. I slammed my head into the desk when I couldn't press my hands over my ears, resorting to knocking myself out. I could taste metal in the back of my throat and glued to my teeth, sticky on my tongue. 
 
@@ -304,7 +322,9 @@ I never thought of us as psychopaths.
 
 Just the privileged brats other kids secretly hated. 
 
-We were a group of seventeen year olds, born with a silver spoon in our mouths. I thought the only ones capable of murder were our parents. That was until a 50 page Google Doc landed in my inbox during Math class. Opening it, the doc contained dirt on everyone in the class, their dirty laundry and darkest secrets right there in size 11 calibri font. 
+We were a group of seventeen year olds, born with a silver spoon in our mouths. I thought the only ones capable of murder were our parents. That was until a 50 page Google Doc landed in my inbox during Math class. 
+
+Opening it, the doc contained dirt on everyone in the class, their dirty laundry and darkest secrets right there in size 11 calibri font. 
 
 Lucas Warner, the mayor's son, had already been accepted into an Ivy League, thanks to a generous donation by the mayor himself. Emma Cline, class president, was selling herself to older men. Alex Castor, valedictorian, had suffocated his little brother to death for getting better test scores— and his family had covered it up. Kaian Hardy had the longest list under his perfectly made up name. The list did not surprise me. 
 
@@ -314,9 +334,9 @@ After all, there was a reason *why* I followed that fucking cockroach around.
 
 **Battery.** 
 
-**Murder.* 
+**Murder.**
 
-Both his step mother, and step sister, neither of which were public knowledge. His father had an affair, and Kaian killed the two of them for trying to become part of the family. Their deaths were covered up. But there was a video revealing everything in wonderfully filthy detail, I got shivers. 
+His victims were his step mother, and step sister, neither of whom were public knowledge. His father had an affair, and Kaian killed the two of them for trying to become part of the family. Their deaths were covered up. But there was a video revealing everything in wonderfully filthy detail, I got shivers. 
 
 My lips were already curling into smile, ripples of pleasure sending me into ecstasy. 
 
@@ -336,13 +356,19 @@ There was a picture of me, a selfie taken straight off of my Instagram. I had me
 
 My first reaction was to delete the document. But I couldn't. I couldn't just press a button, it wasn't mine to delete. I wasn't even watching the attached video, and my trembling hands were already stabbing at my laptop's tracking pad trying to delete it from existence. 
 
-I had to keep a poker face. Wendy Atlas did not *care* about what people thought of her. Except my carefully moulded facade was splintering pieced by piece the longer I stared at thd Google doc, not just detailing my lies, but also exposing them in HD on every screen. There I was, caught in gritty camera footage standing in a dumpster full of shit, my filthy hands wrapped around a Gucci Diana Mini. I was grinning, and I could see the greed on my face, my wide eyes glued to the bag. 
+I had to keep a poker face. Wendy Atlas did not *care* about what people thought of her. 
+
+Except my carefully moulded facade was splintering pieced by piece the longer I stared at thd Google doc, not just detailing my lies, but also exposing them in HD on every screen. There I was, caught in gritty camera footage standing in a dumpster full of shit, my filthy hands wrapped around a Gucci Diana Mini. I was grinning, and I could see the greed on my face, my wide eyes glued to the bag. 
 
 I sacrificed everything, even the relationship with my father, to maintain my lie. I came from dirt. My father never worked, and we barely scraped by on government handouts. Our apartment stunk of rot, and my room didn't have a carpet. I used to pick lice from my hair because dad refused to run the hot water. I did *everything* to become a perfectly made up lie. I cleaned rich people's houses, trying on their wardrobe, snapping pictures of myself. 
 
 It was for self validation at first. 
 
-Then it became an obsession. I wanted these clothes, these material things, so much it hurt. Kaian could throw away a five thousand dollar watch because it didn't match his designer blazer. I dug in the trash and pulled it out, making it mine. The Google doc exposed everything. My cleaning job, stealing clothes, and dumpster diving for high end fashion. There were grainy pictures of my real apartment, my bedroom covered in filth, my father staring dazedly at a television that wasn't even on. They even knew about my mother’s death, throwing herself off of a bridge when I was six years old. But I think the worst part was the collection of images of me when I was at my worst. 
+Then it became an obsession. I wanted these clothes, these material things, so much it hurt. Kaian could throw away a five thousand dollar watch because it didn't match his designer blazer.
+
+ I dug in the trash and pulled it out, making it mine. 
+
+The Google doc exposed everything. My cleaning job, stealing clothes, and dumpster diving for high end fashion. There were grainy pictures of my real apartment, my bedroom covered in filth, my father staring dazedly at a television that wasn't even on. They even knew about my mother’s death, throwing herself off of a bridge when I was six years old. But I think the worst part was the collection of images of me when I was at my worst. 
 
 Inside the convenience store, baggy jeans and a vomit coloured sweater, my hair in my face. I was buying one dollar ramen. 
 
@@ -392,19 +418,19 @@ When I stood on top of the social hierarchy, *he* still regarded me like dirt, r
 
 I caught him off guard when he was gearing up for an attack. His hands came to wrap around my throat, but I was already knocking him to the floor. 
 
-He laughed, rivulets of red already beading down his chin. 
+He chuckled, rivulets of red already beading down his chin. 
 
 Luke was already hurt. 
 
 I glimpsed the red stain on his shirt, pressing weight onto it. 
 
-He screamed, but it was more of a laugh. Luke spluttered deep red, laughing. “*You* dumpster dive?!” he snorted. “Wendy Atlas?” Inclining his head, his venomous eyes drank me in, as if for the first time. “The same Wendy who forced a girl to kill herself last year for wearing thrifted clothes?”
+He screamed, but it was more of a laugh. Luke spluttered deep red, giggling. “*You* dumpster dive?!” he snorted. “Wendy Atlas?” Inclining his head, his venomous eyes drank me in, as if for the first time. “The same Wendy who forced a girl to kill herself last year for wearing thrifted clothes?”
 
 Luke barked out a laugh, shivers creeping down my spine. I lost my grip on my knife. “You're fucking poor?”
 
 I found myself responding in an attempt to defend myself. “That wasn't me.”
 
-Luke raised a brow, giggling manically through blood. “Oh, now you're denying it? That's rich! You wanted to fake it, huh? Well, here's the thing, babe. You don't *belong* with us,” he spat blood in my face. “Get your disgusting welfare hands off of me.”
+Luke raised a brow, laughing manically through blood splatters. “Oh, now you're denying it? That's rich! You wanted to fake it, huh? Well, here's the thing, babe. You don't *belong* with us,” he spat blood in my face. “Get your disgusting welfare hands off of me.”
 
 His words shouldn't have felt like knives stabbing into my spine, enough to send me lurching back. I still had the advantage, but he was the one laughing. 
 
@@ -466,7 +492,9 @@ There was a familiar voice in my ear, a soft, soothing voice.
 
 “Mara, it's me. It's okay, you can stop now.”
 
-I shoved the shadow away, continuing with the knife, carving into my best friend’s face. I needed all of him gone, every piece that had watched that video, and seen the expose. I didn't stop until a sharp prick was slicing into my neck, and I was screaming, fear finally taking hold. Fear that had been removed to assure I would kill, with the rest of my emotions. Reality started to contort back into shape. Lucas Warner wasn't real, and the body underneath me had a face I knew.  I wasn't in a classroom at a prestigious school. I was still inside the room I had been taken to when I was kidnapped and dragged off of the bus. 
+I shoved the shadow away, continuing with the knife, carving into my best friend’s face. I needed all of him gone, every piece that had watched that video, and seen the expose. I didn't stop until a sharp prick was slicing into my neck, and I was screaming, fear finally taking hold. Fear that had been removed to assure I would kill, with the rest of my emotions. Reality started to contort back into shape. Lucas Warner wasn't real, and the body underneath me had a face I knew.  I wasn't in a classroom at a prestigious school. 
+
+I was still inside the room I had been taken to when I was kidnapped and dragged off of the bus. 
 
 I wasn't wearing a Gucci minidress and a pearl necklace. 
 
