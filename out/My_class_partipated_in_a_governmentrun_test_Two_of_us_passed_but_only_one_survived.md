@@ -42,19 +42,19 @@ I caught my brother’s eye across the table. He looked away quickly, but I stil
 
 That morning, an imposter was sitting in his seat. 
 
-This boy was pale and kept his head down. I wanted to talk to him, but every time I tried, it's like our mother was putting herself in front of us. My brother was always ready for school, often commenting on me being a slow poke, and fighting me for bathroom privileges. But this time he was still in his pyjamas. *No.* Connor had slept in yesterday's clothes, a crumpled plaid shirt and jeans. 
+This boy was pale and kept his head down. I wanted to talk to him, but every time I tried, it's like our mother was putting herself in front of us. My brother was always ready for school, often commenting on me being a slow poke, and fighting me for bathroom privileges. But this time he was still in his pyjamas. *No.* Connor had slept in yesterday's clothes, a crumpled shirt and jeans. 
 
 His eyes were shadowed with sleep circles. 
 
 Had he even slept? 
 
-He looked like he might speak, before Mom dumped my backpack in my lap with a wide smile, and he went back to frowning down at his breakfast. 
+He looked like he might speak, before Mom dumped my backpack in my lap with a wide smile, and he went back to glaring down at his breakfast. 
 
 “You should hurry up,” she hummed, maintaining a fake smile, pulling me to my feet. Both of us knew she was forcing it. Connor rolled his eyes, stuffing a waffle into his mouth, chewing mechanically. Mom ignored his glare. “You don't want to miss the bus.”
 
 Mom excused herself to go grab her bag, and I was left alone with my brother. When the door slammed, Connor downed his glass of chocolate milk before turning to me, his eyes were dark and confusing, a hollowness to them I didn't understand. I couldn't read his expression. He was supposed to be coming on the field trip too, but Mom could only afford for me. I didn't think he’d be *this* salty about it. 
 
-“There's dishwasher soap behind you,” he grumbled, forking up waffles and stuffing them into his mouth. I don't think he was enjoying them. It didn't look like he was trying to gag himself. 
+“There's dishwasher soap behind you,” he grumbled, forking up waffles and stuffing them into his mouth. I don't think he was enjoying them. It almost look like he was trying to gag himself. 
 
 “If I were you, I'd drink it.”
 
@@ -76,7 +76,7 @@ Connor’s lip twitched. “I'm deadly serious.”
 
 “What?” I shouldered my backpack, settling my brother with a frown. “Are you okay?”
 
-His eyes didn't leave me, even when he was draining his third glass of chocolate milk. Connor’s cheeks were apple, almost sickly green. He poured himself another helping of cereal. “I'm peachy.”
+His eyes didn't leave me, even when he was draining his third glass of chocolate milk. Connor’s cheeks were a pale, almost sickly green. He poured himself another helping of cereal. “I'm peachy.”
 
 I started forwards, and he flinched back, like I was diseased. 
 
@@ -228,7 +228,9 @@ The shadow blurred, before disappearing. I could still hear his voice long after
 
 I could no longer hear my classmates. I couldn't hear Taz or Nate. There were just my own strangled breaths, as the shadow with no face, and then my brother’s face, pressed something plastic over my mouth and nose. I tried to shake it off, stern hands holding my head in place. 
 
-I didn't speak properly until my face was lodged against the window, my vision blurring in and out of reality.  I don't know why, but my response to Taz was still tangled on my tongue, trying to slip through my numb lips. “Drooling drooling.” I told my brother still standing over me, muffling into harsh plastic suffocating my breath. 
+I didn't speak properly until my face was lodged against the window, my vision blurring in and out of reality.  I don't know why, but my response to Taz was still tangled on my tongue, trying to slip through my numb lips. 
+
+“Drooling drooling.” I told my brother still standing over me, muffling into harsh plastic suffocating my breath. 
 
 *Drooling drooling.*
 
@@ -258,15 +260,19 @@ I thought I was hallucinating when Connor let out a harsh laugh, crossed with a 
 
 I woke up, being shoved off of the bus and straight into dirt. 
 
-Barely conscious, my vision was one big confusing blur, before rough hands were grasping hold of my shoulders and pulling me to unsteady feet. I went back to sleep, but my body was carried, dragged, while my head bounced up and down. When I was fully awake, I was sitting in a large room, my arms chained down to a desk. There was something attached to my ear and the back of my head. It felt like an Airpod, but this time it was glued to the inside of my ear. 
+Barely conscious, my vision was one big confusing blur, before rough hands were grasping hold of my shoulders and pulling me to unsteady feet. I went back to sleep, but my body was carried, dragged, while my head bounced up and down. When I was fully awake, I was sitting in a large room, my arms chained to a desk. There was something attached to my ear. It felt like an Airpod, but this time it was glued to the inside of my ear. 
 
-There was a tallish man with no man who smelled like axe spray flitting from desk to desk, prodding the devices on our ears. I started to ask what was happening, but my mouth tasted metallic, and I threw up instead. 
+There was a tallish man who smelled like axe spray flitting from desk to desk, prodding the devices on our ears. 
+
+I started to ask what was happening, but my mouth tasted metallic, and I threw up instead. 
 
 The chains would only let me go so far, so I was hanging off of my seat, heaving up orange juice that stung my throat, dribbling down my lips and chin.
 
 I remember lifting my head, my mouth still filled with mushy bile.
 
-The sun was rising in a pretty blue sky. The windows were filthy, but the world had not stopped. It was still going on out there, normal workdays and schooldays beginning. I thought it was the end of the world. I thought I had gene brought to a shelter to avoid fallout. I should have been out there with my Mom and brother, getting ready for school. So, why was I trapped inside a room with my hands chained down? 
+The sun was rising in a pretty blue sky. The windows were filthy, but the world had not stopped. It was still going on out there, normal workdays and schooldays beginning. I thought it was the end of the world. I thought had been brought to a shelter to avoid fallout. 
+
+I should have been out there with my Mom and brother, getting ready for school. So, why was I trapped inside a room with my hands chained down? 
 
 Where was my mother? 
 
@@ -310,11 +316,15 @@ It wouldn't stop.
 
 Next to me, a girl was trying to pry her earpieces off by dragging her head against the wood of her desk. I tried to copy her, but the thing only grew louder, a shrill, intense wail in my skull. 
 
- *It was never going to fucking—**
+*It was never going to fucking—*
 
 Class 7B were considered our school’s royalty. 
 
-We were the smart kids, the ones with connections. I used these kids for my own benefit. Scarlet Janus was the daughter of the head of the school board. I was already in talks with her mother about tutoring. Kaian Hardy, the son of a Korean diplomat, was one of my best friends. I was invited to his family's get-together in the Hamptons, and was planning on having a chat with his father about my *privilege* being Kaian’s best friend. Kaian’s dad was known for making people disappear, and by disappear, I mean drop off of the face of the planet, and then be found in pieces, stuffed into a suitcase at the bottom of a lake. 
+We were the smart kids, the ones with connections. I used these kids for my own benefit. Scarlet Janus was the daughter of the head of the school board. I was already in talks with her mother about tutoring. 
+
+Kaian Hardy, the son of a Korean diplomat, was one of my best friends. I was invited to his family's get-together in the Hamptons, and was planning on having a chat with his father about my *privilege* being Kaian’s best friend. 
+
+Kaian’s dad was known for making people disappear, and by disappear, I mean drop off of the face of the planet, and then be found in pieces, stuffed into a suitcase at the bottom of a lake. 
 
 Sure, if I ever had to backstab my best friend, I needed to have enough shit on his family to play my cards. 
 
@@ -366,13 +376,19 @@ It was for self validation at first.
 
 Then it became an obsession. I wanted these clothes, these material things, so much it hurt. Kaian could throw away a five thousand dollar watch because it didn't match his designer blazer.
 
- I dug in the trash and pulled it out, making it mine. 
+I dug in the trash and pulled it out, making it mine. 
 
 The Google doc exposed everything. My cleaning job, stealing clothes, and dumpster diving for high end fashion. There were grainy pictures of my real apartment, my bedroom covered in filth, my father staring dazedly at a television that wasn't even on. They even knew about my mother’s death, throwing herself off of a bridge when I was six years old. But I think the worst part was the collection of images of me when I was at my worst. 
 
 Inside the convenience store, baggy jeans and a vomit coloured sweater, my hair in my face. I was buying one dollar ramen. 
 
-I could already hear their snorts of laughter. The door opened, and a man appeared, dropping a large bag in front of us. I already knew what was inside. The Google doc said one thing at the bottom, and those words were still in my head, motivating me forward, my lips splitting into my usual Wendy Atlas grin. I could fix this. I could maintain my reputation and remain number one. 
+I felt exposed, almost naked. 
+
+I could already hear their snorts of laughter. 
+
+The door opened, and a man appeared, dropping a large bag in front of us. I already knew what was inside. 
+
+The Google doc said one thing at the bottom, and those words were still in my head, motivating me forward, my lips splitting into my usual Wendy Atlas grin. I could fix this. I could maintain my reputation and remain number one. 
 
 **The only ones you have seen this are you.**
 
@@ -390,15 +406,29 @@ So, ignoring the principal’s son blowing Lena Carson’s brains out, I followe
 
 I didn't scream when Liam’s blood spattered my face. 
 
-Stumbling back, my fingers around the blade. Not the best weapon, but it was either a knife, or a grenade. I didn't know how to use grenades, and I had a shitty aim. I think we all had the same idea. The same desperation. I watched my classmates scatter, some of them diving under desks,  while others went straight for the kill. Emma Cline grabbed me by the throat and shoved me into the wall, teasing the blade of an axe across my throat. The teeth rolled over my skin, and she let out a loud laugh. *”I knew you were fucking poor!”
+Stumbling back, my fingers around the blade. Not the best weapon, but it was either a knife, or a grenade. I didn't know how to use grenades, and I had a shitty aim. I think we all had the same idea. The same desperation. I watched my classmates scatter, some of them diving under desks,  while others went straight for the kill. Emma Cline grabbed me by the throat and shoved me into the wall, teasing the blade of an axe across my throat. The teeth rolled over my skin, and she let out a loud laugh. ”I knew you were fucking poor!”
 
-Emma’s smug grin snapped something inside of me. The bitch called me poor. She *knew* about my apartment, about my father's breakdown, and the lengths I had taken to get what I wanted. Emma thought she was untouchable. She thought her Mommy and Daddy could get her out of everything. So, I split her skull open. It was easier than I thought, a single plunge into the back of her head, and then force the knife deeper. 
+Emma’s smug grin snapped something inside of me. The bitch called me poor. She *knew* about my apartment, about my father's breakdown, and the lengths I had taken to get what I wanted. 
 
-Emma’s blood felt good dripping down my face. I had half a mind to rip off her Gucci skirt. The one I really wanted. But before I could, I found myself being shoved to the ground. Warren Mears. He tried to strangle me, his fingers cinching around my throat. He would have killed me, if someone's knife didn't impale him straight through his skull. 
+Emma thought she was untouchable. 
 
-I stopped coherently thinking that. Crawling across the floor, all I could see were 15 pairs of eyes watching me digging in dumpster trash. Blood spattered the walls, pooling down my face. I was covered in it, but I didn't care. I stamped on Allie Castor’s head, driving my heel into her skull. I sliced Becca Marie's throat before she could *utter* the word poor. Warm red slicked my hands, my vision blurring.
+She thought her Mommy and Daddy could get her out of everything. 
+
+So, I split her skull open. 
+
+It was easier than I thought, a single plunge into the back of her head, and then forcing the knife deeper. 
+
+Emma’s blood felt good dripping down my face. I had half a mind to rip off her Gucci skirt. The one I really wanted. But before I could, I found myself being shoved to the ground. Warren Mears. He tried to strangle me, his fingers cinching around my throat. He would have killed me if someone's knife didn't impale him straight through his skull. 
+
+I stopped coherently thinking after that. 
+
+Crawling across the floor, all I could see were 15 pairs of eyes watching me digging in dumpster trash. Blood spattered the walls, pooling down my face. I was covered in it, but I didn't care. I stamped on Allie Castor’s head, driving my heel into her skull. I sliced Becca Marie's throat before she could *utter* the word poor. Warm red slicked my hands, my vision blurring.
 
 I didn't stop, forcing my knife into bodies still moving. 
+
+Still screaming. 
+
+Pain, mercy, or frustration, I couldn't tell. 
 
 Two of us left.
 
@@ -454,25 +484,25 @@ Luke’s gaze met mine for the fraction of a second, his lips mouthing the exact
 
 *Intercom*? 
 
-“Project Mackerel has now ended. Lower your weapons. You have been participating in a test by the United States government in an attempt to locate and train future field agents–”*
+“Project Mackerel has now ended. Lower your weapons. You have been participating in a test by the United States government in an attempt to locate and train future field agents–”
 
 A sudden sharp screech in my ears sent me toppling off of the boy. I thought it was an alarm, but Lucas Warner sad screaming too, teeth clenched, his hands slamming over his ears. The sound stopped. Just like that. Luke blinked rapidly. His expression changed, from manic glee to confusion, and then to pain. His hands went to his throat, but I was already straddling him again, shaking the mechanical screech trying to claw into my mind. Luke surprised me with a sharp hiss, his frightened eyes finding mine.  “Mara–” 
 
 I couldn't hear him, his real voice whipped away. 
 
-I could hear his earlier words haunting me. 
+I could only hear his earlier words haunting me. 
 
  *Disgusting welfare hands.*
 
-“Mara,” Luke whispered, his voice different, “Mara, what's happening?”
+“Mara,” Luke whispered, his voice different. He struggled to get up, hissing in pain. “Mara, what's happening?”
 
 I didn't listen, plunging the knife into the bastard’s throat. Warm wet redness spattered my cheeks, and I laughed this time. I watched his eyes roll back, then turn glassy, his body going limp. I was still laughing when my vision blurred. 
 
-“Mara!” The intercom screeched. “I said lower your weapon right now–”*
+“Mara!” The intercom screeched. “I said lower your weapon right now–”
 
 No, the bastard called me *poor*. 
 
-Luke knew about my past. He knew I was a welfare kid. The bastard would take pleasure in telling Kaian. So, I kept going, singing over the orders for me to stop. I stabbed, sliced, and ripped onto him, ignoring glistening innards. But even when he was dead, even when his body reduced to scarlet mush, I could see the *reflection* of the Google doc in his glassy eyes. *Oh God, I could still see it.* 
+Luke knew about my past. He knew I was a welfare kid. The bastard would take pleasure in telling Kaian. So, I kept going, singing over the orders for me to stop. I stabbed, sliced, and ripped onto him, ignoring glistening innards. But even when he was dead, even with his body reduced to scarlet mush, I could see the *reflection* of the Google doc in his glassy eyes. *Oh God, I could still see it.* 
 
 I could see myself burying myself in shit, fishing for high end fashion. I could see my desperate grin, my fingers gripped around the Diana Mini. 
 
@@ -488,7 +518,7 @@ AND AGAINANDANDAGAINANDAGAIN–
 
 The door flew open, a stampede of footsteps drowning my ears. 
 
-There was a familiar voice in my ear, a soft, soothing voice. 
+There was a familiar murmur in my mind, a soft, soothing voice. 
 
 “Mara, it's me. It's okay, you can stop now.”
 
