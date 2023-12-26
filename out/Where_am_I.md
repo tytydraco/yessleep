@@ -1,22 +1,29 @@
 It’s getting colder out. Every time the cold arrives, so do the worst of my panic attacks. I don’t fully understand why. 
-maybe it’s these clothes… do I always wear these?
+
+Maybe it’s these clothes… do I always wear these?
 No one seems to understand.
 Even she, my love. She, who has been through it all. She looks at me with worry, confusion… with pity.
 How long has it been? Two? Three decades?
 Yes, I think… about 36 years.
+
 Time is meaningless now.
 
 I haven’t aged a single day since the nightmares started. My mind is filled with holes and images of those strange eyes.
 Eyes so real, but also alien. Eyes bigger than life itself.
- I close mine and I see them.
+I close mine and I see them.
 
 I remember when it started. Nice weather. A good day for going out on an aimless walk around town… a day so otherwise unremarkable. 
 
 I received a package. Unmarked. No postage. Strange, sure, but I didn’t think much of it and curiosity won over caution.
+
 After all, what kind of world would we live in if packages were dangerous? Never before has anyone heard of mail being used as a weapon here. Not in our world; our “perfect world.” That’s what she would say.
 And she’s right, you know. I don’t know where these ideas come from. Strange truths from strange realities that worm and burrow their way  into my unconscious, just like the god damn eyes.
+
+
 Our lives are dreams. But… my dreams are nightmares.
+
 If I think about it too hard, it hurts so much I swear my head will pop.
+
 The package contained two sets of knitted winter hats and matching sweaters. They fit us perfectly. 
 I laughed when I saw them. 
 We had moved in together that year, and she brought her dog along. I love that dog. We got him a matching set. Only one in the store. 
