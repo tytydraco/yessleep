@@ -35,7 +35,7 @@ I continued to follow them until we reached a cavernous room.
 
 The room which looked more like an altar room had a sacrificial table in the center.
 
-I stood there watching as they forced my friend onto the table.
+I stood there helplessly as they forced my friend onto the sacrificial table.
 
 They began to chant as they strapped him in.
 
@@ -79,6 +79,6 @@ That was almost two months ago.
 
 We managed to start over in another state and even got jobs but several days ago, we received the news that our town was destroyed by an earthquake.
 
-My friends have been missing too.
+My friend has been missing too.
 
 I think he went back to our old town and now, I have to go after him before it's too late.
