@@ -40,7 +40,7 @@ If you're wondering, the answer is 'Carl' and 'we don’t know' respectively.
 
 I clock in and drop my stuff off. At the start of every shift I like to fantasize how the rest of my day will play out.
 
-Well, there was that first week at work when I pissed off the boys upstairs. Our attic I mean. I forget exactly what I said but something along the lines of ‘musty’ and ‘hermits’. Which is true. If Carl ever needs more straws for concessions requiring a trip to the attic, I make sure I have my trusty nose plugs with me because it reeks up there. 
+Well, there was that first week at work when I pissed off the boys upstairs. Our attic I mean. I forget exactly what I said but something along the lines of ‘musty’ and ‘hermits’. Which is true. If Carl ever needs more straws for concessions requiring a trip to the attic, I make sure I have my trusty nose plugs with me because it reeks up there.
 
 Sometimes you’ll see a shadow, or hear them arguing in hushed humanoid voices; just ignore them. Well, now I do, but back when I started I wasn’t the type to keep something peeving me to myself. They must've heard me through the vents. I woke the next morning to Sully, my golden retriever of eight years, dead on my front lawn. He'd been stretched across the yard with his innards strewn about haphazardly, like the carnage a toddler leaves behind a room they've finished playing in. A bus route for the local elementary school passes down my street and I had slept in that morning. There was a lot of explaining to be done for my neighbors. Coyotes I said.
 
@@ -142,7 +142,7 @@ The door to Theater 13 has a glass porthole that lets you peer inside. In the pr
 
 The door handle is ice in my sweaty hand. I recognize the man on screen. Marco, a friend, and former employee. The people watching in the theater seem uncomfortable. Their heads twitching, twisting, almost as if struggling against something. I don’t know why they’re still watching.
 
-The shot begins to focus behind Marco. Zooming in, it centers on an open doorway in the background. Someone is looking at Marco from inside the unlit room. The picture is dark and grainy but I can make out half of a pale face, an eye, and a stretched smile from the black. The people in the audience were shaking their heads violently and faint wicked screams seeped through the door. 
+The shot begins to focus behind Marco. Zooming in, it centers on an open doorway in the background. Someone is looking at Marco from inside the unlit room. The picture is dark and grainy but I can make out half of a pale face, an eye, and a stretched smile from the black. The people in the audience were shaking their heads violently and faint wicked screams seeped through the door.
 
 An audience member jumped to their feet in a frenzied way and scrambled over their row toward the center aisle. The light from the screen cast a shadow on his face, a young man in his twenties, twisted in absolute horror, his mouth propped open to scream. There was no skin on his back, now a gory mess and in that moment I realize why everyone seems to be stuck to their seats.
 
@@ -150,13 +150,17 @@ The man makes a dash towards the door, where I’m looking in from, but is stopp
 
 I turn and walk back towards the lobby. What an idiot I am.
 
-Five years working at this place should be enough time and experience for me to know: that's some damn good bait. I try to shake it from my mind and find success when I realize I still have a job to do.
+Five years working at this place should be enough time and experience for me to know: that's some damn good bait. 
+
+I can say rule number one of this workplace is to have a healthy fear of it. Caution is always advised, even for the experienced.
+
+I try to shake it from my mind and find success when I realize I still have a job to do.
 
 Armed with fierce determination and a mop from a nearby closet I head towards the bathroom to complete Carl's bathroom quest and on the way crash directly into Carl and Harvey hauling the piss-stained geriatric man across the lobby. I walk right into them, the handle of the broom smacking Harvey on the forehead. He yelps and drops the senior like he's on fire and Carl allows him to slide limply off his arm face-first into the ground.
 
 We had to close the Century 13 while we called an ambulance. Carl told us to start showing people out and made me wait for the paramedics with the old man. We were in the middle of the lobby so everyone had to pass us on the way out. He would scare the shit out of anyone who walked too close, shouting confused about what year it was.
 
-We'd find out that the senior's name is Elvis. Elvis was born while Herbert Hoover was in office and had decided to watch Alfred Hitchcock's recent moving picture at his local theater one day in the fine spring of 1958. Apparently unimpressed with the movie, he decided to take a nice long nap during which 60 years passed, and he woke up a bitter old man. Yea, another rule I forgot to mention: literally no sleeping on the job. Time moves differently here when you’re asleep. 
+We'd find out that the senior's name is Elvis. Elvis was born while Herbert Hoover was in office and had decided to watch Alfred Hitchcock's recent moving picture at his local theater one day in the fine spring of 1958. Apparently unimpressed with the movie, he decided to take a nice long nap during which 60 years passed, and he woke up a bitter old man. Yea, another rule I forgot to mention: literally no sleeping on the job. Time moves differently here when you’re asleep.
 
 Of course, no one really believed him. Except for us employees. Honestly, his story was comparatively bland to some of the other stuff we've dealt with. Rather, we were pretty happy that we got to shut down work early.
 
