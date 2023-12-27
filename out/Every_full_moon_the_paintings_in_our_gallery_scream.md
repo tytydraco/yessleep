@@ -1,7 +1,3 @@
-(Audio narrated version available here: https://www.youtube.com/watch?v=0R_uXoO8naU)
-
-
-
 In the heart of a quaint, unnamed town, shrouded in the embrace of ancient oaks, stood the Gallows Art Gallery, a place where the whispers of the past seemed to echo through its hallowed halls. I had just accepted the position of curator, a role I embraced with a blend of pride and excitement. The gallery, with its gothic architecture and a reputation for housing some of the most intriguing and unsettling pieces of art, had always been a place of fascination for me.
 
 
