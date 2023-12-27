@@ -64,7 +64,7 @@ It's a haunting image – they lie spread-eagled, their arms and legs extended a
 
 I crouch down next to them, taking in the scene methodically, trying to piece together the final moments of the Collins.
 
-It’s clear from the state of the bodies that they were attacked with brutal force. The wounds are deep and savage, indicative of an ax or hatchet. The cuts are irregular, haphazard – not the work of a skilled assailant, but rather someone frenzied, uncontrolled. They’re final moments were gruesomely violent.
+It’s clear from the state of the bodies that they were attacked with brutal force. The wounds are deep and savage, indicative of an ax or hatchet. The cuts are irregular, haphazard – not the work of a skilled assailant, but rather someone frenzied, uncontrolled. Their final moments were gruesomely violent.
 
 The lack of blood around the bodies suggests they were placed there postmortem. It's a meticulous, deliberate act, someone wanting to send a message or perhaps fulfill some twisted fantasy.
 
@@ -170,7 +170,7 @@ The idea of causing a widespread panic on Christmas Eve is unsettling, but the s
 
 As the day unfolds, we work against the clock, coordinating with the local police force under the mounting pressure. The village is a hive of activity, officers moving door-to-door, advising residents while trying to maintain a semblance of calm. The hotline is set up, and calls start coming in, but most are false alarms or well-meaning tips leading nowhere.
 
-Back at the crime scene, forensics meticulously collects every piece of evidence. The snowmobile tracks outside lead to a dead end, vanishing into the dense forest surrounding the village. The team manages to lift a partial print from wrapping the killer used, but not enough to run through the databases.
+Back at the crime scene, forensics meticulously collects every piece of evidence. The snowmobile tracks outside lead to a dead end, vanishing into the dense forest surrounding the village. The team manages to lift a partial print from the wrapping the killer used, but not enough to run through the databases.
 
 As nightfall approaches, the tension intensifies. Olga and I retreat to the police station, transforming a small conference room into our temporary command center. The walls are lined with maps of the area, photographs of the crime scene, and notes on potential leads. The atmosphere is thick with the urgency of the situation, and the clock ticking towards Christmas Day adds an ominous undertone to our efforts.
 
