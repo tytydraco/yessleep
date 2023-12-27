@@ -2,9 +2,9 @@
 
 [Part Two](https://www.reddit.com/r/nosleep/comments/re0lnr/ive_been_stuck_in_the_year_2005_for_over_a_decade/)
 
-[Part Three](https://www.reddit.com/r/nosleep/comments/reql1r/ive_been_stuck_in_the_year_2005_for_over_a_decade/) 
+[Part Three](https://www.reddit.com/r/nosleep/comments/reql1r/ive_been_stuck_in_the_year_2005_for_over_a_decade/)
 
-[Part Five](https://www.reddit.com/r/nosleep/comments/18rawlx/i_think_i_died_sometime_in_06_thing_is_i_seem_to/) 
+[Part Five](https://www.reddit.com/r/nosleep/comments/18rawlx/i_think_i_died_sometime_in_06_thing_is_i_seem_to/)
 
 I stare in at her via the two-way mirror, her sitting pristinely on the bolted down plastic chair with her forearms lain on the edges of the industrial-style table inside the interrogation room. The file we have on her – paltry as it is seeing as she isn’t a scumbag – says she’s forty-two. But to my eye, she could pass for thirty-five, twenty-eight, for a woman even half her age. Her long neck and legs, narrow shoulders, avian bone structure, and the pinkish hue in her cheeks strip off at least a decade from her appearance. No matter how you slice it, she’s a looker.
 
@@ -118,7 +118,7 @@ Still crouched over the desk, my partner Dee likewise poised, we both exhale in 
 
 I excuse myself to retrieve the tape recorder. When I return, Lo gladly repeats her confession while the tape’s rolling.
 
-We read her her rights one more time. She then carries on, dry-eyed and monotone, telling us how exactly she murdered her husband. Despite the grim subject matter, her voice grows soft and somniferous, making those throaty clicking sounds on each consonant – giving me ASMR. She tells us everything; where she got the cyanide; how she planned to murder him and the kids with tainted beverages – hot coco for the kids, a large scotch for the hubby – and how she had a syringe of venom in case something went wrong. Like the first time.
+We read her her rights one more time. She then carries on, dry-eyed and monotone, telling us how exactly she murdered her husband. Despite the grim subject matter, her voice grows soft and somniferous, making those throaty clicking sounds on each consonant. She tells us everything; where she got the cyanide; how she planned to murder him and the kids with tainted beverages – hot coco for the kids, a large scotch for the hubby – and how she had a syringe of venom in case something went wrong. Like the first time.
 
 Dee and I both furrow our brows. Like the first time? How many families has this woman gone through? She then proceeds to tell us she’s done this before – each time, each Christmas, killing her husband, her children, and then herself so the four of them could repeat the year all over again. In blissful ignorance, of course. She says it’s part of the deal she made with some character named Mister Morgenstern, after her husband told her he was leaving her for some piece of tail fresh out of grade twelve. Mister Morgenstern – no first name, no address, no official occupation. Just Mister Morgenstern and a vague description of a mid-30s Caucasian male with red hair and a tacky plaid on plaid suit.
 
