@@ -8,9 +8,9 @@ Then, one fateful evening, everything changed. My wife Julie was involved in a f
 
 The constant reminders of her absence, the echoes of her laughter in our now-empty apartment, the unresolved case file that sat on my desk - it all became too much.The emptiness cast a shadow over everything I knew and loved. I needed a change of scenery, a chance to breathe, to heal.
 
-So, when a position for a senior investigator opened up in a quieter, more serene part of upstate New York, I jumped at it.
+So, when a position for a senior investigator opened up in a quiet part of upstate New York, I jumped at it.
 
-I thought I had left this life behind – the never-ending stream of difficult cases, one bleeding into the next. Yet here I am, on Christmas Eve, facing a grim reminder that no place is immune to crime.
+I thought I had left that life behind – the never-ending stream of difficult cases, one bleeding into the next. Yet here I am, on Christmas Eve, facing a grim reminder that no place is immune to crime.
 
 I see the cozy lake house, nestled on the shores of Saranac Lake, standing isolated, cordoned off with police tape. The snow gently falls, adding a serene contrast to the chaotic scene before me.
 
