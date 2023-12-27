@@ -10,7 +10,7 @@ He sat me down and told me stories. Stories no man should be able to say out lou
 
 He told me things that he knew he shouldn’t have said. And it still haunts me to this day.
 
-He was the commodore (CDRE 0-7) for the Australian Army. He lead his comrades into war and Is responsible for thousands of casualties. 
+He was the commando for the Australian Army. He lead his comrades into war and Is responsible for thousands of casualties. 
 
 Suddenly he decided to take me into his office filled with war related items. Opened his old dark oak trophy cabinet and pulled down his Commodore hat from when he was in the army. He told me it suited me and that I remind him of someone who is dead to him. I came to realise he was talking about himself.
 

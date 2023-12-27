@@ -8,10 +8,10 @@ My hometown has a dark secret though...
 
 Beneath my town lies a network of mining tunnels.
 
-Within those tunnels, lives something both ancient and evil.
+Within those tunnels, lives something that is both ancient and evil.
 
 
-Every month the town's townspeople offer a sacrifice to the creature to appease it. 
+Every month the town's townspeople offer a sacrifice to the creature in order to appease it. 
 
 Usually though, it's an outsider but from time to time, one of the town's people is offered as a sacrifice too.
 
@@ -41,7 +41,7 @@ They began to chant as they strapped him in.
 
 It was a ritual to summon the creature.
 
-A few minutes later, the air became stagnant and the ground beneath me began to shake.
+Soon the air became stagnant and the ground beneath me began to shake.
 
 This was my cue to hurry up and save my friend.
 
@@ -77,8 +77,6 @@ Anyway, I breathed a sigh of relief when I noticed we were far away.
 
 That was almost two months ago.
 
-We managed to start over in another state and even got jobs but a week ago, we found out that our town was nearly destroyed in what they said was an earthquake,
-
-Now, my friend has been missing for several days too.
+We managed to start over in another state and even got jobs but several days ago, my friend went missing.
 
 I think he went back to our old town and now, I have to go after him before it's too late.
