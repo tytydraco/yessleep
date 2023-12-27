@@ -67,7 +67,7 @@ Several smaller creatures were surrounding its feet too.
 
 "I don't know but we have to leave!" I said.
 
-Without hesitating, I grabbed my friend by the arm and ran as fast as I could without looking back.
+Without hesitating, I grabbed my friend by the arm and ran as fast as I could without once looking back.
 
 Somehow, I made it to my house.
 
@@ -79,6 +79,6 @@ That was almost two months ago.
 
 We managed to start over in another state and even got jobs but several days ago, we received the news that our town was destroyed by an earthquake.
 
-Now, my friend went missing.
+My friends have been missing too.
 
 I think he went back to our old town and now, I have to go after him before it's too late.

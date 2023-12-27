@@ -222,7 +222,19 @@ As I step closer, something catches my eye—a series of wires running from the 
 
 Olga and the other officers react instantly, turning on their heels and sprinting towards the exit. We move as fast as we can, the haunting strains of "Silent Night" chasing us as we evacuate the cabin.
 
-As we clear the threshold, the final notes of the carol play out, a foreboding silence falling for a brief moment. Then, with a deafening roar, the cabin erupts into a ball of fire and smoke, the force of the explosion sending shockwaves through the forest.
+I realize with a sinking heart that we're not going to make it out the front door in time. The music from the record player is reaching its final notes, a twisted countdown.
+
+"Window!" I shout.
+
+I see Olga hesitate for a split second, her eyes wide. I don't wait for her to react; I grab a heavy chair and hurl it at the nearest window. The glass shatters, scattering shards into the snow-covered ground outside.Without a second thought, I grab Olga by the arm and practically throw her towards the broken window.
+
+As soon as she's clear, I follow, heaving myself through the narrow opening. We tumble onto the snow-covered ground outside, the shock of the cold momentarily stunning us.
+
+Turning back, I see the other officers following suit, diving out of windows and doors, any exit they can find.
+
+We scramble to our feet, racing away from the cabin as fast as the deep snow allows.
+
+The final notes of the carol play out, a foreboding silence falling for a brief moment. Then, with a deafening roar, the cabin erupts into a ball of fire and smoke, the force of the explosion sending shockwaves through the forest.
 
 The night sky is briefly illuminated by the fiery blast. The force knocks me off my feet, sending me sprawling into the snow. Debris rains down around me as I huddle on the ground, ears ringing and hearts racing.
 
