@@ -23,7 +23,7 @@ See, several weeks ago my best friend was involved in a car accident that killed
 
 Susie Miller happened to be the mayor's niece too.
 
-A town meeting was held and it was decided that my friend would be sacrificed to the creature as punishment.
+Anyway, a town meeting was held and it was decided that my friend would be sacrificed to the creature as punishment.
 
 I couldn't let them do that, so I devised a plan.
 
@@ -31,9 +31,9 @@ On the day of the sacrifice, several of the town's people including the mayor es
 
 I quietly followed behind as they took him into the mineshaft located at the end of town.
 
-I continued to follow them until we reached a large room.
+I continued to follow them until we reached a cavernous room.
 
-The room which looked more like an altar room had a sacrificial table in the center of the room.
+The room which looked more like an altar room had a sacrificial table in the center.
 
 I stood there watching as they forced my friend onto the table.
 
@@ -43,7 +43,7 @@ It was a ritual to summon the creature.
 
 Soon the air became stagnant and the ground beneath me began to shake.
 
-This was my cue to hurry up and save my friend.
+This was my cue to hurry up and rescue my friend.
 
 I had to move quickly if I wanted to save him.
 
@@ -77,6 +77,8 @@ Anyway, I breathed a sigh of relief when I noticed we were far away.
 
 That was almost two months ago.
 
-We managed to start over in another state and even got jobs but several days ago, my friend went missing.
+We managed to start over in another state and even got jobs but several days ago, we received the news that our town was destroyed by an earthquake.
+
+Now, my friend went missing.
 
 I think he went back to our old town and now, I have to go after him before it's too late.
