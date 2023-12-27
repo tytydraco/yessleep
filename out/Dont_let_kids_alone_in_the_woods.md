@@ -1,0 +1,27 @@
+March 1993, when my parents left everything behind and moved there. An old cabin among the forest, 200 km away from our previous home. The nearest civilization was a small village with about 60 inhabitants, a 40-minute walk between the forest and the nearest town at an even greater distance. I got a lot of history's from those days and can tell more later.
+
+I was 8 years old, accompanying my parents in their retirements. A miracle child , or a mistake, depending on the perspective. My mother was already forty-five when I was born, and my father had reached his fifties. There was no more patience or energy for a child; it was a really difficult pregnancy and my mother's health faded away with my birth, i was always the smaller child but healthy, but despite it all, I was never neglected.
+
+I vividly recall our arrival, my father's truck bringing us to the new home. I ran freely around, inhaling the air as if it were the first time I could do so.
+
+Soon, our belongings were inside the house, still in boxes waiting to be unpacked. It wasn't much, but enough to live. Around 4:40 PM, my father suggested we visit the village, greet the new neighbors. Enthusiastically, my mother agreed, both still intoxicated by the newness. They ignored the long walk, my mother's weakened health, and the presence of the child that would slow them down. In minutes we entered the trail.
+I walked ahead, a few steps in front of my parents, following the dirt road with a branch in my hands, hopping, astonished. As a city child, the closest I had come to this were small picnics in parks, but there was no comparison. The sun descended upon the tall branches; we heard the birds' chirping, and occasionally, groups passed above our heads. My parents' steps became slower as my father adjusted to my mom's pace, and then he appeared in front of me, within the trees off the beaten path. A deer.
+Immobile, it stared at me, and I, in turn did the same, feared to disturb it. Majestic, even from a distance, it seemed imposing, its eyes as dark as the night, as round as the moon, but unlike the moon, they were opaque. We stood there, like statues; it didn't even seem to breathe, while I, hypnotized, couldn't look away. Perhaps it was just the beauty of nature enchanting the heart of a city child for the first time, or perhaps the magic of the woods. Everything seemed like a movie to me. I stood still, what felt like seconds and at the same time hours. The steps, once distant, were approaching. The sound of dry leaves being trodden upon became more and more present, but not even that made me divert my attention from the creature. We played the statue game together.
+
+"Dad, look," I murmured, changing my gaze for the first time towards the heavy steps echoing behind me when they finally caught up to me. Nothing, there was nothing. Dazed, I turned my head back to the deer quickly, looking for my previous playmate to find an empty space. My breath failed me, and a shiver ran down my spine. Only me, at eight years old, surrounded by countless trees and who knows what else. The enchantment faded in the face of the despair that took hold of me.
+
+"Mom," I shouted, hearing birds taking flight in response. "Mom!" I exclaimed louder, receiving my own voice echoing as a response.
+
+The crickets began their song, and the light started to decline in the density of the forest. Without hesitation, I ran down the trail, tears blurring my vision. I stumbled over roots, my knee bleeding. From the corner of my eye, I swore I could see the deer, now seemingly chasing me, disappearing every time I tried to look directly at it. On that first day, I began to harbor hatred for the place. I ran as if death itself were following. I slowed down, exhaustion overcoming adrenaline. I spotted a meadow, leaving the trees behind. I was almost giving up, but something screamed inside me not to stop running. I swallowed saliva with a throat as dry as sand and used my last breath to sprint toward the brightest area. Like the light at the end of the tunnel, I found my parents, motionless, lost.
+
+"Catharina," my mother exclaimed, running towards me. "Where have you been, my little one?" Her embrace of pure concern reached me, and I cried until I had no voice left. I wanted to explain, understand. I was in front of them, how could they pass by me on the same trail without seeing me? I waited for them next to the deer, how could they abandon me like this? A bewildered child, in my mother's arms.
+
+Breathless for more tears, I broke free from her embrace when my father bent down to lift me, resting my head on his shoulder.
+
+"The village is right there. Let's go," he said, stroking my back, trying to console me. "You scared us, but it's okay. Everything will be fine. Let's go."
+
+My mother stood up, and he turned, following the path in the wide meadow that separated the forest from the village. I buried my head in his shoulder, exhausted and frustrated. I curled up in his lap, seeking some relief. I lifted my head once again, looking into the darkness between the trees, while in the field, a trace of light still lingered. Genuine fear seized me for the second time that day.
+
+And there it stood, staring at me, with eyes immense and black, motionless and breathless.
+
+The deer.
