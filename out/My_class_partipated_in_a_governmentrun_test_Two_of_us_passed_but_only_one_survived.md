@@ -402,7 +402,7 @@ The door opened, and a man appeared, dropping a large bag in front of us. I alre
 
 The Google doc said one thing at the bottom, and those words were still in my head, motivating me forward, my lips splitting into my usual Wendy Atlas grin. I could fix this. I could maintain my reputation and remain number one. 
 
-**The only ones you have seen this are you.**
+**The only ones who have seen this are you.**
 
 Daddy used to say he had killed people for hurting his family. Bad people used to come to the door and ask for cash, and he would get rid of them. Before he lost his mind, Daddy told me I would *never* be like him. He made me promise I would grow up to be better than him. I never thought I would be capable of *truly* hurting someone, until the reality of the situation slammed into me. Lucas Warner was digging inside the bag and grabbing a gun, swinging it towards us, his eyes wild. He would kill to hide his secrets. 
 
@@ -500,7 +500,7 @@ Luke’s gaze met mine for the fraction of a second, his lips mouthing the exact
 
 “Project Mackerel has now ended. Lower your weapons. You have been participating in a test by the United States government in an attempt to locate and train future field agents–”
 
-A sudden sharp screech in my ears sent me toppling off of the boy. I thought it was an alarm, but Lucas Warner sad screaming too, teeth clenched, his hands slamming over his ears. The sound stopped. Just like that. Luke blinked rapidly. His expression changed, from manic glee to confusion, and then to pain. His hands went to his throat, but I was already straddling him again, shaking the mechanical screech trying to claw into my mind. Luke surprised me with a sharp hiss, his frightened eyes finding mine.  “Mara–” 
+A sudden sharp screech in my ears sent me toppling off of the boy. I thought it was an alarm, but Lucas Warner was screaming too, teeth clenched, his hands slamming over his ears. The sound stopped. Just like that. Luke blinked rapidly. His expression changed, from manic glee to confusion, and then to pain. His hands went to his throat, but I was already straddling him again, shaking the mechanical screech trying to claw into my mind. Luke surprised me with a sharp hiss, his frightened eyes finding mine.  “Mara–” 
 
 I couldn't hear him, his real voice whipped away. 
 
@@ -518,7 +518,7 @@ No, the bastard called me *poor*.
 
 Luke knew about my past. He knew I was a welfare kid. The bastard would take pleasure in telling Kaian. 
 
-So, I kept going, singing over the orders for me to stop. I stabbed, sliced, and ripped onto him, ignoring glistening innards. But even when he was dead, even with his body reduced to scarlet mush, I could see the *reflection* of the Google doc in his glassy eyes. *Oh God, I could still see it.* 
+So, I kept going, singing over the orders for me to stop. I stabbed, sliced, and ripped into him, ignoring glistening innards. But even when he was dead, even with his body reduced to scarlet mush, I could see the *reflection* of the Google doc in his glassy eyes. *Oh God, I could still see it.* 
 
 I could see myself burying myself in shit, fishing for high end fashion. I could see my desperate grin, my fingers gripped around the Diana Mini. 
 
