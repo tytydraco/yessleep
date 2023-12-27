@@ -8,7 +8,7 @@ My hometown has a dark secret though...
 
 Beneath my town lies a network of mining tunnels.
 
-Within those tunnels, lives something both ancient and evil.
+Within those tunnels, lives something that is both ancient and evil.
 
 
 Every month the town's townspeople offer a sacrifice to the creature to appease it. 
