@@ -1,0 +1,53 @@
+Three years ago, I experienced something terrifying while on the job as a night-shift CAT scan Tech, and I have tried and failed to make sense of it since then. At first I chocked it up to some sort of psychotic breakdown due to my mass paranoia from working in a hospital during a global pandemic. In my mind, each patient I came into contact with could be a harbinger of disease that ultimately lead to my painful, suffocating death. Needless to say, it was a rough time in my life, full of fear, paranoia, and near-crippling anxiety.
+
+I wasn’t quite used to working third shift at that time. Many of my coworkers were getting up there in age, so most understandably took a leave of absence during the beginning stages of the pandemic for their own safety, leaving the younger, healthier of us (aside from myself) to take the reins for awhile until things got a little more under control. This mass exodus resulted in quite the schedule shift for the remaining few of us, forcing us to pick up hours spanning across all shifts.
+
+At first, I was able to convince myself that the strange occurrences were due to stress and a chronic lack of sleep, but after three years and a career change later, my doubts are beginning to creep in.
+
+Up until the moment the incident occurred, that night wasn’t really any different from any other night—spurts of chaos followed by long, quiet lulls of nothingness. Those stretches of time were spent sitting in a dim room, watching a show or movie on my phone, and fighting away the ever-increasing weight of my eyelids.
+
+Around 3 a.m., I saw two orders pop up on the screen. One CAT scan, and one x-ray. I muttered some profanities under my breath as I used my feet to scoot my chair over to the computer. I wasn’t happy that my break was clearly over, but I appreciated that both of the orders were on the same person, and both were quick and easy. Then I looked at their age. Fuck. Creeping up on 90 years old. Don’t get me wrong, I’m not ageist, nor do I dislike the elderly, but it could be difficult moving them over to the table when you were by yourself. “I hope they’re a walker,” I said to myself as I moved to set up the room.
+
+A few minutes later, I found myself wheeling the patient down the hallway in their stretcher, monotonously explaining the ins and outs of this quick exam for what felt like the 100th time that day. I could tell she wasn’t really listening, but what’s new? Most people didn’t listen. Instead, she was mumbling on and on about how excited she was to go back-to-school shopping with her grandma once she got out of the ER. Considering her age, I would say her grandmother had been dead for quite some time. Confused, I just went along with it, and asked the patient—simply out of curiosity—what year it was. 1944 was the answer. I went along with it, and acted excited along with her. No point in ruining what was clearly a dementia-ladened good memory.
+
+The patient was still happily chatting away as I wheeled her into the room, me nodding and agreeing to everything she said as if it made sense. I spun the stretcher around so that she would be lying anatomically correct for her scan, and layed the head of the stretcher down. The talking abruptly ended mid sentence as I turned to shut the door. Odd, sure, but not anything surprising given her condition, so I brushed it off with a shrug as the door latched into place.
+
+I jumped and let out an embarrassingly audible gasp as I turned around and found the patient sitting up and pointing, wide-eyed, to the corner of the room, just behind me and to my left.
+
+“Who is that standing there?” She asked me.
+
+“What’s that?” I asked. “I don’t see anyone. No one is there.”
+
+A little freaked out, I decided to probe a little more. I tried to rationalize. Maybe she had seen a nurse or a doctor walking down the hallway as I was closing the door, so I asked her what the person was wearing.
+
+“Were they wearing scrubs, like what I’m wearing?” I probed.
+
+The patient shook her head slowly back and forth without saying anything, her boney finger still unsteadily pointing to the corner of the room. My blood ran cold. I knew I wouldn’t get anywhere with further questions, so I gently pushed her arm down and helped her to scoot over to the table.
+
+The scanning process was kind of a nightmare. What should have taken me two minutes, took me ten because the patient kept trying to lift her head up, and to wave to the invisible figure in the corner of the room. After several reminders to hold still, I got a decent study done. Now on to the next exam. One simple x-ray and I can get her back to her room and not have to deal with the creepiness anymore.
+
+The walk down the hall was a long one. Quiet and eerie on a normal night, the seclusion of the hallway offered not even the tiniest bit of comfort. Each giggle from the patient echoed down the empty hallway as she looked around for her new invisible friend. “Where did he go?” she asked. I let out a nervous shrug and told her that I didn’t know. “Maybe he had somewhere to be,” I said, as I was nervously scanning the hallway for anyone (or anything) that shouldn’t be there.
+
+The bright hallway lights faded as we inched toward the dark bay outside of the x-ray room. A long curtain hung lazily from the ceiling to section off the bay area for privacy, the bottom dangling 3-4 inches above the white linoleum. A boney, arthritic finger slowly made its way into my vision from the stretcher.  It pointed towards the gap between the curtain and the floor. She smiled. “He’s behind that curtain. Can’t you see his shoes?” she asked. Her eyes widened, and a small bit of spittle dripped down her chin as her shaky hand reached out to grab the curtain and toss it aside. While I didn’t see the shoes behind the curtain, I certainly wasn’t going to risk anything by letting her grab it, so I did a quick maneuver to get her the hell away from that thing and into my room. “No you don’t,” I whispered.
+
+I rolled her in and quickly slammed the door shut. I wasn’t proud about how scared I was, but at that point, it was getting difficult to hide it. Every time I tried to change the subject, she went back to murmuring about the man behind the curtain. I rushed to set the exam up—to get my pictures, and get the patient back to the ER. The only thing I had going for me at that point was the story I was going to be able to tell my coworker when she got back down from the upper floors.
+
+I went behind the lead-lined barrier so I could hit the button, turning my back for just a second. When I did, I heard a loud slam that caused both me and the patient to jump. My heart was pounding now, but I was still desperately trying to keep my wits about me and remain professional. I turned and glanced around the room, trying to see if anyone had gotten in. Nothing. Just me and the patient. I looked at her, and she smiled, her brown teeth oozing liquid down the front of her shirt. “He’s here,” she snickered. “Can you see him?”
+
+My lungs were frozen mid breath as I tried to come back to an increasingly slippery reality. I felt like I was in a dream that I couldn’t escape. No amount of trying to laugh this off would warm the chill in my veins. I wanted no part in this. I ran into the control room and pressed the exposure button as fast as I could in-between her laughs. The x-ray was blurry, but as good as it was going to get.
+
+I ran to grab her stretcher and race her back to her room as fast as I could. The laughing was getting louder and louder, to the point that my ears began to ring. I couldn’t take it anymore. I felt like I was going insane. Could this really be happening, or was this all some sort of crazy caffeine-fueled dream?
+
+I didn’t have much time to entertain the thought that it was a dream. The laughs quickly turned to coughs; the coughs to gags; the gagging to gasps. She stopped breathing. The reality of the situation set in. I murmured to myself as I quickly ran over to the “code” button on the wall. “Shit, shit, shit…”
+
+Seconds later, a code team came barging through the door, crash cart in hand. Compressions were started almost immediately as a nurse jumped on the stretcher straddling the patient for leverage as they rolled her back to the ER. I got one final look as the rolled her out. There was a lifelessness in her eyes, but a wide smile on her face.
+
+I relayed my story to my coworker as she came back down from the floor, asking what had happened. She listened carefully, without saying much, but I could tell she didn’t believe me. I mean, I don’t blame her. I probably wouldn’t have believed her had the situation been reversed.
+
+The rest of the night passed with little issue, but I did find out that the patient didn’t make it. They called it after compressions and epinephrine had failed to get her heart going again. I had a long drive home to reflect on what I had witnessed…or had I really witnessed it at all? I concluded that the late night, my exhaustion, and the caffeine had created something out of nothing. She had dementia, after all. Who knows what could have possibly been going through her head. I told myself to not let her get into mine.
+
+I managed to calm myself down, but never could shake the feeling that someone was always there, watching me. It took a little bit of time, but after three years, my life had regained a sense of normalcy. However, recently, I have been experiencing horrible nightmares about that night—about the patient and our conversation. The dreams started off as rare, singular events, but they’re becoming more frequent—more lucid. It’s like I’m there again, almost every night…the grinning face, the bony fingers pointing to the corner of the room and under the hanging bay curtain.
+
+I had been able to ignore them for a while, but now I’ve begun to see a strange figure throughout the day, standing in the corner of the room, waving and smiling. I don’t know what this thing is, or why it’s here, but I am beginning to think that whatever it is, it is what my patient had seen three years ago, and has now attached itself to me. Is it death? Is it a ghost? A demon? Is it my imagination?  These are questions that race through my mind every time I see him smiling and waving.
+
+I don’t know what to do. I don’t know who to reach out to, or if anyone would even believe me. All I know is that this thing is always around, watching, smiling, waving, and getting a little closer each day.
