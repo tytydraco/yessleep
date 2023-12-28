@@ -1,0 +1,25 @@
+It's midnight, I'm alone at home, I can't sleep. So I decide to have a stroll down the street. It's silent, the only sound of wildlife being crickets and other insects chirping together. It was a beautiful night and the sky was clear, and so I decided to stop by the local Park. Theres a cemetery nearby, yet I'm not bothered until...I see it. The moon hung high in the night sky, casting an eerie glow over the desolate yard. A chilling wind whispered through the trees, causing the leaves to rustle in a haunting symphony. It was in this unsettling atmosphere that I found myself frozen in fear, my heart pounding in my chest.
+
+Before me stood a mindless corpse, its decaying body swaying slightly in the breeze. Half of its head hung off to the side, revealing a gruesome and gory sight. It's rotting brown blood spilled onto the grass, staining it a deep crimson and causing the worms to wriggle to the surface. The body just stood there, its one remaining eye fixed upon me as if it had no thoughts but to watch me. The eye, clouded with cataracts, seemed to pierce through my soul, sending shivers down my spine.
+
+I couldn't tear my gaze away from the grotesque figure standing before me. It was as if time had stopped, and the world around me had faded into nothingness. The only thing that existed in that moment was me and the rotting corpse staring at me.  
+
+ I stood there, my mind raced, desperately trying to make sense of the sickening scene. How did this corpse come to be? What sinister force had brought it to life? Questions swirled in my head, but no answers presented themselves. Fear had grasp on my lungs, every breath was a sharp pain down my throat and in my chest.
+
+The wind picked up, carrying with it a putrid stench of decay. The corpse's tattered clothes fluttered in the gusts, revealing more of its decaying flesh. The sight was enough to make bile rise in my throat, but I couldn't look away. It was like watching a lion tear apart a zebra, so grotesque that you want to look away and forget yet so fascinating you can't look away.
+
+Suddenly, a low, guttural growl emanated from the lifeless body. The sound was so disturbing it gave me a headache, freezing me in place and locking my feet to the floor. What was left of the corpses mouth opened, and a sickening gurgle escaped its throat. It took a step forward, its movements jerky and unnatural. It's rotting flesh had been holding onto its jaw by a thread before detaching and dropping to the floor. More dark blood flooded and dropped down onto the grass.
+
+Panic surged through me, urging me to run, to escape this evil, unnatural presence. But my legs refused to move, feeling both solid and like jelly at the same time. The corpse continued its slow, deliberate approach, its one eye fixed upon me. It was as if it could see into the depths of my soul, feeding off my terror.
+
+With every step it took, you could hear the bones and joints popping and crackling against each other like a dislocated knee being bent constantly. The air grew thick with an oppressive smell of rot, suffocating me. I could feel the weight of evil pressing down upon me, threatening to consume me whole.
+
+As the corpse drew closer, I could see its mushy red features in greater detail. Its flesh was mottled and rotting, maggots wriggling within the open wounds. The stench of death grew stronger, overpowering my senses. I could taste the metallic tang of blood on my tongue, mingling with the vomit rising in my throat.
+
+Just as the corpse reached out its decaying hand, a surge of adrenaline coursed through my veins. With a primal scream of fear, I broke free from my paralysis and stumbled backward, tripping over my own feet. I scrambled to my hands and knees, my heart pounding in my ears, I got up and ran as fast as my trembling legs would carry me.
+
+Behind me, I could hear the corpse's unearthly crackling steps growing fainter, and the sound of its flesh falling off and dripping on the concrete faded away, but I dared not look back. I ran until my lungs burned like menthol and my shins were in agonising pain. Only when I reached the safety of my home did I allow myself to collapse, gasping for breath.
+
+That night, as I lay in bed, drenched in a cold sweat, I couldn't shake the image of the mindless corpse from my mind. Its haunting gaze, its decaying form, and the terror it had instilled in me would forever be etched into my memory. I knew that I had encountered something beyond the realm of the living, something that would forever haunt my nightmares. It was something sinister, evil, something that shouldn't have ever existed in the mortal realm. 
+
+To this day, I can smell the flesh, I can hear the joints causing friction against each other. And I can see it's blood shimmering in the moonlight. The brown liquid that once was blood stained against its skin. And of course, the way it looked at me with that clouded eye...like a crystal ball reading my demise
