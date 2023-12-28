@@ -221,3 +221,7 @@ A bride I recognized.
 I tried to hide it, but it was too late. Casey’s eyes widened. Brady and Maribel leaned into the backseat, curious. Maribel’s mouth fell open. Brady stared in shock.
 
 The photo swam before me, as I felt weak, as darkness crept into the edges of my [vision.](http://www.reddit.com/r/blairdaniels)
+
+—
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/18sor83/my_friend_has_a_camera_that_will_show_you_your/)
