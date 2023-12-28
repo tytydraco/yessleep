@@ -6,7 +6,9 @@ I was a senior when it started and Billy was a junior. Our school Belmonte High 
 
 There was a second killing in town done the same way. This one was within walking distance of Billy's house. It had to be him. It just had to.
 
-I didn't know how to prove it but I knew there must be a way. So I decided to stakeout the kids house and follow the creep wherever he went. The first week of this was no dice after no dice. It was boring and grueling. I was losing sleep by watching his house late into the night. My parents were getting pissed at me being gone all the time. My friends were over it as well as my girlfriend, all of whom I'd brought along several times to keep me company.
+I didn't know how to prove it but I knew there must be a way. So I decided to stakeout the kids house on Fourth Street, and follow the creep wherever he went. 
+
+The first week of this was no dice after no dice. It was boring and grueling. I was losing sleep by watching his house late into the night. My parents were getting pissed at me being gone all the time. My friends were over it as well as my girlfriend, all of whom I'd brought along several times to keep me company.
 
 "Just let the cops handle it man," they all said, but I knew it would take 24/7 coverage to catch this little slimeball. Someone had to do it and when I caught him I'd be a hero and his next victim would still be alive. And better than that, Billy would be on a one way trip to the electric chair.
 
@@ -18,7 +20,7 @@ There was one thing of note in the woods however. There was a huge boulder as hi
 
 Turned out I was right. He went up on top of the boulder like all the kids do from the backside. I went around the front of it quietly. From where I was I could get a glimpse of him from below and follow him so as to catch him in the act.
 
-He sat there staring out over the town. I pulled out my night vision scope and was able to get a good clear close up of his face. He had a set of halloween fake vampire fangs in his mouth! This dude was out of it! I couldn't wait to get some video footage of this nut!
+He sat there staring out over the town. I pulled out my night vision scope and was able to get a good clear close up of his face. He had a set of Halloween fake vampire fangs in his mouth! This dude was out of it! I couldn't wait to get some video footage of this nut!
 
 I was getting the camera ready when I heard a fluttering sound. It was like bird wings flapping. I looked up and there was a huge hammerhead bat coming at me! The damned thing grabbed me by my jacket with its claws and flew me up to the top of the rock. It set me down in front of Billy who didn't seem surprised at all.
 
@@ -28,4 +30,4 @@ I was shocked, stunned, and overwhelmed with terror. This was not part of my wor
 
 "Master," he said, "should I kill him?" The creature shook its head 'no' and then bit me on my neck. I could feel my blood draining out through the puncture wounds as it fed.
 
-That was many moons ago. Now Billy and I work together identifying fresh meat that fits our masters discerning palate. I don't see much of my family or friends anymore and after graduation I quickly moved in to my new home on fourth street. [X](https://www.reddit.com/r/DentonQuick/)
+That was many moons ago. Now Billy and I work together identifying fresh meat that fits our masters discerning palate. I don't see much of my family or friends anymore and after graduation I quickly moved in to my new home on Fourth Street. [X](https://www.reddit.com/r/DentonQuick/)
