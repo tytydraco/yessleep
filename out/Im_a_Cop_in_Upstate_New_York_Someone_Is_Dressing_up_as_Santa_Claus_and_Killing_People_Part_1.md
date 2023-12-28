@@ -180,7 +180,11 @@ She's been combing through the local social media groups, tracking any unusual a
 
 We delve deeper into Nathanial's background. Locals say he's a loner, mostly keeping to himself. His history reveals a troubled childhood, bouncing from one foster home to another, each experience more harrowing than the last. Records show a pattern of mental health issues, largely untreated due to his distrust of institutions.
 
-We uncover that Brook's last known residence is a secluded cabin in the woods, a few miles outside of town. It's the kind of place that someone would choose if they wanted to stay hidden, away from prying eyes. The details fit too well with our suspect's profile, and we can't afford to ignore this lead.
+Our tech team analyzes the footage for any metadata that might have been inadvertently left on the file. They scrutinize the background for distinctive features, anything that might give away the location. It's painstaking work, but finally, they find something – a glimpse of a unique tree species visible through a window in the background, one that’s native only to a specific area near Saranac Lake.
+
+Cross-referencing this information with local forestry records, we narrow down our search to a secluded region on the outskirts of the village. Satellite imagery helps us identify a few isolated cabins within this area. One in particular stands out – a cabin registered under a pseudonym that, upon further investigation, links back to Nathanial Brooks.
+
+It's the kind of place that someone would choose if they wanted to stay hidden, away from prying eyes. The details fit too well with our suspect's profile, and we can't afford to ignore this lead.
 
 I immediately call the district attorney's office, laying out the evidence and the urgency of the situation. The prosecutor is quick to understand the gravity, and within an hour, we have a signed search warrant in hand.
 
