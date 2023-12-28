@@ -110,7 +110,7 @@ Officials at the scene: 						Department:
 
 ## Wounds, etc-
 
-**Head:** Decadents head is fused at the base with its neck. Otherwise the right side of the face has fused into the back of his partner (Sara)- both eyes are visible although the right eye is no longer apart of decadents face. Right eye has seemingly traveled down his partners back. Long, strung out strips of flesh hang where decadents lips would normally be. Blood stains the end of them, most likely the result of a struggle.
+**Head:** Decedents head is fused at the base with its neck. Otherwise the right side of the face has fused into the back of his partner (Sara)- both eyes are visible although the right eye is no longer apart of decadents face. Right eye has seemingly traveled down his partners back. Long, strung out strips of flesh hang where decadents lips would normally be. Blood stains the end of them, most likely the result of a struggle.
 
 **Chest:** Can not clearly distinguish decadents chest from his partners. Both are melded together- a few cracked ribs are seen poking out of the left side of the area, as well as the remnants of the female victims hand around where the collarbone region is. Only a few odd fingers stick out- the rest of the arm-bone and hand has fused into the “chest”.
 
