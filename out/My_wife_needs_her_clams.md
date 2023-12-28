@@ -1,37 +1,35 @@
-  
-My wife loves clams.  We were sat at Louie's Seafood while Ariel dug her nails into her thumbs until they bruised and drew trickles of blood. She whispered "Jesse, where are my clams?" I could see beads of sweat trickling down her sides, her face a whitish-red - ready to pop. "Jesse, my clams."  
-  
-"We just ordered them, they'll be here" I tried to wave the comment away, but it was like watching a baby mewling for his milk - the desperation, the desire. She needed. those. clams. The air smelled like butter, parmigiano, the overhead light weighed on me with its thick photonic globules. The adjacent table chattered about some nonsense, and then chattered into some thick juicy bivalves, I oculd hear them slurping, I could hear the bits of cracker that fell like boulders onto their porcelain plates. I knew Ariel could hear them too. They didn't even respect the clams, gorging their selfish little throats with the viscous mucus. Throwing mantle and beak in a big gray bucket - pop, pling. Ariel respected clams, licked around their beaks like she would a lover, tonguing their soft fleshy insides, she'd let out a little moan as she bit gently to free the morsel from its stem. She'd chew, consider, and chew again, tossing it about her mouth like you might do a fine wine.   
-  
-She'd moan again "mmmm" her eyes would roll a bit; the clam was a part of her now. And she'd swallow it down, her cheeks softening and her lips curling, as if she was saying thank-you to the beautiful creature. The waiter needed to get their fast, my wife needed her clams. A man with a black apron, and cool black hair that greased over his forehead came by our table. He smelled like an hour-ago cigarette, a cheap ashtray, it wafted in the air and sat above me like a cloud. He was skinny, a beansprout my dad would've said. I could see his hands shaking, twitching, a nervous little bean sprout. A nervous little bean sprout with a nervous little mustache that looked like it tickled his cracked lips, he must bite them, he must bite his nails too, I bet they look like little nubs.   
-  
-"Sir, where our are clams?" I asked, polite as I could. Ariel crossed her arms, and her soft buttery skin sifted together, she looked longingly up at me with her brown eyes, I could see tears form, and for a moment it looked like sweet slimy clam.  She needed those clams.   
-  
-"They'll be out in just a moment" he stammered, his mouth flapping, smack, smack, smack. His hands shook again, this man didn't appreciate clams either. Didn't appreciate the love my wife had for her little morsels, for her little babies. This man just saw us as some customers, he probably even expected a nice tip. He'd get one, so long as he brought us a plate of steamy clams, fresh from the tide pool, give me those clams my boy.   
-  
-He brought them, a big plate, clams piled high, their gray backs ready and their mouths open ready for my wife's tongue to explore every crevice of their bivalve bodies. She stuck her hand into the hot water, I could see her finger swell, and a clear little sheen form across the top. She grabbed the clam, rough little thing, with its gaping body, and its shiny ridges. It glowed opalescent; it was such a gorgeous clam. Water dripped back into the bowl. plip. plop. Gorgeous, and wet. It was ready to be devoured by my wife, who's lips shined and brows curled, I knew her toes curled under the table, too. Her nails toenails whitening under the crimson polish she applied. She kissed the clam, bit down on its mantle, just a nibble. Come here, lover, stay a while. then she bit another nibble, just the tip. then her tongue reached around, curled around the thick gray and tan meat, and pulled the clam free. I could see her cheeks puff, as she tossed it back and forth in her mouth. She breathed in through her nose, her back arched, and her shoulders raised. She took time with every clam, I didn't have any, these were for my wife and a husband gives his wife what she wants. What my wife needs, I provide. My wife needed her wonderful clams.   
-  
-We left the restaurant, and walked down to the rocky beach, the sun was high in the air, a breeze nipped at the back of my neck, and whispered at my ear lobes. I could see a group of children at a tide pool, looking at the coral and starfish. Their little onesie bathing suits, one striped, one a solid pink. They giggled and splashed. Little cretins. We trekked over boulders, looking for a good pool to swim in. "Honey, I need a dip after those yummy clams."   
-  
-"I know dear, we'll find a good pool, with clear shimmering water, anything for you, Ariel."   
-  
-"Oh dear, I love you."  
-  
-She said nothing, and we walked on. Sure, I felt a bit miffed, but I knew my place. I know I could never match up to those delicious clams, I knew what she thought about at night. What she dreamed about as she stared to the horizon. And there it was, the perfect tide pool. But there was something portentous about it, something terrifying. little ripples pooled from its center like a cynosure. beckoning. My wife showed no such terror, she looked at it with a palpable glee, her eyes widened, and creases formed their trails on her forehead.   
-  
-"Are you sure?" I pleaded, half-hearted, I knew the answer. I didn't want it, but I knew the answer. She walked down to the pool and undressed to her undergarments. Opaque and black, she was prepared for this. The water was so clear that if it wasn't for those rippled my wife would have looked as if she were just slipping into air. Then I saw one, a live clam. It yapped and fluttered like a moth. It came up to my wife and landed on her abdomen. She gave it a pet like you might a kitten. For lack of a better term, it bit her, it yapped its whole body right onto her abdomen, and tore, blood ran her stomach and into the pool, I thought she'd scream, but she didn't, she just let out a little moan. I was frozen, stilled by this carnivorous clam. Another jumped onto her, and did the same the last one did, drawing blood, and tearing flesh. Soon she was covered in purple bruises, and bloody slits. Her eyes rolled back into her head like they did at the restaurant.   
-  
-"Ariel, please get out of the pool!" I screamed.   
-  
-"Jesse, they're just hungry" she tossed my comment aside as if it were too obvious to really bother with.   
-  
-A clam tore through her bra, and her nipple was exposed. "Oh - this is what you really want, isn't it, sweetie?" the clam bit down and milk started dripping from my wife's tit. It looked like strawberry milk flowing from her breast and down her torn body. "Drink up, baby" my wife reassured.  
-  
-I ran, maybe I'm wrong for that, but I ran. I left my wife in that shallow pool, and truth be told, I never saw her again. A few months later I met a woman at a bar, she had blonde hair that hung down to her shoulders. She had blue eyes, and lashes that were fake in a way that I didn't mind so much. She smelled like lilacs, and just a little bit of sweat. She wore blue jeans, and a tight black shirt that hugged her figure. She talked so much, and I listened, but I wanted to hear just one word, just one word to one question.   
-  
-"Do you want to go for clams?"   
-  
-"S-sure" she said.   
-  
-Ambrosia.   
-  
+My wife loves clams.  We were sat at Louie's Seafood while Ariel dug her nails into her thumbs until they bruised and drew trickles of blood. She whispered "Jesse, where are my clams?" I could see beads of sweat trickling down her sides, her face a whitish-red - ready to pop. "Jesse, my clams."
+
+"We just ordered them, they'll be here" I tried to wave the comment away, but it was like watching a baby mewling for his milk - the desperation, the desire. She needed. those. clams. The air smelled like butter, parmigiano, the overhead light weighed on me with its thick photonic globules. The adjacent table chattered about some nonsense, and then chattered into some thick juicy bivalves, I could hear them slurping, I could hear the bits of cracker that fell like boulders onto their porcelain plates. I knew Ariel could hear them too. They didn't even respect the clams, gorging their selfish little throats with the viscous mucus. Throwing mantle and beak in a big gray bucket - pop, pling. Ariel respected clams, licked around their beaks like she would a lover, tonguing their soft fleshy insides, she'd let out a little moan as she bit gently to free the morsel from its stem. She'd chew, consider, and chew again, tossing it about her mouth like you might do a fine wine.
+
+She'd moan again "mmmm" her eyes would roll a bit; the clam was a part of her now. And she'd swallow it down, her cheeks softening and her lips curling, as if she was saying thank-you to the beautiful creature. The waiter needed to get their fast, my wife needed her clams. A man with a black apron, and cool black hair that greased over his forehead came by our table. He smelled like an hour-ago cigarette, a cheap ashtray, it wafted in the air and sat above me like a cloud. He was skinny, a beansprout my dad would've said. I could see his hands shaking, twitching, a nervous little beansprout. A nervous little sprout with a nervous little mustache that looked like it tickled his cracked lips, he must bite them, he must bite his nails too, I bet they look like little nubs.
+
+"Sir, where our are clams?" I asked, polite as I could. Ariel crossed her arms, and her soft buttery skin sifted together, she looked longingly up at me with her brown eyes, I could see tears form, and for a moment it looked like sweet slimy clam.  She needed those clams.
+
+"They'll be out in just a moment" he stammered, his mouth flapping, smack, smack, smack. His hands shook again, this man didn't appreciate clams either. Didn't appreciate the love my wife had for her little morsels, for her little babies. This man just saw us as some customers, he probably even expected a nice tip. He'd get one, so long as he brought us a plate of steamy clams, fresh from the tide pool, give me those clams my boy.
+
+He brought them, a big plate, clams piled high, their gray backs ready and their mouths open ready for my wife's tongue to explore every crevice of their bivalve bodies. She stuck her hand into the hot water, I could see her finger swell, and a clear little sheen form across the top. She grabbed the clam, rough little thing, with its gaping body, and its shiny ridges. It glowed opalescent; it was such a gorgeous clam. Water dripped back into the bowl. plip. plop. Gorgeous, and wet. It was ready to be devoured by my wife, who's lips shined and brows curled, I knew her toes curled under the table, too. Her toenails whitening under the crimson polish she applied. 
+
+She kissed the clam, bit down on its mantle, just a nibble. Come here, lover, stay a while. then she bit another nibble, just the tip. then her tongue reached around, curled around the thick gray and tan meat, and pulled the clam free. I could see her cheeks puff, as she tossed it back and forth in her mouth. She breathed in through her nose, her back arched, and her shoulders raised. She took time with every clam, I didn't have any, these were for my wife and a husband gives his wife what she wants. What my wife needs, I provide. My wife needed her wonderful clams.
+
+We left the restaurant, and walked down to the rocky beach, the sun was high in the air, a breeze nipped at the back of my neck, and whispered at my ear lobes. I could see a group of children at a tide pool, looking at the coral and starfish. Their little onesie bathing suits, one striped, one a solid pink. They giggled and splashed. Little cretins. We trekked over boulders, looking for a good pool to swim in. "Honey, I need a dip after those yummy clams."
+
+"I know dear, we'll find a good pool, with clear shimmering water, anything for you, Ariel, I love you"
+
+She said nothing, and we walked on. Sure, I felt a bit miffed, but I knew my place. I know I could never match up to those delicious clams, I knew what she thought about at night. What she dreamed about as she stared to the horizon. And there it was, the perfect tide pool. But there was something portentous about it, something terrifying. little ripples pooled from its center like a cynosure. beckoning. My wife showed no such terror, she looked at it with a palpable glee, her eyes widened, and creases formed their trails on her forehead.
+
+"Are you sure?" I pleaded, half-hearted, I knew the answer. I didn't want it, but I knew the answer. She walked down to the pool and undressed to her undergarments. Opaque and black, she was prepared for this. The water was so clear that if it wasn't for those ripples my wife would have looked as if she were just slipping into air. Then I saw one, a live clam. It yapped and fluttered like a moth. It came up to my wife and landed on her abdomen. She gave it a pet like you might a kitten. For lack of a better term, it bit her, it yapped its whole body right onto her abdomen, and tore, blood ran down her stomach and into the pool, I thought she'd scream, but she didn't, she just let out a little moan. I was frozen, stilled by this carnivorous clam. Another jumped onto her, and did the same the last one did, drawing blood, and tearing flesh. Soon she was covered in purple bruises, and bloody slits. Her eyes rolled back into her head like they did at the restaurant.
+
+"Ariel, please get out of the pool!" I screamed.
+
+"Jesse, they're just hungry" she tossed my comment aside as if it were too obvious to really bother with.
+
+A clam tore through her bra, and her nipple was exposed. "Oh - this is what you really want, isn't it, sweetie?" the clam bit down and milk started dripping from my wife's tit. It looked like strawberry milk flowing from her breast and down her torn body. "Drink up, baby" my wife reassured.
+
+I ran, maybe I'm wrong for that, but I ran. I left my wife in that shallow pool, and truth be told, I never saw her again. A few months later I met a woman at a bar, she had blonde hair that hung down to her shoulders. She had blue eyes, and lashes that were fake in a way that I didn't mind so much. She smelled like lilacs, and just a little bit of sweat. She wore blue jeans, and a tight black shirt that hugged her figure. She talked so much, and I listened, but I wanted to hear just one word, just one word to one question.
+
+"Do you want to go for clams?"
+
+"S-sure" she said.
+
+Ambrosia.

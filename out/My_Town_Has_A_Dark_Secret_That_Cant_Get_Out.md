@@ -33,9 +33,9 @@ I quietly followed behind as they took him into the mineshaft located at the end
 
 I continued to follow them until we reached a cavernous room.
 
-The room which looked more like an altar room had a sacrificial table in the center.
+The room which looked more like an altar room had a sacrificial table located in the center.
 
-I stood there helplessly as they forced my friend onto the sacrificial table.
+I stood there helplessly watching as they forced my friend onto the sacrificial table.
 
 They began to chant as they strapped him in.
 
@@ -73,11 +73,11 @@ Somehow, I made it to my house.
 
 With no time to spare, I quickly jumped into my car and drove as fast as I could out of town (all while thanking the Gods that I filled my gas tank up the night before).
 
-Anyway, I breathed a sigh of relief when I noticed we were far away.
+Anyway, I breathed a sigh of relief when I noticed I could no longer see my town.
 
 That was almost two months ago.
 
-We managed to start over in another state and even got jobs but several days ago, we received the news that our town was destroyed by an earthquake.
+We managed to start over in another state and even got jobs but several days ago, we received the news that our town was destroyed by an earthquake (I doubt it was an earthquake).
 
 My friend has been missing too.
 
