@@ -294,7 +294,7 @@ I grunted and groaned as I tried to push myself up higher before bringing my arm
   
 
   
-I couldn’t even get up from where I was. Ijust sobbed and babbled while I sat against the tree, cursing myself for ever taking up camping. Cursing the very concept of camping and cursing most of all, whatever allowed those raptors to survive their extinction and hunt modern day humans. I almost gave up saving myself at that moment.
+I couldn’t even get up from where I was. I just sobbed and babbled while I sat against the tree, cursing myself for ever taking up camping. Cursing the very concept of camping and cursing most of all, whatever allowed those raptors to survive their extinction and hunt modern day humans. Remembering my phone is was in my pocket, I took it out and the dread only grew heavier when my eyes fell upon the heavily cracked screen. I almost gave up saving myself at that moment.
   
 
   

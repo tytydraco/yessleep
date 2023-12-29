@@ -1,3 +1,5 @@
+\[Part 2\] ([https://www.reddit.com/r/nosleep/comments/18sekbr/ive\_stolen\_a\_classified\_coroners\_report\_and\_my/](https://www.reddit.com/r/nosleep/comments/18sekbr/ive_stolen_a_classified_coroners_report_and_my/))
+
 My girlfriend is waging a silent war against me. Not a war where one would enact little transgressions against their opponent out of spite, but a friendly war. An understanding, caring, and increasingly hard to manage— *war*. When I graduated high school, like every 18 year old that just earned a shiny new set of wings to fly into the adult world with, I flew a little too close to the sun. My father would always say to me-
 
 “If you move in with your best friend, you’ll be sworn enemies in **two weeks!**”
