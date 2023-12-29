@@ -1,8 +1,8 @@
-I live in a small town (U.S.A.) not found on any map. 
+I live in a small town (U.S.A.) not found on any map.
 
-It is a great town with virtually no crime. 
+It is a great town with virtually no crime.
 
-With a population of just over 5000, everybody knows each other, and it is a great place to raise a family... 
+With a population of just over 5000, everybody knows each other, and it is a great place to raise a family...
 
 My hometown has a dark secret though...
 
@@ -10,8 +10,7 @@ Beneath my town lies a network of mining tunnels.
 
 Within those tunnels, lives something that is both ancient and evil.
 
-
-Every month the town's townspeople offer a sacrifice to the creature in order to appease it. 
+Every month the town's townspeople offer a sacrifice to the creature in order to appease it.
 
 Usually though, it's an outsider but from time to time, one of the town's people is offered as a sacrifice too.
 
@@ -19,23 +18,23 @@ As vile as it sounds, it kept my town prosperous for all of these years.
 
 If the creature is not fed then all hell will break loose and this is where I come in.
 
-See, several weeks ago my best friend was involved in a car accident that killed little 8-year-old Susie Miller* who lived down the road.
+See, several weeks ago my best friend was involved in a car accident that killed little 8-year-old Susie Miller\* who lived down the road.
 
 Susie Miller happened to be the mayor's niece too.
 
 Anyway, a town meeting was held and it was decided that my friend would be sacrificed to the creature as punishment.
 
-I couldn't let them do that, so I devised a plan.
+I couldn't let them do that, so I devised a plan to save him.
 
 On the day of the sacrifice, several of the town's people including the mayor escorted my friend from the jail where he was awaiting his fate.
 
 I quietly followed behind as they took him into the mineshaft located at the end of town.
 
-I continued to follow them until we reached a cavernous room.
+I continued to follow them until we reached this cavernous room.
 
 The room which looked more like an altar room had a sacrificial table located in the center.
 
-I stood there helplessly watching as they forced my friend onto the sacrificial table.
+I stood there watching helplessly as they forced my friend onto the sacrificial table.
 
 They began to chant as they strapped him in.
 
