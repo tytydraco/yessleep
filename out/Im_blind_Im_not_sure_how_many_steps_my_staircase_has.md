@@ -12,7 +12,7 @@ I counted the steps of my staircase. 14. Eventually, I got used to it, and I eve
 
 One day, however, I was going down the stairs and I tripped. Where I expected the floor to be, there was this additional step, and I didn't think much of it. Figured I must've not paid attention. I mean, yes, it was odd, because after 30 years of being blind, tripping wasn't really a common thing, but I didn't look much into it.
 
-However, when I went up again, I tripped at the top. That was definitely unusual. Sure as it was, one extra step. 
+However, when I went up again, I tripped at the top. That was definitely unusual. Sure as it was, one extra step.
 
 I went back the stairs and counted. 15. Counted again. 14.
 
@@ -20,39 +20,39 @@ I went back the stairs and counted. 15. Counted again. 14.
 
 Sure enough, fourteen steps.
 
-Whatever. I went to sleep. 
+Whatever. I went to sleep.
 
 A few days passed and I didn't trip anymore. I played it off as some error my tired mind made.
 
 Then, one night, as I went downstairs to get a glass of water, I tripped again. This time, I really fell down on my foot. That was not a skipped step. There were at least two additional steps.
 
-I felt around and stood up. My foot hurt a lot, but the ankle was good. I couldn't really stand up on it, but no serious damage. I went up, carefully, counting. 
+I felt around and stood up. My foot hurt a lot, but the ankle was good. I couldn't really stand up on it, but no serious damage. I went up, carefully, counting.
 
 *16.*
 
-What the fuck? Sure, you mess up, you count one more or one less. But two more? 
+What the fuck? Sure, you mess up, you count one more or one less. But two more?
 
-The house was so still, so silent. No birds, no bees, no cars passing. Normal people fear the darkness - I fear the silence. 
+The house was so still, so silent. No birds, no bees, no cars passing. Normal people fear the darkness - I fear the silence.
 
 I went down the stairs again, counting. By the time I reached the bottom, I counted 14 again.
 
-I went up again. 18. 
+I went up again. 18.
 
 That was absolutely ridiculous. Was someone messing with me? How could they even mess with me like that? I've never heard of a burglar to break into someone's house and add steps to their stairs.
 
-Still, I went to check to see if I locked the door. 
+Still, I went to check to see if I locked the door.
 
 I can make my way around pretty neat. Went through the kitchen, then into the hallway.
 
 And then I bumped into something.
 
-I froze. My organs tensed up, my hairs stood up, all ears. I had never felt so much fear in my life. Decided to go on and check the door. Yeah, locked. I made my way back upstairs, and this time I didn't bump into anything. Or anyone. 
+I froze. My organs tensed up, my hairs stood up, all ears. I had never felt so much fear in my life. Decided to go on and check the door. Yeah, locked. I made my way back upstairs, and this time I didn't bump into anything. Or anyone.
 
 18. For fuck's sake.
 
 All night, all I did was go up and down, like a lunatic. Each time I got different results.
 
-Back upstairs, I decided to go down and make one final count. 
+Back upstairs, I decided to go down and make one final count.
 
 14. Okay, it is probably going to be more.
 
@@ -86,4 +86,4 @@ This house is strange. It is eerie, and disturbing. And I think if I'd gotten to
 
 However, no matter what stupid, cryptic, eerie, unnatural staircase I unveiled, it is important not only that I don't go down there, but that nothing comes up, either.
 
-And, right now, I can hear it creaking.
+And, right now, I can hear it [creaking](https://www.reddit.com/r/nosleep/comments/18tpdru/im_blind_im_not_sure_how_many_steps_my_staircase/).
