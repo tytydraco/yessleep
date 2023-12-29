@@ -53,3 +53,5 @@ I asked Mel later if she had ever seen the girl. She said no, but she was very f
 I'm sorry, but I am starting to get weak again. I need to forget about him for a while. But as soon as I have the energy I will tell you the rest. He has been a problem for too long. I can't take it anymore. I just pray that when I am finished someone can offer me help. And I pray that if I can't make it, at least I can help one of you.
 
 Part 2: https://www.reddit.com/r/nosleep/s/THv4OmwfZq
+
+Part 3:https://www.reddit.com/r/nosleep/comments/18tddiy/the_white_man_part_3/
