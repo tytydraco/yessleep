@@ -6,7 +6,9 @@ In the 2000s, we lived in a privileged era. Our technology far exceeded anything
 
 Cycling along a quaint country road, a collision with a distracted driver would wrench me from my beautiful life forever.
 
-I was torn from my body. I screamed into a metaphysical abyss as my soul ascended from its mangled corpse on the tarmac.In 2011, at the age of 18, I died. I have no doubt of that.
+I was torn from my body. I screamed into a metaphysical abyss as my soul ascended from its mangled corpse on the tarmac.
+
+In 2011, at the age of 18, I died. I have no doubt of that.
 
 Just as I have no doubt that looming, rotting, curling fingers emerged from the clouds to seize my spiritual form — only to be denied the pleasure as my untethered soul suddenly plummeted back to the ground.
 
@@ -24,7 +26,9 @@ The man gulped. “No, you… You’re going to be okay. I’ve called an ambula
 
 I felt disjointed. And yet, there was not a single scratch on my body. It was disjointedness of a spiritual nature. A sense of not belonging.
 
-A sense that I had unknowingly cheated the frightening fingers that were poised to scoop me from the sky.By the time the ambulance arrived, the driver had unmarried my frozen body from the bicycle wreckage. I *could* move, but I hadn’t. Not yet. There was too much terror to process.
+A sense that I had unknowingly cheated the frightening fingers that were poised to scoop me from the sky.
+
+By the time the ambulance arrived, the driver had unmarried my frozen body from the bicycle wreckage. I *could* move, but I hadn’t. Not yet. There was too much terror to process.
 
 *I dreamt it*, I thought. *I didn’t really die and leave my body. Don’t be stupid.*
 
