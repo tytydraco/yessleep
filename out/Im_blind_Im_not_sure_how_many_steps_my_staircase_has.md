@@ -86,4 +86,4 @@ This house is strange. It is eerie, and disturbing. And I think if I'd gotten to
 
 However, no matter what stupid, cryptic, eerie, unnatural staircase I unveiled, it is important not only that I don't go down there, but that nothing comes up, either.
 
-And, right now, I can hear it [creaking](https://www.reddit.com/r/nosleep/comments/18tpdru/im_blind_im_not_sure_how_many_steps_my_staircase/).
+And, right now, I can hear it [creaking](https://www.reddit.com/r/nosleep/comments/18uhvy8/i_am_blind_im_not_sure_how_many_steps_my/).
