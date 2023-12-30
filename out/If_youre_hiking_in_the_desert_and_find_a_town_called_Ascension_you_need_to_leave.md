@@ -1,0 +1,69 @@
+The sign above the chain read “Welcome to Ascension - In This World, Not Of It”. The fence the chain was attached to was about four feet high and consisted of only a single bare metal wire that ran along the top of it. The letters were hand painted on a few strips of wood strapped together to make the sign. The wood was chipping off at the corners and worn down from the wind. It’d been here a while. At the top of the hill I could just make out what looked like the top of an old building.
+
+I ran into the wire on day 8 of my planned three-week hike through the San Rafael Swell backcountry. It’s not the first time something like this has happened. There are abandoned buildings, ranches, and towns scattered all over this area. I followed the fence for about a mile until I got here.
+
+It’s kind of a big deal to discover (or re-discover, I guess) a new ghost town, and Ascension wasn’t on my map, so I dropped a pin and took the chain off the fence. I’d get some good pictures, write up what I find, and maybe even have a night with an actual roof over my head. Things like this are why I don’t follow the established trails anymore.
+
+At the top of the hill was what looked like an old storehouse of some sort, and looking down past it I could see the rest of the town. It was one lane with only a small number of buildings lining it. There were nineteen houses, two of which were reduced to only their foundations, a store, the storehouse I was next to, and a church. Usually a town of this size would have a bar as well, but judging from the sign and the size of the church, I wasn’t surprised there wasn’t one.
+
+The store was still plenty sturdy and had a couple of tables to boot, so I set up my bedroll on the counter. I carry a small, collapsible solid fuel stove that works with wood just for occasions like this. I set it up outside and collected enough wood for dinner and breakfast. A hot meal eaten in a chair at a table is a rare comfort on hikes like this, and sitting there watching the sun set had me feeling like royalty. I slept like a baby.
+
+I woke up the next morning feeling like a new person. I got the water over a fire and started packing up, finishing as the water hit a boil. With a belly full of hot coffee and warm food, I stashed my pack behind the counter, and set out to document the town as well as I could before I got on my way.
+
+The houses were plain and functional, and exactly alike. Each had three rooms. The back room always held a single large bed, with a varying number of beds in the side room. A single rocking chair was in what I would call the living room, which was otherwise empty except for a wood stove on the outside wall for heat and a cooking surface. Above each stove hung a cast iron skillet. There were very few other possessions that I could find. The beds had blankets in states of decay, and there would be some tin plates and knives. That was about it. I expected I’d find bibles, crucifixes, and other religious paraphernalia, but there was nothing. I guess they must have been the austere kind of wayward Christian community. I felt a little sorry for them, but even if it looked sad to me, this was someone’s dream at one point. I just took my pictures and moved on.
+
+As I approached the church, I saw something dart into one of the houses. Just a quick flash of grayish brown. There’s coyotes out here, but it’s not normal to see one during daylight. I moved a little closer, stepping carefully. There was a crash from the other side of the house as it knocked something over, then silence. I stood frozen for a moment listening hard before I gave up, assuming the crashing sound was whatever I saw getting out of town by way of a back window.
+
+I took a moment to relax before turning back to the church. It was an absolutely massive building in relation to its setting. You could fit at least two of the local houses in its footprint, stack them two high, and still not have run into the steeple. A quick walk around it confirmed that there were no decorations or windows, and only one set of doors. They didn’t even hang a cross. The steeple was the only thing that gave it away as the church. The wood was worn and cracked, but otherwise still whole. It looked like it had been painted white at one point, but the only paint left was little flecks trapped in a few spots of deeply worn grain. The rest had taken on a dark gray, almost black patina. It was an old building, for sure, but it looked to be in surprisingly good shape from the outside.
+
+The door opened with no resistance and barely even a sound. I stepped inside, pausing for a moment while my eyes adjusted. The only light came from the large open doors behind me. Looking around, there were pews near the door, and a podium in the back. The pews were arranged in a semicircle around the center of the room with the preacher’s podium on the far side, leaving a large open space in the middle. Everything was in surprisingly good shape. The pews were dark and worn. The wood had taken on the same almost-black patina as the walls of the church, but with polished spots along the length of them where the churchgoers sat. I got a couple nice pictures of the sun’s rays beaming in through the door behind the pews.
+
+It was a strange arrangement, having this much empty space in the center. Moving closer, I could see that the blackened wood floor was laid with each strip of flooring coming to an end in order to form a circle and a new piece continuing to the wall. It didn’t seem to have any purpose. The floorboards were just laid out in a way that traced out a circle. As far as I could tell, this was the only bit of pure decoration in the entire town.
+
+I got down on my knees at the edge of the circle to try to get a picture of how it was made. The ends of the strips of wood from inside the circle butted against the ends outside the circle almost perfectly, without even enough space to collect dust. There were no nails, but it was fastened tightly. I held my phone out, moving it around to try to get the best angle to show how the floorboards came together, and a shadow passed over the door.
+
+I froze, looking up at the still open door, waiting to see if something was going to join me in the church. The edge of a grayish-brown form brushed against the doorway, and I quietly scurried behind the podium for a little cover. I squatted down, making myself as small as possible behind the dark wood of the podium, only allowing one eye to peek out from safety. My muscles filled with energy and my nerves set a hair trigger, ready to run.
+
+Something moved under the church.
+
+The floorboards in the middle of the circle buckled up slightly, and the whole building shifted slightly under its force. I bolted. I ran fast and hard out of the church and into the store, where I rolled behind a window. Peeking out over the sill, I saw a grayish-brown shape crawl out from under the church and stand up. They looked to be about five and a half feet tall, wearing shoddy pants, a hooded cloak, and no shoes. The fabric of their clothing had taken on the same patina of the wood, but also carried enough sand to make it difficult to pick them out from the landscape. The skin of their bare feet was caked with sand as well, as if they’d rolled in a patch of wet sand and just let it dry all over them.
+
+I stood up and waved, shouting, “Hey! Hey! Sorry, I didn’t know anyone lived here!” They looked at me, then turned and ran, disappearing behind one of the old houses.
+
+Walking outside, I held my hands to my mouth as a makeshift megaphone, and shouted out, “Sorry! I didn’t know anyone lived here! Thanks for letting me stay! Sorry for the trouble!”
+
+I turned and went back into the store to get my pack and leave. It had never occurred to me that anyone could have been living here. Everything was so old. It might have been kids from a neighboring ranch playing, but either way I didn’t want to stick around. Coyotes are one thing, but people, well… They’re just unpredictable.
+
+I reached behind the counter to grab my pack and came up with a fistful of air. It was gone. I ran behind the counter, checked everywhere, and came up with nothing. They must have taken it. A feeling started to percolate in my gut, a tightness. I closed my eyes tight, trying to breathe through it, to let it lighten up, and then turned and walked back out the door.
+
+I held my hands up to my mouth again, to help with projection. “Hey y’all… I need my pack. I got no problems leaving here, and I can pay you for any troubles I’ve caused. Honestly, I didn’t know anyone was here. If you just give me my pack I’ll be on my way.” I stood there for a long minute waiting for a response. Nothing.
+
+“Shit.” My shoulders slumped.
+
+I walked to side of the church where I had seen the person crawl out and found a small dug out tunnel that went under the church. A sizable rock sat next to it with a short trail in the dirt from where it had been pushed out of the way. I looked around, hesitating. I got down on my knees and peered into the hole. Light streamed in through the floorboards. My pack sat in a hollowed-out area beneath the center of the church. I could see my water bottles glinting in the light, hanging off my pack. I sat back on my heels for a minute.
+
+“Goddamn it.” I cursed to myself, standing up and brushing off the dirt.
+
+I walked around the church, checking for anyone else who might be nearby. At the front of the church, I paused to check inside before coming around to the tunnel again. I looked around, taking care to look for any patch of color that didn’t quite match the sand, and then I did what I had to. I got down on my hands and knees and started crawling into the hideout under the church.
+
+It didn’t take long to get to my pack. I grabbed it and spun around back where I came. My hand found the sunlight pouring through the opening to the dugout just in time to see the rock pushed over it.
+
+“No no no no…” I said as I scurried up against the rock, pushing with all my might. If I really laid into it, I could occasionally nudge the rock just enough to see that someone was out there holding it in place with their foot. “Hey! Hey, I’m in here! You can have the pack if you want, just let me have the water and I’ll leave you alone! I swear! I didn’t even know anyone lived here, it was an accident!”
+
+Many footsteps echoed through the small cavern as people poured into the church above. “The Lord has brought us a blessing!” A dry, gravelly voice spoke from above me as I passed beneath the center of the church. “So many years of waiting since our betrayal at the hands of the unbeliever!”
+
+My knees caught on a rock, tearing open a small wound. The sand and dirt mixed with the blood to form a clay poultice. I gritted my teeth and kept pushing, driving more and more clay into my leg.
+
+“Quickly, now! Gather around, and we will complete our journey!” The voice declared, stepping into the center of the circle above me. “Quickly, while our volunteer is available!”
+
+I grabbed the water off my pack and attached it to my belt loops, then leaned into rock and pushed hard. My effort met by equal resistance. The rock wouldn’t budge. The sun came in through a space where the rock didn’t quite fit in the hole. I put my fingers out, trying to get a hole on the rock to pull it aside. A flash of pain shot up my arm as a rock came down on them. I recoiled, cradling my hand. Nothing broken, but more blood dripped off of me into the sand.
+
+The congregation above me began chanting in a language I didn’t recognize. More people joined, each selecting their own singular pitch. It was almost beautiful, a raspy choir forming the perfect chord. Overtones reverberated through the walls of the church, sinking into the sand below. The ground vibrated a tone in return, sending a wave back up into the church. I felt it move through my body each time, the congregation calling and the ground responding. It started to lodge itself in my lungs, vibrating as if I were about to hum along.
+
+The ground beneath the rock was loose and a bit of it fell away. I started digging quickly, hoping to undermine the rock and pull it out from under my captor’s feet. The congregation changed keys and gained tempo.
+
+The congregation reached their peak, and the ground responded with a deep vibrating tone. I braced myself between the floorboards and the ground below me, pushing clay into my wounded hand, as the entire landscape joined in resonance with the chanting above me. Everything was vibrating. The slats of the wood floor began to separate as dust and sand fell through them, and the circled floor began to twist in place. A bright darkness enveloped the space beneath the circle and the sand began to boil. The rock fell into my tunnel.
+
+I took my opportunity, grabbing the rock and scurrying out of the dugout. A wet splotch slapped the ground behind me as I passed my captor, who had stepped back and was facing the church with his arms wide, looking past me. I ran hard, pushing my legs far beyond what I thought they were capable of, only looking back once. The church was encased in black as the ground was chewing through my captor. I held my glance long enough to meet the gaze of a single grotesque eye blurring into existence, its undulating iris filled with pupils deeper than should have been possible.
+
+I ran hard, replacing the chain fence and once again completing the iron circle. I ended my hike early, coming home bruised and aching, but alive. There are mounds beneath my skin where the clay had worked itself in and never left, and I still have the rock they used to keep me down there. I was so focused on getting out I forgot to drop it. Every once in a while I can hear it humming on its [shelf](https://www.reddit.com/r/FreshBakedBiscuit/).
