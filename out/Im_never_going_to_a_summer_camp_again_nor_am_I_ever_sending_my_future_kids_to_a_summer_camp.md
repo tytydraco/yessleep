@@ -194,3 +194,12 @@ I can't blink, I can't breathe, I have loss control of my regular bodily functio
 
 
 As we drive by, I stare at Layla's destroyed vehicle. Her head crashed through the front window, colliding with the tree. The glass shards sticking out of her sides, bleeding profusely. She twitches a few times, and I can't take my eyes off of her. I turn and look through the back window and watch her go limp. Her Dad turns up the radio even louder.
+
+
+When I got home I collapsed into my mom's arms crying and I tried to tell her what happened. She called Tiff's parents and they said that Tiff was an only child, there is no Layla and insisted I was sleep deprived because I was homesick. We looked it up online and there were no results for the suicide, a car crash at a camp or a Treasure Hunt tradition at the camp.
+
+I know what I saw was real, I know Layla was real. My mom believes me but didn't believe the story. She was confused when I pointed out the discount her parents said they had because Layla worked there and she looked at me concerned,
+
+"What discount? They told me parents donate money so there are a few beds dedicated for kids who normally wouldn't be able to attend."
+
+Still, doubt creeps into my mind sometimes but I know what happened. I will never ever go to a summer camp again. Tiff tried to call me a few times but I didn't pick up. When the school year started she wasn't there. I still don't know if that's a good or bad thing and it keeps me up at night even now.
