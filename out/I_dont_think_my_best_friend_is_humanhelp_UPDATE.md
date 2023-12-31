@@ -4,9 +4,9 @@ Well, I messed up. You guys tore me up in the comment section, and I realized ho
 
 “Are you okay?” I questioned. “Listen, I know I messed up and I’m sorry, I really didn’t mean to—“
 
-“I should’ve just told you… I knew something was up when you just left suddenly after I came back. Well yeah…you caught me. I don’t want you to be scared of me.” He continued, his voice cracking.
+“I should’ve just told you… I knew something was up when you just left suddenly after I came back. Well yeah…you caught me. I don’t want you to be scared of me,” He continued, his voice cracking.
 
- “My parents, they aren’t from this planet, and when I was 7, they decided that they wanted me to have a normal life on Earth. So they made a deal with the leader of their planet, that I would be able to live the perfect life with a consequence: I’d have to take off my skin and wash it every day, and make sure it was perfect. If I didn’t do this, my skin would end up rotting and it wouldn’t be a nice sight… the last thing I remember is them telling me to live my best life. Then I woke up, and I was suddenly just in my house. I had to teach myself English and somehow I was able to enroll myself in our school when I was old enough. I can’t exactly answer any questions you have because honestly, I’m confused about myself too. Knowing that I’m just this monster hiding in a perfect body fucking hurts.”
+ “My parents, they aren’t from this planet, and when I was 7, they decided that they wanted me to have a normal life on Earth. So they made a deal with the leader of their planet, that I would be able to live the perfect life with a consequence: I’d have to take off my skin and wash it every day, and make sure it was perfect. If I didn’t do this, my skin would end up rotting and it wouldn’t be a nice sight… the last thing I remember is my parents telling me to live my best life. Then I woke up, and I was suddenly just in my house. I had to teach myself English and somehow I was able to enroll myself in our school when I was old enough. I can’t exactly answer any questions you have because honestly, I’m confused about myself too. Knowing that I’m just this monster hiding in a perfect body fucking hurts.”
 
 I was shocked. I don’t even know how he was able to survive. And I also felt horribly guilty for what I did. 
 
