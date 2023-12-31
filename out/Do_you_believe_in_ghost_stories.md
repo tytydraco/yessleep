@@ -1,0 +1,18 @@
+There is only one day left until our class's summer vacation, on that day me and Jessie, Rosy, Yopy plan a summer picnic, we will go into the forest and sleep there for 1 night.
+
+Finally the day came, we got on the bus together, me and Jessica sat next to each other in row 2 on the left and Rosy and Yopy sat on the right of us. On the way, I felt sleepy so fell asleep in the car. By the time we got there, I was woken up by Jessie. I saw that it was already dark outside. I looked at the clock and it was already 7:00 p.m. We carried our things outside and then Rosy and Yopy set up the tent and me and Jessie went to gather firewood to grill meat, then we came back and sat down to grill meat to eat. After eating, we planned to go to bed, but Jessie said:
+-We're here, so we should do something!
+I ask:
+-What do we do now?
+Rosie replied:
+-How about we tell ghost stories, I have some stories I've heard about this forest!
+Yopy said:
+-It sounds good! Let's listen together!
+
+After that we sat together by the fire, when Rosy began to tell her story:
+-I heard that when the clock strikes 8:30 p.m., there will be a woman walking around the forest, everyone will have to hide or act normal to them, if they see you showing signs of something unusual, then Maybe you will lose your life, and you can only go to the pine tree and kneel down to apologize, then maybe you can be forgiven. Someone has met it before, someone saw it wearing a protective suit. Some guards saw that it was wearing a blood-stained dress, and no one could see its face. There were also people who did not believe that story and thought that they were just people going on a picnic and then they all mysteriously disappeared.
+
+The story ended, now I looked at the clock and it was already 8:00 pm. I was afraid of that ghost story. I went back to the tent to sleep. The tent was very big. Everyone hadn't slept yet, but I had barely slept. I suddenly woke up because I had to go to the bathroom and looked at the clock and it was already 8:30, so I had to walk quickly to go back to the tent to sleep. When I left, everyone was worried about me so they went with me. came across a girl wearing protective gear, I thought she was on patrol so we greeted her, she had no expression at all, suddenly Jessie remembered the ghost story from earlier so she approached her uncle. She was trembling, when she saw that, she smiled devilishly and her eyes were very red. I immediately told her that Jessie had a cold so she was shaking a bit, but then Jessie screamed, and she returned to that expression. , then she said why are you screaming like that and she chased us, but after that I didn't hear her voice anywhere, and it seemed like Jessie had disappeared, the two of us split up to look for Jessie but found We still didn't see it all night, the security girl appeared in front of us and said:
+-Who will be the next person!
+
+The two of me and I continued to run away from her, but it didn't look good. She had a lot of blood on her body. I thought she had harmed Jessie. I tried to run towards the pine tree. When I got there,  she screamed and disappeared, I burst into tears because Jessie was my best friend, we had to return to the tent and sleep until morning. When it was dawn, I immediately called the police because this forest was also quite close to the phone signal, they came and searched, at noon they found a body in the river nearby, I went to confirm the body and burst into tears because that person was Jessie, we went to the funeral. His funeral and mourning for a person who still had many dreams to fulfill.
