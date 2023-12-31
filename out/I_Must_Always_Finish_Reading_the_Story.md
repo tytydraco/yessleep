@@ -67,7 +67,7 @@ In fluid motions, the Creature straightened itself to a full height, its head in
 
 It was then that the Creature spoke.
 
-“I ssseee your trouble. Exceptionsss can be made. It spoke in hisses and coarse shudders, a sound as painful as nails on a chalkboard, and needed to take breaks as it formed more words. "I shall arrange the sssacrifice.” Despite the ringing in my ears, I processed those words. Picked them apart one by one, realising their weight. A sacrifice to be made? Of what sort?
+“I ssseee your trouble. Exceptionsss can be made." It spoke in hisses and coarse shudders, a sound as painful as nails on a chalkboard, and needed to take breaks as it formed more words. "I shall arrange the sssacrifice.” Despite the ringing in my ears, I processed those words. Picked them apart one by one, realising their weight. A sacrifice to be made? Of what sort?
 
 I lowered my arms to meet its gaze once more and could see that the teeth had sunk back beneath its inky surface. All that remained were the hollows, which remained fixed upon me. We stood that way for what felt like aeons before it shifted upright once more.
 Then, in the same liquid movements, the Creature crept over to the darkest corner of the room, stood over the shadows, and melted into them. For a moment, the hollows remained as the only hint of its presence in the room moments prior, hovering atop the shadows before they too faded into the dark.
