@@ -104,6 +104,10 @@ His parents have been pretty helpful, giving me access to his apartment. I’ve 
 
 I’ve also gone to the police and showed them the email I was sent. As far as they’re concerned, it ratifies their theory that Tuomas has simply run away again in a drug fugue. They don’t believe for a second that his mental state is the result of the tests. The detectives reckon he just emailed me a whole load of bullshit when he was high, but I don’t believe it. Tuomas never went this far off the deep end, even when he was at his worst.
 
-Since no one seems to want to take the email seriously, I’ve decided to go and investigate on my own. There must be other testing sites in this city, or even the country, and there must surely be others like Tuomas out there.
+Make no mistake, I'm terrified by the email Tuomas sent. Best case scenario is he ran afoul of some kind of government experiment. Worst case scenario? I feel stupid for suggesting it, but I don't think the invigilators were human. How else to explain the hidden buildings, videos which can drive a man insane? 
+
+What manner of non-human we're talking about is up for debate, and I don’t know if it makes a difference. But since I'm now having the same strange dreams Tuomas had, and now that I feel that same sense of being pursued, I can't just let this slide. Something was after Tuomas, and now it's after me, too.
+
+I’ve decided to go and investigate on my own. There must be other testing sites in this city, or even the country, and there must surely be others like Tuomas out there.  The footage Tuomas sent revealed coordinates, the closest ones pointing to a former psychiatric clinic in New Zealand. I've booked a flight, and I'm headed there first. I'm scared of what I might find.
 
 I’m leaving this post online in case there’s anyone out there reading who has some insight into what any of this means. I’m probably going to leave town for a while, and go do the investigative journalist thing. If you want to get in touch, leave a reply on this post.
