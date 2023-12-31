@@ -2,7 +2,9 @@ And each fresh world is more horrifying than the last.
 
 This is likely the *only* existence you’ve ever known, but I remember a brighter life. I grew up in a warless version of the 2000s. World hunger was an ancient nightmare — a frightful fable of fictitious proportions.
 
-In the 2000s, we lived in a privileged era. Our technology far exceeded anything in this reality. We had solved so many of the world’s problems. Life was good. Life was easy.But that all changed for me in 2011.
+In the 2000s, we lived in a privileged era. Our technology far exceeded anything in this reality. We had solved so many of the world’s problems. Life was good. Life was easy.
+
+But that all changed for me in 2011.
 
 Cycling along a quaint country road, a collision with a distracted driver would wrench me from my beautiful life forever.
 

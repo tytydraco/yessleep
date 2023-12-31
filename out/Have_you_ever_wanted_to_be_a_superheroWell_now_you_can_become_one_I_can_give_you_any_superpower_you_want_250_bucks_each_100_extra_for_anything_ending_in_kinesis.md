@@ -266,15 +266,19 @@ In the flickering light from the figure above us, I glimpsed old and new red str
 
 It shined brighter the further I was pulled inside a labyrinth of plastic, a whole different world hidden inside. There were metal beds lined up, a body sized lump on each one. We passed a girl with halo hair lying face down on bloodstained blankets. I couldn't see her torso, the lower part of her body covered with soaked blankets stained revealing red. 
 
-There were plastic tubes forced into pale, limp arms hanging off of the edge. 
+There were plastic tubes forced into pale limp arms hanging off of the edge. 
 
-“Ignore the Siren,” Wen sighed, tightening his grip. There was something pooling on the floor, thick and red seeping across pristine marble. “She's a drama Queen. Ariosa plays dead all the time. She's not for sale, by the way. Ariosa is just for display.”
+“Ignore the Siren,” Wen sighed, tightening his grip. There was something pooling on the floor, thick and red seeping across pristine marble. 
+
+“She's a drama queen. Ariosa plays dead all the time. She's not for sale, by the way. Ariosa is just for display.”
 
 I kept walking, as if in a trance. 
 
 Even when behind me, the girl let out a deafening shriek that clawed its way into my skull. 
 
-Wen commanded me closer with his voice, and I moved like I was in a dream, my gaze glued to bloodstained steel and body parts without heads cruelly chained down to each gurney. I saw them at their most vulnerable, people, with the majority of them being in their twenties, college kids and older, put on a horrific display. 
+Wen commanded me closer with his voice, and I moved like I was in a dream, my gaze glued to bloodstained steel and body parts without heads cruelly chained down to each gurney. 
+
+I saw them at their most vulnerable, people, with the majority of them being in their twenties, college kids and older, put on a horrific display. 
 
 These kids were malnourished, anorexic, their haunted eyes piercing right through me. Some of them screamed at me, straining in cruel chains pinning them down. One guy was brutally tied down, his arms had been chopped off. His agonising wail followed me, begging Wen to kill him. 
 
@@ -330,17 +334,21 @@ Staring directly at me, the whites of his eyes were blood red.
 
 He jolted on the chair, his arms moving, fingers twisting around the arm rest. 
 
-“Tah-dah!” Wen chuckled. He danced over to the man, playfully prodding the bare meat of the guy’s brain. The man screamed, contorting in his chair, the lights above flickering. The ground shook under my feet, stray instruments flying into the air. I watched, baffled, as swirling silver danced around my head, needles and scalpels in a manic dance, before faltering, like he was losing control. 
+“Tah-dah!” Wen danced over to the man, playfully prodding the bare meat of the guy’s brain. The man screamed, contorting in his chair, the lights above flickering. The ground shook under my feet, stray instruments flying into the air. I watched, baffled, as swirling silver danced around my head, needles and scalpels in a manic dance, before faltering, like he was losing control. 
 
 The guy’s head dropped, and so did the whirlwind of metal, hitting the ground. 
 
 “Behave.” Wen rolled his eyes. “Stop showing off.”
 
-Slowly, the man’s head snapped up. His lips moved, a thin line of red oozing from his nose. His gaze stuck to me, and with every jerk of his wrist, every blink of his eye, I knew he was trying to rip me apart from the inside. My skin prickled. I could feel his presence brushing over me, prodding at my skull. Wen flung out his arms like he was introducing a friend. 
+Slowly, the man’s head snapped up. His lips moved, a thin line of red oozing from his nose. His gaze stuck to me, and with every jerk of his wrist, every blink of his eye, I knew he was trying to rip me apart from the inside. My skin prickled. I could feel his presence brushing over me, prodding at my skull. 
+
+Wen flung out his arms like he was introducing a friend. 
 
 “This is Telekinesis! Well, I call him Zero two. Also Ryan. He's my most powerful. I can drug this guy into a fucking coma, and he still manages to rip a customer's head off,” Wen sighed. “The trick was finding the right mix. Horse tranquiliser works miracles with telekinetics. It knocks em’ straight out with no mess.”
 
-The kid’s smile widened. “Which is why your brains aren't splattering the walls right now!” he said in a sing-song. “You're welcome, by the way!”
+The kid’s smile widened. “Which is why your brains aren't splattering the walls right now!” he said in a sing-song. 
+
+“You're welcome, by the way!”
 
 Zero Two let out an animalistic howl, struggling in the chair, and he laughed. 
 
@@ -422,7 +430,7 @@ Deeper and deeper his fingers were going.
 
 “I think you know where I'm going with this story,” Wen chuckled. “My father wanted to turn me into a superhero. Just like the other kids he played around with. But he did the exact opposite.”
 
-I held my breath when his fingers stopped moving, straying in cerebral tissue. “Dad didn't give me the powers I wanted,” his tone twisted and his fingers twisted. That time I *did* feel pain, my lips parting in a silent scream. 
+I held my breath when his fingers stopped moving, straying in cerebral tissue. “Dad didn't give me the powers I wanted,” his tone twisted and his fingers curled. That time I *did* feel pain, my lips parting in a silent scream. 
 
 “He gave me this.” Wen twisted his fingers again, and my white hot pain filled me, bleeding into my blood and bones. I screamed that time, my raw screech reminding my body I was still real. “The power to extract abilities that I can't take for myself,” Wen continued in a spiteful hiss. “And give them to others.” It was like being filled with electricity, my brain being boiled alive. 
 
