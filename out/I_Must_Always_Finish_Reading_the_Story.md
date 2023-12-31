@@ -63,7 +63,7 @@ When I did so, I'd realised it was sitting open to pages that weren't there prio
 
 Yet despite it all, here I was again, statue-still and under the gaze of the being beyond comprehension. 
 
-In fluid motions, the Creature straightened itself to a full height, its head inches from the ceiling, before slinking its way over to a few paces from where I stood. It had never come this close before, and in its nearness, I noticed a charred smell that emanated from its form. All I could do was meet its eyes, my form trembling under the Creature's. Slowly, it craned its head closer to mine, until its neck was perpendicular to its body, hanging over my figure like a streetlight. The fluid skin parted at the mouth, revealing its jagged teeth in their full form. I winced and covered my head with my arms, praying for the nightmare to cease. 
+In fluid motions, the Creature straightened itself to a full height, its head inches from the ceiling, before slinking its way over to a few paces from where I stood. It had never come this close before, and in its nearness, I noticed a charred smell that emanated from its frame. All I could do was meet its eyes, my form trembling under the Creature's. Slowly, it craned its head closer to mine, until its neck was perpendicular to its body, hanging over my figure like a streetlight. The fluid skin parted at the mouth, revealing its jagged teeth in their full form. I winced and covered my head with my arms, praying for the nightmare to cease. 
 
 It was then that the Creature spoke.
 

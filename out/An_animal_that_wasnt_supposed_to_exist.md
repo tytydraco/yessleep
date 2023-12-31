@@ -1,0 +1,28 @@
+This happened not so late ago,maybe a few days. My name is Carl and i had this trip planned for 3 weeks. Me and my friends got on the meeting point and got in the car to finally start the trip we have always wanted. It was me,Josh,Carla and Mark,and luckily they all made aure to bring as much camping supplies for this,given that we believed it was better safe than sorry.
+
+It was a long 2 hour drive until we reached our destination: i think it was called "Marshland campground" or something,i didnt really pay much attention to the sign since i wasnt the one driving. After we reached a good location,we got our things unloaded and started setting up camp,first our tents and then some other things like parking the car on a better position and then gathering things for a campfire.
+
+As we finished and sat down to talk,a park ranger showed up from a nearby trail. He looked like your average park ranger,and with his grumpy voice spoke to us:
+
+"Heya kiddos,i know you're all settled down to camp and all,but i do tell ya that some places are off limits,theres signs and all that crap saying it,so take my word and dont venture off."
+
+Of course,some pretty standard stuff,maybe some preservation areas where visitors were not allowed to camp or visit. After he walked away,we continued to chat like nothing happened. After a bit of talking we decided to hike on the trail and see if there was any place to visit like a souvenir shop or a local shop. As we went,we saw some parts that were boarded with tall metal frames and electric fences.
+
+Upon a closer look,there were signs like the ranger said,it read "Stay off,dangerous wildlife in the area." along with symbols of different animals like wolves,foxes,spiders,bears,and...something i couldnt make off,it looked like a quadrupedal animal of sorts that i didnt know about. Me and Josh joked about them keeping monsters hidden in the forest,getting a laugh togheter.
+
+As the night fell early,it started to rain heavily,probably a storm,so we rushed into our tents,and since the group wasnt sleepy just yet we kept chatting through our phones since signal was still present. We heard some loud sounds outside and went to investigate,it was coming from far away from our camp,maybe a vehicle? We got our raincoats and flashlights,Josh also got us some hunting knives just in case,along with bear spray.
+
+We tried to locate the source of the sound and,as we hid in the bushes,we saw some staff opening a huge gate inside the prohibited area,as they sent animals like cows and pigs inside. Of course,this was already sketchy enough,but we couldnt exactly assume what they were doing,but the next thing we heard was the sound of said animals apparently running around,the sound of shock as a few of them ended up running to the electrical fence.
+
+
+We wanted to run away,but curiosity got the best of us as we stayed hidden to watch it all. We saw the light posts that illuminated the trail starting to flicker,and soon the place was dark save for the headlights of the truck. Lightning striked every so often,and we saw something move in the prohibited area,it was quadrupedal,had a muscular back and if i could guess was around the size of a large horse,but thats all we could see. Soon a deafening roar echoed around as the side of metal clanks started being heard.
+
+If that couldnt be worse,we also heard the staff screaming,we saw faintly one trying to get into the truck before being pulled back by something. It was an impossible to see,but definitively gruesome horror show. We saw a lit up flashlight illuminating in one direction,and thats when we saw it. Quadrupedal,a long body,probably 25 or more feet in length,definitively carnivore,6 eyes and two tails.
+
+"What the hell is that thing!?" Was all i could think of upon seeing that beast,and its snout bloody with someone's arm still hanging in its mouth. Another lightning struck and we could see for a moment that it tore its way through the metal frames and fence...so the moment the light posts were off,it wasnt just a flicker...it was a full power outage and thus it could get through the electric fence without problems. We had to escape,we had knives but it probably wouldnt do anything to it,but there was no way we could escape given it was still around.
+
+Then...it saw us...we had no option but to run inside the prohibited area as it took some time to turn. We ran as fast as we could and not even seeing where we were headed to,we just wanted to escape. I faintly kept hearing its roars as it rushed through the foliage hunting us. Eventually we almost got to hide,almost,except for Mark,who tripped and we couldnt save him,we only kept running as it got hold of him and his screams echoed in our minds as we tried to hide in the foliage.
+
+We hid inside some large bushes,hoping it would not see us. After waiting for what felt like an eternity,we decided to get iut and make our way to the car. As we were about to turn it on,we heard cackling sounds,and when we looked back,it was staring at us from outside. The moment we sped up it gave chase,somehow keeping up with the car,then it slammed itself into the car,causing us to spin over and crash it to the side of the road.
+
+Now were in the worst situation,face to face with it,i dont even know what we could do other than hold my knife and pray it would go away. Then a small tremor was felt and it looked to the side,and a bigger one similar to it showed up,leading it away. The horror struck us upon realizing the horrible truth: ...it was a juveline...and it wasnt an individual,but a species...
