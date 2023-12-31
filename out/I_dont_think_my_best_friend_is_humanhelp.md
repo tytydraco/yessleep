@@ -1,3 +1,5 @@
+Update: https://www.reddit.com/r/nosleep/s/3ce7kUFo2r
+
 My best friend is quite literally perfect. He has the perfect face, the perfect personality, and Straight A’s in every subject. Girls flock to him left and right. Sometimes I found myself staring at him, wondering how somebody could have no flaws. But I won’t be able to see him the same anymore.
 
 A few days ago he invited me to hang out at his house after school. I was quite excited since we normally hang out at the library or my house, so of course I said yes. His house was within walking distance from our school, so it didn’t take long for us to get there. When we arrived at his house, I was astonished. It was a beautiful modern house which was massive. I was always used to seeing small, run-down houses in our town so seeing this was quite a shock for me. 
