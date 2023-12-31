@@ -68,11 +68,11 @@ And this wasn’t even *your* reality.
 
 It took years for me to adjust to a world with so many historical variations. I kept the truth a secret from family and friends. I feared that I’d be committed to a psychiatric ward if I were to reveal what had happened to me. And maybe I would’ve agreed — I think I might’ve eventually chalked it up to a mental health issue if it hadn’t been for my second death.
 
-December 11th, 2022. I die in a plane crash over the English Channel.
+December 11th, 2022. I died in a plane crash over the English Channel.
 
-In the bowels of the ocean, my disembodied spirit sank with the fragments of an aircraft’s carcass and numerous ghoulish spectres of my deceased passengers. And from the darkened depths of that watery graveyard, I saw familiar fingers reaching towards me — as if greeting an old friend.
+In the bowels of the ocean, my disembodied spirit sank with the fragments of an aircraft’s carcass and numerous ghoulish spectres of deceased passengers. And from the darkened depths of that watery graveyard, I saw familiar fingers reaching towards me — as if greeting an old friend.
 
-I felt greater horror than I did during my first death. I feared what that terrifying giant had in store for the soul that had eluded it — *cheated* it. And those awful appendages seemed angrier this time.
+I feared what that terrifying giant had in store for the soul that had eluded it — *cheated* it. And those awful appendages seemed angrier this time.
 
 But then, yet again, my soul was torn away.
 
