@@ -10,7 +10,7 @@ I was ecstatic as this was my dream job.
 
 During my first week there, I made friends with the other flight attendants.
 
-I had especially become close to 2 of the flight attendants, Mandy and Tasha.
+I had become especially close to 2 of the flight attendants, Mandy and Tasha.
 
 During our layovers, we often shared a hotel room for safety reasons.
 
@@ -24,11 +24,13 @@ The police were called in.
 
 Her parents even hired a private investigator but to no avail.
 
-Anyway, the month after Tasha went missing though, inexplicable things began to happen on the plane.
+After Tasha went missing though, inexplicable things began to happen on the plane.
 
 Like one time during a red-eye flight to Los Angeles, a passenger claimed that after a brief nap, he awoke to find a dark-haired flight attendant sitting in the seat next to him.
 
 Thinking she was taking a break, he tried to have a conversation only to have her vanish right in front of him.
+
+Of course, this freaked him out 
 
 Another passenger was using the bathroom when she claimed she saw a hideous face in the mirror.
 
