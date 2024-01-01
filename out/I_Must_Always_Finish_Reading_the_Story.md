@@ -80,7 +80,7 @@ When I awoke, Cleo was watching me anxiously, her arms crossed behind her back, 
 
 “The day caught up to me, that’s all,” I said, at which her smile grew a little fuller. Concern remained streaked across her eyes though, and I couldn’t help but feel something was awry.
  
-“Is everything alright?” At the question, Cleo looked up towards the door, before grabbing my hand and asking me to follow her. Confused, I obliged, and she led me into the kitchen, to where yesterday's events had all begun to unfold. 
+“Is everything alright?” At the question, Cleo looked up towards the door, before grabbing my hand and asking me to follow her. Confused, I obliged, and she led me into the kitchen, to where the previous night's events had all begun to unfold. 
 
 It remained as I had left it yesterday. The glasses were still shattered, and dirt prints scattered across the counters. But there, underneath the window, a new peculiarity had emerged. Letting go of Cleo's hand, I moved towards it and cupped my mouth at the realisation of what it was.
 

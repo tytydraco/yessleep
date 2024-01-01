@@ -98,7 +98,7 @@ I quit the following day.
 
 Eventually, the plane was retired and then used for scraps.
 
-That was 29 years ago and her body was never found.
+That was 29 years ago and her body was never found and later, declared dead.
 
 While in prison, John died of lung cancer, never revealing to authorities where he hid her body taking the secret to his grave.
 
