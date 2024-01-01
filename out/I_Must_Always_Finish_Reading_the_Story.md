@@ -29,7 +29,7 @@ Was it even here?
 
 A dizziness was swiftly overcoming me, with every thought piling more pressure upon my head. I held my breath then, listening in the stillness for any hint as to the source. With my heart in my ears, I slowly realised that there was movement coming from the other side of the door. A skittering of sorts.
 
-If it was really here, then hiding was futile. Taking a few moments, I composed myself as best I could, doing my best to push the deluge of thoughts to the side, before barging out of the bedroom and into the unknown.
+If it was really here, then hiding was futile. Taking a few moments, I composed myself as best I could, pushing the deluge of thoughts to the side, before barging out of the bedroom and into the unknown.
 
 There, with heaving breaths, I scanned the small space that acted as a kitchen and dining room, my eyes darting between the shadows yet failing to sight the source of the commotion. Following a few moments of quiet, the skittering broke the air once more, and I steeled myself for the interloper’s appearance. 
 The agonising anticipation soon gave way to the sight of a figure, one of small stature that leapt from behind the waste bin into the light.

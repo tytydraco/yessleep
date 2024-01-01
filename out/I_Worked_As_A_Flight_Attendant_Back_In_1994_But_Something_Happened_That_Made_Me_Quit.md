@@ -38,7 +38,7 @@ She was hysterical.
 
 It took us 3 hours to finally calm her down.
 
-Even the cleaning crew claimed to see a flight attendant inside the plane while cleaning.
+Even the cleaning crew claimed to see a flight attendant inside the plane while cleaning late at night.
 
 Soon the rumors began to swirl that the plane was haunted and afterward some of the employees quit their jobs.
 
@@ -46,15 +46,15 @@ Anyway, it all came crashing down on the night of August 9th, 1994.
 
 After experiencing some major turbulence, the passengers and crew finally settled down with most of them asleep at that time.
 
-It was around 11 PM when the silence was broken by an ear-piercing scream.
+It was around 11 PM when an ear-piercing scream broke the silence.
 
 The screams were then followed by the sound of someone pounding the hull of the plane that reverberated throughout the plane.
 
 The passengers then began to scream, as the lights began to flicker.
 
-It wasn't long before we spotted what looked like Tasha dragging her foot as she walked towards us.
+It wasn't long before I spotted what looked like Tasha walking towards us while dragging her foot.
 
-Gone was her beautiful face replaced by something hideous.
+Gone was her beautiful face replaced now, by something hideous.
 
 As she got near me, I called out to her.
 
@@ -62,7 +62,7 @@ As she got near me, I called out to her.
 
 She ignored me though and continued dragging her foot towards the cockpit almost like she was on a mission.
 
-When she finally reached the door of the cockpit, she began to wail as if in pain.
+When she finally reached the door of the cockpit, she began to wail as if in pain causing me to cover my ears.
 
 John, one of the pilots opened the door.
 
