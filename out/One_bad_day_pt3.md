@@ -59,3 +59,13 @@ A now calmer Beezle got up and snapped his fingers, with a new suit appearing on
 Which would normally shock me but well it’s been one strange week, leaving a now almost destroyed building beezle just looks at me and says “you feeling tacos?” Nodding we walked to the car well I limped and drove off.
 
 Again sorry I can’t post more right now but ill let y’all know of some more of our adventures soon, oh before I forget Beezle said “bye” too.
+
+
+
+
+
+part 1,2,
+
+https://www.reddit.com/r/spookyStories71/s/H1v6jHm7pc
+
+https://www.reddit.com/r/scarystories/s/v0OFsMdKAw
