@@ -1,7 +1,8 @@
-  
+The Shadow of Glaston Forest parts:
 [Part 1](https://www.reddit.com/r/nosleep/comments/18nhxeh/the_shadow_of_glaston_forest/)
-
-The Shadow of Glaston Forest - Part 2
+[Part 2](https://www.reddit.com/r/nosleep/comments/18qgqil/the_shadow_of_glaston_forest_part_2/)
+[Part 3](https://www.reddit.com/r/nosleep/comments/18spbnq/the_shadow_of_glaston_forest_part_3/)
+[part 4](https://www.reddit.com/r/nosleep/comments/18vs13d/the_shadow_of_glaston_forest_part_4_final_part/)
   
 
   

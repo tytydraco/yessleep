@@ -1,8 +1,8 @@
-First 2 parts:
+The Shadow of Glaston Forest parts:
 [Part 1](https://www.reddit.com/r/nosleep/comments/18nhxeh/the_shadow_of_glaston_forest/)
 [Part 2](https://www.reddit.com/r/nosleep/comments/18qgqil/the_shadow_of_glaston_forest_part_2/)
-
-The Shadow of Glaston Forest - Part 3
+[Part 3](https://www.reddit.com/r/nosleep/comments/18spbnq/the_shadow_of_glaston_forest_part_3/)
+[part 4](https://www.reddit.com/r/nosleep/comments/18vs13d/the_shadow_of_glaston_forest_part_4_final_part/)
 
 As we stood at the edge of the ominous Glaston Forest, with the wind whispering secrets through the swaying trees, a palpable sense of dread settled over us. What lay ahead was shrouded in mystery, the true horror of the forest only just beginning to unfurl its dark embrace. With a shared, determined nod, we stepped forward, crossing the invisible threshold that marked the boundary between our world and the unknown. In an instant, the familiar woods of Glaston vanished, replaced by a landscape that defied the laws of nature and reason.
 
@@ -117,7 +117,3 @@ But our respite was short-lived. As we stood there, basking in the light of the 
 The diary of Eliza, clutched in Dr. Elara's hand seemed to pulse in time with the crystal, a silent beacon calling out to the forces that surrounded us. At that moment, we knew that our journey was far from over. The secrets of this world, and the darkness that had claimed it, were deeper and more complex than we had imagined. The Night of the Guardians was just a prelude. The true test of our courage and resolve lay ahead, in the heart of the alien forest, where the shadows whispered and the light of the crystal promised answers to questions we had yet to ask.
 
 In the darkness, the Guardians watched, their eyes glowing with an ancient, unknowable wisdom. The night was far from over, and the glimmer in the darkness was but a fleeting beacon in the long journey that awaited us.
-
-
-
-Final Part next week [Part 4]
