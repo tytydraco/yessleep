@@ -1,4 +1,4 @@
-Trigger warning >!sexual harassment, possible implied SA!<
+Trigger warning >!possible implied SA!<
 
 When I got the call, at first I couldn’t believe the news.
 
