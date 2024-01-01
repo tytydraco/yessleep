@@ -1,0 +1,25 @@
+Hello again. I've gotten enough rest after that [unfortunate event](https://www.reddit.com/r/nosleep/comments/18toewe/i_accidentally_broke_a_habit_and_now_im_hiding_in/). I've written something after that incident, but I'm only able to post now. It's currently eleven in the morning for me, so all's good. I wrote this the night after. Mainly did this so I can remind myself not to be foolish ever again. Anyway...  
+  
+===  
+  
+So I decided to write what happened after my last reply. Just when I decided to call the police, my signal disappeared. I thought my phone was just acting up, but no, even after rebooting, the signal was still gone. I didn’t know this happened, because I was always asleep around this time. Now I know.  
+  
+When 2 AM rolled by, I decided to walk up to the basement door to check if I’d hear any knock or call for my name. I didn’t dare look out of the window in fear of seeing more of that creature’s friends. Besides, all I could see was a blanket of ebony. Anyway, there was no knock, no voice. Just this eerie silence that enveloped my house. I contemplated leaving the basement, since I thought the lights being on was acting as a deterrent. But just to be sure, I decided to peek through the small gap between the door and the floor.  
+  
+Big mistake.  
+  
+As I crouched on the floor, my gaze was met by not one, not two, but three pairs of those hideous eyes. Yes, pairs. They were outside, possibly hanging upside down, I don’t know. But they were there. They were fucking waiting for me.  
+  
+I ran back down and hid under a box I found, in the corner farthest away from the entrance. I don’t think I’ve trembled this much before, but there I was, shaking as if cold water was just dumped over me. I fidgeted so much; my phone was almost always in danger of dropping onto the floor. I remember somebody once telling me, if you don’t let them in, they can’t harm you. I guess locking my doors and windows was the trick. It wasn’t the light. Who knows. I don’t know. All I know is I ended up passing out.  
+  
+I got woken up by my phone’s notification sounds. I think this was nearing 6 AM. I pushed the box away as I hurriedly stood up. I was thinking, if my signal was back, then maybe things were back to normal? I walked cautiously toward the basement window, and there was light coming from it. I peered outside and saw the familiar houses, trees, lamp posts. Heck, I could see some people walking by. And then I saw it, my friend’s car slowly coming to a halt right by my place. I checked my phone. He had been trying to contact me for the past hours. I counted: 20 messages, six calls. One of the messages said he was going to be late cause of an emergency. So that’s why he’s only here now.  
+  
+I only decided to move when I heard him knocking on my front door. It took me a while to open my basement door, knowing that earlier I saw eyes just outside of it. But when my friend’s knocking intensified, I just took a deep breath and swung the wooden thing open—and thank goodness, there was nothing waiting for me anymore.  
+  
+I ran to my front door and let my friend in. He was asking me what happened, why I wasn’t responding, but I asked him to hold the questions for now and just accompany me upstairs. I think he noticed how scared I sounded because he just silently agreed.  
+  
+My bedroom door was ajar when we reached it. Upon entering my room, I did a quick scan to check if anything had been misplaced. There was none. It was the same way it was, right before I knocked out. I heard my friend say he’d wait for me downstairs, before walking away. I’m pretty sure I heard him say ‘this is weird’ right as he disappeared. I let out a breath. I thought for a moment that I was just too tired, that I was just hallucinating this time. But as I turned to leave my room, only then did I notice it. On my pillow were long strands of black hair. I hurriedly grabbed my pillow, rushed to the bathroom and dumped the strands in the toilet. I stood there, watching the strands get flushed away. No, I wasn’t hallucinating. Those things were real.  
+  
+I eventually joined my friend downstairs and told him as much as I could, explaining to him everything right from the beginning. I don’t know if he believes me, but it doesn’t matter. After he left, I locked all the doors and windows, before I passed out on my sofa.  
+  
+It’s already way past ten in the evening for me. I’ve done a quick check of my windows and yes, the darkness outside is back. Except this time, I think I’ve spotted a pair of those horrendous eyes through a kitchen window. I didn’t dare look again. Anyway, I’ve decided to set a daily reminder on my phone, just so I don’t repeat this blunder. I got lucky this time; I don’t know if I’ll be lucky again the next.

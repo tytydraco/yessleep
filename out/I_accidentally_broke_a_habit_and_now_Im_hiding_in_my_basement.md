@@ -38,4 +38,4 @@ My battery’s at fifty percent. I’ll have to disconnect for now to save it. I
 
 &#x200B;
 
-[UPDATE](https://www.reddit.com/user/micheldane/comments/18uh6i4/update_i_accidentally_broke_a_habit_and_now_i/)
+[UPDATE](https://www.reddit.com/r/nosleep/comments/18vnsmp/update_i_accidentally_broke_a_habit_and_now_i/)

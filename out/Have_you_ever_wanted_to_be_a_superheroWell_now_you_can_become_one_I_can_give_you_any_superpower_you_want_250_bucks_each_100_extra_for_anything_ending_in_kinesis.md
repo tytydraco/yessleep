@@ -22,7 +22,9 @@ It took me a moment to snap him out of it.
 
 “Hey.” I nudged him and he blinked, his expression souring. 
 
-Tai rarely scowled, so this was for a first. I don't think I had ever seen that look on his face, clearly panicked, but trying to hide it. He feigned a smile, though I could see the whites in his fingers where he was squeezing his tray a little too hard. “Come on,” his mouth was still filled with mashed potatoes from lunch. “I thought you were smart. Do you seriously believe in superpowers?” Tai laughed, “In *this* world?”
+Tai rarely scowled, so this was a first. 
+
+I don't think I had ever seen that look on his face, clearly panicked, but trying to hide it. He feigned a smile, though I could see the whites in his fingers where he was squeezing his tray a little too hard. “Come on,” his mouth was still filled with mashed potatoes from lunch. “I thought you were smart. Do you seriously believe in superpowers?” Tai laughed, “In *this* world?”
 
 “No.” I couldn't take my eyes off of the paper, now covered in someone's potato salad. I found myself reaching toward it, before Tai gently slapped my hand away. 
 
@@ -68,7 +70,7 @@ His lip twitched. “I'm good.”
 
 His response confused me. “Seriously? You don't want *any* superpower?”
 
-“No.” Tai’s voice was startlingly cold. The light fixture above us flickered erratically, the bulbs exploding, popping one by one. For a moment, I was entranced by shattered glass raining from the ceiling. I held out my hand, catching shards on my palm. Tai kept walking, unfazed. His gaze didn't leave his phone. “Don't go looking for fantasy,” he grumbled. “You won't find it.”
+“No.” Tai’s voice was startlingly cold, his tone holding weight. The light fixture above us flickered erratically, the bulbs exploding, popping one by one. For a moment, I was entranced by shattered glass raining from the ceiling. I held out my hand, catching shards on my palm. Tai kept walking, unfazed. His gaze didn't leave his phone. “Don't go looking for fantasy,” he grumbled. “You won't find it.”
 
 I stuffed the ad into my pocket, following his figure down the hallway. 
 
@@ -78,7 +80,7 @@ Tai shrugged, bowing his head. “It's basic common sense. Don't be stupid.”
 
 “Okay,” I said, half joking. “I'll drop it.”
 
-Tai was unusually quiet for the rest of the day. I told him I was going to the convenience store after class, which wasn't exactly a lie. I needed to grab food. But I wasn't going to tell him about my pit stop. Per what the ad said, I ventured down the alleyway between the library and the old Pizza Hut. There was a dead end, and a rat with its innards spilling out into a piece of cardboard. 
+Tai was unusually quiet for the rest of the day. I told him I was going to the convenience store after class, which wasn't exactly a lie. I needed to grab food. But I wasn't going to tell him about my pit stop. Per what the ad said, I ventured down the alleyway between the library and the old Pizza Hut. There was a dead end, and a rat with its innards spilling onto a piece of cardboard. 
 
 I'm not an avid believer of bad luck, but it looked like the stars were aligning to personally tell me I was going to die. 
 
@@ -90,7 +92,7 @@ I hated convenience store food.
 
 UberEats was my go-to. I really thought I could fool the guy with some half assed text: 
 
-*Hey, I'll be back late tonight! I'm grabbing sushi from the C store.**
+*Hey, I'll be back late tonight! I'm grabbing sushi from the C store.*
 
 I would rather die than eat convenience store sushi, and my friend knew that. 
 
@@ -140,19 +142,21 @@ I did my best to nod, tears stinging my eyes.
 
 He let me go with a sigh, and I stumbled back, swiping my mouth. 
 
-“Fine.” 
+“Fiiiiiine!"
 
 I scrambled for my flashlight, and the shadow in front of me grew a face. I found myself staring into bright eyes, twisted and wrong, a smile with too many teeth. I was right. It was a kid, maybe two years younger than me. 
 
 Rich, judging from his private school blazer. Thick sandy hair poking from a knitted beanie. The kid shot me a grin. 
 
-“I'll let you pay in instalments, but if you miss one, I'm adding interest.” he twisted around with a chuckle, jumping over a puddle. “I'm only doing this because I like the look of you. You're a college student, are clearly a superhero fan, and have risked coming down this scarrryyy alleyway, to become just like your fave. Which is brave, I gotta say!”
+“I'll let you pay in instalments, but if you miss one, I'm adding interest! I may be a kid, but that doesn't mean you can take advantage.” he twisted around with a chuckle, jumping over a puddle. “I'm only doing this because I like the look of you! I was expecting a college kid, and yeah, you hit the nail on the head!"
 
 His head jerked almost inhumanly, a predator tracking its prey. 
 
-He was standing on the remnants of the rat, and when I looked closer, I realised he was barefoot. This kid went to a prestegious school and was wearing no fucking shoes, the slithering remains of the rat squashed between his toes. 
+"You're... interesting." he inclined his head. "I didn't think my ad would work, and yet here you are!" 
 
-I swore I caught the shadows enveloping his face, like he belonged in the dark, his lips curling into that of a monster, narrowed eyes drinking me in hungrily. 
+I forced a smile. "Here I am," I said through gritted teeth. 
+
+He was standing on the remnants of the rat, and when I looked closer, I realised he was barefoot. This kid went to a prestegious school and was wearing no shoes, the slithering remains of the rat squashed between his toes. I swore I caught the shadows enveloping his face, like he belonged in the dark, his lips curling into that of a monster, narrowed eyes drinking me in. 
 
 This kid was scarier than mutant rats. 
 
@@ -262,13 +266,17 @@ Shading my eyes, I blinked rapidly. I expected a drug lab.
 
 I expected mountains of powdered white and old science equipment. What I saw instead was… plastic. A room full of plastic hanging from the ceiling. I couldn't see anything else. I started to back away, but Wen was already grabbing me and pulling me with him. 
 
-In the flickering light from the figure above us, I glimpsed old and new red streaks staining the floor, and each plastic door we stumbled through. Blood. 
+In the flickering glow from the light fixture above us, I could see old and new red streaks staining the floor and each plastic door we stumbled through. 
 
-It shined brighter the further I was pulled inside a labyrinth of plastic, a whole different world hidden inside. There were metal beds lined up, a body sized lump on each one. We passed a girl with halo hair lying face down on bloodstained blankets. I couldn't see her torso, the lower part of her body covered with soaked blankets stained revealing red. 
+Blood. 
 
-There were plastic tubes forced into pale limp arms hanging off of the edge. 
+It was everywhere, covering every surface. 
 
-“Ignore the Siren,” Wen sighed, tightening his grip. There was something pooling on the floor, thick and red seeping across pristine marble. 
+It was dried into the floor, caked into the clear sheets being whipped in my face, shining brighter the further I was pulled through a labyrinth of plastic, a whole different world hidden inside. 
+
+I glimpsed shadows at first, metal beds lining the walls, body sized lumps lying on each one. The place reminded me of an emergency room. We passed a girl with halo hair lying face down on bloodstained blankets. I couldn't see her torso, the lower part of her body covered with soaked blankets stained revealing crimson. There were dozens of plastic tubes forced into her pale limp arms hanging off of the edge. 
+
+“Ignore the Siren,” Wen groaned, tightening his grip. There was something pooling on the floor, thick and red seeping across pristine marble. 
 
 “She's a drama queen. Ariosa plays dead all the time. She's not for sale, by the way. Ariosa is just for display.”
 
@@ -276,11 +284,13 @@ I kept walking, as if in a trance.
 
 Even when behind me, the girl let out a deafening shriek that clawed its way into my skull. 
 
+"Follow meeeeee!" 
+
 Wen commanded me closer with his voice, and I moved like I was in a dream, my gaze glued to bloodstained steel and body parts without heads cruelly chained down to each gurney. 
 
 I saw them at their most vulnerable, people, with the majority of them being in their twenties, college kids and older, put on a horrific display. 
 
-These kids were malnourished, anorexic, their haunted eyes piercing right through me. Some of them screamed at me, straining in cruel chains pinning them down. One guy was brutally tied down, his arms had been chopped off. His agonising wail followed me, begging Wen to kill him. 
+These kids were malnourished, anorexic, their haunted eyes piercing right through me. Some of them screamed at me, straining in cruel chains pinning them down. One guy was brutally restrained, his arms had been chopped off. His agonising wail followed me, begging Wen to kill him. 
 
 “Pyro.” Wen said. “He's my only one, and he's already been bought. I'm just waiting for the seller to come buy him.”
 
@@ -298,11 +308,13 @@ A cry clawed its way up my throat, and I pried his fingers from my arm, but he g
 
 At first, I didn't move. 
 
-“Walk, Ophelia!” His voice was playful at first. 
+“Walk, Ophelia!” His voice was whimsical at first. 
 
 Hearing Ariosa's whimpering behind me, I  couldn't. 
 
-“Fucking *walk*,” Wen’s tone hardened, and I did, forcing my legs into motion. 
+“Fucking *walk*, dude! Is it that hard? Jeez, you're acting like I've asked you to climb a mountain!” Wen’s tone hardened, his playful attitude souring. 
+
+I obeyed, forcing my legs into motion. 
 
 Something smooth and metallic prodded into my spine. A gun. 
 
@@ -310,7 +322,13 @@ I should have known a teenage drug lord who dealt in supernatural abilities woul
 
 I was still registering his words when he  stopped in front of a particularly filthy sheet and swept it aside. “Here we are! Telekinesis. He was originally 250, but since you've been a *great* customer, I can give you him for half.”
 
-I don't know what I expected. After already witnessing multiple people tied down and forcefully drugged, wires and tubes sticking from them, I thought it would be the same. But this was a whole other level of brutality, one that sent me staggering back. Wen easily caught me, stabbing the barrel of his gun into my back. I barely felt it. I sunk to my knees, my mind already trying and failing to drink in what I was seeing. 
+I don't know what I expected. 
+
+After already witnessing multiple people tied down and forcefully drugged, wires and tubes sticking from them, I thought it would be the same. But this was a whole other level of brutality, one that sent me staggering back. Wen easily caught me, stabbing the barrel of his gun into my back. 
+
+I barely felt it. 
+
+I sunk to my knees, my mind already trying and failing to drink in what I was seeing. 
 
 Wen wasn't just *selling* super powers. 
 
@@ -320,7 +338,9 @@ I vomited all over myself, and the boy scoffed.
 
 Swiping barf from my lips, I struggled to breathe. *He was farming them.*
 
-“Get up,” Wen dragged me to my feet,  but my legs weren't working. My head felt thick, my thoughts dizzy and distant. 
+“Get up, drama queen. Honestly, you're as bad as Ariosa." 
+
+Wen dragged me to my feet,  but my legs weren't working. My head felt thick, my thoughts dizzy and distant. 
 
 I wanted to lie to myself, tell myself I wasn't seeing this. But the blood on the floor was real, the splatters of scarlet staining skin and steel. In front of me was a man, my age, strapped to a chair, closed eyes flickering, lips parted in a silent scream. It looked like he used to be a college student, splinters of who he was still lingering. I could see where his hair used to be, tufts of dark blonde still attached to what was left of his scalp. 
 
@@ -344,7 +364,7 @@ Slowly, the man’s head snapped up. His lips moved, a thin line of red oozing f
 
 Wen flung out his arms like he was introducing a friend. 
 
-“This is Telekinesis! Well, I call him Zero two. Also Ryan. He's my most powerful. I can drug this guy into a fucking coma, and he still manages to rip a customer's head off,” Wen sighed. “The trick was finding the right mix. Horse tranquiliser works miracles with telekinetics. It knocks em’ straight out with no mess.”
+“This is Telekinesis! Well, I call him Zero two. Also Ryan. He's my most powerful. I can drug this guy into a fucking coma, and he still manages to rip a customer's head off,” Wen chuckled. “The trick was finding the right mix. Horse tranquiliser works miracles with telekinetics. It knocks em’ straight out with no mess.”
 
 The kid’s smile widened. “Which is why your brains aren't splattering the walls right now!” he said in a sing-song. 
 
@@ -366,27 +386,41 @@ Twice.
 
 Wen jumped in front of me, dark eyes twisted with insanity.
 
-“Well? Do you like him?” another step, and he was closing the distance between us. “It should take maybe an hour. Two, if your body rejects it. Which is a pain, but I've got the time!”
+“Well? Do you like him? You like him, right? Isn't he, like, fucking insane?!"
+
+Another step, and he was closing the distance between us. “Your assimilation should take maybe an hour. Two, if your body rejects it. Which is a pain, but I've got the time! My Netflix subscription expired, so I have all night to work." Wen's lips curled. "I want to make you perfect."
 
 “You're sick,” I managed to get out. 
 
 Wen shrugged. “It's business. You have empathy, and I don't. Ouch. Do you want Telekinesis or not?”
 
-“No.” Panic erupted inside of me, but I couldn't move. There was no way to run, and a psychotic kid held me at gunpoint. 
+“No!"
 
-I didn't have a choice. My freedom to choose had dissipated the second I made the decision to follow him inside his superpower farm. Wen was surprisingly strong, his arms wrapping around my neck in a chokehold. Something cold pricked the back of my neck, and my body went limp. I hit the ground, half aware of Wen’s shadow looming over me. 
+Panic erupted inside of me, but I couldn't move. There was no way to run, and a psychotic kid held me at gunpoint. I didn't have a choice. 
+
+My freedom to choose had dissipated the second I made the decision to follow him inside his superpower farm. 
+
+Wen was surprisingly strong, his arms wrapping around my neck in a chokehold. Something cold pricked the back of my neck, and my body went limp. I hit the ground, half aware of Wen’s shadow looming over me. 
 
 My vision was blurring, but I could just make out the curl of his cruel smile. 
 
 “After all,” Wen’s voice swam in and out of reality, while my body plunged. 
 
-My eyes flickered, finding intense splatters of red staining the ceiling. “I don't think I told you about *my* ability, did I?” He picked me up, and I was light as a feather, my head hanging. 
+My eyes flickered, finding intense splatters of red staining the ceiling. 
 
-Wen’s laugh sounded unreal, and there it was again. Just like in the cafeteria with Tai, my senses were twisting. The blood in my mouth was shaped like diamonds. I could see every bead, every cutting corner slipping from my lips. 
+“I don't think I told you about *my* ability, did I? Oh man, it's the best part!"
+
+He picked me up, and I was light as a feather, my head hanging. 
+
+Wen’s laugh sounded like thunder claps, and there it was again. 
+
+Just like in the cafeteria with Tai, my senses were twisting. The blood in my mouth was shaped like diamonds. I could see every bead, every cutting corner slipping from my lips. 
 
 Through tunnel vision, the boy's laughter had colour, pitch black darkness bleeding around him, like he was engulfed in ink. “Oh, dude, wait until I tell you about my father…”
 
-His voice faded, and I stopped thinking for a while. I don't know how long. Time seemed to flow in a separate singularity.  Consciousness hit me slowly. Wen’s voice grazed the back of my mind, pulling me back to a reality I didn't want to be in. 
+His voice faded, and I stopped thinking for a while. I don't know how long. 
+
+Time seemed to flow in a separate singularity.  Consciousness hit me slowly. Wen’s voice grazed the back of my mind, pulling me back to a reality I didn't want to be in. 
 
 I could already sense my numb body, my wrists pinned to metal armrests. 
 
@@ -408,7 +442,7 @@ My lips moved, but the words failed to hit the sound barrier.
 
 I felt nothing, and yet my body still reacted, jerking side to side. My eyes rolled back, darkness momentarily swallowing me up, only to spit me back out. “Anyway,” Wen continued. Through flickering eyes, I could glimpse steel protruding into my wrist. 
 
-“So, the boy had a super smart father who was obsessed with the supernatural,” Wen hummed. “So, can you guess what the boy's father did?”
+“So, the boy had a super smart father who was obsessed with the supernatural,” Wen hummed. “Caaan you guess what the boy's father did?”
 
 I didn't respond, my gaze lazily skating over ceiling tiles. 
 
@@ -418,13 +452,13 @@ No pain, but my body was sure there was. Sweat trickled down the back of my neck
 
 Another prod. 
 
-“Nope! The body found his mother– or more appropriately, what was left of his mother. Daddy carved her brain out! Mommy was right there on the bed, her blood was still warm. He hugged her, and still remembers the blood on his face. He tried to wake her up, but Mommy was long dead. Dad had already cut up her brain for testing.”
+“Nope! The kid found his mother– or more appropriately, what was *left* of his mother. Daddy carved her brain out! Mommy was right there on the bed, her blood was still warm. He hugged her, and still remembers the blood on his face. He tried to wake her up, but Mommy was long dead. Dad had already cut up her brain for testing.”
 
-He giggled, another explosion of colour seeping into my vision. “When his mother failed, his father used him.”
+He giggled, another explosion of colour seeping into my vision. “When his mother failed, his father used him!"
 
 Deeper and deeper his fingers were going. 
 
-“It hurt him, Fee. It fucking hurt enough for the boy to want to die over and over again. He spent a long time on a table made of stone, while his father cut him apart and stitched him back together. He stopped feeling pain. Fuck, he stopped feeeling completely! Because the boy's father had cut all of it away, all the bad emotions, and all the good, to make way for his greatest gift.”
+“It hurt him, Ophelia," Wen mocked a childish sob. "Oh, God, It fucking hurt enough for the boy to want to die over and over again. He spent a long time on a table made of stone, while his father cut him apart and stitched him back together. He stopped feeling pain. Fuck, he stopped feeling completely! Because the bastard had cut all of it away, all the bad emotions, and all the good, to make way for his greatest gift.”
 
 *No wonder Wen was a psychopath, his childhood was a never ending experiment.*
 
@@ -486,23 +520,23 @@ I found Zero Two on a pile of bodies, each marked for incineration. His hands we
 
 Superpowers or no fucking superpowers. 
 
-Wen was greeted by two figures at the door. When I got closer, the shadows were even younger than him. The girl, twelve or thirteen, with blonde pigtails, and a boy, a little older than her. They looked like twins, the two of them in the same private school uniform as Wen. 
+Wen was greeted by two figures at the door. When I got closer, the shadows were even younger than him. The girl, twelve or thirteen, with blonde pigtails, and a boy, a little older than her. They looked like twins, the two of them wearing the same private school uniform as Wen. I was so busy staring at the little girl’s red slicked hands, I didn't see their catch. 
 
-I was so busy staring at the little girl’s red slicked hands, I didn't see their catch. 
+There was a man curled up on the ground, bound and gagged, a bag over his head. 
 
-The man curled up on the ground, bound and gagged, a bag over his head. 
+“Psychokinetic,” Pigtails shot Wen a grin. “The stupid-head came right to us.” She was hesitant to go near him, dancing back and forth, like she was playing a game. “Careful. I had to gag him with three layers of duct tape to stop him fucking with my mind. He connects through touch and speech. And he's strong. Like soooo strong!"
 
-“Psychokinetic,” Pigtails shot Wen a grin. “The stupid-head came right to us.” She was hesitant to go near him. “Careful. I had to gag him with three layers of duct tape to stop him fucking with my mind. He connects through touch and speech. And he's strong.”
+“Seriously?” Wen whistled. “Damn.” he knelt next to the fresh catch. “I have pre-orders for a psychokinetic, but I don't think I've ever met one since dad’s collection.” the boy straightened up and kicked the lump, forcefully rolling the man onto his side. I caught a flash of familiar dark brown curls slipping from the bag over his head. Tai. I could see the beaded bracelet I got him for Christmas, and his engagement ring. 
 
-“Seriously?” Wen whistled. “Damn.” he knelt next to the fresh catch. “I have pre-orders for a psychokinetic, but I don't think I've ever met one since dad’s collection.” the boy straightened up, and kicked the lump, forcefully rolling the man onto his side. I caught a flash of familiar dark brown curls slipping from the bag over his head. Tai. I could see the beaded bracelet I got him for Christmas, and his engagement ring. 
-
-He had *just* got engaged, his girlfriend proposing to him two weeks earlier. 
+He had *just* gotten engaged, his girlfriend proposing to him two weeks earlier. 
 
 But Tai didn't have an ability. 
 
 He couldn't have. I would have known! 
 
-Wen’s smile made me feel sick, a triumphant grin. “I can harvest him tonight and greenlight those orders!”
+Wen’s smile made me feel sick, a triumphant grin. “I can harvest him tonight and greenlight those orders!”. 
+
+"Yay!" Pigtails jumped up and down, while her brother's smile wavered. 
 
 I had an ability, and I had no idea how to use it. 
 
