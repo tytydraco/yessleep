@@ -1,0 +1,35 @@
+I work for a special part of the government. The part that doesn't exist.  
+  
+Just a little background, for reasons that will soon be obvious I will not be sharing my name. However, I am a 28 year old female from the western part of the United States who always took a high interest in safety and security. Graduating college with a degree in homeland security and at the top of my class in 2016 I was well on my way in life at just 21 years of age. I guess that's why at the age of 22 I was offered a job that would soon change my life as I knew it.  
+  
+I remember it as if it was yesterday calling all my girlfriends telling them how excited I was that I a girl from some small town on the western coast made it out of college and into the big life. I had everything I could have ever wanted right in the palm of my hand. That all changed however with one simple little phone call that in hindsight I should have never answered.  
+  
+Huh unknown number hello? Hello a deep voice echoed from the other side of the line. I represent a team of special men and women who do the government a unique service. Ok? I said with a shaky reply. I read your file and I think you may qualify for our particular program if you're interested of course.  
+  
+Um ye...yeah, I think I need more information first. All necessary information will be sent to you via text if you are interested in the job offer if you are not interested all conversations with this number will end and you will go on with your life are you interested yes or no. What other choice did I have I thought to myself. Yes I'm interested, good we will be in touch. With that he just hung up and I was left dumb founded.  
+  
+"DING" I jumped at the sound of a text hitting my phone. It read "Thank you for accepting the foundations job offer, please refer to the address below and upon arrival at 8pm on the 19th of June 2017 ask for rex at the main gate." And then just as it appeared in my text inbox it disappeared.  
+  
+I typed the address in my GPS and began my 1 hour journey down the ran down highway this GPS brought me through. It was 7:55 pm when I approached this checkpoint looking gate there stood a man in all black with big white letters that said M.S.A. in the corner of his vest. Can I help you he said yes, I'm looking for Rex I was told to meet him here? Name? I told him my name and he buzzed me through the gate. Rex will meet you inside building 2 he yelled at me as I drove through the huge gate and onto a 1 mile in length road.  
+  
+There I was driving on a mile long road that never seemed to end when finally, it did there in front of me stood 7 big warehouse like buildings, all with numbers on them all spaced out but connected to each other. I eventually found building 2 and a man standing outside of it holding an ar-15 who I later found out was Rex. Ah hello he said greeting me with a smile welcome to site 11.  
+  
+I followed Rex inside where I could not believe what I was seeing. men and women everywhere in lab coats, wearing body armor carrying weapons immediately I knew I was in way over my head. So, uh what exactly is this place I asked, well sweetheart this is site 11 one of many SCP facilities in the United States.  
+  
+SCP? yeah, SCP we stand for Secure, Contain, Protect we handle containment of anomalous objects, creatures, and phenomena that may be too dangerous for the public to encounter. We also do it without the public knowledge if anyone was to ever see us doing our job in the field they are to be captured killed and disposed of, but you don't have to worry about that as that's not your job here at the site.  
+  
+Then what is if I may ask? Well pretty lady you will be a containment officer. What's that? Rex looks down at me and hands me a packet here read page 22. "page 22 job description a containment officer is responsible for implementing and maintaining the procedures necessary to secure and contain anomalous objects, entities, and phenomena. This role involves a variety of tasks, such as monitoring and maintaining containment chambers, ensuring that security measures are in place and effective, responding to breaches or incidents, and collaborating with other Foundation personnel to address containment challenges."  
+  
+Now that you know I will ask you one last time are you interested. Yes I'm interested this is not a joke, right? He looked down at me with a stern look follow me. I followed him down a long corridor where he led me to a door a door that read SCP S-23C. Go ahead peek inside through the crack, I peeked through the tiny, cracked slit in the door and what I saw made me scream. A large black scaley creature with a razor like tail sat in the middle of the room looking right back at me through the same tiny slit in the door.  
+  
+That my dear is SCP S-23C, these will be the types of things you watch over here at this facility. Any questions, no? good. Welcome to the foundation. I worked hard the next 3 years all the way up until my 25th birthday where I was promoted to assistant containment director. Thats when things really went downhill at the foundation.  
+  
+January 12th 2020 11:00 pm It was a normal night as usual I started my rounds making sure all systems were operational and nothing was out of place when suddenly boom it happened. "Warning containment breach sector 11 warning all SCP personnel to their stations." A siren filled the facility, I jumped to my feet scanning the logbooks and checking cameras all over the facility. Where are you, I said to myself just then a black figure emerged at the secured door in corridor 5.  
+  
+"All unit's corridor 5 lock down lock down lock down SCP 122 is attempting escape in sector 15 corridor 5 all unit's respond." Is what I said over the loudspeaker as an explosion erupted from corridor 5's containment bay. It's out I raced to the office phone "get me the security director" I screamed into the phone.  
+  
+The director came and the monster was returned to containment without incident another file to be added to the collection of incident reports that awaited me the next morning. However, that is not what awaited me at all.  
+  
+I arrived at the facility 9am Tuesday morning and saw the security director, the site director and the head of the SCP waiting for me in my office. I practically dropped my morning coffee when I seen this and ran before they seen me. Why did I run many may ask well, I ran because when you are a member of the SCP, and you see them waiting for you with a black case that means you're dead. When you get to the rank that I am you have seen too much and are too much of a risk alive.  
+  
+I left the facility that day and I never came back but if you get a call from an unknown number do not answer it please you will be doing everyone a huge favor.
