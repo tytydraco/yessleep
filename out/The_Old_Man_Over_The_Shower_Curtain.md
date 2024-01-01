@@ -1,6 +1,6 @@
-The old man that died last year still peeks over my shower curtain. I know…you think I’ve lost my marbles, but it's true. Trust me - I’ve seen his ghastly rotten face there, every single time I take a shower.
+The old man that died last year still peeks over my shower curtain. I know…you think I’ve lost my marbles, but nope. I’ve seen his ghastly rotten face there, every single time I take a shower.
 
-It started a few months after he died. Old Man Bartlebee (or was it Winston?) was my next door neighbor. We never really spoke…but each time I walked by his apartment, his door would creak open and he would peek out. He thought no one noticed but I did. After a few times of me walking past his door, he noticed that I noticed him and he would flash this eerie grin. From what I gathered, he either never brushed his teeth or used the same toothbrush since his 20’s (or the 1920’s.) You could honestly smell his humid plaque-filled breath through the walls.
+It started a few months after he died. Old Man Bartlebee (or was it Winston?) was my next door neighbor. We never really spoke…but each time I walked by his apartment, his door would creak open and he would peek out. He thought no one noticed, oh, but I did. After a few times walking past his door, he noticed that I noticed him and he would flash me this eerie grin. From what I gathered, he either never brushed his teeth or used the same toothbrush since his 20’s (or the 1920’s.) You could honestly smell his humid plaque-filled breath through the walls.
 
 I don’t know the full police report but rumors around the complex led me to believe he fell in the shower, somehow knocked the stopper into place with his shoulder. He drowned in his own blood & filth. Yup, his entire body apparently released all bodily fluids.
 
@@ -24,7 +24,7 @@ This time, I was determined to figure out what was going on. I stood there, star
 
 He slowly raised his head above the shower curtain, reached his hand over the rod, and tried to grab for me. Pale white skin, skin you’d only see after it was soaked in water for hours on end, was dangling off of his bony wrist. I screamed and ran out of the bathroom again. I didn't know what to do. I was so scared that I honestly thought of breaking my lease. Unfortunately not an option.
 
-I told my friend about but she seemed skeptical. She wasn’t the type who believed in ghosts or specters or even Big Foot, if we’re honest. She thought it was just work stressing out my day-to-day life.
+I told my friend about but she seemed skeptical. She wasn’t the type who believed in ghosts or specters or even Big Foot, if we’re honest. She thought it was just work stressing out my day-to-day life. 
 
 I knew that wasn’t it. I knew I was seeing the old man. I tried to ignore him, but it was no use. He was always there, watching me, whether I could see him or not.
 
@@ -34,7 +34,7 @@ I was so scared that I didn't want to sleep, let alone take showers anymore. But
 
 One holiday weekend, the power went out. It was the first time the power went out since Old Man Bartlebee’s drowning death. Almost everyone on my floor was out of town for vacation - except for Mia. Mia and I go way back. She’s been living here even longer than I have. She also was one of the first people to tell the landlord about the smell.
 
-The afternoon was growing into night, so I knocked on Mia’s door like my sanity depended on it. She answered and after some small talk, she agreed to come over for a couple hours.
+The afternoon was growing into night, so I knocked on Mia’s door like my sanity depended on it. She answered and after some small talk, she agreed to come over for a couple hours. 
 
 Mia helped me light all of my almost-waxed-out candles. We put them everywhere - the kitchen, the bedroom, the hallway, even in the bathtub itself.
 
@@ -48,6 +48,6 @@ That’s when the most terrifying moment of my life became a reality. The door s
 
 That’s when Mia & I finally regained control of our legs. We ran out of the pitch black apartment with Dead Man Bartlebee still in the corner screaming - and over to Mia’s apartment.
 
-I never went back. I hired movers the next week to transfer all my stuff to my parents place while I figure out my next move. I never told my parents the reasoning of my moving out. Only Mia knows. And that may be my fault. She told me yesterday that she started to hear a dripping coming from her bathroom at night. I told her she’s always welcome to stay in my parent’s guest room. But the thing that scares me the most - is that as I’m writing this, I can hear a Drip. DripDrip. Drip. coming from my childhood bathroom. It’s too dark in there. Wait is the an eye glinting behind the shower? No, get yourself together, you’re just letting my wild imagination get the better of you.
+I never went back. I hired movers the next week to transfer all my stuff to my parents place while I figure out my next move. I never told my parents the reasoning of my moving out. Only Mia knows. And that may be my fault. She told me yesterday that she started to hear a dripping coming from her bathroom at night. I told her that she’s always welcome to stay in my parent’s guest room. But the thing that scares me the most - is that as I’m writing this, I can hear a Drip. DripDrip. Drip. coming from my old childhood bathroom. It’s too dark in there. Wait is the an eye glinting behind the shower? No, get yourself together, you’re just letting my wild imagination get the better of you.
 
-Anyway, if anyone else has experienced anything like this, please reach out to me. Things are getting worse and I think the drips are getting louder. Maybe it’s time for a bath to wash my worries away. Be back soo- drip... dripdrip... drip.
+Anyway, if anyone else has experienced anything like this, please reach out to me. Things are getting worse and I think the drips are getting louder. Maybe it’s time for a bath to wash my worries away. Be back soon.
