@@ -112,7 +112,7 @@ The affiant declares and affirms under penalty of perjury of the laws of the Sta
 
 Signed: *John Feilding*
 
-November, the 9th, 2013 [X](https://www.reddit.com/r/DentonQuick/)
+November the 9th, 2013 [X](https://www.reddit.com/r/DentonQuick/)
 
 &#x200B;
 

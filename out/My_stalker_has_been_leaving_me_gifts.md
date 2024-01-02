@@ -24,7 +24,11 @@ After I ate breakfast, I ended up giving Janine a call to thank her for cheering
 
   
 "Sorry, Cass, I’m in the middle of visiting my parents upstate. I’m coming back tomorrow; can we do it then?” Janine responded.  
+
+
 “For sure! I just wanted to pay you back for the little gift you dropped off yesterday.” I explained.  
+
+
 “Oh? What was the gift?” She sounded thrown off. “You didn’t have to send me flowers; stopping to say hi would’ve been enough.” A moment of silence passed.
 
   
@@ -73,10 +77,15 @@ When I called my dad, he was with his girlfriend, eating lunch. He seemed frazzl
 
   
 “Hey Dad, Are you home right now by any chance?" I attempted to calm my panic to the best of my ability so as not to freak my dad out.  
-“At the moment I am, is everything okay?” He stuttered.  
-"Yeah, I’m pretty sure.” I paused.  
-“This might sound weird, but would you mind checking mom’s old vanity and seeing if her aquamarine gem necklace is still there?” I blurted out.  
 
+
+“At the moment I am, is everything okay?” He stuttered.  
+
+
+"Yeah, I’m pretty sure.” I paused.  
+
+
+“This might sound weird, but would you mind checking mom’s old vanity and seeing if her aquamarine gem necklace is still there?” I blurted out.  
 
   
 He sounded confused but said that he would see if it was still in its place. Before he reminded me, I’d forgotten that necklace was one of my mom’s favorite pieces in her jewelry collection. She wouldn’t even let me touch it as a kid, much less let me go near her vanity. I guess I never noticed how much she wore it in pictures when I was younger. When my dad checked for it, he said that he kept the display on, saying that it wasn’t there. He reassured me that he probably just misplaced it somewhere. And, all the while, that same necklace was sitting in the palm of my hands as we spoke on the phone. My breathing came to a halt, and my heart sank to my feet. Who this person was—this motherfucker. He knew where my dad lived and somehow got inside to collect the necklace.
@@ -88,7 +97,7 @@ I tried calling the police after what happened on Wednesday and was turned away 
   
 I turned my mom’s necklace over to the investigation officer and was asked to fill out a number of different statement forms. When I finally met with the lead officer, he did everything but laughed in my face when I explained my situation to him. I know I didn’t technically see the break-in happen, nor did I know who this ‘Alex’ person was, but I thought that someone could at least help me figure out what to do. I should’ve known that not much could be done without evidence, but I was desperate. I couldn’t call Nick about it. I’m left to my own devices now to deal with whatever the fuck is going on
 
-.   
+
 I saw another package at my doorstep this afternoon.
 
   
