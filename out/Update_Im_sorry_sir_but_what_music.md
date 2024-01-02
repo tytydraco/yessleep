@@ -78,6 +78,7 @@ The rest of the day didn’t get much better for me. I thought I’d try to get 
 I was all alone in the concierge’s room. My wife and daughters were presumably downstairs, having the time of their lives in the games room. I wasn’t exactly in the mood to lose to a six year old playing Othello or Connect Four at the moment. Nor did I even want to be in the same room as my wife.
 
 She was honestly starting to creep me out even more than the concierge did, which I thought impossible.  
+
 A sudden BANG interrupted my thoughts, however. I sprang to my feet at once, rattled. It’d come from outside. I scrambled to the frostbitten window, peering through it.
 
 Beyond the darkness and bitter cold was a shadowy figure, seemingly armed with a shotgun, dragging something through the snow, tainting it scarlet. It was the concierge.
@@ -171,6 +172,7 @@ It was almost like my time was up.
 “Christ,” I said under my breath, and my attention turned to the shotgun the concierge left behind. On impulse, what was his had now become mine. I didn’t care for the concierge’s games, I just wanted to find my daughters and get the hell out of here. So I threw Richard Connell’s book into the fireplace.
 
 “Hey!” I sprinted up the stairs, pointing the gun up at the concierge, who’d just made it to the second floor. He turned to look at me, eyebrows raised like it was a typical occurrence. He was even smiling again.  
+
 “Hey!” I said. “Look, I know this sounds crazy but I don’t actually want to use this on you, even though you fucking blew a hole through my wife’s skull just now and you don’t seem to give a fuck.”
 
 “No, it doesn’t sound crazy at all,” the concierge said. “Because I wasn’t the one who blew that hole.”  
@@ -191,6 +193,7 @@ Click. The door swung open slowly, revealing nothing but darkness inside. I took
 Mounted heads covered every inch of the space.
 
 Yet none of them were small, oddly shaped or furry. They were all too familiar. They were… human heads.  
+
 Real life human heads, eyes gouged, stuffed, mouths hanging agape. What the actual fuck. What the *fuck*.
 
 “I think you might already know two of them,” I heard the concierge say from behind me. “They’re a little younger than I care for but…”
