@@ -70,7 +70,7 @@ I could almost picture the men playing the instruments. The man playing the viol
 
 It was too much to take at one point, however, and I needed a break. A glass of water didn’t sound too bad. I slowly got to my side, careful not to wake Lisa, who had completely sprawled on top of me.
 
-I put on some slippers and slipped out of the room, closing the door behind me with a quiet click. I was almost down the staircase when I heard a--
+I put on some slippers and slipped out of the room, closing the door behind me with a quiet *click*. I was almost down the staircase when I heard a--
 
 “Is there a problem, sir?”
 
@@ -120,6 +120,6 @@ It is also here that I’ve decided to seek help from you guys.
 
 It was one of the paintings. It looks like it dates back at least a couple hundred years. It’s a symphony orchestra, complete with a string quartet, wind instrument players and… a piano.
 
-And playing this piano is a thin bespectacled man. 
+And playing this piano is a thin bespectacled man.
 
 I’ll update everyone soon but I think I have to sign off here for now. Good night.
