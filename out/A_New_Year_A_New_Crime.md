@@ -250,4 +250,4 @@ It was an odd suggestion, but I said alright and headed on my way.
 
   
 Now here we are, back to New Years Eve. I’m about to head to Tilly’s for our nightly assist. But I will promise you this- this year is going to be different.  
-[Part 2](https://www.reddit.com/r/nosleep/s/G6iAXeuyrn)
+[Part 2](https://www.reddit.com/r/nosleep/s/DY4f6F9eRA)
