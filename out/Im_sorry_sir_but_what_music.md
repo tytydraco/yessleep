@@ -100,7 +100,7 @@ The concierge held it up. “The Most Dangerous Game by Richard Connell. Have yo
 
 I gesture up at the head mounts. The concierge looks up at them too.
 
-“‘The best sport in the world,’” he said bluntly. My stomach did somersaults when he did, and my heart had started racing at a hundred miles per hour.
+“‘The best sport in the world,’” he said bluntly. My stomach did somersaults when he did, and my heart started racing at a hundred miles per hour.
 
 “Right.” I took a tentative step back up the stairs. “Well, it was good talking to you. Good night.”
 
