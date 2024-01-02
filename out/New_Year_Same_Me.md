@@ -285,6 +285,6 @@ And now we’re caught up. Like I said, it’s impractical to say I won’t ever
   
 No, I’m afraid I have to do something more drastic. My double was trying to break the mirror earlier, but I sense that he did that just so I wouldn’t have control. I think if he breaks it we’ll both die; why else would he bother with the grenades if he could have just smashed the mirror anytime? Still, I’d rather smash the mirror then let that monster roam free.   
   
-But there may be another way. This whole thing started with a New Year’s Resolution made right at midnight. Maybe I can fix it with another. I just need to figure out what I should be. One more hour left until midnight. One more hour to decide.   
+But there may be another way. This whole thing started with a New Year’s Resolution made right at midnight. Maybe I can fix it with another. I just need to figure out what it should be. One more hour left until midnight. One more hour to decide.   
   
 Any suggestions?  
