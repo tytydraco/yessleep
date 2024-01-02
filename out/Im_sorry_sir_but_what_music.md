@@ -18,7 +18,7 @@ The man’s clothes meanwhile weren't any less peculiar.
 
 His coat was raggedy, dirty, coarse like human hair. Likely skinned from an animal. I could almost smell the fresh smell of flesh oozing out from it.
 
-My eyes involuntarily flicked upward, up at the wall of mounted heads. Deer, boards, bears, even rabbits. A morbid collection. God, what a place to land up in at 3 in the fucking morning.
+My eyes involuntarily flicked upward, up at the wall of mounted heads. Deer, boars, bears, even rabbits. A morbid collection. God, what a place to land up in at 3 in the fucking morning.
 
 I glanced over at my wife, who was standing near the entrance, arms folded, glaring at me. My two daughters, Lisa and Selene, were jumping up and down around her, shrieking at the top of their lungs.
 
