@@ -38,7 +38,7 @@ Maybe I hadn't shut the curtain all the way, I thought, with all that noise from
 
 On the third day I taped one side of a very thin piece of tissue paper to the inside of the door and the other side of it to the door frame. If someone opened the door the tissue would tear and I'd know it after I got out of the shower.
 
-I was washing my hair as usual. My eyes were closed and all was black. Between the "shhh" tone of the shower there were several thumps spaced apart as if someone was walking. It was seemed to be coming from the door and getting closer to the tub. I quickly started to clear my face of soap when I heard the shower curtain being pulled back. My heart rate shot up.
+I was washing my hair as usual. My eyes were closed and all was black. Between the "shhh" tone of the shower there were several thumps spaced apart as if someone was walking. It seemed to be coming from the door and getting closer to the tub. I quickly started to clear my face of soap when I heard the shower curtain being pulled back. My heart rate shot up.
 
 I began frantically rinsing my face but it was taking longer than I expected.
 
@@ -58,7 +58,7 @@ I turned the water off, bringing on the silence like a switch. I heard nothing. 
 
 There were wet footprints on the floor leading from the tub to the closet where the water heater was. I hadn't gotten out of the tub yet and I was bone dry when I had gotten in. Whoever it was was in the closet and the closet was between me and the door.
 
-There's no panic like a panic when you have nowhere to run. Like when you are the cornered animal. When you see the trap but have no choice but to spring it.
+There's no panic like the panic when you have nowhere to run. Like when you are the cornered animal. When you see the trap but have no choice but to spring it.
 
 I glanced around the room for something I could use as a weapon if I needed to. The only thing there was the toilet plunger. I was still frozen in fear though and found it hard to move. I forced myself to reach out and grab the towel, all the while keeping my eyes on the closet door in case it started to open.
 
@@ -88,7 +88,7 @@ I headed back to the bathroom with a maglite and a poker from the fireplace. The
 
 I opened the secret door in the back and shone the light back there. It was a stairwell. I hadn't seen any stars in the basement so I didn't know where it was going.
 
-I followed it down, noticing the wet footprints on the steps as I descended into the darkness. The stairwell seemed to go past the floor below and into the basement area. It must have been a separate basement, I thought it was probably used to store alcohol for the mob during prohibition.
+I followed it down, noticing the wet footprints on the steps as I descended into the darkness. The stairwell seemed to go past the floor below and into the basement area. It must have been a separate basement; I thought it was probably used to store alcohol for the mob during prohibition.
 
 When I got to the bottom it was a cold dark room about the size of four large suvs parked side to side. The room was made of concrete blocks and the floor was concrete and covered in dust. There were no windows, light fixtures, furniture, or anything at all in the room except a small cot.
 
