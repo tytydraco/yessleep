@@ -233,3 +233,5 @@ Take care of you and stay safe
 &#x200B;
 
 Odette
+
+Update: [Part 9](https://www.reddit.com/r/nosleep/comments/18wz41a/silver_whispers_part_9/)

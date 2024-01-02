@@ -1,4 +1,4 @@
-I am someone who lives a relatively peaceful life, all things considered. I am a woman in my mid-thirties who gets to work from home as an editor and has a fairly cushy, two-bedroom studio apartment. At the moment, my fiancé is on military leave, and as of late, I’ve been feeling a bit trapped and lonely being home by myself while he’s away. I’ll be honest, I don’t really have many friends to call or text at any time. I haven’t really felt the need to have a vast number of friends, even if I were able to. Although I do have a close friend named Janine, who has felt like a big sister to me for years, I met her when I was working my first job as a barista. Janine was my former manager, who eventually became a chosen family member. I guess for now, it’s just me, my dog, and my work to keep me company. Just like it was when I was dorming in college.  
+I am someone who lives a relatively peaceful life, all things considered. I am a woman in my mid-thirties who gets to work from home as an editor and has a fairly cushy, two-bedroom apartment. At the moment, my fiancé is on military leave, and as of late, I’ve been feeling a bit trapped and lonely being home by myself while he’s away. I’ll be honest, I don’t really have many friends to call or text at any time. I haven’t really felt the need to have a vast number of friends, even if I were able to. Although I do have a close friend named Janine, who has felt like a big sister to me for years, I met her when I was working my first job as a barista. Janine was my former manager, who eventually became a chosen family member. I guess for now, it’s just me, my dog, and my work to keep me company. Just like it was when I was dorming in college.  
 
 
   
@@ -130,7 +130,7 @@ When I was coming back from a run, I noticed that some flyers had been stuck in 
 
 
   
-I almost threw the last one in the garbage when I felt that the last two flyers were stuck together. The second-to-last flyer It didn’t look to be an ad at all. It was a postcard. Written on the back was a small message written in bold letters: “Look closer, there’s magic here."
+I almost threw the last one in the garbage when I felt that the last two were stuck together. The second-to-last flyer It didn’t look to be an ad at all. It was a postcard. Written on the back was a small message written in bold letters: “Look closer, there’s magic here."
 
   
 I mentioned the strange postcard to Janine when she came over later in the day, showing her the message written on the back. She seemed to question its significance, considering how dull the picture was. It was a picture of a long stretch of road, showing fields of gated farmlands on both sides and horses gathering behind the road barriers. Why would anyone choose this hideous postcard to send? The thought baffled me. I also showed Janine the photo album I received in the last package. She scrolled through the pages for a bit and didn’t say anything for a while.
