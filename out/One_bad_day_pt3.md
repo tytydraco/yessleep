@@ -64,8 +64,12 @@ Again sorry I can’t post more right now but ill let y’all know of some more 
 
 
 
-part 1,2,
+part 1,2,4
 
 https://www.reddit.com/r/spookyStories71/s/H1v6jHm7pc
 
 https://www.reddit.com/r/scarystories/s/v0OFsMdKAw
+
+https://www.reddit.com/u/BlackPepper445/s/FFgSMyvU4r
+
+https://www.reddit.com/u/BlackPepper445/s/mzboTjneEf

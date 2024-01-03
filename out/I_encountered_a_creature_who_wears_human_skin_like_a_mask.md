@@ -1,4 +1,4 @@
-Pedro flicked the lighter, moving it under the spoon. The translucent glow of the Moon spilled in through the open door of the shack, trails of light glowing as white as bones. It gave Pedro’s tanned face an eerie, skull-like cast. His sunken eyes stared out from two swollen, purplish eyelids. I couldn’t remember the last time we had slept.   
+Pedro flicked the lighter, moving it under the spoon. The translucent glow of the Moon spilled in through the open door of the shack, trails of light glowing on the dirt as white as bones. It gave Pedro’s tanned face an eerie, skull-like cast. His sunken eyes stared out from two swollen, purplish eyelids. I couldn’t remember the last time we had slept.   
   
 The cocaine in the spoon gave off a subtle smell of cloying peppermint as the water bubbled. Satisfied, Pedro grabbed the needle and shoved it in the center of the cotton.  
   
@@ -40,7 +40,7 @@ As he pulled himself forwards another foot, I realized both of his legs were ben
   
 “What did this?” I whispered. I couldn’t imagine the amount of strength required to do this to a human body in the space of less than a minute. My voice sounded like it was coming from someone else’s mouth. Everything felt slow and dream-like. Pedro had nearly gotten to the door when his eyes widened. He flew back, dragged by some unseen hand. I saw him trying to claw at the hard earth with his remaining hand, the fingernails ripping out with a sickening rending sound as he disappeared into shadow.  
   
-I heard him screaming as if he were being burned alive, but within a few seconds, it had cut off. A heavy thud shook the ground from the other side of the bare wooden wall. A harsh death rattle marked the end of Pedro and the beginning of my struggle for survival.  
+I heard him screaming as if he were being burned alive, but within a few seconds, it cut off. A heavy thud shook the ground from the other side of the bare wooden wall. A harsh death rattle marked the end of Pedro and the beginning of my struggle for survival.  
   
 I looked out the door, trying to measure how far it would be to the nearest house. Streetlights streamed down in the distance, only a couple hundred feet away. An alleyway covered in graffiti stretched out in front of me, strewn with garbage and covered in skittering rats. Police sirens drew nearer by the second. The dancing red-and-blue lights strobed through the dirty walls of the abandoned buildings on the nearby streets. I had never been happier to see the pigs show up.  
   
