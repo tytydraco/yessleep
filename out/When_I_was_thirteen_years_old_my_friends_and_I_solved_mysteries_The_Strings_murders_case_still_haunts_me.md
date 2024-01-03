@@ -18,13 +18,13 @@ Hiding behind a wall, I watched him open it up and stare at it for a while, befo
 
 I ran away before he could catch me, but I was sure the janitor had run across the playground. Studying the dirt in front of me, I was sure the footprint belonged to Mr Stevens. I had already checked his shoes. Mr Miller, our teacher, asked me to collect everyone's workbooks from the faculty room. I couldn't resist. 
 
-After an incident involving a faulty member trailing in animal poop from outside, all students and teachers had to take off their outdoor shoes and wear indoor ones. The janitor’s outdoor shoes were neatly placed under his desk. Before I could hesitate, I checked the bottom of them, memorising their pattern. Swirls and C’s. 
+After an incident involving a faculty member trailing in animal poop from outside, all students and teachers had to take off their outdoor shoes and wear indoor ones. The janitor’s outdoor shoes were neatly placed under his desk. Before I could hesitate, I checked the bottom of them, memorising their pattern. Swirls and C’s. 
 
 Stabbing at the footprints in the dirt, I idly traced the exact same swirly pattern. 
 
 “What are you doing, weirdo?”
 
-Noah Prestley knelt next to me, his curious eyes following my fingers that were digging into the dirt. I wanted to trance the footprints with my fingers. Mom told me to keep my dress clean, but it was already filthy, my cheeks smeared with dirt. I didn't look up from my clue. Noah was a good sidekick, admittedly. But he did eat all the snacks during our stake out– and he got distracted easily. 
+Noah Prestley knelt next to me, his curious eyes following my fingers that were digging into the dirt. I wanted to trace the footprints with my fingers. Mom told me to keep my dress clean, but it was already filthy, my cheeks smeared with dirt. I didn't look up from my clue. Noah was a good sidekick, admittedly. But he did eat all the snacks during our stake out– and he got distracted easily. 
 
 We were almost caught when he freaked out over a moth. “Investigating crime,” I said, grabbing a stick and tracing the shoe pattern for the hundredth time. 
 
@@ -88,7 +88,7 @@ Following a loud cacophony of, “No!” from the adults who really thought a se
 
 The principal searched the janitor’s locker, and sure enough, he pulled out multiple bags of white powder. 
 
-Old Man Critter had an audience of kids and faulty when he was being led away. Noah and I stood at the front. I remember him twisting around, teeth clenched in a manic snarl, saliva dripping down his chin. *“I'll get you! You little brats! I'll fucking find you!”*
+Old Man Critter had an audience of kids and faculty when he was being led away. Noah and I stood at the front. I remember him twisting around, teeth clenched in a manic snarl, saliva dripping down his chin. *“I'll get you! You little brats! I'll fucking find you!”*
 
 That was the day we found our third member. 
 
@@ -226,13 +226,13 @@ When the four of us stepped into our principals office, he regarded us with a sc
 
 Usually for breaking into classrooms and the time Noah tried to jump into the vent because he saw it on TV. Principal Maine was drinking something that definitely wasn't coffee or water. His desk was an avalanche of paper, and I swore I could already see steam coming out of his ears. 
 
-“You three.” The man leaned forward, raising his brow at Aris, who looked way too comfortable at a school he had just joined. “And you've dragged the new kid into your antics! I can't say I'm surprised when I've been on the phone with four separate reporters who want details on this *Middleview Four* garbage.”
+“You three.” The man leaned forward, raising his brow at Aris, who looked way too comfortable at a school he had just joined. “And you've dragged the new kid into your antics! I can't say I'm surprised when I've been on the phone with four separate reporters who want details on this *Middleview Three* garbage.”
 
 Noah’s eyes lit up. “Wait, really? What did you tell them?”
 
 Principal Maine’s eyebrows twitched. “I told them the truth,” he leaned back in his chair. This guy had some serious stress-lines. “You are three stubborn children with zero respect for authority, who have broken multiple rules and are *very* close to acquiring criminal records before reaching the age of eleven. Which, might I say, is a first! The youngest person in this town to get a criminal record was Ellie Daley, back in the 80’s. She was thirteen years old.”
 
-“We’ve not broken any rules,” May said, “We’ve been catching bad people.”
+“We haven't broken any rules,” May said, “We’ve been catching bad people.”
 
 The man’s lip curled. “We have a full force of officers whose jobs are to find bad people,” he said. “Middleview does not need the protection of three children who are barely old enough to know right from wrong,” his eyes found Noah. He was always the punching bag for our teachers, and I never understood why.
 
@@ -292,7 +292,7 @@ Entering teenagehood made me realise Middleview was not a good town–and its pe
 
 It didn't take us long to realise the people we put away as little kids wanted revenge. And in their heads we were old enough to receive proper punishment. Mom told me we would regret our so-called fame as the town's junior detectives, and I thought she was wrong. 
 
-I had spent my childhood chasing bad guys, so I was sure I could catch the *real* bad ones too. I was fourteen when we ran into our first real criminal who specifically wanted us. Danny Budger was the reason why Noah started going to therapy at fourteen, and why Aris refused to go near the edge of town. 
+I had spent my childhood chasing bad guys, so I was sure I could catch the *real* bad ones too. I was fourteen when we ran into our first real criminal who specifically wanted us. Danny Budge was the reason why Noah started going to therapy at fourteen, and why Aris refused to go near the edge of town. 
 
 May had taken time off to go see her family abroad, and I was put under house arrest. Seven year old Maisie Eaton had disappeared from her yard, and after searching for her for two nights, alongside the police who had learned to tolerate us working with them, we found her tied up inside an old barn.
 
@@ -308,7 +308,7 @@ Aris rushed forward to untie the little girl, only to trip on a wire, which was 
 
 “Fuck!” Aris hissed, already freaking out. He was frozen. “What do I do?!”
 
-“Stay calm,” Noah said from my side, the rest of us hiding behind an old car. The mayor's son had become our unofficial leader. Ever since hitting puberty, he was now our braun alongside May. Noah jumped forward, watching for trip wires. “I'll save the kid. May! You help Aris.” before I could get a word in, he was dragging me to my feet. “Marin, you're with me.”
+“Stay calm,” Noah said from my side, the rest of us hiding behind an old car. The mayor's son had become our unofficial leader. Ever since hitting puberty, he was now our brawn alongside May. Noah jumped forward, watching for trip wires. “I'll save the kid. May! You help Aris.” before I could get a word in, he was dragging me to my feet. “Marin, you're with me.”
 
 I nodded, stumbling in the dark, keeping my flashlight beam on the ground. 
 
@@ -316,7 +316,7 @@ I nodded, stumbling in the dark, keeping my flashlight beam on the ground.
 
 I did. But I didn't want to say it out loud, because then my Mom would be right, and I was admitting that there were multiple people trying to kill us. 
 
-Luckily, we saved Maisie. Her kidnapper, Danny Budgen, turned himself in with no word or explanation. 
+Luckily, we saved Maisie. Her kidnapper, Danny Budge turned himself in with no word or explanation. 
 
 Later, we would find out he was related to our elementary school janitor. 
 
@@ -325,7 +325,7 @@ The little girl was taken back to her mother, and the four of us stayed behind, 
 “From your mother,” May added softly. 
 She squeezed my hand. “Your Mom will kill us before they do.”
 
-“We’ve going to fucking die,” Noah said in a sing-song. “And I'm not even sixteen.”
+“We’re going to fucking die,” Noah said in a sing-song. “And I'm not even sixteen.”
 
 He was right. 
 
