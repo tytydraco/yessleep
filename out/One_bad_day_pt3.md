@@ -70,6 +70,4 @@ https://www.reddit.com/r/spookyStories71/s/H1v6jHm7pc
 
 https://www.reddit.com/r/scarystories/s/v0OFsMdKAw
 
-https://www.reddit.com/u/BlackPepper445/s/FFgSMyvU4r
-
-https://www.reddit.com/u/BlackPepper445/s/mzboTjneEf
+https://www.reddit.com/u/BlackPepper445/s/IPXD9d00i0
