@@ -1,4 +1,4 @@
-[Link to part two](https://www.reddit.com/r/nosleep/s/gq38Fppswk)
+[Link to part two](https://www.reddit.com/r/nosleep/s/MFnNhuGZqu)
 
 
 I am someone who lives a relatively peaceful life, all things considered. I am a woman in my mid-thirties who gets to work from home as an editor and has a fairly cushy, two-bedroom apartment. At the moment, my fiancé is on military leave, and as of late, I’ve been feeling a bit trapped and lonely being home by myself while he’s away. I’ll be honest, I don’t really have many friends to call or text at any time. I haven’t really felt the need to have a vast number of friends, even if I were able to. Although I do have a close friend named Janine, who has felt like a big sister to me for years, I met her when I was working my first job as a barista. Janine was my former manager, who eventually became a chosen family member. I guess for now, it’s just me, my dog, and my work to keep me company. Just like it was when I was dorming in college.  
