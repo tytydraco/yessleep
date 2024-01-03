@@ -206,3 +206,5 @@ I said sure and got the TV running before draping myself over the sofa and allow
 So my baby almost got eaten by an ancient giantess. How’d your Yuletide go?
 
 [X](https://www.reddit.com/r/CrypticPark/s/1FFCnv4gQH)
+
+[Part 2](https://www.reddit.com/r/nosleep/s/6axjHqrVDt)

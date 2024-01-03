@@ -1,4 +1,3 @@
-Update: https://www.reddit.com/r/nosleep/s/3ce7kUFo2r
 
 My best friend is quite literally perfect. He has the perfect face, the perfect personality, and Straight A’s in every subject. Girls flock to him left and right. Sometimes I found myself staring at him, wondering how somebody could have no flaws. But I won’t be able to see him the same anymore.
 

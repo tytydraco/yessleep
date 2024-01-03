@@ -1,4 +1,4 @@
-Pedro flicked the lighter, moving it under the spoon. The translucent glow of the Moon spilled in through the open door of the shack, trails of light glowing on the dirt as white as bones. It gave Pedro’s tanned face an eerie, skull-like cast. His sunken eyes stared out from two swollen, purplish eyelids. I couldn’t remember the last time we had slept.   
+Pedro flicked the lighter, moving it under the spoon. The translucent glow of the Moon spilled in through the open door of the shack, trails of light glowing as white as bones. It gave Pedro’s tanned face an eerie, skull-like cast. His sunken eyes stared out from two swollen, purplish eyelids. I couldn’t remember the last time we had slept.   
   
 The cocaine in the spoon gave off a subtle smell of cloying peppermint as the water bubbled. Satisfied, Pedro grabbed the needle and shoved it in the center of the cotton.  
   
