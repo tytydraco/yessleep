@@ -1,0 +1,27 @@
+This all started about 2 years ago, a Monday or Tuesday maybe, I’m not quite sure anymore, I remember it was cold and I was in a hurry to get back to the office. My boss had already scolded me several times not to be late back from my lunch break. I usually leave the office for lunch because my house is only 15 minutes away and frankly, I hate the office staff room. The mix of the mildew smell and the smell of whatever fish was put in that microwave that week lingering in the air was not the most pleasant combination. The mold on the carpet in the corner by the sink didn’t help either. 
+
+But, I digress. I was on my way back, slightly behind today because my dog wanted some extra attention, when all of a sudden, within a few millionths of a second I appeared in this empty void. It was cold and completely void of any color. I mean, yeah, the city I was walking in wasn’t all that colorful on a rainy day either, but this was different. The puddles on the ground were all dried up. In fact, all the water seemed to vanish. The air was warm and I could hear a deafening silence around me. Have you ever sat in a room and become aware of the silence around the noise? It was like that, but the noise was gone. I also had this unnerving feeling of being watched, but when i looked around it seemed almost void of anything. There were no people whatsoever, the ground seemed like gravel with dead grass poking up out of it (a lot like my childhood homes driveway) but it was in complete opposition of my previous landscape. I was surrounded by buildings and busy bustling streets, but now I feel alone. 
+
+Suddenly, every thing felt whole again and I felt a sharp pain against the bottom of face. I had been hit. I didn’t see him in here before, but he was there the whole time. He was looming over my now shocked body. He was a man in his early 50s, grey hairs poking out from underneath an old beanie. He quickly stomped at me and I rolled out of the way, fear cascading over my body. I tried to get to my feet but I was hit again, and now he sat atop me and punched me over and over again I felt my skin breaking under the force. It felt like ages until he finally collapsed on me. He must’ve died. I don’t know if it was a heart attack or what, but he just died. Then bam, like a blink I was back where I started, my eyes strained as the grey clouded light entered my eyes and my ears flushed over with every sound I heard. 
+
+Before I was in that place that was so unexplainable that I simply tried to keep it a secret. Well, that was until I got to my office and a friend of mine, I will call Carson, high-fived me. All of a sudden, I was back in the void, but this time Carson was too. I had no  clue what was going on. Carson seemed to be the same person and not a figment, and he was afraid and confused just like me. We decided to try and work together to find a way out of this place. We walked for what seemed to be hours, the only sound was our breathing that became labored as we walked more and the gravel crunched underneath our feet. 
+
+We had to have walked for 2-3 hours until we both saw what looked like a tree ten to fifteen feet ahead of us. Carson ran towards it instantly, thinking it might help, or, in his words “I can climb it and find a way out!” When all of a sudden, I watched as a silhouette of Carson fell. I would be lying if I said it didn’t look like a cartoon character. I watched his body simply vanish and a few more seconds later I heard his bones crack. He wasn’t in front of me, he was where I assumed a cliff edge was, yet I had a feeling from behind me. I felt my spine stiffen and my hairs stand on end as I turned around to see Carson’s mangled body twisted and deformed. His neck was twisted and his arms was bent in three directions and before I could scream or cry or let out any emotion I was back in the hall again, right where Carson stood with me a few hours ago. However, the clock still only read 1:13. I quickly look around, hoping to see any signs of Carson there. I run to his desk probably looking mad, as I am half crying and absolutely hysterical. I reached Carson‘s desk only to see a woman sitting there. I know her, she’s been working in this office for two years with me,I will call her Kaitlyn. I ask her where Carson is as my teardrops wet one of the documents she was looking at. She looks at me with a face of bewilderment and confusion before raising a single question, “Who is Carson?”
+
+That’s the day I think I got this curse. Through the course of me having this ability I have learned the following.
+1.	Any touch of any kind leads to people being sent into the void.
+
+2.	There is no limit to people within the void at all given time as long as you touched them simultaneously.
+
+3.	The void seems to be a world with actual laws of physics and nature, think of it as a world with a really low render distance and without a sun. It is only light around where one or more person is at.
+
+4.	One person has this ability at a time. I currently do and I call my self the holder. The holder holds superiority in the void.
+
+5.	Anyone who is not the holder, and who is touched by the holder, and put into the void, will die by the hands of the holder or by the void, the void will never kill the holder.
+
+6.	Anyone killed by the holder or the void will no longer exist. Any trace of them or memory of them will have been gone besides that of the holder.
+
+
+7.	If anyone kills the holder, they become the new holder. 
+
+That is all I can write for now but I hope to update you soon.
