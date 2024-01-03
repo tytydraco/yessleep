@@ -28,7 +28,7 @@ Emma threatens me literally every time we meet. We always start in the visitor l
 
 “And?”
 
-I point her to her own notes, which read: *Jack acks like a total jackhole, but you can trust him. He was a bad person but now he is, in his own words, trying to be “a less worse person.” Also, you’ve agreed to not expose all his past scams if he helps you. And if he can help you get Grams out, you’ve also agreed to pay him ten thousand dollars.*
+I point her to her own notes, which read: *Jack acts like a total jackhole, but you can trust him. He was a bad person but now he is, in his own words, trying to be “a less worse person.” Also, you’ve agreed to not expose all his past scams if he helps you. And if he can help you get Grams out, you’ve also agreed to pay him ten thousand dollars.*
 
 She squints. “… isn’t this last line in your handwriting?”
 
