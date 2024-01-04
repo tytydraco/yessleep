@@ -1,10 +1,10 @@
-About 45 years ago, when I was only 8 years old there was an explosion at a nearby research facility...
+About 45 years ago, when I was only 8 years old there was a massive explosion at the nearby research facility...
 
-The incident in question included a government cover-up and my hometown being abandoned.
+There was a government cover-up and my hometown was abandoned years later...
 
-Anyway, It all began on July 4th, 1979 during my hometown's annual Independence Day Parade. Although it was sweltering hot that day, I remember the whole town was there for the celebrations, and being a kid, the only thing on my mind was firecrackers.
+It all began on July 4th, 1979 during my hometown's annual Independence Day Parade. Although it was sweltering hot that day, I remember the whole town was there for the celebrations, and being a kid, the only thing on my mind was firecrackers.
 
-Anyway, before I get ahead of myself, I'd like to tell you a little bit about my hometown.
+But before I get ahead of myself, I'd like to tell you about my hometown.
 
 Surrounded by dense forest, it was located near Lake Tahoe with a population of just over 1000.
 It had one stop light, a post office, a grocery store, and several restaurants scattered throughout town.
@@ -15,19 +15,21 @@ Anyway, where was I?
 
 Oh, I remember, as the festivities began winding down and people were leaving, out of nowhere came this really loud explosion.
 
-At first, I thought it was fireworks until this dust-like substance began to rain down onto the town and pandemonium broke out as people began to panic.
+At first, I thought it was fireworks until this dust-like substance began to rain down from the sky.
 
-It wasn't long before the state police were called in to investigate the explosion and the CDC was called in because of the dust.
+Chaos began to brew as people were running for their lives.
 
-The dust-like substance was like nothing I'd seen before it had a peculiarly grainy texture and smelled pungent too.
-Eventually, the people including the first responders who handled the mysterious dust began to fall ill too.
+It wasn't long before the state police were called in to investigate the explosion and the CDC because of the dust.
 
-It wasn't long before the theories began to swirl about the origin of the dust.
-Of course, we would later learn that there was an explosion at the nearby research facility where the dust probably originated from.
+The dust-like substance was like nothing I'd seen before it had a peculiarly grainy texture and smelled pungent too and it wasn't long before the people including the first responders who handled the dust began to fall ill.
 
-Not only was this dust affecting humans but pets too. All the pets that were exposed to the dust either got sick or died and even people in my hometown began to die too.
+Soon the theories began to swirl about its origin and of course, we would later learn that there was an explosion at the nearby research facility where we speculated the dust came from.
 
-Soon enough the dusk began to take a life of its own and scientists from all over were brought in to study the dust even the military was brought in but to no avail.
+Not only was this dust affecting humans but pets too. 
+
+All the pets that were exposed to the dust either got sick or died and even people in my hometown began to die too.
+
+Soon enough the dust began to take a life of its own and scientists from all over the world were brought in to study the dust even the military was brought in but to no avail.
 
 Eventually, my hometown was placed under quarantine until the scientists were able to learn more about the dust.
 It was hard to watch these people in Hazmat suits walking around my hometown but over time we learned to adapt to our new surroundings.
@@ -36,7 +38,7 @@ The calm wouldn't last long though...
 
 See on the night of August 1st while watching TV, I heard a blood-curdling scream coming from Mrs. Walters, my next-door neighbor.
 
-As I ran outside, I was met with horror. Scattered everywhere were the bodies of my neighbors.
+As I ran outside, I was met with horror because scattered everywhere were the bodies of my neighbors.
 
 I began to back up but was stopped as I watched the dust begin to swirl around me.
 
