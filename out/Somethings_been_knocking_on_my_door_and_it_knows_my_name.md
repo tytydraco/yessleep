@@ -1,6 +1,8 @@
 It all started with a deafening crash against my front door.
 
-It was 10 pm, and I was in bed watching, trying to get to sleep. The sound sent me flying out of bed and clambering into my wardrobe, clutching a steak knife I kept hidden in my coat pocket.It wasn’t because of anxiety or paranoia. 
+It was 10 pm, and I was in bed watching, trying to get to sleep. The sound sent me flying out of bed and clambering into my wardrobe, clutching a steak knife I kept hidden in my coat pocket.
+
+It wasn’t because of anxiety or paranoia. 
 
 It’s because I live in Garland Estates, one of the roughest areas in Bradford, the most dangerous city in Europe.
 
@@ -68,7 +70,9 @@ He called out my name, begging to be let in, convinced that something was out th
 
 I left him begging at the door and crept back into my bedroom. I crawled to the curtains and gently pulled them aside, desperate to see my lanky, loveable neighbour standing outside. But under the flicking fluorescent light of the hallway, there was nothing. The light switched off with a click, plunging me into darkness.
 
-Three loud slams rattled my front door. One. Two. Three.
+Three loud slams rattled my front door. 
+
+One. Two. Three.
 
 Then silence.
 
