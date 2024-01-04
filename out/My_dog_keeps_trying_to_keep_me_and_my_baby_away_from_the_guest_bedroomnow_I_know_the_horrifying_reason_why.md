@@ -1,6 +1,6 @@
 At first I thought it was just him being nervous after I brought my baby home. I had a difficult pregnancy,and my brother was always taking care of Truffle while I was at the hospital. Truffle is a 5-year-old alsatian and I have had him since I was 19 and he was a pup. When I brought baby James home,he was very protective of us,not leaving the baby's side.
 
-But there was one strange thing. He would bark repeatedly every time I went near the guest bedroom.I didn't pay much attention at first. I payed a lot less attention then I should have.But I have go past it to go to the bathroom and he seemed to get louder and louder than the last time.It was getting really annoying and I would just avoid using that bathroom unless I needed a shower.I started to get really anxious about it though. So much so that I moved the baby's cot into my room,our of fear for his safety.
+But there was one strange thing. He would bark repeatedly every time I went near the guest bedroom.I didn't pay much attention at first. I payed a lot less attention then I should have.But I have go past it to go to the bathroom and he seemed to get louder and louder than the last time.It was getting really annoying and I would just avoid using that bathroom unless I needed a shower.I started to get really anxious about it though. So much so that I moved the baby's cot into my room,out of fear for his safety.
  
 Something just felt wrong about it. 
 
@@ -8,11 +8,11 @@ Truffle never barked, especially not like that. The last time he had barked in a
 
 The nights were the worst.
 
-It took a lot to bribe him away from the door into the rom with me and the baby and when i did,he would sit next to me whimpering and trembling.I was struggling to sleep a lot.I was lucky if I got two hours of sleep a night.I kept speaking to my dad over the phone,both because we had a special,loving bond and to keep myself sane.I was scared to leave the room when it wasn't light out.
+It took a lot to bribe him away from the door into the room with me and the baby and when i did,he would sit next to me whimpering and trembling.I was struggling to sleep a lot.I was lucky if I got two hours of sleep a night.I kept speaking to my dad over the phone,both because we had a special,loving bond and to keep myself sane.I was scared to leave the room when it wasn't light out.
 
 "This is just silly,"I said to myself.
 
-I so badly wanted to open the door to that dreaded room,but each time I tried,I would tremble and sob,making the dog bark and the baby cry.It was like the fking domino effect.I hadn't left the house in a month.I had been ordering food and shopping straight my door,which I was afraid to answer.After a while I decided enough was enough.I would open the guest bedroom door.
+I so badly wanted to open the door to that dreaded room,but each time I tried,I would tremble and sob,making the dog bark and the baby cry.It was like the fking domino effect.I hadn't left the house in a month.I had been ordering food and shopping straight to my door,which I was afraid to answer.After a while I decided enough was enough.I would open the guest bedroom door.
 
 That is the biggest mistake I have made in my life.
 
