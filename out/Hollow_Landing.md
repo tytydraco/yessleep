@@ -162,6 +162,6 @@ I entered the kitchen to find my mom pouring a glass of buttermilk. I almost gag
   
 “What the fuck?” I muttered.   
   
-I laid down next to Vandie, who was still murmuring like a tranquilized, half-tongued Russian. I laid there, at the light on the Bluetooth speaker.   
+I laid down next to Vandie, who was still murmuring like a tranquilized, half-tongued Russian. I laid there, staring at the light on the Bluetooth speaker.   
   
   
