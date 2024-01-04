@@ -20,9 +20,7 @@ The 3 of us became inseparable.
 
 Anyway, it was during my 2nd month there, that Tasha went missing.
 
-The police were called in.
-
-Her parents even hired a private investigator but to no avail.
+The police were called in and her parents even hired a private investigator but to no avail.
 
 After Tasha went missing though, inexplicable things began to happen on the plane.
 

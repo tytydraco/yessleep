@@ -1,71 +1,70 @@
-I'd like to tell you a story about something  that happened in my town over 40 years ago.
+About 45 years ago, when I was only 8 years old there was an explosion at a nearby research facility...
 
-The incident in question included a government cover-up and my town being virtually erased from all maps.
+The incident in question included a government cover-up and my hometown being abandoned.
 
-It all began on July 4th, 1982 during my town's annual Independence Day Parade.
+Anyway, It all began on July 4th, 1979 during my hometown's annual Independence Day Parade. Although it was sweltering hot that day, I remember the whole town was there for the celebrations, and being a kid, the only thing on my mind was firecrackers.
 
-Besides the sweltering heat, the day was like any other day with the whole town in attendance.
+Anyway, before I get ahead of myself, I'd like to tell you a little bit about my hometown.
 
-Although the parade was fun, the only thing on my 11-year-old mind was firecrackers.
+Surrounded by dense forest, it was located near Lake Tahoe with a population of just over 1000.
+It had one stop light, a post office, a grocery store, and several restaurants scattered throughout town.
 
-Anyway, before I continue my story I'd like to tell you a little bit about my town.
-
-Surrounded by dense forest, it is located near Lake Tahoe with a population of just over 1000.
-
-It has one stop light, a post office, a grocery store, and several restaurants scattered throughout town.
-
-It was a quaint little town where everybody knew everybody and where you could have safely raised a family.
-
-It is also a pit stop for those venturing into Lake Tahoe.
+It was a quaint little town where everyone knew each other and where you could raise a family and was also a pit stop for those venturing into Lake Tahoe.
 
 Anyway, where was I?
 
-Oh, I remember.
+Oh, I remember, as the festivities began winding down and people were leaving, out of nowhere came this really loud explosion.
 
-As the festivities were winding down and people were leaving, out of nowhere came this really loud boom which was followed by a bright flash of light from the nearby forest.
+At first, I thought it was fireworks until this dust-like substance began to rain down onto the town.
 
-You can imagine the chaos that ensued as the state police began to descend upon my town, to investigate the mysterious boom.
+Pandemonium broke out as people began to panic.
 
-Several days after the incident, I woke up to find a dust-like substance covering my whole town.
+It wasn't long before the state police were called in to investigate the explosion and the CDC was called in because of the dust.
 
-The dust-like substance had a very weird texture and a pungent odor too.
+The dust-like substance was like nothing I'd seen before it had a peculiarly grainy texture and smelled pungent too.
 
-People who handled the mysterious dust began to fall ill.
+Eventually, the people including the first responders who handled the mysterious dust began to fall ill too.
 
-So naturally, the theories began to swirl about the origin of the dust.
+It wasn't long before the theories began to swirl about the origin of the dust.
 
-It was later speculated that the dust probably came from outer space. 
+Of course, we would later learn that there was an explosion at the nearby research facility where the dust probably originated from.
 
-I forgot to mention it was around this time that some of the town's people began to change and eventually, become what we survivors called the Infected Ones.
+Anyway, not only was this dust affecting humans but pets too.
 
-No longer human, the Infected Ones are grotesque-looking creatures with multiple arms and eyes, covering their whole bodies much like Nemesis.
+All the pets that were exposed to the dust either got sick or died and even people in my hometown began to die too.
 
-The dust was mutating them.
+Soon enough the dusk began to take a life of its own and scientists from all over were brought in to study the dust even the military was brought in but to no avail.
 
-We also learned that the Infected Ones preferred to hunt at night and that if you are either bitten or scratched by one, you'll become one too.
+Anyway, my hometown was placed under quarantine until the scientists were able to learn more about the dust.
 
-Eventually, a group of scientists from around the world were brought in to study the Infected until they too were killed by the Infected Ones.
+It was hard to watch these people in Hazmat suits walking around my hometown but over time we learned to adapt to our new surroundings.
 
-Even the military and CDC were brought in but to no avail.
+The calm wouldn't last long though...
 
-Anyway, a large fence was placed around the perimeter of the town and the remaining survivors were placed under quarantine.
+See on the night of August 1st while watching TV, I heard a blood-curdling scream coming from Mrs. Walters, my next-door neighbor.
 
-It was hard to see all of these people in Hazmat suits walking around town but what was even harder though, was seeing all the people you love, slowly change into some grotesque creature.
+As I ran outside, I was met with horror.
 
-Anyway, over time we learned to adapt to our new way of life.
+Scattered everywhere were the bodies of my neighbors.
 
-Since we're not allowed to leave, supplies are often flown in.
+I began to back up but was stopped as I watched the dust begin to swirl around me.
 
-The supplies are then dropped off in a designated area that is located, in the center of town.
+I started to run but it grabbed me causing a searing pain but somehow I managed to escape.
 
-Sometimes, the noise of the plane stirs them up.
+I ran until I reached the police station.
 
-So, we always have to hurry.
+Several of the town's people were already there.
 
-They also somehow evolved and are much smarter...
+ I was also reunited with my parents.
 
-Anyway, the reason for my story is to warn you...
+The next day, the town was evacuated.
 
-Several days ago one of the Infected Ones managed to escape and now, everybody is in danger.
+After this, everything was a blur.
 
-See, just one bite and the whole world is infected so please, please be prepared for the invasion...
+Eventually, the town was abandoned later becoming a ghost town.
+
+That was 45 years ago and except for the occasional urban explorer who'd gone missing, the town remained virtually forgotten.
+
+Anyway, a week ago, I found out that this major company wants to build a resort where my town used to be.
+
+I'm going back to make sure that doesn't happen...

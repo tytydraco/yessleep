@@ -449,7 +449,7 @@ I grabbed Noah’s hand, and it was ice cold, slimy flesh that was long dead. He
 
 “You… left… us.”
 
-Noah’s lips curled, a throated wine escaping his throat. “You… left us!”
+Noah’s lips curled, a deep throated whine escaping his throat. “You… left us!”
 
 He twisted around, his lip wobbling. 
 
