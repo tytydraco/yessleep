@@ -1,4 +1,4 @@
-“Kid’s,” my dad said, glancing at both Maddie and me in turn. “What we’re getting on now is the U.S. Route 50. The loneliest stretch of road in all of America.”  
+“Kids,” my dad said, glancing at both Maddie and me in turn. “What we’re getting on now is the U.S. Route 50. The loneliest stretch of road in all of America.”  
   
 “What does that mean?” Maddie asked, leaning forward so that her head was between my dad and me in the front seats.  
   
