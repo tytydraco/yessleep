@@ -110,6 +110,12 @@ He wrapped his fingers tighter around the knife’s hilt. “It seems that the h
 
 I made it out alive, but not everyone else did. I’ll update more [when I’m feeling up to it](https://www.facebook.com/P-F-McGrail-181784199029462/).
 
+--------
+
+[Where the shit landed after hitting the fan](https://redd.it/18yafa1)
+
+--------
+
 [BD](https://www.reddit.com/r/ByfelsDisciple/)
 
 
