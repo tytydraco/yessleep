@@ -8,35 +8,35 @@ At first, he’d only visit the well once a week, throwing the coin inside and c
 
 Several of the boys claimed that they’d been pushed by some invisible force, something that smelled of animal musk and rotted flesh. Of course, those claims only blended into the hundred other ghost stories we told each other.
 
-Of course, I knew the truth. As the weeks went by, I witnessed the thing a dozen times or more. Not because it was after me (though I sometimes feared Jordan would get mad and pick me as his next target) but because I was often there when it returned the coin. 
+Of course, I knew the truth. As the weeks went by, I witnessed the thing a dozen times or more. Not because it was after me (though I sometimes feared Jordan would get mad and pick me as his next target) but because I was often there when it returned the coin.
 
 The thing from the well preferred to come at night, shortly after its mission was completed. It had grown less dramatic now. Rather than blowing our windows open, it seemed capable of seeping inside slowly through a small crack, carefully placing the coin under Jordan’s pillow or by the foot of his bed. Though it seemed to have a body, it was perfectly malleable, able to squeeze its large bulk into a paper thin sheet.
 
-Sometimes, depending on when Jordan used his wish, the thing would come out in the day. 
+Sometimes, depending on when Jordan used his wish, the thing would come out in the day.
 
 Once, I was out in the empty school hallway on my way to take a piss when I felt a cold draft blowing through the halls. The thing tried to keep its footsteps quiet, but I heard them anyway, a steady tapping growing closer as I stood frozen.
 
-I heard its breath, a quiet but labored sound, like someone desperate for oxygen but incapable of getting enough. I had heard stories of old wells spreading death to everyone who drank them thanks to an animal falling into the water, its rot spreading before people realized, too late, that the poison was there. 
+I heard its breath, a quiet but labored sound, like someone desperate for oxygen but incapable of getting enough. I had heard stories of old wells spreading death to everyone who drank them thanks to an animal falling into the water, its rot spreading before people realized, too late, that the poison was there.
 
 I had come to imagine the thing as many animals, all drowned in the darkness, their rotted ghosts sewn together.
 
 For a moment, the thing drew close, stopping to sniff me, and my hand went instinctively to the coin in my pocket. I had never used it, of course. I’d been to scared to even visit the well. But I couldn’t deny the way it called to me. I knew one day, I wouldn’t be able to resist.
 
-The thing snorted softly, its breath all stench. Then it strode invisibly past me and over to Jordan’s locker. Then I heard the telltale clink of something small and metal dropping inside. 
+The thing snorted softly, its breath all stench. Then it strode invisibly past me and over to Jordan’s locker. Then I heard the telltale clink of something small and metal dropping inside.
 
 During the next break, I waited for Jordan to open his locker. When he did, he found the coin there, still dripping wet, and he shoved it quickly into the pocket of his coat.
 
-Over time, Jordan’s visits to the well became more frequent. Sometimes, he’d try to use it twice a day, once on the way to school in the morning, and again at night. By then, some of the bullies were on their second or third round of punishment. 
+Over time, Jordan’s visits to the well became more frequent. Sometimes, he’d try to use it twice a day, once on the way to school in the morning, and again at night. By then, some of the bullies were on their second or third round of punishment.
 
 Toby Knox, who’d once flung Jordan’s backpack on the roof of a schoolbus, sliced open his fingers on a jar that broke in his hand. Later, he bloodied his lip falling face-first into a drinking fountain. Finally, he sprained his knee, slipping on ice. Bad luck, people said. At least at first.
 
-Other bullies experienced similar accidents. A large icicle fell on Aaron Schnell’s back. A calm dog got suddenly riled up and attacked Frank Wu. Gus Feliz slipped on ice three days in a row. 
+Other bullies experienced similar accidents. A large icicle fell on Aaron Schnell’s back. A calm dog got suddenly riled up and attacked Frank Wu. Gus Feliz slipped on ice three days in a row.
 
-I didn’t feel bad for any of those guys. They’d been making my brother’s life hell for years, mocking his threadbare t-shirts and worn shoes. When my dad shaved our heads every couple of months, they called Jordan a cancer patient. 
+I didn’t feel bad for any of those guys. They’d been making my brother’s life hell for years, mocking his threadbare t-shirts and worn shoes. When my dad shaved our heads every couple of months, they called Jordan a cancer patient.
 
-It wasn’t just Jordan they bullied, but he was their favorite target. Still, they probably would have never realized he was behind the accidents if he hadn’t said something. 
+It wasn’t just Jordan they bullied, but he was their favorite target. Still, they probably would have never realized he was behind the accidents if he hadn’t said something.
 
-It was in the locker room after gym. It was the only class my brother and I shared. Jordan was on the way out of the shower when Frank Wu body-checked him into the wall. Jordan wasn’t seriously hurt, but he was definitely pissed. 
+It was in the locker room after gym. It was the only class my brother and I shared. Jordan was on the way out of the shower when Frank Wu body-checked him into the wall. Jordan wasn’t seriously hurt, but he was definitely pissed.
 
 “One for a trick…” Jordan muttered under his breath.
 
@@ -87,3 +87,5 @@ I rubbed the coin in my pocket. I didn’t want to hurt anyone, not even Frank W
 “Please,” said Jordan again. “I need this.”
 
 “Okay,” I said, holding the burning coin in my hand. [“Let’s go.”](https://www.reddit.com/r/scarymaxx/comments/zwo5o8/welcome_to_the_world_of_scarymaxx/)
+
+[Update!](https://www.reddit.com/r/nosleep/comments/18yl521/i_threw_a_coin_in_the_deathwish_well_i_got_my/)
