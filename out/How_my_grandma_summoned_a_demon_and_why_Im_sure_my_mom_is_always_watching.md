@@ -318,8 +318,7 @@ Miraculously, everyone involved in the accident survived. My doctor said that it
 I don’t blame my grandma for what happened. I know that she was only trying to do what she thought was right. I try to think about the good times when it comes to both of them: the laughs, the fun, and the love. I smile whenever I think about them.  
   
  It’s been ten years since they passed, and it isn’t always easy. But in those dark nights when I’m lying awake thinking of their deaths, Mortisar, and the accident, I tell myself to think of the joy she brought me in my life, not the pain that her death caused.  
-  
-I know that my mom is always watching. She’ll always be there for me.  
+I know that my mom will always be there for me. [She’s always watching.](https://reddit.com/r/silentmanwriting)  
   
   
   
