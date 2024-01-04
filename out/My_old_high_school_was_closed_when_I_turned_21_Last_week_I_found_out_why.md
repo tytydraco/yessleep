@@ -114,7 +114,7 @@ I don’t think I’ve ever been more confused in my life. These last few days h
 
 I walked up to the front doors and opened them, I was honestly surprised they weren't locked.
 
-The main hall was exactly like I remembered it. Our mascot, the Gotham Geeko was stamped right in the middle of the floor. The downstairs area was dedicated to electives and the lunch room. The auditorium was to my left behind the big brown doors. The gym was further in, and the lunchroom was to the right.
+The main hall was exactly like I remembered it. Our mascot, the Greenridge Geeko was stamped right in the middle of the floor. The downstairs area was dedicated to electives and the lunch room. The auditorium was to my left behind the big brown doors. The gym was further in, and the lunchroom was to the right.
 
 Despite the building looking worn down on the outside, the inside of the building was in great condition.
 
