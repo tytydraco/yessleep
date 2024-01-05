@@ -86,16 +86,10 @@ This morning, I poured myself a bowl of Frosted Flakes and headed to the bathroo
 
 Next to my Frosted Flakes was a bowl of Grape Nuts.
 
-Damien’s favorite cereal was Grape Nuts, because he’s that king of strange.
+Damien’s favorite cereal was Grape Nuts, because he’s that kind of strange.
 
 That broken my heart *and* creeped me out. It doesn’t make sense. It never did.
 
 Weird as he was, I do miss [my son](https://www.facebook.com/P-F-McGrail-181784199029462/).
 
 [BD](https://www.reddit.com/r/ByfelsDisciple/)
-
-
-
-[W](https://www.youtube.com/channel/UCcn_pa1QfNMRzbTuJqXSoRQ)
-
-[E](https://www.reddit.com/r/TheCrypticCompendium/)

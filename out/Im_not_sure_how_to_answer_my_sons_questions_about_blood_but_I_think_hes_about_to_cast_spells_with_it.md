@@ -112,7 +112,7 @@ I made it out alive, but not everyone else did. I’ll update more [when I’m f
 
 --------
 
-[Where the shit landed after hitting the fan](https://redd.it/18yafa1)
+[Where the shit landed after hitting the fan](https://redd.it/18z4lx8)
 
 --------
 
