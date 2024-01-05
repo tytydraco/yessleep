@@ -328,4 +328,4 @@ I sprinted through the woods, on all fours, for a half-hour. Then used Gianna’
   
 I had survived, and would continue to hunt. Continue to become. Continue to consume.
   
-Almost at the top of the food chain.
+*Almost* at the top of the food chain.
