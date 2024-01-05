@@ -1,6 +1,6 @@
 It all started with a deafening crash against my front door.
 
-It was 10 pm, and I was in bed watching, trying to get to sleep. The sound sent me flying out of bed and clambering into my wardrobe, clutching a steak knife I kept hidden in my coat pocket.
+It was 10 pm, and I was in bed, trying to get to sleep. The sound sent me flying out of bed and clambering into my wardrobe, clutching a steak knife I kept hidden in my coat pocket.
 
 It wasn’t because of anxiety or paranoia. 
 
