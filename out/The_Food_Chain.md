@@ -264,27 +264,25 @@ I sifted through the memories I had taken from Cole. He had escaped a Mimic when
   
 Under the shotgun seat.
   
-“Damn you, filthy thing!” Kat screamed. I heard her reload and march toward the van. I pulled the van door shut, then went for the shotgun seat, felt around under it, and retrieved a beautiful, shiny-black pump-shotgun.
+“I'll kill you for that!" Kat howled. I heard her reload and march toward the van. I pulled the van door shut, then went for the shotgun seat, felt around under it, and retrieved a beautiful, shiny-black pump-shotgun.
   
-I cocked the gun just as Kat yanked the van door open. “I’ll kill you, you–” Bang!
-  
-Wouldn’t be salvaging any memories from her brains.
-  
-I threw the gun aside. My shoulder seared with pain. I unzipped Cole’s jacket and looked at his shirt; it was stained blue with my blood. Mimics regenerated, but a bullet hole would take a couple hours to heal.
-  
-I had to get out of here. Kat’s pistol had a silencer, but the shotgun didn’t. That would have woken up the whole neighborhood, and someone would call the cops, if they hadn’t already.
-  
+I pumped the gun just as Kat yanked the van door open and screamed, “Go back to Hell, you motherf–” *Bang!*
+
+Wouldn’t be salvaging any memories from *her* brains.
+
+I threw the gun aside. My shoulder seared with pain. I unzipped Cole’s jacket and looked at my shirt; it was stained blue with my blood. Mimics regenerated, but a bullet hole would take a couple hours to heal.
+
+I had to get out of here. Kat’s pistol had a silencer, but that shotgun would have woken up the whole neighborhood; there were probably a dozen startled old ladies dialing 911 that instant.
+
 Then I remembered the video.
   
 I leapt over to Michael’s laptop, and flipped it open. The password was no problem.
-  
-The computer opened to a message board: NightHunters.com.
-  
-The video – of me, being tased in the bathtub, in my Gianna form, changing colors and making unnatural noises – had been posted.
-  
+
+The computer opened to a some unlabeled message board. The video – of me, being tased in the bathtub, in my Gianna form, changing colors and making unnatural noises – had been posted.
+
 Then I heard a high, raspy voice just behind me.
-  
-«Don’t move. Hands up. Turn around slowly.»
+
+«*Don’t move. Hands up. Turn around slowly.*»
   
 I did as I was told.
   
@@ -292,35 +290,35 @@ It was the other Mimic. I had been so focused on escaping, I had entirely forgot
   
 I turned to see it, standing just outside the van doors, in a black trench coat, holding me at gunpoint. It’s face was undisguised: its skin was a lumpy, dark blue-green; its temples pulsed slightly with its heartbeat. One eye glowed emerald-green; the other eye was scarred, and had a weak, pale lime color.
   
-«Enforcer?» I asked, revealing my true face and red eyes.
+«*Enforcer?*» I asked, revealing my true face and red eyes.
   
-«Yes. I know the video has been uploaded. You made a noble effort, Young One, but I have no choice but to take you to the Undercity.»
+«*Yes. I know the video has been uploaded. You made a noble effort, Young One, but I have no choice but to take you to the Undercity.*»
   
 I hung my head and nodded.
   
-«Get out of the van,» it ordered. I obeyed. «We’re going to walk to the black car at the end of the driveway. I’m going to open the trunk, and you’re going to get in. If you cooperate, I will ask the Elders to be lenient toward you.»
+«*Get out of the van*,» it ordered. I obeyed. «*We’re going to walk to the black car at the end of the driveway. I’m going to open the trunk, and you’re going to get in. If you cooperate, I will ask the Elders to be lenient toward you.*»
   
 I walked forward, dragging my feet. My shoulder stung terribly. We approached the Enforcer’s car.
   
 I looked stared at its unblinking, asymmetrical eyes, as it unlocked the car and pulled open the trunk. And then I realized something.
   
-«The ringleader, Michael Gillman! He saw a green-eyed Mimic when he was a child. Shot its eye with a toy gun!»
+«*The ringleader, Michael Gillman! He saw a green-eyed Mimic when he was a child. Shot its eye with a toy gun!*»
   
-«Get in the trunk. Now,» the Enforcer ordered.
+«*Get in the trunk. Now*,» the Enforcer ordered.
   
-«I sensed you coming. Before these humans uploaded the video of me.» I continued. «You knew about this group… the ‘Night Hunters.’»
+«*I sensed you coming. Before these humans uploaded the video of me.*» I continued. «*You knew about this group… the ‘Night Hunters.’*»
   
-«Yes. That’s my job,» the Enforcer scoffed.
+«*Yes. That’s my job,*» the Enforcer scoffed.
   
-«But you’re alone. Are you… are you working in secret? To hide your mistake with the child Michael from the Elders?»
+«*But you’re alone... Enforcers hunt in packs. Are you... are you working in secret? To hide your mistake with the child Michael from the Elders?*»
   
-The Enforcer’s eyes narrowed. He’s going to kill me, right here, I thought.
+The Enforcer’s eyes narrowed. *He’s going to kill me, right here, right now*. I thought.
   
 Then, Police sirens sounded in the distance.
   
-«Let me go, and I will tell no one! I swear!»
+«*Let me go, and I will tell no one! I swear!*»
   
-The Enforcer hissed in annoyance. «Get out of here. I will deal with the video and the police. See that no one hears of this, or we will both be Punished.» Its face morphed into a stern-looking man, and it pulled out a matching lanyard that marked him as an FBI.
+The Enforcer hissed in annoyance. «*Get out of here. I will deal with the video and the police. See that no one hears of this, or we will both face Punishment.*» Its face morphed into a stern-looking man, and it pulled out a matching lanyard that marked him as an FBI.
   
 With that, I fled into the night.
   
