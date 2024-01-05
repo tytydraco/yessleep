@@ -1,0 +1,37 @@
+I originally posted this in 2021 to a local Alabama subreddit, but the moderators removed it after a few hours. I have continued to have nightmares about it since, and hope that posting it here will provide me some relief.
+
+&#x200B;
+
+July 2021
+
+Now that the Alabama Republican Primary runoff has finished, I have something to share. I couldn’t bring myself to post this before, for fear that it would affect the outcome of the election, but I have to get this off my chest.  
+Throughout the race, several people have tastelessly exclaimed that they want to see Katie Britt’s “tits.” A smaller, but still vocal, group have responded expressing their desire to see Mo Brooks’ “dick.”  
+Well, ladies and gentlemen, I have seen both, and the aftermath has left me scarred. Consider this a content warning. Read on if you dare.  
+I was working as a photographer in Tuscaloosa in 2011, and was doing an in-home family session with the Britts. It was early Spring and the family was wearing matching pastel colors. Mrs. Britt, the young mother, looked beautiful, and she was friendly, attentive, and engaged despite juggling a baby on her lap. She projected a warmth and sincerity, and it’s easy to see why she has found success in politics.  
+But I wish I could forget what I saw next.  
+I was just finishing mother-child shots. I had gotten pictures of Mrs. Britt with both of her children, then her daughter, and finally mother and son. The son was an infant at the time and began to cry. Probably without thinking, Mrs. Britt immediately pulled out her left breast to nurse her child like it was the most natural thing in the world. Now, I don’t have any problem at all with public breastfeeding, but I was still slightly surprised to see this. However, I was much more surprised by Mrs. Britt’s anatomy. On her left breast there was no areola or nipple.  
+Instead, I was presented with a miniature representation of Britt’s own face. However, this “mini-me’s” eyes were every bit as cold, dark, and alien as her primary eyes were warm, caring, and emotive. It wasn’t just a picture, either. This anatomical monstrosity mimicked Britt’s face exactly, with the exception of those dark, dark eyes that I wish I could forget. It even appeared to be wearing makeup!  
+“Excuse me.” Britt said, as if where was nothing unusual about this scene. The tiny mimic’s mouth moved in unison with the one on her face, but no sound came out.  
+Britt then moved her baby’s face up closer to her breast as he started rooting. She then adopted a pained expression with her mouth forming an ‘o,’ and began making a rhythmic retching sound.  
+“Houck! Houck! Houck!,” is the best I can write it.  
+The tiny breast face mimicked this expression and appeared to retch as well.  
+After just a few of these, I was amazed to see the tiny breast face begin to vomit up milk onto her child’s face, and he appeared to lap it up happily.  
+I excused myself for a few minutes. Soon after, Mr. Britt came and got me and we finished the photo shoot as if nothing had happened. They seemed happy enough with my work, but I gave up professional photography soon after.  
+At this point, I feel I need to clarify that I only ever saw the left breast. I have no idea if the right one is the same. I said I had seen “both” earlier, but I realize now that is a bit unclear since women have two breasts and I was talking about one breast and one penis. I apologize if I have misled you.  
+And that leads me to 2021. I was working as a process server and attempting (unsuccessfully) to serve a subpoena to Congressman Brooks.  
+I knew that he would be at an event at the Huntsville Botanical Gardens, so that’s where I was going to be too. However, by the time I got there I was having a potty emergency. I had to pee so badly as I pulled in that I briefly considered just watering the flowers by the parking lot instead of making the long run to get inside and to the bathroom.  
+But I made it in the building, into the bathroom, tucked my large envelope under my right arm, unzipped and was finally able to start relieving the pressure.  
+I heard the door open and a figure walked in. I glanced to my right and was shocked to see Congressman Mo Brooks himself stepping up to the urinal next to me! I still had a stream going, but I upped the pressure, hoping to empty my bladder in time to complete my task.  
+I heard Congressman Brooks unzip, and could see out of the corner of my eye his face slowly turn to stare directly at me.  
+“Nice envelope you got there.” I heard him say, calmly.  
+I felt an immediate charge down my spine as my fight or flight response kicked in.  
+I looked over at Congressman Brooks to see him smile at me like he knew something I didn’t.  
+And then I saw it.  
+I will try to describe what I saw, but I don’t think words can really convey the horror.  
+Rising just over the edge of the partition, about shoulder height for both of us, was a flesh-colored worm of no unusual girth. At first it looked like the end of an elephant trunk, or an uncircumcised penis. But then it flopped over the top of the partition for support. When this happened I saw that I was being stared at by what appeared to be a human eye with a round pupil and green iris. But instead of eyelashes and an eyelid, this eye was surrounded by a cowl of loose skin, like a foreskin, that could open and close with a slightly damp plopping sound. It didn’t run smoothly over the eye like an eyelid. Rather, it just flopped open and closed a bit in front of the eye, as if supported by four thin bones, one in each corner.  
+I was stuck. Fight-or-flight-or-not, I was completely unable to move. I could still sort of tell that I was peeing into the urinal, and my heart started racing. I definitely did not feel like I had left my body. I simply could not move, not even to blink.  
+But the worm-like penis monster sure could. It continued to stare at me, blinking floppily. After a few cycles of this, I was shocked to see four needle-like piercing fangs fold out from the four bones in the foreskin. This wasn’t just a worm! It was a venomous snake!  
+Congressman Brooks started to laugh.  
+I remember seeing it reel back and strike at me. I almost remember turning away and falling down, spraying urine onto the wall as I moved, but I don’t remember hitting the ground. At least as far as I can remember, I immediately felt like I was falling down a well, watching a circle of white light recede to a single point and constantly expecting to feel cold water. It doesn’t really make sense now, but losing consciousness never does.  
+The next thing I remember, I’m in the hospital. Apparently, I was wheeled out of the building, taken in the ambulance, and wheeled through the hospital with my dick out. Either nobody thought to put it away or nobody wanted to touch a guy with urine all over himself more than he had to. My right arm is withered and dead from the shoulder down. It has since been amputated. I have had to learn to do everything left-handed.  
+I can’t go back to photography now. I’m not sure how I’d work my Nikon one-handed. I wanted to pursue a lawsuit against the Congressman for damages, but I don’t think I will have much luck claiming that he destroyed my arm and my livelihood with his monster dick. He’d probably just make it a campaign ad. But you believe me. Don’t you?
