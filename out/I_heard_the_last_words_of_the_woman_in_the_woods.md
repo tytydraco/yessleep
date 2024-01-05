@@ -72,7 +72,7 @@ Friday, May 17th marked the ten year anniversary of Oliver Gatlin's death. I kep
 
 "*Almost there … almost there … almost there …* "
 
-She repeated those two words over and over, until, at exactly 11:47 P.M., she let out a sound that I only understood years later to be a cry of triumph.
+She repeated those two words over and over, until, at exactly 11:44 P.M., she let out a sound that I only understood years later to be a cry of triumph.
 
 "*It is done! It is done, Dark Angel. Thank you, thank you! Ten years of solitude, and it was worth every second. Now, Angel, bring him back, bring him back to me!*"
 
