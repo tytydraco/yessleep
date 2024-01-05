@@ -80,7 +80,15 @@ And when my boy stepped into it, everything returned to normal. I rubbed my eyes
 
 And no Damien.
 
-He wasn’t close enough with any friends for them to check up on his absence. Life continued more or less as normal. It looks as though Damien’s final sacrifice was enough to ward this thing off forever. I know I should be happy to have my life back, and I *am* grateful, but a sadness lingers.
+Damien’s final sacrifice was enough to ward this thing off forever. But this horrifying experience has changed me forever, and I am not happy.
+
+This morning, I poured myself a bowl of Frosted Flakes and headed to the bathroom. But when I came out, there were two bowls of cereal.
+
+Next to my Frosted Flakes was a bowl of Grape Nuts.
+
+Damien’s favorite cereal was Grape Nuts, because he’s that king of strange.
+
+That broken my heart *and* creeped me out. It doesn’t make sense. It never did.
 
 Weird as he was, I do miss [my son](https://www.facebook.com/P-F-McGrail-181784199029462/).
 
