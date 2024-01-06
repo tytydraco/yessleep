@@ -36,7 +36,7 @@ I don't know what motivated me to go down into the basement. There was nothing d
 
 The basement door was in the kitchen, between the refrigerator and the pantry. I opened it, flipped on the light, and descended the creaking wooden steps to the bottom.
 
-The basement was located directly beneath the kitchen. It was a small, dank, low-ceilinged room hardly bigger than a walk-in closet. Rough stone walls and a concrete floor dimly illuminated by a single bare light bulb. It was mostly barren except for the washer and drier, a shelf full of cleaning supplies, and some old tools cluttering one corner.
+The basement was located directly beneath the kitchen. It was a small, dank, low-ceilinged room hardly bigger than a walk-in closet. Rough stone walls and a concrete floor dimly illuminated by a single bare light bulb. It was mostly barren except for the washer and dryer, a shelf full of cleaning supplies, and some old tools cluttering one corner.
 
 I looked around with passing curiosity. When I turned to the rear wall, I couldn't help but crack a small smile.
 
