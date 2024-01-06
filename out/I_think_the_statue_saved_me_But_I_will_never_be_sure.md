@@ -30,10 +30,12 @@ I cannot describe the terror surging in me- I just knew I had to leave. But Luke
 
 “Let me go!” I cried, struggling to break free from his hands.
 
-Whoosh!
+*Whoosh!*
 
-Something large knocked Luke over, breaking his grasp. He fell backwards, away from me. I heard his screams mixed with the yowls of a cat. I paused for an instant and saw the silhouette of a large cat at Luke’s throat. I was deeply confused- it wasn’t midnight? But surely, I wasn’t thinking the statue was alive. Idiotically I looked over at the town square, but the white lights were dark now, and I couldn’t see. Luke was trying to peel the cat away from him.
+Something large knocked Luke over, breaking his grasp. He fell backwards, away from me. I heard his screams mixed with the yowls of a cat. I paused for an instant and saw the silhouette of a large cat at Luke’s throat. I was deeply confused- it wasn’t midnight? But surely, I wasn’t thinking the statue was alive? Idiotically I looked over at the town square, but the white lights were dark now, and I couldn’t see. Luke was trying to peel the cat away from him.
 
 “Run.”
 
-I whipped around and a small familiar woman walking swiftly away. I hesitated no more. I turned and ran towards the safety of my parents’ place, my heels clacking on the empty deserted pavements. I never saw Luke again before I left the next day.
+I whipped around and a small familiar woman walking swiftly away. I hesitated no more. I turned and ran towards the safety of my parents’ place, my heels clacking on the empty deserted pavements, leaving the howls and screams behind me. 
+
+I never saw Luke again before I left early morning the next day.

@@ -1,4 +1,4 @@
-It was the name of an online quizz I'd stumbled across late at night in front of my computer.
+It was the name of an online quiz I'd stumbled across late at night in front of my computer.
 
 It made me laugh, and somehow I was curious about what it might be, so I clicked on the link that seemed safe.
 
@@ -8,13 +8,13 @@ I wrote fake informations as usual, except my e-mail address, since they were of
 
 The questionnaire was in the form of a MCQ with 10 questions.
 
-Before I started the questions, I had to read a guide entitled "How to survive being buried alive" which the questions were going to be about. I assumed it was this guide that they wanted to perfect with this quizz.
+Before I started the questions, I had to read a guide entitled "How to survive being buried alive" which the questions were going to be about. I assumed it was this guide that they wanted to perfect with this quiz.
 
-I could only see it for 30 seconds, and the first question appeared with a 5-minute counter to answer the 10 questions. After all, it was a quizz about being buried alive, so adding a little pressure seemed logical.
+I could only see it for 30 seconds, and the first question appeared with a 5-minute counter to answer the 10 questions. After all, it was a quiz about being buried alive, so adding a little pressure seemed logical.
 
 I answered as best I could, all the while yawning from fatigue.
 
-When I got to the end of the quizz, I expected a correction with a percentage of correct answers. But there was nothing except a page with the words "Thank you for your participation, we'll get back to you soon!".
+When I got to the end of the quiz, I expected a correction with a percentage of correct answers. But there was nothing except a page with the words "Thank you for your participation, we'll get back to you soon!".
 
 I checked my e-mail address, and I hadn't received the coupon either.
 
@@ -22,7 +22,7 @@ I checked my e-mail address, and I hadn't received the coupon either.
 
 Come to think of it, it's a good thing I kept my clothes on.
 
--
+
 
 I woke up coughing.
 
@@ -30,7 +30,7 @@ The air, for some reason, was nauseatingly heavy.
 
 I tried to turn on my side to go back to sleep, but my legs were blocked by a solid obstacle.
 
-I opened my eyes in surprise and stood up. Immediately my head too hit something solid. 
+I opened my eyes in surprise and stood up. Immediately my head too hit something solid.
 
 I rubbed my forehead with my hand and started groping around.
 
@@ -52,7 +52,7 @@ But I wouldn't wake up.
 
 Still in a state of disbelief I started looking again to see if there was anything around me to give me a clue as to where I was. And finally, on the ground towards my knees, I felt a cold, almost icy surface beneath my fingers.
 
-I grabbed the object and turned it in my hands. The top lifted and I felt a mechanism like a lighter. 
+I grabbed the object and turned it in my hands. The top lifted and I felt a mechanism like a lighter.
 
 I flicked it and a flame appeared. And what I saw definitely removed any hope that I was sleeping.
 
@@ -64,7 +64,7 @@ I started shaking, I couldn't believe what was happening to me.
 
 Instinctively, I started banging my palm against the surface in front of me.
 
-"Help ! Someone please! Help me, I'm locked in!" I pounded again and again until my hand said stop. 
+"Help ! Someone please! Help me, I'm locked in!" I pounded again and again until my hand said stop.
 
 Not a sound, no one to rescue me. I was on my own.
 
@@ -88,7 +88,7 @@ With each passing minute, I felt as if the air was getting heavier and heavier, 
 
 I turned my head upwards, and noticed a small iron ring that I could pull out. I quickly did so, and inside a small hidden drawer, I found a music box with a tiny keyboard to play a few notes.
 
-I looked at it from every angle, my fingers burning from the lighter as I kept it lit. There was nothing special about it, except that it seemed extremely solid. I activated it, and it produced a few seconds' worth of music. 
+I looked at it from every angle, my fingers burning from the lighter as I kept it lit. There was nothing special about it, except that it seemed extremely solid. I activated it, and it produced a few seconds' worth of music.
 
 I waited, but nothing else happened. I pressed the little keys on the keyboard at random. I noticed that the sounds were similar.
 
@@ -100,13 +100,13 @@ Finally I managed to reproduce the damn music and something unlocked under the b
 
 I turned again, trying to remember where I'd seen the tiny hole in the wood. The light from the lighter was very limited and I was unable to bend myself.
 
-I finally found the lock, and after a few contortions managed to insert the small key and turn it. Once again, a drawer was unlocked, and before my eyes was a heavy iron box with a digital display on which was written "12.9!" 
+I finally found the lock, and after a few contortions managed to insert the small key and turn it. Once again, a drawer was unlocked, and before my eyes was a heavy iron box with a digital display on which was written "12.9!"
 
 The number changed every second, but there was always an exclamation mark.
 
-I couldn't figure out what it was, I was getting more and more panicked and I was breathing harder and harder. 
+I couldn't figure out what it was, I was getting more and more panicked and I was breathing harder and harder.
 
-Eventually, I noticed that the more I breathed, the more the number increased. 
+Eventually, I noticed that the more I breathed, the more the number increased.
 
 *Is this a device that calculates my oxygen consumption?*
 
@@ -146,21 +146,21 @@ I tried to block the dirt with my hands but the hole I'd made in the excitement 
 
 *Damn it, if I try to dig through it I'll just choke on the dirt*.
 
-I closed my eyes, trying desperately to remember what the guide had said about this. I tried to remember what the man in the drawings was wearing. A shirt or a bag over his head, I think? 
+I closed my eyes, trying desperately to remember what the guide had said about this. I tried to remember what the man in the drawings was wearing. A shirt or a bag over his head, I think?
 
 *Yes, he was wearing a garment over his face to protect himself and allow him to breathe through the earth*.
 
-I took a few slow breaths of what little air was left inside. I couldn't help imagining myself stuck 5 feet up, with no air, in complete darkness, suffocating to death. 
+I took a few slow breaths of what little air was left inside. I couldn't help imagining myself stuck 5 feet up, with no air, in complete darkness, suffocating to death.
 
-I withdrew both hands, letting the earth in, and pulled my sweater up to the top of my head, tying a knot as best I could with the sleeves afterwards. 
+I withdrew both hands, letting the earth in, and pulled my sweater up to the top of my head, tying a knot as best I could with the sleeves afterwards.
 
 The dirt was starting to block my arms when I finally succeeded, and started to pull up with my hands, pushing with my legs.
 
-I managed to extricate myself from the coffin, and continued desperately to pull myself towards my hands again and again, digging into the earth with all the strength I had left. 
+I managed to extricate myself from the coffin, and continued desperately to pull myself towards my hands again and again, digging into the earth with all the strength I had left.
 
 I went on and on, branches and stones scratching my sides and hands. After a while I wondered if I was still digging upwards. Could it be that in the pitch-black I'd changed direction unintentionally? I couldn't stop, all I had to do was dig, push and pray to reach the surface.
 
--
+
 
 After probably less than a minute, which felt like an hour, my right hand finally reached the emptiness of the surface. And my fingers, like claws, pulled me one last time towards the surface.
 
@@ -174,9 +174,9 @@ All around me were dozens and dozens, maybe even over a hundred graves. And in f
 
 "Code 12 grave 122," I heard a man's voice pronounce beside me.
 
-And before I could scream or say anything, someone knocked me out. 
+And before I could scream or say anything, someone knocked me out.
 
--
+
 
 I woke up with a start.
 
@@ -188,7 +188,7 @@ But the sound of a motorcycle, and the light of its headlights projecting contin
 
 I was back in ly bed.
 
--
+
 
 It didn't take me long to figure out if I'd dreamed the whole thing or not. The scratches on my chest, and the dirt still present under my bleeding fingernails, were evidence enough to attest to the reality of that night of horror.
 
