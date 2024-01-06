@@ -80,7 +80,7 @@ I looked over at the old, rusty tools cluttering the corner of the basement. I r
 
 I opened the bolt cutters and fastened the blades to the padlock's shackle. With a bit of effort, I was able to snap the padlock. I tossed it aside and grasped the iron pull-ring.
 
-I had no idea what I was expecting to find on the other side of the door. A wild menagerie of different possibilities flashed through my imagination; everything from hidden valuables to dead bodies. I had to quell my excitement by reminding myself that this was probably how Geraldo Rivera had probably felt in the moments before opening Al Capone's hidden vault.
+I had no idea what I was expecting to find on the other side of the door. A wild menagerie of different possibilities flashed through my imagination; everything from hidden valuables to dead bodies. I had to quell my excitement by reminding myself that this was probably how Geraldo Rivera had felt in the moments before opening Al Capone's hidden vault.
 
 I hesitated for a moment, bracing myself for whatever discovery I was about to make...then pulled hard. The door opened with surprising ease given that it had to have been shut for...well, God only knew how long. The hinges moved smoothly and soundlessly. I pulled it all the way open, and stared through the doorway at...
 
@@ -102,7 +102,7 @@ I couldn't make sense of it. What I was seeing was impossible.
 
 Standing there, contemplating that Stygian abyss, I had the impression that I was looking upon some vast, lightless space of unknown enormous proportion; a space that seemed to illogically defy the physical dimensions of my mother's house.
 
-I felt a sudden flood of overwhelming, existential dread and horror; something close to madness. I felt as if I was peering through a doorway into the Godless black void of nonexistence that must exist beyond the furthest reaches of the universe, a place where *nothing* was or ever had been or would be. It was like looking into the mouth of hell.
+I felt a sudden flood of overwhelming, existential dread and horror; something close to madness. I felt as if I was peering through a doorway into the Godless black void of nonexistence that must stand beyond the furthest reaches of the universe, a place where *nothing* was or ever had been or would be. It was like looking into the mouth of hell.
 
 *"Robert..."*
 
@@ -240,18 +240,4 @@ There is something in the darkness beyond that old wooden door. Something terrib
 
 Something unnatural and unholy...
 
-Something you can see...but *can't* see. 
-
-&#x200B;
-
-&#x200B;
-
-&#x200B;
-
-&#x200B;
-
-&#x200B;
-
-&#x200B;
-
-&#x200B;
+Something you can see...but *can't* see.
