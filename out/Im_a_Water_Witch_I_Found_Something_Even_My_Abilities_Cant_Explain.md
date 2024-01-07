@@ -282,7 +282,7 @@ But something about what Seth had said kept gnawing at the back of my head. Desp
 
 And so I sat down to compose my thoughts, the very ones you’re reading right now.
 
-When you’re truly unaware of something, of its ins and outs, you retain that blissful ignorance. And I’d had that, all the way up until I accepted the witch-hazels stick and suffered consequences beyond anything I ever thought possible. Now my unknowing is pocked and marked not by ignorance, but by incomprehension, and that’s scary. That’s dangerous.
+When you’re truly unaware of something, of its ins and outs, you retain that blissful ignorance. And I’d had that, all the way up until I accepted the witch-hazel stick and suffered consequences beyond anything I ever thought possible. Now my unknowing is pocked and marked not by ignorance, but by incomprehension, and that’s scary. That’s dangerous.
 
 There’s something I’ve not told you. I was weighing up whether to put it in the write-up at all, but I realize that, while you’re missing the whole picture, you’ll remain ignorant. And don’t get me wrong, that’s fine, so I’d advise you to stop reading here if you want to keep your thoughts in order.
 
