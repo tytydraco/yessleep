@@ -564,8 +564,6 @@ Should you ever find yourself standing before some flickering lanterns attached 
 
 Slow your stride. 
 
-Get out from the cold. 
-
 Take a moment to bask in their glow. I swear you'll never feel such warmth again. 
 
 Close your eyes and enjoy the aroma, breathe it deep, and walk right in. 

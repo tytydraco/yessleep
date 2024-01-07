@@ -146,7 +146,9 @@ Dowsing rods are shaped like guns, and my copper ones have handles on the shorte
 
 “Hey, if you shoot me you don’t get paid,” he chuckled. I rolled my eyes but felt redeemed by the fact his humor was as flat as mine.
 
-I’ve not told you about the metal rods and their effects yet, have I? Well, they differ from the sticks in that their influences are of a subtler nature. Far more comfortable to work with. Steadying my focus, I shut my eyes and awaited the first sign, which always manifests itself as a droning sound coming from the direction I ought to search in. Once that was determined, the ends of the rods would begin to bob up and down, though not by my volition. Wikipedia calls it the ‘ideomotor phenomenon’, which apparently occurs when you move without meaning to, like being a puppet on the ends of a greater being’s strings.
+I’ve not told you about the metal rods and their effects yet, have I? Well, they differ from the sticks in that their influences are of a subtler nature. Far more comfortable to work with. 
+
+Steadying my focus, I shut my eyes and awaited the first sign, which always manifests itself as a droning sound coming from the direction I ought to search in. Once that was determined, the ends of the rods would begin to bob up and down, though not by my volition. Wikipedia calls it the ‘ideomotor phenomenon’, which apparently occurs when you move without meaning to, like being a puppet on the ends of a greater being’s strings.
 
 But there, in the light chill of the autumn, under the soft glow of the sun and what I presumed to be the focused eyes of Seth, all was quiet, and nothing happened. The seconds that passed started in the single digits, grew into the dozens, and eventually ran into the hundreds. I even tried slowly spinning without the sound for guidance, stopping intermittently to see if the rods would begin their dance, but my arms remained stiff and straight.
 
@@ -254,7 +256,9 @@ This time it was my turn to face him.
 
 “Blood under the ground? You’ve lost your mind.”
 
-“You said your eyes go blue when you find water right? What else turns them red? Iron?” I scraped my mind for objections but settled on saying nothing. Better not feed an idea that had no substance to begin with. Instead, sensing the mood was shifting from cautious to tense, I rose from my seat and approached the truck. The tarp was still undone, and so I refixed it before wandering over to the driver’s side door.
+“You said your eyes go blue when you find water right? What else turns them red? Iron?” 
+
+I scraped my mind for objections but settled on saying nothing. Better not feed an idea that had no substance to begin with. Instead, sensing the mood was shifting from cautious to tense, I rose from my seat and approached the truck. The tarp was still undone, and so I refixed it before wandering over to the driver’s side door.
 
 “I reckon I’ll head home now,” I called. “Don’t worry about the payment, we’ll say that scare I gave you calls us even.”
 
