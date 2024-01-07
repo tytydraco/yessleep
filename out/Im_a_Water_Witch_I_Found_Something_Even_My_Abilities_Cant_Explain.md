@@ -2,7 +2,7 @@ Yeah, you read the title right.
 
 No, I’m not talking about a D&D character class.
 
-I’m a water witch. If you want the more “professional” term, a dowser. But, between having the word ‘witch’ describe your line of work (which is objectively brilliant) and having a job title that sounds like you drench things for a living, I’m more inclined toward the latter. Especially because, to some, what I do might just teeter on the realms of witchcraft and magic.
+I’m a water witch. If you want the more “professional” term, a dowser. But, between having the word ‘witch’ describe your line of work (which is objectively brilliant) and having a job title that sounds like you drench things for a living, I’m more inclined toward the former. Especially because, to some, what I do might just teeter on the realms of witchcraft and magic.
 
 In case you’re unacquainted with either of those terms, I’m basically a living, breathing metal detector. Except, instead of finding you metals, I’m mostly hired to find any and all sources of underground water, with nothing at my disposal outside of a few sticks, metal rods, and a good dollop of intuition.
 
