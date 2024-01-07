@@ -391,3 +391,8 @@ And then the mist began to clear. Hundreds of eyes stared down from the ceiling 
 
   
 They all stared down at us with malice and hatred, a fire burning deep in those alien orbs. I began to pray, knowing I would soon die in this cursed place.
+
+
+Part 2
+
+https://www.reddit.com/r/nosleep/comments/190gvoo/im_a_cleaner_for_haunted_houses_skulls_pierced/

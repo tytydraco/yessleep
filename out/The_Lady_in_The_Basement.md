@@ -1,6 +1,6 @@
-THE LADY IN THE BASEMENT
 
- part one the notebook
+
+ 
   
  I was the one that found Jacob dead. Tucked in the corner of the parking garage his pest control truck laying idle. There is a steady humming sound in that garage from the rotating metal fans on 24/7.The Middle of summer in Virginia where the humid air makes your shirt stick to your chest helped the reason for that steady hum. Walking closer to the truck I saw his chem box[a box where we put all chemicals in for safe keeping] was open with the top flap sticking straight up.
 
