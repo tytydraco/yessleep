@@ -21,7 +21,8 @@ Chaos began to brew as people were running for their lives.
 
 It wasn't long before the state police were called in to investigate the explosion and the CDC because of the dust.
 
-The dust-like substance was like nothing I'd seen before it had a peculiarly grainy texture and smelled pungent too and it wasn't long before the people including the first responders who handled the dust began to fall ill.
+The dust-like substance was like nothing I'd seen before it had a peculiarly grainy texture and smelled pungent too.
+Anyway, it wasn't long before the people including the first responders who handled the dust began to fall ill.
 
 Soon the theories began to swirl about its origin and of course, we would later learn that there was an explosion at the nearby research facility where we speculated the dust came from.
 
@@ -32,6 +33,7 @@ All the pets that were exposed to the dust either got sick or died and even peop
 Soon enough the dust began to take a life of its own and scientists from all over the world were brought in to study the dust even the military was brought in but to no avail.
 
 Eventually, my hometown was placed under quarantine until the scientists were able to learn more about the dust.
+
 It was hard to watch these people in Hazmat suits walking around my hometown but over time we learned to adapt to our new surroundings.
 
 The calm wouldn't last long though...

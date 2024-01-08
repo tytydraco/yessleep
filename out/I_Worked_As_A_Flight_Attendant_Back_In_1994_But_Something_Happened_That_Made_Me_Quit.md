@@ -1,8 +1,8 @@
-I used to work as a flight attendant back in 1994 but I had to quit after three months. 
+I used to work as a flight attendant back in 1994 but I had to quit after three months on the job 
 
 I'd like to share with you the reason why I quit because I need your help, so please, let me tell my story...
 
-Anyway, It was the summer of 94, and I was hired as a flight attendant for a major airline.
+Anyway, It was the summer of 94, when I was hired as a flight attendant for a major airline.
 
 I was ecstatic as this was my dream job.
 
