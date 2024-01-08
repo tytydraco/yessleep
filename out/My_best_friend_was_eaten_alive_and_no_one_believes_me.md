@@ -28,3 +28,13 @@ I've tried showing people the footage. No one believes me that it wasn't a bear,
 
 
 I PRAY to a god if there is one that someone will please tell me what the hell ate my friend. I need closure. At least a tiny bit.
+
+EDIT: Some of you have been asking for more details, sorry for not giving more originally.
+
+We're located in Acadiana, I don't remember the name or location of the swamp really, you have to understand there are like a thousand here. 
+
+The type of van was a Chevrolet Express 3500
+
+I've been looking over I and Gwens footage more, and it looked a lot like what your comments suggested. A rougarou.
+
+Thank you for everyone's help. I'm really grateful. I'll try asking some locals for any more information on it.
