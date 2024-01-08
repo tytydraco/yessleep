@@ -120,7 +120,7 @@ Like I said, I take it in stride, but that doesn’t mean I won’t relish an op
 
 He stared at me a bit longer before putting his hands on his hips, exhaling sharply and glaring at the ground, lips pursed.
 
-That’s a no then, I’d thought. I lowered my arm and returned to the truck. Assuming the conversation was over, I began on the part I was paid for, the work, and started on gathering my bearings. The best place to kick off the search on most properties was out in the open, and I noticed the house’s slightly raised plot extended for a bit beyond the building’s back before giving way to the field. With the facts in mind, I headed in that direction and was at the end of the plot when a voice from behind halted my progress.
+*That’s a no then*, I’d thought. I lowered my arm and returned to the truck. Assuming the conversation was over, I began on the part I was paid for, the work, and started on gathering my bearings. The best place to kick off the search on most properties was out in the open, and I noticed the house’s slightly raised plot extended for a bit beyond the building’s back before giving way to the field. With the facts in mind, I headed in that direction and was at the end of the plot when a voice from behind halted my progress.
 
 “Alright, let’s go.”
 
