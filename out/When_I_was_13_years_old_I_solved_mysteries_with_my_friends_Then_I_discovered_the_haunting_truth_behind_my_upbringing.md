@@ -28,7 +28,9 @@ Mom stopped pouring, her hand jerking when she realised her mistake. She placed 
 
 She was so obsessed with hiding behind a lie, and forcing me to drown in an oblivion and obliviousness I didn't want. 
 
-I needed to forget what I saw to protect her job— and whoever the puppeteer of Middleview was. Whatever my mother *thought* she had done to my head and wiped away, I could still see it. I could still see the contorted, dancing strings pulling my friends into a frenzied prance, strings that were slick red, strings that entangled their arms and legs and expressions, hooked inside their mouths and prying their eyes open. I thought I could get it out of my head. I thought drinking enough– and then drugging myself with sleeping pills would pull me away from the reality of what I saw. 
+I needed to forget what I saw to protect her job— and whoever the puppeteer of Middleview was. Whatever my mother *thought* she had done to my head and wiped away, I could still see it. I could still see the contorted, dancing strings pulling my friends into a frenzied prance, strings that were slick red, strings that entangled their arms and legs and expressions, hooked inside their mouths and prying their eyes open. 
+
+I thought I could get it out of my head. I thought drinking enough– and then drugging myself with sleeping pills would pull me away from the reality of what I saw. 
 
 But I couldn't escape it. 
 
@@ -36,7 +38,9 @@ I still saw *them*. I see them dangling on strings, hollowed out shells carved o
 
 Forcing a spoonful of cereal into my mouth, I chewed mechanically. 
 
-I could see them dancing on strings, being pulled back and forth, left and right, up and down. Aris’s laughing grin, his mouth and lips carved into that of a marionette. May’s head bobbing, following the puppeteer, and Noah’s vacant eyes penetrating through me, before something seemed to contort, to come alive in his expression. I saw real pain, agony ripping through him, a self awareness, confusion, pain, and anger that was killing him, awakening as a plastic puppet bound to strings severed right through him, entangling every part of him. I could see them, blood red string wrapped around his wrists, elbows, arms and legs, locked under his jaw, and contorting his removable mouth. 
+I could see them dancing on strings, being pulled back and forth, left and right, up and down. Aris’s laughing grin, his mouth and lips carved into that of a marionette. May’s head bobbing, following the puppeteer, and Noah’s vacant eyes penetrating through me, before something seemed to contort, to come alive in his expression. 
+
+I saw real pain, agony ripping through him, a self awareness, confusion, pain, and anger that was killing him, awakening as a plastic puppet bound to strings severed right through him, entangling every part of him. I could see them, blood red string wrapped around his wrists, elbows, arms and legs, locked under his jaw, and contorting his removable mouth. 
 
 I remember his eyes frantically following me, silently begging for help.
 
@@ -66,9 +70,15 @@ Their heads were bowed, bodies limp and unmoving, wobbling on jerking strings. �
 
 Except I was already seeing *all* of them, their painful reality; hollowed out torso’s and old flesh and bone that had been stitched and melded together. Aris’s smile was tragically permanent, unless his puppeteer wrapped their fingers where his spine had become a stand. Mom tightened her grip on me, but I could barely feel it, her fingernails slicing into the flesh of my shoulders. 
 
-My head was spinning, and at one point I clawed my way out of Mom’s arms, sinking my teeth into her elbow. I got maybe half a step before my knees hit the ground, and Mom was back next to me, her heaving, heavy breath in my ear. You were the property of an evil and very powerful little girl who owns this town and everyone in it,” my Mom spat in my ear. “They made me keep my mouth shut, Marin,” she calmly shoved me into the back of my car, and slammed the door shut. “I begged them to save one of you. Just one, and I wouldn't talk. I had to cut one of you down.”
+My head was spinning, and at one point I clawed my way out of Mom’s arms, sinking my teeth into her elbow. 
 
-There were lights flashing in my eyes, and my head was hitting the window with a gentle *thunk*. Mom’s voice swam in and out, joining phantom ones threaded in my mind. Something sharp pricked the back of my neck, and I plunged down, down, down, into the dark with her voice still grazing my skull while my body shut down. I was no longer screaming, my mouth numbed and wrong. “I chose you,” Mom said, her voice breaking. The car was picking up speed, flying over bumps in the road. Mom was sobbing, her palms turning white around the wheel. “I had the choice to take any one of you, and all of you were special. All of you were my children, Marin. I wanted to take you far away from her–”
+I got maybe half a step before my knees hit the ground, and Mom was back next to me, her heaving, heavy breath in my ear. You were the property of an evil and very powerful little girl who owns this town and everyone in it,” my Mom spat in my ear. “They made me keep my mouth shut, Marin,” she calmly shoved me into the back of my car, and slammed the door shut. “I begged them to save one of you. Just one, and I wouldn't talk. I had to cut one of you down.”
+
+There were lights flashing in my eyes, and my head was hitting the window with a gentle *thunk*. 
+
+Mom’s voice swam in and out, joining phantom ones threaded in my mind. Something sharp pricked the back of my neck, and I plunged down, down, down, into the dark with her voice still grazing my skull while my body shut down. I was no longer screaming, my mouth numbed and wrong. 
+
+“I chose you,” Mom said, her voice breaking. The car was picking up speed, flying over bumps in the road. Mom was sobbing, her palms turning white around the wheel. “I had the choice to take any one of you, and all of you were special. All of you were my children, Marin. I wanted to take you far away from her–”
 
 The rest of that memory splintered into fragments of nothing, the drugs doing their job. But now that I had time to go over it, memorise it, try and study it, I could delve further into what I had lost. 
 
@@ -80,7 +90,9 @@ They covered my hands, knotted between my fingers. But I couldn't pull them away
 
 I couldn't speak, my lips numb, thoughts scattered, from whatever she had forced into my bloodstream. 
 
-Instead of focusing on the slowly collapsing pinprick of darkness we were driving into, I idly followed a single raindrop sliding down the pane, spiralling, and joining the others in their graceful dance. My gaze had been glued to the raindrop, entranced by its beauty, when something, or *someone* moved in the passenger seat. I lifted my head as far as my topsy-turvy brain would let me, blinking stars from my eyes. There was a hooded figure curled up on the seat, their head resting against the window. 
+Instead of focusing on the slowly collapsing pinprick of darkness we were driving into, I idly followed a single raindrop sliding down the pane, spiralling, and joining the others in their graceful dance. My gaze had been glued to the raindrop, entranced by its beauty, when something, or *someone* moved in the passenger seat. 
+
+I lifted my head as far as my topsy-turvy brain would let me, blinking stars from my eyes. There was a hooded figure curled up on the seat, their head resting against the window. 
 
 I tried to open my mouth, to ask my mother who this was, but my eyes were too heavy, coaxed by the drugs seeping through my blood, and I fell back into the dark, lulled by my Mom singing me her favorite song. 
 
@@ -90,7 +102,7 @@ I tried to open my mouth, to ask my mother who this was, but my eyes were too he
 
 *And he told us of his life, in the land of submarines…”*
 
-*“Sweetie, are you okay?”*
+“Sweetie, are you okay?”
 
 Presently, Mom snapped me out of it. Her humming was still in my mind, rooted into my thoughts, a false sense of security. Lifting my head, my  gaze went to my untouched bowl of cereal. 
 
@@ -118,7 +130,11 @@ Mom’s expression twisted, but she still feigned obliviousness. I watched her p
 
 “Mr Maine, my middle school principal,” I said, gulping down my juice– which was a little too spicy for my liking. It felt like I was interrogating suspects again. 
 
-At fourteen years old, we managed to convince the sheriff to let us talk to perps. Back then, it felt natural with Noah perched on the side of the desk playing good cop/bad cop, May standing with her arms folded, her expression enough to freak out perps– and Aris, idly standing next to me, recording the whole thing. I felt on top of the world as a kid, with the unwritten responsibility to protect my town. As an adult, interrogating my mother who had just gone ten shades of white, I was terrified. All of that magic was gone, and the people who made the magic were nothing more than plastic dolls. 
+At fourteen years old, we managed to convince the sheriff to let us talk to perps. Back then, it felt natural with Noah perched on the side of the desk playing good cop/bad cop, May standing with her arms folded, her expression enough to freak out perps– and Aris, idly standing next to me, recording the whole thing. 
+
+I felt on top of the world as a kid, with the unwritten responsibility to protect my town. 
+
+As an adult, interrogating my mother who had just gone ten shades of white, I was terrified. All of that magic was gone, and the people who made the magic were nothing more than plastic dolls. 
 
 “Mr Stevens, my creepy janitor.” I was aware of my voice cracking. “Noah Prestley. May Lee. Aris Caine.” Their names were only reminding me of their fate, and my eyes were filling with tears, my gut twisting. Mom continued to eat her breakfast, and every bite looked painful. “Who *are* they, Mom?”
 
@@ -132,7 +148,11 @@ Drugged.
 
 Of course. 
 
-Before I knew what was happening, I was in my mother's arms, my head awkwardly hanging down, bile dribbling down my chin. This was a stronger sedative than the car-ride. I remember  being carried outside, and being thrown onto odd smelling car seats that smelled like leather and rich people. The ride was short. I only remember seeing the towering walls hiding Middleview from the world, and an oldish man peeking through the window. Long, winding hallways followed. I was so out of it, still hanging from my mother's arms, I swore we passed a playroom. The door was wide open. I could see colourful letters and sponge blocks on the floor. 
+Before I knew what was happening, I was in my mother's arms, my head awkwardly hanging down, bile dribbling down my chin. This was a stronger sedative than the car-ride. 
+
+I remember  being carried outside, and being thrown onto odd smelling car seats that smelled like leather and rich people. The ride was short. 
+
+I only remember seeing the towering walls hiding Middleview from the world, and an oldish man peeking through the window. Long, winding hallways followed. I was so out of it, still hanging from my mother's arms, I swore we passed a playroom. The door was wide open. I could see colourful letters and sponge blocks on the floor. 
 
 Then I was lying on my back on an unfamiliar bed, surrounded by white walls. The hospital was my first thought. Until my gaze found the lack of a window. Mom loomed over me, a broken smile on her face, and swollen eyes. She grabbed my arm, stabbing into my flesh. I tried to move, tried to snatch it back, but I was paralysed. 
 
@@ -154,13 +174,15 @@ Which isn't the first time I've been drugged.
 
 The slightly muffled, and very slurred voice was enough to jerk me awake. 
 
-The memory was so clear, and yet reliving it all over again was trippy as fuck. Case number fourteen. We were fourteen years old, and it was our first mystery I didn't fully remember. All over town, people, teenagers especially, had been found with severe burn marks to their faces and torso’s. The photos from the crime scene were gut churning. Five victims and one casualty, and all of them had competed in that year’s high school beauty pageant. 
+The memory was so clear, and yet reliving it all over again was trippy as fuck. Case number fourteen. We were fourteen years old, and it was our first mystery I didn't fully remember. 
+
+All over town, people, teenagers especially, had been found with severe burn marks to their faces and torso’s. The photos from the crime scene were gut churning. Five victims and one casualty, and all of them had competed in that year’s high school beauty pageant. 
 
 We were yet to find a suspect, even after grilling every past and present contestant. Aris was convinced it was an elder resident's act of jealousy, while I was keeping an eye on a victim’s fourteen year old sister, who seemed a little *too* upset about her big sister's death. And by upset, I mean her fake crying was hard to take seriously. 
 
 Noah’s *swell* idea to check out the abandoned sawmill for clues, backfired in our faces, when the four of us walked directly into a cloud of sweet smelling gas. 
 
-“That's lugging gas,” Noah hissed out, slamming his jacket sleeve over his mouth and nose. “Fuck. It's a trap.”
+“That's laughing gas,” Noah hissed out, slamming his jacket sleeve over his mouth and nose. “Fuck. It's a trap.”
 
 Aris stumbled back, coughing. “Move back slowly,” his flashlight beam illuminated the dark. “Look for tripwires. Noah, you fucking moron.”
 
@@ -192,13 +214,17 @@ In the corner of my eye, I caught Noah twisting around, eyes wide, lips moving, 
 
 A loud hiss sounded, and this time we were trapped. 
 
-Immediately, I pressed my hands over my mouth. But I was already on my knees. Strong stuff. I think that's what I said, but from the look on Aris’s face, I don't think I was speaking English. The boy staggered back, using his flashlight to find an escape. “Nitrous oxide,” he dropped his flashlight, “Is a sweet smelling sedative used as general anesthetic. When administered in large doses, such as being blasted in someone's face in an enclosed space, it can, uhhh… it can do something…” Aris’s voice slurred. May was throwing herself into the door trying to force it open, and Noah was frantically searching for an exit.
+Immediately, I pressed my hands over my mouth. But I was already on my knees. Strong stuff. I think that's what I said, but from the look on Aris’s face, I don't think I was speaking English. 
+
+The boy staggered back, using his flashlight to find an escape. “Nitrous oxide,” he dropped his flashlight, “Is a sweet smelling sedative used as general anesthetic. When administered in large doses, such as being blasted in someone's face in an enclosed space, it can, uhhh… it can do something…” Aris’s voice slurred. May was throwing herself into the door trying to force it open, and Noah was frantically searching for an exit.
 
 What Aris didn't mention, on account of him passing out next to me, along with Noah, and then May, was that Nitrous Oxide made me feel like I was on Saturn. It didn't even feel like sleeping. 
 
 I was staring blankly at the ceiling, lying on my back, frowning at cracks in the wood, and then there were dancing shadows around me, phantom figures that picked me up. Then I was hovering ten feet in the air, uncomfortably tied to the others, whose wiggling bodies against mine were dangerously close to sending us plunging to our deaths. 
 
-If I wasn't still high on wacky gas, I would have screamed. We were at a height that could kill us if we were unceremoniously dropped to the ground. Blinking rapidly, it took me several seconds to register my kicking feet beneath me, and my wrists painfully pinned behind my back. Another disorienting moment of trying to keep my eyes open, and risking a peek below me, I realized why the others were squirming, twitching in their restraints. 
+If I wasn't still high on wacky gas, I would have screamed. We were at a height that could kill us if we were unceremoniously dropped to the ground. Blinking rapidly, it took me several seconds to register my kicking feet beneath me, and my wrists painfully pinned behind my back. 
+
+Another disorienting moment of trying to keep my eyes open, and risking a peek below me, I realized why the others were squirming, twitching in their restraints. 
 
 The mill was lit up in ghostly light, and directly below us, was a giant vat of acid. 
 
@@ -236,7 +262,9 @@ Aris’s unusual whimper snapped me into fruition.
 
 “No,” Aris whispered. “I mean… can't you see them?”
 
-His voice was different, almost an entirely different boy. For a moment, I forgot about the bubbling pool of death beneath us, and bled back to reality, where a thought grazed the back of my mind. Reality felt different being so high up, and yet also free from what I wasn't allowed to look at. I was never allowed to *look* at what was behind me and in front of me, above me, and below me. I opened my mouth, really opened it, pushing out my own words that for once were actually mine. Mine. 
+His voice was different, almost an entirely different boy. For a moment, I forgot about the bubbling pool of death beneath us, and bled back to reality, where a thought grazed the back of my mind. Reality felt different being so high up, and yet also free from what I wasn't allowed to look at. 
+
+I was never allowed to *look* at what was behind me and in front of me, above me, and below me. I opened my mouth, really opened it, pushing out my own words that for once were actually mine. Mine. 
 
 Not the endless seam of words tumbling from my tongue every day. 
 
@@ -246,7 +274,11 @@ In front of us, I could already see criss-crosses, invisible lines in the sky th
 
 Contorting red lines in every direction. 
 
-“The eyes.” Aris whispered. His voice felt too real, his tone splintering the delusion wrapped around me. We weren't hanging ten feet from the ground. In fact, we were safely tucked into safety harnesses. The pool of bubbling toxic waste was an overflowing tub of cold water and suds. I wasn't allowed to look, but when I did, I *felt* it. I could feel the agonising tightness in my arms and legs and head, something holding me together, pulling me together and apart. 
+“The eyes.” Aris whispered. His voice felt too real, his tone splintering the delusion wrapped around me. 
+
+We weren't hanging ten feet from the ground. In fact, we were safely tucked into safety harnesses. The pool of bubbling toxic waste was an overflowing tub of cold water and suds. 
+
+I wasn't allowed to look, but when I did, I *felt* it. I could feel the agonising tightness in my arms and legs and head, something holding me together, pulling me together and apart. 
 
 “There are so many of them,” Aris said. “So many eyes, and so many faces, and lights, and camera’s following us…but I’m not allowed to look at them. When I look at them, they make me hurt.” he let out a sob. “I want my Mom, Marin.”
 
@@ -264,7 +296,9 @@ His words severed something inside of me.
 
 Aris surprised me with a spluttered giggle. “The lines holding us together.”
 
-Noah was yelling, May trying to reason with our kidnapper, the two of them completely blind, oblivious, of the lines cruelly slicing and cutting into our reality, endless criss-crosses that I could see, tipping my head back. I was barely aware of my dangling legs submerged in cold water, when something velvet, something dark, fell in front of us. I idly watched the ripples in the material, moving my mouth, which wasn't mine.
+Noah was yelling, May trying to reason with our kidnapper, the two of them completely blind, oblivious, of the lines cruelly slicing and cutting into our reality, endless criss-crosses that I could see, tipping my head back. 
+
+I was barely aware of my dangling legs submerged in cold water, when something velvet, something dark, fell in front of us. I idly watched the ripples in the material, moving my mouth, which wasn't mine.
 
 Whatever was attached to it didn't allow me to scream, didn't allow me to cry. 
 
@@ -274,7 +308,11 @@ A male voice shouted, and I realised what was in front of us.
 
 A curtain. 
 
-Behind it, thundering applause, and my body was tugged violently. I could feel the others still bound to me, but they weren't moving, their heads hanging. I held onto the warmth in their hands, still entangled with mine. “Great work, everyone!” the voices grew louder, and I couldn't move, couldn't breathe. My body was stuck, my spine straight, my breaths shuddered. Figures bled through the curtain, while one strayed behind. 
+Behind it, thundering applause, and my body was tugged violently. I could feel the others still bound to me, but they weren't moving, their heads hanging. 
+
+I held onto the warmth in their hands, still entangled with mine. 
+
+“Great work, everyone!” the voices grew louder, and I couldn't move, couldn't breathe. My body was stuck, my spine straight, my breaths shuddered. Figures bled through the curtain, while one strayed behind. 
 
 One strayed in front of me, pricking my chin with a perfect manicure and lifting my head up. 
 
@@ -292,11 +330,15 @@ And it was agony, a tight, pulling agony that incited a raw screech in my throat
 
 I sensed her fingers cradling my face. “I know it does, Marin. Just hold still for me.”
 
-The sound of cutting filled me with fear, but then my body was relaxing, growing limp, and finally, with one final snip, I was tumbling onto my knees. Fully aware of the strings now, I could see them still hanging from me, severed pieces of bloody thread and pooling red seeping down my skin. But I was free. Mom pulled me into her arms, and my head was hanging at an awkward angle, clumsy with no strings. 
+The sound of cutting filled me with fear, but then my body was relaxing, growing limp, and finally, with one final snip, I was tumbling onto my knees. 
+
+Fully aware of the strings now, I could see them still hanging from me, severed pieces of bloody thread and pooling red seeping down my skin. But I was free. Mom pulled me into her arms, and my head was hanging at an awkward angle, clumsy with no strings. 
 
 “Wait.” Aris croaked. “You're… leaving us?”
 
-His voice, sharp pants of breath, felt like a whirlwind slamming into me, and I tried to spring out of Mom’s arms, but she was already pulling me away. When I twisted my head, Aris was still awake, still suspended on cruel strings cutting through him, severing him apart. But still human. Still warm. Still breathing. His glassy eyes found mine, jerking lips twisting in agony. Instead of speaking, his mouth stretched into a horrifying grin. His strings were being pulled, vicious cutting lines slicing all the way through him, making him dance. 
+His voice, sharp pants of breath, felt like a whirlwind slamming into me, and I tried to spring out of Mom’s arms, but she was already pulling me away. 
+
+When I twisted my head, Aris was still awake, still suspended on cruel strings cutting through him, severing him apart. But still human. Still warm. Still breathing. His glassy eyes found mine, jerking lips twisting in agony. Instead of speaking, his mouth stretched into a horrifying grin. His strings were being pulled, vicious cutting lines slicing all the way through him, making him dance. 
 
 “Please.” Mom whispered, her arms protective around me. “Let me take Peter. Just two of them! Peter and Marin. I’ll take them far away. I won’t speak a word about any of this, I promise.”
 
@@ -316,7 +358,9 @@ The last pieces of this memory were foggy, disjointed and wrong, splintered part
 
 It's hard to differentiate memories, especially the ones that have been long suppressed– the ones that I wasn't allowed to see. I was sitting on a table made of stone, a single light shining down on me. I was entangled in something. *Rope?* 
 
-No, it hurt too much to be rope. I could sense it, feel it, wrapped around my being, my own string, string that had already been cut from me, was back, binding me to three other bodies. They were so cold, while I was warm, soaked in wet warmth that dripped down my face. Their backs pressed to mine felt wrong, like cold lumps of flesh. It was  pitch dark, apart from that single spotlight. I lazily followed the beam, glimpsing trails of scarlet splashed across the table, turning black in the shadow. There was a blade above us, already tinted with new red.
+No, it hurt too much to be rope. I could sense it, feel it, wrapped around my being, my own string, string that had already been cut from me, was back, binding me to three other bodies. 
+
+They were so cold, while I was warm, soaked in wet warmth that dripped down my face. Their backs pressed to mine felt wrong, like cold lumps of flesh. It was  pitch dark, apart from that single spotlight. I lazily followed the beam, glimpsing trails of scarlet splashed across the table, turning black in the shadow. There was a blade above us, already tinted with new red.
 
 Red, that shined like rubies. 
 
@@ -330,7 +374,15 @@ Why I was wet, why I would never be clean again.
 
 But I was still breathing, still human, while they were still. 
 
-*“Are you leaving us?”* Aris’s phantom voice echoed in my ears when I was wrenching from my own strings. I jumped off of the table, and pulled away his restraints, ripping apart his strings. Except Aris wasn't human anymore. His head hung down, eyes carved out and replaced with more animated ones, glass ones that would last forever. When my trembling hands found his torso, all of him had been hollowed out. His mouth dropped open. I tried Noah, and then May. When I pulled away their ropes, they fell limp, their heads tipped back. I shook them.
+*“Are you leaving us?”* 
+
+Aris’s phantom voice echoed in my ears when I was wrenching from my own strings. I jumped off of the table, and pulled away his restraints, ripping apart his strings. Except Aris wasn't human anymore. 
+
+His head hung down, eyes carved out and replaced with more animated ones, glass ones that would last forever. When my trembling hands found his torso, all of him had been hollowed out. 
+
+His mouth dropped open. 
+
+I tried Noah, and then May. When I pulled away their ropes, they fell limp, their heads tipped back. I shook them.
 
 They didn't move. 
 
@@ -354,9 +406,13 @@ I can still see it. I can see the slithering red reality of my friends, what had
 
 Back in the present inside the white room, slowly coming down from the cocktail of drugs forced inside me, someone was singing directly in my face. 
 
-“Sorry,” Aris Caine laughed, and my body jolted. When I opened my eyes, he was standing over me, surrounded in a halo of white light. Still in the same clothes as the diner, though no sign of strings. His freckles looked like they were moving. Aris blew in my face, and his breath felt real, cold against my cheeks. This version of him looked older, thick, sandy hair hanging in dark eyes. “Uh, I don't know the rest of the lyrics. But, hey, you're awake now!”
+“Sorry,” Aris Caine laughed, and my body jolted. When I opened my eyes, he was standing over me, surrounded in a halo of white light. Still in the same clothes as the diner, though no sign of strings. 
 
-Sitting up, I blinked in the weird heavenly halo. It was the drugs playing with my head, but *this* was the kind of trip I wasn't going to complain about. I could feel a weight next to me. May. Her pigtails were in my face, already making me want to sneeze. The girl's back was turned. She was talking to someone, her voice a hissed whisper. 
+His freckles looked like they were moving. Aris blew in my face, and his breath felt real, cold against my cheeks. This version of him looked older, thick, sandy hair hanging in dark eyes. “Uh, I don't know the rest of the lyrics. But, hey, you're awake now!”
+
+Sitting up, I blinked in the weird heavenly halo. It was the drugs playing with my head, but *this* was the kind of trip I wasn't going to complain about. I could feel a weight next to me. 
+
+May. Her pigtails were in my face, already making me want to sneeze. The girl's back was turned. She was talking to someone, her voice a hissed whisper. 
 
 Noah. 
 
@@ -388,7 +444,9 @@ I pretended to zip my lips, still half conscious. Hallucinating The Middleview F
 
 “Mouth shut.” I promised. 
 
-“Okay,” May’s expression hardened. “Marin, you need to be brave for me.” She reached out and cradled my cheeks, just like my mother. At that moment, May Lee was real. Her wide eyes, lips pressed into a thin line, pigtails loose in her hair, all of it was real. “You need to remember our last case.” I could sense her desperation. May twisted to the door, only to get a thumbs up from Noah. She turned back to me, her expression contorting. “What did we see when we entered the string factory that night?”
+“Okay,” May’s expression hardened. “Marin, you need to be brave for me.” She reached out and cradled my cheeks, just like my mother. At that moment, May Lee was real. 
+
+Her wide eyes, lips pressed into a thin line, pigtails loose in her hair, all of it was real. “You need to remember our last case.” I could sense her desperation. May twisted to the door, only to get a thumbs up from Noah. She turned back to me, her expression contorting. “What did we see when we entered the string factory that night?”
 
 “One minute,” Noah’s focus was on the outside. “May, hurry the *fuck* up.”
 
@@ -414,7 +472,9 @@ Nothing.
 
 Oblivion, and then I was sitting on the sidewalk, covered in string, screaming, just like how I remembered it. 
 
-When I opened my eyes to tell May that, she was gone. The door to my room was closed, and the three of them had finally faded, my mind finding its footing. Time passed quickly. Mom visited, wearing her usual smile. She told me everything was going to be okay. I didn't listen to her, instead, hyper focused on the noticeable crease on my bed where May had been sitting. 
+When I opened my eyes to tell May that, she was gone. The door to my room was closed, and the three of them had finally faded, my mind finding its footing. Time passed quickly. 
+
+Mom visited, wearing her usual smile. She told me everything was going to be okay. I didn't listen to her, instead, hyper focused on the noticeable crease on my bed where May had been sitting. 
 
 “Marin?” 
 
@@ -428,7 +488,9 @@ I didn't even notice a second presence in the room.
 
 It was a guy, a trainee by the look of him, dressed in blue scrubs, his face hidden behind a mask. Time seemed to quicken as soon as the guy was in front of me. 
 
-I remember feeling the warmth of his fingers on my temples, and the sudden buzzing sensation that I *knew* them. His touch was gentle but firm, lulling me into half slumber. I was still frowning at the crease in my bed sheets when Mom’s voice slammed into me, and my head tipped back. “Erase her completely,” Mom’s voice was stern. I could hear her pacing back and forth, the click-clack of her heels jolting my body awake. “We’ve already had to deal with deaths among stage crew, and she already cut one of them down. We just need things to go back to the way they were. Marin has nothing to do with this, and as for the Middleview Four–”
+I remember feeling the warmth of his fingers on my temples, and the sudden buzzing sensation that I *knew* them. His touch was gentle but firm, lulling me into half slumber. I was still frowning at the crease in my bed sheets when Mom’s voice slammed into me, and my head tipped back. “Erase her completely,” Mom’s voice was stern. 
+
+I could hear her pacing back and forth, the click-clack of her heels jolting my body awake. “We’ve already had to deal with deaths among stage crew, and she already cut one of them down. We just need things to go back to the way they were. Marin has nothing to do with this, and as for the Middleview Four–”
 
 Just like her last attempt to memory-wipe me, this one didn't work either. 
 
@@ -438,7 +500,9 @@ Mom was sitting across the table, her lips kissing the rim of her glass. “How 
 
 “Hey!”
 
-Noah threw a lucky charm at me across the table. He straightened in his seat. I liked his presence. He made sure to sit as far away from Mom as possible, making faces when she inched near him. “I think the overall consensus is that you can't trust this woman. She could be our puppeteer. Also, she's drugged you, like ten thousand times.”
+Noah threw a lucky charm at me across the table. He straightened in his seat. 
+
+I liked his presence. He made sure to sit as far away from Mom as possible, making faces when she inched near him. “I think the overall consensus is that you can't trust this woman. She could be our puppeteer. Also, she's drugged you, like ten thousand times.”
 
 “I doubt she's bad,” Aris sat next to him, idly playing with his own bowl of cereal. “Why would she save Marin?”
 
@@ -448,7 +512,9 @@ Aris rolled his eyes. “What makes you think her *mom* is the mastermind?”
 
 “*That.*” Noah pointed to my mother. 
 
-Mom was talking on the phone. I didn't understand what he was talking about, until I saw a single string above her. I felt my stomach revolt at the sight, a single string somehow wrapped around my mother’s mind. “Yes,” Mom spoke softly. “Everything is sorted. Is the… situation okay now? I’ve been informed that we are no longer in code black.”
+Mom was talking on the phone. I didn't understand what he was talking about, until I saw a single string above her. 
+
+I felt my stomach revolt at the sight, a single string somehow wrapped around my mother’s mind. “Yes,” Mom spoke softly. “Everything is sorted. Is the… situation okay now? I’ve been informed that we are no longer in code black.”
 
 “She’s talking about us,” May grumbled next to me. 
 
@@ -493,5 +559,3 @@ But I’m not leaving them there. I'm terrified of what my mother and her work w
 No fucking way.
 
 One last mystery to solve.
-
-Who these kids really are, the person who did this to us — and the truth behind Middleview. Our whole existence.

@@ -1,4 +1,4 @@
-I went back inside. 
+[First Post](https://www.reddit.com/r/nosleep/s/W31UAGaK5I)
 
  I didn't know what I was looking for, or why i was back in that hell hole, but I had to return to look. 
 
