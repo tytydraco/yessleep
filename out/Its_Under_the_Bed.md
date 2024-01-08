@@ -6,7 +6,7 @@ I climbed in bed; Mom tucked me in, gave me a kiss, and turned out the light bef
 
 The overall tone of the night creates its own suspense. It implies mystery and requires fear. Sometimes I wish there was a second sun for the night instead of the moon. The moon is nice and all, but it's far too dim to illuminate the endless hiding spots where monsters and madmen lie in wait.
 
-The mattress on my bed sat atop one of those open bottom box springs. I'd crawled under there a number of times and plucked one of the springs with my finger creating an echoy note that rang out like a cheap piano. That's how I knew there was something under my bed. Just as I was starting to drift off to sleep I heard that same note. I even felt its vibration through the mattress.
+The mattress on my bed sat atop one of those open bottom box springs. I'd crawled under there a number of times and plucked one of the springs with my finger creating an echoy note that rang out like a toy piano. That's how I knew there was something under my bed. Just as I was starting to drift off to sleep I heard that same note. I even felt its vibration through the mattress.
 
 I'd have called out for my mother but I was frozen stiff and couldn't make a sound. I just laid there listening and waiting. About ten full minutes must have gone by without a repeat performance. The only thing I could think of that could have made the sound was maybe a mouse but we hadn't seen any in the house.
 
