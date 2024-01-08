@@ -401,7 +401,9 @@ Why I was found, screaming, inconsolable.
 I can still see it. I can see the slithering red reality of my friends, what had been scooped out of them to maintain their roles. 
 
 *In a town, where I was born*
+
 *Lived a man, who sailed the sea*
+
 *And he told us of his life, in the land of submarines…”*
 
 Back in the present inside the white room, slowly coming down from the cocktail of drugs forced inside me, someone was singing directly in my face. 
