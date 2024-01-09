@@ -271,3 +271,7 @@ I hope I shall be able to finish writing down everything in a few days and share
 &#x200B;
 
 Sophie
+
+&#x200B;
+
+Update: [Part 10](https://www.reddit.com/r/nosleep/comments/1929j43/silver_whispers_part_10/)
