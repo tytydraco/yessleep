@@ -44,7 +44,7 @@ I put the shoebox in my closet and forgot about it.
 
 I bet many of you are probably wondering how my new job was going and you wouldn't believe it, but working in sales for a company that produces cardboard boxes was actually pretty fun! In fact, im kind of the office comedian. Once I changed the lunch room sign to say "brunch room" ha! Sorry guys, Turkey sandwich? Oh no no this is the *BRUNCH* room. Comeback when you have a soft boiled egg and toast or something. 
 
-Needless to say I made plenty of friends in no time amd decided it was time to throw a little house party. The only problem being was that now my house had decided to start growing hair in the living room.
+Needless to say I made plenty of friends off the bat and decided it was time to throw a little house party. The only problem being was that now my house had decided to start growing hair in the living room.
 
 It started out as little pointy dark hairs that look like something that would grow out of a mole on your face, but slowly graduated to wiggly eyelash like hairs. I tried cutting them but they were too strong and I broke a pair of good kitchen scissors on them.
 
