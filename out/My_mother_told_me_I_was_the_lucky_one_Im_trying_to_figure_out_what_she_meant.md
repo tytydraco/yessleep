@@ -58,7 +58,7 @@ She was definitely crying now.
 
 “I think I’d better get to sleep,” I said, instinctively moving away from her. “It’s getting late.”
 
-She put a hand on my ankle. Even though the covers, I could tell that her touch was different. Her grip was stronger than it should have been, and it felt cold through the cotton.
+She put a hand on my ankle. Even through the covers, I could tell that her touch was different. Her grip was stronger than it should have been, and it felt cold through the cotton.
 
 “One more,” she said. “And then you can sleep.”
 
@@ -94,6 +94,14 @@ I tried to find the words, but all I could say was, “I got scared.”
 
 “Could you stay with me,” I asked. “Just for a little bit, until I fall asleep.”
 
-“You’re practically a teenager,” she said. And then she closed the door, leaving me in the dark. Soon, I heard the scratch of her pencil as she got out her crosswords. I was alone, utterly alone in the dark, and for once, I was glad.
+“You’re practically a teenager,” she said. As she spoke, she looked toward my feet and picked something up off the floor. It was a knife, maybe six inches long.
+
+"Where'd you get this?" she asked.
+
+"It isn't mine," I answered quietly.
+
+"You're a liar," she said bitterly. "And a little coward."
+
+For a moment, she looked at the knife thoughtfully, turning it over in the moonlight. Then she took the weapon and left, closing the door behind her and leaving me in the dark. Soon, I heard the scratch of her pencil as she got out her crosswords. I was alone, utterly alone in the dark, and for once, I was glad.
 
 I kept listening to the distant scratching until [I fell asleep.](https://www.reddit.com/r/scarymaxx/comments/zwo5o8/welcome_to_the_world_of_scarymaxx/)
