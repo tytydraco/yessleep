@@ -211,3 +211,8 @@ Ahead, I saw a faded sign. It looked made out of pure silver, without a sign of 
 When we got close, I brought my light right up to it and tried to make it out. After a few seconds, I realized it was a sign for a town.
 
 “Bloodstone. Population: 144,000,” it read.
+
+
+Part 2
+
+https://www.reddit.com/r/nosleep/comments/192nglq/i_found_the_bottomless_pit_from_the_book_of/

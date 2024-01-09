@@ -18,7 +18,7 @@ Eventually, we got to the coordinates where I stopped the boat, dropped anchor, 
 
 I drifted off to sleep and woke suddenly to the sound of the door to my cabin hitting up against the stopper on the wall. I lifted my head up, and the man was hovering over me with a grin on his face. I asked how he had gotten into my  room. He claimed the door was unlocked. He said he was ready to go back to shore. He had dumped his chum in the water and it had failed to attract any sharks.
 
-I thought this was odd, but frankly, I was glad to get rid of him early. I told him I’d be right up. He left my room and went topside. I checked the door to my cabin on the way out, and it had marks on it that made it apparent that it had been jimmied. I was mad, but I wasn’t going to risk getting in a scuffle with this man. I’d taken his money, and now I just wanted to get back to shore myself.
+I thought this was odd, but frankly, I was glad to get rid of him early. I told him I’d be right up. He left my room and went topside. I checked the door to my cabin on the way out, and it had marks on it that made it apparent that it had been jimmied. I was mad, but I wasn’t going to risk getting into a scuffle with this man. I’d taken his money, and now I just wanted to get back to shore myself.
 
 The ride back was worse than the trip out. He was pacing and writhing his hands and glaring at me the whole time. It was strange. Several times I thought for sure that he was planning to kill me. I went to take a pee at one point and checked my cabin for my gun while I was down there. It was gone. He had taken my pistol.
 
