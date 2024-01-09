@@ -264,7 +264,7 @@ I scraped my mind for objections but settled on saying nothing. Better not feed 
 
 Seth was still seated on the porch steps, his head hung. He raised his hand to signal goodbye, though kept his face obscured. Sighing, I climbed into the truck, started the engine, and was fixing the seatbelt when I heard a tap on the window.
 
-I looked up to see Seth standing there, raising the copper rods I’d handed him earlier. I quickly rolled down the wind. “Crap, thank you, I can’t work without these.”
+I looked up to see Seth standing there, raising the copper rods I’d handed him earlier. I quickly rolled down the glass. “Crap, thank you, I can’t work without these.”
 
 He gave a single nod in reply before returning to the porch, watching silently as I turned the truck around. Starting down the dirt road, I glimpsed his figure through the side mirror as it fell behind the trees.
 
