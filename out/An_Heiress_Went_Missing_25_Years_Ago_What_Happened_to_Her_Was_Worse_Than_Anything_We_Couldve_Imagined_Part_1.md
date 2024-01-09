@@ -48,7 +48,7 @@ Beaumont pauses, momentarily taken aback by my directness.
 
 "Your mother is Camille Beaumont, isn't she?" I ask, recalling the matriarch of the family.
 
-A flicker of surprise crosses Mathis's features. "Yes, she *was*. My mother, Camille, passed away recently. It was quite sudden—a stroke.”
+A flicker of surprise crosses Mathis's features. "Yes, she *was*. My mother passed away recently. It was quite sudden—a stroke.”
 
 "I’m so sorry for your loss," I interject.
 
@@ -100,7 +100,7 @@ Beaumont nods slightly, his expression one of lingering frustration. "Yes, we di
 
 His expression turns somber. "I wish I could provide more specifics, but there was a large age gap between us. I was already out of the house, pursuing my career, when Margot was still in her rebellious teenage years. We were never close, not really."
 
-“What about your mother?” I ask. “Does she remember anything from the night Margot left?” 
+“What about your mother?” I ask. “Does she remember anything from the night Margot left?”
 
 He pauses, gathering his thoughts. "Mother was always tight-lipped about their falling out. It was a taboo topic in our household. All I know is that it was a bitter argument about Margot's lifestyle and choices.”
 
