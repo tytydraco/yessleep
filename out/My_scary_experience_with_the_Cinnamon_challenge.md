@@ -66,7 +66,7 @@ I looked back at my family and shouted that I know that they can see me but they
 
 “Why are they still acting like this? You just revealed the prank. It’s not funny anymore…”
 
-“Because they can’t see me either”, she said.
+“Because they really can’t see me”, she said.
 
 I tried to think back a few weeks. My sister and Jackie used to carpool to school together. They are both seniors in high school and Jackie used to come by almost every other day until a few weeks ago. Jackie’s mom had been by our house a few times since then and one time I remember seeing her crying and upset.
 
