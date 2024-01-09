@@ -90,7 +90,7 @@ Mathis leans forward, squinting at the photo before shaking his head. "I wish I 
 
 Ash, ever the pragmatist, frowns slightly. "Do you have any idea where they might have gone?"
 
-Mathis sighs, the lines on his face deepening with the weight of unfulfilled hope. "No, I don't. After Margot left, we tried to track her, but she was like a ghost. She didn't want to be found."
+Mathis sighs, the lines on his face deepening with the weight of unfulfilled hope. "No, I don't. After Margot left, we tried to track her, but she was like a ghost."
 
 "Did your family involve the police at the time?" Ash asks, still examining the photo.
 
@@ -100,7 +100,9 @@ Beaumont nods slightly, his expression one of lingering frustration. "Yes, we di
 
 His expression turns somber. "I wish I could provide more specifics, but there was a large age gap between us. I was already out of the house, pursuing my career, when Margot was still in her rebellious teenage years. We were never close, not really."
 
-“What about your mother?” I ask. “Does she remember anything from the night Margot left?” He pauses, gathering his thoughts. "Mother was always tight-lipped about their falling out. It was a taboo topic in our household. All I know is that it was a bitter argument about Margot's lifestyle and choices.”
+“What about your mother?” I ask. “Does she remember anything from the night Margot left?” 
+
+He pauses, gathering his thoughts. "Mother was always tight-lipped about their falling out. It was a taboo topic in our household. All I know is that it was a bitter argument about Margot's lifestyle and choices.”
 
 I don’t like the odds. Finding someone after a quarter-century with only a faded Polaroid and a name is like finding a needle in a haystack.
 
@@ -328,7 +330,9 @@ Mathis's face goes pale. "Hidden passages? In this house?"
 
 "It's not unheard of in old homes, especially ones with a history like this," I add, my mind working overtime. "Secret passages were often built for various reasons—security, privacy, sometimes even for less savory purposes."
 
-"But why would my mother need something like that?" Mathis asks, his voice barely above a whisper. "That's what we intend to find out," I say firmly.
+"But why would my mother need something like that?" Mathis asks, his voice barely above a whisper.
+
+"That's what we intend to find out," I say firmly.
 
 "Do you have access to the blueprints of the house, particularly of the remodeling done by your mother?" Ash asks.
 
