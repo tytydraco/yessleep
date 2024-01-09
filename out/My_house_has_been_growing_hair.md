@@ -22,7 +22,7 @@ At the time, I just thought the thing was busted, I didn't even pay half a mind 
 
 I moved to my house in late September and the temperature was falling fast. Luckily for me, I had an open brick fireplace in the basement with a woodpile next to it ready for use.
 
-I built my first fire when and began warming my hands up when it blew out towards me with a *chewf!!* 
+I built my first fire and began warming my hands up when it blew out towards me with a *chewf!!* 
 
 "Excuse me?" I asked agitated. I built a couple more fires, the third being the most successful but the flames danced and...formed into a movie? It's hard to explain but the embers changed and contorted to show what looked like the massacre of a foreign village with one man leading the charge, lobbing gernades into houses and slaughtering whole family's. 
 
