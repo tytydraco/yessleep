@@ -4,7 +4,7 @@ Lilith for context outside of this weird nightly ritual is the most loving ragdo
 
 I dismissed it as her staring at moths or small bugs or even maybe the outdoor cats that live around our place assuming I somehow don’t notice them in the blanket of nightfall. 
 
-Curiosity turned to concern when I noticed Luna’s behavior growing more intense. One night, the air felt unusually charged, and a bone-chilling silence descended upon the room. Luna’s eyes widened, reflecting an eerie luminescence from whatever unseen force captivated her gaze.
+Curiosity turned to concern when I noticed Lilith’s behavior growing more intense. One night, the air felt unusually charged, and a bone-chilling silence descended upon the room. Lilith’s eyes widened, reflecting an eerie luminescence from whatever unseen force captivated her gaze.
 
 Summoning courage, I joined her at the window, peering into the inky abyss. At first, I saw nothing, just the usual dimly lit surroundings. Then I noticed the rustling of a tree right by my window and a silhouette of a person appeared. Curiosity got the best of me and I sat peering at the figure. At first glance I assumed that it was just some person drunk coming home from the bar that’s a few blocks away and that they somehow stumbled into our yard. Maybe even my neighbors friend coming home late given we have a shared outdoor space. But as the shadow grew closer I felt my stomach sink at the same time that my usually docile goofy kitty started making a deep guttural growling sound. 
 

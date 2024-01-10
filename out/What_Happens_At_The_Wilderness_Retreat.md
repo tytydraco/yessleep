@@ -144,8 +144,6 @@ I’d found my voice, small and raspy with fear. “We aren’t going to bury hi
 
 -
 
-This is where I’m forced to end this log. I’ve only managed to cover those first weeks so far and even with this it feels like I’m leaving a lot out, but if I put any more time into this they’re gonna catch me in here. 
-
 I’ll leave you with this:
 
 This is not a cry for help. There is no help coming. I’ve seen what happens when someone gets an SOS out there and the result is not pretty.
