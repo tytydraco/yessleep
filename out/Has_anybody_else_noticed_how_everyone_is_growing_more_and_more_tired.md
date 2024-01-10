@@ -30,7 +30,7 @@ My father liked to keep things private in regards to his life, he told me he got
 
 Throughout the years I always asked if there was a bring your kid to work day as I’d seen this concept a lot on T.V., he’d laugh and say it doesn’t really exist yet... I’ve been on the internet once and I did googled it and I know it does. 
 
-We got the highest speed internet installed years ago but it had to be taken out as I was told it was interfering with a local advanced Electric power transmission that was apparently utilizing every possible frequency and signal. They installed a much much..much wreaker internet and it’s painstaking to use.
+We got the highest speed internet installed years ago but it had to be taken out as I was told it was interfering with a local advanced Electric power transmission that was apparently utilizing every possible frequency and signal. They installed a much much..much weaker internet and it’s painstaking to use.
 
 I’d go bored having read my library of books thrice over and my parents would bring me more for my collection or I’d rent some from my private school library, the librarian has been in a deep sleep for 6 weeks however, so the library is only allowed to be used when one of our teachers are present.
 
