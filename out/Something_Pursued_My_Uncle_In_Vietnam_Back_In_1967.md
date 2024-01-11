@@ -72,7 +72,7 @@ Oh, I also took something from it too.
 
 A knife.
 
-2 days after my uncle's confession, he succumbed to his cancer.
+2 days after my uncle's confession, he succumbed to cancer.
 
 I was tasked to clean up his house to sell it.
 
