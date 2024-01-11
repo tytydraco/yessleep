@@ -22,7 +22,7 @@ He said things like he would’ve loved me as a son. And that he will always be 
 
 And my dad who had enough of this call the clown service that Henry was allegedly a part of to complain about how Henry was harassing me
 
-But to my dad‘s shock clown catering service said that they already have fired him and they didn’t send him to my friend Charlie’s party
+But to my dad‘s was shocked clown catering service said that they already have fired him and they didn’t send him to my friend Charlie’s party
 
 Upon hearing this, my parents start packing up our belongings and tried to leave as soon as possible 
 
@@ -37,5 +37,3 @@ My son told the clown. Yeah I’m gonna be. 7 years old soon when the clown said
  my son, who did not know much at the time about Henry, silly face, my son agreed and told him where we live 
 
 My son‘s birthday is in a few days I feel like Henry’s gonna show up on his birthday and do God knows what to us
-
-God, just when I thought I was done with this clown now he shows up and I was starting to target my son. What do I do?
