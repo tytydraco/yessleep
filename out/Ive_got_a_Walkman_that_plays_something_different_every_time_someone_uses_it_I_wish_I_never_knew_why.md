@@ -18,7 +18,7 @@ He stood up and grabbed it.
 
 "A Walkman? Are you serious, I didn't know you'd become a hipster," he said, laughing.
 
-"It's nothing, just a cool thing I bought a few days ago at a flea market. But forget it, it doesn’t work anyway."
+"It's nothing, just a cool thing I bought a few days ago at a flea market, I've linked it to these speakers. But forget it, it doesn’t work anyway."
 
 "Really?" and with that, he pressed the PLAY button.
 
