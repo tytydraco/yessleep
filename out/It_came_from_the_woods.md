@@ -1,31 +1,8 @@
- We decided to take a late-night walk in the woods. 
+My family have always lived in the countryside, but we moved to a bigger house because the previous owner was getting impatient for it to be sold, so he crashed the price. This new house was in a pretty deep part of the forest, and I read that Native Americans lived in this area about 14,000 years ago.           A couple months after we moved in, I decided to explore the forest. I never really found anything interesting, until one day. I went further in the forest then I have ever been before. I found an old, dilapidated, log cabin. I would have went in the house the same day I discovered it, but I had no necessities on me at the time.
+I came back to the house after 2 days with a Swiss army knife, about 1 liter of water, and a thick jacket. I noticed some candle holders that were sunken into the ground. Oddly enough, one of the candles looked like it had been recently lit, with some wax that seemed to have run off. I entered the house, and everything seemed normal.
+That is, until I saw something that stuck out. There was an attic to this house. I was afraid to enter the attic, but I entered anyways. Once I got to the attic, I saw something horrifying. It was a terrible effigy with the legs of a goat, antlers of a buck, but the most horrible part was the torso of a human. I threw up at the smell in this room, and passed out.
+ I don't know how long I was asleep for, but I immediately ran out of the cabin, even though it was dark out. I could roughly make out new markings on the trees- it seemed to be symbols, but I couldn't understand them. I got back to my home and it was then that I noticed I was bleeding at my chest. I was bleeding because i had a symbol that looked the same as the ones in the trees on my chest. 
 
-We were made to do that after a bet with some friends. It was me, my friend Millie, and my dog Loui. We were told to go to this forest in our local area, they said some weird shit happens there. Like some people go there at night and never return. They wanted to see if those rumours were true or not, so they made a bet to us that we were to go there and see if we come back in one piece, and then we would tell them what happened, they also told me to bring my dog Loui because they thought he would be useful for whatever may be in these woods. 
-
-Once we drove there, we could already tell we were in for a treat. It was 11pm once we got there, and This place looks like a picture you would find when looking up a creepy forest on the internet. While we were walking, we were not expecting it to be this cold at night, I should have checked the temperature before going out. But Loui does not mind though, dogs are lucky to have a fur coat. 
-
-We have been here for ten minutes, and we have not found anything unusual, that was until we heard something. A sound of something big stepping on some sticks. This caught Loui's attention and ran towards where the sounds he heard might have been. We tried chasing after him, but we lost track of him and had no idea where he went. 
-
-We have been looking for Loui for an hour now. We have been calling his name many times but to no effect. Then we heard distant barking that sounded like Loui. me and Millie ran towards the barking. As we got closer the barking stopped. 
-
-We found Loui. 
-
-But he was lying limp on the grassy floor bleeding and covered in scratches. he was barely breathing. That barking was not him. 
-
-In the distance, was something neither human nor animal. 
-
-It was around ten feet tall; it was skinny with human looking skin and its face looked like a wolf’s skull.  
-
-It looked straight at us and started walking towards us.  
-
-Millie grabbed Loui and we ran faster than we did in our lives. We got into the car and drove off. the back seats were covered in blood, but as much as Loui tried to stay strong during the amount of pain he was in, he sadly did not make it. 
-
-  
- 
-
-**AFTERMATH.** 
-
-  
- 
-
-Loui is buried in my garden, and we told our parents that he was attacked by a bear, because they would probably not believe what we saw that night. when we saw our friends, we also did not say anything other than Loui being attacked by a bear and dying. That creature has been stuck in my head for months now. And all I can see in my head at night is just that thing, and staring at me with its dark, hollow eyes.
+I took a shower and fell asleep until the morning. My family told me that they're going to the store, but I told them that I wouldn't be going. I spent most of the day inside on my phone, but every now and then I saw something dart across the yard. I finally put up my phone when I heard a loud, bellowing screech outside. 
+It wasn't like any other animal I had heard in the woods. I opened my blinds to find a horrifying creature about 20 feet away. It looked similar to the effigy I saw earlier except  this creature had a hood over where it's head was supposed to be. It looked at me and I saw its eyes, but no head. Just an empty black void. 
+It screeched one more time before returning back to the woods, and it shook the ground with every step. I told my family over the phone that I would be moving out immediately.
