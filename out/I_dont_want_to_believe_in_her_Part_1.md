@@ -1,3 +1,7 @@
+[PART 2](https://www.reddit.com/r/nosleep/comments/194ajv7/i_dont_want_to_believe_in_her_part_2/?utm_source=share&utm_medium=web2x&context=3)
+
+&#x200B;
+
 I'd like to share an experience I had a few years ago when I visited the city of Ica, Peru.
 
 At that time, I wasn't going through the best moment in my life. College hadn't welcomed me with the smile they always promise to newcomers, and I was still recovering from the trauma left by the day my family's car overturned on the road.
