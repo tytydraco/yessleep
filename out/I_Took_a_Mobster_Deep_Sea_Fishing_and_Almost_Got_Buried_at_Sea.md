@@ -8,7 +8,7 @@ He looked like some kind of mobster: short, stocky, with dark curly hair and a m
 
 He brought on a huge cooler with over 100 lbs of chum in it. He was after sharks, and chum is chopped-up meat used to attract them to the area where you can then hook them with your reel. You just dump it in the water, and the sharks can smell it, supposedly from miles away.
 
-He had a rod and reel that I recognized as professional-grade for sport fishermen, which was fully capable of catching sharks up to 800 lbs. Once on board, he’d have to use my crane to hoist it up and on board.
+He had a rod and reel that I recognized as professional-grade for sport fishermen, which was fully capable of catching sharks up to 800 lbs. Once he had one hooked, he’d have to use my crane to hoist it up and on board.
 
 On the way out, the man kept staring at me with his cold, dead eyes. The expression and gaze he possessed were unsettling and actually made me slightly paranoid. I had never before encountered someone like that, someone whose very presence made my skin crawl. He kept coming up behind me in the wheelhouse while I was at the helm. He’d just stand there saying nothing.
 
