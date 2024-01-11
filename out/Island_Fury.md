@@ -1,6 +1,6 @@
 &#x200B;
 
-*The following document was written by Peter LaRoche and was found during the Boggs International survey of the island of Kuen-Yuin. (11.5462° N, 162.3522° E)*
+*The following document was written by Peter LaRoche and was found during the Boggs International survey of the island of Kuen-Yuin.*
 
 \*\*\*
 
