@@ -186,11 +186,11 @@ Others wondered why he didn’t kill himself a long time ago. It seemed he had n
 
 But, stubbornly, he clung to life and stuck to the exact same routine year after year. Everyone watched as his health slowly declined, his teeth rotted, his hair fell out—in the last weeks before we decided to ask him for an interview, his skin, eyes, and nails had turned a sickly yellow.
 
-Hilary recognized the signs of liver failure from health class and knew Alfred was dying—if we wanted to speak with him, we knew it would need to be soon. We thought we might inquire with Mr. Phillips to see if he could leave a message with Alfred that we were trying to do a report on his story, the real story; that we had new information to share with him as well.
+Hilary recognized the signs of liver failure from health class and could tell Alfred was dying—if we wanted to speak with him, we knew it would need to be soon. We thought we might inquire with Mr. Phillips to see if he could leave a message with Alfred that we were trying to do a report on his story, the real story; that we had new information to share with him as well.
 
 But we were too late.
 
-After school one afternoon, we went to the auto shop and Mr. Phillips told us that Alfred had collapsed while working the previous day—he’d been taken to the hospital and had died just hours before we arrived. He’d only just received word himself that Alfred didn’t make it.
+After school one afternoon, we went to the auto shop and Mr. Phillips told us that Alfred had collapsed while working the previous day—he’d been taken to the hospital and had died mere hours before we arrived. He’d only just received word himself that Alfred didn’t make it.
 
 We left, disappointed at first that we may not get a satisfactory end for our story, but Hilary had an idea.
 
@@ -206,9 +206,9 @@ I had to agree that she was right. We’d been working on the story for months, 
 
 &#x200B;
 
-Dusk was already falling, so we ran home to grab flashlights and each told our parents that we were heading to the library to work on our article. We’d done this many times before, so they raised no suspicions, and merely asked that we be back by 9pm as it was a school night.
+The sun was already setting, so we ran home to grab flashlights and each told our parents that we were heading to the library to work on our article. We’d done this many times before, so they raised no suspicions, and merely asked that we be back by 9pm as it was a school night.
 
-And that’s how we ended up standing on Alfred Mitchell’s porch, just as the sun set, reading the words, *Don’t look at them,* carved into his front door.
+And that’s how we ended up standing on Alfred Mitchell’s porch as dusk fell, reading the words, *Don’t look at them,* carved into his front door.
 
 “Well go ahead.” Hilary nudged me forward.
 
@@ -302,7 +302,7 @@ I picked it up, sat on the bed, and cracked it open—taking photos of the pages
 
 *Around 2am, I awoke to a loud bang from downstairs and realized that Elizabeth was no longer next to me. I ran down to the girls’ room and saw they were missing from their beds too. Sprinting downstairs I saw that the basement door was wide-open and felt for the key around my neck—it was still there, but the deadbolt had unlocked itself.*
 
-*I charged down the stairs as quickly as I could, yelling for Elizabeth and the girls, screaming at them to stay away from the hole, but I was too late. The hole was wider than ever, wide enough that all three of them would be able to fit into it at once.*
+*I charged down the stairs, yelling for Elizabeth and the girls, screaming at them to stay away from the hole, but I was too late. The hole was wider than ever, wide enough that all three of them would be able to fit into it at once.*
 
 *Elizabeth turned to me and said, “It’s okay, it’s nice. It just wants to meet us,” before taking the hands of Maggie and Marcy on either side of her, and leaping in with both of them.*
 
@@ -382,7 +382,7 @@ I picked it up, sat on the bed, and cracked it open—taking photos of the pages
 
 *I heard what sounded like plates being set at the table and walked down to the dining room to see “Elizabeth” sitting “the girls” down to eat.*
 
-*I shut my eyes as quickly as I could and just listened. Elizabeth said, “Come join us Alfie.” The girls added on, “Yea daddy, come sit with us!”*
+*I shut my eyes immediately and just listened. Elizabeth said, “Come join us Alfie.” The girls added on, “Yea daddy, come sit with us!”*
 
 *In my head, I knew it wasn’t them asking for me, but in my heart, for just a moment, I had my family back.*
 
@@ -424,7 +424,7 @@ My heart leapt into my throat—I had been so engrossed in Alfred’s story that
 
 “Hilary?” I desperately sputtered, hoping that she’d snuck passed me when I was reading.
 
-*“Who are you?”* A woman’s voice I did not recognize whispered in my ear—I felt her breath on my face.
+*“Who are you?”* A woman’s voice I did not recognize whispered in my ear—I felt her breath on my cheek.
 
 I spun around and saw black eyes—a hollow face. Elizabeth’s features were recognizable from the photos on the nightstand, but the woman before me looked wrong—so wrong.
 
@@ -440,7 +440,7 @@ Where was she? I hadn’t heard anything from her since I left her downstairs.
 
 “HILARY?! We have to go, now!”
 
-I ran as quickly as I could down the stairs, all the while behind me I could hear the Mitchell women. *“Where are you going new friend? Stay with us awhile. It’s hungry, and Alfred hasn’t been home for days.”*
+I flew down the stairs; all the while behind me I could hear the Mitchell women. *“Where are you going new friend? Stay with us awhile. It’s hungry, and Alfred hasn’t been home for days.”*
 
 ‘Don’t look at them, don’t look at them,’ I chanted in my head as I continued to sprint through the house.
 
@@ -456,7 +456,7 @@ When I made it to the bottom step, she was nearly to the edge. I was running acr
 
 I knew what was coming next. She turned back and stepped to the edge of the abyss—I dropped my flashlight and dove, managing to grab her around the ankles just as she was trying to leap.
 
-She kicked me in the face, screaming for me to let her go, to let her go meet the voice, but I held as tightly as I could and pulled her so that she fell backwards on top of me. Thankfully, when she landed, she snapped out of it.
+She kicked me in the face, screaming for me to let her go, to let her go meet the voice, but I held tightly and pulled her so that she fell backwards on top of me. Thankfully, when she landed, she snapped out of it.
 
 “Sam…Sam is that you? I can’t see shit, where am I?!” She asked.
 
@@ -464,7 +464,7 @@ She kicked me in the face, screaming for me to let her go, to let her go meet th
 
 “Holy shit…is that…?”
 
-“Yes, it’s the hole—it’s real. And it’s why we need to get the fuck out of here!” I pulled her forward and towed her as quickly as I could back up the basement steps. But, when we reached the first floor, Elizabeth, Maggie, and Marcy were blocking the front door.
+“Yes, it’s the hole—it’s real. And it’s why we need to get the fuck out of here!” I pulled her forward and towed her feverishly back up the basement steps. But, when we reached the first floor, Elizabeth, Maggie, and Marcy were blocking the front door.
 
 *“What’s the matter? Don’t you want to join us? It wants you, Hilary.”*
 
