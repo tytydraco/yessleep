@@ -1,0 +1,25 @@
+I do know how this will all sound, really I do, but I feel like someone else knowing about it will be somewhat of a relief.
+
+So the thing is, since I was an early teen I've been aware of and hear the "studio audience".  Yes, the studio audience that interacted live with a performance at early TV recordings.  The studio audience that was later replicated with "laugh tracks".  That studio audience.  I'm not saying I'm imagining or hallucinating a studio audience.  I'm saying that I hear *the* studio audience.  I have my own reasons for knowing this is real. But in any case just like a sighted person wouldn't care if a blind person denied the existence of sight, I know the studio audience is real and I hear them all the time.
+
+I don't know why no one else can hear them.  I don't think I'm special, quite boring really.  Maybe it's some sort of error in the universe, maybe it's an experiment. I used to be quite interested in figuring out what exactly was going on and what it meant regarding how the universe works. I would walk around the room and try to find the direction where the sound of the audience was loudest.  I would try to estimate the audience size from the loudness of the laughing or applause.  I kept records on the times of day what the audience was most active.  Who was in the room with me when they were most active. Etc, etc.
+
+But my curiosity is gone now.  Not in a hopeless sort of way, but when something becomes so commonplace it's hard to be curious about it. Thinking of gravity as a thing that needs explaining was an amazing insight by Newton.  I'm pre-Newtonian regarding the whole studio audience thing.  It's too normal at this point to feel like it needs an explanation.
+
+So what's it like?  It's exactly what you'd expect.  Whatever sort of thing would cause a reaction in a TV show also elicits the same sort of reaction from the "studio audience".  Something silly happens: laughter.  Something cheeky: oooooooh.  Something shocking: a sharp intake of breath.  Something laudable: a solid applause.
+
+Mostly this happens when I'm with other people in social situations. But it does happen to a lesser extent when I'm alone. Sometimes I do things when alone that are the sort of thing that is of interest to a studio audience, I guess.
+
+I mentioned casually to someone early on something about the studio audience and had an immediate and certain insight based on their look that this was something unique to me and that it was absolutely something that would make me seem like a lunatic so I played it off as a joke and never mentioned it again.  I try to guess based on behavior whether others around me are hearing it but so far I've never had a sense that anyone else was dialed into that particular frequency.
+
+You might think I'd find it intrusive and violating but honestly I sort of like the attention. I don't get the sense that I'm especially beloved by the studio audience or that I'm the star.  But it's nice to be noticed and appreciated in a way.  One weird aspect is that sometimes there is an applause when I enter the room.  This feels like it is the beginning of an "episode".  I've never really figured out what episodes correlate to in my life or in the world but sometimes it is the beginning of an episode and this is just another form of timekeeping in my life.  Hours roll by, weeks pass, calendar pages turn and "episodes" come and go.
+
+I would be lying if I didn't say that I do sometimes say things or act in a way that I know will get a reaction from the audience.  Is that bad?  Why do I care what they think?  Maybe it's dumb but like I said it's nice to get a reaction and be noticed.
+
+Even when the audience is quiet I can definitely sense they are there but just not reacting.  Mostly I ignore this.  It doesn't feel invasive like I'm being watched it just feels like they are not really paying attention.  Maybe they are checking their phones or using the bathroom.  Interestingly, I definitely get the sense that the audience changes sizes.  The audience members come and go.  This only seems weird when the audience is down to one individual.  Then the laughs and claps and what have you seem very personal.  From the sound of his laugh (definitely a man) I can tell it's always the same individual.  So I guess he lives in the studio audience?
+
+Also I swear sometimes I hear him making scratching noises like he's taking notes.  Fortunately he's not by himself that often.
+
+Okay, now that I've told you all that, I have a small confession. Don't be mad, but the single audience member guy does whisper things to me sometimes and he told me that if I made enough others aware of the studio audience then they would start to sense and hear the studio audience too.  The key is to listen carefully in quiet moments. With practice you'll get better at hearing them until you hear them all the time.  He said that knowing about the studio audience will be enough to get you to start hearing it.  He's excited to meet you. Now you will never be alone again!
+
+Listen carefully, it's already begun.
