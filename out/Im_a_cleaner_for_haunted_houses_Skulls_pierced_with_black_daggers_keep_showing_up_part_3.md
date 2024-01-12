@@ -361,7 +361,7 @@ Lost one round but the price wasn’t anything.
 A knife in the back and more of the same.  
 
 
-“Like a stream locomotive,  
+“Like a steam locomotive,  
 Rolling down the track,  
 He’s gone,  
 He’s gone,  
