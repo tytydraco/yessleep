@@ -1,6 +1,6 @@
 No, this is not a joke. 
 
-It’s not that I’m not funny either, my mom thinks I’m hilarious, which is obviously an infallible testament to my abilities. This wasn’t one of those situations where I started with a full crowd and by the middle of my rant on airplane food, they all got up and left, leaving me on stage covered in tomatoes and with a slightly more deflated ego. No, when I say I delivered my most recent set to any empty room, I mean it, that’s literally what I did from start to finish. That’s what I was *told* *to do*.
+It’s not that I’m not funny either, my mom thinks I’m hilarious, which is obviously an infallible testament to my abilities. This wasn’t one of those situations where I started with a full crowd and by the middle of my rant on airplane food, they all left, leaving me on stage covered in tomatoes and with a slightly more deflated ego. No, when I say I delivered my most recent set to any empty room, I mean it, that’s literally what I did from start to finish. That’s what I was *told* *to do*.
 
 “You want me to do what?” I lowered my water bottle, staring up at the man who’d just delivered the news. Argyle, the event coordinator. The only way to describe Argyle is to say his parents made the right decision when naming him. 
 
@@ -80,7 +80,9 @@ I went on like this for a while, joke after joke after joke, burning through my 
 
 I felt like it did matter, which is why I forced myself to keep going, my eyes scanning each tabletop, as if they were trying to find anything remotely humanesque. But, of course, they found nothing. No one. My heart was still beating like a jackhammer, and my teeth still chattered as I talked. Even though objectively speaking the room really was empty, I still felt like I was being watched. It wasn’t a good feeling. 
 
-*No wonder Spike Scotts suddenly became “unavailable”,* I thought as I moved into my closer. I’d met him a couple times, he was the one who originally suggested I perform at this club after seeing some of my material at an open mic event. Spike was one of the palest people I’d met in my life, with gaunt-like features that screamed malnourished. He was wearing this large dark green woolen coat over what I could only guess were half a dozen other layers. His teeth were chattering too. 
+*No wonder Spike Scotts suddenly became “unavailable,”* I thought as I moved into my closer. 
+
+I’d met him a couple times, he was the one who originally suggested I perform at this club after seeing some of my material at an open mic event. Spike was one of the palest people I’d met in my life, with gaunt-like features that screamed malnourished. He was wearing this large dark green woolen coat over what I could only guess were half a dozen other layers. His teeth were chattering too. 
 
 I thought he was a Make a Wish kid when he first approached me, but it turned out the dude was a 40 year old comedic veteran. All my friends in comedy told me he was a big deal even though I’d never heard of him before. 
 
