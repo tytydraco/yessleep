@@ -38,7 +38,7 @@ My son told the clown. Yeah I’m gonna be. 7 years old soon when the clown said
 
 My son‘s birthday is in a few days I feel like Henry’s gonna show up on his birthday and only God knows what he will to us
 
-(update)
+**(update)**
 
 Ok so where we last left off Henry silly face was stalking my son 
 
