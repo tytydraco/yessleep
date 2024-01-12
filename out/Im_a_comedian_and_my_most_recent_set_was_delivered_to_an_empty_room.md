@@ -1,8 +1,12 @@
-No, this is not a joke. It’s not that I’m not funny either, my mom thinks I’m hilarious, which is obviously an infallible testament to my abilities. This wasn’t one of those situations where I started with a full crowd and by the middle of my rant on airplane food, they all got up and left, leaving me on stage covered in tomatoes and with a slightly more deflated ego. No, when I say I delivered my most recent set to any empty room, I mean it, that’s literally what I did from start to finish. That’s what I was *told* *to do*.
+No, this is not a joke. 
 
-“You want me to do what?” I lowered my water bottle, staring up at the man who’d just delivered the news. Argyle, the event coordinator. The only way to describe Argyle is to say his parents made the right decision when naming him. With his frizzy red ponytail and hippie fit, he looked like he’d been booted off a concert tour in the 70s and survived on nothing but gas station food from that point onward. 
+It’s not that I’m not funny either, my mom thinks I’m hilarious, which is obviously an infallible testament to my abilities. This wasn’t one of those situations where I started with a full crowd and by the middle of my rant on airplane food, they all got up and left, leaving me on stage covered in tomatoes and with a slightly more deflated ego. No, when I say I delivered my most recent set to any empty room, I mean it, that’s literally what I did from start to finish. That’s what I was *told* *to do*.
 
-“I said,” Argyle repeated, crouching down next to the couch I was sprawled on. “The boss man wants you to perform your set at 2:00. What’s the problem here?”
+“You want me to do what?” I lowered my water bottle, staring up at the man who’d just delivered the news. Argyle, the event coordinator. The only way to describe Argyle is to say his parents made the right decision when naming him. 
+
+With his frizzy red ponytail and hippie fit, he looked like he’d been booted off a concert tour in the 70s and survived on nothing but gas station food from that point onward. 
+
+“I said,” Argyle repeated, crouching down next to the couch I was sprawled on. “The boss man wants you to perform at 2:00. What’s the problem here?”
 
 I frowned. “What? But you said I can do 10:00, right after McKinley finishes his gig. If you wanted me at 2:00 why call me five fucking hours early?” 
 
@@ -50,13 +54,13 @@ I thought the club owners were playing some weird prank on me, maybe there would
 
 But that wasn’t the case at all, seeing as the room really was empty. The tables and the chairs were all neatly put back in place. The staff were all gone too. What was especially strange, however, was that the lights were dimmed down more than normal. Candles were all that graced the otherwise clear tabletops, their soft luminescence barely illuminating anything. 
 
-“Good luck, kid,” I heard Argyle say. He slapped me on the back. “Just treat it like any other show, don’t be boring, because if you aren’t funny… well. Never mind, it doesn’t matter. You’re going to kill it in there.  ” 
+“Good luck, kid,” I heard Argyle say. He slapped me on the back. “Just treat it like any other show, don’t be boring, because if you aren’t funny… well. Never mind, it doesn’t matter. You’re going to kill it in there.” 
 
 “Sure, thanks.” My mouth had gone very dry. “Wait, but Argyle--”
 
 But Argyle was gone. I looked around, baffled. Weird. I glanced at my watch. *1:59*. I really wanted the 100 bucks, so I guess I didn’t have a choice. With a deep breath, I took a step forward, toward the stage.
 
-Usually I’d be met with a spattering of totally deserved applause, but I was obviously met with nothing this time. I’d probably die on the spot though if I heard something even as benign as a cough. 
+Usually I’d be met with a spattering of totally deserved applause, but I was met with nothing this time. I’d probably die on the spot though if I heard something even as benign as a cough. 
 
 “Hello, hello, hello,” I said once I reached the mic. “Big turnout this evening, huh?”
 
@@ -86,7 +90,9 @@ Yet he wanted me here. Something told me Spike never intended for me to perform 
 
 *Hahahahaha.*
 
-I bowed, pretending the room had burst into applause yet again and I left, my stomach roiling with an odd mixture of both fear and, weirdly, *excitement*. I packed up my backpack in the breakroom, panting heavily as I did, and slung it over my shoulder. I then exited the club, escaping into the biting night, presumably $100 richer. I was just about to turn the corner when I noticed something, however, something that prompted me to share this story with all of you. Something horrifying.
+I bowed, pretending the room had burst into applause yet again and I left, my stomach roiling with an odd mixture of both fear and, weirdly, *excitement*. I packed up my backpack in the breakroom, panting heavily as I did, and slung it over my shoulder. 
+
+I then exited the club, escaping into the biting night, presumably $100 richer. I was just about to turn the corner when I noticed something, however, something that prompted me to share this story with all of you. Something horrifying.
 
 *Ping*. My heart still beating wildly, I tore my eyes away from the large dumpsters just behind the club, from what I’d just seen, and looked down at my phone. It was a message from Argyle.
 
