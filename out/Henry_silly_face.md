@@ -36,4 +36,4 @@ My son told the clown. Yeah I’m gonna be. 7 years old soon when the clown said
 
  my son, who did not know much at the time about Henry, silly face, my son agreed and told him where we live 
 
-My son‘s birthday is in a few days I feel like Henry’s gonna show up on his birthday and do God knows what to us
+My son‘s birthday is in a few days I feel like Henry’s gonna show up on his birthday and only God knows what he will to us
