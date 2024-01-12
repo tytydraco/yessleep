@@ -8,7 +8,7 @@ And at the party I was eating some mediocre, Pizza when Henry silly face walked 
 
 Henry silly face, said why don’t you like clowns I told him I think they’re kind of stupid. Henry looked at me and furiously whispered you’re a bad kid don’t you know that
 
-He didn’t walked away. I was kind of weirded out by this, but I didn’t want to ruin the party so I kept it to myself and when it was time for us to open presents 
+He then walked away. I was kind of weirded out by this, but I didn’t want to ruin the party so I kept it to myself and when it was time for us to open presents 
 
 Charlie’s mom has anyone seen Charlie because apparently he disappeared I thought to myself that Henry was talking a lot to Charlie so I thought that maybe Henry took him
 
