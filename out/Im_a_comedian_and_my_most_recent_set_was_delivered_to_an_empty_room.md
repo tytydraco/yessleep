@@ -88,7 +88,7 @@ I thought he was a Make a Wish kid when he first approached me, but it turned ou
 
 Yet he wanted me here. Something told me Spike never intended for me to perform at 10:00 PM to a full house but to an empty one at 2:00 AM instead.
 
-“And that’s why 9/11 wasn’t completely Al-Qaeda's fault,” I concluded, finally. “No, no, no, it was United’s, for serving the worst meals known to mankind--even terrorists. Thank you, thank you.” 
+“And that’s why 9/11 wasn’t completely Al-Qaeda's fault,” I concluded, finally. “No, actually, it was United’s, for serving the worst meals known to mankind--even terrorists. Thank you, thank you.” 
 
 *Hahahahaha.*
 

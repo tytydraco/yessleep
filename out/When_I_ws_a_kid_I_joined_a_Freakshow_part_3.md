@@ -10,7 +10,7 @@ After my first performance, and after the drunks disappeared into the funhouse, 
   
 “France?” I asked him. He gave me an excited nod and quickly shoved a brochure into my hand, almost knocking the shapeshifter from my shoulder. The little guy in his panic turned into a snake and quickly coiled around my neck to keep himself from falling. It got a little surprised gag from me but nothing further.   
   
-“We just have to pick up the final members of our little family and we can show you an amazing time, Benny!” he said with excitement as he quickly rushed past me to help the twins load their items onto one of the storage cars.   
+“We just have to pick up the final members of our little family and we can show you an amazing time, Benny!” he said with excitement as he quickly rushed past me to help the twins load their items onto one of the storage cars. Garibaldi walked up to the engine car and looked like he was talking to someone. I assumed it was the conductor or the train engineer. I couldn’t exactly see Garibaldi being allowed to ride a bicycle, much less a whole train.   
   
 “Oh God, did he say we’re going to France?” Nikolai asked as he sat a wooden crate down next to me. I looked up at him and nodded, showing him the brochure that Garibaldi had given me. The look his scarred and burnt face gave me sent my gaze quickly back down to the ground to avoid it. “I thought the boss had finally ditched that French freak and his stupid gremlins.” He stabbed the brochure with one of his knives and chucked it as hard as he could against a nearby tree, pinning it there.   
   
@@ -41,6 +41,10 @@ She bowed her head down at me slightly and backed up a bit before it seemed like
 I closed the door to my cabin and went back over to the bed. I sat down and stared down at the necklace, playing with the emerald stone as her warning played around in my head. This was the second time she’d mentioned a mantis. She’d mentioned it the first time she’d read my palm and now again. Was it a warning about the final freakshow member waiting for us in France? I played around with the thought in my head before a sudden squawking from my desk pulled me out of my deep thoughts.   
   
 My shapeshifter friend was a parrot, the last thing I asked him to turn into, and he pecked at my incomplete list. Smiling back at him, I let the emerald drop back down to my chest and quickly hurried over to finish brainstorming ideas for my next act. Any thoughts of mantises were quickly forgotten in the excitement over my brainstorming session.   
+  
+Finding my legs growing restless, I picked up my shapeshifter friend and had him coil around my throat in his snake form. I exited my cabin and started walking in no particular direction down the train’s halls. I was planning just to stretch my legs out for a moment and there wasn’t any better way of doing this than just walking. Soon I reached the door that led to the next cart and without a second thought, I opened it and walked in. And I immediately regretted my decision when I came face to faces with Bandwagon.   
+  
+It was sitting there in the dimly lit cart with its instruments still in the places where it had had them during the performance. The mass of flesh and faces writhed a little at my intrusion of its privacy. But it didn’t say anything. And I think that was scarier than if it had screamed or roared at me. Its dead silence with only the faint sounds of musical instruments terrified me and I screamed as loudly as I could, quickly shutting the door and running full sprint back into my room. The only thing that kept me from having a panic attack was my shapeshifter friend turning into a puppy and licking my face. Giggling and calming down I patted his head softly and thought that I would do everything I could to avoid Bandwagon.    
   
 I had a few more visitors over as the train continued to chug along toward our destination. Santiago was next as we both told jokes to each other and he had fun watching my friend turn into whatever small animal the clown could think of. Abigail came to join us with food from the dining cart. Garibaldi’s rule about eating together was usually not observed while traveling so we were allowed to eat in our rooms. Nikolai was my final visitor as he had grown bored in his room and decided to join me. Mostly because Santiago had refused to leave my room.   
   
@@ -110,6 +114,8 @@ Mathieu wordlessly nodded at Garibaldi and the ringmaster led me back to my room
   
 “I can’t wait to see it! We should be arriving at our next destination soon. All we’ll have to do is pitch up our tents and we’ll be all sent! Keep thinking up some ideas in the meantime! I can’t wait to see them!” he said with giddy excitement as he hopped and skipped his way out of my room. The whole interaction got a good laugh out of me and I sat down on the bed with my raven friend still perched protectively on my head. I looked down at the good luck charm that Izara had given me and smiled. Maybe it had brought me good luck after all.   
   
+I took the opportunity to try and take a nap until we reached our destination.   
+  
 The train finally stopped after another half an hour and we all disembarked and began to unload the train once again. Even though it felt like we had only just packed everything up, I didn’t complain much at all. The shapeshifter took the form of a snake again and hung around my neck while I helped unload the crates.   
   
 As I helped open some of them and handed out a few items needed to raise the big top I snuck a glance over toward the fourth car and watched as Mathieu exited followed quickly after by the Aces and Starla. The Aces did all the unloading which brought a smile to my face as I watched all of them give their boxes to Hearts as the big tower of boxes soon came to be even taller than he was. And yet the little guy effortlessly waddled along with this giant load of boxes and followed after his similarly dressed friends as they led him to the location to drop them off.   
@@ -136,8 +142,19 @@ Thanking them all I watched as they all quickly went back to work unloading thei
   
 “Why’s everyone stopped working?” Garibaldi asked in confusion as he stepped down from the train engine. We all looked over at him and then parted so he could see the strange crate that had us all confused. At first, he looked just as confused as us before his face suddenly lit up in absolute excitement. “Oh, it’s finally here!” he practically screamed, shoving us all out of the way to get to it.   
   
-“Who’s it from, sir?” I asked him as he quickly ran to the crate and started looking for some way to open it.   
+As he did so I finally got a view of the mystery conductor/engineer. And I instantly ran to hide behind Abigail, causing a surprised jolt out of her. Standing at the door up to the engine car was a corpse. Rotted and infested with maggots the only thing to show that he was supposed to be there was a little conductor hat placed on his skeletal head. It looked over at me and raised an arm to the hat, taking it off and tipping it to me.   
   
-“It’s from my best friend in the whole wide world! King Creole!” he said in giddy excitement. I scratched my head at that but everyone in the freakshow suddenly had looks of complete fear.   
+I let out a blood-curdling scream when I laid eyes on the rotting corpse. I was able to keep some sort of composure around the Bandwagon, but to see a full-on human corpse was just too much for me. I fell to the floor and cried out in fear at the body. My screams were enough to pull everyone’s attention from the mystery crate over to me.   
   
-“Who’s that?” I asked, just as the box began to shake about and rapid knocking could be heard from inside it.   
+“Benny! It’s okay, sweetie.” Abigail told me as she quickly fell to her knees with me and wrapped her arms around me, shoving my face into her chest. “You don’t want to see this part.” She told me softly as a sudden noise of falling pieces and rattling objects hitting metal filled my ears.   
+  
+Peeking from out behind Abigail I saw that the corpse had completely fallen apart into just a pile of bones and meat. The maggots still squirmed and writhed around in the pile, more than happy to continue their feast as they did so.   
+  
+“That part doesn’t ever get any easier,” Edgar said with a slight shiver through his and Alan’s boy. Taking some deep breaths like Abigail told me to I finally started to calm down, and pull my attention away from where the walking corpse conductor had been. I pulled my attention back over to the mystery Crate, where Garibaldi who had not so much as looked in my direction after I had screamed was still jumping around the box and making strange chirping noises at it.   
+  
+“Who’s it from, sir?” I asked him through teary eyes and a few hiccups. He looked over at me with wild excitement in his eyes and a violent twitch from his head.   
+  
+“It’s from my best friend in the whole wide world! King Creole!” he said in giddy excitement. I scratched my head at that but everyone in the freakshow suddenly had looks of complete fear.  
+  
+“Who’s that?” I asked, just as the box began to shake about and rapid knocking could be heard from inside it.  
+  
