@@ -123,4 +123,4 @@ One tube didn’t lead from a sleeper pod but it led to a very enlarged pod that
 
 I noticed that from these hundreds of thousands of pods of sleepers, I was the only one sitting up. I looked back at the big pod and saw a man looking at me through binoculars. I hear a sound and smell a faint gas enter the pod. 
 
-I close my eyes for another little nap.
+I close my eyes for another little nap. I wake up in my bedroom with my parents intently watching over me...concealing the faintest grin.
