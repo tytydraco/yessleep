@@ -2,15 +2,15 @@ I used to work as a flight attendant back in 1994 but I had to quit after three 
 
 I'd like to share with you the reason why I quit because I need your help, so please, let me tell my story...
 
-Anyway, It was the summer of 94, when I was hired as a flight attendant for a major airline.
+It was the summer of 94, when I was hired as a flight attendant for a major airline.
 
 I was ecstatic as this was my dream job.
 
 During my first week there, I made friends with the other flight attendants. I had become especially close to 2 of the flight attendants, Mandy and Tasha.
 
-During our layovers, we often shared a hotel room for safety reasons. Mandy was the social one while Tasha was more reserved and I, was in between. The 3 of us became inseparable.
+On our layovers, we often shared a hotel room for safety reasons. Mandy was the social one while Tasha was more reserved and I, was in between. The 3 of us became inseparable.
 
-Anyway, it was during my 2nd month there, that Tasha went missing. The police were called in and her parents even hired a private investigator but to no avail.
+My 2nd month there, that Tasha went missing. The police were called in and her parents even hired a private investigator but to no avail.
 
 After Tasha went missing though, inexplicable things began to happen on the plane.
 
@@ -24,7 +24,7 @@ Even the cleaning crew claimed to see a flight attendant inside the plane while 
 
 Soon the rumors began to swirl that the plane was haunted and afterward some of the employees quit their jobs.
 
-Anyway, it all came crashing down on the night of August 9th, 1994.
+It all came crashing down on the night of August 9th, 1994.
 
 After experiencing some major turbulence, the passengers and crew finally settled down with most of them asleep at that time.
 
@@ -50,7 +50,7 @@ That's when the plane began to free fall.
 
 You could hear all the passengers as they began to pray.
 
-Anyway, Tasha began to lift John off the ground.
+Tasha began to lift John off the ground.
 
  "I"m sorry!" he shouted.
 
@@ -62,7 +62,7 @@ During his trial, it was revealed that he was having an affair with Tasha.
 
 The night she was murdered, she revealed to him that she was pregnant. Tasha threatened to tell his wife about the affair and so, he murdered Tasha in a fit of rage.
 
-Anyway, as the police were hauling John off I spotted Tasha standing near the front of the plane. Soon enough though, she faded away.
+As the police were hauling John off I spotted Tasha standing near the front of the plane. Soon enough though, she faded away.
 
 I quit the following day.
 
