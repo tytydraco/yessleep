@@ -2,21 +2,21 @@ I used to work as a flight attendant back in 1994 but I had to quit after three 
 
 I'd like to share with you the reason why I quit because I need your help, so please, let me tell my story...
 
-It was the summer of 94, when I was hired as a flight attendant for a major airline.
+It was the summer of 94 when I was hired as a flight attendant for a major airline.
 
 I was ecstatic as this was my dream job.
 
 During my first week there, I made friends with the other flight attendants. I had become especially close to 2 of the flight attendants, Mandy and Tasha.
 
-On our layovers, we often shared a hotel room for safety reasons. Mandy was the social one while Tasha was more reserved and I, was in between. The 3 of us became inseparable.
+On our layovers, we'd often shared a hotel room for safety reasons. Mandy was the social one while Tasha was more reserved and I, was in between. The 3 of us became inseparable.
 
-My 2nd month there, that Tasha went missing. The police were called in and her parents even hired a private investigator but to no avail.
+My 2nd month there, when Tasha went missing. The police were called in and her parents even hired a private investigator but to no avail.
 
 After Tasha went missing though, inexplicable things began to happen on the plane.
 
 Like one time during a red-eye flight to Los Angeles, a passenger claimed that after a brief nap, he awoke to find a dark-haired flight attendant sitting in the seat next to him.
 
-Thinking she was taking a break, he tried to have a conversation only to have her vanish right in front of him and of course, this freaked him out 
+Thinking she was taking a break, he tried to have a conversation only to have her vanish right in front of him, and of course, this freaked him out 
 
 Another passenger was using the bathroom when she claimed she saw a hideous face in the mirror. She was hysterical and It took us 3 hours to finally calm her down.
 

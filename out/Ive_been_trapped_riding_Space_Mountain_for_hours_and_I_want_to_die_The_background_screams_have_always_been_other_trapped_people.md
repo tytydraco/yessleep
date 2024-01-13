@@ -4,7 +4,7 @@ I’m sorry if this sounds addled. My brain is fried, and every churro I consume
 
 It started with that fucking Genie Pass that you buy through the Disneyland app. None of this subsequent insanity would have resulted if it weren’t for my acceptance of that initiating action. 
 
-So I flashed my phone at the entrance to the Lighting Lane and it glowed purple. The damn Disney carney shot a smile and told me that I qualified for the “Club 33 treatment,” whatever the hell that means, and took me through the back channel to get directly onto the car.
+So I flashed my phone at the entrance to the Lighting Lane and it glowed purple. The damn Disney carney shot a smile and told me that I qualified for the “Club 33 treatment,” whatever the hell that means, and took me through the back channel to get directly onto the car. It was just before closing, and i wasn't even sure we'd get on, but it must have been the final ride of the day.
 
 Don’t follow carneys into hidden rooms. Why did I have to learn that lesson the hard way?
 
@@ -24,7 +24,11 @@ I sure wish I were dead. Anything would be better than this horrifying hellscape
 
 Thankfully, I’m getting lightheaded. Endless hours of getting spun around on this horrible roller coaster have left me dizzy. I don’t know what they’ll do with my unconscious body, but I’m sure it will be ghastly.
 
-They shut down “It’s a Small World.” Maybe they’re installing it with new victims to power the animatronics because all the old ones died. I’m pretty sure “Rise of the Resistance” closes so often so that they can force-feed everyone who must be trapped in those stationary Storm Trooper displays. I don’t know. The only thing I can say for certain is that I’m in hell. 
+I'm pretty sure that one of the kids finally fell out of the ride in the last go-round. I heard something fly into the air, followed by a woman screaming about her son.
+
+They shut down “It’s a Small World.” Maybe they’re installing it with new victims to power the animatronics because all the old ones died. I’m pretty sure “Rise of the Resistance” closes so often so that they can force-feed everyone who must be trapped in those stationary Storm Trooper displays. At any rate, the employees were forcing an unconscious kid into what looked like a Star Wars prop uniform last time we passed through the station, and the woman screamed louder. 
+
+The only thing I can say for certain is that I’m in hell. 
 
 Okay, the ride’s starting up again. I don’t think I’ll be able to type coherently much longer. 
 

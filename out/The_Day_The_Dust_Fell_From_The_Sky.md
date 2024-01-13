@@ -22,7 +22,7 @@ Chaos began to brew as people were running for their lives.
 It wasn't long before the state police were called in to investigate the explosion and the CDC because of the dust.
 
 The dust-like substance was like nothing I'd seen before it had a peculiarly grainy texture and smelled pungent too.
-Anyway, it wasn't long before the people including the first responders who handled the dust began to fall ill.
+It wasn't long before the people including the first responders who handled the dust began to fall ill.
 
 Soon the theories began to swirl about its origin and of course, we would later learn that there was an explosion at the nearby research facility where we speculated the dust came from.
 
@@ -30,7 +30,7 @@ Not only was this dust affecting humans but pets too.
 
 All the pets that were exposed to the dust either got sick or died and even people in my hometown began to die too.
 
-Soon enough the dust began to take a life of its own and scientists from all over the world were brought in to study the dust even the military was brought in but to no avail.
+Soon though the dust began to take a life of its own and scientists from all over the world were brought in to study the dust even the military was brought in but to no avail.
 
 Eventually, my hometown was placed under quarantine until the scientists were able to learn more about the dust.
 
@@ -54,4 +54,4 @@ Eventually, the town was abandoned later becoming a ghost town.
 
 That was 45 years ago and except for the occasional urban explorer who'd gone missing, the town remained virtually forgotten.
 
-Anyway, a week ago, I found out that this major company wants to build a resort where my town used to be and I'm going back to make sure that doesn't happen...
+About a week ago, I found out that this major company wants to build a resort where my town used to be and I'm going back to make sure that doesn't happen...
