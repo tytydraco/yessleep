@@ -190,4 +190,6 @@ But at least I had something that might help him.  Something that gives just eno
 
 And then I walked off.[\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
 
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/195erdi/how_to_survive_college_so_much_for_the_steam/)
+
 [Visit the college's website.](https://alderrayne.com/)
