@@ -267,3 +267,7 @@ God bless!
 &#x200B;
 
 Sophie
+
+&#x200B;
+
+Update [Part 11](https://www.reddit.com/r/Helena_The_Doll_Clown/comments/195kwgk/silver_whispers_part_11/)
