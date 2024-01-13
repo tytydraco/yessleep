@@ -86,7 +86,7 @@ And just like that, I was three years old again, staring wistfully out a window 
   
 I'm sure it's obvious where this is going. I didn't do it. In fact, I did it worse.   
   
-A child, plagued with what I knew - the psychosis started earlier, without the aid of drugs. I was seen by more psychiatrists than I had been the first time around, on a cocktail of antipsychotics by the time I was 12. I was a lost cause. I created some decent art, but as I got older, I did art less and less, my emotional development was beyond stunted, and I got into harder drugs earlier. I died in an abandoned house on a dirty mattress when I was 19 years old, a dirty needle sticking out of my vein.   
+A child, plagued with what I knew - the psychosis started earlier, without the aid of drugs. I was seen by more psychiatrists than I had been the first time around, on a cocktail of antipsychotics by the time I was 12. I was a lost cause. I created some decent art, but as I got older, I did art less and less, my emotional development was beyond stunted, and I got into harder drugs earlier. I died in an abandoned house on a filthy mattress when I was 19 years old, a dirty needle sticking out of my vein.   
   
 That figure came back and wrenched me out of my body.   
   

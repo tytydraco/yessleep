@@ -74,7 +74,7 @@ Finally, the roaring from below stopped. I heard with dread and horror what Xavi
 Obizuth reached the top of the stairs. Her massive frame tried to squeeze through the threshold of the door like a trapdoor spider emerging from its tunnel. She gave a twisted, lunatic laugh.  
 
 
-“I’ll rip you limb from limb,” she screamed as she ripped one arm out of the door. The appendages writhing on the top of her head slid through behind her. We met eyes for a brief moment. She had eyes like a tiger, slitted and predatory. The irises shone with a silvery gleam.   
+“I’ll rip you limb from limb,” she screamed as she ripped one arm out of the door. The appendages writhing on the top of her head slid through behind her. We met eyes for a brief moment. She had eyes like a snake, slitted and predatory. The irises shone with a silvery gleam.   
 
 
 We had all started to run without needing to say anything. Xavier and Katrina tore through the kitchen and towards the elegant stairway in the front chamber. I followed close behind, the gun still clenched in my hand. I kept looking back, ready to shoot, but Obizuth was still pulling herself through the solid framework of the threshold. I heard boards snapping and walls shaking, and I figured we only had seconds to hide.  
