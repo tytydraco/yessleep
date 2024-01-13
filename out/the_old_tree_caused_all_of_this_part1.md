@@ -1,0 +1,19 @@
+"The shadow lady"
+
+throwback to 2009 when I was still in highschool--me, my sisters, and my brother share the same bunk bed, those bunk beds where the top bunk was smaller than the lower bunk (idk what its called cut me some slack) those kinda bed. Our room's pretty small at that time, the bed framing was touching wall to wall., pretty cramp but feel safe at the same time because the bed fits exactly to the room. its like a puzzle piece dropped from the ceiling 
+
+anyways, one night in 2009 after PH just experience one of its worst typhoons, "Bagyong Ondoy" (typhoon Ketsana-international name) and caused a very huge old tree at the back of our home to finally gave in and snap. my grandma joked about the "spirits" or "elementals" that are now "homeless" because of what happened to the tree. she said that we should be careful not to disrespect them as they might choose our house as theirs since it is the closest to the fallen tree
+
+after few nights came, i remember it clearly, it was a full moon and it's so bright that it almost luminated our whole room and makes it hard to get some sleep. i decided to hop to the lower bunk together with my sisters - my older sister lying to the side near the edge of the bed facing the closet, me in the middle then my younger sister on the other side of the bed facing the wall, while my brother have the top bunk all to himself.
+
+was already half asleep when a humming woke me up. it sounds so much like my grandma, same hum, same lullaby she used to sing us when we were toddlers. it cant be her tho, since at that afternoon she decided to stay in my cousin's house. I open my eyes and saw a silhouette of a woman kinda same height and weight as my mom but i can't see her features at all because the moon's too bright behind her or atleast that's what i thought. not her face, not the details on her clothes (i just know she's wearing a flowy dress), nothing at all. i just keep looking at her expecting my eyes to finally adjust to moon's light and the darkness of the room. i kept staring and she kepts humming then it just hits me, you know that feeling you get when you know someone is staring back at you despite not seeing their face or their eyes? that's exactly what i felt. then like clockwork, that woman stopped humming and tilt her head slightly, as if to ask "can you see me?"
+
+i dont feel safe after she did that and i dont know why. i got so scared and shut my eyes so hard it hurts. i started praying thinking that maybe its just a bad dream, it will go away. i was half asleep after all. i open my eyes slowly and notice that the room is now completely dark, total blackout. no moonlight shining through the window, no light creeping up the stares and through our slightly ajar door or so i thought. 
+
+that is until i felt a breath on my face, it's so close and it moved so fast i cant even close my eyes again. instead i faced my younger sister's back and pull her close to me so my face is now touching her back. 
+
+i remember that i started praying over and over again and probably fell asleep 'cos the next thing i remember is its already morning
+
+in the morning it made everything worse when i realize that i am closer to the wall than i am to the edge of the bed. so it can only mean a two things. that lady is so big she just crouch down and her face almost toched my face while at the edge of the bed or her body is passing through my sister's body and through the bed. nonetheless it was over and i was okay.
+
+im pretty sure its cos of that tree that our previous house feel so creepy. why she chose me tho? its not like im the reason that the tree snapped. duuuuumb btch 🙄
