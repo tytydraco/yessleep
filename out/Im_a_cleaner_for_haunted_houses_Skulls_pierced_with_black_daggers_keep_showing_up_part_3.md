@@ -120,6 +120,8 @@ A shattering cacophony interrupted her. Looking back towards the window, I saw t
 
 
 Its hair, black and squirming with larvae, reached down to its waist and covered its face and chest. But as it pressed its bleeding body into the broken window, its hair pulled back from its face for a moment, and I saw a female visage straight from Hell.  
+
+
 She had garish dark stitches running across her face like intersecting railroad tracks. They held the wet, squirming flesh loosely to the dark red metallic bones gleaming underneath. She grinned, showing a mouthful of dark crimson needles the same color as the pyramid.   
 
 
@@ -301,6 +303,8 @@ Obizuth’s hand shot out like a snake grabbing a mouse. With a quick slice, she
 
 
 Then Obizuth put the knife to Katrina’s chest, deciding to start the skinning.  
+
+
 In an adrenaline-fueled spike, Katrina ripped her right arm free. I saw she still had her hand clenched tightly. In a blur, she threw a shower of something at Obizuth’s face. Obizuth screamed, pulling back. The knife fell out of her skeletal hands. Her mouth opened inhumanly wide, her scream shrieking across the forest like a steam-whistle.   
 
 
