@@ -266,7 +266,7 @@ The first bullet shattered her ankle. She fell with a grunt, her lips pulling ap
 As rapidly as I could, I turned the pistol to the one holding me and fired. It smashed into its back along the length of its spine. Its tail began twitching and seizing. I fell hard as it dropped me. I saw the vicious stinger swinging inches in front of my face. Crawling away, I knew I was a goner. I tried to reload as I crawled, but more cold hands reached up from the earth and grabbed me. The clip fell from my numb fingers.  
 
 
-I reached where Katrina lay on the ground, shocked and gasping. She had fallen hard when the beast released it and it had apparently knocked the wind out of her.  
+I reached where Katrina lay on the ground, shocked and gasping. She had fallen hard when the beast released her and it had apparently knocked the wind out of her.  
 
 
 “I’m here,” I said, grabbing her hand and giving it a gentle squeeze. “I’m here, Katrina. At least you won’t die alone. I’ll stay with you until the end.” She nodded, her face pale and sad.  
@@ -293,7 +293,7 @@ Countless creatures from a nightmare surrounded them, ripping into their flesh, 
 Obizuth rose to her feet, her shattered leg already healing. More of the creatures swarmed around her. Dozens of the women with the skull faces and clotted, black hair climbed out of the pit, their grinning skulls showing off their sharp needle teeth.  
 
 
-They grabbed at us with cold hands, the loose skin of their hands nearly falling off the bones. I cringed, my skin shivering. They pinned our arms behind our back and pulled our heads back as Obizuth came over in a fury.  
+They grabbed at us with cold hands, the loose skin of their hands nearly falling off the bones. I cringed, my skin shivering. They pinned our arms behind our backs and pulled our heads back as Obizuth came over in a fury.  
 
 
 “You will die slowly,” she said. “I will skin you alive before I cut your throats. So much the better for the ritual. The pyramid feeds on agony. Know only that all the ones you know and love will follow you soon. Perhaps that will give you some solace.” She gave us a twisted grin, the needles in her mouth glistening.  

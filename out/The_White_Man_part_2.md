@@ -60,4 +60,6 @@ I opened my eyes to an empty room. I closed them. Opened my eyes to him next to 
 
 You see, whether it is fate or coincidence, our relationship always moves in loops or patterns. It has been and I believe it always will be. I am very sorry. Remembering the night that he first spoke has taken a lot of my energy. I need to take a break for now, but I will finish this. Even if he finally kills me for it.
 
-Part 3: https://www.reddit.com/r/nosleep/comments/18tddiy/the\_white\_man\_part\_3/
+Part 3: [https://www.reddit.com/r/nosleep/comments/18tddiy/the\_white\_man\_part\_3/](https://www.reddit.com/r/nosleep/comments/18tddiy/the_white_man_part_3/)
+
+Part 4: [https://www.reddit.com/r/nosleep/comments/196qvd3/white\_man\_part\_4\_final/](https://www.reddit.com/r/nosleep/comments/196qvd3/white_man_part_4_final/) 

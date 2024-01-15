@@ -1,6 +1,6 @@
-Part 1: https://www.reddit.com/r/nosleep/comments/18lsokh/the\_white\_man/
+Part 1: [https://www.reddit.com/r/nosleep/comments/18lsokh/the\_white\_man/](https://www.reddit.com/r/nosleep/comments/18lsokh/the_white_man/)
 
-Part 2: https://www.reddit.com/r/nosleep/comments/18mvocj/the\_white\_man\_part\_2/
+Part 2: [https://www.reddit.com/r/nosleep/comments/18mvocj/the\_white\_man\_part\_2/](https://www.reddit.com/r/nosleep/comments/18mvocj/the_white_man_part_2/)
 
 I hadn’t thought about the previous night, but seeing the rosary brought everything rushing back.
 
@@ -59,3 +59,5 @@ Things got better after that. I started talking to friends more. I started carin
 For a few months anyway. One night I was lying in bed falling asleep to Adultswim and I heard it. That beautiful music box.
 
 I'm going to stop here for now. It could be a coincidence, but every time I start talking about him, I feel like I slowly lose my energy and after a while my memories get foggy. I apologize for how slowly I have to speak about my past. Goodnight, for now.
+
+Part 4: [https://www.reddit.com/r/nosleep/comments/196qvd3/white\_man\_part\_4\_final/](https://www.reddit.com/r/nosleep/comments/196qvd3/white_man_part_4_final/) 

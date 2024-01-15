@@ -1,3 +1,5 @@
+[part 2](https://www.reddit.com/r/nosleep/s/IANq2jGASR)
+
 The forest behind my house has always been.... strange. Ever since I moved here, I always have refused to go in the forest alone. It always feels like im being watched, not by a person... but the forest itself. I know, it sounds crazy writing it here... but now I know the truth.
 
 My parents went out of town about a day ago. My dad had a conference to go to for work, and my mom decided to tag along. I'm now 17 years old, so they knew I could handle myself for the next week. Anyways, one of my good friends Jaiden decided to come over for the weekend.  We were playing video games for a few hours, and we eventually got bored. Jaiden suggested we explore the forest behind my house, like a ghost hunting thing. I thought that would be fun, so I agreed.

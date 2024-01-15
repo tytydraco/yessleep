@@ -54,4 +54,6 @@ I'm sorry, but I am starting to get weak again. I need to forget about him for a
 
 Part 2: https://www.reddit.com/r/nosleep/s/THv4OmwfZq
 
-Part 3:https://www.reddit.com/r/nosleep/comments/18tddiy/the_white_man_part_3/
+Part 3: https://www.reddit.com/r/nosleep/comments/18tddiy/the_white_man_part_3/
+
+Part 4: https://www.reddit.com/r/nosleep/comments/196qvd3/white_man_part_4_final/

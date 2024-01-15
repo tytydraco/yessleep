@@ -222,4 +222,4 @@ After I counted the 14 steps, for some reason, I knew the 15th would be there. W
 
 Went back up. 19. Back down. I was 20 extra steps in and counting, when I realized it was not going to end. Stairs were tweaking again.
 
-Turned around, went back up, into the bedroom, door locked. The TV was still running downstairs. After a while, I heard it turn off. Others would have been terrified, I was relieved. That meant the thing was downstairs and not here, with me.
+Turned around, went back up, into the bedroom, door locked. The TV was still running downstairs. After a while, I heard it turn off. Others would have been terrified, I was relieved. That meant the thing was downstairs and not here, with [me.](https://www.reddit.com/r/nosleep/comments/195wg24/im_blind_im_not_sure_how_many_steps_my_staircase/)
