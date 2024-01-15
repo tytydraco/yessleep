@@ -28,11 +28,11 @@ He finally capped the marker he was writing with and turned to face me.
 
 He had drawn a diagram on the whiteboard, illustrating his project. I didn’t understand any of it.
 
-“Basically, atoms like to fuse with other atoms to make compounds. But what if we utilized this to get places?” He continued. 
+“Basically, atoms like to bond with other atoms to make compounds. But what if we utilized this to get places?” He continued. 
 
 He was delusional, I was sure of it. 
 
-“For example, oxygen likes to fuse with oxygen to make O2. Its just the way it works— they need to share electrons to be stable, and they *usually* bind to the closest oxygen in proximity.” 
+“For example, oxygen likes to bond with oxygen to make O2. Its just the way it works— they need to share electrons to be stable, and they *usually* bind to the closest oxygen in proximity.” 
 
 “Yeah, I know how it works. I took chem in high school,” I said, “but what are you getting at?” 
 
