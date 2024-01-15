@@ -226,7 +226,7 @@ I scrambled back, turning to see the others stopped in their tracks, staring at 
   
 
   
-"Too dark," Sarah winced, looking up as the sun's rays, which were already muted as a result of the branches overhead, dissipated to nothingness. "There’s at least a mile of nothing but trees from here before we get to the main road. We’d crash before anything could happen to Penny.”
+"Too dangerous," Sarah winced, looking up as the sun's rays, which were already muted as a result of the branches overhead, dissipated to nothingness. "There’s at least a mile of nothing but trees from here before we get to the main road. We’d crash before anything could happen to Penny.”
   
 
   
