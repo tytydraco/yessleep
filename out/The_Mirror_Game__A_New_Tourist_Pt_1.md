@@ -8,7 +8,27 @@ I had started looking at clubs throughout the college like Video games club, boa
 
 I took off my headphones and made my way to the entrance, I was greeted with a black letter with a red wax stamp. It looked and felt old, I could hear the paper starting to crack as I opened it. Its appearance gave me anxiety, something about it just wasn't right.The letter read
 
-\------------------------------------------------------------------------------------------------------------To Dorm Room 234Albany. NY###### ####Dear Dorm Room 234It has come to my attention that you are in search of like-mindedIndividuals. I am inviting you to come check out WWW.OCC I thinkYou would find that everything you are looking for will be found.Go To ########## ##### ###Tuesday 8:30 PMThank you ForYour Time-#### ######------------------------------------------------------------------------------------------------------------I opened the door to my dorm room and found nobody outside, I had even checked through the blinds of my window to see if I could see anyone leaving through the exit but there was no one. This meant that whoever left it was probably a member of the same dorm as me, or was incredibly fast.I was unsettled for the rest of the night and all I could think about was that note. It was as if an abyss had opened up into my stomach. I was incredibly shy and the thought of someone watching me had put paranoia into my brain.
+\------------------------------------------------------------------------------------------------------------
+
+To Dorm 
+
+Room 234
+
+Albany. NY
+
+\###### ####
+
+Dear Dorm Room 234It has come to my attention that you are in search of like-minded Individuals. I am inviting you to come check out WWW.OCC I think You will find that everything you are looking for will be found.Go To ########## ##### ### Tuesday 8:30 PM
+
+Thank you
+
+ For Your Time
+
+\-#### ######
+
+\------------------------------------------------------------------------------------------------------------
+
+I opened the door to my dorm room and found nobody outside, I had even checked through the blinds of my window to see if I could see anyone leaving through the exit but there was no one. This meant that whoever left it was probably a member of the same dorm as me, or was incredibly fast.I was unsettled for the rest of the night and all I could think about was that note. It was as if an abyss had opened up into my stomach. I was incredibly shy and the thought of someone watching me had put paranoia into my brain.
 
 Who could this person be?Is it safe to actually go?
 
