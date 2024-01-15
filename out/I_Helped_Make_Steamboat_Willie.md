@@ -405,3 +405,8 @@ You’ve felt it, you’ve seen it, now you understand it. My advice, just let t
 Now, I’ve never been one to turn down a paycheck, and if you folks need any more lessons from an old man who might not see summer, let me know down in the comments. 
 
 Otherwise, I hope you are the first generation to actually listen to your elders.
+
+
+Link to Part 2
+
+https://www.reddit.com/r/nosleep/s/NpLJFLytbM
