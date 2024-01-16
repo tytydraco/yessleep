@@ -18,36 +18,49 @@ Before I know it, we’re walking to the restaurant.
 
 We sit down, and a tall man hands us the menu. He’s so tall, that no matter how high I look, I can’t seem to find his head.
 
+  
 Substituting the very awkward silence between me and my wife, my phone starts ringing. I decide to ignore the call until my eyes hover towards the caller ID.
 
+  
 What the hell?
 
+  
 My wife’s calling me. What is going on?
 
 As soon as I pick up the phone, the voice on the other side speaks.
 
+  
 “Michael? Where are you? I’ve been waiting for you.”
 
+  
 “Emma, stop playing with me. We’re in the restaurant already.”
 
+  
 “Michael, what the heck? WHO DID YOU TAKE WITH YOU?”
 
-“IF THATS NOT YOU, THEN WHO IS SITTING IN FRONT OF ME RIGHT NOW?” I
-
+  
+“IF THATS NOT YOU, THEN WHO IS SITTING IN FRONT OF ME RIGHT NOW?” I  
 scream-whispered.
 
+  
 “Get the hell out of there right now.”
 
+  
 “Michael. I said get the hell out of there.”
 
+  
 “Michael. MICHAEL. **WHAT ARE YOU DOING.**”
 
+  
 I let my wife’s words blur
 
+  
 “MICHAEL!”
 
+  
 and slowly die out.
 
+  
 I’d decided I would play along until I could find a way to get the heck out of here.
 
 “Who was that?” asked my “wife”.
@@ -60,46 +73,44 @@ I’d decided I would play along until I could find a way to get the heck out of
 
 **“No. Stay, Michael.”**
 
+  
 I bolted out the corridor as fast as I could, hearing an inhuman series of laughs behind me. I turned around to see if it was following me— but it looks like I was too fast for it.
 
 Seeing the EXIT door, I crashed on it and shook the handle.
 
+  
 Shoot, it was locked.
 
+  
 I should have known. I bang on the door a series of times before my energy dies out and I slump there, in a corner near the door. I look around for any waiters/waitresses to ask for help, but there are none in sight. I run around helplessly, peeking through every kitchen and corridor there was, but nothing. I finally check one last corner, and my eyes brighten.
 
+  
 **E M E R G E N C Y    E X I T**
 
-I kick open the door, and it really is what it looks like.
+I kick open the door, and it really is what it looks like. I'm alive. I made it.
 
-I’m back home.
+&#x200B;
 
-I fumble and miss the door handle a couple times, due to my immense shaking. Once I finally get hold of it, I creaked open the door and entered with caution.
+Now I just have to find Emma.
 
-“Baby?”
+&#x200B;
 
-“Michael?”
+The only place I could get shelter was at a crappy abandoned hospital with half rotted-off beds, which wasn't the best idea, since the goddamn speaker kept re-announcing ---
 
-I gather enough courage to close the door behind me and hug her tightly, as it feels like not 8 hours, but more of 8 years. Before I could get enough of my hug, someone walks in. A small boy and two girls wearing immensely cute barbie dresses jump and join in the hug.
+"**Welcome to our hospital, that's nothing but safe, safe, safe!"**
 
-“Who’s this?” I ask, smiling at the immense cuteness on their faces.
+&#x200B;
 
-“Our children, Michael.”
+**"Welcome to our hospital, that's nothing but safe, safe, safe! "**
 
-My heart jumps in my throat.
+&#x200B;
 
-Two senior people walk towards me.
+**"Welcome to our hospital, that's nothing but safe, safe, safe! "**
 
-“Emma, who’s this?
+Before I lost it, I packed my bags even before dawn started to break out and started walking. I had a plan to ask strangers for directions--- but there wasn't a soul here. I would have to navigate myself.
 
-“Come on Michael. They’re your parents.”
+Before I even finalized my plan, I finally saw someone in the abandoned town. I rushed over, hoping they knew directions.
 
-Beads of sweat drop down my face.
+But when I took a few steps closer and enhanced my vision, I realized I was not happy to see them.
 
-I’m an orphan and we don’t have any kids.
-
-The same bus driver from that night walks in and slaps me hard.
-
-"**MICHAEL, STOP DREAMING.**"
-
-... What the heck?
+&#x200B;
