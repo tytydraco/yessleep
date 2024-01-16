@@ -42,7 +42,9 @@ On my way back home I walked past the gate again and to my surprise, the portal 
 Then, the day after came. As I walked towards the grocery store I saw a couple of little boys playing soccer near the gate. When I got close, I could see that the portal showed up again. Well, I thought, it is what it is. When I walked back, it was still there. The day after, it was gone. I began to see a time pattern. The more often I walked past it, the more I realised the portal was only open between 3:00 PM and 4:30 PM. Still, it opened itself every day.
 
 But, I noticed more. One of the little boys who played soccer that day seemed to show up more and more near the portal between those times. He was often alone. Something was making him curious. If it wasn't already clear to the average person, having to deal with Trent for over a year made it almost impossible for me to miss. The boy had to be the son of the pastor, Carl Vandersteen. He got me a little worried, so one day I decided to mention it in a conversation with Trent.
+
 "He is not going in there, right? If he dares... I'm going to get him."
+
 It's not like I expected anything else from Trent's reaction, but from that moment he decided to join me in my walks to the grocery store every single day. He never said anything to Carl. He only observed, seemingly, if he didn't get too close.
 
 Either way, it was doomed to fail. One day, we walked up on Carl standing before the portal. He sticked his hand forward. All we saw, was it disappearing behind the metal gate bar.
