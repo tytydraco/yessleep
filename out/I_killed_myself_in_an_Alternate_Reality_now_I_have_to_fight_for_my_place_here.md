@@ -56,4 +56,6 @@ Despite all this, it was difficult to sleep at night, even with my loving and, m
 
 Then, one night, I heard the sound of metal hitting the ground. It seemed to come from the garage. Susan didn't seem to notice. A dark suspicion crossed my mind. I put on my pants, grabbed a kitchen knife, and cautiously opened the door to the garage. It was all quiet.
 
-There was a wrench lying on the floor; someone is definitely in the house, to be exact, in this very room. I already know where the intruder is hiding; after all, I know myself better than anyone else.After this is done, I will finally finish that goddamn closet and put shelves into it.
+There was a wrench lying on the floor; someone is definitely in the house, to be exact, in this very room. I already know where the intruder is hiding; after all, I know myself better than anyone else.
+
+After this is done, I will finally finish that goddamn closet and put shelves into it.

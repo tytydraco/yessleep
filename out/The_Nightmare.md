@@ -1,17 +1,109 @@
- My name is Zoe. Have you ever had a dream that felt so real that it was unnerving? If so, have you ever had it come true? I hadn't until one fateful night. This started when I was still a sophomore. I lived in a very small town so it wasn't uncommon for a random person to stop you on the street for some reason. I had woken up for school rather early from a nightmare I had that night. Now, normally, the nightmares I have are random and make no sense, but this one was different. This one was down right terrifying. 
+I was hanging from the balcony as it was trying to get me
+Luckily after not being able to reach me
+she turned around and started running towards
+Nemanja
+I climbed halfway up and started yelling at it to come back but it was too late
 
- It started when me and my friends, Kai and Sage, stopped at our local coffee shop before we headed to school. It was a brisk autumn morning when, as we were leaving with our coffee in hand, this creepy old man stopped us and asked us for directions to the "cabin in the woods." We said we didn't know of any cabin in the woods, he then smiled and said "You will soon" then I woke up. Sweat pouring down my face, borderline hyperventilating. Checking the time; it was 3:00 am, I should have gone back to sleep but I couldn't. Not after a dream like that. At school that day, I couldn't even look my friends in the eyes without almost cowering in fear. 
+As it ran towards him,he had no choice but to jump over and two stores down or face the thing
 
-A couple of weeks went by and I had forgotten about the dream completely, that is, until my friends and I were at that coffee shop. As we walk in, we notice that we are the only ones there. We think nothing of it as it is six in the morning. We go up, order as normal, and as we are about to leave, Sage says "I feel funny." before collapsing on the floor. I scream for somebody to help but the realization comes that we are no longer in the coffee shop. I hear a loud bang, then Kai falls to his knees, screaming out in pain.
+As the thing was gaining on him,he jumped from the second story stairs and crash landed on the floor
+I heard a sickening crunch and he stopped moving
+In the meantime I was able to climb back onto the balcony and sneak by it and down the stairs to check on Nemanja
+his spine and legs were broken.he was paralyzed but alive
+Knowing i was short on time as it was following me down the stairs
+i grabbed Nemanja's knife and started running towards her knowing i had no chance of escaping with Nemanja
+The thing grabbed me by the neck and started to choke me in midair.its sharp claws it started piercing my chest.
 
-I look down at him and see blood trickling down the side of his face, his normally bright blue eyes have gone navy with pain. As I am watching him, I feel a sharp poke in my arm, then stinging, burning. It felt like my skin was on fire. I knew I was going to pass out, but just before I did, I heard a sinister cackle from in front of me. As I look up, I see the old man from my nightmare staring right back down at me. Then the world fades away... I wake up to the sound of screaming, looking around me all I see is darkness. 
+but i was ready
 
-There is a very faint light coming from a window on the other side of the room. I try to get up and run, but as I come to find out, I am tied to a wall. I yell my friends names before breaking down crying, screaming in pure agony. The old man comes up to me saying that there is no use in screaming because no one will hear me. My breath hitches and I can feel the lump in the back of my throat as I ask him "What do you want with us..?" he says in return "To be a family" I nod as my mind starts racing trying to think of a way out of this. I ask where my friends are and his face drops down to mine, and he whispers. "Those weak little fools couldn't handle being in my family." I swallow hard so I don't cry again. 
+With the knife in my shaky hand i stabbed her in the neck.
 
-He unties me from the wall, warning me not to try to run. We walk to the dining room where he sits me down in a chair, tying me to it. He then goes behind me putting an old tee shirt over the chest area of my dress, then puts a bottle of what I thought was milk up to my lips before saying, "Drink up Anya It's dinner time." I do as I am told, gagging slightly as I swallow the rotten tasting, jelly feeling liquid. When the bottle is empty my stomach feels like it is being eaten from the inside out. He turned around to grab something as as he did, I threw up the contents of my stomach all down his back and onto the floor behind him. 
+To my surprise her red eyes started turning white as her form reached its peak Although it was short-lived as the clock struck 3 am and I was thrown to the wall with tremendous force and fainted...
 
-For years, I dealt with him tying me up and feeding me these horrible things. Even though, I wanted to give up, I still had hope that I would get away from this sick bastard. After what felt like decades he finally trusted me enough to drive him to the nearby store for his medicine. My mind is racing, my knees are weak, my palms clammy with sweat as I death grip the steering wheel. As we are driving, I see a police officer - a state trooper and without thinking I speed up and crash into a nearby phone pole. The old man gets flung out of the windshield as our truck flips a few times. 
 
-I must have hit my head really hard because I woke up in the hospital with cops and nurses all around me. As I tell them what has been my life for the past few years, I feel myself start to cry. I must have cried for hours because it was dark by the time I stopped. They called my parents and after two months in the hospital I finally got released. 
+when i woke up i was in bed covered in sweat and my alarm was beeping...
+When i realized what had happened i was cursing at myself.
+"Fuck!,i was so close,if i only i wasn't stupid to think her attention would be on me,Nemanja would have been fine and we would've succeed in killing that god damned thing".
 
-This was 3 years ago on this very day. I found out soon after going home that the old man had been pronounced dead.. I wish that he would have lived the rest of his life behind bars but, I'll never have to see his face again and that alone satisfies me enough. I still think back on it and how lucky I was and still am to be alive. Folks, always be cautious with who tries to engage you. You never know who or what that person will take from you.
+As i tried to get out of the bed a sharp pain went thru my body,and a headpearcing headache
+I was too weak to get up.
+I lifted my shirt as i saw some blood on it.
+I was covered in bruises and small cuts, an open wound  on my chest and probably a few broken ribs
+"i was too careless.
+i almost got Nemanja killed with my stupid idea.
+If i cant get up he is probably in unbearable pain,
+All because of me.
+He's suffering again because of me.
+I am an idiot...
+
+
+I took the painkillers i left on the desk and waited for them to kick in.
+After that i rushed to the pharmacy to buy some for Nemanja.
+After that i ran to his house and got in thru the window into his room...
+
+He was playing CS:GO completely fine,he didn't even notice me because of his headphones.
+I was tapping him on the shoulder but for some reason he did not notice my aggressive tapping
+so i smacked him on the back of his head, knocking the headphones off of his head.
+He looked at me with surprise in his eyes.
+
+
+"When did you get in" he said
+
+"Bruh i was tapping you on the shoulder for like two minutes and you didn't notice me".
+
+"Well * **** ***** **** ******** **** * **** **" he said
+
+"WHAT!?"
+
+"What do you mean what,you were there"he said
+
+"We have to get you to a doctor or something"
+
+"There is no need,it could prove to be useful in the long run"he said
+
+"There will be no long run!
+How are you feeling,can you even use your body properly?"
+
+"Yes i am just fine,who knows why this is good"he said
+
+"let's just hope that its not permanent"
+ 
+
+
+
+"Enough about that, let's talk about what we're gonna do next,and what happened after i fell".He said
+
+"Well i grabbed the knife,charged at Her,got my dignity crushed,stabbed Her,got my ass thrown to the wall,3 am comes and I woke up".
+
+
+"And for what we should do.
+I think we should run because she started evolving before i was out.
+
+thus we don't have a lot of options
+we can run
+we can fight
+or
+maybe just stay there"
+
+"We can't stay
+The place is trashed.he said"
+
+
+"Yeah you are right.we would be too vulnerable"
+
+"So we run?"he asked
+
+"Yeah,we run to the store to get supplies and take shelter in there for a while"
+
+"until something comes again"Nemanja says with a tired look on his face
+
+"Don't worry, we'll be ready this time around"
+
+"Alright"Nemanja says with a sigh and a slight smile on his face
+
+
+
+I stayed at his place for a few hours playing games with him,trying to ease my anxiety for tonight.
+We said our goodbyes and i went home exhausted,and nervous about falling asleep.but i did...
+
+And there it was again,the falling sensation,the headache.Then i woke up in the house where we left of.stuck here without a shadow once again.
