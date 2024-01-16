@@ -66,4 +66,4 @@ I bolted out the corridor as fast as I could, hearing an inhuman series of laugh
 
 Seeing the EXIT door, I crashed on it and shook the handle. It didn't open at first, and so I opened it slowly, but neither made a difference. My heart sank.
 
-Shoot, it's locked.
+Shoot, it's [locked.](https://www.reddit.com/r/trulytrue/)
