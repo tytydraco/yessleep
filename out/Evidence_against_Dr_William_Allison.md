@@ -4,7 +4,9 @@ William and I graduated in 2000 from medical school. He was a good friend, but n
 
 *1999-OCT-21*
 
-*PROFESSOR: My student, William Allison, did some amazing experiments during the autumn break. Will, can you show it to the camera and explain it?WILLIAM: So, as you can see, these are dead plant cells, showing absolutely no life activity since a week ago. Now I’ll inject it with this fluid I’ve developed, it’s made of \[REDACTED\] and \[REDACTED\]. It can bring these cells back to life.*
+*PROFESSOR: My student, William Allison, did some amazing experiments during the autumn break. Will, can you show it to the camera and explain it?*
+
+*WILLIAM: So, as you can see, these are dead plant cells, showing absolutely no life activity since a week ago. Now I’ll inject it with this fluid I’ve developed, it’s made of \[REDACTED\] and \[REDACTED\]. It can bring these cells back to life.*
 
 *William injects the fluid into the cells.*
 
