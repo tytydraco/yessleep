@@ -1,0 +1,43 @@
+As a kid, I've always been kinda scared of the dark. If it weren't for my parents' insisting, I'd keep at least some form of light source near my bed, giving that illusion of warmth and safety to lull me to sleep. Not sure what the exact reason was, though I'd attribute it to just being a not-so-nice quirk I had. Thankfully, I lived in a very urban area where the bright orange streetlights were always present, offering me a little bit of comfort as I drifted to sleep to the hum of the aircon and the roar of vehicles on the street below. The apartment was also quite a ways off the ground, so whatever I was afraid of, it was probably only limited to things that already existed within my home. At least that was how I convinced myself back then.
+
+It was a little different whenever I visited my grandparents and stayed over for a couple of weeks during the summer holidays. Their house was in a rural village, situated near a football-field-turned-parking-lot, and the front yard was a regular meeting place for them and their friends. There were two neighboring houses, one built around the same time as my grandparents', the other probably within the last two decades. It was quite comfy during the day, the sounds of other elderly people playing mahjong and cards lighting up the atmosphere. At night, the area was quiet. Rural quiet. A quietness that I, a city boy, would never really get used to.
+
+My grandparents had two dogs and several cats. There used to be more cats, maybe a dozen or so of them, but over the years, the number had dwindled for various reasons that I wasn't really aware of. Every night, I'd hear the sounds of the dogs barking in between the rustling of leaves and the chirping of crickets. For how annoyed I'd feel at times, they were the only sources of sound at night. The only light source that was available were dim red electric candles that sat in the house's small ancestral shrine, the light seeping through the cracks of the door like a red mist. Needless to say, it was difficult for me to fall asleep in those circumstances, silly as it might seem.
+
+Across from the house was a fenced-off area, and within it was the shell of a house of some sort, apparently once a village school that one of my aunts had attended as a kid. Vines grew out of the empty windows, shrubbery sat by the walls, and a large tree even grew from the interior of the house, sheltering the path that led to the house in its shade. The fences, having been set up for decades, were partially rusted and overgrown with vines themselves. Apparently the school closed down around the time when my mom was a young child, the football field being repurposed into a parking lot soon after. I never really asked why, though it was probably something to do with the children being sent to larger, more urban schools for their education instead of a small local village school. Probably.
+
+To the side of the school was a paved path that people regularly took to reach their homes sitting further inside the village. As we had a smaller house there (formerly my great-grandparents' home), it was repurposed into something of a storage place/spare sleeping area, and my grandparents would sometimes send me to fetch for things. Between the area of the school and the next row of houses on the path, there was a small gap that seemed to never become overgrown with vegetation, leading to something of a clearing within. Sometimes, the sun would seep past the cracks of the trees and illuminate the clearing in heavenly rays, but most of the time, that area was shaded and frankly not very welcoming.
+
+There was always something off about that abandoned area sitting so close to normal civilization. Added with the fact that there was only one streetlight on that narrow path, I always found myself speedwalking whenever I passed by the school, looking only straight ahead to avoid bumping into anything that'd freak me out. I almost always only walked on the path during the daytime, and even still, I'd have shivers running down my spine after every trip. It didn't matter if I had someone accompanying me. I was just unnerved.
+
+One time, at night, my grandma forgot something in the smaller house. I forgot what exactly it was, only that I was tasked to get it. As I put on my slippers and left the house, I could already feel my body recoiling from the darkness that stood before me. Between the house and the smaller house, there were a row of other houses and several streetlights. Between those and the house, a single streetlight that barely lit up the path since it was overgrown with vines as well. And to the left was the abandoned school.
+
+Being the good kid I was, I couldn't say no and back away.
+
+The dogs were barking as usual, though it seemed a bit louder than before. As I took a glimpse at the school, I noticed there was absolutely no light inside its walls. No moonlight, no reflections, not even the dim orange glow of the streetlight near the parking lot which was separated only by a few branches and leaves. Nothing.
+
+"Watch out for snakes!" my grandma called as I left with the keys to the smaller house. As if I wasn't scared enough already.
+
+Every step I took felt extremely loud to my ears. Even the crunch of a leaf made me jump slightly in fright. Every soft blow of the wind made my skin crawl as I ventured onto the path, lit only by that one streetlight.
+
+I looked straight ahead. A near eternity of darkness until the light. I looked straight down until I passed by the streetlight, marking the midpoint of that dark path. The amalgamation of twigs and leaves seemed to wrap around my feet, dragging me down with their shadows. I looked to the right. The overgrown weeds and grass of an abandoned peach blossom farm rustled and shook as a toad jumped out of it. By this time, I couldn't hear any barking or chirping, only my own shallow breaths and the faint beating of my heart.
+
+I looked to the left.
+
+The gap between the school and the first house came into my vision. There was absolute darkness, but at the end of it, the clearing somehow had enough illumination from the moon for me to see the silhouette of something. Silhouettes, in fact. Grass, bushes, weeds... and the outline of a body, surrounded by a few other, smaller creatures with ears resembling that of felines.
+
+There was a whimper.
+
+I bolted forward, pushed faster by the primordial sense of fear I had of the dark. I didn't care what that body was or what the creatures were doing. My heart was beating fast. My brain was blanking out. I was sweating, though I was quite sure that wasn't due to the summer heat.
+
+I sprinted straight to the smaller house, grabbed the object as fast as I could, and dashed back. I closed my eyes as I passed by that same gap, and for a moment, I heard a faint whimper as a flash of red passed by my shut vision. By the time I opened my eyes again, I had left the path and was back within the vicinities of my grandparents' house. I saw my grandma at the yard, greeting me with a smile as I handed her the object. She was probably a bit confused as I continued running straight into my room and wrapped myself in the blanket as tightly as I could. It didn't matter that I was basically suffocating myself. I needed the absolute safety that were the confines of my bed.
+
+The dogs, I realized, didn't bark for the rest of the night.
+
+I didn't encounter anything like that since. Now, many years since that night, the two dogs are growing quite old, and there are now only two cats in the yard. Of those that were gone, one was hit by a car, but I didn't know what happened to the others. The smaller house is occupied by my grandpa after his knee surgery, a specialized bed placed in the living room for him to sleep in. One of the neighbors moved out, his house becoming abandoned for a while before it got demolished and repurposed into another parking lot. Other than that, things remain about the same.
+
+I still took glimpses at that abandoned school every now and then, though only really during the day when the sun is bright. Nothing's really changed. Still that rundown, overgrown vibe, the vines covering it a little more with every visit. I never looked into the gap again.
+
+One thing did change though.
+
+Every time me and my family left my grandparents' house after a gathering, in the midst of loud farewells, footsteps, and cricket noises, there'd be a distinctive whimper coming from the distance, roughly in the direction of the school. What that whimper is and where it comes from, I will never know. I simply do not want to know.
