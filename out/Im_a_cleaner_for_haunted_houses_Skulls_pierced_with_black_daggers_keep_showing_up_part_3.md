@@ -197,7 +197,7 @@ I fled towards the front door of the house and the massive stairway in the entra
 It looked like a giant centipede with thousands of long bristles that formed skittering legs the color of pale straw. Waves of motion rippled through the legs, propelling the abomination forwards in a blur. It had a mouth like a leech, a sucking, slimy circular hole with hundreds of triangular teeth spiraling in towards the center. Its enormous, black compound eyes glistened with a colorful sheen. There was no recognizable emotion in those eyes, no glint of compassion or understanding or anything human. They looked as blank and empty as the eyes of a mannequin.  
 
 
-I had filled the pistol’s chamber with salt-and-iron bullets. With uncertainty in my heart as to how effective this would be, I raised the gun. The beast, nearly ten feet long and coming at me like a runaway train, gave a deep, throaty growl that vibrated the floor. As fast as I could, I pulled the chamber, emptying the entire chamber.  
+I had filled the pistol’s chamber with salt-and-iron bullets. With uncertainty in my heart as to how effective this would be, I raised the gun. The beast, nearly ten feet long and coming at me like a runaway train, gave a deep, throaty growl that vibrated the floor. As fast as I could, I pulled the trigger, emptying the entire chamber.  
 
 
 The first bullets hit it in the face. Its flesh immediately began to drip and melt like candle wax, its insectile eyes bursting apart in a stream of blue blood the color of antifreeze. And yet its legs continued to skitter towards me even as it gave a long, bubbling hiss. Its mouth continued to suck at the air as if it could already sense the tasty human blood that would flow into its alien mouth.  
