@@ -153,7 +153,7 @@ Exhaling deeply, I held the torch between my mouth and swung around to descend t
 
 Hindsight is a wonderful thing. Given the sheer ability we as a species have to consider and concern ourselves over every possible outcome, having perspective of the past is the perfect perch from which to judge, applaud, critique, or confirm our actions of a bygone time.
 
-I have an abundance of hindsight today. And, reflecting on the moment I resolved to leave the treehouse, I can say with unbridled confidence that it was perhaps the worst possible thing that I could've chosen to do.
+I have an abundance of hindsight today. Reflecting on the moment I resolved to leave the treehouse, I can say with unbridled confidence that it was perhaps the worst possible thing I could've chosen to do. Though it would've been tiresome, waiting out the sunrise would've given me a significantly safer opportunity to get away.
 
 The fact is, my confidence in how I handled the stranger left me with an undue amount of courage, and that courage led me quite blindly into the trees, where any lurking predator would only have to watch as I trampled through the wood in the direction of home. The moment I faltered, I would be theirs.
 
