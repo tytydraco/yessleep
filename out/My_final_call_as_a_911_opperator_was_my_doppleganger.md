@@ -30,7 +30,7 @@ Of all people, he got me. Of course, he got me.
 
 Shifts were unpredictable. You never knew when something was going to go south. But the day was primarily normal. I’d even venture to say I was in a good mood. Happy that I didn’t have to talk anyone down.
 
-I had just finished a phone call with my fiancé during my break when I noticed the incoming call light up.
+I had just finished a phone call with my wife during my break when I noticed the incoming call light up.
 
 As I cleared my throat and placed the headset over my ears, I could feel the cool metal against my skin as my fingers pressed down on the button, and suddenly, the line chimed to life. Immediately, heavy breathing greeted me.
 
