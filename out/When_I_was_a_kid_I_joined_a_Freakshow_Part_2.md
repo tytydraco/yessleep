@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/18mccm7/when_i_was_a_kid_i_joined_a_freakshow_part_1/) [Part 3](https://www.reddit.com/r/nosleep/comments/18yre7d/when_i_ws_a_kid_i_joined_a_freakshow_part_3/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/18mccm7/when_i_was_a_kid_i_joined_a_freakshow_part_1/) [Part 3](https://www.reddit.com/r/nosleep/comments/18yre7d/when_i_ws_a_kid_i_joined_a_freakshow_part_3/) [Part 4](https://www.reddit.com/r/nosleep/comments/199ema8/when_i_was_a_kid_i_joined_a_freakshow_part_4/)
 
 Eating breakfast with the troop was a little awkward for me. I was so used to eating my meals in terrified silence, trying not to bring my dad’s wrath down on me for the slightest reason. I had never had a meal where everyone seemed to really love each other. Abigail made sure I sat next to her while she handed me a plate stacked full of pancakes and syrup. Nikolai and Santiago sat across from me, too entertained with each other’s company to notice me. The twins sat further along the giant table more than content to be by themselves. Tony meanwhile sat at the head of the table and was one of the messiest eaters I’d ever seen in my life.
 
