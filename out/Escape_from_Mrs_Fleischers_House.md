@@ -78,8 +78,6 @@ I just stared at her frightened.
 
 It's hard to describe how commanding her presence was, especially if you were 10 years old like I was. I immediately went to the end of the table like she commanded me. Her husband was the opposite of her. He appeared timid and humiliated by Mrs. Fleischer.
 
-*He's not going to protect me.*
-
 I saw that she made hamburger hotdish. Normally I liked hamburger hotdish, but I really did not want to eat it this time.
 
 *She poisoned mine.*
@@ -128,7 +126,7 @@ He answered it as if he were trying to guess the answer to question. Mrs. Fleisc
 
 "And you, you little shit! I'm going to..."
 
-The stunned look returned to her face. But she stopped when she saw the steak knife in my hand. On the surface I may have appeared calm and collected, but beneath I was terrified. It was like a western duel, and we stared at each other, waiting for the other to react. It seemed like it went on forever, but it was probably just a couple seconds. She reacted first. She didn't lunge at me, apologize, or even say anything. She simply smiled at me. Despite being motivated by evil, it seemed to be a genuine smile. Why is she smiling at me like that?
+The stunned look returned to her face when she saw the steak knife in my hand. On the surface I may have appeared calm and collected, but beneath I was terrified. It was like a western duel, and we stared at each other, waiting for the other to react. It seemed like it went on forever, but it was probably just a couple seconds. She reacted first. She didn't lunge at me, apologize, or even say anything. She simply smiled at me. Despite being motivated by evil, it seemed to be a genuine smile. Why is she smiling at me like that?
 
 *She respects me.*
 
