@@ -1,3 +1,6 @@
+[Part 1](https://www.reddit.com/r/nosleep/s/oxwKRumKqu)
+[Part 2](https://www.reddit.com/r/nosleep/s/jcfl55d0jl)
+
 Foreword: I’ve been posting these on my phone but figured out that I can respond to comments using a laptop I found last night. So all is good now.
 
 After posting part 2, I drove around for a while, not knowing where to go or stay for the night. As I was driving, I remembered my friend Eric from high school. We used to hang out at his house all the time. I remembered that the spare key to the house was inside of the grill in his backyard, all I would have to do was drive over and get the key and I’d have safe shelter for the night. There was one more place left to go though. 

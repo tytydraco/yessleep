@@ -44,7 +44,7 @@ My mother said “lily you should put away your toys, after you play with them�
 
 And when I went back inside. I asked my mom if she could take care of Abby for now on! My mother said “sure I’ll take care of your doll”
 
-And then 10 years later! I was looking throw some old boxs. When I found my doll Abby! I noticed that it was covered in dust and barely maintained.
+And then 10 years later! I was looking through some old boxs. When I found my doll Abby! I noticed that it was covered in dust and barely maintained.
 
 The fabric was ripping, the paint was chipping. But yet the eyes were still glowing! I was confused as to what was keeping them glowing. So I carefully took off Abby’s clothes!
 
