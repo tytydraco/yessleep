@@ -1,5 +1,6 @@
 [Part 2](https://www.reddit.com/r/nosleep/s/Khe9fG0MqV) Part 3
 
+
 To preface this, my town has a very small population. I’m not exactly sure how many people lived here, but it was at least a couple thousand. It’s the type of town you pass through on a roadtrip, lots of fields and farmhouses and some neighborhoods. A lot of people in town knew each other due to how small the town is. I was home for Christmas Break from College and enjoyed my stay. But I was getting ready to go back to school. Last night I packed my bags, as I only had two days left in my break. 
 Last night I was sitting in the living room with my Dad, drinking a beer with him while the football game was on and shortly after I went to bed. 
 When I woke up this morning, I did as usual. I showered, brushed my teeth and ate some breakfast. My parents weren’t home, and I figured they were at work. But when I looked at the driveway, I was confused, there cars were still here. How would they have gotten to work without their cars? 
