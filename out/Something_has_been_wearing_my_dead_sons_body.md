@@ -56,7 +56,7 @@ He walked over to Alexis. Her once-golden skin looked pale and lifeless. Her eye
 
 “Traumatic incidents can sometimes trigger it in people who are genetically predisposed,” he said in an impassive voice. “It’s possible she has had symptoms before and simply hid them. You never noticed strange behavior like paranoia or disordered speech or hallucinations?”
 
-“Well…” I said, thinking back to the incident last month which had occurred while Robbie was still alive. “She did say something about seeing a ghost in Robbie’s bedroom.”
+“Well…” I said, thinking back to the incident last month. “She did say something about seeing a ghost in Robbie’s bedroom.”
 
 “A ghost?” the doctor said, his mouth hanging open slightly. He quickly regained his regal bearing, giving a slight smile. “That could certainly be a sign of hallucinations. Did she physically see the ghost standing there, did she talk to it or have contact with it?” I thought back to that strange night. Thinking of Robbie again brought back a sick, empty feeling in my heart.
 
@@ -94,7 +94,7 @@ I remembered a story my friend Angela had told me after she had converted to Bud
 
 “‘So it is,’ the Buddha said, ‘so it is. Grief, suffering, lamentation and stress come from one who is dear, from those who we love. But true bliss comes from not clinging, from not craving, from non-attachment to all things.’”
 
-Taking a deep breath, I pushed open the freshly-painted white door to Robbie’s room. The place looked Spartan now. The blood and gore had stained many of his possessions. We had a professional cleaning company come in and throw them away. The hardwood floors had also been ripped up and replaced in the worst areas where massive puddles of blood had dripped through the cracks.
+Taking a deep breath, I pushed open the freshly-painted white door to Robbie’s room. The place looked Spartan now. The blood and gore had stained many of his possessions. I had a professional cleaning company come in and throw them away. The hardwood floors had also been ripped up and replaced in the worst areas where massive puddles of blood had dripped through the cracks.
 
 Tears came to my eyes. I inhaled for a long moment, blinking my eyes fast to try to clear them. I saw his notebooks on a bookshelf in the corner. I went over, looking through them until I found a slim, black volume titled, “Diary”. As I flipped to the first page, a drawing of Robbie sleeping as something hideous with melting skin and glowing eyes lay next to him. This abomination wasn’t sleeping, however. It stared right at Robbie with excited, lidless eyes and grinned.
 
