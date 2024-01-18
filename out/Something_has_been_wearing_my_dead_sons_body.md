@@ -56,7 +56,7 @@ He walked over to Alexis. Her once-golden skin looked pale and lifeless. Her eye
 
 “Traumatic incidents can sometimes trigger it in people who are genetically predisposed,” he said in an impassive voice. “It’s possible she has had symptoms before and simply hid them. You never noticed strange behavior like paranoia or disordered speech or hallucinations?”
 
-“Well…” I said, thinking back to the incident last month. “She did say something about seeing a ghost in Robbie’s bedroom.”
+“Well…” I said, thinking back to the incident last month which had occurred while Robbie was still alive. “She did say something about seeing a ghost in Robbie’s bedroom.”
 
 “A ghost?” the doctor said, his mouth hanging open slightly. He quickly regained his regal bearing, giving a slight smile. “That could certainly be a sign of hallucinations. Did she physically see the ghost standing there, did she talk to it or have contact with it?” I thought back to that strange night. Thinking of Robbie again brought back a sick, empty feeling in my heart.
 
