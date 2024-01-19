@@ -450,8 +450,6 @@ We jumped at the sharpness of that voice. It was our school security officer. He
 
 &#x200B;
 
-The tentacle pierced through his back. He let out a choked gasp as he was lifted in the air while we both cursed. Then more of the creature came in, [blocking](https://www.reddit.com/r/StoriesFromRose/) the [exit.](https://www.threads.net/@rose_black2222)
+The tentacle pierced through his back. He let out a choked gasp as he was lifted in the air while we both cursed. Then more of the creature came in, [blocking](https://www.reddit.com/r/StoriesFromRose/) the [exit.](https://www.threads.net/@rose_black2222) and that’ll do for now. I’ll post how we got out of it tomorrow, but I can hear that my pizza’s done.
 
-&#x200B;
-
-[https://www.reddit.com/r/nosleep/comments/196qehg/my\_school\_shouldve\_had\_a\_snow\_day\_finale/](https://www.reddit.com/r/nosleep/comments/196qehg/my_school_shouldve_had_a_snow_day_finale/) (In hindsight, probably should have asked at what age are we considered "expandable"?) 
+[https://www.reddit.com/r/nosleep/comments/196qehg/my\_school\_shouldve\_had\_a\_snow\_day\_finale/](https://www.reddit.com/r/nosleep/comments/196qehg/my_school_shouldve_had_a_snow_day_finale/) (In hindsight, probably should have asked at what age are we considered "expandable"?)
