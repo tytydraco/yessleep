@@ -22,7 +22,7 @@ The following story is a direct translation from Vietnamese to English of my dad
 
 April 17, 1968
 
-As I carefully position the Claymore mine, the jungle around me feels both suffocating and oddly comforting. I've become a shadow in these dense woods, with skills honed from too many battles fought and too many lives lost. The infamous Hồ Chí Minh Trail, a serpent that weaves through the terrain, carrying the lifeblood of our enemy. 
+As I carefully position the Claymore mine, the jungle around me feels both suffocating and oddly comforting. I've become a shadow in these dense woods, with skills honed from too many battles fought and too many lives lost. The infamous Hồ Chí Minh Trail, a serpent that weaves through the terrain, carrying the lifeblood of our enemy.
 
 Our position is strategically chosen. We're entrenched on a hilltop, offering a commanding view of the trail below. It's a defensible spot, with natural barriers on three sides. Our mission is simple: eliminate any Commie bastards daring to tread this path.
 
@@ -60,7 +60,7 @@ In the dense underbrush, I hear the faintest sound of footsteps, muffled but unm
 
 The Viet Cong, unaware of their impending doom, continue their advance, inching closer to our trap. The tension is palpable, a physical weight in the air. I wait, my senses heightened, for the perfect moment to strike. And then, when they are almost upon us, close enough for me to smell what they had for dinner on their breaths, I press the detonator.
 
-The explosion is deafening, a fiery eruption that tears through the night. The Claymore unleashes its deadly payload, obliterating the group of Viet Cong unfortunate enough to be directly in its path. Shrapnel flies through the air, marking the beginning of our ambush.
+The explosion is deafening, a fiery eruption that tears through the night. The Claymore unleashes its deadly force, obliterating a group of Viet Cong unfortunate enough to be directly in its path. Shrapnel flies through the air, marking the beginning of our ambush.
 
 A spray of blood and viscera from the explosion showers down upon us, a sensory overload that's both nauseating and invigorating. The chaos that follows is a brutal symphony of gunfire and the screams of the dying.
 
