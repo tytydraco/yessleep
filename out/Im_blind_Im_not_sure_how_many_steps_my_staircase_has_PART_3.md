@@ -112,4 +112,4 @@ I knew, for some reason, and I didn't even need proof... I just knew it had come
 
 I explained everything to my friend. There was nothing I could do, except get the fuck out. I didn't know how to close the portal, and I needed my friend's help if I wanted to try. I was trying to evaluate my risks, my options, when my friend said something that made my blood run cold.
 
-'Look, if you don't go through that portal stuff, it will probably just kill you and take your place. I think the next time you return home it will have figured that out.'
+'Look, if you don't go through that portal stuff, it will probably just kill you and take your place. I think the next time you return home[it will have figured that out](https://www.reddit.com/r/nosleep/comments/19an6l8/im_blind_im_not_sure_how_many_steps_my_staircase/).'
