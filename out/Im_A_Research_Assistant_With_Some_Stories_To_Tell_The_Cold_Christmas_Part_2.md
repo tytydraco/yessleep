@@ -88,7 +88,7 @@ I shielded using the shotgun and for the first time, I got a good look at one of
 
 “It bit a shotgun in half,” I said emphatically.
 
-“How were you able to escape?”
+“How were you able to make it back here?”
 
 &#x200B;
 

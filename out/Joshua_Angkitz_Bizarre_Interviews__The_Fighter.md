@@ -313,3 +313,5 @@ I’ve thought about going back to that alleyway, but I just don’t have the st
 As I left the hospital, I felt this itch behind my neck. I turned and noticed that orb again, now two, veiled in a transparent cosmic haze.
 
 I couldn’t help but think…they kinda look like [eyes](https://www.reddit.com/user/Johny_MP/comments/1953gf8/welcome_readers_new_and_old/).
+
+[\[Next\]](https://www.reddit.com/r/nosleep/comments/19ahcrg/joshua_angkitz_bizarre_interviews_the_interloper/)
