@@ -60,15 +60,15 @@ Noah was our usual damsel in distress, the Middleview Four member who was always
 
 I wouldn't call it communicating. 
 
-I was still trying to figure out where we were. It looked like an old barn. Tipping my head back, I could see a half crescent moon drowned in eerie white light poking through a hole in the roof. With another yelp, Noah almost sent the two of us toppling over when he violently threw himself forwards. 
+I was still trying to figure out where we were. It looked like an old barn. Tipping my head back, I could see a half crescent moon drowned in eerie white light poking through a hole in the roof. 
+
+With another yelp, Noah almost sent the two of us toppling over when he violently threw himself forwards. 
 
 I could understand why he was so upset, but *he was going to attract attention*. Twisting in my chair, the barn was empty. For now. If Noah kept muffle screaming and rocking back and forth in his chair, that would change. 
 
 “Noah.” I spoke calmly through the uncomfortable stickiness over my mouth, grasping for his clammy hands.
 
-“He’s fucking dead!” The mayor’s son muffle wailed, throwing his head into mine. The impact was painful, but I don't even think he felt it. I had to push down the overwhelming urge to slam my skull into his in retaliation. 
-
-“How could he do this to us?” 
+“He’s fucking dead!” The mayor’s son muffle wailed, throwing his head into mine. The impact was painful, but I don't even think he felt it. I had to push down the overwhelming urge to slam my skull into his in retaliation. “How could he do this to us?” 
 
 Noah’s voice choked into a sob. “I always knew there was something shady about him joining us, and I even questioned it when we were kids! Yet somehow *I* was the crazy one for suggesting the weird British kid who inserted himself into our gang was going to betray us?”
 
@@ -114,7 +114,7 @@ I could practically hear the boy's drug-drunk brain bouncing around his skull.
 
 “Easy,” I said, my lips curving into a smile I didn't understand, poison in my mouth and bubbling in my blood. This feeling was foreign and new. It felt like my mouth was being stretched together and apart. Suddenly, my bound wrists felt stronger, like I could twine my fingers around our fourth member’s neck, snapping it in two. “We kill him.” 
 
-The words were not mine, and yet slipped from my lips so effortlessly, I almost lost my breath. Words were suddenly so hard, alphabet soup on my tongue and choking my brain. Noah’s sharp intake of breath jolted something inside my mind. 
+The words were not mine, and yet slipped from my lips so effortlessly, I almost lost my breath. Words were suddenly so hard, soup on my tongue and choking my brain. Noah’s sharp intake of breath jolted something inside my mind. 
 
 I could sense the boy’s reply in his taut muscles, goosebumps prickling up and down his bare arms, his stiffening back. But he didn't say it. 
 
@@ -124,7 +124,7 @@ I couldn't see his face, but just from the tone of his voice, I knew Noah was sm
 
 “Right,” he whispered, his voice more of a breath. “We kill him.”
 
-Despite his words, Noah’s body was struggling to act complacent. He knew something was wrong, but I don't think he could speak. If I squinted my eyes through the blinding flashlight in my eyes, I could see them. Lines. 
+Despite his words, Noah’s body was struggling to act complacent. He knew something was wrong, but I don't think he could speak. If I squinted my eyes through the blinding flashlight in my face, I could see them. Lines. 
 
 Lines that were above me and below me, criss-crossing and entangling. I already knew they existed. In every instance I saw them, I was told to forget them. 
 
@@ -142,9 +142,13 @@ This time, there were no voices in my head to look away and avert my gaze, no pi
 
 It was just me and Noah, and the suffocating control both of us were now fully aware of. I opened my mouth to correct myself, to demand answers from the shadow looming closer to us, when my mind retracted again, detaching itself from the memory and plunging further down. I had no time to breathe, no time to anchor myself to reality, where I was kneeling on my mother’s sheepskin rug, warm red pooling down my face with my imaginary friend standing over me. 
 
-It was going to kill me, I thought dizzily, my words felt distant and wrong, disconnected from my body. Whatever this thing was, what Dr. Delaney had planted inside my mind, was going to fucking kill me. 
+It was going to kill me, I thought dizzily, my words felt distant and wrong, disconnected from my body. 
+
+Whatever this thing was, what Dr. Delaney had planted inside my mind, was going to fucking kill me. 
 
 If I could liken this feeling to anything, it would be drowning, suffocating in oblivion. 
+
+Dragging me. 
 
 Down. 
 
@@ -154,7 +158,7 @@ Down.
 
 The memory was agony, already sending my brain into a spasm. 
 
-I remember waking up, my mouth filled with blood. I was lying on my back, a halo of fake hair spread around me. I opened my mouth to scream when agonising pain ripped through me, a cutting blade just missing my face.
+I remember waking up, my throat filled with blood. I was lying on my back, a halo of fake hair spread around me. I opened my mouth to scream when agonising pain ripped through me, a cutting blade just missing my face.
 
 Except I didn't have a mouth.
 
