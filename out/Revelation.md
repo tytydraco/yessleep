@@ -2,7 +2,7 @@ My girlfriend and I were fighting. She had ripped out my soul during a lovemakin
 
 “Promise me you will never leave me” she had said to me days before stealing my soul. I wish I hadn't made that promise.
 
-One evening while I was facetime her and getting gaslit I heard a voice in my head.
+One evening while I was facetiming her and getting gaslit I heard a voice in my head.
 
 The voice was an angel who claimed to be my wife from heaven. She told me to get in my car and sit there with the car idling while I prayed.
 
@@ -96,7 +96,7 @@ The class was excused shortly after. And most people didn’t really show up aft
 
 I went a few more days towards the end of the program and they usually let us leave early. Nothing was ever really said but I knew the teachers were in on whatever happened. There were low income apartments above us. Someone had clearly gotten on the wrong side of some kind of secret society.
 
-As Christmas neared Clara started upping the anti with all kinds of promises, saying she would help me clean my soul and put it back together, saying she was done being ply, all the stuff I wanted to hear.
+As Christmas neared Clara started upping the anti with all kinds of promises, saying she would help me clean my soul and put it back together, saying she was done being poly, all the stuff I wanted to hear.
 
 “If you let me back in I promise it will be alright” she said.
 
