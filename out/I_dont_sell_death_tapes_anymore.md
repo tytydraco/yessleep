@@ -137,7 +137,7 @@ I heard the rustling of paper and saw something shoot under my door, I rushed ov
 
 He got nothing but net.
 
-"So you're going to write every one of those names on that list down, every name gives you another hour of life...unless you actually *want* your head to be used for a game of h-o-r-s-e. When you finish this list I'll have another ready for you, do anything to those harm those tapes and I'll gut you like a fish quick let than you can light a match, cheers!!"
+"So you're going to write every one of those names on that list down, every name gives you another hour of life...unless you actually *want* your head to be used for a game of h-o-r-s-e. When you finish this list I'll have another ready for you, do anything to those harm those tapes and I'll gut you like a fish quicker than you can light a match, cheers!!"
 
 The tape stopped.
 
