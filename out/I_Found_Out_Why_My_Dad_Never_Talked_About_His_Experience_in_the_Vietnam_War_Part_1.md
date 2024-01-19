@@ -62,9 +62,9 @@ The Viet Cong, unaware of their impending doom, continue their advance, inching 
 
 The explosion is deafening, a fiery eruption that tears through the night. The Claymore unleashes its deadly force, obliterating a group of Viet Cong unfortunate enough to be directly in its path. Shrapnel flies through the air, marking the beginning of our ambush.
 
-A spray of blood and viscera from the explosion showers down upon us, a sensory overload that's both nauseating and invigorating. The chaos that follows is a brutal symphony of gunfire and the screams of the dying.
+A spray of blood and viscera from the explosion showers down upon us, a sensory overload that's both nauseating and invigorating.
 
-Our ambush is a well-coordinated storm of fury. I shoulder my M16, its familiar weight, a cold comfort in my hands, and fire into the shadows. Every burst of gunfire is a desperate attempt to fend off the encroaching horror, to protect the men beside me. The muzzle flash of our weapons cuts through the darkness, revealing glimpses of the enemy – shadows darting between trees, faces contorted in fear and rage.
+I shoulder my M16, its familiar weight, a cold comfort in my hands, and fire into the shadows. Every burst of gunfire is a desperate attempt to fend off the encroaching horror, to protect the men beside me. The muzzle flash of our weapons cuts through the darkness, revealing glimpses of the enemy – shadows darting between trees, faces contorted in fear and rage.
 
 The Viet Cong, caught off guard by the ferocity of our assault, scramble to find cover. Their return fire is sporadic, disorganized, the panic evident in their ranks. We press our advantage, relentless and unforgiving. I keep firing, the recoil of my rifle jarring against my shoulder.
 
@@ -178,7 +178,9 @@ My throat is parched from the smoke and exertion. Reaching for my canteen, I uns
 
 The sharp report of the sniper's rifle echoed through the clearing. Pinned down, I crouch low, my heart racing, adrenaline surging through my veins. Every instinct screams to move, but I know the slightest motion could spell my end.
 
-The underbrush is dense, a tapestry of shadows that could conceal an army. My breathing is shallow, each exhale a calculated risk. The sniper is patient, a tiger waiting for his prey to make a fatal mistake.Minutes stretch into an eternity. The sniper's silence is as terrifying as his bullets. Staying here is a death sentence. I need to locate him, turn the tables.
+The underbrush is dense, a tapestry of shadows that could conceal an army. My breathing is shallow, each exhale a calculated risk. The sniper is patient, a tiger waiting for his prey to make a fatal mistake.
+
+Minutes stretch into an eternity. The sniper's silence is as terrifying as his bullets. Staying here is a death sentence. I need to locate him, turn the tables.
 
 I remember the basics of counter-sniping taught in training. Find the sniper's likely position, use the environment to your advantage, and move unpredictably. The shot came from the north, judging by the sun's position and the bullet's trajectory. He must be nestled high, with a clear view of the clearing. I focus on the trees, looking for any irregularities, any hint of human presence.
 

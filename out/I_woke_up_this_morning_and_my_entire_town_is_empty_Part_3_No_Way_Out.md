@@ -1,5 +1,6 @@
 [Part 1](https://www.reddit.com/r/nosleep/s/oxwKRumKqu)
 [Part 2](https://www.reddit.com/r/nosleep/s/jcfl55d0jl)
+[Part 4](https://www.reddit.com/r/nosleep/s/ciE0OArkld)
 
 Foreword: I’ve been posting these on my phone but figured out that I can respond to comments using a laptop I found last night. So all is good now.
 

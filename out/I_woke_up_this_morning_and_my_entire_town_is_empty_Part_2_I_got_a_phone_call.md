@@ -1,6 +1,6 @@
 [Part 1](https://www.reddit.com/r/nosleep/s/oxwKRumKqu)
 [Part 3](https://www.reddit.com/r/nosleep/s/gkKuFjMb2X)
-
+[Part 4](https://www.reddit.com/r/nosleep/s/ciE0OArkld)
 Last night after the break-in and my escape, for some reason I found out that when I went to respond to people on my first post, I, for some reason cannot type using letters when I try to respond to people. So if I reply to anyone’s post it’ll be in numbers, at least until I can somehow fix the problem. Each number corresponds with one from the alphabet.  
 
 This morning, I woke up in my car. It was cold, and I could still feel the goosebumps I had from last night, whether it was from the cold, or my fear of that old woman, was unknown to me. I tried to think about what was going on, why was that old woman trying to kill me? Who is she? I was reading through the responses on my last post, someone suggested I go to Walmart and get a ‘survival guide.’ I’m still debating on whether or not it is safer to live outside as opposed to inside. Unfortunately, I realized that I could not go back to my house anymore, I’d be unsafe there, that old woman knows where I live now. 
