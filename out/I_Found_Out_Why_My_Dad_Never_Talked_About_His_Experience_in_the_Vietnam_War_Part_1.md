@@ -22,7 +22,9 @@ The following story is a direct translation from Vietnamese to English of my dad
 
 April 17, 1968
 
-As I carefully position the Claymore mine, the jungle around me feels both suffocating and oddly comforting. I've become a shadow in these dense woods, with skills honed from too many battles fought and too many lives lost. The infamous Hồ Chí Minh Trail, a serpent that weaves through the terrain, carrying the lifeblood of our enemy. Our mission is simple, yet vital: sever this artery and eliminate any Commie bastards daring to tread this path.
+As I carefully position the Claymore mine, the jungle around me feels both suffocating and oddly comforting. I've become a shadow in these dense woods, with skills honed from too many battles fought and too many lives lost. The infamous Hồ Chí Minh Trail, a serpent that weaves through the terrain, carrying the lifeblood of our enemy. 
+
+Our position is strategically chosen. We're entrenched on a hilltop, offering a commanding view of the trail below. It's a defensible spot, with natural barriers on three sides. Our mission is simple: eliminate any Commie bastards daring to tread this path.
 
 The rest of my platoon, dispersed in strategic cover, are setting traps of their own. The air is thick with anticipation and the heavy scent of wet earth.
 
