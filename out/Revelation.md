@@ -1,3 +1,10 @@
+Part 2
+
+https://www.reddit.com/r/nosleep/comments/19awxth/revelation_part_2/
+
+
+
+
 My girlfriend and I were fighting. She had ripped out my soul during a lovemaking session and then started gaslighting me about it. 
 
 “Promise me you will never leave me” she had said to me days before stealing my soul. I wish I hadn't made that promise.
