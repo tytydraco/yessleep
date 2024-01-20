@@ -26,7 +26,7 @@ As I carefully position the Claymore mine, the jungle around me feels both suffo
 
 Our position is strategically chosen. We're entrenched on a hilltop, offering a commanding view of the trail below. It's a defensible spot, with natural barriers on three sides. Our mission is simple: eliminate any Commie bastards daring to tread this path.
 
-The rest of my platoon, dispersed in strategic cover, are setting traps of their own. The air is thick with anticipation and the heavy scent of wet earth.
+The rest of my platoon of Rangers, dispersed in strategic cover, are setting traps of their own. The air is thick with anticipation and the heavy scent of wet earth.
 
 The jungle, dense and unforgiving, seems to absorb our every breath, every heartbeat. We're not just soldiers; we're brothers in arms, each carrying a burden of loss and vengeance that weighs heavily on our souls. The Việt Cộng, faceless enemies in the shadows, had taken more than territory; they had stolen pieces of our lives, leaving gaping wounds that would never heal.
 
