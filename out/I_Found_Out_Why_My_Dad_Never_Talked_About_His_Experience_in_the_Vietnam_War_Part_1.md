@@ -156,11 +156,11 @@ I hold my breath as a group of soldiers passes by the ditch. Their boots come pe
 
 But then, a distant sound catches his attention. The faint but unmistakable roar of jet engines crescendos through the jungle, pulling my pursuers’ gaze skyward. The soldiers around my hiding spot suddenly become agitated, their focus shifting from the ground search to the skies above. The sound grows louder, more distinct, a herald of impending doom.
 
-I risk a glance upwards and see a squadron of F-4 Phantoms streaking across the sky, their sleek forms cutting through the clouds. They move with a precision that speaks of deadly intent, a force of nature unto themselves. Only the Americans fly F-4s.
+I risk a glance upwards and see a squadron of A-4 Skyhawks streaking across the sky, their sleek forms cutting through the clouds. They move with a precision that speaks of deadly intent, a force of nature unto themselves. Only the Americans fly A-4s.
 
 The VC soldiers, now fully aware of the impending danger, scatter in a frenzied attempt to evade the aerial assault.
 
-The jungle canopy shudders under the thunderous roar of the Phantoms. Suspended for a fleeting moment, the world seems to hold its breath, awaiting the unleashing of their deadly cargo. Then, with a precision born of countless sorties, the aircraft release their payload. The objects, canister-like in shape, descend with a grim inevitability, their trajectory marking a path towards the heart of the enemy’s position.
+The jungle canopy shudders under the thunderous roar of the Skyhawks. Suspended for a fleeting moment, the world seems to hold its breath, awaiting the unleashing of their deadly cargo. Then, with a precision born of countless sorties, the aircraft release their payload. The objects, canister-like in shape, descend with a grim inevitability, their trajectory marking a path towards the heart of the enemy’s position.
 
 As the canisters impact, an inferno erupts, not the familiar, searing orange of napalm, but an otherworldly glow that paints the predawn in hues of eerie green and purple. The flames, unnaturally vibrant, consume the foliage with a voracious appetite, leaving behind a surreal landscape bathed in ghostly light.
 
