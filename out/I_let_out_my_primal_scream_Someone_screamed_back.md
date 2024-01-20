@@ -2,7 +2,7 @@ My parents *despised* each other, and that hatred manifested into the resentment
 
 In my early 20s, my dad died from liver failure. Not even a year later my mum died from a brain haemorrhage. Their suffering gave me no pleasure, but I was happy they were no longer with us. Physically, at least, because their shadows remained. I harboured deep anger from their treatment towards me. It was more under control than in adolescence, but I felt it creeping in at times, ready to explode. Such a thing happened not too long ago at work.
 
-My boss Glen, a pompous, arrogant toad, narrowly missed a broken nose more times than I could possibly say. He didn't know that, of course. I don’t have a problem with authority; I have a problem with disrespect. He exhibited a *lot* of disrespectful behaviours on a weekly basis. I would usually keep it contained; take a few deep breaths, nod, smile, and retreat to the break room to calm down.
+My boss Glen, a pompous, arrogant toad, narrowly avoided a broken nose more times than I could possibly say. He didn't know that, of course. I don’t have a problem with authority; I have a problem with disrespect. He exhibited a *lot* of disrespectful behaviours on a weekly basis. I would usually keep it contained; take a few deep breaths, nod, smile, and retreat to the break room to calm down.
 
 I put a file on Glen’s desk. A file that I'd worked on the night before, in my own time, until the early hours. I was tired.
 
@@ -268,7 +268,7 @@ Liam eventually came to my side, helping me up. I could feel his arm shaking aro
 
 “I… I don’t know,” I said.
 
-“You freak,” I heard Glen say as he appeared from behind a desk. “I always knew there was something wrong with you.”
+“You freak,” I heard Glen say as he stood up from behind a desk. “I always knew there was something wrong with you.”
 
 “With me?” came a deep, multilayered voice. The silhouette of a man appeared behind Glen as his expression changed to one of shock. Before he could turn, hands gripped the sides of his head and quickly twisted with a gruesome *crack*. Liam and I grimaced as his body fell to the floor.
 
