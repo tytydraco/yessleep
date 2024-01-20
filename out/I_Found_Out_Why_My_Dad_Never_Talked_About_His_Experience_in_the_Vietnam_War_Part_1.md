@@ -80,7 +80,7 @@ I can sense it in the air, the sharp, electric tang of impending doom. It's an a
 
 Lieutenant Tuan, sensing it too, barks out an order to our radio operator, Private First Class Hoàng. His voice, laced with urgency, cuts through the bedlam, "Call in air support, now!"
 
-Hoang's voice is calm but urgent, his fingers gripping the radio handset like a lifeline. "Tango-Three to Falcon Base. Heavy enemy engagement. Requesting immediate air support at grid Bravo-Char—”
+Hoang's voice is calm but urgent, his fingers gripping the radio handset like a lifeline. "Tango-Three to Falcon Base. Heavy enemy engagement. Requesting immediate close air support at grid Bravo-Char—”
 
 As Hoang relays the coordinates, his voice suddenly cuts off. A sniper's bullet pierces through his helmet with a sickening thud. He slumps forward, his lifeless body still clutching the radio.
 
