@@ -143,7 +143,7 @@ A raspy voice snapped from where the light hung. The man spoke in creaks.
 
 "You will be enough. Mala will adore you."
 
-He dropped from the ladder and plunged into the dark before I could follow him with the torch. the sound of strides against the earth receding into the trees behind the clearing. I tried following the noise with my light, but it revealed nothing beyond the silhouette of the forest.
+He dropped from the ladder and plunged into the dark before I could follow him with the torch, the sound of strides against the earth receding into the trees behind the clearing. I tried following the noise with my light, but it revealed nothing beyond the silhouette of the forest.
 
 The words he'd uttered clattered around my brain. The name Mala meant nothing to me, but the way he spoke hinted at sacrifice, which sent a shudder across my skin.
 
