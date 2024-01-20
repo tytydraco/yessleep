@@ -80,7 +80,7 @@ When I got home, my mother could tell by my puffy face and runny, red nose that 
 
 “I don’t want to talk about it. I’m sorry.”
 
-She gave me a sympathetic look as I tirelessly walked to my room. 
+She gave me a sympathetic look as I tiredly  walked to my room. 
 
 
 Now, as I’m writing this I realised what Alison meant by “I’ll make it up to you,” because when I woke up today and went to brush my teeth, I almost dropped my toothbrush as I looked at my reflection in the bathroom mirror. 
