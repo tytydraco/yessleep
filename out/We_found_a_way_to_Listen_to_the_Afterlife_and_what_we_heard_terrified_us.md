@@ -185,4 +185,4 @@ After a while, I simply got on with my life, but the experience left an indelibl
 
 Even today, in the silence of the night, I sometimes feel as if I can hear a high-pitched tone echoing deep inside me. 
 
-And I know that if I concentrate just a little bit on it, I'll hear again the horrific screams of that endless human tide.
+And I know that if I concentrate just a little bit on it, I'll hear again the horrific screams of that endless human [tide.](https://www.reddit.com/r/SGWoodhouse/)

@@ -182,7 +182,7 @@ The underbrush is dense, a tapestry of shadows that could conceal an army. My br
 
 Minutes stretch into an eternity. The sniper's silence is as terrifying as his bullets. Staying here is a death sentence. I need to locate him, turn the tables.
 
-I remember the basics of counter-sniping taught in training. Find the sniper's likely position, use the environment to your advantage, and move unpredictably. The shot came from the north, judging by the sun's position and the bullet's trajectory. He must be nestled high, with a clear view of the clearing. I focus on the trees, looking for any irregularities, any hint of human presence.
+I remember my training in counter-sniping. Find the sniper's likely position, use the environment to your advantage, and move unpredictably. The shot came from the north, judging by the sun's position and the bullet's trajectory. He must be nestled high, with a clear view of the clearing. I focus on the trees, looking for any irregularities, any hint of human presence.
 
 Then, I see it – a slight glint, a reflection of sunlight off a scope. It's subtle, but to a trained eye, it's as glaring as a beacon. My pulse quickens; I've located the son of a bitch.
 

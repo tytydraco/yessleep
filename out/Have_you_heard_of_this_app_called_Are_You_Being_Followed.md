@@ -160,4 +160,4 @@ When day broke, I finally got the courage to leave my house.
 
 I looked around it, and saw something the police hadn't seen, or hadn't wanted to tell me.
 
-Just below the window where I'd seen this thing, there were dozens and dozens of bare footprints going from left to right towards all the other windows.
+Just below the window where I'd seen this thing, there were dozens and dozens of bare footprints going from left to right towards all the other [windows.](https://www.reddit.com/r/SGWoodhouse/)
