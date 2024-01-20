@@ -50,13 +50,15 @@ When the doctor finally came in, he looked very confused. “I remember you comi
 
 “Excuse me?” “When did you get your left kidny removed?” he repeated. I hadn’t had my kidney removed, what was he talking about?   
 To get out of the hospital, and to not look crazy, I pretended thatI thought he meant my right kidney, which I had gotten removed last year. He seemed skeptical, but it was a busy day and they discharged me shortly afterwords.   
+
 I have never had any kidney removed. Or any surgery for that matter. My kiddney one day was just…gone.   
 
-Less than 24 hours later, I again work up with severe pain, this time in my tonsils. And like the kidneys, they were gone. Just, just fucking gone. One day I woke up without them.   
+Less than 24 hours later, I again work up with severe pain, this time in my tonsils. And like the left kidney, they were gone. Just, just fucking gone. One day I woke up without them.   
 That day was supposed to be my pill day, but I decided against it.   
 
 A few hours later, I got a call from my professor.   
 “The pills” he started “I stopped taking them.” “Yeah, I stopped.” I expected him to be angry, but he did a sigh of releife. “Good” he said “do you know what those pill were doing-“ “My left kidney and tonsils are gone” I replied before he could finish.   
+
 He deeply apologized for the situation, but there wasn’t a lot he could do. I should have been angry, but I was still in too much shock to comprehend what had happened.   
 I guess the good news is that no-one died. Some lost a kidney, a lung, an apendix, tonsil stones, a gulblatter, but nothing vital was taken. Only one lung or one kidney.   
 
