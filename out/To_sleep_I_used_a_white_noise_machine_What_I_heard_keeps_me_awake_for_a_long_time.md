@@ -22,7 +22,7 @@ This night, something woke me up. Because of my sleep problems, I often woke up 
 
 It sounded like whispering, very faint but close enough to hear. Although it sounded like a discussion, I couldn't understand what was being said.  As I tried to ignore it and just go back to sleep, I could feel goosebumps on my arm and I felt very uneasy.
 
-In an attempt to ignore the whispers as they continued, I closed my eyes again, but was suddenly jolted awake by what sounded like people screaming. I heard both a man and woman screaming, followed by scraping and what sounded like an inhuman screech or roar.
+In an attempt to ignore the whispers as they continued, I closed my eyes again, but was suddenly jolted awake by what sounded like two people screaming. I heard both a man and woman screaming, followed by scraping and what sounded like an inhuman screech or roar.
 
 Immediately I sat up, grabbed my noise machine, ripped It from its plug. My heart beating out of my chest and my heavy breathing were the only sounds in the room now.
 
