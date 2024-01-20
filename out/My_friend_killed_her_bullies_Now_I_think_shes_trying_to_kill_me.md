@@ -53,4 +53,8 @@ She started boiling the water in the kettle and didn’t respond to me. I knew s
 
 “Cinnamon flavored. It’s quite different, I know. We’ll talk about this later, right now I really can’t.” Before I could answer she went to her room and shut the door. 
 
-Now I’m sitting here, looking at the 2 cups of tea. Cinnamon flavoured? Does she think I’m that stupid? What I need to do right now is get out of her house before I become one of those severed heads.
+I knew she put something in my tea. Cinnamon flavored? Really? Does she think I’m stupid? I got up, tipped the tea’s contents in her kitchen sink and placed it back on the table to make it seem like I actually drank it. Then, I tried to find what I saw. The heads. 
+
+I realized there was one locked cabinet in her kitchen. Only one. “Suspicious,” I thought. I looked everywhere for the key and when I opened the freezer I found it. The key. How could she be so careless? I opened the cabinet and there they were. Their heads were in a big plastic container, filled with some liquid I’m guessing to slow down the decomposition process. The way they were slightly tilted really creeped me out. I shut the cabinet, quietly with a shaky breath and locked it. I put the key back where I found it.
+
+Now, I’m sitting down, staring at the 2 cups of tea. I don’t know when she’s coming back…she’s taking quite long. But all I know is that I need to get out of here before I become one of those severed heads. 

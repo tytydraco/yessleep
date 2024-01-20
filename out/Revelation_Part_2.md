@@ -42,7 +42,7 @@ I fast forwarded it for a bit then paused it, right on a still image of Tyler th
 
 
 
-Yahweh monologued ‘Yeah I know it says that in the commentary but that’s not the point. These spliced in Tyler images are just the beginning. Evangelion has tons of dummy plug evas spliced in for another example. Tons of movies have crap like this in it. And it’s worse still! Don’t you dare buy a monitor with anymore than a 60z refresh rate. The Caesareans are going to have a field day once the refresh rates are high enough that no one will notice.’
+Yahweh monologued ‘Yeah I know it says that in the commentary but that’s not the point. These spliced in Tyler images are just the beginning. Evangelion has tons of dummy plug evas spliced in for another example. Tons of movies have crap like this in it. And it’s worse still! Don’t you dare buy a monitor with anymore than a 60hz refresh rate. The Caesareans are going to have a field day once the refresh rates are high enough that no one will notice.’
 
 
 I was freaking out. ‘What, you mean they are going to splice images on my computer screen while I’m using it?’

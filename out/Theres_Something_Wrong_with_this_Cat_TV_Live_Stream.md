@@ -59,4 +59,4 @@ She stared at me through the monitor for what felt like an eternity before sudde
 
 I spent the rest of the day waiting for her to return. I was anxious, what if something were to happen to her out there in the woods? Hours turned to days, days turned to weeks. I can’t bring myself to close the stream. It’s become a permanent fixture in my life, playing endlessly except for the rare cut to black as someone else’s cat enters from some far corner of the world. My heart skips a beat whenever a new cat jumps into frame, but it quickly sinks when I realize it isn’t my Ginny. 
 
-Maybe she’ll come back to me, but I’m beginning to accept that she probably isn’t. I hope she’s happy out there, wherever she is. Until the day that she pops back onto my screen, I’ll keep the stream alive.
+Maybe she’ll come back to me, but I’m beginning to accept that she probably isn’t. I hope she’s happy out there, wherever she is. Until the day that she pops back onto my screen, I’ll [keep the stream alive](https://old.reddit.com/r/xXxPlanetVegaxXx/comments/1376vru/welcome_traveler_to_planet_vega_the_home_of_my/).
