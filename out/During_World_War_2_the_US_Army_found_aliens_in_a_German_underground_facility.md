@@ -80,7 +80,7 @@ The rockets were indeed bigger. The underground room itself was huge.
 
 It was like an aircraft hangar, deep under a mountain. Somehow the Germans managed to carve out a gigantic room this far beneath the ground. Upon my initial inspection, the distance between the floor and ceiling was probably around two hundred feet.
 
-All around this gigantic area were various rockets of various sizes, with some lying down, some standing up. This was indeed a factory for Germans rockets. However, just like above, dead bodies, bullet cases, and limbs also covered the place. But, unlike above, the dead were not just soldiers. Instead it was a combination of soldiers and civilians, with the latter most likely being the technicians and labourers who worked in this facility.
+All around this gigantic area were various rockets of various sizes, with some lying down, some standing up. This was indeed a factory for Germans rockets. However, just like above, dead bodies, bullet cases, and limbs also covered the place. But, unlike above, the dead were not just soldiers. Instead it was a combination of soldiers and civilians, with the latter most likely being the technicians and laborers who worked in this facility.
 
 The presence of death within the mine itself told me that the unknown assailants had gotten in here too. Whether they were still in here or not, I wasn’t sure, but the sight of so many dead was concerning. With us still not knowing what their intentions were, I ordered the men to keep their eyes open and to be careful at every corner. For all we knew, they might not be targeting just the Germans. 
 
@@ -242,12 +242,11 @@ As we reached the base of the elevator frame, one of the men pulled a lever to c
 
 Staring at the creature as it descended, I watched as it leaped out off the platform and onto the floor behind us. The creature then stabbed one of its legs before we could fire a shot, hitting a soldier and penetrating him right on the chest. As the creature pulled back its leg, the man fell to the floor, before laying flat as blood pooled around him. 
 
-Letting loose our weaponry against it, we fired everything we got at it. But even with the heavy torrent we placed on it, the creature managed to swing one of its legs and cut off the arm of another soldier. Quickly, he was grabbed and supported by the man standing next to him, but this resulted in a slight reduction in our firepower.
+Letting loose our weaponry against it, we fired everything we got. But even with the heavy torrent we placed, the creature managed to swing one of its legs again and cut off the arm of another soldier. Quickly, he was grabbed and supported by the man standing next to him, but this resulted in a slight reduction in our firepower.
 
-Our onslaught against the creature was further reduced, when I heard the distinct sound of multiple legs crawling from another corner of the hangar. Looking in that direction, I saw another creature move and rush towards us. 
+Our onslaught against the creature was further reduced when I heard the distinct sound of multiple legs crawling from another corner of the hangar. Looking in that direction, I saw another creature move and rush towards us. 
 
-Both creatures were now present before us and I was forced to divide our fire in order to deal with both of them. This meant that the intensity of our barrage was not as I would have liked, but I prayed that it would be enough to stave off the two and keep them at a distance.
-
+Two creatures were now present before us, and I was forced to divide our fire in order to deal with both of them. This meant that the intensity of our barrage was not as I would have liked, but I prayed that it would be enough to stave off the two and keep them at a distance.
 
 For a while it seemed to have worked, as the one closest to us backed off, while the one farther from us had difficulty approaching. I didn’t know how long we could hold this line. It was a tense moment, and I could feel my heart beat harder and harder, as I watched the creatures try to advance, only to fall back.
 
