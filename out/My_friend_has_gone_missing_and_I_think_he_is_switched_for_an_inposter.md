@@ -1,0 +1,14 @@
+Me (M 15) and my friend(M 15) both went for a Trek int the woods nearby. Nothing weird there we do that monthly. It's getting dark i suggest that we go back, but then he wanted to go take a leak. I wait for him for 30 mins I start to get worried but then he appears pulling his pants up and covered in foliage and dust. We go back together. The whole time he's silent and whenever he speaks he has a weird voice. 
+
+Yesterday I gave him a visit and apparantly his family had gone out, which was weird cause I knew he didn't have plans. So I ask him where and says he doesn't know. 
+
+I see him go back into the kitchen without inviting me in which is weird because he usually does I check on him and he all of a sudden looks at me with terror and then normal again. I ask him what he is cooking he doesn't utter a word. He absolutely hates cooking and I was surprised that he didn't order anything. 
+
+I ask what has he been upto the weirdest thing he has ever said was that he was scrolling on social media. I freaked out inside he never does that infact he doesn't even have a phone he goes outside and I check the vessel he was using for cooking (apparantly he was cooking a stew) and I see him appear right infront of me and screams in the loudest and most grueling voice nothing about it was natural with tears in his eyes he held my head and forced it into the pot of boiling water. I feel the hot vapours burn my skin and I snap to reality as the edge of the pot burns my skin I sack him hard in the guts and something tears I run out as quickly as I can. I look back for a second and see that he is looking at me with the most unsettling stare and below his chest where I punched him hard his clothes were intact but his stomach sunken inwards.
+
+I reach home safely and hide the burn with a weird turtleneck pullover. I check the news and see that a family of four were missing and there is an ongoing investigation on the matter the weird thing was he had a family of four and they lived at the exact same address and to my horror it was my friend's family all of their photos on my screen I couldn't sleep that night I was to shocked to see anything. He hasn't appeared to school today his house is empty. I don't know what to do and after the encounter I was just too dumbfounded to speak.
+
+(Update)
+
+It's been 2 weeks since the incident I am still in trauma about what happened but then on the news.
+They were apparently found in chunks in the freezer of the house eerily my skin crawls with fear as I see my friend is the only one who was not found this is something I wish I had answers to. If  Anybody has an idea about what happened please let me know in the comments.
