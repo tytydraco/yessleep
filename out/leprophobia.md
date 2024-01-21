@@ -72,4 +72,4 @@ As we took Chris to the hospital. An officer questioned saying “care to explai
 
 After that, the swat team was about to get there! when they saw the BunnyHouse had burned down before they could find out what happened! And nobody could find the tunnel at all! And all the bunny memorabilia was stolen from the storage unit!
 
-It’s been years since that happened! Although Scott and Chris recovered! They still are not their old selves, Rand still is unemployed, and I still can hear the thumping  and screaming at night! But at least there in the neighboring town of Maricopa Arizona!
+It’s been years since that happened! Although Scott and Chris recovered! They still are not their old selves, Randy still is unemployed, and I still can hear the thumping  and screaming at night! But at least there in the neighboring town of Maricopa Arizona!

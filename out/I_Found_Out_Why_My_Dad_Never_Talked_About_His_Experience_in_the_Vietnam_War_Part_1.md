@@ -92,15 +92,15 @@ There's a crackling response from the radio, the voice on the other end distant 
 
 Suddenly, without warning, more bullets whistle through the trees, an invisible death raining from all sides.
 
-A sharp whistle pierces through air, a harbinger of further violence. It's quickly followed by a flood of Viet Cong charging out of the jungle, their weapons firing wildly. Their faces are a blur of hatred, illuminated sporadically by the flashes of their guns.
-
-In an instant, our position transforms into a maelstrom of bullets and screams. We return fire, but it's a desperate, uneven battle.
-
 In the midst of the chaos, Sergeant Nghia swiftly assumes command. "Corporal Thanh, fire a flare!" he shouts.
 
 Without hesitation, I reach for the flare gun. I aim skyward, and with a deep breath, pull the trigger. The flare bursts into the night sky, a beacon of bright red against the dark canopy, casting an eerie glow over the battlefield.
 
 The sudden illumination reveals a sight that causes my heart to sink. Before us, stretching across the forest floor, is what appears to be an entire battalion of Viet Cong soldiers. Their numbers are overwhelming, like a dark tide threatening to engulf us.
+
+A shrill whistle pierces through air, a harbinger of further violence. It's quickly followed by a flood of Viet Cong charging out of the jungle, their weapons firing wildly. Their faces are a blur of hatred, illuminated sporadically by the flashes of their guns.
+
+In an instant, our position transforms into a maelstrom of bullets and screams. We return fire, but it's a desperate, uneven battle.
 
 "Hold your ground!" Nghia barks.
 
@@ -112,13 +112,13 @@ In the midst of this chaos, a Viet Cong soldier lunges at me, his bayonet gleami
 
 In a swift motion, I sidestep his charge, feeling the rush of air as the bayonet slices past me. I grab his arm, using his own momentum against him, and twist it violently. The AK clatters to the ground. We are now locked in a desperate struggle, our faces just centimeters apart.
 
-I can see the fire in his eyes, the raw desire to survive. His breath is ragged, his movements fueled by adrenaline.
+His eyes lock onto mine. I can see the raw desire to survive in his eyes. We both know it's either him or me.
 
 With a surge of strength, I push him back. He stumbles, but quickly regains his balance, his eyes never leaving mine. We circle each other warily, each waiting for an opening. The sounds of battle around us fade into the background, this moment becoming a world unto itself.
 
 Suddenly, he lunges again, his fists aimed at my face. I deflect his blows, feeling the impact resonate up my arms. I counter with a punch of my own, catching him off-guard. He reels back, but I don't let up. I grab a discarded rifle from the ground and swing with all my might.
 
-The rifle butt connects with his head with a sickening thud, sending him sprawling to the ground. He's dazed, but not defeated. His eyes lock onto mine. We both know it's either him or me.
+The rifle butt connects with his head with a sickening thud, sending him sprawling to the ground. He's dazed, but not defeated. 
 
 Without hesitation, I raise my rifle, aiming it squarely at his chest. The weight of the decision presses on me, but survival leaves no room for doubt. I squeeze the trigger. The sound of the shot echoes in my ears. His body jerks with the impact, then lies still. I don't linger on the act; there's no time for remorse or reflection in the heat of battle.
 
