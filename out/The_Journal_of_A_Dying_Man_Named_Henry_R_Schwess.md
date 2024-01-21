@@ -38,7 +38,7 @@ Once inside my car, I opened up the journal. The paper had held up pretty good t
 >  
 >*Renard had also been stressing over his brother being in the war, so maybe coming out here could help us all unwind a little bit and escape from all this shit going on. Earl wanted to enlist, but he was rejected because he was so far below able-bodied as humanly possible.*  
 >  
->*I highly doubt he even cared about the war effort. He just wanted to enlist so he could have something to brag about. To make himself feel superior. That's what drove him the most, I think. Just always saw everyone else as below him.*   
+>*I highly doubt he even cared about the war effort. He just wanted to enlist so he could have something to brag about. To make himself feel superior. That's what drove him the most, I think. Just always saw everyone else as below him.*  
 >  
 >*Renard and I scraped together enough money to get substitutes. Yeah, I know its frowned upon. But, well, we had families and we just, well, couldn't really bare the thought of having to look into their eyes when our own eyes had seen hell up close and personal.*  
 >  
@@ -124,7 +124,7 @@ So those are the first four pages done. The writing in the last five was rougher
 >  
 >*I doubt I'm gonna last much longer. The damn arrow cut me pretty deep. Mostly been writing in this to distract myself from the fact that I'm probably not gonna see my family again. Always promised myself that I'd be there for my boys more than my Pa was for me. To never leave my wife's side without good reason. To always try to be home as much as I could and not pissing away somewhere.*  
 >  
->*Should I curse those people for what they've done? No. The only person I'm cursing is that worthless, piss-drinking cunt, Earl. Thanks a lot you useless waste of a man. If I end up in hell, I'll just be happy as can be to know your down there with me and I get to watch you screaming for eternity.*  
+>*Should I curse those people for what they've done? No. The only person I'm cursing is that worthless, piss-drinking trash, Earl. Thanks a lot you useless waste of a man. If I end up in hell, I'll just be happy as can be to know your down there with me and I get to watch you screaming for eternity.*  
 >  
 >*Those people were fucking vicious. But, can't say I blame them for what they've done. They don't think like us after all. They have a different way of doing things and grief is a powerful thing to feel after all. Especially when a loved one's life's been taken by someone so callously. Its not like they were bothering us before Earl just went Earl and did something stupid and cruel.*  
 >  
@@ -136,6 +136,6 @@ So those are the first four pages done. The writing in the last five was rougher
 
 I closed the journal and let it fall on my lap. My skin was clammy and as a pale as milk. My mouth dry. My eyes unblinking. I slowly processed everything that I'd read. All that gruesome horror. And all that sadness.
 
-When I got home I put Henry's journal on the coffee table and just went upstairs and laid on my bed. Doubt I'll be getting any sleep tonight, after that nightmarish shit-show I just read. Just who were those people? And are they still around or have they vanished into history? 
+When I got home I put Henry's journal on the coffee table and just went upstairs and laid on my bed. Doubt I'll be getting any sleep tonight, after that nightmarish shit-show I just read. Just who were those people? And are they still around or have they vanished into history?
 
 Either way, I need to show this journal to everyone. And then hopefully, Henry's descendants might finally be able to know about what happened to him. And I fucking hope Earl's having a swell time down in hell right now.
