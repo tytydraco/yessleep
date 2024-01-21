@@ -1,4 +1,5 @@
 [Part 1](https://www.reddit.com/r/nosleep/s/oxwKRumKqu), [Part 2](https://www.reddit.com/r/nosleep/s/jcfl55d0jl), [Part 3](https://www.reddit.com/r/nosleep/s/SIDc0BYlz6)
+[Part 5](https://www.reddit.com/r/nosleep/s/UMEnu2LuNG)
 
 
 The black smoke filled the air, the stench of the landfill smelled of garbage, excrement, and burning flesh. 

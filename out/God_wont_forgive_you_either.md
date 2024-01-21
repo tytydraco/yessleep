@@ -34,7 +34,7 @@ I feel ill at the whole encounter. My breathing is laboured and my skin is burni
   
 I really should've taken her up on that water I think to myself as I pass the threshold of the door and make my way to the old man who lay dying.  
   
-He lay in his mechanized bed, eyes alert and watching me as I enter with neat grey hair combed to the side of his head. I notice his blue hospital scrubs hanging on his bedside chair before I notice that he isn't wearing them. He wore instead a cleanly pressed white button down shirt fastened all the way to his starched collar. The type of shirt one wears tucked in, coupled with dress pants. His blanket covers him up to his thighs revealing that he is wearing just that.  
+He was laid out in his mechanized bed, eyes alert and watching me as I enter with neat grey hair combed to the side of his head. I notice his blue hospital scrubs hanging on his bedside chair before I notice that he isn't wearing them. He wore instead a cleanly pressed white button down shirt fastened all the way to his starched collar. The type of shirt one wears tucked in, coupled with dress pants. His blanket covers him up to his thighs revealing that he is wearing just that.  
   
 "Hello, my son." I say calmly, trying to convey an air of tranquility.   
   
@@ -58,7 +58,7 @@ I pick up the chart at the foot of his bed to find his name. "Do you feel you ca
   
 The old man raises a grey eyebrow inquisitively. "What'd you do?"  
   
-"I won't go into too much detail, but I will tell you that I ran afoul from God's love in my youth." I say as I take a seat on a bedside chair next to him. "I've done a great many things I am not proud of. Criminal, unspeakable things before I found our Lord and saviour Jesus Christ. With his guidance, I have been born again, making it my life's work to atone for my sins by helping to guide others to the light of our Father."  
+"I won't go into too much detail, but I will tell you that I ran afoul from God's love in my youth." I say as I take a seat on a bedside chair next to him. "I've done a great many things I am not proud of before I found our Lord and saviour Jesus Christ. With his guidance, I have been born again, making it my life's work to atone for my sins by helping to guide others to the light of our Father."  
   
 "I don't want to cut you off here priest..." Mr. Kelly begins. "But you don't look so good."  
   
@@ -80,7 +80,7 @@ Do you reject Satan, father of sin and prince of darkness? I say, pulling my ros
   
 I try and speak over him.  
   
-"Do you reject Satan..." My whole world abruptly begins to spin. "Do you.... reject" my breath now becoming labored. "Do..." I tug at my collar to get some air. "I'm going to be sick." I fumble out of my chair and open the door to the in-room bathroom while heaving. The contents of my stomach completely expelled in bursts, the first of which missing it's intended target of the toilet. I don't know how long I sat on that bathroom floor or if I was even conscious for all of it.   
+"Do you reject Satan..." My whole world abruptly begins to spin. "Do you.... reject" my breath now becoming labored. "Do..." I tug at my collar to get some air. "I'm going to be sick." I fumble out of my chair and open the door to the in-room bathroom while heaving. The contents of my stomach completely expelled in bursts, the first of which missing it's intended target of the toilet completely. I don't know how long I sat on that bathroom floor or if I was even conscious for all of it.   
   
 When I felt strong enough to stand, I reached into my pocket for more aspirin. I'm pretty sure I vomited most of the first two and besides, my head was pounding. I cleaned my mess on the floor and splashed cold water from the sink on my face to quench the heat radiating from my skin.  
   
