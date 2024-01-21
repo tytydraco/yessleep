@@ -32,8 +32,7 @@ There was a girl in the lot somewhere, and she was crying.
   
 I told Josh to shut up, and to stay on the line. He mumbled something, I couldn’t understand what. I was scanning, trying to find the source of the cry. I don’t know why I didn’t just book it back. I guess part of me wanted to make sure and find out that it was a dog or animal, and that some seriously fucked up shit wasn’t happening a mile and a half outside of my apartment.  
   
-I want to say that a dog limped out between the cars with a broken  
-leg. I want to say that I took the dog back to the animal hospital, safe and sound, and that he was adopted and that the family took great care of him and nothing shady had been happening in the truck lot behind my apartment.  
+I want to say that a dog limped out between the cars with a brokenleg. I want to say that I took the dog back to the animal hospital, safe and sound, and that he was adopted and that the family took great care of him and nothing shady had been happening in the truck lot behind my apartment.  
   
 I can’t say that.  
   

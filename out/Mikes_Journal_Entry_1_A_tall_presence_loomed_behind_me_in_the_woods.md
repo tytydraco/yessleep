@@ -1,0 +1,23 @@
+This will the first journal I've ever had because I need to get this out of my system and I don't have anyone to share my experience of what I felt and the sounds I heard today without sounding like a crazy person.
+
+Today I was driving to my aunt's place to get a break from my parents constantly wanting to know what I want to do with my life. I worked in a warehouse to save up enough to live a month with my aunt in the guest house. They live 100 miles from the border of Canada and was about a 12-hour drive. I was exhausted from driving, paired with the isolation could explain why my mind produced what I felt today. Too explain how isolated they lived; their house took about an hour to drive from the highway if you add the 2-mile gravel road through the woods. 
+
+When I parked next to their truck my aunt Kirsty and her husband John walked out of the house to greet me and help me with my luggage. I proceeded with the pleasantries, thanked them for their help, and walked up the wooden steps into their house. We sat down on a big leather couch together and I reported on what my family back home were doing. Their house was how you would describe an old hunting cabin with tough pelts on seats and floors, old cabinets, and wooden beams along the corners of the house. They explained what they were doing and the different activities we would be along this month. We sat down for dinner and when we finished John invited me to go into the forest and hunt for pigeons. I agreed and he lent me a thick hunting coat and boots. Not expecting anything we brought a shotgun and went into the woods. So far it had been pleasant staying here. 
+
+We walked over the wall of stacked stone into the woods and started walking along the forest with a bed of dried dirt and pine needles. Further up the path we arrived at the lake where we would be hunting. The sun was still visible through the clouds covering the entire observable sky, but we knew that it would quickly become darker outside. I felt nature calling and said I would be back to John. Then picked a tree to do my business. We shouted small blurts of banter between ourselves. Half-way through I heard a chipping and scratching sound coming from on top of the tree and looked up. Suddenly a big piece of bark landed on the other side of the tree. I jumped up and shook off getting spooked. I stare back down thinking it was just a bird or something. Then it happened what has been bothering me. Something about not seeing behind me and the surrounding darkness slowly enveloping the forest triggered this experience. I started to feel a tall and wide presence signaling me the sense of wrongdoing from the top of my head, the sides of my shoulders, to my upper and lower back. I shouldn't have been there. I jerked around to the trees behind me and of course, there was nothing there. I have to stop this sense of paranoia. These "premonitions" can't be healthy. 
+
+I jogged back, met up with John, and told him about the bark falling, asking if he saw a woodpecker by my tree, but he shook his head. He chuckled to himself and told me about the local crazy old man. Didn't help me being freaked out and that he associated me with crazy, but what he said has me thinking of searching up the man. John explained that they have an old man living about 1 mile northeast of their house. He lost his wife 7 years ago who walked into the forest and never returned, never found a trace of her either. She suffered from demensia before she left, the police suspected the husband first since he said he said they got her, they are in the trees. John said he served in the Vietnam War, the ptsd probably got triggered after the shock of losing his wife. He was given therapeutic help processing this, but still, after all these years, he keeps wandering with his dogs through the forrest warning of people being in the trees. Crazy as he said.
+
+We went home with no game to show for. There was no birds to begin with and now that I think about it the forest was eerily quiet for being so far from civilisation, where you'd expect all kinds of animals. Even if we prepared the day before I doubt we would get to shoot at anything.
+
+I hope not to replicate the feeling again, I only needed to write this down since I am still frightened and can't seem to shake this feeling. Maybe you've had similar experiences like this you'd like to share with me. I hope I won't have to write similar entries like this one, and I can just ignore this incident and hopefully improve my mood to have a more enjoyable stay. Thanks for reading.
+
+&#x200B;
+
+&#x200B;
+
+&#x200B;
+
+&#x200B;
+
+&#x200B;
