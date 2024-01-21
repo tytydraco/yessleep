@@ -1,4 +1,4 @@
-there is a house in Ajo Arizona, up on the mountain side, that used to exist! It was called the. And before it burned down it was being renovated. And I am glad it's gone!
+there is a house in Ajo Arizona, up on the mountain side, that used to exist! It was called the BunnyHouse. And before it burned down it was being renovated. And I am glad it's gone!
 
 Okay i should explain who i am before i tell you about the BunnyHouse! So I am Nate, a freelance house flipper, former employee at the DesertHome Company. And before this company went defunct we had one last job!
 

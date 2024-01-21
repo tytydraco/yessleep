@@ -1,19 +1,19 @@
-Can you remember the day your life changed forever? For some people, it was the birth of their first child, the death of a loved one, or an event that scarred them for life.   
-  
-I can remember the day my life changed forever.   
-  
-My wife Susan and I were returning from a New York trip. We had an amazing time, she couldn’t stop talking about it on the way home. I promised her we could go back whenever she wanted, we only lived seven hours away.   
-  
-I have always been able to talk and pay attention to the road. It’s why I’m always the one driving the car.   
-  
-I still remember the smile on her face, seconds before we were hit. A car came from the treeline and rammed into our car.   
-  
-I can remember Susan screaming for me to wake up. I couldn’t open my eyes.   
-  
-When I finally woke up in the hospital, I was told she died on impact.   
-  
-\-  
-  
+Can you remember the day your life [changed forever?](https://www.reddit.com/r/nosleep/comments/19c4psh/four_kids_went_missing_last_summer_my_job_is_to/?utm_source=share&utm_medium=web2x&context=3) For some people, it was the birth of their first child, the death of a loved one, or an event that scarred them for life.
+
+I can remember the day my life changed forever.
+
+My wife Susan and I were returning from a New York trip. We had an amazing time, she couldn’t stop talking about it on the way home. I promised her we could go back whenever she wanted, we only lived seven hours away.
+
+I have always been able to talk and pay attention to the road. It’s why I’m always the one driving the car.
+
+I still remember the smile on her face, seconds before we were hit. A car came from the treeline and rammed into our car.
+
+I can remember Susan screaming for me to wake up. I couldn’t open my eyes.
+
+When I finally woke up in the hospital, I was told she died on impact.
+
+\-
+
 For a couple of months, I went back to work. I was a police detective for a small town in Massachusetts. Everything came crashing down when I got Susan's life insurance. It was like being in a car accident all over again.   
   
 I quit my job after that and spent two months in a mental hole that felt impossible to climb out of. Every moment spent trying to heal was agony. I had to find a different way to heal, I needed to keep myself occupied.   
@@ -39,7 +39,7 @@ I sat down again and read the cart out loud, twice.
   
 “I am giving this package to you in the hopes that you can help me. In July, a series of kidnappings happened that we haven’t been able to solve. $1,000 is enclosed in the envelope under this letter, it will cover your investigation. If you find anything please call 351-XXX-XXXX.”   
   
-The moment I placed the letter on the table I went looking for the money and sure enough it was all there. No one has ever given me that much upfront before, so this must’ve been serious. After counting the money I looked around to see if there was a return address or something on the box, when I couldn’t find it I started digging through the folders.   
+The moment I placed the letter on the table I went looking for the money and sure enough it was all there. No one has ever given me that much upfront, so this must’ve been serious. After counting the money I looked around to see if there was a return address or something on the box, when I couldn’t find it I started digging through the folders.   
   
 \-  
   
@@ -77,7 +77,7 @@ When the pain finally subsided I checked the box. The only other thing Riley had
   
 The next batch was for a girl named Alice Andrews.   
   
-She had the least amount of information in her file. As I sorted through her folder I found a picture of her standing outside of the Steadfast Hotel. The hotel looked old, the neon side behind Alice lit up with the SF connected.   
+She had the least amount of information in her file. As I sorted through her folder I found a picture of her standing outside the Steadfast Hotel. The hotel looked old, the neon side behind Alice lit up with the SF connected.   
   
 The last item in her bag was a pink pen.   
   
@@ -93,7 +93,7 @@ The second photo was him sitting outside of a place called the Faraday Carnival,
   
 The third photo was extremely blurry. I could see Charlie sitting in front of a ride, but everything around him was blurry. His shirt had the words White Noise on it.   
   
-The last few pictures disturbed me. Every single one was of him sleeping, his dog sleeping, and what I assumed to be his parents sleeping. I quickly put everything back into the box and put the money in my coat pocket.   
+The last few pictures disturbed me. Everyone was of him sleeping, his dog sleeping, and what I assumed to be his parents sleeping. I quickly put everything back into the box and put the money in my coat pocket.   
   
 I was going to bring the box to the police station but I heard something rustling outside of my house. I moved quickly to get my boots on and took a baseball bat from next to my door with me, as I flung the door open I could hear whimpering outside.   
   
@@ -191,3 +191,4 @@ Luckily for us, Taylor was right. I kept driving around until around 6 in the mo
 My next goal was to get us to a hospital, though I knew I had a lot of explaining to do. I let Taylor sleep for the rest of the ride.   
   
 I still couldn’t believe what I saw. That thing was clearly not human, and for it to just disappear was wild. We were fortunate that I grabbed my go bag, and had my cellphone with me. After we take a trip to the hospital, I am going to find out what that creature wanted from the box.   
+  
