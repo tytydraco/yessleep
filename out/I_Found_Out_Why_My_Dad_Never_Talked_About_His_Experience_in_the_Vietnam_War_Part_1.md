@@ -196,7 +196,7 @@ Each step is deliberate, calculated to avoid snapping twigs or rustling leaves. 
 
 As I inch closer, the details of the sniper's perch become clearer. He's nestled in a crook of a large tree, his position commanding a clear view of the clearing.
 
-I continue my approach, moving in a wide arc to flank his position. The ground here is littered with fallen leaves, a natural carpet that muffles my footsteps. I'm close now, close enough to hear the faint creak of him reloading his rifle, scanning the clearing for any sign of movement. The sniper is a slight figure, his body language tense and focused. He's armed with an SKS rifle. A conical straw hat conceals his face, blending him into the natural surroundings.
+I continue my approach, moving in a wide arc to flank his position. The ground here is littered with fresh fallen leaves, a natural carpet that muffles my footsteps. I'm close now, close enough to hear the faint creak of him reloading his rifle, scanning the clearing for any sign of movement. The sniper is a slight figure, his body language tense and focused. He's armed with an SKS rifle. A conical straw hat conceals his face, blending him into the natural surroundings.
 
 My hand tightens around the grip of my M16. I raise it slowly, lining up the sights with where I expect his head to be. My breathing steadies, my finger gently pulling on the trigger.
 
