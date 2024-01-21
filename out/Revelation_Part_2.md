@@ -2,7 +2,9 @@ Part 1
 
 https://www.reddit.com/r/nosleep/comments/199dn5m/revelation/
 
+Part 3
 
+https://www.reddit.com/r/nosleep/comments/19brol6/revelation_part_3/
 
 
 

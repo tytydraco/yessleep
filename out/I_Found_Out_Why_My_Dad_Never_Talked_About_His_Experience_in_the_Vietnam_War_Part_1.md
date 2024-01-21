@@ -18,7 +18,7 @@ I sat there, stunned. My father had always been a closed book when it came to hi
 
 He nodded slowly, his gaze fixed on a point beyond the walls of the room. “Yes, it’s time you knew.” He took a deep breath, as if gathering the strength to delve into memories long buried.
 
-The following story is a direct translation from Vietnamese to English of my dad's account of his experience:
+The following story is a direct translation from Vietnamese to English of my dad's account of his experience with his permission:
 
 April 17, 1968
 
