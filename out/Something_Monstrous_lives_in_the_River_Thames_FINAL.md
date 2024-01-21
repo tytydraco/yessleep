@@ -174,7 +174,7 @@ It’s to *warn* you.
 You see, I honestly never would have said anything about that horrific night. About the creature at all. Because ever since that night, pets have stopped going missing from near the river around Maidenhead. So have people. For a while, I felt sure that my wounding it had driven it off. That I would never hear anything about it again.
 
   
-Until I saw a post on Reddit last year. One of a picture, taken on the banks of the Thames near London. The image is blurry, but it shows something horrifyingly *familiar* to me. Something which is sticking its head slightly out of the water, gazing at the viewer with what appears to be a glaring red eye.
+Until I came across post on Reddit few weeks ago. One of a picture taken earlier in the year, taken on the banks of the Thames near London. The image is blurry, but it shows something horrifyingly *familiar* to me. Something which is sticking its head slightly out of the water, gazing at the viewer with what appears to be a glaring red eye.
 
   
 It’s *one* *remaining* red eye.
