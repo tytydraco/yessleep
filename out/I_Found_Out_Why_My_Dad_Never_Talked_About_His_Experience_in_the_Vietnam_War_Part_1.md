@@ -32,7 +32,7 @@ The jungle, dense and unforgiving, seems to absorb our every breath, every heart
 
 In the hushed whispers around the campfire, we don't just share rations; we share stories of our loved ones. Lieutenant Tuấn talks about his little brother, a bright-eyed boy who wanted to be a teacher, now lying in an unmarked grave. Private Sĩ's voice breaks as he recounts the night the North Vietnamese soldiers stormed his village, his mother's cry haunting his dreams.
 
-As I finish setting the mine, my fingers, calloused and scarred, instinctively reach into the pocket of my uniform. I pull out a photo from my pocket, worn from too many days tucked close to my heart. It's a family photo, one of the few keepsakes I have from a life that now seems a world away. My eyes linger on one face in particular - Hiệp, my older brother.
+As I finish setting the mine, my fingers, calloused and scarred, instinctively reach into the pocket of my uniform. I pull out a photo, worn from too many days tucked close to my heart. It's a family photo, one of the few keepsakes I have from a life that now seems a world away. My eyes linger on one face in particular - Hiệp, my older brother.
 
 Hiep, the person who taught me how to ride a bike on the uneven dirt roads of ​​Túy Loan. Hiep, the person who used his own body to shield mine, when our drunken father came home in a fury, his fists itching for something to hit.
 
@@ -120,7 +120,7 @@ Suddenly, he lunges again, his fists aimed at my face. I deflect his blows, feel
 
 The rifle butt connects with his head with a sickening thud, sending him sprawling to the ground. He's dazed, but not defeated. His eyes lock onto mine. We both know it's either him or me.
 
-Without hesitation, I raise my rifle, aiming it squarely at his chest. The weight of the decision presses on me, but survival leaves no room for doubt. I squeeze the trigger. The sound of the shot echoes in my ears, a grim reminder of the line I've just crossed. His body jerks with the impact, then lies still.I don't linger on the act; there's no time for remorse or reflection in the heat of battle.
+Without hesitation, I raise my rifle, aiming it squarely at his chest. The weight of the decision presses on me, but survival leaves no room for doubt. I squeeze the trigger. The sound of the shot echoes in my ears. His body jerks with the impact, then lies still. I don't linger on the act; there's no time for remorse or reflection in the heat of battle.
 
 In the midst of this frenzy, I catch sight of Sergeant Nghia. He's moving with a limp, his usual steady gait now faltering. Blood seeps through the dark green fabric of his fatigues. Despite his injury, he continues to fire, his resolve unbroken.
 

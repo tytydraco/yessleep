@@ -130,4 +130,4 @@ When I returned to the library the next day, I found that I couldn’t find eith
 I knew my plan to get proof was dangerous.   
 
 
-What I didn't know, though, was that the next night I would come face to face with a horror beyond my understanding or comprehension. One that would almost be the *last* thing I ever saw.
+What I didn't know, though, was that in a few night's time, I would come face to face with a horror beyond my understanding or comprehension. One that would almost be the *last* thing I ever saw.

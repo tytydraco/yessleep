@@ -105,3 +105,5 @@ My mind was reeling, my heart racing with every disturbing scenario that flooded
 With the bizarre nature of the video blinking from dark to brief flashes of light, I couldn't tell exactly how it moved, once I finally got up the nerve to rewatch it. It looked to be somewhat human in its appearance, but its stature was far more primal and animalistic.
 
 Perhaps this was not the best scenario for a more imaginative mind, thrusting thoughts of anything from cryptids to wayward aliens against the forefront of my brain, but I knew I had to get a handle on myself. One thing was certain, though: I would not be sleeping again, anytime soon–not in this cabin. Not until I get some [answers](https://www.reddit.com/r/WillRayne/s/7qfI6sDFKC)
+
+[Final](https://www.reddit.com/r/nosleep/s/TyyMwBWVhb)
