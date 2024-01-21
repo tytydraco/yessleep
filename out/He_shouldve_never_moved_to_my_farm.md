@@ -1,6 +1,10 @@
+[Part One](https://www.reddit.com/r/nosleep/s/Sh3yDbkRFq)
+
+[Part Two](https://www.reddit.com/r/nosleep/s/RE3hzIWsaG)
+
 I never thought I’d come back to this place. But here I am, sitting before you, fingers warming as the friction from my *click-clack* of the keys intensifies. I write so earnestly in the attempt to shed light on what has happened at my old family farm over these last months. I’m also doing this selfishly; I can’t bear the thought of another person stumbling onto this curse. So please, if you take nothing else away from what I’m about to tell you, at least remember to never come looking for this farm. Never come near this land. You’ll be trapped here forever if you do.
 
-You all deserve an update, and as I was named directly by our previous pen I thought it was only appropriate to document this story myself. My name is Mama M, and I was the one stupid and desperate enough to unload this infected land onto that poor man. 
+You all deserve an update, and as I was named directly by our previous pen I thought it was only appropriate to document this story myself. My name is Mama M, and I was the one stupid and desperate enough to unload this infected land onto that poor man. He, fortunately for me, left his laptop open, logged into this page, and I now understand what might have happened here. To him. 
 
 I didn’t curse him knowingly. Having grown up in a cursed family I have my own lion's share of experience in the supernatural. I made it my entire life; not just the farm, but other curses and entities as well. As a cocky 20 something I thought, defianty, after my first successful thwarting of the demonic that I was, of course, invincible, and I needed to use this ability to help others. I’d cleansed one accursed being, so surely I could cleanse them all. And for quite awhile, I did. But that all worked around my grounding or came after this unfortunate mishap.
 
@@ -22,7 +26,3 @@ He remained, until his death, in continuous suspension into the unknown; a demon
 I give you all this background not to expunge myself but to, instead, let you understand the true nature of the land. I don’t know what imparted the original curse, but there was absolutely someone after my grandfather, and they, without doubt, won in their war waged against him. The issue is that the misstep my grandfather made was so egregious that we cannot cleanse the land despite the fact that he’s gone. Therefore, whoever did this didn’t want just him to suffer. They were so angry that they wanted us to all suffer as well. 
 
 I’ll return tomorrow to let you know everything I do about our previous pen, but until then I have monsters to fight. I pray I’ll speak to you tomorrow. The tapping has already begun, and if I’m to make it through the night, I have to hide. Now.
-
-[Part One](https://www.reddit.com/r/nosleep/s/Sh3yDbkRFq)
-
-[Part Two](https://www.reddit.com/r/nosleep/s/RE3hzIWsaG)
