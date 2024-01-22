@@ -6,6 +6,15 @@ Part 2
 
 &#x200B;
 
+
+Part 4
+
+https://www.reddit.com/r/nosleep/comments/19cmv99/revelation_part_4_final/
+
+
+
+
+
 Me and my girlfriend, Clara, sat watching TV, bored, in my bachelor apartment. 
 
 
