@@ -26,7 +26,7 @@ A man with a messy side cut, dark hair and lapis blue eyes jostled me awake.
 
 he said, calling in a young, thin teen with a bowl cut and safety goggles on.
 
-*"I don't know* ***EVERYTHING****, dude! Also, CPR only works on people who are drowning. Is this guy drowning?"*
+*"I don't know EVERYTHING, dude! Also, CPR only works on people who are drowning. Is this guy drowning?"*
 
 Apache quickly and incoherently spouted.
 
