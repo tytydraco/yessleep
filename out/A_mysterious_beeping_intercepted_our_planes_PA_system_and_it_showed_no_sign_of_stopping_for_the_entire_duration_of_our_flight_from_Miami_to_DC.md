@@ -62,7 +62,7 @@ The beeping didn’t sound so random anymore. I mean, an hour into listening to 
 
 The most noticeable pattern would be these longer than normal gaps between each set or sequence of beeps. After the gap, the same series of beeps would play again. 
 
-I even managed to record and isolate one of these sequences later on: [~https://drive.google.com/file/d/1uAr0cjfS\_zwCtM8RVKe7flalmbXW5oNc/view?usp=sharing~](https://drive.google.com/file/d/1uAr0cjfS_zwCtM8RVKe7flalmbXW5oNc/view?usp=sharing) 
+I even managed to record and isolate one of these sequences later on. 
 
 Rick had apparently figured this out before I had because his knee seemed to be shaking perfectly in sync with the beeping. He was mouthing the sounds as well. Maybe we were both going insane.
 
