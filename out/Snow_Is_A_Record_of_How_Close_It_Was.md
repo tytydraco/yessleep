@@ -1,4 +1,3 @@
-Not sure how long this post will be. If there is interest or questions I'll try my best to respond. 
 
 Live in Eastern Tennessee. Great cost of living. Access to mountains, streams, trails, rivers, and lakes. Involved in literally all things outdoors. 
 
@@ -22,6 +21,8 @@ I let out a light breath and whispered out to Joe. "Joe what the hell was that, 
 
 I laid there for hours. It felt like that night wouldn't ever end. I never heard it again. And eventually exhaustion got me. My eyes couldn't stay open any longer and I dosed for what had to be less than 5 minutes. I woke up panicked reaching for my phone/wood hatchet. And heard it fucking sprint away from my tent. Back up the hill. Long strides. Bounding almost. 
 
-I sat there till dawn with my hatched in my hands. 
+I sat there till dawn with my hatchet in my hands. 
 
-Joe was up first. I heard his tent unzip. "Woah it snowed a little last night". I unzipped just as fast and to my horror...tracks led up the valley. Tracks I had never seen before. Bipedal. Round indentions on the balls of the feet with three other round indentions for toes. We could only find one intact track....all the others look like they had been scraped over with a hand or broom. It was still snowing so it got covered up too quickly and both our phones had got the power sucked out overnight. Joe didn't believe me. But on the way out of camp. The kid across from me locked eyes with me. And I could tell he heard it too..
+Joe was up first. I heard his tent unzip. "Woah it snowed a little last night". I unzipped just as fast and to my horror...tracks led up the valley. Tracks I had never seen before. Bipedal. Round indentions on the balls of the feet with three other round indentions for toes. We could only find one intact track....all the others look like they had been scraped over with a hand or broom. It was still snowing so it got covered up too quickly and both our phones had got the power sucked out overnight. Joe didn't believe me. But on the way out of camp. The kid across from me locked eyes with me. And I could tell he heard it too..tears welled up in his eyes and he begged his dad to leave. 
+
+We hiked out in awkward silence. I walked into a gas station half way home and the stress bled off me, tears filled my eyes too. I had never been so scared in all my years of outdoor adrenaline rushes. Turns out local lore says there is a "Screamer" that roams the area. Me and Joe haven't talked since. 
