@@ -122,7 +122,7 @@ As I neared where Max stood, the reason for his bewilderment became apparent. Th
   
 
   
-"Jesus Christ, Max," Sarah's form now seemed to be quivering, the lightest of touches enough to set her off. Her eyes avoided the wolf with conspicuous intent, clearly attempting to direct her sudden burst of fear toward a different emotion. "This isn't the fucking 1800s, you can't say shit like that, dumbass."
+"Jesus Christ, Max," Sarah's form now seemed to be quivering, the lightest of touches enough to set her off. Her eyes avoided the wolf with conspicuous intent, clearly attempting to direct her sudden burst of fear toward a different emotion. "This isn't the goddamn 1800s, you can't say shit like that, dumbass."
   
 
   
@@ -230,7 +230,7 @@ I scrambled back, turning to see the others stopped in their tracks, staring at 
   
 
   
-"Fuck, okay, does anybody know first aid?" Sarah gingerly raised her hand, which I nodded at. "Okay. Get her to the car and patch her up. Penny, if you feel anything change, and I mean anything, tell us, alright? We're gonna stay for the night, but if you so much as feel uncomfortable, we're out of here." She nodded, her eyes refusing to leave the shallow wound left by the deer. Upon arriving at the campsite, Sarah and Penny both immediately sat down, with the former grabbing the medical kit from the tent. I turned to Max, who was kneeling over the campfire and attempting, albeit failing, to light the pile of twigs.
+"Shit, okay, does anybody know first aid?" Sarah gingerly raised her hand, which I nodded at. "Okay. Get her to the car and patch her up. Penny, if you feel anything change, and I mean anything, tell us, alright? We're gonna stay for the night, but if you so much as feel uncomfortable, we're out of here." She nodded, her eyes refusing to leave the shallow wound left by the deer. Upon arriving at the campsite, Sarah and Penny both immediately sat down, with the former grabbing the medical kit from the tent. I turned to Max, who was kneeling over the campfire and attempting, albeit failing, to light the pile of twigs.
   
 
   
@@ -318,7 +318,7 @@ Max immediately got on top of me, his fingers wrapping around my neck as he cont
   
 
   
-"Oh God," I wheezed, finally managing the strength to push myself off of the ground. "What the fuck are we gonna do?" Max, who was delicately closing Sarah's eyes, ignored my question, instead directing his attention to Penny's corpse. Its limbs twitched, faint raspy breaths still being drawn despite the hole tearing straight through her skull.
+"Oh God," I wheezed, finally managing the strength to push myself off of the ground. "What are we gonna do?" Max, who was delicately closing Sarah's eyes, ignored my question, instead directing his attention to Penny's corpse. Its limbs twitched, faint raspy breaths still being drawn despite the hole tearing straight through her skull.
   
 
   

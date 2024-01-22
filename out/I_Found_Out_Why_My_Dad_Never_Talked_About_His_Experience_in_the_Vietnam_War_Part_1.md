@@ -112,6 +112,8 @@ In the midst of this chaos, a Viet Cong soldier lunges at me, his bayonet gleami
 
 In a swift motion, I sidestep his charge, feeling the rush of air as the bayonet slices past me. I grab his arm, using his own momentum against him, and twist it violently. The AK clatters to the ground. We are now locked in a desperate struggle, our faces just centimeters apart.
 
+The soldier, quick and agile, doesn't falter. With a sudden jerk, he breaks free of my grasp and in a fluid motion, sweeps my rifle away, leaving me disarmed too.
+
 His eyes lock onto mine. I can see the raw desire to survive in his eyes. We both know it's either him or me.
 
 With a surge of strength, I push him back. He stumbles, but quickly regains his balance, his eyes never leaving mine. We circle each other warily, each waiting for an opening. The sounds of battle around us fade into the background, this moment becoming a world unto itself.
@@ -160,7 +162,7 @@ I risk a glance upwards and see a squadron of A-4 Skyhawks streaking across the 
 
 The VC soldiers, now fully aware of the impending danger, scatter in a frenzied attempt to evade the aerial assault.
 
-The jungle canopy shudders under the thunderous roar of the Skyhawks. Suspended for a fleeting moment, the world seems to hold its breath, awaiting the unleashing of their deadly cargo. Then, with a precision born of countless sorties, the aircraft release their payload. The objects, canister-like in shape, descend with a grim inevitability, their trajectory marking a path towards the heart of the enemy’s position.
+The jungle canopy shudders under the thunderous roar of the Skyhawks. Suspended for a fleeting moment, the world seems to hold its breath. Then, with a precision born of countless sorties, the aircraft release their payload. The objects, canister-like in shape, descend with a grim inevitability, their trajectory marking a path towards the heart of the enemy’s position.
 
 As the canisters impact, an inferno erupts, not the familiar, searing orange of napalm, but an otherworldly glow that paints the predawn in hues of eerie green and purple. The flames, unnaturally vibrant, consume the foliage with a voracious appetite, leaving behind a surreal landscape bathed in ghostly light.
 
