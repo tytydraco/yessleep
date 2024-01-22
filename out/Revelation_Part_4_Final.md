@@ -14,7 +14,7 @@ One day when I was sitting in my apartment looking at my game collection. We wer
 I hadn’t gotten very far in this game. I remember thinking it was massively overhyped. I popped it back in and played for a few hours. After a while I started feeling cuff links on both of my wrists and ankles.
 
 
-Yahweh's voice rung through my head ‘This game is in on it too. It’s the breaking weapons this time. Each time a weapon breaks it makes the spell more powerful. I’d advise you stop playing soon because this game is really going to get you if you do.’
+Yahweh's voice rung through my head ‘This game is in on it too. It’s the breaking weapons this time. Each time a weapon breaks it makes the spell more powerful. I’d advise you to stop playing soon because this game is really going to get you if you don't.’
 
 
 I stopped playing breath of the wild and went back to my collection to find another game. This time I pulled out The Last of Us. 
