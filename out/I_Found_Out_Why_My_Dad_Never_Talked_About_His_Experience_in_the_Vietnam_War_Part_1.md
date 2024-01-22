@@ -36,7 +36,7 @@ As I finish setting the mine, my fingers, calloused and scarred, instinctively r
 
 Hiep, the person who taught me how to ride a bike on the uneven dirt roads of ​​Túy Loan. Hiep, the person who used his own body to shield mine, when our drunken father came home in a fury, his fists itching for something to hit.
 
-Hiep, the village official with dreams of peace, whom the Viet Cong executed during the Tết Offensive, leaving his body in a ditch, along with their other victims, as if his life meant nothing. I can still see my sister-in-law, once vibrant and full of laughter, now wears the veil of a widow, her children's eyes reflecting a future stolen.
+Hiep, the village official with dreams of peace, whom the Viet Cong executed during the Tết Offensive, leaving his body in a ditch, along with their other victims, as if his life meant nothing. I can still see my sister-in-law, once vibrant and full of laughter,  wearing the veil of a widow, her children's eyes reflecting a future stolen.
 
 Every patrol, every ambush we set, is not just a military strategy; it's a personal vendetta. In the quiet moments, when the jungle whispers its ancient secrets, I find myself talking to my brother, promising him justice, promising that his death will not be in vain.
 
@@ -118,7 +118,7 @@ With a surge of strength, I push him back. He stumbles, but quickly regains his 
 
 Suddenly, he lunges again, his fists aimed at my face. I deflect his blows, feeling the impact resonate up my arms. I counter with a punch of my own, catching him off-guard. He reels back, but I don't let up. I grab a discarded rifle from the ground and swing with all my might.
 
-The rifle butt connects with his head with a sickening thud, sending him sprawling to the ground. He's dazed, but not defeated. 
+The rifle butt connects with his head with a sickening thud, sending him sprawling to the ground. He's dazed, but not defeated.
 
 Without hesitation, I raise my rifle, aiming it squarely at his chest. The weight of the decision presses on me, but survival leaves no room for doubt. I squeeze the trigger. The sound of the shot echoes in my ears. His body jerks with the impact, then lies still. I don't linger on the act; there's no time for remorse or reflection in the heat of battle.
 
