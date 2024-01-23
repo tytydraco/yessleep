@@ -54,7 +54,7 @@ Then there was the fire.
    
 I am thankful I caught it in time. If I tell people what I think happened, they will think I’m crazy, even with what’s happened since.
     
-According to the fireman, a series of frayed appliance cords in the kitchen must’ve gotten wet somehow. Bullshit. I had recently replaced the power cords when my ex took them when he moved - yes, he was that kind of guy. The important thing was I knew those cords were knew.
+According to the fireman, a series of frayed appliance cords in the kitchen must’ve gotten wet somehow. Bullshit. I had recently replaced the power cords when my ex took them when he moved - yes, he was that kind of guy. The important thing was I knew those cords were new.
     
 A stray spark caught a nearby paper towel roll according to the story. I noticed it almost instantly. I was playing Overwatch at the time, and I immediately leapt from the couch to get to the kitchen when I heard the fire alarm.
     
