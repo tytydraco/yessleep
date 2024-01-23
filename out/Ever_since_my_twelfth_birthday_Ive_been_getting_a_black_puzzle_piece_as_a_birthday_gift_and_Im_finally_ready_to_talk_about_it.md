@@ -140,7 +140,7 @@ I am thirty-six years old today.
 
 The absence is a neat 5x5 puzzle pieces large.
 
-The tentacles come and go easily through. I have seen enough to suspect that however many there are, they are all part of one greater entity. But that’s mere footnote. What matters is that there will come a day—whether x, y or z birthdays from now—when the absence will become big enough to allow the entire entity to transit.
+The tentacles come and go easily through. I have seen enough to suspect that however many there are, they are all part of one greater entity. But that’s mere footnote. What matters is that there will come a day—x, y or z birthdays from now—when the absence will become big enough to allow the entire entity to transit.
 
 I fear that day like nothing else; but also I lust after it.
 
@@ -152,7 +152,7 @@ It is an act of divinity.
 
 So why am I writing all of this now, after so many years of silence and self-horror and shame?
 
-Because I am tired of living in the walls, and I truly know that *I am better now*. Better than my parents. Better than the psychologists, the eye doctors and the brain specialists. Better than all of you. For years, I thought my life had been a slow accumulation of doubt. In fact, it’s been the opposite. Piece by piece, my doubts have been falling away…
+Because I am tired of living in the walls, and truly *I am better now*. Better than my parents. Than the psychologists, eye doctors and brain specialists. Better than all of you. For years, I thought my life had been a slow accumulation of doubt. In fact, it has been the opposite. Piece by piece, my doubts have been falling away.
 
 When I opened my journals this morning and started writing this, I thought I was writing a story, compiling a strange personal experience into a narrative for other people to be creeped out by, but the reality is that by writing everything down, I have understood a fundamental truth about myself.
 

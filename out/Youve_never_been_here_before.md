@@ -206,7 +206,7 @@ The first moments after leaving the building were a blur but as I got further aw
 
 The memories of Cassie and my imagined home stayed as well. However, when I tried to find the building again later, I couldn't.
 
-I researched online for hours until I finally found him. Matteo Gerrard had disappeared five years ago on his way to a job interview. He was only 20 then. As I looked further into it I found that he had disappeared once before that when he went to a festival. He was gone for a week when he suddenly came back to his parents out of nowhere.
+I researched online for hours until I finally found him. Matteo Gerrard had disappeared five years ago on his way to a job interview. He was only 20 then. As I looked further into it I found that he had disappeared once before after he went to a festival. He was gone for a week when he suddenly came back to his parents out of nowhere.
 
 I can only imagine what happened then. They probably thought he'd taken too many drugs or that he was going through a psychotic episode.
 
