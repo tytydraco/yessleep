@@ -152,6 +152,8 @@ The number of puddles.  The frequency of the rain and the clouds.  None of that 
 
 Campus has changed.[\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
 
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/19dfsd9/how_to_survive_college_my_professor_is_cool_with/)
+
 [Read the current draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/18x7wnt/how_to_survive_college_v/)
 
 [Visit the college's website.](https://alderrayne.com/)
