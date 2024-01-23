@@ -48,7 +48,7 @@ A lightning bolt echoed its light poetically. Brother? My head began to ache, my
 
 *D: For the record, the body of Francis Carlson was found two days later, showing signs of mutilation and torture. He was tied to a rock at the bottom of the lake; he fell victim to the serial killer known as The Biddenden Killer, a criminal whose modus operandi involves targeting twins, more specifically one of the siblings, leaving the other alive.*
 
-Hold on, a twin brother? No... no... I grabbed my phone, typed the name, and found a page on Wikipedia. The list of victims continued:
+Hold on, a twin brother? No... no... I grabbed my phone, typed the name, and found a strange private page with some information, strangly, my IP have permission to acess . The list of victims continued:
 
 **Jane** (Dead in 1985) and **Jack Thompson** (Dead in 1995)
 
