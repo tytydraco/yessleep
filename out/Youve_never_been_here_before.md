@@ -194,7 +194,7 @@ I looked at his bleeding leg and felt horrible. He was trying to help me this en
 
 "What's your name?" I asked.
 
-"Matteo. Gerrard. It's the only thing I remember."
+"Matteo.. Gerrard. It's the only thing I remember."
 
 "Matteo, I can't just leave you."
 

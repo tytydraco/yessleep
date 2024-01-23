@@ -98,7 +98,7 @@ I remember his exact words because I wrote them in my journal. I have that journ
 
 Not that I could look her in the eyes even if I’d wanted to. Not with so much accumulated absence.
 
-On my sixteenth birthday, I opened the box to discover the puzzle pieces and two separate messages: *This is the fifth piece of doubt* and *Don’t share with strangers.*
+On my sixteenth birthday, I opened the box to discover the puzzle piece and two separate messages: *This is the fifth piece of doubt* and *Don’t share with strangers.*
 
 I never told anyone about the box again.
 
