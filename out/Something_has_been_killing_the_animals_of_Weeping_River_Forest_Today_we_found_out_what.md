@@ -2,6 +2,8 @@
 
 [Part 2](https://www.reddit.com/r/nosleep/comments/19dxe1z/something_has_been_killing_the_animals_of_weeping/)
 
+[Part 3](https://www.reddit.com/r/nosleep/comments/19epqce/something_has_been_killing_the_animals_of_weeping/)
+
 The computer whirred as Officer Chase loaded up the drive and played back the footage taken from the deceased victim. A decent quality image developed on the screen, one showing the green, vibrant surroundings of Weeping River Forest—brilliant nature, but basked in an eerie, unnatural silence. The footage had come from the bodycam of a hunter and his partner, who’d both been sent into the forest to retrieve samples from animals inflicted with a thus far unknown disease. Of the two, only one of them ever returned.
 
 *“I’m telling you, Frank, I hit it,” the person in view, Eric, claimed. In his left hand he held a hunting rifle, his right hand well removed from the trigger.*

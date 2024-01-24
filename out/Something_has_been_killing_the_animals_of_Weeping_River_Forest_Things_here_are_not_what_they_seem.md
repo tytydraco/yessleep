@@ -1,5 +1,9 @@
 [Part 1](https://www.reddit.com/r/nosleep/comments/19cnmxw/something_has_been_killing_the_animals_of_weeping/)
 
+*Part 2 - Current*
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/19epqce/something_has_been_killing_the_animals_of_weeping/)
+
 “What is Mark to you?” I asked Jane as we progressed deeper into the forest. “Colleague, friend, boyfriend?”
 
 Though I didn’t ask out of personal interest, I did find it interesting how willing she was to jump into danger. If I was going to rely on her, I needed to know exactly what kind of person I was working with.
