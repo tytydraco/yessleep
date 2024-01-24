@@ -4,7 +4,7 @@
 
 "Uhh... can I get a martini?" 
 
-The bartender gave me a look like I had asked him to meet me at the hole separating the men's stalls in the bathroom.
+The bartender gave me a look like I had asked him to meet me on the other side of the hole in the bathroom stall.
 
 "We have beer, and beer." He said plainly.
 

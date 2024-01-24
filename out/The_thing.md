@@ -1,76 +1,19 @@
-I can remember the day clearly and what happened on that day.
+Hello so I am a man who is not what most would call “paranormal”. I grew up around quite weird shit, whether it be in drug infested mobile homes or backwoods where the only person was almost a mile away.  
 
-It was 2012 and I was only a 10 year old 
+This… thing though… it definitely put a new page in which could be a horror story. I’m not talking about a fucking boogie man or little zombie no no no it was different in any and every worse way it could be. Like most stories and recollections it starts out normal. Me and my ex best friend decided to go on a hike of sorts to where we’d walk on a trail then go off it and basically freestyle throughout the woods(we both grew up in very wooded parts of the us so brush didn’t bother us in the slightest). It wasn’t that bad of a morning even tho it was a bit foggy it didn’t make a difference to me.
 
-My mother was a druggie but she always made sure we had a roof on my heads and made sure she fed me but one time when she was on whatever drugs she got her hands on she did something stupid and somehow got into trouble with the police.
+ About twenty ish minutes going deep on a more experienced hikers path we decided that we shall go off of it and go up the mountain since it was said a little waterfall was up near the top. Suddenly I heard “it”. A slight scream. 
 
-“We’ll go on the run like Bonnie and Clyde” is what she told me before we packed all our stuff up (which wasn’t a lot of stuff) in suitcases and headed down the road to get her friends who were also drug addicts and alcoholics like her.
+ A scream that sounded like someone’s throat was filled with blood and they tried to let out a shout of sorts yet it was distorted terribly. My hairs shot up and my friend looked back at me with a face so white he looked like a corpse. We sort of ran up the hill for a good couple minutes and tried to not let it get to us since we honestly loved hiking and the woods itself.
 
-We had been on the run sleeping in the back of our car deep in the forest and other places where we knew our car wouldn’t be found and by the second week my mother and her friends ran out of beer and drugs and I ran out of snacks so we had to go rob a store which is something I still feel incredibly guilty about.
+ The second I started thinking about the waterfall is when I smelt it… that horrible fucking smell. It smelled like a dead body that had rotted in an oven for months in the summer. It was beyond putrid and we had realized it. We was walking in circles. From what I thought was us heading up we was actually walking downhill. My look went blank and me and my friend decided to look at a gps or some sort, yet nothing fucking worked. 
 
-A couple weeks after that the police found all of us so we hopped into our car and sped down the road until we lost them then I told my mom something I had been trying to tell her for weeks until this.
+ We decided to book it in any direction we didn’t care we needed to leave immediately. From the corner of my eyes I could see its mouth fucking god the teeth… it was like shredding out of its gums while blood and some sort of disgusting plack like substance covered it. I cried. Not even tears of sadness or being “scared”. I had pure dreadful fear. A thought shot across my mind of me dying knowing that if this fowl mockery of a beast caught me I’d die a gruesome and terrible death. 
 
-“Mom?”
+ Tears ran down my face and with the worst decision of my entire life I decided to turn… and look. I saw its face. Pure white with a horrible crepid mouth of sharp razor like teeth and eyes with nothing but fucking darkness. Eyes so dark my soul reflected upon them and fear embarked me. Then it happened. It stopped just entirely. Right from where I last saw it and the worst was yet to come. It moaned my name out. A moan that wasn’t sexual or silly no. It was as if a person succumbing to illness slowly moaned a name out with their dying breath.
 
-“What?”
+ I couldn’t hold it back anymore and looked forward once again to see my best friend yelling my name out to hurry. The embrace of his arms pulling me into his car felt somewhat nice. Yet I had no memory of us going to his car? He looked shocked that I was awake and then told me what happened. 
 
-“Please stop the car”
+ He explained how we woke up that morning and went into the woods then I took off running without him, then while searching for me hours later he found me almost naked yet my clothes was folded neatly beside me. My face was cold to the touch so he thought I was dead but felt a pulse so he dressed me kinda then rushed me to his car so we could go to an emergency room. It was so… confusing. That was 4 months ago and every time I close my eyes I can see “it”. That thing just moaning my name out. Me and my best friend completely stopped talking right after that seeing how trauma had almost pushed us apart now.
 
-“Why?”
-
-“Because if…if you let me out here I can go to grandmas I know where her house is”
-
-“What the hell are you talking about?”
-
-“Mom I really don’t wanna spend my teens running from the cops or in prison so please just stop the car and I’ll get out and walk to grandmas”
-
-She then stopped the car and I got out then grabbed my light blue suitcase waved her goodbye and they sped off since I was only a 10 year old I sat on the ground and sobbed for a good 6 minutes then I stood up and walked to my grandma Jane’s house. 
-
-“Grandma I just had to walk away from my own mom because…because she’s on the run from the police and I don’t wanna be associated with that”
-
-She hugged me tightly while I cried 
-
-“I know and I’m sorry”
-
-“Can I please stay with you?” 
-
-“Yes of course! Just don’t make any messes and if you do please clean them up you know how I am about that” 
-
-“I understand grandma I won’t be any trouble I just wanna take a shower and go to bed”
-
-I walked into her house took a shower and went to bed in her spare bedroom.
-
-A couple weeks after that I was having a sleepover with my friends just watching Disney movies and such until one of my friends who we’ll call Leo said he wanted some candy from the dollar store that was right down the street from my grandmas house.
-
-So he got his shoes and money and went out the door then my other friend who we’ll call Joy wanted some candy too.
-
-So she ran after him but not even a second later she came running back inside sobbing hysterically saying “Something is out there!” “There is something out there!” But we thought she was joking and we started laughing until we realized she was actually sobbing.
-
-So me and my friend violet looked out all of the windows but we couldn’t see anything so we went outside to look some more and still we couldn’t find or see anything until I started hearing something like gurgling 
-
-So I looked behind me and saw a big black blob that was slouched over to the right with a horn sticking out shuffling towards us 
-
-“Violet what the hell is that?!”
-I asked her
-
-“I don’t know!”
-She said with fear in her voice 
-
-We didn’t wanna see it anymore so we ran back to the house where Joy was still sobbing while sitting on the couch
-
-“Oh my god where is Leo?!”
-Said violet 
-
-“Oh god I don’t know!”
-I said 
-
-Just then Leo came through the door 
-
-“Leo!” “Are you okay?”
-I asked him 
-
-But he said nothing and went back to the room and went to bed
-
-I’m now in my 20s and I haven’t seen my mom since that night I just hope she’s getting the proper help she needs
-
-And I will forever wonder what I saw that night
+If anyone can tell me what this thing may be I would be more then grateful to know, my mind has been cluttered ever since
