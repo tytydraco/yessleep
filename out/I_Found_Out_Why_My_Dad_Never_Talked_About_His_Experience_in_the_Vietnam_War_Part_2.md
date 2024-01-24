@@ -60,7 +60,7 @@ Steadying my trembling hands, I reach out to the crucifix dangling from his neck
 
 As the other unnatural beings shamble closer, the sniper's urgent voice cuts through my panic. "This way," she says, pointing towards a seemingly unremarkable spot amidst the dense greenery.
 
-With no time to think, I follow her, the moans of the undead echoing in our wake. We push through the underbrush, the jungle closing in around us like a living entity.
+With no time to think, I follow her, the moans of the undead fallen echoing in our wake. We push through the underbrush, the jungle closing in around us like a living entity.
 
 We arrive at a small clearing, obscured by a tangle of vines and foliage. The sniper quickly kneels, brushing aside leaves and dirt to reveal a hidden entrance – the mouth of a tunnel. My heart skips a beat. The Viet Cong use complex tunnel networks to launch surprise attacks and disappear without a trace.
 
@@ -168,7 +168,7 @@ A squadron of UH-1 Hueys hovers above the jungle, their silhouettes imposing aga
 
 Through the small opening, we witness the choppers rain hellfire down on the undead. Machine guns chatter relentlessly, spitting streams of deadly lead. Rockets streak from their pods, trailing plumes of smoke before exploding amidst the reanimated corpses.
 
-The impacts are devastating, tearing through the figures with brutal efficiency. Limbs are severed, bodies eviscerated. The scene unfolds like a choreographed ballet of devastation.
+The impacts are devastating, tearing through the undead with brutal efficiency. Limbs are severed, bodies eviscerated. The scene unfolds like a choreographed ballet of devastation.
 
 In the eerie calm that follows the assault, the acrid scent of burnt flesh and vegetation hangs heavy in the air. The sounds of destruction subside, replaced by a haunting stillness that blankets the area.
 
