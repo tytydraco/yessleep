@@ -40,6 +40,12 @@ Hiep, the village official with dreams of peace, whom the Viet Cong executed dur
 
 Every patrol, every ambush we set, is not just a military strategy; it's a personal vendetta. In the quiet moments, when the jungle whispers its ancient secrets, I find myself talking to my brother, promising him justice, promising that his death will not be in vain.
 
+As I glance to my side, I see my friend, Special Vinh, his fingers deftly moving over the beads of his rosary.
+
+"Hey, Vinh," I whisper, nudging him gently, "make sure you say a prayer for me too." I give him a half-hearted smile. I'm a Buddhist, but in times like these, I'll take all the protection I can get.
+
+Vinh looks up with a small,  knowing smile. "Don't worry, brother. God watches over all of us."
+
 Sergeant Nghĩa, a stern figure whose presence commands respect, moves silently among us, his steps barely disturbing the forest floor. The lines on his face tell stories of countless battles, each crease a testament to his resilience. He pauses beside me, his eyes scanning the perimeter with a practiced gaze.
 
 "Corporal Thanh," he addresses me, using my given name which few dared to utter, "everything secure on your end?"
@@ -216,7 +222,7 @@ Our bodies collide with a force that knocks the breath from my lungs. I grasp at
 
 I muster all my strength and manage to twist her arm, forcing the machete away from my neck. With a sudden surge of energy, I push her off balance. She stumbles backward, and I seize the opportunity, tackling her to the ground.
 
-I try to pin her down, aiming to disarm her completely. But she's relentless, her survival instincts as sharp as her blade. In a desperate move, she sinks her teeth into my fingers, the pain searing and immediate. I wince, feeling the warmth of my own blood trickle down my skin.
+I try to pin her down, covering her mouth with my hand, desperately trying to prevent any noise that might alert her comrades.  But she's relentless, her survival instincts as sharp as her blade. In a desperate move, she sinks her teeth into my fingers, the pain searing and immediate. I wince, feeling the warmth of my own blood trickle down my skin.
 
 Her teeth sink deeper, and the sharp pain forces me to release her. She scrambles to her feet. The machete is still clutched tightly in her hand, its blade smeared with my blood.
 
@@ -232,13 +238,15 @@ I slowly pivot, keeping one wary eye on the sniper as I turn to face the new thr
 
 Standing mere meters away is a figure so grotesque, so otherworldly, that my mind struggles to comprehend it. It's humanoid, but its skin is blistered and peeling, like the flesh of someone who has been consumed by fire and somehow survived. The remnants of a North Vietnamese uniform cling to its twisted form, the fabric melding into the charred skin.
 
-Another figure emerges from the jungle, equally monstrous. Its face is a nightmarish mask, swollen and deformed, with eyes that no longer resemble anything human. I notice the gold crucifix hanging from its neck. It belonged to Specialist Vinh, my friend, now reduced to this unholy mockery of a man.
+Another figure emerges from the jungle, equally monstrous. Its face is a nightmarish mask, swollen and deformed, with eyes that no longer resemble anything human. I notice the gold crucifix hanging from its neck. It belonged to my friend ,Vinh, now reduced to this unholy mockery of a man.
 
 One by one, more of these gruesome beings step into the clearing. Their movements are jerky, unnatural, as if their bodies are rebelling against the very act of motion. The air fills with a stench so foul, it clings to the back of my throat, a mix of decay and burnt flesh.
 
 The beings close in, their movements unnerving in their disjointed nature. Their mouths snap open and closed with a deformed eagerness. Foam gathers at the corners of their lips, dripping down in sickening trails. The sound of their teeth snapping together is a macabre rhythm, echoing ominously in the clearing.
 
 As the figures surround us, the sniper and I are inexorably pushed back to back, our previous struggle forgotten in the face of this unimaginable horror.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/19ek0yy/i_found_out_why_my_dad_never_talked_about_his/)
 
 [X](https://www.reddit.com/r/PageTurner627Horror)
 
