@@ -44,7 +44,7 @@ But then, in a split second, she shifts her aim slightly, and before I can proce
 
 I spin around, following the trajectory of her shot, and there on the ground lies the one she’d called 'Comrade Phong.’ He's squirming on the floor, a bullet hole perfectly centered between his eyes.
 
-The sniper lowers her weapon, taking a wary step towards me, her eyes not leaving mine.
+The sniper lowers her weapon, taking a watchful step towards me, her eyes not leaving mine.
 
 I motion towards the dense undergrowth. "We need to get out of here, now," I say, my voice a mix of command and plea.
 
@@ -134,21 +134,31 @@ Tuyết looks at me for a moment longer, her eyes scrutinizing. "You look like a
 
 "What does that mean?" I ask, trying to understand the implication behind her words.
 
-She shrugs, a guarded expression on her face. "I don't know. You just do." 
+She shrugs, a guarded expression on her face. "I don't know. You just do."
 
 Her speech pattern intrigues me. It's not the Northern accent I had expected.
 
-“Your accent… You’re from Quảng Nam province, aren’t you?” 
+“Your accent… You’re from Quảng Nam province, aren’t you?”
 
 “So what if I am? You are too,” she replies, picking up on my similar accent.
 
 I'm tempted to ask her where her village is, to delve deeper into this unexpected connection between us. But I stop myself. I know too well the risks involved in sharing such information. Knowing where someone is from in times like these could put loved ones at risk for reprisals.
 
-The tense atmosphere in the tunnel slowly shifts as we, driven by necessity, begin to form an uneasy alliance. Our conversation is sparse, limited to the essentials of survival.
+Driven by necessity, we begin to form an uneasy alliance. Our conversation is sparse, limited to the essentials of survival.
 
-As we share rations – a mix of my MREs and her rice cakes – there's a begrudging acknowledgment of our shared humanity. We talk in hushed tones, exchanging information about the tunnel layout and the possible whereabouts of our respective units. Our dialogue is cautious, each of us wary of revealing too much.
+As we share rations – a mix of my MREs and her rice cakes – there's a begrudging acknowledgment of our shared humanity. We talk in hushed tones, exchanging information about the tunnel layout and the possible whereabouts of our respective units. Our dialogue is cautious, each of us careful not to reveal too much.
 
-Suddenly, our conversation is interrupted by a distant but distinct sound – the thumping of helicopter rotors. The sound grows steadily louder, vibrating through the earth and resonating in the narrow tunnel.
+As we reach for the same rice cake, our hands accidentally brush against each other. She recoils swiftly, as if stung, and I see a faint blush color her cheeks in the dim light of my flashlight.
+
+For a fleeting second, our eyes meet. Despite the grime and fatigue that marks her features, there's an undeniable beauty there. Her eyes, dark and deep, hold a resilience that's both haunting and captivating.
+
+"Sorry," I mutter.
+
+"It's okay," Tuyết replies, quickly regaining her composure.
+
+—
+
+Our conversation is interrupted by a distant but distinct sound – the thumping of helicopter rotors. The sound grows steadily louder, vibrating through the earth and resonating in the narrow tunnel.
 
 Tuyết and I exchange tense glances, a silent agreement passing between us. We need to see what's happening above.
 
