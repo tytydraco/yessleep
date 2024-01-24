@@ -1,22 +1,22 @@
 [Earlier...](https://www.reddit.com/r/nosleep/comments/18yl521/i_threw_a_coin_in_the_deathwish_well_i_got_my/)
 
-Jordan and I got home a little after sunset, sopping wet and muddy up to our knees. We should have been more careful as we walked inside. Usually, we were smart enough to quiet our voices and take off our dirty shoes on the front porch, but our afternoon at the well had filled us with a strange recklessness, a feeling of invulnerability. 
+Jordan and I got home a little after sunset, sopping wet and muddy up to our knees. We should have been more careful as we walked inside. Usually, we were smart enough to quiet our voices and take off our dirty shoes on the front porch, but our afternoon at the well had filled us with a strange recklessness, a feeling of invulnerability.
 
-At the sound of our father’s voice, all of that fell away. 
+At the sound of our father’s voice, all of that fell away.
 
 Once again, we became boys, cold and dripping wet, suddenly conscious of the mess we’d brought into the house.
 
 “Where the hell have you been?” he asked, his words slurred enough to let us know this would be no minor punishment.
 
-“Hiking,” said Jordan weakly. 
+“Hiking,” said Jordan weakly.
 
-And then a bottle flew across the room and exploded beside his head. My father was walking toward us, fists clenched. Jordan was shouting. I think I was screaming. At some point, my dad started hitting him. 
+And then a bottle flew across the room and exploded beside his head. My father was walking toward us, fists clenched. Jordan was shouting. I think I was screaming. At some point, my dad started hitting him.
 
-And then… it’s blank for me. 
+And then… it’s blank for me.
 
 I don’t remember any more.
 
-Later, after my dad had passed out, I helped Jordan pick out a stray piece of glass from the bottom of his heel. His skin was wet and wrinkled from spending so long in his wet shoes, and it made the glass hard to extract. Every time I pinched at it with tweezers, Jordan winced. 
+Later, after my dad had passed out, I helped Jordan pick out a stray piece of glass from the bottom of his heel. His skin was wet and wrinkled from spending so long in his wet shoes, and it made the glass hard to extract. Every time I pinched at it with tweezers, Jordan winced.
 
 “I’m sorry,” I said after another failed attempt.
 
@@ -36,7 +36,7 @@ Jordan nodded. He was staring miles away, into the dark of the forest.
 
 “He doesn’t know who he’s fucking with,” he said. “He thinks he knows, but he doesn’t.”
 
-I knew what he was saying. And he wasn’t wrong. Dad needed to be taught a lesson. The only question was, how harsh that lesson needed to be. 
+I knew what he was saying. And he wasn’t wrong. Dad needed to be taught a lesson. The only question was, how harsh that lesson needed to be.
 
 My mind turned back to Frank Wu. I wondered if the thing from the well had found him by now. *Two for a spill.* Tomorrow, we’d find out exactly what that meant.
 
@@ -44,9 +44,9 @@ The next day at school, Frank Wu didn’t show up to class. By second period, ru
 
 The facts everyone agreed to was that at some point in the night, his mom had heard a giant crash, followed by a thud. Then she’d found her son on her front walkway surrounded by glass, bleeding all over, both arms broken from the fall, the bones sticking out through the skin.
 
-Later, Frank would say he’d awoken in midair, that he’d looked down to see the ground rushing up at him. He would say he smelled something rotten in the air. 
+Later, Frank would say he’d awoken in midair, that he’d looked down to see the ground rushing up at him. He would say he smelled something rotten in the air.
 
-Some kids, the ones that were kind, thought maybe he’d just been sleepwalking. That he’d had some kind of nightmare and thrown himself through his own window. Others decided there was something wrong in his head, that he’d tried to off himself and just couldn’t admit it. 
+Some kids, the ones that were kind, thought maybe he’d just been sleepwalking. That he’d had some kind of nightmare and thrown himself through his own window. Others decided there was something wrong in his head, that he’d tried to off himself and just couldn’t admit it.
 
 At lunch, as we heard the news about Frank circulate, Jordan could barely hide his smile. We were sitting outside on a picnic table away from the other kids. Nearby, a bunch of the jocks were playing a no-holds-barred version of Five Hundred, which almost always resulted in some kind of injury.
 
@@ -60,15 +60,15 @@ I elbowed Jordan and pointed it out.
 
 “Did you go back this morning?” I said. “Without me?”
 
-He shook his head. 
+He shook his head.
 
 “I wanted to see what happened to Frank first,” he said.
 
-As we watched, the ripple in the grass approached the clump of boys leaping for the football. I held my breath, waiting for one of them to have his feet ripped out from under him, to bloody his teeth landing hard on the dirt. 
+As we watched, the ripple in the grass approached the clump of boys leaping for the football. I held my breath, waiting for one of them to have his feet ripped out from under him, to bloody his teeth landing hard on the dirt.
 
 But the thing moved past them.
 
-For a moment, I thought it was coming toward us. Had Jordan sicced it on me as revenge for letting him take the full force of our father’s wrath? No question, I would have deserved it. I steeled myself, ready for the thing to slam me off the picnic table and onto the asphalt. 
+For a moment, I thought it was coming toward us. Had Jordan sicced it on me as revenge for letting him take the full force of our father’s wrath? No question, I would have deserved it. I steeled myself, ready for the thing to slam me off the picnic table and onto the asphalt.
 
 But the thing moved right past us, too.
 
@@ -78,10 +78,12 @@ We came around the corner to see Heather Lewis, the prettiest girl at school fac
 
 “What did you do?” I whispered to Jordan.
 
-“It wasn’t me,” he said. People were running toward Heather now, answering her cries for help. 
+“It wasn’t me,” he said. People were running toward Heather now, answering her cries for help.
 
 “Watch the crowd,” Jordan said. “See if anyone’s reaction look… you know, off.”
 
 “Why?” I asked.
 
 “Because we need to figure out [who else has a coin.”](https://www.reddit.com/r/scarymaxx/comments/zwo5o8/welcome_to_the_world_of_scarymaxx/)
+
+[Update!](https://www.reddit.com/r/nosleep/comments/19envvz/i_have_a_coin_for_the_deathwish_well_i_met_the/)
