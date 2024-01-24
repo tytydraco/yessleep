@@ -134,11 +134,11 @@ Tuyết looks at me for a moment longer, her eyes scrutinizing. "You look like a
 
 "What does that mean?" I ask, trying to understand the implication behind her words.
 
-She shrugs, a guarded expression on her face. "I don't know. You just do," she replies.
+She shrugs, a guarded expression on her face. "I don't know. You just do." 
 
 Her speech pattern intrigues me. It's not the Northern accent I had expected.
 
-“Your accent… You’re from Quảng Nam province, aren’t you?” I ask.
+“Your accent… You’re from Quảng Nam province, aren’t you?” 
 
 “So what if I am? You are too,” she replies, picking up on my similar accent.
 
