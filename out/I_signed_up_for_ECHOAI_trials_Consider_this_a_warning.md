@@ -2,11 +2,11 @@ Look, if you ever see anything from the Skulk Corporation, run the hell away. I 
 
 I’m posting this as a warning to whoever reads this. Do not trust those bastards at all. I don’t know who they’re bribing to stay in business.
 
-I’m not the type of person to win, or even to get picked for, anything. I never won the lottery, a scratch ticket, or a prize in a raffle. Hell, I never even won small fries in a fast food  giveaway. So when I filled in the form, hit submit, and saw the message saying “we’ll be in touch if you’re selected”, I completely wrote it off.What were the odds, anyway? 
+I’m not the type of person to win, or even to get picked for, anything. I never won the lottery, a scratch ticket, or a prize in a raffle. Hell, I never even won small fries in a fast food  giveaway. So when I filled in the form, hit submit, and saw the message saying “we’ll be in touch if you’re selected”, I completely wrote it off. What were the odds, anyway? 
 
 They were offering $25,000 to test an AI chatbot and you didn’t need any experience or skills other than “being of sound mind”. How many people signed up for that, a million?
 
-When I got the invite, I couldn’t believe it. Daryl and I were behind on rent again, and inflation was just putting us deeper into the hole. The kind of money they offered would be life-changing. We could finally have some breathing room, even have the time to find steady and decent jobs. Maybe even get mom a decent gift, like a working oven.
+When I got the invite, I couldn’t believe it. Daryl and I were behind on rent again, and inflation was just putting us deeper into the hole. The kind of money they offered would be life-changing. We could finally have some breathing room, even have the time to find steady and decent jobs. Maybe even get mom a decent gift, like a working oven, if she was still around. 
 
 I walked into the sterile white facility and to the front desk, where I was greeted by a painfully positive receptionist.
 
