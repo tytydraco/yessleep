@@ -1,3 +1,5 @@
+( Next: https://redd.it/19e2tpi )
+
 I’ve settled into a comfortable routine. Work eight hours for five days, then head to the bar on Fridays. I’d picked up a Saturday shift, but because my job was at a call center, I could still go in hungover from the night before. Shift or not, I always spent Friday nights at the local bar. 
 
 There were four local women I often picked up for dates. They weren’t looking for a real relationship and they were all aware of the others. Keeping things casual didn’t cause drama. One of them worked as the bartender. We had been spending nights together less and less now. After a drink, she told me the reason.  
