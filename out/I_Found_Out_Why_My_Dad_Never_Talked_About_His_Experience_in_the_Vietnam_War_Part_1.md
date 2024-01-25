@@ -222,7 +222,7 @@ Our bodies collide with a force that knocks the breath from my lungs. I grasp at
 
 I muster all my strength and manage to twist her arm, forcing the machete away from my neck. With a sudden surge of energy, I push her off balance. She stumbles backward, and I seize the opportunity, tackling her to the ground.
 
-I try to pin her down, covering her mouth with my hand, desperately trying to prevent any noise that might alert her comrades.  But she's relentless, her survival instincts as sharp as her blade. In a desperate move, she sinks her teeth into my fingers, the pain searing and immediate. I wince, feeling the warmth of my own blood trickle down my skin.
+I try to pin her down, covering her mouth with my hand in a desperate attempt to prevent her from making any noise that might alert her comrades.  But she's relentless, her survival instincts as sharp as her blade. She sinks her teeth into my fingers, the pain searing and immediate. I wince, feeling the warmth of my own blood trickle down my skin.
 
 Her teeth sink deeper, and the sharp pain forces me to release her. She scrambles to her feet. The machete is still clutched tightly in her hand, its blade smeared with my blood.
 
