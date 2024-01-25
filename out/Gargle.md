@@ -148,7 +148,7 @@ A recent post caught my eye. It was from Frankie Butchem. Frankie was, for lack 
   
 I clicked onto Frankie's SocialNettle page. I didn't have him connected as a friend, but Frankie didn't exactly have his page set to private so I could see all his uploads.  
   
-The most recent upload was a video from twenty minutes ago. It was Frankie and some of his asshole friends walking along and talking. Frankie mentions where they're going and my eyes widened. They were going to Rattlesnake House.  
+The most recent upload was a video from twenty minutes ago. It was Frankie and some of his asshole friends walking along and talking. Frankie mentions where they're going and my eyes widened. They were going to Rattlesgate House.  
   
 Frankie explained how he'd brought some beer to summon Gargle with and they planned to smoke and drink while they were there just to show how Evan was a weirdo or something.  
   
@@ -258,7 +258,7 @@ A large sign on the door read "Closed due to power cut."
   
 'Why not?' Marlon looked at her. 'Unless you're scared.'  
   
-'I mean, it's something to do. I'm not scared of silly ghost stories, and it'll prove to all the adults that it's all fake.'  
+'I mean, it's something to do. I'm not scared of silly ghost stories, and it'll prove to all the adults that it's all fake.' Vince suggested.
   
 'What about, oh you know, the murders?' Heather snarled.  
   
@@ -300,7 +300,7 @@ We found the large kitchen, decorated with black and white tiles and overgrown n
   
 We then walked through the dining room to the main hall. It was huge.  
   
-'Imagine what this lace used to look like,' Heather cooed.  
+'Imagine what this place used to look like,' Heather cooed.  
   
 'Probably a lot nicer than it does now,' Vince replied, stepping over a fallen chair.  
   
