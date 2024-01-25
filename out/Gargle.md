@@ -366,15 +366,15 @@ I remained silent.
   
 He pulled out his phone and sent a few texts, one hand still on the steering wheel.  
   
-My dad din't say another word until we got home.  
+My dad didn't say another word until we got home.  
   
-We walked in the front door, and my dad immediately took my mum into the kitchen.  
+We walked in the front door, and my dad immediately took my mum into the living room.
   
 They spoke in desperate hushed whispers before I heard my mum sobbing. I walked in.  
   
 'Sydney, sit.' My dad instructed. He looked pale and terrified, I'd never seen him like that before.  
   
-'Syd, tell us what you know about Rattlesnake House.'  
+'Syd, tell us what you know about Rattlesgate  House.'  
   
 I told them. I said about the party and the murder and the curse.  
   
