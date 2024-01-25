@@ -108,4 +108,4 @@ It’s mine.
 
 I know I have to go back.  I have to.  But first I’m going to find every scrap of information about that building, get together a group, proper equipment, and bring a few of my father’s guns.
 
-Then, we’ll find my friends.
+Then, we’ll find my [friends.](https://www.reddit.com/r/adarksobright/)
