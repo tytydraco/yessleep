@@ -184,7 +184,7 @@ But in an instant, that hope is shattered. The helicopters’ guns roar to life,
 
 The men, my brothers-in-arms, react with a mixture of disbelief and horror. They scatter, desperately seeking cover where there is none. Their movements are frantic, but their fate is sealed. The relentless hail of bullets from above tracks their every move.
 
-I watch, powerless, as one by one, they fall. The Hueys don’t discriminate. They tear through flesh and bone like mechanical vultures.
+I watch, powerless, as one by one, they fall. The Hueys don’t discriminate. They tear through flesh and bone like mechanized vultures.
 
 Their guns do not cease until the last man lies still, his pleas for mercy drowned out by the roar of gunfire.
 
