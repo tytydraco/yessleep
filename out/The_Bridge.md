@@ -1,83 +1,55 @@
-  
 No one really remembered why The Bridge had been built, or by whom. There were no raging torrents below it, no pit-of-the-stomach depths to plunge into. Instead, The Bridge (a quarter of a mile of sleek white stone) arced gently across a shallow, smooth-banked valley whose floor was lined not with jagged rocks, but with pleasant grassland freckled with wild flowers. The banks of the valley could be climbed, even strolled, with ease -  although no one ever did. The valley never flooded (rain was infrequent in these parts) and there were no great rivers or waterways within miles of the bridge. The valley itself stretched for three miles either side of The Bridge, before tapering off gently into yet more grassland. Roads wound - wide - around either side of this slender groove in the land, but no roads connected to The Bridge.
 
-  
 No one knew why The Bridge had been built, or by whom. And no one ever cared to ask - The Bridge simply was.
 
-  
-On August 10th, 2007, I opened the door of the small cabin at the Western side of The Bridge, my ATV parked in the knee-high grass just outside. Unlike the cool stone of the main structure, the cabin was a more prosaic wood and corrugated iron affair. The interior smelled of warm plastic, with an afterglow of the deodorant spray used by Chris - my colleague who worked the night shift. Taking a seat on the worn swivel chair inside the cabin, and placing my lunch box inside the small (but extremely noisy) refrigerator under the desk, I flipped through the log book. Chris’s notes inside were neat, as usual, and concise. ‘All clear’. ‘All well’. 
+On August 10th, 2007, I opened the door of the small cabin at the Western side of The Bridge, my ATV parked in the knee-high grass just outside. Unlike the cool stone of the main structure, the cabin was a more prosaic wood and corrugated iron affair. The interior smelled of warm plastic, with an afterglow of the deodorant spray used by Chris - my colleague who worked the night shift. Taking a seat on the worn swivel chair inside the cabin, and placing my lunch box inside the small (but extremely noisy) refrigerator under the desk, I flipped through the log book. Chris’s notes inside were neat, as usual, and concise. ‘All clear’. ‘All well’.
 
-  
-I remember pouring myself a cup of coffee from the flask I was always brought with me. A gift from Kate, battered now after 10 years. I carried on with the daily ritual: a tentative sip of hot coffee, and the first stare through the pair of binoculars I had been allocated. I looked out through the window of the cabin, across The Bridge. 
+I remember pouring myself a cup of coffee from the flask I was always brought with me. A gift from Kate, battered now after 10 years. I carried on with the daily ritual: a tentative sip of hot coffee, and the first stare through the pair of binoculars I had been allocated. I looked out through the window of the cabin, across The Bridge.
 
-  
-I could make out the cabin at the edge of the Eastern side - almost identical to my own, but I couldn’t (could never, in fact) make out the occupant. I had never asked who sat on the Eastern side, or why. My contract stipulated that I was not to cross the bridge, and not to attempt contact with the Eastern side - even though the occupant must surely be a fellow employee. After all, The Bridge sat within the same state; it crossed no borders. But I wasn’t inclined to enquire. My role was simple, and the pay was adequate. No need to rock the boat. I was simply to watch, and to take notes - however uneventful the day was. And the days were always uneventful. They had been ever since I took this job, eleven years ago. 
+I could make out the cabin at the edge of the Eastern side - almost identical to my own, but I couldn’t (could never, in fact) make out the occupant. I had never asked who sat on the Eastern side, or why. My contract stipulated that I was not to cross the bridge, and not to attempt contact with the Eastern side - even though the occupant must surely be a fellow employee. After all, The Bridge sat within the same state; it crossed no borders. But I wasn’t inclined to enquire. My role was simple, and the pay was adequate. No need to rock the boat. I was simply to watch, and to take notes - however uneventful the day was. And the days were always uneventful. They had been ever since I took this job, eleven years ago.
 
-  
 I recall, just after midday, feeling a bead of sweat roll down the back of my neck. The sun was really beating down on the flat iron roof of the cabin now. That sticks in my memory. I flipped the switch on the small desk fan mounted over my right shoulder, and wrinkled my nose as the blades whipped up a plume of dust that tickled my nostrils. That always happened, every time.
 
-  
-I looked up absent-mindedly and noticed a figure stumbling along the bridge, before returning to the sports magazine I had open on the desk in front of me. I remember I reached under the desk and pulled my lunchbox out of the refrigerator - relishing the waft of cool air against my legs as he did so.  
-And then I stopped, lunchbox still in my hand, refrigerator door still open. Someone was on the bridge. 
+I looked up absent-mindedly and noticed a figure stumbling along the bridge, before returning to the sports magazine I had open on the desk in front of me. I remember I reached under the desk and pulled my lunchbox out of the refrigerator - relishing the waft of cool air against my legs as he did so.
 
-  
+And then I stopped, lunchbox still in my hand, refrigerator door still open. Someone was on the bridge.
+
 My heart began to race, and I raised my binoculars again. There - halfway across the bridge - was a figure. They were moving slowly; it looked like they were exhausted, or hurt. I felt sick. There was no radio in the simple, bare cabin - no one to call for help. There had never been any need - nor any possibility that there would ever be a need. There was simply the log book filled with page after page of  ‘All clear’ and ‘All well’. I had received no instructions on what to do in a case like this; I was simply to observe - to watch, take notes, and hand over to Chris at 8pm.
 
-  
-I stood, unsteadily. I felt dizzy and my legs were numb, like they’d fallen asleep. I opened the door of the cabin, hardly noticing the sun beating down on me or the flies attracted to the sweat on my brow. I brought the binoculars with me, and walked to the Western entrance of the bridge, placing myself centrally so that I could look across the long span of white stone. I was careful to stay a foot or two off the stone, however. Although my contract simply told me not to cross The Bridge, I had always instinctively felt that it was better not to set foot on it at all.   
-  
+I stood, unsteadily. I felt dizzy and my legs were numb, like they’d fallen asleep. I opened the door of the cabin, hardly noticing the sun beating down on me or the flies attracted to the sweat on my brow. I brought the binoculars with me, and walked to the Western entrance of the bridge, placing myself centrally so that I could look across the long span of white stone. I was careful to stay a foot or two off the stone, however. Although my contract simply told me not to cross The Bridge, I had always instinctively felt that it was better not to set foot on it at all.
+
 The figure kept coming. They were walking along the left-hand side from my perspective, and through the binoculars I could see that they had one hand leaning against the waist-high wall that ran along either side of The Bridge as they went, with their left foot dragging behind them. Then, they stumbled and fell. And were still.
 
-  
-I remember I gasped out loud and, involuntarily, took a step forward - the binoculars falling from my hand, landing with a crack. I looked down and realised I was now on The Bridge. I felt his stomach lurch, as though I were standing on the edge of a great precipice. But no, the stone was firm under foot. There was no pain, no disorientation, no electric jolt through my body. No suddenly-materialising manager admonishing me for my transgression. Just smooth, polished white stone underfoot. It was just a bridge.  
+I remember I gasped out loud and, involuntarily, took a step forward - the binoculars falling from my hand, landing with a crack. I looked down and realised I was now on The Bridge. I felt my stomach lurch, as though I were standing on the edge of a great precipice. But no, the stone was firm under foot. There was no pain, no disorientation, no electric jolt through my body. No suddenly-materialising manager admonishing me for my transgression. Just smooth, polished white stone underfoot. It was just a bridge.
 
-  
-I walked forward slowly; gingerly - as if trying to maintain balance on a narrow beam across a river. I kept my eyes fixed ahead - the figure was just visible, still unmoving. 
+I walked forward slowly; gingerly - as if trying to maintain balance on a narrow beam across a river. I kept my eyes fixed ahead - the figure was just visible, still unmoving.
 
-  
-My pace quickened, and before long I was at the figure’s side. They lay on their stomach, one arm outstretched in front of them, the other tucked underneath their body. Slowly, I reached out to turn them over. It was a woman - perhaps in her fifties, her hair grey and cropped short. She wore a grey jumpsuit - the sort of thing a mechanic might wear - immaculate, save for a small blood-reddened hole in her chest. Her eyes were closed, and she didn’t appear to be breathing. I bent his ear to her mouth and nose. Nothing. Fingers trembling, I took her pulse. Nothing. 
+My pace quickened, and before long I was at the figure’s side. They lay on their stomach, one arm outstretched in front of them, the other tucked underneath their body. Slowly, I reached out to turn them over. It was a woman - perhaps in her fifties, her hair grey and cropped short. She wore a grey jumpsuit - the sort of thing a mechanic might wear - immaculate, save for a small blood-reddened hole in her chest. Her eyes were closed, and she didn’t appear to be breathing. I bent my ear to her mouth and nose. Nothing. Fingers trembling, I took her pulse. Nothing.
 
-  
-I sat back quickly. I felt tears sting my eyes without really understanding why, and wiped them with my forearm - succeeding only in smearing them with sweat. I sat for a while, simply looking at her. What should I do next? I was having trouble focussing - thoughts swirled in my head, and each time a plan of action began to coalesce, it was swept away on a short, sharp, wave of renewed panic and anxiety.   
-I calmed my breathing, and closed my eyes - screwing them shut, hard, until lights appeared behind my eyelids. Then I opened them again, and looked at her afresh. I now, truly, registered the wound in her chest. I was no expert, but it looked like a gunshot wound: small, precise, even neat. I had heard no shot though - and sound carried out here on this empty plain, where the nearest roads were at least three miles away. 
+I sat back quickly. I felt tears sting my eyes without really understanding why, and wiped them with my forearm - succeeding only in smearing them with sweat. I sat for a while, simply looking at her. What should I do next? I was having trouble focussing - thoughts swirled in my head, and each time a plan of action began to coalesce, it was swept away on a short, sharp, wave of renewed panic and anxiety.
 
-  
+I calmed my breathing, and closed my eyes - screwing them shut, hard, until lights appeared behind my eyelids. Then I opened them again, and looked at her afresh. I now, truly, registered the wound in her chest. I was no expert, but it looked like a gunshot wound: small, precise, even neat. I had heard no shot though - and sound carried out here on this empty plain, where the nearest roads were at least three miles away.
+
 A strange sense of calm began to take over. The panic was subsiding now (although I was damned if I knew why) and was replaced instead with a powerful sense of curiosity - a need to find out what had happened to the woman sprawled in front of me, and where she had come from. Standing up again, I began to walk slowly towards the Eastern side of the bridge. As I approached the half-way point (there was no marker, I simply knew - eleven years of watching this bridge meant that I knew every inch of its surface), the sense of nervousness began to return. I couldn’t see anyone on the other side - no gunman, no one at the Eastern cabin at all.
 
-  
-I was conscious that crossing this invisible line would represent a point of no return. One of the only stipulations in my contract was that I must not cross The Bridge. But I was emboldened now - or rather - driven. Nothing like this had happened to me before. 
+I was conscious that crossing this invisible line would represent a point of no return. One of the only stipulations in my contract was that I must not cross The Bridge. But I was emboldened now - or rather - driven. Nothing like this had happened to me before.
 
-  
-I made the final few steps forward. One, two, three - four. The white stone bridge was gone, and so was the grassy plain beyond it. 
+I made the final few steps forward. One, two, three - four. The white stone bridge was gone, and so was the grassy plain beyond it.
 
-  
-And then, suddenly, in front of me stretched a brutish, iron gantry. It stretched out an eighth of a mile in front of me, its exit (or entrance) blocked by curls of barbed wire. The Eastern corrugated iron cabin was gone - in its place was a squat concrete bunker, its roof adorned with what must have been communications masts, and floodlights. There were more figures standing outside the bunker, two - no - three, people huddled together, gesticulating around themselves and occasionally pointing out across The Bridge, without looking in my direction. 
+And then, suddenly, in front of me stretched a brutish, iron gantry. It stretched out an eighth of a mile in front of me, its exit (or entrance) blocked by curls of barbed wire. The Eastern corrugated iron cabin was gone - in its place was a squat concrete bunker, its roof adorned with what must have been communications masts, and floodlights. There were more figures standing outside the bunker, two - no - three, people huddled together, gesticulating around themselves and occasionally pointing out across The Bridge, looking in my direction.
 
-  
-I simply stood. My thoughts had turned to tar, and my ears rang as though someone had rung a great bell next to my head. It was odd - the last time I had felt like this was when I heard that my father had died quite suddenly, thirteen years ago. I was simply numb, bereft. 
+I simply stood. My thoughts had turned to tar, and my ears rang as though someone had rung a great bell next to my head. It was odd - the last time I had felt like this was when I heard that my father had died quite suddenly, thirteen years ago. I was simply numb, bereft.
 
-  
-I looked down at his feet, and the sense of numbness vanished. I realised that the ‘ground’ beneath my feet was actually a heavy iron mesh - evidently strong, but quite transparent. There was no grass beneath my feet now, no wild flowers. Instead, below me lay a void - the bottom of which was imperceptible as far as I could see. I was standing above… nothing. 
+I looked down at my feet, and the sense of numbness vanished. I realised that the ‘ground’ beneath my feet was actually a heavy iron mesh - evidently strong, but quite transparent. There was no grass beneath my feet now, no wild flowers. Instead, below me lay a void - the bottom of which was imperceptible as far as I could see. I was standing above… nothing.
 
-  
 I remember I yelled out (like an idiot - but I was in shock!) and stumbled backwards several paces, falling flat on my behind. Beneath my hands I once again felt cool, smooth stone - and in front of me stretched The Bridge as I had known it, smooth and white, leading out to a grassy plain and a featureless horizon.
 
-  
-I began to breathe rapidly; panic - real panic - threatening to set in. I looked over my shoulder and saw the figure of the woman lying where she had fallen. She was real. This… was real. My gaze shifted away from the woman, towards my vehicle. I was filled with a powerful urge to run, to drive away. To go back to my apartment, and to contact my employer to request instructions. And to pour myself a very large, very strong, drink. 
+I began to breathe rapidly; panic - real panic - threatening to set in. I looked over my shoulder and saw the figure of the woman lying where she had fallen. She was real. This… was real. My gaze shifted away from the woman, towards my vehicle. I was filled with a powerful urge to run, to drive away. To go back to my apartment, and to contact my employer to request instructions. And to pour myself a very large, very strong, drink.
 
-  
 But I didn’t. I stayed rooted to the spot. Because there was another, stronger, urge telling me to cross that halfway-point again. The woman was real, to be sure, but had I really seen what I thought I had across that invisible line? I shifted myself carefully so that I was on my hands and knees - not trusting my trembling legs to carry me. Slowly, deliberately, I began to crawl forward again. A pace before the halfway point I reached out with my right hand, fully expecting it to disappear as it crossed some invisible threshold. But it didn’t. I reached inside my pocket and fished out some coins, then tossed them out onto The Bridge in front of me. They landed a few yards away - still visible - on the white stone in front of me. Doubt started to creep in - was I going insane?
 
-  
-I crawled forward another pace and then, without fanfare - without a woosh, or an artful ripple in the air around me - I found himself back on the iron gantry. I immediately regretted being on my hands and knees: instead of resting on top of smooth stone, my fingers were curled around the iron mesh beneath me, and my eyes were fixed inexorably on the void below.  
-  
+I crawled forward another pace and then, without fanfare - without a woosh, or an artful ripple in the air around me - I found himself back on the iron gantry. I immediately regretted being on my hands and knees: instead of resting on top of smooth stone, my fingers were curled around the iron mesh beneath me, and my eyes were fixed inexorably on the void below.
+
 Slowly, I raised my head. I found myself staring at a pair of heavy, rubber boots. Numbly, my gaze traveled up, taking in the yellow plastic of a hazmat suit (or something like) and, finally, a clear plastic mask - behind which I saw eyes that were deeply lined, and sunken. Eyes full of fear.
 
-  
-‘How?’ breathed the man in the hazmat suit, as he stared down at me.  
-  
-  
-  
-  
-  
-  
+‘How?’ breathed the man in the hazmat suit, as he stared down at me.
