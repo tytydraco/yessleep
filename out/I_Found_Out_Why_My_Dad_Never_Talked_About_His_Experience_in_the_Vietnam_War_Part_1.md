@@ -40,7 +40,7 @@ Hiep, the village official with dreams of peace, whom the Viet Cong executed dur
 
 Every patrol, every ambush we set, is not just a military strategy; it's a personal vendetta. In the quiet moments, when the jungle whispers its ancient secrets, I find myself talking to my brother, promising him justice, promising that his death will not be in vain.
 
-As I glance to my side, I see my friend, Special Vinh, his fingers deftly moving over the beads of his rosary.
+As I glance to my side, I see my friend, Specialist Vinh, his fingers deftly moving over the beads of his rosary.
 
 "Hey, Vinh," I whisper, nudging him gently, "make sure you say a prayer for me too." I give him a half-hearted smile. I'm a Buddhist, but in times like these, I'll take all the protection I can get.
 

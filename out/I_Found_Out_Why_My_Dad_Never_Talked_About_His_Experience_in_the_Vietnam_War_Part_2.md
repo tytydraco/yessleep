@@ -26,7 +26,7 @@ As I make my escape, the desperate cries of the sniper, still entangled in a hor
 
 But as I glance back, seeing the terror in her eyes, a different instinct takes over. No one, not even the Viet Cong, deserves such a gruesome end.
 
-Gritting my teeth, I double back, picking up the machete she’d dropped in her struggle. The weapon feels crude and unwieldy in my hands. But there's no time to hesitate.
+Gritting my teeth, I double back, picking up the machete she’d dropped in her struggle. The weapon feels crude, but effective weapon.
 
 With a determined swing, I bring the machete down on Vinh, severing the sinewy, charred arm that pins the sniper to the ground. He recoils, his inhuman wails piercing the air.
 
@@ -180,11 +180,11 @@ Their arms wave frantically above their heads, desperately signally to the circl
 
 The helicopters hover idly for a moment, as if contemplating their next move. For a fleeting moment, a glimmer of hope is sparked in my heart. Perhaps they've come to rescue the survivors, to pluck them from this hellish wasteland.
 
-But in an instant, that hope is shattered. With a chilling efficiency, the helicopters’ guns roar to life, spewing forth a torrent of bullets. The ground around the survivors erupts in a storm of dirt and debris. The Hueys transform from potential saviors to executioners.
+But in an instant, that hope is shattered. The helicopters’ guns roar to life, spewing forth a torrent of bullets. The ground around the survivors erupts in a storm of dirt and debris. The Hueys transform from potential saviors to executioners.
 
 The men, my brothers-in-arms, react with a mixture of disbelief and horror. They scatter, desperately seeking cover where there is none. Their movements are frantic, but their fate is sealed. The relentless hail of bullets from above tracks their every move.
 
-I watch, powerless, as one by one, they fall. The Hueys don’t discriminate. They tear through flesh and bone with cruel efficiency, like mechanical vultures.
+I watch, powerless, as one by one, they fall. The Hueys don’t discriminate. They tear through flesh and bone like mechanical vultures.
 
 Their guns do not cease until the last man lies still, his pleas for mercy drowned out by the roar of gunfire.
 
