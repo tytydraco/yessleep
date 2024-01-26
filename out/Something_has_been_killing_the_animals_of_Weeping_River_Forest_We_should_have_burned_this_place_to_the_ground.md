@@ -6,9 +6,15 @@
 
 Gerard looked down at his roughly bandaged wounds, noticing the red strands already festering within his body. By then, the first symptoms of the Crimson Nexus digging its way into his organs had taken effect. He was by no means a stupid man, and he knew based on the infected subjects he’d studied, that there would be no cure for him, but the others weren’t as ready to accept his inevitable demise.
 
+I stood by as they talked among themselves, feeling my heart beginning to race, my hand trembling over the gun in my holster, and my chest tightening. Though I had been able to compose myself despite the fear I felt, my body was beginning to revolt against my own mind. I couldn't fight it.  
+
 “How are we going to get Gerard out of here?” Bill asked. “We can’t exactly carry him.”
 
 “And what about Mark?” Jane chimed in. “We have to go back for him.”
+
+They looked to me for answers, but I couldn't muster the words to respond. My thoughts had moved elsewhere, to tremendous loss I'd experienced years prior. The reminder of sacrifices that had to be made was enough to send my mind into a state of panic. 
+
+"Doctor Livingston?" Jane said. Being directly addressed pulled my mind back from the pits. Though my hand still shook, I could keep me emotions hidden. 
 
 “There’s nothing we can do for Mark,” I said. “He was dead by the time we found him.”
 
