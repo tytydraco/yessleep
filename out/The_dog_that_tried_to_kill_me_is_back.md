@@ -126,6 +126,6 @@ Tyler steps to the side and the labrador leaps up at me, wagging its tail the en
   
 It’s the first dog to be friendly to me since Sparky.  
   
-That’s because it’s not a dog, I realize with horror. I first noticed the scar around its eye, the same eye I stabbed the coyote in. Then I saw those unforgettable, bent, crooked ears, just like Sparky’s.  
+That’s because it’s not a dog, I realized with horror. I first noticed the scar around its eye, the same eye I stabbed the coyote in. Then I saw those unforgettable, bent, crooked ears, just like Sparky’s.  
   
-My back touches the wall, and I pass out.
+My back touched the wall, and I pass out.
