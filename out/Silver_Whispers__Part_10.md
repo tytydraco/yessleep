@@ -90,11 +90,11 @@ In the next, I realized something that many of the Martyrs who suffered and died
 
 &#x200B;
 
-”Lord, have mercy on us, your children from under the stars! We are unworthy of all your mercy, we deserted you, after you gave all your great gifts. We were proud, ungrateful, cold and cruel. We forgot about You. Worthy were we of death. Yet, for the sake of those who loved You and truly resemble You, we are here again. We are still Your children, Lord, and you allowed us to live again. We can rise ourselves in resemblance to You, we can open our hearts to rise from this small piece of clay we are bound to, not being able to see your Heaven in this age, but we can bring it in our hearts, in our lives, we can bring accept You to live in us and become your living Icons as well.
+”Lord, have mercy on us, your children from under the stars! We are unworthy of all your mercy, we deserted You, after you gave all Your great gifts. We were proud, ungrateful, cold and cruel. We forgot about You. Worthy were we of death. Yet, for the sake of those of us who loved You and truly resemble You, we are here again. We are still Your children, Lord, and you allowed us to live again. We can rise ourselves in resemblance to You, we can open our hearts to rise from this small piece of clay we are bound to, not being able to see your Heaven in this age, but we can bring it in our hearts, in our lives, we can bring You to live in us and become your living Icons as well.
 
 &#x200B;
 
-At least, Lord, look upon those of us who are still clean and innocent, who just open their eyes in this wonderful place called Earth, so that they shall have a chance to become worthy of You and have a chance to intercede for the rest of us, living or dead, who went astray from you!
+At least, Lord, look upon those of us who are still clean and innocent, who just open their eyes in this wonderful place called Earth, so that they shall have a chance to become worthy of You and to intercede for the rest of us, living or dead, who went astray from you!
 
 &#x200B;
 
@@ -134,7 +134,7 @@ A faint rain came over all of us. I looked up at grandpa, in his undead eyes. I 
 
 &#x200B;
 
-The light of a lonely star shone upon us. A moment like a century. Our souls spoke to each other. I was overwhelmed, but calm. The cold shine of his eyes became warm and gentle. I knew this would not last forever but it was real then. I smiled and Artanis smiled with me. The Candles around stood still. But it would not last, one of them gave a shriek-like sound, another responded and they started coming towards us, with their swords out. I could see now each sword had symbols inscribed on it, I could not recognise anything.
+The light of a lonely star shone upon us. A moment like a century. Our souls spoke to each other. I was overwhelmed, but calm. The cold shine of his eyes became warm and gentle. I knew this would not last forever but it was real then. I smiled and Artanis smiled with me. The Candles around stood still. But it would not last, one of them gave a shriek-like sound, another responded and they started coming towards us, with their swords out. I could see now each sword had symbols inscribed on it, I could not recognize anything.
 
 &#x200B;
 
