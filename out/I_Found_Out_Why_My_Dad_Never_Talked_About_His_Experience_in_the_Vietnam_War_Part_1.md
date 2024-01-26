@@ -20,8 +20,6 @@ He nodded slowly, his gaze fixed on a point beyond the walls of the room. “Yes
 
 *The following story is a direct translation from Vietnamese to English of my dad's account of his experience with his permission:*
 
-**April 17, 1968**
-
 As I carefully position the Claymore mine, the jungle around me feels both suffocating and oddly comforting. I've become a shadow in these dense woods, with skills honed from too many battles fought and too many lives lost. The infamous Hồ Chí Minh Trail, a serpent that weaves through the terrain, carrying the lifeblood of our enemy.
 
 Our position is strategically chosen. We're entrenched on a hilltop, offering a commanding view of the trail below. It's a defensible spot, with natural barriers on three sides. Our mission is simple: eliminate any Commie bastards daring to tread this path.
@@ -56,7 +54,7 @@ His words, though simple, resonate deeply. I nod in agreement.
 
 As he moves on, I find a secluded spot near a towering tree, its roots offering a makeshift seat. The night is slowly descending, wrapping the jungle in a cloak of darkness. The chirps and calls of nocturnal creatures become the soundtrack of our vigil.
 
-**April 18, 1968**
+—
 
 Time seems to stretch and compress in these waiting hours. Every shadow becomes a potential threat, every rustle a possible enemy.
 
