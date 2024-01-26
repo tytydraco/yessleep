@@ -20,7 +20,7 @@ I switch the fire selector to full-auto. My rifle bucks in my hands as I unleash
 
 Finally, the creature collapses to the ground, its form writhing in an unnatural, spasmodic dance. The others, undeterred by the fate of their kin, continue their relentless advance.
 
-The magazine clicks empty. Reloading swiftly, I unleash another hail of bullets, creating a temporary corridor through the relentless swarm. The horde, though seemingly impervious to pain, are momentarily staggered by the force of the gunfire, providing me with a fleeting chance to break free.
+The magazine clicks empty. Reloading swiftly, I unleash another hail of bullets, creating a temporary corridor through the encroaching swarm. The horde, though seemingly impervious to pain, are momentarily staggered by the force of the gunfire, providing me with a fleeting chance to break free.
 
 As I make my escape, the desperate cries of the sniper, still entangled in a horrific struggle with the creature that was once Vinh, reach my ears. The instinct to survive screams within me to leave her to her fate – she is, after all, the enemy.
 
@@ -166,7 +166,7 @@ Cautiously, Tuyet leads me towards a small aperture that serves as a discreet ob
 
 A squadron of UH-1 Hueys hovers above the jungle, their silhouettes imposing against the smoky sky. There's something off about them - they bear no markings or insignias, their usual identifiers conspicuously absent. It's as if they've been deliberately stripped of any affiliation, rendering them ghosts in the sky.
 
-Through the small opening, we witness the choppers rain hellfire down on the undead. Machine guns chatter relentlessly, spitting streams of deadly lead. Rockets streak from their pods, trailing plumes of smoke before exploding amidst the reanimated corpses.
+Through the small opening, we witness the choppers rain hellfire down on the undead. Machine guns chatter, spitting streams of deadly lead. Rockets streak from their pods, trailing plumes of smoke before exploding amidst the reanimated corpses.
 
 The impacts are devastating, tearing through the undead with brutal efficiency. Limbs are severed, bodies eviscerated. The scene unfolds like a choreographed ballet of devastation.
 
