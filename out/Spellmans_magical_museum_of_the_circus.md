@@ -1,0 +1,29 @@
+In my home village in England there's a very popular museum of the ancient circus. However, there's also been children going missing every Halloween when they go inside. Vanished into thin air. The owner of the museum, Elijah Spellman, was the obvious suspect of the vanishings. However, nothing can be proven, partly because of spellmans standing in the community and friends in the local police. The thing you need to know about him, is that he's well known for dressing in quite an expensive ringleader outfit, with a clique of clowns, providing entertainment to the village. Most people I know outside the village are are scared of clowns, not here though, everyone loves them.
+
+To give you some background, I'm a freelance investigative journalist, and have been investigating the museum for two years now. I remember once speaking to the oldest resident there, Mr John Alexander. According to him, Spellman and his museum has been there since he was a boy, and spellman only changed in age when the kids of the village grew up, then changed young again when the next generation came to the village. Of course, no one believed him, because it sounds too far fetched. 
+
+I asked him what his theory is about Mr Spellman, and he believes him to be the pied piper of hamlet. This would actually explain the disappearances of the children. Now, I've never been in the museum, as clowns make my skin crawl. But for the sake of the children, I'll tolerate it. When I got back home, I decided to do some research into the history of clowns, to see if there's possibly any links to Spellman and his museum. I found the obvious clowns for hire, pogo the clown and the 2016 killer clown craze. But nothing related to what I was looking for. 
+
+A quick side note as to why I hate clowns. When I was 10, i was staying at my aunt's place, in her room while she slept in the spare. She has this Marionette in her room. An old looking thing. I never liked it, as it always seemed to be watching me. One night during a thunderstorm, the marionette started moving during the flash. I remember screaming the house down, and my aunt telling me it was just a trick of the light. Ever since then, I've hated clowns with a burning passion. 
+
+But anyway, I decided to search up Elijah Spellman, and there was obviously articles from the village singing his praises for helping with sick kids and school event's. But there was nothing of spellmans magical museum of the circus. No open days, no information on when it arrived and set up, nothing. That was when I really started to believe John about Spellman being really old. The village itself has been around since the early Victorian times, and considering the museum has been around before John and his father and his father, who knows how long it stretches back. Maybe before that, it was set up somewhere else. 
+
+I decided to ask John if he'd go with me to the museum after closing hours, less of a chance of running into Spellman. He happily agreed as he wanted to know if the children were in there. And also because he never liked Spellman, always gave him the creeps. When we arrived, I was expecting to having to pick the lock, but surprisingly, it was open. Inside the museum was very well decorated. Stuffed elephants, pictures of clowns from medieval times and throughout history, the laughing clown in the box, statues of clowns, the lot. There was also a mirror maze past the curtains. But before we were able to go on, the lights came on, and a loud booming voice addressed us.
+
+" Welcome! Welcome! To spellmans magical museum of the circus! "
+
+He spoke in a french accent, and sure enough, was donned in his ringleader outfit. I kept my compusure and told him I was here to cover a story about clowns in the united kingdom, something that seemed to please him. He gave us a wide smile and asked us to follow him.
+
+" Throughout the ages, mankind has always needed someone to make them laugh. From the gladiators of ancient Rome, to the court jester of medieval Britain. But you, miss brown, are looking for something more... specific? "
+
+The way he uttered those last words made me shudder, it's like he already knew what I was looking for. I told him it wasn't about the funny clowns. It was the one's who kidnapped children, the one's who made people afraid. 
+
+" Ah! The fear of the painted smile! Something everyone at some point in their life has experienced, in some shape or, dare I say it? Form? "
+
+John interrupted our conversation, a creepy one, by pointing out an old painting of the pied piper. The oldest and most accurate painting of him to exist. Mr Spellman explained to John the legend of the pied piper. That he used a flute to take away the rats from the town of hamlet, and when the town refused to pay him, he took away their children. When I turned around to face him, he was gone. I told John that we were leaving as I didn't want to stay here a minute longer. Then out of nowhere, an animatronic clown grabbed my arm, and noticed that the rest were beginning to smile and move towards us. I managed to get free and we sprinted for the doors. We managed to lock the reception door and keep the tronics out. But we were unable to escape. 
+
+Suddenly, Mr Spellman appeared before us, sarcastically asking if we were stuck. When I finally demanded who or what he was, he gave me that same wide smile and transformed himself.
+
+" Who am I? I am the pied piper, I'm the one who conjoined away a whole town's infants, and have chiled the hearts of parents, for more than seven centuries" 
+
+He transformed back into Spellman and started approaching me. Backing me and John into the corner, and at the same time, the clowns managed to get through the door. And now, as I type this, I'm afraid what will happen to us.
