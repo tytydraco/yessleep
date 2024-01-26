@@ -50,6 +50,6 @@ But I didn’t. I stayed rooted to the spot. Because there was another, stronger
 
 I crawled forward another pace and then, without fanfare - without a woosh, or an artful ripple in the air around me - I found himself back on the iron gantry. I immediately regretted being on my hands and knees: instead of resting on top of smooth stone, my fingers were curled around the iron mesh beneath me, and my eyes were fixed inexorably on the void below.
 
-Slowly, I raised my head. I found myself staring at a pair of heavy, rubber boots. Numbly, my gaze traveled up, taking in the yellow plastic of a hazmat suit (or something like) and, finally, a clear plastic mask - behind which I saw eyes that were deeply lined, and sunken. Eyes full of fear.
+Slowly, I raised my head. I found myself staring at a pair of heavy, rubber boots. Numbly, my gaze traveled up, taking in the yellow plastic of a hazmat suit (or something like it) and, finally, a clear plastic mask - behind which I saw eyes that were deeply lined, and sunken. Eyes full of fear.
 
 ‘How?’ breathed the man in the hazmat suit, as he stared down at me.
