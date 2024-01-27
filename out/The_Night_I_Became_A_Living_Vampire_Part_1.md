@@ -1,4 +1,4 @@
-( Next: https://redd.it/19e2tpi )
+( Next: https://redd.it/19e2tpi Last: https://redd.it/1aby2xy  )
 
 I’ve settled into a comfortable routine. Work eight hours for five days, then head to the bar on Fridays. I’d picked up a Saturday shift, but because my job was at a call center, I could still go in hungover from the night before. Shift or not, I always spent Friday nights at the local bar. 
 

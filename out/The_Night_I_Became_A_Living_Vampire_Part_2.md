@@ -1,4 +1,4 @@
-(First: https://redd.it/19d9k5f )
+(First: https://redd.it/19d9k5f Next:https://redd.it/19fnenu  )
 
 The small town I grew up in never looked brighter. I had changed in ways I didn’t fully understand yet. I feared I would never fully discover what I was now.  My body no longer felt like my own and yet I pushed it forward for a girl I barely knew. My newly improved eyesight made it so I could see every corner of the dark streets. I heard people sleeping in their beds, the murmur of their heartbeats just background noise under the wind blowing past my ears. I knew it was cold, and yet my skin didn’t register it.   
 

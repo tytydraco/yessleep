@@ -1,4 +1,4 @@
-(First: https://redd.it/19d9k5f Previous: https://redd.it/19e2tpi )
+(First: https://redd.it/19d9k5f Previous: https://redd.it/19e2tpi Next: https://redd.it/1aby2xy)
 
 I woke up a few hours before sunset. I lazed around for a bit not ready to get out of bed or off my phone. Then someone started knocking at the RV door, refusing to leave. I still felt like I’d been run over several times by a truck. Crawling out of bed I yelled at whoever was knocking to come in assuming it was Hunter. Instead, I saw someone I hadn’t seen in a few years. He wasn’t a bad person, but he still brought back bad memories.  
 
