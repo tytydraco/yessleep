@@ -4,9 +4,9 @@ As I reached for the doors of the high school, my friend Rick came running throu
 
 “Henry! There’s something wrong on the second floor! I found Mrs. Meriwether and she was acting weird! She tore of her own arm!” He said frantically. He rambled on about dead zombie students and teachers eating they’re own limbs. 
 
-Before I could respond, he ran away. I though he had been drinking and was incredibly high so I went in anyway. Everything was normal, so I figured he was being a bit delulu and decided to go to class.
+Before I could respond, he ran away. I thought he had been drinking and was incredibly high so I went in anyway. Everything was normal, so I figured he was being a bit delulu and decided to go to class.
 
-I climbed the steps to the second floor where my home room was. When u walked in, everyone was missing. That was a bit strange because at least the teacher should’ve been here. Mr Nood always came 5 minutes before the bell rang. 
+I climbed the steps to the second floor where my home room was. When I walked in, everyone was missing. That was a bit strange because at least the teacher should’ve been here. Mr Nood always came 5 minutes before the bell rang. 
 
 I started to notice that the hallways were also empty, but the first floor was buzzing with students, so that was odd. 
 
@@ -46,7 +46,7 @@ I covered my ears and fell to the ground. When I opened my eyes, Mr Nood was gon
 
 Some had arms missing, some had legs missing, and some had their eyes gouged out and their guts spilling onto the floor. The ones that did have eyes had dark, black bags under them, and some had red irises or pure, black eyes. Rot stained their faces and instead of nails, they had long, black claws.
 
-Mr Nood started to tear off his own arm, and he ate it as if it were a chicken leg. I ran away. I was not going to end up like them. I frantically looked for a sign of the stairs, but I was pulled down by an Infected. It took hold of my leg and t started to bite it. I kicked as hard as I could to get free. 
+Mr Nood started to tear off his own arm, and he ate it as if it were a chicken leg. I ran away. I was not going to end up like them. I frantically looked for a sign of the stairs, but I was pulled down by an Infected. It took hold of my leg and started to bite it. I kicked as hard as I could to get free. 
 
 When I finally got free from its grasp, everything returned to normal. I was laying on the floor, leg dripping with blood, and exhausted out of my mind. I ran down the stairs and collapsed.
 
@@ -54,6 +54,6 @@ A teacher found me, lying on the floor unconsciously, and called an ambulance.
 
 Later that day, I woke up in the hospital. I convinced myself that none of it was real. Until I saw the bandage around my leg. The nurse had told me that they found a virus in my blood, and that I had had a blood transfusion earlier. 
 
-I slowly started to feel weird, so something was obviously wrong. I wanted to eat human skin, and I had the urge to tear off my own arm. I needed to go back to the school, I needed to go back to the second floor, my home. 
+I started to feel weird, so something was obviously wrong. I wanted to eat human skin, and I had the urge to tear off my own arm. I needed to go back to the school, I needed to go back to the second floor, my home. 
 
 I don’t know how long I have before I turn into one of them, but if someone knows what’s going on, please send help.
