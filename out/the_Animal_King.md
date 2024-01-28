@@ -1,16 +1,16 @@
 Hello my name is Jack and i am a big game hunter! One day I was hunting for reindeer in Canada. I was tracking a herd when I felt someone's cold hand touch my shoulder! It scared me so I screamed and scared off the herd of reindeer.
 
-And when I turned around I saw a muscular man wearing a bear's fur and its skull had a crown. I told this man “what the fuck man don’t do that” the strange man told me in a thick australian accent “sorry i just wanted to ask you if you would like to join me on a hunt”?
+And when I turned around, I saw a muscular man with pale blue eyes. wearing a bear's fur and its skull had a crown. I told this man “What the fuck man don’t do that” the strange man told me in a thick Australian accent “sorry a just wanted to ask you if you would like to join me on a hunt”?
 
-I looked at this strange man and asked “what kind of hunt”? The man said to me “one that you’ll never forget”! Then he handed me a red piece of cloth. And said “tie this around your door that means you are coming”!
+I looked at this strange man and asked, “what kind of hunt”? The man said to me “one that you’ll never forget”! Then he handed me a red piece of cloth. And said “tie this around your door that means you are coming”!
 
 Before he walked through the forest with loud thundering stomps I could still hear! When I got back to my cabin I tied the red cloth around my door knob and went to sleep. When I woke up I wasn't in my cozy log cabin bedroom. I was in a hot iron claustrophobic room. that kept being slammed by something big as water dripped in!
 
-When I opened my door I was in a far nicer hallway. It looked like one at a 5 star hotel. There I saw a woman. She had long black hair, a muscular body and green eyes. I walked up to introduce myself. She looked confused she said “wait there are other people going on this hunt”
+When I opened my door I was in a far nicer hallway. It looked like one at a 5-star hotel. There I saw a woman. She had long brown hair, a muscular body and green eyes. I walked up to introduce myself. She looked confused she said “wait there are other people going on this hunt.”
 
-To be honest I was kinda thinking the same thing! But then another guy came out of his room. He looked younger than us and was long and lanky with short brown hair. He looked confused and annoyed to see us! He said to us “who the fuck are you people”?
+To be honest I was kind of thinking the same thing! But then another guy came out of his room. He looked younger than us and was long and lanky with short brown hair and a chubby face and green eyes. He looked confused and annoyed to see us! He said to us “who the fuck are you people”?
 
-i said “i’m jack” the woman said sheepishly “i’m corey” then another man came out of his room. He was big and balled with a mix of fat and muscles. He said “i’m toad” we all turned at him and said “hi Toad”
+I said “I’m jack” the woman said sheepishly “I’m Corey” then another man came out of his room. He was big and bald with a mix of fat and muscles and brown eyes. He said “I’m toad” we all turned at him and said “hi Toad.”
 
 I then asked the lanky man “So who are you”? He said “I am butch”! After that we heard the sound of a horn. It was coming from up the stairs at the end of the hallway. We walked up the stairs to see that we were on a yacht! And I could see the man that scared me in the woods. Now wearing lion skin and a lion skull on his head. holding a conch shell blowing into it!
 
@@ -72,7 +72,9 @@ The next day we found a shark in a small pond. It was eating an alligator! Troy 
 
 That night Butch said “i think i should explain something to you guys” ? Toad ask “what do you mean Butch”? Butch said rather somberly “I just wanted to bring up why I have been a dick lately’!
 
-After butch said this he told us “when I was young my mother abandoned me and my sister with her father and my sister died”. Corey said “holy shit I'm sorry Butch”! Then butch said “don’t be because it was my fault my sister died”! Toad asked “how is it your fault”? Butch said "I killed her so grampa won’t hurt her anymore”! Troy walked up to butch and layed down as Butch petted him. Corey looked like she was about to say something but didn’t.
+After butch said this he told us “when I was young my mother abandoned me and my sister with her father and my sister died”. Corey said “holy shit I'm sorry Butch”! Then butch said “don’t be because it was my fault my sister died”!
+
+Toad asked “how is it your fault”? Butch said "I killed her so grampa won’t hurt her anymore”! Troy walked up to butch and laid down as Butch petted him. Corey looked like she was about to say something but didn’t.
 
 Then two nights later as we were cooking a moose we caught we heard the conch again! Troy was scared of that sound and hid next to Butch. We saw the Animal King this time holding the heads of many animals on his belt!
 
@@ -80,9 +82,11 @@ When the Animal King saw Troy. he grabbed him by the tail and slammed him onto a
 
 Butch was about to throw his trident into the Animal King! But then the Animal king said “if you want the boat to come i wouldn’t do that”! Butch dropped his trident and picked up Troy and buried him while holding his tears.
 
-Then the Animal King proclaimed “I have almost killed all the animals on the island weil you pussy’s were taking the easy way out now there is one left” Corey said “what animal is it”? The Animal King said “the one who rules them all is a creature of grace and carnage, something that I admire” Butch said while crying “just tell us the animal”! The Animal king yelled “shut the fuck up Butch now i see why your mother abandoned you”!
+Then the Animal King proclaimed “I have almost killed all the animals on the island weil you pussy’s were taking the easy way out now there is one left” Corey said “what animal is it”?
 
-And after that nobody talked for the rest of the night. We are now currently waiting for tomorrow. I am glad to be done hunting with this lunatic soon.
+The Animal King said “the one who rules them all is a creature of grace and carnage, something that I admire” Butch said while crying “just tell us the animal”! The Animal king yelled “shut the fuck up Butch now i see why your mother abandoned you”!
+
+Corey stated crying! And after that nobody talked for the rest of the night. We are now currently waiting for tomorrow. I am glad to be done hunting with this lunatic soon.
 
 When we woke up to the sound of the conch once more. But this time the Animal king was here holding the conch and his rifle! When we all woke up he said in a satisfied australian voice “I have kept you waiting long enough today we will hunt the last animal a king who lost his peasants the mighty lion”!
 
@@ -92,7 +96,7 @@ He looked defeated as if he knew what was about to happen. Toad asked “do we c
 
 I pointed the rifle at the lion as the sun illuminated the beast. And bang the lion falls onto the ground we stand on! The animal king blew into the conch shell, grabbed the lion and said "that's all 100 of the beast of danta’s island”!
 
-Toad asked “how do you know how many animals are here”? The Animal King said back rather bluntly “I put them here”. Butch yelled “you fucking did what”? The Animal King said “because there were no animals here before I came into this world”!
+Toad asked “how do you know how many animals are here”? The Animal King said back rather bluntly “I put them here”. Butch yelled “you fucking did what”? The Animal King said “because there were no animals here before I came into this world i am their god"!
 
 As we were making our way back to the beach it started to rain. The Animal King said “we are going to wait here for tomorrow”! Toad said “sir we can handle a little rain”! The Animal King shot back “I said we wait for tomorrow”!
 
