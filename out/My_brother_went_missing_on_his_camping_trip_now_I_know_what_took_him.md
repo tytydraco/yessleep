@@ -1,3 +1,4 @@
+[part 1] 
 
 A few weeks ago my brother went on a camping trip with his friends. He would send me video updates every day, counting down the days until his return. On Tuesday he stopped, I brushed it off and chalked it up to a weak signal in the forest, but I didn't even receive a text on Wednesday either. My guts wrenched as I lay in bed that night, thinking of what could have happened to him. The next morning I made my way over to the police station, I tried to speak to them about my brother, but they dismissed it. Later that day two rangers showed up at my house, they introduced themselves and spoke to me about my brother, but still, they dismissed the case and told me he would show up soon. 
 
