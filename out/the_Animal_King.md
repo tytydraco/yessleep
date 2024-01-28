@@ -76,7 +76,7 @@ After butch said this he told us “when I was young my mother abandoned me and 
 
 Toad asked “how is it your fault”? Butch said "I killed her so grampa won’t hurt her anymore”! Troy walked up to butch and laid down as Butch petted him. Corey looked like she was about to say something but didn’t.
 
-Then two nights later as we were cooking a moose we caught we heard the conch again! Troy was scared of that sound and hid next to Butch. We saw the Animal King this time holding the heads of many animals on his belt!
+Then two nights later as we were cooking a moose we caught we heard the conch again! Troy was scared of that sound and hid next to Butch. We saw the Animal King we was untouched compared to us and was holding the heads of many animals on his belt!
 
 When the Animal King saw Troy. he grabbed him by the tail and slammed him onto a sharp rock! Cutting him in half. Butch grabbed his man made trident and yelled “why the fuck did you do that”? The Animal King said “we came here for meat not for pets”!
 
