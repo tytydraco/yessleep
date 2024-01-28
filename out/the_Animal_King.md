@@ -130,7 +130,7 @@ Unfortunately Toad was gunned down by the Animal King before he then blew into t
 
 He was wearing Toad like he wore the lion. He was about to shoot Corey! when Butch throwed his trident at the Animal Kings arm causing him to shoot Corey in her legs instead. Then Butch told us “I'll buy you some time”! Before he then ran towards the Animal king!
 
-Before then being grabbed and thrown on the ground and stomped on! But there was no conch. As I carried a now legless Corey climb up the volcano! The Animal King followed suit with fire in his eyes!
+Before then being grabbed and thrown on the ground and stomped on! But there was no conch. As I carried a now legless Corey climb up the volcano! The Animal King followed suit with fire in his pale blue eyes!
 
 When we reached the edge of the volcano's mouth we had nowhere left to go! And then Corey pointed to a rock and said exhaustedly “push that rock down Jack”! I crawled towards the boulder and tried to push on it. It felt like a hot char and I also gave up but it came loose!
 
@@ -142,6 +142,6 @@ As we were running the jungle caught on fire and we almost went to flames with i
 
 As we wore out at sea Corey got worse! and I tried to save her life. Then one night she said to me “Jack I don't think I will make it, so can I tell you something”? I said while almost crying “sure”! Corey told me “i was Butch’s mom” i asked Corey “why did you abandon Butch”?
 
-Corey said “I thought that I could trust my dad”! She then said “if i die i’ll allow you to eat me”! The next day I found Corey’s body and she killed herself with her ax! For the next few weeks I would not touch her body!
+Corey said “I was young and i thought that I could trust my dad”! She then said “if i die i’ll allow you to eat me”! The next day I found Corey’s body and she killed herself with her ax! For the next few weeks I would not touch her body!
 
 But the yacht ran out of food so I had to eat her to survive! After 2 months out at sea I ran out of her body. And after 2 more days I think I see land. but i might just have scurvy.
