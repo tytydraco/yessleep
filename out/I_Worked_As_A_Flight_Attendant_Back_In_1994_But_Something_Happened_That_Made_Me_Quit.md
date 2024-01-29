@@ -6,7 +6,7 @@ It was the summer of 94 when I was hired as a flight attendant for a major airli
 
 I was ecstatic as this was my dream job.
 
-During my first week there, I made friends with the other flight attendants. I had become especially close to 2 of the flight attendants, Mandy and Tasha.
+During my first week there, I made friends with the other flight attendants and had become especially close to 2 of the flight attendants, Mandy and Tasha.
 
 On our layovers, we'd often shared a hotel room for safety reasons. Mandy was the social one while Tasha was more reserved and I, was in between. The 3 of us became inseparable.
 
