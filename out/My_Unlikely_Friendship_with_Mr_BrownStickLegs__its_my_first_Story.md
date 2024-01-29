@@ -1,0 +1,17 @@
+Ever since I was a ten-year-old kid, sleep paralysis has been a part of my life. Initially a source of fear, it evolved into a bizarre connection with an unexpected companion – Mr. BrownStickLegs. Our journey together transcends the ordinary, delving into the realms of dreams, nightmares, and an unlikely friendship that defies explanation.  
+  
+The first episode occurred after a family outing to watch Shrek 2. The night unfolded into an eerie experience as I lay paralyzed, my senses heightened by the glow of the alarm clock. It was then that Mr. BrownStickLegs made his first appearance, an enigmatic figure with red eyes and a peculiar presence. Instead of inducing terror, he calmly urged me to sleep, leaving me both puzzled and intrigued.  
+  
+Naming him added a touch of humor to the situation, with my dad even joining in, playfully calling out for Mr. BrownStickLegs during bedtime routines. As our strange encounters became routine, I started drawing pictures for him, creating a peculiar form of communication between us. What started as a source of fear transformed into a unique friendship, a bond that transcended the boundaries of the waking world.  
+  
+High school ushered in darker times – the loss of my dad, struggles with substance abuse, and a general descent into the shadows. My drawings reflected my inner turmoil, featuring disturbing images of the Dark Ones, entities capable of consuming entire souls. In the midst of my struggles, Mr. BrownStickLegs returned, expressing concern about the taste of my soul.  
+  
+A turning point occurred during an overdose, pushing me to the brink of a void that threatened to consume me entirely. In that dark moment, Mr. BrownStickLegs intervened, offering a glimpse into the potential fate of my soul. Begging for help, I found myself restored, my life spared, and a cryptic tear as a parting gift.  
+  
+Recovery became a grueling yet transformative process. Reconnecting with my mom, earning my GED, and embarking on a tattoo apprenticeship marked my path to self-discovery. Four years clean, I no longer feared the darkness that once haunted me. Yet, a lingering question persisted – had my soul healed, or was it still the desolate wasteland Mr. BrownStickLegs had shown me?  
+  
+Last night, the enigmatic figure returned, breaking through the barriers of sleep paralysis to declare that my soul now tasted better. Despite the physical constraints, his presence brought an unexpected sense of comfort, a smile on my face in the midst of the surreal. Our unconventional friendship continued, bridging the gap between the waking world and the mysterious realm that Mr. BrownStickLegs inhabited.  
+  
+In this odyssey of sleep paralysis and surreal companionship, I find solace in the shadows, embracing the enigma of Mr. BrownStickLegs and the profound lessons woven into the fabric of our inexplicable connection. As I navigate the realms of dreams and nightmares, one thing remains certain – there's more to this mysterious friendship than meets the eye, a tale that unfolds in the borderlands between consciousness and the surreal.  
+  
+\[Would you like me to make a long story out of that basic idea, or do you think it has no potential?
