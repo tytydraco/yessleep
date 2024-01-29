@@ -5,6 +5,7 @@ People have a lot of words for what I did like vulture, muckraker, and hack, but
 Ramirez: It is Thursday, the 23rd of April, 1987, at 12:15 PM. I am Dr. James Ramirez of [REDACTED] Mental Health Facility, here with the patient, Lucas Ackerman. Hello, Lucas. 
 
 Ackerman: H-hello, Doctor. 
+
 Ramirez: There’s no need to be nervous, son. I’m only here—
 
 Ackerman: To help? You can’t help me, Doctor. 

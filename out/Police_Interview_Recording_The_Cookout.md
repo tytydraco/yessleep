@@ -72,6 +72,6 @@ I could hear screaming after I opened to lid, but it took me a few seconds to re
 
 I don’t know why he did it. Applegate was an asshole, but no one deserves that.
 
-Have you found him yet? 
+Have you found him yet?
 
-**END TAPE**
+[END TAPE](https://www.reddit.com/r/gtripp14/comments/uyezti/making_it_easier_to_keep_track_of_my_new_releases/)
