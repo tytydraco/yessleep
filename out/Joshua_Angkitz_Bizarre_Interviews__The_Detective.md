@@ -88,7 +88,7 @@ He confided in me, said that he’d always been able to speak to the lingering d
 
 **Interview Setting:** Nikki’s
 
-**Date:** 02/02/2024
+**Date:** 01/23/2024
 
 **Attendees:** Joshua Angkitz (Interviewer) and John Doe \[Fake Name\] (Interviewee)
 
