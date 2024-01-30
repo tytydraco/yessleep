@@ -1,0 +1,22 @@
+[Part 1]
+https://www.reddit.com/r/nosleep/s/9Y2PeH1JPN
+
+[part 2]
+
+It's been 3 days since the creature in the cave saw me and the rangers, I've been hiding in a small hunting cabin with one of the rangers. The other ranger was caught by the creature, I didn't dare to look back as I heard the wails and blood-curtailing shrieks of the park ranger.  The cabin we found is musty, it's quaint and probably abandoned but the ranger and I have made ourselves comfortable. He spent the first day carving sigils into the walls and floors, he tells me it's to protect us from the creature, that the creature can't come close to the cabin while the sigils remain intact. 
+
+I don't know when I can leave, the ranger says we need to wait until its hunting season is over until the creature is in hibernation. He says we made it angry when it saw us in its nest, that the creature wants us dead. He says the creature is smart, smarter than me and it's a better hunter than any human could be. He says we have no choice but to wait, that if we don't, we will surely die. 
+
+At night I hear screams and cries, each night it's been different voices, the ranger says the creature mimics human voices and tries to lure us out. I often can hear the creature stepping as close as he can to the cabin, he’s careful, I don't think he knows we can hear him. The ranger tells me not to worry, that the creature is stalking his prey but he can't get to us, but I'm worried. I worry we run out of food, that the sigils fail, that we leave the cabin early and the creature will get us. “I’ve spent my life researching the things that live in the dark, that nobody knows about,” He tells me. “Trust me when I tell you, we will survive this” He continues. “What is it?” I ask, my voice trembling with fear. I wasn't sure I wanted to know the answer. “It's a wendigo…” he paused. “They’re Native. They don't usually live in these woods, but here we are.” she shrugs. “You’re so calm about this” I respond. He turns to look at me as he pours himself a glass of the whiskey he found. “This stuff just doesn't scare me anymore” He explained.
+
+Were running out of water, and the ranger said he would leave at sunrise and be back by noon.
+It's around 10 AM now, and I think the sigils are failing, the creature returned but he's much closer now. I hear the snarls and the footsteps, I hear his claws dragging across the wood of the cabin. In a panic I grab a shotgun off the wall, I've never shot one before but I hope that if it needs to, adrenaline will take over. I can tell footsteps have grown louder but I can barely hear them over the sound of my heavy breathing. 
+
+It's almost noon now, the creature is leaving, heading back to its cave I guess. I hope the ranger is alright. I don't want to die here.
+
+The ranger is back, he returned with 9-inch gashes across his shoulder blades, he has blood running down his back, and his shirt is torn and dirty.
+“He's close, he found me in the woods, but I hid from him,” he said, gasping for breath. He glanced around quickly, searching for something to sanitize his wound, just then he paused. “The sigils…” he stuttered as he spoke. “What did you do to them?” He questioned me. “Nothing! I didn't touch them!” I shouted in response. He ran frantically, looking for a knife. “Did that thing come back?!” He yelled the question at me. I could hear the panic in his voice. “Yes, it got closer this time,” I told him. “Fuck…” he muttered under his breath. Just then, I heard the footsteps of the creature, it was approaching rapidly. “Stay quiet” the ranger ordered as he loaded a shotgun. 
+
+We sat in silence as we hid from the creature in the bathroom. My heart pounded as I felt the creature scratching at the wood of the cabin, trying desperately to get in. I wasn't a religious man, but I prayed to god, maybe for the first time in my life. My body froze as the creature broke through the door, searching for me and the ranger, tearing the cabin apart as he made his way closer to the bathroom.  The ranger began to shoot the wendigo, in a desperate attempt to try to save our lives.
+
+That's the last thing I remember, I guess I passed out after that. I'm now in a dark, unfamiliar, cold and dirty place. I can't see much, the pitch black surrounds me.
