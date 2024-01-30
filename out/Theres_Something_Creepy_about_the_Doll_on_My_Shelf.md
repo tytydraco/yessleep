@@ -10,7 +10,7 @@ I told Mommy, but she just laughed. “Lily’s just a doll,” she said.
 
 Then, the scariest thing happened. It was night, and the moon was bright. I woke up feeling cold. I looked around and... I wasn’t in my bed. I was on the shelf, where I keep my toys. And in my bed, where I should have been, was Lily. She was under my blanket, her eyes closed like she was sleeping.
 
-I tried to scream, but no sound came out. I couldn’t move. My arms and legs were stiff as wood. I looked down at my hands. They weren’t my hands. They were doll hands. Plastic and shiny.
+I tried to scream, but no sound came out. I couldn’t move. My arms and legs were stiff as wood. I looked down at my hands. They weren’t my hands. They were doll hands. 
 
 I don’t know how long I stayed there. The moon moved across the sky, and the room got darker. Then, light peeked in. Morning.
 
