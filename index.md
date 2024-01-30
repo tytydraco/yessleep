@@ -1,6 +1,6 @@
 ## r/nosleep archive
 
-file count: 23166
+file count: 23167
 
 * [0315  A Ghost Story](out/0315__A_Ghost_Story.md)
 * [072104 Why I will never again visit the sea](out/072104_Why_I_will_never_again_visit_the_sea.md)
@@ -10110,6 +10110,7 @@ file count: 23166
 * [Im an Arctic Researcher We Accidentally Released Something Trapped in the Ice Part 2](out/Im_an_Arctic_Researcher_We_Accidentally_Released_Something_Trapped_in_the_Ice_Part_2.md)
 * [Im an Arctic Researcher We Accidentally Released Something Trapped in the Ice Part 3](out/Im_an_Arctic_Researcher_We_Accidentally_Released_Something_Trapped_in_the_Ice_Part_3.md)
 * [Im an Arctic Researcher We Accidentally Released Something Trapped in the Ice Part 4](out/Im_an_Arctic_Researcher_We_Accidentally_Released_Something_Trapped_in_the_Ice_Part_4.md)
+* [Im an armed security guard and I heard a strange scream in the night](out/Im_an_armed_security_guard_and_I_heard_a_strange_scream_in_the_night.md)
 * [Im an artist who does freelance fetish art commissions My latest client is wealthy but unusual](out/Im_an_artist_who_does_freelance_fetish_art_commissions_My_latest_client_is_wealthy_but_unusual.md)
 * [Im an attending at a hospital During Hurricane Maria I broke my oath to do no harm  though the government would disagree with me](out/Im_an_attending_at_a_hospital_During_Hurricane_Maria_I_broke_my_oath_to_do_no_harm__though_the_government_would_disagree_with_me.md)
 * [Im an avid lucid dreamer and explorer of the dreamscape I think something followed me back to reality](out/Im_an_avid_lucid_dreamer_and_explorer_of_the_dreamscape_I_think_something_followed_me_back_to_reality.md)
@@ -10386,8 +10387,8 @@ file count: 23166
 * [Im possessed by a demon and I wont let it ESCAPE](out/Im_possessed_by_a_demon_and_I_wont_let_it_ESCAPE.md)
 * [Im possibly the last survivor of the blue plague of 1983](out/Im_possibly_the_last_survivor_of_the_blue_plague_of_1983.md)
 * [Im pregnant with the devils child and no one believes me](out/Im_pregnant_with_the_devils_child_and_no_one_believes_me.md)
-* [Im Pregnant](out/Im_Pregnant.md)
 * [Im pregnant](out/Im_pregnant.md)
+* [Im Pregnant](out/Im_Pregnant.md)
 * [Im pretty sure my daughter sees ghosts](out/Im_pretty_sure_my_daughter_sees_ghosts.md)
 * [Im Pretty Sure My Reflection Is An Imposter](out/Im_Pretty_Sure_My_Reflection_Is_An_Imposter.md)
 * [Im probably crazy but I think there is a bit of truth in here somewhere](out/Im_probably_crazy_but_I_think_there_is_a_bit_of_truth_in_here_somewhere.md)
@@ -10827,8 +10828,8 @@ file count: 23166
 * [It had been 10 days](out/It_had_been_10_days.md)
 * [It Happened in the River](out/It_Happened_in_the_River.md)
 * [It happened](out/It_happened.md)
-* [It happens all the time part 1](out/It_happens_all_the_time_part_1.md)
 * [It happens all the time Part 1](out/It_happens_all_the_time_Part_1.md)
+* [It happens all the time part 1](out/It_happens_all_the_time_part_1.md)
 * [It happens all the time](out/It_happens_all_the_time.md)
 * [It has been six weeks since I died and woke up in this strange world](out/It_has_been_six_weeks_since_I_died_and_woke_up_in_this_strange_world.md)
 * [It has no eyes but can see me It has no ears but can hear me It has no nose but can smell me So be afraid](out/It_has_no_eyes_but_can_see_me_It_has_no_ears_but_can_hear_me_It_has_no_nose_but_can_smell_me_So_be_afraid.md)
