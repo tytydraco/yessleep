@@ -1,6 +1,6 @@
 My name is Peter Tully, and my story is not a happy one.
 
-I protect a land that is brimming with horrors beyond your dizziest nightmares. Though it is not a fictional place, the truth of this region is a secret safeguarded by a few burdened souls. It is our duty to shield the world from the twisted terrors within this place. I have seen things that eyes cannot discern, and I have learnt things that minds cannot fathom.
+I protect a land that is brimming with horrors beyond your dizziest nightmares. The truth of this region is a secret safeguarded by a few burdened souls. It is our duty to shield the world from the twisted terrors within this place. I have seen things that eyes cannot discern, and I have learnt things that minds cannot fathom.
 
 After 20 years of this unending hell, I am ready to share my story. It is, by no means, a short tale.
 
