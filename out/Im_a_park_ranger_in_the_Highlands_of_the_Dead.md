@@ -276,7 +276,7 @@ He saw my pale face and smiled pitifully.
 
 “I tried to warn you,” He said.
 
-“How is it… real?” I whispered. 
+“How is it… real?” I whispered.
 
 “What did you see?” He asked quietly.
 
@@ -353,3 +353,5 @@ I strive to free myself of this prison. Though there are things I have learnt ov
 Still, there is more to my story.
 
 This is only the beginning.
+
+[X](https://www.reddit.com/r/dominiceagle)
