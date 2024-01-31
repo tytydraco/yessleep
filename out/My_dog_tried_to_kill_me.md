@@ -115,3 +115,5 @@ I can’t help but wonder about his owner before me. What caused him to dump Spa
 I still hear him at night. I know he’s not there, but I sometimes wake up, and there that growl is.
   
 I think I’m sticking with cats.
+
+[part 2](https://www.reddit.com/r/nosleep/comments/1ab6r0z/the_dog_that_tried_to_kill_me_is_back/?utm_source=share&utm_medium=mweb3x&utm_name=mweb3xcss&utm_term=1&utm_content=share_button)
