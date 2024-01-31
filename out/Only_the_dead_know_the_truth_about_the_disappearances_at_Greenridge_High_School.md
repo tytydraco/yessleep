@@ -1,7 +1,7 @@
-There is something wrong with Greenridge High School. After months of researching and planning, I’m ready to go back and find the truth. I need to know the truth about my missing sister and I need to find out how 13 teenagers were killed without anyone batting an eye.   
+There is something wrong with [Greenridge High School.](https://www.reddit.com/r/nosleep/comments/1afg2f7/only_the_dead_know_the_truth_about_the/?utm_source=share&utm_medium=web2x&context=3) After months of researching and planning, I’m ready to go back and find the truth. I need to know the truth about my missing sister and I need to find out how 13 teenagers were killed without anyone batting an eye.   
   
-\-  
-  
+\-
+
 I wouldn't be surprised if you don’t remember me. When we first met it wasn't my story you were hearing. The last time you heard about me was from Caleb. He was exploring the school because he felt drawn to it. He felt like he needed to be there.   
   
 I was exploring Greenridge for a different reason. I was searching for answers about my missing sister, Hannah. Hannah and my brother were attacked on the same day, but he wasn’t lucky enough to escape. My brother died in the boy’s locker room.   
@@ -114,7 +114,7 @@ Class of 2012’ Orientation at 8:00.
   
 The posters went back to 2011. All over the corkboard, there were references to events happening in 2013. From prom cancellations to school events, and something called the Full Moon Parade: Attendance was mandatory for that one. It was celebrated during the school day.   
   
-I didn’t get any more time to look around before I heard whistling come from behind me.   
+I didn’t get any more time to look around before I heard whistling coming from behind me.   
   
 \-   
   
@@ -239,3 +239,6 @@ I reached inside and pulled out a business card.
 Clearview Clinic  
   
 The headache came back in full force as I read over the card. I knew that I had to go to this clinic, and there was an address written on the back. But I also knew I was going to have to go back to Greenridge, there was unfinished business there.  
+
+
+  
