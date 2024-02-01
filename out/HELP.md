@@ -1,0 +1,15 @@
+I have never experienced anything like this in my life.I'm starting to regret that moving into this house was a big mistake.
+
+I'm Ethnic Polish but recently around 2021 here in Utah upstate in the suburbs there was a house for sale,Me being desperate but still dreaming of the American dream I was tempted to buy it, plus it was cheaper than I expected, I didn't even know who would sell a house so cheap.But now I know why 
+
+In August 2021, after doing my evening routine, I saw how in the window of the bathroom door, which was more deformed, a kind of black figure walking slowly down the hall.I quickly got out and when I realized my heart stopped.No one, absolutely no one, was in the house but me.I went into the bedroom to go to bed, being very tired.Later in November the shadow returned this time it was evening I was watching a series on Netflix and suddenly someone knocked on my door,The strangest part was that my house was at the back of the yard and just in front of it is the exit to the street where there was a gate painted dark purple and usually people have to ring the bell to open them.When I looked out the window to see who it was and what it wanted, it was the same figure as the one in the hallway waiting for me to open the door, so I gritted my teeth and opened it but there was no one.Since then it started to happen more and more often, I started not being able to sleep anymore, only hammering, punching the wall, shadows that keep moving.Honestly this thing just stuck to me and it won't go away.
+
+Only in May of 2022 was I able to have peace, but after those sounds and shadows returned, this time more disturbing I simply ended up not being able to stay in my own house.One of my cousins ​​suggested I call a psychic so that's what I decided.She was 60 years old but very experienced once she came in I felt so good, I knew the nightmare would end.But the medium was pulled by the hair all scratched when she looked at me she looked with a face as if she felt sorry for me.She told me
+
+-I feel so surprised that you live me and you are still mentally normal,Whatever you do you should run away this thing must be a malevolent demon,Sell ​​the house before it's too late 
+
+After that she left simply grieved that she could not help me simply that in her 40 years of experience the medium had never seen such a manifestation.I had always tried to find out how this all came about and I found out
+
+The house belonged to a man who died as a soldier in the civil war and had been abandoned since 1971.Neighbors said that sometime in 1992 a satanic sect summoned a demon And its former owner took it in 1999 and renovated it, but in 2011 he met the monster and 10 years after meeting him, he gave up and sold the house.The first shadow was the spirit of the soldier who had been disturbed by the presence of the demon and I had seen how black the pale white face was and wrinkled bare black eyes like two holes and straight horns like antennae was a nightmare for all.
+
+Please whatever you do send help but not the police they won't believe the atrocities in this house please I desperately need help I feel like he wants me to give in
