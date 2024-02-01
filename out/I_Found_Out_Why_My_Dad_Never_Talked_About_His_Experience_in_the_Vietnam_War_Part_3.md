@@ -24,19 +24,19 @@ Suddenly, Tuyet freezes, her body tensing. I stop abruptly, sensing the shift in
 
 In the silence, a soft, sinister hissing becomes audible. It's rhythmic, almost hypnotic, and seems to resonate from the very walls of the tunnel.
 
-The hissing grows louder, a sinister serenade that prickles the skin. Tuyết, just ahead of me, comes to an abrupt halt. I peer over her shoulder, and my blood runs cold.
+The hissing grows louder, a serenade that prickles the skin. I peer over her shoulder, and my blood runs cold.
 
 Tuyết recoils, backing into me. I peer over her shoulder, and my blood runs cold.
 
-Emerging from the murky shadows of the tunnel, a monstrous sight unfolds before us. A two-headed viper, hideously mutated, its scales glistening with a sickly sheen under the flashlight's beam. Each head, larger than a man's fist, sways menacingly, forked tongues flickering in the stale air. Its eyes, beady and unblinking.
+Emerging from the murky shadows, a monstrous sight unfolds before us. A two-headed viper, hideously mutated, its scales glistening with a sickly sheen under the flashlight's beam. Each head, larger than a man's, sways menacingly, forked tongues flickering in the stale air. Its eyes, beady and unblinking.
 
-We press our backs against the damp tunnel walls, our breaths shallow, trying to make ourselves as small and inconspicuous as possible. The viper's presence, a grotesque aberration of nature, fills the confined space with an air of impending doom.
+We press our backs against the damp tunnel walls, our breaths shallow, trying to make ourselves as small and inconspicuous as possible. The conjoined creature hasn't seen us yet.
 
-I can feel Tuyết's hand gripping mine, her fingers digging into my palm with fear. Every instinct screams at me to flee, but I know movement would be fatal. The viper’s heads sway in a hypnotic dance that spells death.
+I can feel Tuyết's hand gripping mine, her fingernails digging into my palm with fear. Every instinct screams at me to flee, but I know movement would be fatal.
 
 In this tense standoff, a drop of sweat trickles down my forehead, stinging my eye. I blink hard, trying to maintain focus. The sudden, involuntary twitch of my eyelid causes the drop to fall to the ground with an almost imperceptible sound.
 
-But to the viper, it's a clarion call. Both heads snap towards the sound, their unblinking eyes narrowing, their bodies coiling in anticipation.
+But to the viper, it's a clarion call. Both heads snap towards the sound, their eyes narrowing, their bodies coiling in anticipation.
 
 The viper pounces on us, its dual heads striking with terrifying precision, jaws unhinging to reveal rows of dripping fangs. Tuyết and I dive in opposite directions, narrowly avoiding the venomous fangs. The creature's body, thick and sinewy, coils and twists with an unnatural agility.
 
@@ -50,17 +50,19 @@ As the creature lurches at us again, I notice something crucial: the two heads, 
 
 "What do you want to do?" she asks, her voice trembling.
 
-"When I give the signal, make noise on your side. Draw one head towards you."
+"When I give the signal, make noise on your side. Draw it towards you."
 
 She looks at me, her eyes wide with fear and disbelief. "You're insane!"
 
 "Trust me," I say, formulating a risky plan in my mind. "We can turn one against the other."
 
-Tuyết hesitates, uncertain. But one of the heads lunges again, narrowly missing her with its venomous fangs, the urgency of the situation leaves no room for doubt. She nods.
+Tuyết hesitates, uncertain. But one of the heads lunges again, narrowly missing her, the urgency of the situation leaves no room for doubt. She nods.
 
 Tuyết grasps her machete, striking it against the tunnel wall. The sharp, metallic clangs echo through the confined space, drawing the attention of the mutant viper. Its heads, momentarily distracted, swivel towards the source of the noise. Seizing the opportunity, I leap towards the right head, wrapping my arms around its thick, muscular neck. The creature writhes violently, its scales abrasive against my skin.
 
-The right head, in its frantic attempts to dislodge me, thrashes wildly, slamming me against the left.The left head, its attention drawn towards me, strikes with lethal intent, its jaws agape and fangs dripping with venom.
+The right head, in its frantic attempts to dislodge me, thrashes wildly, slamming me against the left.
+
+The left head, its attention drawn towards me, strikes with lethal intent, its jaws agape and fangs dripping with venom.
 
 In the split-second before the left head's fangs can sink into me, I release my grip on the right head and throw myself to the side.
 
@@ -68,7 +70,7 @@ The left head's jaws snap shut with a sickening crunch, but not on me. Instead, 
 
 The two heads, now entwined in a horrific embrace, seem to realize their mistake. But it's too late. The left head tries to disengage, pulling back with a desperate force, but the fang is lodged deeply, effectively pinning them together. The snake’s body convulses, its movements becoming a chaotic dance of self-destruction.
 
-We stand there frozen in terror. Then, survival instinct kicks in. "Move!" I shout, grabbing Tuyết's hand. We scramble away from the writhing mass, our footsteps pounding against the tunnel floor.
+We stand there frozen in terror. Then, survival instinct kicks in. "Move!" I shout, grabbing Tuyết's hand. We scramble away from the undulating mass, our footsteps pounding against the tunnel floor.
 
 —
 
@@ -80,13 +82,13 @@ We barely have a moment to catch our breath before the ground beneath us starts 
 
 The sound is unmistakable – the heavy, rhythmic thumping of a Huey helicopter rotor, hovering directly overhead. Its presence is oppressive, like a dark cloud casting a shadow over us. The hut’s wooden structure vibrates with the force of the rotor wash, dust and small debris falling from the rafters. The sacks of rice shift slightly, the tools clinking against each other in a discordant symphony.
 
-Tuyết moves to the small window, peering out with a cautious eye. Her face drains of color at what she sees.
+Tuyết moves to the small window, peering out with wary eyes. Her face drains of color at what she sees.
 
 Peeking cautiously beside Tuyết, the harrowing scene unfolding outside the hut sears into my memory, a tableau of terror and brutality.
 
 The helicopter, a menacing behemoth, looms over the village like a predatory bird. Below, figures move with ruthless efficiency – soldiers, but unlike any I've seen before. They wear the familiar fatigues of American troops, yet their uniforms are devoid of any badges or insignias, rendering them ghosts of war, untraceable and ominous.
 
-The soldiers herd the villagers into the center of the hamlet with a cold, methodical precision. Their movements are swift, their faces masks of indifference. The villagers, faces etched with fear and confusion, stumble and fall as they're pushed and prodded like cattle.
+The soldiers herd the villagers into the center of the hamlet with a cold, methodical precision. The villagers, faces etched with fear and confusion, stumble and fall as they're pushed and prodded like cattle.
 
 The cries of children, the wails of mothers, the pleas of elders, all merge as they huddle together in fear. The soldiers tower over them, shouting orders in broken Vietnamese, their words laced with curses and impatience. Their faces are hidden behind masks and helmets, dehumanizing their presence even further.
 
@@ -94,15 +96,15 @@ One woman, clutching a wailing infant to her chest, stumbles in her haste. A sol
 
 An elderly man, his back bent with age, falls to his knees, his breath ragged with exhaustion. A boot to his back sends him sprawling to the ground, his frail body crumpling under the assault. No mercy is shown, no compassion given.
 
-One particular figure strides confidently through the chaos. He stands taller than the other soldiers, an air of authority emanating from him. This man, clad in the same unmarked fatigues, wears mirror sunglasses that reflect the terror around him. His presence commands attention, and the villagers' eyes follow him.
+One particular figure strides confidently through the chaos. He stands taller than the other soldiers, an air of authority emanating from him. This man, clad in the same unmarked fatigues, wears mirror sunglasses that reflect the terror around him.
 
 His men step aside, parting a path for him as he approaches the center of the commotion. They address him with a tone of respect tinged with fear. "Major Wolff," one of the soldiers reports.
 
 Wolff stops and surveys the scene with a calculated gaze, his hands clasped behind his back. He turns to the soldier who had spoken. "Report," he commands, his voice firm and devoid of emotion.
 
-The soldier salutes crisply before speaking. "Sir, the villagers claim they don’t know anything about Project Wandering Soul. We've searched the houses, interrogated several of them. Nothing."
+"Sir, the villagers claim they don’t know anything about Project Wandering Soul. We've searched the houses, interrogated several of them. Nothing."
 
-Wolff responds with a cold, humorless chuckle. "Bullshit they don’t," he says, his voice tinged with scorn. He pulls down his mask, revealing a face that's as battle-scarred as it is cold.
+Wolff responds with an icy, humorless chuckle. "Bullshit they don’t," he says, his voice tinged with scorn. He pulls down his mask, revealing a face that's as battle-scarred as it is cold.
 
 Wolff's movements are swift and predatory as he navigates through the crowd of villagers. His eyes scan the gathered people, searching for a target to make an example of.
 
@@ -144,7 +146,7 @@ Wolff tosses Mai roughly to the ground beside her mother, who immediately envelo
 
 Wolff stands up, surveying the village with a cold detachment. "Burn it all," he orders, his voice devoid of emotion. "Leave no witnesses."
 
-The soldiers hesitate, exchanging uneasy glances. The order seems to weigh heavily on some of the soldiers, a flicker of humanity in their eyes.
+The soldiers hesitate, exchanging uneasy glances. The order seems to weigh heavily on some of them, a flicker of humanity in their eyes.
 
 But the Major's authority is absolute. His men, trained to follow orders without question, begin the grim task. They move through the village, setting fire to the huts with flamethrowers. The thatch roofs catch quickly, flames licking upwards, consuming the structures in a voracious blaze.
 
