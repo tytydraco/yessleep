@@ -2,9 +2,9 @@
 
 [Part 2](https://www.reddit.com/r/nosleep/comments/19ek0yy/i_found_out_why_my_dad_never_talked_about_his/)
 
-As the Hueys begin to ascend, leaving behind a scene of merciless carnage, Tuyết's gaze fixes on one helicopter veering off in a different direction. A look of sheer terror washes over her face, a kind of fear that chills me to the bone.
+As the Hueys begin to ascend, leaving behind a scene of merciless carnage, Tuyết's gaze fixes on one helicopter veering off in a different direction. A look of sheer terror washes over her face.
 
-"It's heading towards my village," she whispers, her voice laced with panic and disbelief.
+"It's heading towards my village," she whispers, her voice laced with panic.
 
 My blood runs cold at the implications. After witnessing the ruthless execution of my platoon, the prospect of that helicopter reaching her village is horrifying. The rules of war seem to have been abandoned.
 
@@ -16,7 +16,9 @@ As we move, Tuyết explains in hushed, anxious tones about a hidden tunnel entr
 
 "Be careful," she warns. "The section is unstable, and there could be traps that haven't been disarmed."
 
-I nod, my senses heightened to the potential dangers lurking in the shadows.As we progress, the tunnel begins to narrow, the walls closing in until we're forced to move in a single file.
+I nod, my senses heightened to the potential dangers lurking in the shadows.
+
+As we progress, the tunnel begins to narrow, the walls closing in until we're forced to move in a single file.
 
 Suddenly, Tuyet freezes, her body tensing. I stop abruptly, sensing the shift in her demeanor. She signals for silence, her hand raised in a warning gesture.
 
