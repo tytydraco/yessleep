@@ -10,7 +10,7 @@ My blood runs cold at the implications. After witnessing the ruthless execution 
 
 Tuyết’s hands clench into fists, her knuckles whitening under the strain. For a fleeting moment, her hardened façade cracks, revealing a vulnerability that I hadn't seen before. “My family,” she breathes, her voice barely audible. “I have to get to them.”
 
-With a sense of urgency that words can't describe, she leads the way through the tunnel. I follow close behind, my mind racing with the implications of what's unfolding above us.
+With a sense of urgency that words can't describe, she leads the way through the [tunnel](https://www.reddit.com/r/shortscarystories/comments/1ag9btr/a_world_unveiled/). I follow close behind, my mind racing with the implications of what's unfolding above us.
 
 As we move, Tuyết explains in hushed, anxious tones about a hidden tunnel entrance in her village, used as an emergency escape route during bombings. "It's well concealed," she says. "We've used it to evacuate civilians during air raids."
 
@@ -88,7 +88,7 @@ The soldiers herd the villagers into the center of the hamlet with a cold, metho
 
 The cries of children, the wails of mothers, the pleas of elders, all merge as they huddle together in fear. The soldiers tower over them, shouting orders in broken Vietnamese, their words laced with curses and impatience. Their faces are hidden behind masks and helmets, dehumanizing their presence even further.
 
-One woman, clutching a wailing infant to her chest, stumbles in her haste. A soldier, without missing a beat, grabs her roughly by the arm, drags her along. The baby's cries pierce the air.
+One woman, clutching a wailing infant to her chest, stumbles in her haste. A soldier, without missing a beat, grabs her roughly by the arm, dragging her along. The baby's cries pierce the air.
 
 An elderly man, his back bent with age, falls to his knees, his breath ragged with exhaustion. A boot to his back sends him sprawling to the ground, his frail body crumpling under the assault. No mercy is shown, no compassion given.
 
