@@ -188,6 +188,8 @@ I watch, powerless, as one by one, they fall. The Hueys don’t discriminate. Th
 
 Their guns do not cease until the last man lies still, his pleas for mercy drowned out by the roar of gunfire.
 
+[Part 3](https://www.reddit.com/r/nosleep/comments/1ag5yis/i_found_out_why_my_dad_never_talked_about_his/)
+
 [X](https://www.reddit.com/r/PageTurner627Horror)
 
 [Y](https://www.youtube.com/watch?v=MGd1F6Ay8ho)
