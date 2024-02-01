@@ -28,7 +28,7 @@ I was in shock. A part of me was sad, and blamed myself for not making sure she 
 
 However... I’d be lying if I said there also wasn’t a part of me that felt... relief. I know that sounds awful, but knowing my abuser no longer existed in this world carried some kind of twisted comfort on it’s own. Now, I knew that she couldn’t hurt me anymore, no matter what. At least... That’s what I thought.
 
-Another year passed, and my beautiful baby boy was born. My fian and I have been learning the ropes of parenthood. I had largely moved on from the trauma of my previous relationship, made peace with what had happened to my ex, and forgiven myself for not being able to help her. Everything was finally going my way.
+Another year passed, and my beautiful baby boy was born. My fiancée and I have been learning the ropes of parenthood. I had largely moved on from the trauma of my previous relationship, made peace with what had happened to my ex, and forgiven myself for not being able to help her. Everything was finally going my way.
 
 Until last night... My fiancée and I were asleep in our room. This was one of the rare occasions when our newborn was also fast asleep in his crib, and not crying the entire night. I had been working long hours while my fiancée stayed home on maternity leave. On top of that, we’re currently spending most of our free time scanning the housing market for a new place. Needless to say, we were getting some much needed rest.
 
@@ -40,7 +40,7 @@ I stepped into a puddle as I made my way down the hall. I noticed a trail of wat
 
 “That’s impossible.” I whispered to myself.
 
-As soon as i got to the living room, I stopped dead in my tracks... A woman with long wet, jet black hair was sitting on the couch facing away from me. She was crying and scratching at her scalp. At that moment, I knew who it was, but I didn’t want to believe it. I was frozen with fear.
+As soon as I got to the living room, I stopped dead in my tracks... A woman with long wet, jet black hair was sitting on the couch facing away from me. She was crying and scratching at her scalp. At that moment, I knew who it was, but I didn’t want to believe it. I was frozen with fear.
 
 Suddenly, she stopped crying and slowly turned her head around. Darkness concealed much of her face, but I saw her eyes very clearly. They were filled with anger and hatred. As she turned her neck, I could hear the cracking of her bones.
 
