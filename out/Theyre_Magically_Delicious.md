@@ -28,11 +28,11 @@ I felt more than a little unnerved at the idea that this was supposed to be a ch
 
 After I finished, I headed out of the kitchen and up stairs, I paused and looked towards the box of cereal, “Thanks for a trip down memory lane and a nice treat, but I’m afraid your “magic” can’t fix all of my problems”, before I continued up the stairs towards my bedroom. 
 
-I was only halfway up the stairs when I thought I heard something the lines of “let’s test your luck” and a dull red glow casting shadows from the kitchen. I was either extremely tired or I was losing it so I admittedly jetted up the stairs a bit creeped out! 
+I was only halfway up the stairs when I thought I heard something along the lines of “let’s test your luck” and a dull red glow casting shadows from the kitchen. I was either extremely tired or I was losing it so I admittedly jetted up the stairs a bit creeped out! 
 
 Usually I would stay awake until I heard my family arrive home downstairs on nights like this and then I’d go to sleep. They might hate the sight of me but I still felt the innate sense to ensure they were safe. 
 
-That night though, I fell almost immediately into one of the deepest sleeps I’d ever experienced and dreamt all night about things I’d  long given up on. In my dream I was in college out East somewhere, the top of my class, and a top engineering job already waiting for me when I graduated. I also had a supermodel girlfriend who was pursuing a degree in fashion and we were planning a weekend away together on the coast when a red glow overcame my dreams and an almost primal- sounding scream jolted me out of my sleep. 
+That night though, I fell almost immediately into one of the deepest sleeps I’d ever experienced and dream’t all night about things I’d  long given up on. In my dream I was in college out East somewhere, the top of my class, and a top engineering job already waiting for me when I graduated. I also had a supermodel girlfriend who was pursuing a degree in fashion and we were planning a weekend away together on the coast when a red glow overcame my dreams and an almost primal-sounding scream jolted me out of my sleep. 
 
 I reached over instinctually to check on my wife.
 She wasn’t there which gave me a slight pause, but she was known to sleep in the spare bedroom when she felt especially annoyed by my presence. 
@@ -43,9 +43,9 @@ I darted down the stairs as fast as I could, and, as I did my nostrils were assa
 
 I saw a red glow come and go in waves in my descent and then swore I heard the sound of the most disgusting type of slurping noise, much like when a 4 year old eats spaghetti. 
 
-I ran straight around the corner towards the kitchen but I slipped immediately on the tile slammed the back of my head upon landing. When I tried to get up I kept slipping and loosing my grip from something wet and slimy on the floor. I finally crawled to the light switch by the refrigerator and when I turned it on, I yelled aloud when I realized that I was covered in blood! It wasn’t just a little bit of blood either. It was literally everywhere in the kitchen; on the table, handprints on the cabinets and fridge, and pools of it leading to the living room and onto the carpet. 
+I ran straight around the corner towards the kitchen but I slipped immediately on the tile and slammed the back of my head upon landing. When I tried to get up I kept slipping and loosing my grip from something wet and slimy on the floor. I finally crawled to the light switch by the refrigerator and when I turned it on, I yelled aloud when I realized that I was covered in blood! It wasn’t just a little bit of blood either. It was literally everywhere in the kitchen; on the table, handprints on the cabinets and fridge, and pools of it leading to the living room and onto the carpet. 
 
-And it wasn’t just blood either. The viscera reminded my of the summer I spent working at the local poultry processor as a teenager l. There were pieces of… well, something once living everywhere I looked in that kitchen along with shreds of clothing that I recognized as belonging to my wife. 
+And it wasn’t just blood either. The viscera reminded my of the summer I spent working at the local poultry processor as a teenager. There were pieces of… well, something once living everywhere I looked in that kitchen along with shreds of clothing that I recognized as belonging to my wife. 
 
 I started screaming for my family but received no response. In a panic I rushed all over the house but saw no evidence of any of them anywhere. That is except for the blood and carnage that the entire house was covered in. I didn’t want to believe what I knew the source of all of this once was. 
 
@@ -55,7 +55,7 @@ But, right as I started to dial I saw that red glow again. This time I realized 
 
 “They’re magically delicious”.. 
 
-It was then that I realized that the grin on its face has dropped into an even deeper arc and the figurine was absolutely coated in deep red blood. 
+It was then that I realized that the grin on its face had dropped into an even deeper arc and the figurine was absolutely coated in deep red blood. 
 
 To my astonishment I realized now that I was actually seeing its plastic mouth break free of its natural boundaries and it’s lips began to move as it repeated itself:
 
