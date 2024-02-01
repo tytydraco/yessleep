@@ -8,7 +8,7 @@ During her career, we’d developed a tradition, I’d meet her at the museum fo
 
 But a month ago, something changed.
 
-I first noticed it in eyes as we were eating dinner. She stared off into the distance, an unreadable expression on her face. She looked more exhausted than I’d seen her in a long time.
+I first noticed it in her eyes as we were eating dinner. She stared off into the distance, an unreadable expression on her face. She looked more exhausted than I’d seen her in a long time.
 
 “So… what are you working on?” I tried to break the silence – usually she volunteered the information freely and with excitement, but she had been quiet on this piece, almost avoidant.
 
@@ -26,7 +26,7 @@ But not long after, she began to change.
 
 Her already grueling hours transitioned into her practically living at the museum. When I went to meet her there for lunch, she’d ignore me, sequester herself in the lab instead until I gave up and went back to work.
 
-Days would pass without me seeing her, but in the instances I did, I could tell something was eating away at her. She looked exhausted, her once beautiful hazel eyes had been the color of honey with flecks of greens, blues, and browns – they were the first thing I’d noticed about her when I met her – ++had begun to look duller, and bloodshot, almost as if they were receding into her head. They were ringed with dark circles, and I could’ve sworn she was even losing hair over it.
+Days would pass without me seeing her, but in the instances I did, I could tell something was eating away at her. She looked exhausted, her once beautiful hazel eyes had been the color of honey with flecks of greens, blues, and browns – they were the first thing I’d noticed about her when I met her – had begun to look duller, and bloodshot, almost as if they were receding into her head. They were ringed with dark circles, and I could’ve sworn she was even losing hair over it.
 
 Over the next week I must have asked her how she was doing a thousand times, because she seemed to always have panic written on her face, but she never answered.
 

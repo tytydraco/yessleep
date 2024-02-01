@@ -140,7 +140,7 @@ Panic erupts among the villagers. Cries of horror and grief mingle with the wail
 
 Wolff tosses Mai roughly to the ground beside her mother, who immediately envelops her in a protective embrace. The girl's sobs are muffled against her mother's chest, her small body shaking with fear.
 
-Wolff stands up, surveying the village with a cold detachment. "Burn it," he orders, his voice devoid of emotion. "Everything."
+Wolff stands up, surveying the village with a cold detachment. "Burn it all," he orders, his voice devoid of emotion. "Leave no witnesses."
 
 The soldiers hesitate, exchanging uneasy glances. The order seems to weigh heavily on some of the soldiers, a flicker of humanity in their eyes.
 
