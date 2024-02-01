@@ -150,7 +150,7 @@ The soldiers hesitate, exchanging uneasy glances. The order seems to weigh heavi
 
 But the Major's authority is absolute. His men, trained to follow orders without question, begin the grim task. They move through the village, setting fire to the huts with flamethrowers. The thatch roofs catch quickly, flames licking upwards, consuming the structures in a voracious blaze.
 
-The men are forced to one side of the square, their hands bound behind their backs. The unspoken fate that awaits them is written in the soldiers' cold, calculating eyes. A fate of bullets and unmarked graves.
+The men of the village are forced to one side of the square, their hands bound behind their backs. The unspoken fate that awaits them is written in the soldiers' cold, calculating eyes. A fate of bullets and unmarked graves.
 
 The women, clutching their children, are herded into a group. The leering glances of their captors as they encircle the women speak volumes of the unspeakable horrors that will soon befall them.
 
@@ -164,7 +164,7 @@ She struggles against my hold, her eyes wild with desperation. "My family, I can
 
 Our heated whispers are suddenly cut short by a chilling, guttural moan from under a pile of rice sacks in the corner of the hut. Our heads snap towards the sound, our bodies instinctively tensing for a new threat.
 
-We approach the corner cautiously, my flashlight’s beam cutting through the dimness of the hut. A hand protrudes from under the sacks. It’s a ghastly sight – skin charred and blistered, fingers twisted unnaturally. Another moan, low and guttural, fills the air, laden with pain and suffering.
+We approach the corner cautiously, my flashlight’s beam cutting through the dimness of the hut. A hand protrudes from under the sacks. It’s a ghastly sight – skin charred and blistered, fingers twisted unnaturally. Another moan fills the air, laden with pain and suffering.
 
 We gingerly pull away the sacks to reveal a woman, or at least what's left of her. Her body is a horrific patchwork of burns and blistering skin, her features barely recognizable.
 

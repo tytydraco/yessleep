@@ -1,4 +1,4 @@
-I'm not a story teller. I'm hardly qualified to even recount the most basic of tales. Still, there are some stories that need to be told, and sometimes, the people who should tell them aren't around to do so. That leaves people like me... People who aren't story tellers. so instead of telling you a tale, let me share with you my memories instead, as scattered as they may be...
+It wasn't long ago, and yet, the memories feel almost like a terrible, blurry dream when I think about the House. It's mildewed carpets and rotting walls, endlessly ensnaring us for years and years. When I lay in bed sometimes, I fear that when I open my eyes, I'll find myself back there, trapped as I once was. I suppose even though one can free themselves from a jail, the mind still likes to make prisons of its own, holding you captive in those memories that haunt you. Sometimes, though, as grim as those thoughts may be, sharing them makes the load a little lighter, and perhaps you all would be willing to listen to mine...
 
 I uncapped the red pen and added another "X" to our calendar. A small one, as not to take up more space than needed. After all, the box already had three others inside just like it. Who knew how many more we would have to add? I put the cap back on the cheap ballpoint, clipped it to the top of the page, and then stared at the sheet for a while. I traced through the previous days with my eyes; each red mark I saw made my heart sink more and more. It hit rock bottom when I reached the end of the X's and saw tomorrow's date. ‘Happy birthday, Andi!’ the box read in small letters. My throat tightened, and I closed my eyes.
 
@@ -374,6 +374,4 @@ It hadn't seemed important at the time, but after we realized that we might be a
 
 ‘Your sacrifice spared us all.’
 
-&#x200B;
-
-*More to come...*
+I like to hope that wherever Hillary is now, God rest her soul, she knows that she really did help us in the end...
