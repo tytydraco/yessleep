@@ -154,10 +154,12 @@ Well now y’all know how I figured it out, don’t worry obviously Beezle is ok
 
 Oh and Catherine well that’s a story for next time see y’all soon -Beck
 
-all previous parts:
+all previous and next parts:
 
 https://www.reddit.com/r/spookyStories71/s/H1v6jHm7pc
 
 [https://www.reddit.com/r/scarystories/s/1crhLxYy69](https://www.reddit.com/r/scarystories/s/1crhLxYy69)
 
 https://www.reddit.com/r/nosleep/s/AbQjvWhGMz
+
+https://www.reddit.com/u/BlackPepper445/s/zmSTRpApXo

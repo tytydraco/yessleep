@@ -373,3 +373,5 @@ As I got in my car, something clicked into place, and it bothered me. John’s m
 **Joshua A:** When we meet, bet your ass that I’m going to make you answer every question I have.
 
 \---------
+
+[[Next](https://www.reddit.com/r/nosleep/s/EgT1TplF77)]
