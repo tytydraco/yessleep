@@ -48,7 +48,7 @@ Then, she jumped up onto the couch as she simultaneously turned around completel
 
 “What.. What are... How...” I struggled to get words out as I began to hyperventilate. I thought I was surely dreaming, or maybe I had gone mad. We stood there for a while, just staring at each other. I don’t know for how long.
 
-Suddenly, she let out an awful, bloodcurdling scream and lunged at me on all fours. I quickly turned around and bolted back toward the bedroom. The only thought on my mind was to prevent her from getting to my son and fiancée. As I ran down the hall, I looked back, and saw her crawling on the ceiling like a spider at lighting speed. Her hair was covering her face as her head violently thrashed from side to side.
+Suddenly, she let out an awful, bloodcurdling scream and lunged at me on all fours. I quickly turned around and bolted back toward the bedroom. The only thought on my mind was to prevent her from getting to my son and fiancée. As I ran down the hall, I looked back, and saw her crawling on the ceiling like a spider at lightning speed. Her hair was covering her face as her head violently thrashed from side to side.
 
 I got to to the bedroom door and stood in front of it, ready to prevent her from getting in. But, when I turned around, she was gone. My fiancée unlocked the door and swung it open.
 

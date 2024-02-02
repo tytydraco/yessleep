@@ -2,7 +2,7 @@ My parents divorced when I was 6 years old. Fortunately, it wasn’t a messy bre
 
 Even though it went as good as any divorce could go, it still took a toll on me as a kid since I was always moving around from house to house like a relay race baton. That kind of thing is never easy on any child of that age.
 
-On a cold winter January afternoon, it was my dad’s turn on the custody carousel. He decided to take me to one of those indoor playgrounds since it was too cold to do anything outside. I had just turned 8 years old at the time. I never liked going to those places since I was a very shy kid with a bad stutter, which mean I had trouble making friends. Being around other kids my age would bring out my social anxiety. My dad knew this and would regularly take me to places with a lot of kids my age in an attempt to bring me out of my shell.
+On a cold winter January afternoon, it was my dad’s turn on the custody carousel. He decided to take me to one of those indoor playgrounds since it was too cold to do anything outside. I had just turned 8 years old at the time. I never liked going to those places since I was a very shy kid with a bad stutter, which meant I had trouble making friends. Being around other kids my age would bring out my social anxiety. My dad knew this and would regularly take me to places with a lot of kids my age in an attempt to bring me out of my shell.
 
 We arrived at the indoor playground. It wasn’t too busy at all. There were probably about 6 other kids there at the time of our arrival. We checked in with the front desk and entered the play area. My dad sat down with the rest of the parents and pulled out a book.
 
