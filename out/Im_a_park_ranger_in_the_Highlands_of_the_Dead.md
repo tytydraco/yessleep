@@ -1,3 +1,5 @@
+**Part I** – [Part II](https://www.reddit.com/r/nosleep/comments/1ahaep3/im_a_park_ranger_in_the_highlands_of_the_dead/)
+
 My name is Peter Tully, and my story is not a happy one.
 
 I protect a land that is brimming with horrors beyond your dizziest nightmares. The truth of this region is a secret safeguarded by a few burdened souls. It is our duty to shield the world from the twisted terrors within this place. I have seen things that eyes cannot discern, and I have learnt things that minds cannot fathom.
@@ -353,5 +355,7 @@ I strive to free myself of this prison. Though there are things I have learnt ov
 Still, there is more to my story.
 
 This is only the beginning.
+
+[Part II](https://www.reddit.com/r/nosleep/comments/1ahaep3/comment/komdv38/?context=3)
 
 [X](https://www.reddit.com/r/dominiceagle)

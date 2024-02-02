@@ -29,6 +29,8 @@ The first one started out as seeing myself
 
 Then I woke up in a state of utter hysteria to the usual face of my routine nurse telling me to “take a chill pill” and go back to sleep. I had been out of it for 4 days I was told. 
 
+What’s even more curious is that the doctors soon discovered that, despite basic precipices of medicine and science, my body simply need blood and this meant any blood. The Type no longer matter as any transfusion kept me alive and created sustainable results. 
+
 The next episode also resulted in a much longer dream. This one started out similarly as I was actually flying through the night sky. I could see the clouds below me and the distant lights of air traffic and cell towers. I felt as though i could stay up there forever, but then I sensed a dark looking figure descending down upon me and found myself being gripped by some sort of claw and jetting straight down through the skies and towards an ocean. “You’re mine now” was all I heard right into my ear in a deep and ominous voice before my impending collision with the water. 
 
 When I awoke this time, I’d been out for 11 days. 

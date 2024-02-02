@@ -12,7 +12,7 @@ I opened my eyes to see a woman a few years older than me looking down from righ
 
 “She’s four,” I said. “Big for her age.” I felt myself relaxing a bit, slowly realizing she was just trying to make a connection, not there to question my parenting.
 
-“Is that your friend, mom?” asked Lia, and I smiled.
+“Who are you talking to?” asked Lia, and I smiled.
 
 “Just a nice lady,” I said.
 
@@ -46,7 +46,7 @@ The fish in the bucket were still alive, barely, flopping a bit helplessly. I ha
 
 “Beautiful day,” I said.
 
-“Got to be careful of beautiful days,” he said. “A few years back, on a day just like this one, a lady about your age was here with her daughter. Looked away for just a second and a sleeper wave took the little one away, just like that. Beautiful day.” He spat into the waves.
+“Got to be careful of beautiful days,” he said. “A few years back, on a day just like this one, a lady about your age was here with her daughter. Looked away for just a second and a sleeper wave took the little one away, just like that. Beautiful day.” He spat into the waves. "Worst thing is, it's happened again and again since then. I guess people never learn."
 
 I looked over toward Lia. I couldn’t see her now. The woman who I’d left her with was standing, hand shielding her eyes from the sub, looking out over the waves. I felt something drop in my stomach, a little stone of fear. In the meantime, the man kept talking.
 
