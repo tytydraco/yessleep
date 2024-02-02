@@ -24,7 +24,7 @@ Suddenly, Tuyet freezes, her body tensing. I stop abruptly, sensing the shift in
 
 In the silence, a soft, sinister hissing becomes audible. It's rhythmic, almost hypnotic, and seems to resonate from the very walls of the tunnel.
 
-The hissing grows louder, a serenade that prickles the skin. I peer over her shoulder, and my blood runs cold.
+The hissing grows louder, a serenade that prickles the skin. 
 
 Tuyết recoils, backing into me. I peer over her shoulder, and my blood runs cold.
 
