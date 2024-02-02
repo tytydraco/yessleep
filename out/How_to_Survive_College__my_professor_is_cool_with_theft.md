@@ -200,6 +200,8 @@ And that his office is always open for me.
 
 Time to show up with a list of questions and it’s not just going to be about the mechanisms of crustal growth. [\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
 
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/1agurnk/how_to_survive_college_the_swimmers_arent_a/)
+
 [Read the current draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/18x7wnt/how_to_survive_college_v/)
 
 [Visit the college's website.](https://alderrayne.com/)
