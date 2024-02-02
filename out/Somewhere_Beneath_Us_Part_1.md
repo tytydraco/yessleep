@@ -375,3 +375,5 @@ It hadn't seemed important at the time, but after we realized that we might be a
 ‘Your sacrifice spared us all.’
 
 I like to hope that wherever Hillary is now, God rest her soul, she knows that she really did help us in the end...
+
+[[Part 2]](https://www.reddit.com/r/nosleep/s/rDG22ArlNF)
