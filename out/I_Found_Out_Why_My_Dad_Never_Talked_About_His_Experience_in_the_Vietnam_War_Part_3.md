@@ -24,7 +24,7 @@ Suddenly, Tuyet freezes, her body tensing. I stop abruptly, sensing the shift in
 
 In the silence, a soft, sinister hissing becomes audible. It's rhythmic, almost hypnotic, and seems to resonate from the very walls of the tunnel.
 
-The hissing grows louder, a serenade that prickles the skin. 
+The hissing grows louder, a serenade that prickles the skin.
 
 Tuyết recoils, backing into me. I peer over her shoulder, and my blood runs cold.
 
@@ -100,7 +100,7 @@ One particular figure strides confidently through the chaos. He stands taller th
 
 His men step aside, parting a path for him as he approaches the center of the commotion. They address him with a tone of respect tinged with fear. "Major Wolff," one of the soldiers reports.
 
-Wolff stops and surveys the scene with a calculated gaze, his hands clasped behind his back. He turns to the soldier who had spoken. "Report," he commands, his voice firm and devoid of emotion.
+Wolff stops and surveys the scene with a calculated gaze, his hands clasped behind his back. He turns to the soldier who had spoken. "Report, sergeant," he commands, his voice firm and devoid of emotion.
 
 "Sir, the villagers claim they don’t know anything about Project Wandering Soul. We've searched the houses, interrogated several of them. Nothing."
 
