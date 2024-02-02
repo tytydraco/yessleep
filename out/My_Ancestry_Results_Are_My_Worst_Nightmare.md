@@ -18,11 +18,11 @@ After several tests for leukemia and iron deficiencies, or simply any disease re
 
 After 4 months of several more attempts with supplements and immune boosters, I was eventually sent home from school and given the option to complete my degree through online classes. I had passed out so many times and awoken to blood transfusions that the college staff deemed in-person classes for me to be a hazard to myself and others around campus. 
 
-My parents wanted me to move back in with them, but I pleaded for their assistance with getting an apartment for myself. I needed to feel like a progression forward in life was still possible. They agreed to this if I agreed to were one of those heart monitoring bracelets. 
+My parents wanted me to move back in with them, but I pleaded for their assistance with getting an apartment for myself. I needed to feel like a progression forward in life was still possible. They agreed to this if I agreed to wear one of those heart monitoring bracelets. 
 
-Once settled into my new place, I continued in my studies, but I had another mission in mind: if the doctors couldn’t find any answers then my problem had to be genetic so I signed up with every genealogy service in existence and sent my samples. 
+Once settled into my new place, I continued in my studies, but I had another mission in mind: if the doctors couldn’t find any answers then my problem had to be genetic so I signed up with every genealogy service in existence and sent in my samples. 
 
-In the meantime my condition got worse: Twice my parents had rushed me to the ER for more transfusions, but my time ls for recovery were getting longer and longer. And then the dreams started. 
+In the meantime my condition got worse: Twice my parents had rushed me to the ER for more transfusions, but my recovery times were getting longer and longer. And then the dreams started. 
 
 The first one started out as seeing myself
 10 years from now with a wife, a house down the street from my parents and a couple of kids. The next thing I knew, the entire neighborhood was engulfed in flames and darkness and my bride was screaming and pleading with me to stop as I looked down and realized I was completely soaked in blood. 
@@ -39,7 +39,7 @@ My parents and I wept together on afternoon because we all knew where this was h
 
 When it became evident that my hospital bed would now be my eventual coffin, my parents brought me my laptop and usual paraphernalia from home. I insisted on continuing my studies because, at this point it’s all I had. 
 
-After all, if I wasn’t studying, I was sleeping and that only meant that I would experience countless renditions of the “presence” in my nightmares haunting and preying on me in countless dream state scenarios that would leave me in a puddle of sweat and terror. 
+After all, if I wasn’t studying, I was sleeping and that only meant that I would experience countless renditions of the “presence” in my nightmares haunting and preying on me in various dream state scenarios that would leave me in a puddle of sweat and terror. 
 
 I was in the middle of checking emails when I noticed a new email in my unread. It read as follows:
 
@@ -53,7 +53,7 @@ You see, I had a son, the only son I’ve ever known in my long life, but he was
 
 Given your very unique blood markers, I feel it safe to say that you are that son that I’ve longed for. 
 
-I must also assume that you might be death’s doorsteps given our unique family characteristics. 
+I must also assume that you might be at death’s doorsteps given our unique family characteristics. 
 
 Just know that I will be with you soon and not only will I be able to help you recover from your current state, but eventually you’ll come to find your true potential and conquer this world in your own way
 
