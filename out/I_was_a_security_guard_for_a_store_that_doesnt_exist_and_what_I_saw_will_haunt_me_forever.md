@@ -264,7 +264,7 @@ I leaned forward to get a look at the one on the left wearing a dark sleeveless 
 
 I felt a rising sense of fear as I looked at the lifelike thing and  I reached out and touched the hand and my blood ran cold.
 
-I felt the hand and it felt warm, I could feel small small hairs as well on the surface of the skin and my mind couldn't handle what happened next. I looked further up the arm and turned it over to see on the forearm a small tattoo of what I recognized as a hazel branch. I remember trying to scream but only a strangled gasp escaped my mouth.
+I felt the hand and it felt warm, I could feel small hairs as well on the surface of the skin and my mind couldn't handle what happened next. I looked further up the arm and turned it over to see on the forearm a small tattoo of what I recognized as a hazel branch. I remember trying to scream but only a strangled gasp escaped my mouth.
 
 I looked to the female mannequin to the right and saw on its left arm the same tattoo. My mind couldn't reconcile the horrifying truth of the situation and then, whether it was the breathing in of the foul odor or the disgusting coring out of what I knew to be human bodies turned into these display cases of perversion, I vomited on the floor and nearly toppled over.
 
