@@ -90,7 +90,7 @@ Clear as day, the voice of a person was calling to us from outside our house.
 
 "Hello? Anyone in there?" It asked, its tone far too nonchalant for someone weathering the full brunt of a blizzard. "I need some help out here."
 
-Next to me, Luke shifted as though he were about to stand up. I reached out and grabbed a hold of his arm, pulling him back down to the floor. There wasn't a chance in hell I was about to let him investigate the voice. It was so strangely quiet that I could hear the crunching of footsteps in the snow as the person outside moved.
+Next to me, Luke shifted as though he were about to stand up. I reached out and grabbed a hold of his arm, grabbing Toni and pulling Luke back down to the floor. There wasn't a chance in hell I was about to let him investigate the voice. It was so strangely quiet that I could hear the crunching of footsteps in the snow as the person outside moved.
 
 "Please," the voice said. It had gotten closer, like it was circling the house. "Please, I really need help. Can I just come in for a minute? It's so cold out here." My grip tightened on Luke's arm, the complete lack of emotion in the voice's tone sending a chill up my spine. He reached over, holding my hand in his as the source of the voice moved ever closer.
 

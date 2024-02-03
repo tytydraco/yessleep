@@ -30,7 +30,7 @@ I guess there was some type of rare bird he was looking to take a picture of... 
 
 Excitement filled me as I realized that maybe he had the answer to what type of bird I was hearing, maybe that's what he was trying to take a picture of!
 
-I went up to him planning to introduce himself so I could ask him.
+I went up to him planning to introduce myself so I could ask him.
 
 He seemed really standoffish and almost rude, I don't know why...
 
