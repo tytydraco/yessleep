@@ -297,3 +297,7 @@ However, Matt was another person who gave his life to teach us the rules of the 
 I hadn't realized how caught up in the memory I had gotten. I said nothing but began to gently run my fingers through her hair. She gave me a reaffirming squeeze and then relaxed into sleep. I lay there for a bit longer, listening to the thing below. We had all gotten used to its racket over the years. Most of the time, you could sleep through it. Sometimes, I liked to listen to it. Try to figure out what it was doing down there. Why it was here. Why it wanted us so bad. I listened closely in the darkness, listening to its footsteps and hearing its faint notes echo through the halls.
 
 *Tink TINK tonk!*
+
+&#x200B;
+
+[\[Part 3\]](https://www.reddit.com/r/nosleep/comments/1aht75m/somewhere_beneath_us_part_3/?utm_source=share&utm_medium=web2x&context=3)
