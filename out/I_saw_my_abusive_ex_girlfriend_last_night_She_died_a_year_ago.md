@@ -50,9 +50,9 @@ Then, she jumped up onto the couch as she simultaneously turned around completel
 
 Suddenly, she let out an awful, bloodcurdling scream and lunged at me on all fours. I quickly turned around and bolted back toward the bedroom. The only thought on my mind was to prevent her from getting to my son and fiancée. As I ran down the hall, I looked back, and saw her crawling on the ceiling like a spider at lightning speed. Her hair was covering her face as her head violently thrashed from side to side.
 
-I got to to the bedroom door and stood in front of it, ready to prevent her from getting in. But, when I turned around, she was gone. My fiancée unlocked the door and swung it open.
+I got to the bedroom door and stood in front of it, ready to prevent her from getting in. But, when I turned around, she was gone. My fiancée unlocked the door and swung it open.
 
-“What the hell is going on?” she whispered with a concerned on her face. “You’re gonna wake the baby.”
+“What the hell is going on?” she whispered with a concerned look on her face. “You’re gonna wake the baby.”
 
 I couldn’t get the words out to explain it to her. I turned on all the lights and searched through every corner of the apartment. I found drops of water on the ground. I also scanned the couch, and noticed wet, muddy foot prints on the beige cushions. My fiancée came into the living room and I showed her all the evidence. Her first thought was that someone had broken in, but then I told her what I really saw. Surprisingly, she said she believed what I had seen. I’m not sure if she just said that to calm me down, or if she really meant it. She hugged me as I began to sob.
 
