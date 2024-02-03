@@ -98,7 +98,7 @@ We found a room with a lot of documents. I told Ray to be a lookout outside the 
 There were a bunch of documents about paranormal activities in the past , some fiction about supernatural beings and other occult things. One book stood out from the others , One titled "UNF Rituals".
 
 
-I opened the book , It had a bunch of weird rituals. "Ritual to become a cultist" , "Ritual to worship the OU", etc. There was one extremely weird called "Ritual to form a pact". All of the had one thing in common , Human sacrifices.
+I opened the book , It had a bunch of weird rituals. "Ritual to become a cultist" , "Ritual to worship the OU", etc. There was one extremely weird called "Ritual to form a pact". All of them had one thing in common , Human sacrifices.
 
 
 "What kind of a pact? What is the OU? What is this cult?" All these thoughts were racing into my mind when I suddenly heard a scream.
