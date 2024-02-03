@@ -47,7 +47,7 @@ Out of everyone we asked , One testimony stuck out from the rest.
 Another dead lead. Well next up is the central park where she was last seen , We're sure to find some clues there.
 
 
-We reached Central park and it was quite a normal park at first glance , Nothing weird going. That was until I noticed a poster with some weird rules written on it.
+We reached Central park and it was quite a normal park at first glance , Nothing weird going on. That was until I noticed a poster with some weird rules written on it.
 
 
 "The UDA?" I asked
