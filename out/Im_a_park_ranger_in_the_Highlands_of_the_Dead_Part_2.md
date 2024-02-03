@@ -88,7 +88,7 @@ The silhouette of a tall creature with spindly arms and legs. It almost had the 
 
 The lightning disappeared, and the room plunged back into darkness.
 
-I flew out of my car and trudged through the thick, slushy muck leading up to the watchtower's staircase. Lighting the way with my torch, I took the steps two at a time – repeatedly loosing my footing on the drenched metalwork.
+I flew out of my car and trudged through the thick, slushy muck leading up to the watchtower's staircase. Lighting the way with my torch, I took the steps two at a time – repeatedly losing my footing on the drenched metalwork.
 
 A sudden smashing noise startled me, and I braced myself against the handrail. I’m surprised I heard it over the roar of rain and thunder, but paternal instincts are unimaginably powerful – and the hair on my skin was standing upright.
 

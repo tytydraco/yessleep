@@ -170,6 +170,6 @@ And with that, the man turned and faded into [thin air.](https://www.reddit.com/
 
 [Part 4](https://www.reddit.com/r/nosleep/comments/1aeb0vc/im_a_freshman_at_a_small_university_i_found_out/?utm_source=share&utm_medium=web2x&context=3)
 
-[Part 5](https://www.reddit.com/r/nosleep/comments/1afxpdc/im_a_freshman_at_a_small_university_i_might_have/?utm_source=share&utm_medium=web2x&context=3) 
+[Part 5](https://www.reddit.com/r/nosleep/comments/1afxpdc/im_a_freshman_at_a_small_university_i_might_have/?utm_source=share&utm_medium=web2x&context=3)
 
-&#x200B;
+[Final](https://www.reddit.com/r/nosleep/comments/1ahjs4w/im_a_freshman_at_a_small_university_and_ive_got_a/?utm_source=share&utm_medium=web2x&context=3) 
