@@ -132,7 +132,7 @@ That last sentiment was echoed the loudest, and by the time Roy stepped down I c
 
 Seb didn’t need me for the rest of the day, so I stuck around the mess hall. I got a tour of the equipment sign-out lot and was handed a sleeping bag and a folding cot. By the time I got back, the mess hall was jumping with energy. Someone had brought a whole bunch of Kiss tapes, along with plenty of drinks. There were four six-packs on one of the counters with a large note that just said, ‘Everyone Drinks!!’. I wasn’t gonna pass on that.
 
-I had a couple of drinks, a couple of smokes, and did my best to remember the lyrics to “Shout it out Loud”. I huddled up with a bunch of background extras that were scheduled for the next day, playing a mix of truth or dare and trivial pursuit. Don’t ask about the rules to that one. I don’t have the slightest idea.
+I had a couple of drinks, a couple of smokes, and did my best to remember the lyrics to “Shout it out Loud”. I huddled up with a bunch of background extras that were scheduled for the next day, playing a mix of truth or dare and Battleship. Don’t ask about the rules to that one. I don’t have the slightest idea.
 
 I talked to people from all over. Some of the practical effects guys were complete geeks, comparing notes on everything from timed explosions to faking a scolding water effect. I remember sharing a beer with the writers too. All in all, it was a good time. I think I made out with Dawn’s hairdresser.
 
