@@ -100,7 +100,7 @@ I was still twenty feet from the top of the tower. I wasn’t going to make it i
 
 The fingers released, and the bundle plummeted.
 
-I felt the world slow around me. As I curled my back over the edge of the railing, I watched the blanket unravel above me – and little Henry, with limbs flailing, tumbled out of it. His terrified eyes were swimming with tears, and he screeched maniacally as he fell towards me. His body clunkily connected with my chest, and I frantically scrambled to scoop him up.
+I felt the world slow around me. As I curled my back over the edge of the railing, I watched the blanket unravel above me – and little Henry, with limbs flailing, tumbled out of it. His terrified eyes were swimming with tears, and he screeched manically as he fell towards me. His body clunkily connected with my chest, and I frantically scrambled to scoop him up.
 
 Against all odds, I caught him.
 
