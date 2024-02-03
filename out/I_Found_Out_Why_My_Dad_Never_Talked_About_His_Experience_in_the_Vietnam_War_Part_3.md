@@ -86,7 +86,7 @@ Tuyết moves to the small window, peering out with wary eyes. Her face drains o
 
 Peeking cautiously beside Tuyết, the harrowing scene unfolding outside the hut sears into my memory, a tableau of terror and brutality.
 
-The helicopter, a menacing behemoth, looms over the village like a predatory bird. Below, figures move with ruthless efficiency – soldiers, but unlike any I've seen before. They're dressed like American commandos, but their uniforms are stripped of any unit insignia or flags, rendering them ghosts, devoid of identity or allegiance. One of the soldiers wears a string of human ears, each a grim trophy of battles past.
+The helicopter, a menacing behemoth, looms over the village like a predatory bird. Below, figures move with ruthless efficiency – soldiers, but unlike any I've seen before. They're dressed like American commandos, but their uniforms are stripped of any unit insignia or flags, rendering them ghosts, devoid of identity or allegiance. 
 
 The soldiers herd the villagers into the center of the hamlet with a cold, methodical precision. The villagers, faces etched with fear and confusion, stumble and fall as they're pushed and prodded like cattle.
 
@@ -96,7 +96,7 @@ One woman, clutching a wailing infant to her chest, stumbles in her haste. A sol
 
 An elderly man, his back bent with age, falls to his knees, his breath ragged with exhaustion. A boot to his back sends him sprawling to the ground, his frail body crumpling under the assault. No mercy is shown, no compassion given.
 
-One particular figure strides confidently through the chaos. He stands taller than the other soldiers, an air of authority emanating from him. This man, clad in the same unmarked fatigues, wears mirror sunglasses that reflect the terror around him. A yellow bandana conceals his face. 
+One particular figure strides confidently through the chaos. He stands taller than the other soldiers, an air of authority emanating from him. This man, clad in the same unmarked fatigues, wears mirror sunglasses that reflect the terror around him. A yellow bandana conceals his face.
 
 His men step aside, parting a path for him as he approaches the center of the commotion. They address him with a tone of respect tinged with fear. "Major Wolff," one of the soldiers reports.
 
