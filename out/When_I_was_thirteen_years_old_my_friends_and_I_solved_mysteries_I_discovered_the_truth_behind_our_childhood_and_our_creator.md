@@ -10,8 +10,6 @@ The creator’s of Marin's puppet show were tracking me down.
 
 I had been dragged into a game of cat and mouse, and I was losing.  
 
-The woman who attempted to kidnap me had hunted me down across town, cornering me in a gas station bathroom.
-
 *I didn't want reality.* 
 
 Reality was pain throbbing in the back of my head, a suffocating pressure induced by Dr. Delaney dragging me down a constant, never ending memory lane. 
@@ -31,6 +29,8 @@ If I concentrated, I was back inside Middleview.
 The lights were brighter, colors blurred together, neon reds and blues making me dizzy. 
 
 It was always  the summer before our sophomore year. 
+
+Aris spluttering on his coffee, overgrown blonde hair hanging in wide brown eyes. May, her head comfortably pressed against the window, pigtails loose on her shoulders, her mouth curved around the edge of her straw.
 
 Noah, bathed in rich red light, his head tipped back, a playful grin spread across his lips. That night, I couldn't seem to stop looking at him. Maybe it was his stupid laugh that vibrated his body, or his smile that turned heads, wide eyes shining with glee in our post-mystery afterglow.  
 
