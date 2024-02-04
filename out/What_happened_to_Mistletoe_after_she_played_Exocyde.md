@@ -58,7 +58,7 @@ Believe it or not I still have this piece of paper. I'd kept it tucked inside a 
 
 >After the Caller declares the nature of the Forfeit, the Speaker must—
 
-Bizarre, right? Rule Ten is cut off at the bottom of the page, like there was too much text for a single sheet of A4 or the message board or forum or wherever Mistletoe got Exocyde from was incomplete. I haven't failed to notice that Rule Three is either missing or deliberately omitted either. The only other detail of note on the paper are the words *TheTrees 9pm* written in Mistletoe's handwriting and underlined.
+Bizarre, right? Rule Ten is cut off at the bottom of the page, like there was too much text for a single sheet of A4 or the message board or forum or wherever Mistletoe got Exocyde from was incomplete. I haven't failed to notice that Rule Three is either missing or deliberately omitted either. The only other detail of note on the paper are the words *The Trees 9pm* written in Mistletoe's handwriting and underlined.
 
 Back to the day that Mistletoe disappeared.
 
