@@ -58,7 +58,9 @@ As he moves on, I find a secluded spot near a towering tree, its roots offering 
 
 Time seems to stretch and compress in these waiting hours. Every shadow becomes a potential threat, every rustle a possible enemy.
 
-Late into the night, as the moon casts its silver glow over the jungle canopy, the air grows tense with the anticipation of confrontation. The nocturnal sounds of the forest, once a comforting background chorus, now serve as a mask for the stealthy approach of our adversaries. We lie in wait, each man a coiled spring, ready to unleash hell at a moment's notice.
+In the enveloping silence, as the jungle's heart beats in sync with ours, I catch myself humming softly. It's a nervous tick, a habit I've picked up somewhere along the way, a means to steady my jittering nerves.
+
+Late into the night, as the moon casts its silver glow over the jungle canopy, we lie in wait, each man a coiled spring, ready to unleash hell at a moment's notice.
 
 In the dense underbrush, I hear the faintest sound of footsteps, muffled but unmistakable. The enemy is near, their hushed whispers barely audible over the heartbeat thumping in my ears. My grip tightens around the detonator wired to the Claymores.
 

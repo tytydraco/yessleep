@@ -86,7 +86,7 @@ Tuyết moves to the small window, peering out with wary eyes. Her face drains o
 
 Peeking cautiously beside Tuyết, the harrowing scene unfolding outside the hut sears into my memory, a tableau of terror and brutality.
 
-The helicopter, a menacing behemoth, looms over the village like a predatory bird. Below, figures move with ruthless efficiency – soldiers, but unlike any I've seen before. They're dressed like American commandos, but their uniforms are stripped of any unit insignia or flags, rendering them ghosts, devoid of identity or allegiance. 
+The helicopter, a menacing behemoth, looms over the village like a predatory bird. Below, figures move with ruthless efficiency – soldiers, but unlike any I've seen before. They're dressed like American commandos, but their uniforms are stripped of any unit insignia or flags, rendering them ghosts, devoid of identity or allegiance.
 
 The soldiers herd the villagers into the center of the hamlet with a cold, methodical precision. The villagers, faces etched with fear and confusion, stumble and fall as they're pushed and prodded like cattle.
 
@@ -150,9 +150,9 @@ The soldiers hesitate, exchanging uneasy glances. The order seems to weigh heavi
 
 But the Major's authority is absolute. His men, trained to follow orders without question, begin the grim task. They move through the village, setting fire to the huts with flamethrowers. The thatch roofs catch quickly, flames licking upwards, consuming the structures in a voracious blaze.
 
-The men of the village are forced to one side of the square, their hands bound behind their backs. The unspoken fate that awaits them is written in the soldiers' cold, calculating eyes. A fate of bullets and unmarked graves.
+The men of the village are forced to one side of the square, their hands bound behind their backs. Their fate is one of bullets to the back of the head and unmarked graves.
 
-The women, clutching their children, are herded into a group. The leering glances of their captors as they encircle the women speak volumes of the unspeakable horrors that will soon befall them.
+The women, clutching their children, are herded into a group. We can see some of the soldiers forcing themselves on the terrified women. They hold them down, their rough hands tearing at their clothes, while others watch and laugh.
 
 Hearing her niece's cries, Tuyết's instinct to protect her family surges to the forefront. She lurches towards the door, her every muscle tensed to spring into action. I grab her arm, pulling her back with all my strength.
 
