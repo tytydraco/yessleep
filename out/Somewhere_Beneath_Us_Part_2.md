@@ -300,4 +300,4 @@ I hadn't realized how caught up in the memory I had gotten. I said nothing but b
 
 &#x200B;
 
-[\[Part 3\]](https://www.reddit.com/r/nosleep/comments/1aht75m/somewhere_beneath_us_part_3/?utm_source=share&utm_medium=web2x&context=3)
+[\[Part 3\]](https://www.reddit.com/r/nosleep/comments/1aht75m/somewhere_beneath_us_part_3/?utm_source=share&utm_medium=web2x&context=3) \~ [\[Part 4\]](https://www.reddit.com/r/nosleep/comments/1aiy2j3/somewhere_beneath_us_part_4/?utm_source=share&utm_medium=web2x&context=3)

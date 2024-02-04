@@ -10,7 +10,7 @@ We all got ready, taking turns in the shower and brushing our teeth. Soap was re
 
 Though I really didn't feel like talking, I forced myself to. "Dang, still going, huh?"
 
-"Somehow, he still keeps managing to hang on," Bea said in an exasperated tone. 
+"Somehow, he still keeps managing to hang on," Bea said in an exasperated tone.
 
 Ethan smiled but didn't say anything as he took a seat. I joined them on the floor. "How are you guys doing?"
 
@@ -70,9 +70,9 @@ I looked at the floor for a while longer in silence. Speaking of the children to
 
 "Why do you say that?"
 
-"I mean, you've seen how quiet he's been lately..." 
+"I mean, you've seen how quiet he's been lately..."
 
-She nodded solemnly. 
+She nodded solemnly.
 
 "Yesterday, I saw him looking out the window. He brought up Larry."
 
@@ -184,9 +184,9 @@ Its flesh-patched hands slapped around the edges of the doorframe. Immediately, 
 
 Three.
 
-Daniel was right to never tell me what the creature looked like. Even if he had, I don't think I ever could have imagined just how horrific it was. Its whole body was like its arms; elongated, skeletal, and covered in tumorous bumps. The vile quilt of skin was a suit it wore all over every inch of its figure, even its head. Its bald skull was composed of more small patches that led straight up to its face. Oh, God, its face... It wasn't its own. At least not the skin on it. The eye sockets on its sadistic mask had been stretched open far too wide to fit its massive head. Within, two enormous white eyes bulged out, looking at us with pure excitement. It had no iris. Only two large black pupils. The mouth was just as horrific, stretched too wide like the eyes, revealing a set of elongated clenched, disturbingly human teeth. It pulled itself through the door and squealed with delight. It eagerly reached up just below its neck where a long rectangular bump protruded from its-- *Someone's,* skin and began to tap on it. 
+Daniel was right to never tell me what the creature looked like. Even if he had, I don't think I ever could have imagined just how horrific it was. Its whole body was like its arms; elongated, skeletal, and covered in tumorous bumps. The vile quilt of skin was a suit it wore all over every inch of its figure, even its head. Its bald skull was composed of more small patches that led straight up to its face. Oh, God, its face... It wasn't its own. At least not the skin on it. The eye sockets on its sadistic mask had been stretched open far too wide to fit its massive head. Within, two enormous white eyes bulged out, looking at us with pure excitement. It had no iris. Only two large black pupils. The mouth was just as horrific, stretched too wide like the eyes, revealing a set of elongated clenched, disturbingly human teeth. It pulled itself through the door and squealed with delight. It eagerly reached up just below its neck where a long rectangular bump protruded from its-- *Someone's,* skin and began to tap on it.
 
-*TINK tink TONK plink!* 
+*TINK tink TONK plink!*
 
 The xylophone that it was always banging on... It was under its vile flesh...
 
@@ -284,7 +284,8 @@ She held them open as she struggled to breathe, "J-Joel?"
 
 I felt a warm breath release across my fingertips. Then nothing at all.
 
-Everyone was still. So was my heartbeat. The thing still pounded on the door behind us, but I didn't hear it. Everything was spinning. Everyone sat in silence, defeated. There was nothing we could do. The creature never brought us medical supplies. Not that it would have mattered. Andi was gone. The group and I gathered silently around her body for a long time, our soft sobs filling the otherwise quiet space. Bea lay her head onto the girl's stomach as she cried. Ethan just hugged his knees and stared, silent tears running down his face. I just wept into her shoulder as I slowly felt the warmth leave her.  
+Everyone was still. So was my heartbeat. The thing still pounded on the door behind us, but I didn't hear it. Everything was spinning. Everyone sat in silence, defeated. There was nothing we could do. The creature never brought us medical supplies. Not that it would have mattered. Andi was gone. The group and I gathered silently around her body for a long time, our soft sobs filling the otherwise quiet space. Bea lay her head onto the girl's stomach as she cried. Ethan just hugged his knees and stared, silent tears running down his face. I just wept into her shoulder as I slowly felt the warmth leave her.
+
 After a while, Daniel got up and walked to the kitchen. He grabbed an old, rusted shovel the thing had left for us and walked out the front door. Claire wiped her eyes and followed him out as well. Nobody else moved. After a few hours, Daniel came back in and stood in the corner, resting his hands on the handle of the shovel. After another hour, I felt Jan's grip on my shoulder.
 
 "Guys, it's getting dark out... I'm so sorry, but... we have to... We can't leave her..."
@@ -297,12 +298,13 @@ Nobody stirred until Claire spoke first, "You were such a sweet girl... You didn
 
 "You can finally rest, sweetheart." Grace added, "You're in a better place now."
 
-"Goodbye, Andi..." Was as far as Jan got before breaking into sobs again. Ben put an arm around her.  
+"Goodbye, Andi..." Was as far as Jan got before breaking into sobs again. Ben put an arm around her.
+
 It was quiet again for a while before Ethan took his turn. He stepped forward to say something, but nothing came out. Instead, he took a deep breath and looked up as tears fell from his eyes. He bent over, plucked some grass from the ground, and gently lay it on her chest.
 
 "I'm sorry... I wish I had flowers... You deserved something nice. This is the best I can do..."
 
-Bea broke out into sobs and couldn't say anything. She just looked down at Andi with an expression of pure grief and agony. Daniel chose to not say anything. He looked down at her body with an absent expression. But behind his eyes, I could see sadness. Sadness and rage. Frank was a man of very few words. I knew he didn't have anything. That just left me. Amidst the sounds of crying, I thought, trying to compose myself enough to speak. 
+Bea broke out into sobs and couldn't say anything. She just looked down at Andi with an expression of pure grief and agony. Daniel chose to not say anything. He looked down at her body with an absent expression. But behind his eyes, I could see sadness. Sadness and rage. Frank was a man of very few words. I knew he didn't have anything. That just left me. Amidst the sounds of crying, I thought, trying to compose myself enough to speak.
 
 "I, um..." I took a deep breath, "I'm so sorry, Andi... I am so sorry that you got stuck in a place like this. I'm sorry that it's where you had to..." I caught myself and changed directions. "I can't imagine what you saw down there. All the terrible things... But I know that you knew the dangers you were facing when you left. You risked your life so that we could escape, but... You were already my escape, Andi..." I breathed hard, trying to not break down. "I promise you that you will not have died for nothing. We will get out of here, honey... We will. I promise."
 
@@ -346,7 +348,7 @@ She nodded, waiting for me to continue.
 
 "Just promise me that you won't get mad?"
 
-She bit her cheek but then moved up against me, burying her face into my chest. "I could never hate you." 
+She bit her cheek but then moved up against me, burying her face into my chest. "I could never hate you."
 
 She didn't have too. I already hated myself.
 
@@ -370,7 +372,7 @@ I looked around the circle. The faces of the eight closest people in my life sta
 
 I readied myself. Here we go.
 
- "Before Andi died. You all heard what she said?" Everyone's eyes darted to the floor or the ceiling "Um, yeah. That."
+"Before Andi died. You all heard what she said?" Everyone's eyes darted to the floor or the ceiling "Um, yeah. That."
 
 "What about it?" Grace asked nervously.
 
@@ -448,8 +450,10 @@ I looked around the room. "I'm sorry, everyone... But I promise we'll find a way
 
 Suddenly Bea spoke up a look of betrayal on her face, "Don't make promises you can't keep."
 
-With that, she stood haughtily before turning and whipping out of the room. One by one, the rest of my ragtag family followed, all except Dan. He remained, his eyes glued to the floor until everyone was gone. Then, when it was just him and I, our eyes met with the same knowing glance. 
+With that, she stood haughtily before turning and whipping out of the room. One by one, the rest of my ragtag family followed, all except Dan. He remained, his eyes glued to the floor until everyone was gone. Then, when it was just him and I, our eyes met with the same knowing glance.
 
-We only had a little over 24 hours of guaranteed safety left. We'd better enjoy while we could.  
+We only had a little over 24 hours of guaranteed safety left. We'd better enjoy while we could.
 
-
+&#x200B;
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/1aiy2j3/somewhere_beneath_us_part_4/?utm_source=share&utm_medium=web2x&context=3)
