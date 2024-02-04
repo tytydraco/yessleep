@@ -136,6 +136,6 @@ I waited with bated breath, hoping that I hadn’t screwed up too badly.
 
 I exhaled a sigh of relief. That cemented it. By the next day, either the entities would be gone, or I would. Either way, something [had to give.](https://www.reddit.com/r/HorrorJunkie123/)
 
-[Final](https://www.reddit.com/r/nosleep/comments/1ahjs4w/im_a_freshman_at_a_small_university_and_ive_got_a/?utm_source=share&utm_medium=web2x&context=3) 
+[Final](https://www.reddit.com/r/HorrorJunkie123/comments/1aisd4x/im_a_freshman_at_a_small_university_and_ive_got_a/?utm_source=share&utm_medium=web2x&context=3)
 
 &#x200B;
