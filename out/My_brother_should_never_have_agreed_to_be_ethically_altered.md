@@ -1,4 +1,4 @@
-My older brother, Shane, has spent the last ten years in prison and, until recently, it looked like he might be in there for the rest of his life. However, he called me recently to say that they were opening up a new early-release program and they would let him out immediately on a probationary period if he agreed to participate. Some sort of new process—an “ethical alteration” to prevent future criminal activity.
+My older brother, Shane, had spent the last ten years in prison and it looked like he might be in there for the rest of his life. However, he called me recently to say that they were opening up a new early-release program and they would let him out immediately on a probationary period if he agreed to participate. Some sort of new process—an “ethical alteration” to prevent future criminal activity.
 
 God, how I wish now that he had just told them no…
 
@@ -76,7 +76,7 @@ Shane couldn’t give them any answers—he was in somewhat of a state of shock 
 
 They told him that because he’d brought in a gunshot victim that he’d have to wait to speak with the police and handed him off to hospital security. While he waited for the officers to arrive, he thought of calling Mr. Franks, but he couldn’t get away from security to have a private conversation, so he just sat quietly and tried to think of a good story. 
 
-What he came up with was that he had been driving nearby when the man flagged him down at an intersection and Shane had simply pulled over to help, only to then realize that the man was gravely injured. It might have been a flimsy story, but he didn’t think they’d have any way to prove otherwise and just hoped he’d have a chance to speak to the man before they cops did so they could corroborate their stories. 
+What he came up with was that he had been driving nearby when the man flagged him down at an intersection and Shane had simply pulled over to help, only to then realize that the man was gravely injured. It might have been flimsy, but he didn’t think they’d have any way to prove otherwise and just hoped he’d have a chance to speak to the man before they cops did so they could corroborate each other. 
 
 However, it didn’t much matter what excuse Shane came up with as he was arrested as soon as the officers arrived—before he could even give his weak fabrication. 
 
@@ -102,7 +102,9 @@ He was given a sentence of thirty years to life and hauled off to the state peni
 
 &#x200B;
 
-For the next ten years, I visited him as often as possible and he called me whenever they’d let him. Mom and I had ended up destitute again after the trial and our hopes of moving on to better things were dashed. She fell back into her old ways and I was left with the burden of trying to keep us both afloat. Worse than she was before, she wasn’t able to hold down steady work and I had to take on several jobs to pay our bills. No matter her faults, she was still my mother and she had been good to me for years, I couldn’t just leave her to die in squalor—mine and Shane’s hopes or me going to college once I graduated high school evaporated. 
+For the next ten years, I visited him as often as possible and he called me whenever they’d let him. Mom and I had ended up destitute again after the trial and our hopes of moving on to better things were dashed. She fell back into her old ways and I was left with the burden of trying to keep us both afloat. Worse than she was before, she wasn’t able to hold down steady work and I had to take on several jobs to pay our bills. No matter her faults, she was still my mother and she had been good to me for years, I couldn’t just leave her to die in squalor. 
+
+Mine and Shane’s dreams or me going to college once I graduated high school evaporated. 
 
 Yet Shane remained optimistic—it’s one thing that never ceased to amaze me about him. All those years he spent grinding when I was younger, all throughout his trial, and even throughout his time in prison, he always kept a positive outlook—always wore a smile. Better times were just around the corner in his mind, and he continued to encourage me in every one of our conversations that we’d figure it all out someday. 
 
@@ -142,7 +144,7 @@ The line went dead.
 
 &#x200B;
 
-I didn’t hear from him again after that. He normally called once every few days, but the phone didn’t ring for a week. When I got a day off work, I drove up to the prison to see him in-person, but I was told that I couldn’t see him—he was apparently sick and in the infirmary. I told them that he had been talking about participating in the new early-release program and asked if his illness was related that—they told me that he just had the flu. However, they also said that there was no new early-release program that they were aware of. 
+I didn’t hear from him again after that. He normally called once every few days, but the phone didn’t ring for a week. When I got a day off work, I drove up to the prison to see him in-person, but I was told that I couldn’t—he was apparently sick and in the infirmary. I told them that he had been talking about participating in the new early-release program and asked if his illness was related that—they told me that he just had the flu. However, they also said that there was no new early-release program that they were aware of. 
 
 Leaving them with a message to have him call me as soon as he was feeling better, I went home with a pit in my stomach. 
 
@@ -163,6 +165,10 @@ I couldn’t believe it. Three-weeks of radio silence and now, suddenly…
 He was getting out—they were really letting him go; I was going to have my brother back. But any excitement of mine at having him returned was tempered with wondering what state he’d be in when we brought him home. They put him away believing that he had potentially had a large part in planning the murder of an innocent man and woman, one of them being a member of law enforcement. What had they done to him that made them so convinced he was no longer a danger to society?
 
 I only needed to wait until we picked him up the following day to understand why they weren’t worried about him anymore.
+
+&#x200B;
+
+&#x200B;
 
 Shane had been right about one thing—Mom was different with the prospect of him coming home. She only had half her normal morning helping of vodka and actually ironed her clothes—although her hands were shaking so badly as she did it that it didn’t help much. We even had our first real conversation in years about how things were going to be okay now that he was coming back. 
 
@@ -194,7 +200,7 @@ She considered me coolly. “Your brother is one of first people to undergo a re
 
 “Fuck you, lady!” I was seething. “You don’t know shit about him—he was innocent—he was a good man. And what do you mean ‘the effects can’t be reversed.’ You change him back—change him back now! I don’t care if he sits in here for the rest of his life, at least he’ll be himself.” 
 
-She was starting to mark some things off on a clipboard and I could tell was only half-listening to me. Looking up, she started, “Again, the process is irreversible, and you’ll find that your brother signed a binding agreement to participate in this trial. He’s been evaluated over the last several weeks by medical staff and government officials and everyone is on board with moving forward with Phase II—public reintroduction. At this point, you have two options. 
+She was starting to mark some things off on a clipboard and I could tell was only half-listening to me. Looking up, she began, “Again, the process is irreversible, and you’ll find that your brother signed a binding agreement to participate in this trial. He’s been evaluated over the last several weeks by medical staff and government officials and everyone is on board with moving forward with Phase II—public reintroduction. At this point, you have two options. 
 
 “Option one; you can sign this and you’ll get to take your brother home. For the first month, you’ll call me daily to discuss how he’s doing, and we will make periodic home visits to inspect in-person. We’ll help him get work so he can start contributing to society again like a law-abiding citizen.
 
@@ -204,7 +210,7 @@ She was starting to mark some things off on a clipboard and I could tell was onl
 
 “Now, if you could hurry-up and make your decision please, I have several more of these to do today…” She returned to her clipboard. 
 
-I was shaking with anger. Clearly, to her, Shane was nothing more than a variable in her experiment. He wasn’t a person, a brother, a friend, a human at all—just a note on her clipboard—an ‘alteration’ for her to study. But, what choice did I have—she had all the power and she knew it. If I fought her or refused, she’d take Shane away and I’d never see him again. And, if he’d been living poorly before, it would be nothing to how I imagined him living inside now—sitting on his bed day in and day out—wasting away with that blank stare on his face. 
+I was shaking with anger. Clearly, to her, Shane was nothing more than a variable in her experiment. He wasn’t a person, a brother, a friend, a human at all—just a note on her clipboard—an "alteration" for her to study. But, what choice did I have—she had all the power and she knew it. If I fought her or refused, she’d take Shane away and I’d never see him again. And, if he’d been living poorly before, it would be nothing to how I imagined him living inside now—sitting on his bed day in and day out—wasting away with that blank stare on his face. 
 
 Wrenching the clipboard from her hands, I signed the agreement. 
 
@@ -224,7 +230,7 @@ When we arrived at the apartment complex and parked the car, he was still snorin
 
 He turned to look at me, but didn’t reply. 
 
-“Hey, we’re home—you can get out of the car now and we can go inside.” I wondered how much of his behavior was due to the ‘alteration’ and how much might be due to him having been in prison for ten-years and always having to be told what to do. 
+“Hey, we’re home—you can get out of the car now and we can go inside.” I wondered how much of his behavior was due to the "alteration" and how much might be due to him having been in prison for ten-years and always having to be told what to do. 
 
 “Okay.” His vocal cords made the sound, but—it’s hard to describe—it wasn’t *his* voice. I know that doesn’t make much sense, but I’ve heard that voice for twenty-four years—I know the quality, the cadence, the inflection; it just wasn’t him. 
 
@@ -232,7 +238,7 @@ Mom had already given up. She’d started crying on the drive home and the minut
 
 Shane exited the car and I closed the door behind him—surprisingly, he started walking towards the elevators, like he knew where he was going. I decided not to say anything and see if he remembered where he lived. He hit the “up” button as he should have, and he selected the correct floor once he was inside. When we exited on our floor, he made a direct line for our unit—I followed him closely and watched as he opened the door, just as he’d done hundreds of times before. 
 
-However, he stopped just after stepping through the threshold and stood stock-still again—I nearly crashed into him. He seemed to be waiting on the next set of instructions, so I told him to go sit at the kitchen table for now. 
+However, he stopped right after stepping through the threshold and stood stock-still again—I nearly crashed into him. He seemed to be waiting on the next set of instructions, so I told him to go sit at the kitchen table for now. 
 
 “Okay.” The voice came again.
 
@@ -240,7 +246,7 @@ Just as I’d planned to do on the drive back, I ran my wand all over his body a
 
 I sat down at the table across from him and started asking the questions that I’d wanted to ask in the car. 
 
-“Hey, Shane.” His eyes met mine, and it was only now that we were sitting down and I was looking directly into them that I truly saw that there was nothing behind them. Whatever it was that made Shane, *Shane* was gone—I was looking only at a collection of cells—a biological mass that could walk and talk, but had no personality—had no *life*. It terrified me.
+“Hey, Shane.” His eyes met mine, and it was only then that we were sitting down and I was looking directly into them that I truly saw that there was nothing behind them. Whatever it was that made Shane, *Shane* was gone—I was looking only at a collection of cells—a biological mass that could walk and talk, but had no personality—had no *life*. It terrified me.
 
 My voice quivered as I asked, “Shane…do you…do you remember your full name?”
 
@@ -280,7 +286,7 @@ If you could really call it that—I surely didn’t. Yes, Shane hadn’t commit
 
 When he was hungry, he ate—thirsty, he drank—when he needed to use the restroom or sleep, he did that as well, but beyond that, I had to tell him to do anything. Shower, brush his teeth, get dressed, go to work—at the grocery store, he had to be given specific tasks by his boss and he was able to perform them perfectly, but he took no initiative beyond doing exactly what he was told to do. 
 
-And that’s what it seemed our lives would be from now on. Shane had given so much of his life for me, sacrificed his entire future—I didn’t mind helping him now, and decided that I would continue to support him in this state until the day that one of us died. 
+And that’s what it seemed our lives would be from then on. Shane had given so much of his life for me, sacrificed his entire future—I didn’t mind helping him for once, and decided that I would continue to support him in this state until the day that one of us died. 
 
 But then, last week, something changed. 
 

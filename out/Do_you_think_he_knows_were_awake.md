@@ -1,6 +1,6 @@
 I'm 15 and I was home alone one night with my sister, who's 7.
 
-Our parents were out at some wedding and they'd left us home. Honestly, I liked that. Who doesn't like having the house to themselves? My sister was little enough to not bother me that much. 
+Our parents were out at some wedding and they'd left us home. Honestly, I liked that. Who doesn't like having the house to themselves? My sister was little enough to not bother me that much.
 
 So I had the job of watching her, you know, making sure she ate, took her meds, went to sleep at a reasonable hour.
 
@@ -26,15 +26,15 @@ As soon as they left, I turned to Dina and said 'Well, what do you want to do?'
 
 She was pretty excited that we were alone. The first thing she wanted to do was watch TV in the big bedroom and eat popcorn. Mom would have commented on the smell, but mom wasn't home.
 
-After, we played some video games on my older brother's console, who'd left it here after he moved out. He didn't have many, so we played Need for Speed for a while and kept crashing into walls and trees and each other because of how bad we were at this. 
+After, we played some video games on my older brother's console, who'd left it here after he moved out. He didn't have many, so we played Need for Speed for a while and kept crashing into walls and trees and each other because of how bad we were at this.
 
 We ate dinner, then some ice cream. I tried to make a milkshake but it didn't really taste that good, and I ended up having to spend ages to clean the blender.
 
-I left her upstairs and watched some YouTube in the living room, then went up to my parents' bedroom and started looking through my mom's closet. I found some bag she literally never wore, and I stole it. 
+I left her upstairs and watched some YouTube in the living room, then went up to my parents' bedroom and started looking through my mom's closet. I found some bag she literally never wore, and I stole it.
 
 I was trying out some clothes, when Dina came into the room. 'What are you doing?'
 
-'Just looking at stuff.' 
+'Just looking at stuff.'
 
 'Mom's? Does it fit you?'
 
@@ -56,7 +56,7 @@ It was around midnight.
 
 'It's getting pretty late. Aren't you tired?'
 
-'No, not really,' she responded, her eyes glimmering. 
+'No, not really,' she responded, her eyes glimmering.
 
 After a bit, she tilted her head and, watching me fold back mom's clothes, asked me something that seemed pretty ordinary.
 
@@ -66,7 +66,7 @@ After a bit, she tilted her head and, watching me fold back mom's clothes, asked
 
 She paused, again.
 
-I closed the closet door. 
+I closed the closet door.
 
 'Not dad.'
 
@@ -108,7 +108,7 @@ I was literally paralyzed. 'Ok, we're going downstairs, and you're gonna show me
 
 Eat popcorn. In our parents' bedroom. Upstairs.
 
-Dina wouldn't make this up. She wasn't like that. My eyes darted to the window. No one was there. 
+Dina wouldn't make this up. She wasn't like that. My eyes darted to the window. No one was there.
 
 You know how, during the night, all you see out the window is darkness? How you're afraid, how you have this irrational fear that you might see someone else? Or something else, staring back?
 
@@ -126,7 +126,7 @@ I started asking her more about this man, this thing.
 
 'I don't mind him! I think he's just curious. Maybe he wants what us humans have. He's like Ariel.'
 
-Oh, shut up. 
+Oh, shut up.
 
 'You're seriously comparing this thing to the little mermaid? What the fuck, Dina?'
 
@@ -158,9 +158,9 @@ After I'd checked, I put her off to sleep. I decided to watch something in my be
 
 I was starting to wish my mom and dad would come home sooner.
 
-After a while, when it was about 2AM, a thought occurred. I don't know why. 
+After a while, when it was about 2AM, a thought occurred. I don't know why.
 
-I stood up and slowly creeped up to her room. I was about to open the door, when something made me look through the keyhole first. 
+I stood up and slowly creeped up to her room. I was about to open the door, when something made me look through the keyhole first.
 
 I saw it. It was exactly as she'd described it, and it was inside.
 
@@ -174,19 +174,19 @@ Suddenly, it crawled on the wall. At least, I assumed it was the wall, because i
 
 Then, I saw its eye through the keyhole, staring back at me.
 
-That took me off guard, and I jumped back and screamed. 
+That took me off guard, and I jumped back and screamed.
 
-I was expecting it to break through the door, but nothing happened. 
+I was expecting it to break through the door, but nothing happened.
 
-Was it still looking at me through the keyhole? To even be acknowledged by that thing horrified me. 
+Was it still looking at me through the keyhole? To even be acknowledged by that thing horrified me.
 
-My head was spinning. I could not move, I just prayed it would go away, and I didn't understand why everything was *so silent.* 
+My head was spinning. I could not move, I just prayed it would go away, and I didn't understand why everything was *so silent.*
 
 After a while, I built up some courage and opened the door.
 
 The room was empty. The thing had left, but so had Dina.
 
-'Dina! Dina, please, Dina...' 
+'Dina! Dina, please, Dina...'
 
 I knew my screaming was in vain. For a few moments that felt like hours, I could not understand what was happening to me. My desperate mind found one demented solution.
 
@@ -194,7 +194,7 @@ I picked up my phone, my hands shaking so bad, and called my mom.
 
 She answered, but I couldn't hear anything due to the loud music. After a few moments, she went outside, and I could distinguish her voice.
 
-I was staring at the empty window, my mouth dry, my eyes stinging from tears. 
+I was staring at the empty window, my mouth dry, my eyes stinging from tears.
 
 'Yeah? What's up, Leah? Are you okay? Did anything happen? You scared me.'
 
@@ -210,8 +210,8 @@ I heard her sigh. 'I don't like it when you do these things. You should have ask
 
 Right. 'I know, I'm sorry. I'm really sorry. Bye.'
 
-I hung up, then made my way to the open window and stared out. I saw some broken branches and my tired mind made out a trail. 
+I hung up, then made my way to the open window and stared out. I saw some broken branches and my tired mind made out a trail.
 
 I sat up on the window sill, then stepped out on the tree, numb.
 
-I'm going after her. Wherever it took her, I'm going.
+I'm going after her. Wherever it took her, [I'm going.](https://www.reddit.com/r/nosleep/comments/1aiwq4o/do_you_think_he_knows_were_awake_part_2/)
