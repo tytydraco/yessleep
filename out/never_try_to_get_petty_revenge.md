@@ -38,4 +38,6 @@ It could feel pain, and this gave me an advantage. I kicked again, but this time
 
 The creature that resembled a human, but not quite passing as one opened its mouth, wider and wider until it actually did look like a shark's mouth was over my face, and as it moved swiftly to my head, I fainted. 
 
-It ate me, I died, the end. :3
+i woke up 3 days later in the hospital, and now i’m writing this on here. i don’t know if i’ll ever forget this day or if i will ever recover, but i needed to share it with someone. the cops told me they found me on tyler’s yard passed out covered in cuts and blood and his mom called the cops, and they brought me here and i was in a coma for a couple of days. 
+
+i don’t know what that thing was, or how it happened but i’m warning you, don’t ever try to get petty revenge. 
