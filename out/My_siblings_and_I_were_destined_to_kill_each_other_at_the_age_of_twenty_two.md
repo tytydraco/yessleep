@@ -176,7 +176,7 @@ I don't think my brother *meant* to send the kid flying off of his handlebars. H
 
 After that incident, we weren't even allowed outside to see the coven. 
 
-Mom homeschooled us, insisting that the human world was dangerous to a half witch. Humans, aware of our existence, abduct half witches and use them for their own personal gain. That is true. 
+Mom homeschooled us, insisting that the human world was dangerous to a half witch. A small cult of humans who are aware of our existence, abduct half witches and use them for their own personal gain. That is true. 
 
 Half witch abductions are fairly common. Still though, Mom was using our fear of humans as an excuse to keep us from running away. It's not like we could, with the binding spell in place, but she was wary of the human world influencing us away from the coven. 
 
