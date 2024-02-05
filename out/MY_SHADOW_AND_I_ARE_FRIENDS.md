@@ -1,0 +1,13 @@
+Me and my shadow have a complicated relationship.  
+Let me explain you  
+It's always there, it never leaves me, no matter how high the sun is, it gets smaller, sometimes almost imperceptible, but I know it's there, it just won't leave me alone. I can't run away from it and believe me I've tried. But it was not always like this.  
+When I was little I used to play with her a lot, my parents worked all day, I was an only child and it was very difficult for me to make friends, so most of the time it was me and my shadow. As I grew older, I met new people and stopped spending time with my shadow. However, that didn't last long.  
+  
+When the quarantine began I was forced to be with her again, but she had changed, the resentment that my forgetfulness caused her was feeding her for years to the point that she grew to be twice my size, her darkness covered me complete, it was overwhelming, it had been a long time since I had dealt with my shadow, it became stronger than me, the one who was previously my companion in childhood adventures, had become my personal jailer, in charge of keeping me within its dark veil, it was its hostage and there was nothing he could do about it.
+
+Two years passed, the pandemic ended and I returned to classes, the sun seemed to have disintegrated my shadow, I could finally see something besides that darkness to which my eyes were already accustomed, my shadow became docile again, almost imperceptible, to Sometimes I even forget it's there...but don't be confused, it's still there.  
+A while ago I was forced to deal with it again, for personal reasons that I will not discuss, I had forgotten how horrible it was to be locked inside it, so dark and cold, but this time it felt worse, it was stronger, the sun It didn't hurt it, it followed me everywhere with its darkness, it blinded me, I couldn't see my own hands, after a while, I got used to it, it became normal to live in the dark, but one day without warning it left. Obviously I was relieved and happy to be able to enjoy the light again, but I also missed the darkness a little, it had been there for so long that it felt like home, as crazy as it sounds.
+
+I haven't seen my shadow in a while, the people I've told about it say that everything is over, that it won't come back, I know they are wrong, that my shadow is still there, I can feel it. I'm afraid that he will fly in and take me hostage, because I know that if he does, I won't want to get out of there, that I will stay in the darkness, I will drown in the black sea, of my own free will. Because even though I enjoy the sunlight, my shadow is still my best friend.
+
+im sorry if there are any typos, english is not my native language
