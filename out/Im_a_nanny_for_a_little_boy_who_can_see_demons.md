@@ -126,7 +126,9 @@ Stumbling in the dark, his mother and I scramble to our feet and make our way to
 
 “But I saw!”
 
-As they talk and cry, I make my way to the window. Come out, you coward, Iwant to say. But instead, I’m silent as electricity returns and brings light to windows of the other houses in the street. In ours, the aircon starts buzzing again, and the hallway floods with light.
+As they talk and cry, I make my way to the window. 
+
+Come out, you coward, I want to say. But instead, I’m silent as electricity returns and brings light to windows of the other houses in the street. In ours, the aircon starts buzzing again, and the hallway floods with light.
 
 “I don’t want the demon to get you, Mommy,” Daniel says. “Please don’t let him get you! I don’t want you to die!”
 
@@ -154,7 +156,7 @@ I know that taunting voice by heart.
 
 It is useless to tell him to go away. To leave the family alone, to leave their child be. To let them choose. It is useless to cry and beg, just as useless as it is for me to try cutting myself open and jumping off a bridge. I know. I’ve tried. A hundred times, maybe a million in the course of nearly two hundred years.
 
-I pull myself together and refuse to let him see a stray drop from my face. “You will not take him the way you’ve taken me!”
+I pull myself together and refuse to let him see a stray tear drop from my face. “You will not take him the way you’ve taken me!”
 
 “You want him to die,” he spits out.
 

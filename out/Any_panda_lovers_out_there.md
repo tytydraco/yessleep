@@ -1,0 +1,30 @@
+My mama loves panda bears. She has an entire collection of stuff. Panda figurines? By the hundreds. Panda pillowcases with matching blankets? Yep. Plush toys and slippers? She’s got it. Plates shaped like a panda face, glasses with panda prints? Check. I can go on and on, but I think you get the point, right?  
+  
+There is this one glass display cabinet that houses her figurines. When you come down from the second floor this cabinet welcomes you to the ground floor of the house. So, each time I went down in the morning I would say a loud “good morning!” to the pandas. Each day, I would notice the smallest set of pandas in different forms of disarray. When I say small, they are about an inch and are in different poses. There are 6 in total: one sitting down eating a bamboo shoot, one doing a headstand, one sitting looking like it wants to put its feet to its mouth, one standing up wearing a Chinese pointed bamboo hat, another one standing up holding a fishing rod with a dangling fish on it, and one sitting in a lotus position as if in meditation. My mama would always fix it when she notices them. They would sometimes be separated and far apart, in different sections of the cabinet, sometimes fallen over to the bottom. It’s like they come up with all kinds of mischief when we are not looking. When I was younger, in my mind I saw these little pandas playing around and having fun. But as I got older, I figured my big sister must like messing it up. She didn’t share our mama’s love for the pandas. Only I did.   
+  
+I was assigned to a different country for work and will be away for 2 years. Mama packed up the panda set for me to take saying she knew it was my favorite since I was a child as I would always point them out in the morning. It will be my first time away from home because us Asians don’t really leave home after 18 like others do. We stay with our family for as long as we can. We got all emotional even if it was just two years and I highly appreciated being able to bring those little pandas with me. When I got to my new place, I made sure to put the pandas at my bedside table. When I come back from a tiring day at work, I would look at those little black and white figures and smile thinking of home. They didn’t move into different positions like they did, which made me really believe that it was my big sister moving them around.  
+  
+I met Stuart a month after starting work at the offsite location that I was assigned to. He’s charming and would make me laugh. He started dropping by my workstation during his breaks and then we started having lunch together. By the 4th month he started coming over to my place and hanging out over the weekends. Soon we were making out in the couch, but I would not allow him to go further than that. What can I say, I was raised by very strict Asian parents.   
+  
+One Saturday night, Stuart arrived unannounced. Looked like he’s been drinking. He said he just wanted to hang out and watch our favorite series with me. I was hesitant at first but felt like I trusted him enough to hang out despite him looking a little drunk.   
+  
+Big mistake.  
+  
+Stuart started kissing me and was trying to put his hands under my shirt. I was pushing him away when he grabbed me hard and bit my lip.   
+  
+Stuart: *“What is it with you, you think you are too good for me?”*
+
+  
+Me: *“Stuart, please let me go. You’re hurting me. My lip is bleeding, I need to put some ice on it.”*  
+  
+He wouldn’t let me go and started to push my shorts down.   
+  
+My papa taught me some self-defense moves growing up. And I saw this as my chance to practice one of them. I poked Stuart’s eyes, and he pulled up while calling me a self-righteous b\*tch. I ran towards the bathroom and locked the door. I didn’t have my mobile phone with me and could not call for help. By then I was praying to all my ancestors to help me. I didn’t know what to do. I was just sitting in the corner, crying. Suddenly the pounding on the bathroom door stopped replaced by a surprised yelp. I didn’t dare leave yet. I just sat there for maybe another hour before I figured that the silence outside means he already left. I opened the door and saw no one. I checked every possible hiding spot and did not find him. I decided I will report Stuart to HR on Monday and maybe ask help to get a restraining order since I didn’t know the procedures in that country.   
+  
+Monday came and there was no Stuart. I already filed a report to HR about what happened. The next day, I asked if they’ve heard from him yet. They informed me that he is not responding to his messages or picking up his phone when they call. After a week, the office sent a representative for a wellness check. They said no one was at home and his car was not there either.   
+  
+By the 3rd week of Stuart missing, someone reported a car parked illegally in the apartment complex near ours. They found Stuart rotting inside with several small bite marks. The hospital suspected that these are rat bites. With the report I filed with HR, the police concluded that he left my apartment and passed out inside his car due to being intoxicated and the rats somehow got inside his car.   
+  
+I went home that day super stressed from all that happened. I looked at my little pandas, missing home. I noticed they had some red splotches all over their small bodies and are in complete disarray. I must have splashed them with my red beet and berry smoothie at some point. But that has been some time ago, how did I not notice these red spots until now? Anyway, I just wiped them out. I checked the bedside table but there were no droplets or anything from my smoothie. I’m just wondering now how the pandas got dirty while my bedside table escaped any of the splashes of smoothie.   
+  
+I’m back home now, so my little panda friends are back to their glass cabinet doing their nightly mischief. But should I get assigned to a different country again I will make sure to bring them with me once again. They really help me feel close to home.   
