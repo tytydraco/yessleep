@@ -68,7 +68,7 @@ I signal to the others, our eyes meeting with a shared understanding. We split, 
 
 As we advance, Lâm takes point on one flank, moving with a silent grace. He spots a commando attempting to reposition. The enemy soldier, unaware of Lâm's approach, is caught off-guard as Lâm closes the distance between them.
 
-The confrontation is sudden and brutal. Lâm confronts the commando at close range. The commando, surprised, tries to bring his weapon to bear, but it's too late. Lâm's remington shotgun roars with a deafening blast. The soldier is hit square in the chest, the impact throwing him backward, his life extinguished before he hits the ground. Lâm doesn't pause to watch; he's already moving, scanning for the next threat.
+The confrontation is sudden and brutal. The commando, surprised, tries to bring his weapon to bear, but it's too late. Lâm's remington shotgun roars with a deafening blast. The soldier is hit square in the chest, the impact throwing him backward, his life extinguished before he hits the ground. Lâm doesn't pause to watch; he's already moving, scanning for the next threat.
 
 As Tuyết and I inch closer, the sound of our adversaries' panicked whispers reaches our ears. They huddled behind the buffalo’s corpse, unaware of our approach, their attention focused on the direction of Lâm's last known position.
 
