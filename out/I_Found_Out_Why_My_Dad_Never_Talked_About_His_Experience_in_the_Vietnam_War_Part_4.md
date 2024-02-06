@@ -6,19 +6,19 @@
 
 In the palpable tension that fills the cramped space of the hut, I lean in close to Tuyết, my voice a whisper. "I have an idea, but we need to act fast."
 
-With a solemn nod, she positions herself by the doorway of the hut.
+With a solemn nod, she positions herself by the doorway.
 
 Tuyết takes a deep breath, then shouts towards the door, her voice cracking with feigned helplessness. "Đừng bắn! Em ra đây!" (Don't shoot! I'm coming out!)
 
 The soldiers outside respond with a barrage of taunts and obscenities, their voices laced with cruelty and anticipation. "Come out, sweetie! Let's see if you're as pretty as you sound!" one jeers, his laughter harsh and mocking.
 
-"Yeah, come show us a good time!" another chimes in, his tone dripping with malice. “We won't bite... hard!" 
+"Yeah, come show us a good time!" another chimes in, his tone dripping with malice. “We won't bite... hard!"
 
-“Anh yêu em!” (I love you!) a third commando shouts in broken Vietnamese, giving smoochies. 
+“Anh yêu em!” (I love you!) a third commando shouts in broken Vietnamese, giving smoochies.
 
-Ignoring their taunts, I grab hold of Mrs. Thảo's bindings, guiding her twisted form to face the door. I struggle to hold onto her as she grows more agitated, sensing her impending release. 
+Ignoring their taunts, I grab hold of Mrs. Thảo's bindings, guiding her twisted form to face the door. I struggle to hold onto her as she grows more agitated, sensing her impending release.
 
-Tuyết, her back against the wall, carefully unlatches the door, keeping her body out of the soldiers' line of sight. The door creaks open a sliver, a thin beam of sunlight piercing the gloom of the hut. 
+Tuyết, her back against the wall, carefully unlatches the door, keeping her body out of the soldiers' line of sight. The door creaks open a sliver, a thin beam of sunlight piercing the gloom of the hut.
 
 As the door swings open, the air crackles with tension, a moment frozen in time. The  commandos’ eyes widen in shock as they catch sight of Mrs. Thao.
 
@@ -26,15 +26,15 @@ As the door swings open, the air crackles with tension, a moment frozen in time.
 
 I slacken my grip on Mrs. Thảo. She lunges forward with a guttural roar, her charred form a blur of rage and hunger. Her teeth sink into the nearest commando’s neck with a vicious ferocity, tearing through flesh and arteries. Blood spurts in a gruesome fountain, painting the air crimson as he collapses, his cries gurgling into silence.
 
-In the split second of shock that follows the savage attack, Tuyết and I seize the moment. We step forward, rifles raised, opening fire on the stunned soldiers. 
+In the split second of shock that follows the savage attack, Tuyết and I seize the moment. We step forward, rifles raised, opening fire on the stunned soldiers.
 
 The soldiers at the doorway are quickly neutralized under our rapid fire, their bodies slumping to the ground.
 
-We press on, using Mrs. Thao’s convulsing body as a shield. The sensation of bullets thudding into her is unnerving. 
+We press on, using Mrs. Thao’s convulsing body as a shield. The sensation of bullets thudding into her is unnerving.
 
-The sudden eruption of violence transforms the scene into one of chaotic carnage. Bullets whiz past, finding targets in flesh and wood alike. 
+The sudden eruption of violence transforms the scene into one of chaotic carnage. Bullets whiz past, finding targets in flesh and wood alike.
 
-We move grimly, our weapons spitting death at the unwitting soldiers. The enemy, recovering from their initial shock, returns fire with disciplined volleys. 
+We move grimly, our weapons spitting death at the unwitting soldiers. The enemy, recovering from their initial shock, returns fire with disciplined volleys.
 
 The villagers, caught in the deadly crossfire, scramble for cover. A young man, barely out of his teens, falls clutching his chest, his eyes wide with disbelief. A mother, her arms shielding her children, darts behind a crumbling wall, her prayers whispered between breaths.
 
@@ -46,7 +46,7 @@ The firefight intensifies, the enemy's fire becoming more concentrated. Bullets 
 
 As Tuyết reaches the relative safety of the hut, she turns and lays down covering fire for me. I make a break for it, sprinting with a speed I didn't know I possessed. Bullets kick up dirt around my feet, a terrifying reminder of how close death is.
 
-Reaching the hut, I dive through the doorway, rolling to a stop beside Tuyết. 
+Reaching the hut, I dive through the doorway, rolling to a stop beside Tuyết.
 
 Our respite is fleeting, the illusion of safety shattered as the rhythmic throb of the Huey's rotors grows louder, more insistent. Through the shattered window of the hut, we see the helicopter pivot in the air, its deadly armament aligning with our precarious shelter. The sight of Major Wolff, perched menacingly in the passenger seat, his cold smile chills my blood. His hand motions commandingly, a silent order to his gunner.
 
@@ -80,7 +80,7 @@ Reaching the edge of the makeshift cover, I pause, listening. The commandos' rag
 
 Tuyết edges closer, her movements a silent whisper. The commandos, too focused on their immediate front, fail to notice her approach. With the precision of a seasoned hunter, she aligns her sights on one, his head barely peeking above their dubious cover. In a heartbeat, her finger tightens on the trigger of her rifle. A shot rings out. The commando's head snaps back, his body going limp as he slumps to the ground, a life extinguished in the blink of an eye.
 
-The remaining commando, sensing the tide turning against him, makes a desperate move. He stands abruptly, revealing his last, despicable card: Tuyet’s niece, Mai, clutched in his arms, used as a human shield. The child's tears streak through the dirt on her face, her sobs piercing the post-battle silence. 
+The remaining commando, sensing the tide turning against him, makes a desperate move. He stands abruptly, revealing his last, despicable card: Tuyet’s niece, Mai, clutched in his arms, used as a human shield. The child's tears streak through the dirt on her face, her sobs piercing the post-battle silence.
 
 "Get the fuck back!" the commando barks.
 
@@ -92,25 +92,25 @@ Her eyes are fixed on the girl, her posture softened by the instinct to protect 
 
 At that moment, everything slows down. The American’s back is turned to me, his focus entirely on Tuyết and Mai. It's now or never.
 
-I inch forward, my movements barely a whisper. The commando's M16 shakes in his grip, betraying his fear and desperation.
+I inch forward, my movements barely a whisper. The commando's CAR-15 shakes in his grip, betraying his fear and desperation.
 
 As I draw near, his voice cracks, "I'll do it! I swear I'll—"
 
-Tuyết keeps her rifle lowered, her hands spread in a gesture of surrender, her eyes locked on Mai, offering silent reassurance. She's playing her role perfectly, giving our opponent a false sense of security. 
+Tuyết keeps her rifle lowered, her hands spread in a gesture of surrender, her eyes locked on Mai, offering silent reassurance. She's playing her role perfectly, giving our opponent a false sense of security.
 
 I'm close now, close enough to hear the ragged edge of fear in the commando's breath, to see the sweat bead on his brow, the tremble of his hold. The final steps I take are the quietest.
 
 With a surge of adrenaline, I swing the rifle down with all my might. The butt of the rifle connects with the commando's skull with a sickening crack, a sound that echoes sharply in the sudden silence. The force of the blow sends him stumbling forward, releasing his grip on the girl.
 
-The commando collapses to the ground, motionless, a crumpled heap of fabric and flesh. 
+The commando collapses to the ground, motionless, a crumpled heap of fabric and flesh.
 
 Mai, freed from her captor's grasp, runs towards Tuyết, who sweeps her up in her arms, her eyes wide with relief and fear.
 
 Tuyết looks at me, her eyes filled with gratitude. The girl clings to her, his small body shaking with sobs. “You’re okay, baby. I’ve got you,” she whispers to the child.
 
-In the aftermath, the stillness is shattered by the sound of boots crunching on debris. From the smoke, the survivors of my platoon emerge, their weapons trained on Tuyết, the trembling child in her arms. 
+In the aftermath, the stillness is shattered by the sound of boots crunching on debris. From the smoke, the survivors of my platoon emerge, their weapons trained on Tuyết, the trembling child in her arms.
 
-"Drop the gun now! Step away from the kid!" Lam barks, his shotgun aimed squarely at Tuyết’s head. 
+"Drop the gun now! Step away from the kid!" Lam barks, his shotgun aimed squarely at Tuyết’s head.
 
 Tuyết, her resolve hardening, sets the child gently on the ground behind her and turns to face the soldiers, her posture defiant. Her rifle, though lowered, remains in her grip.
 
@@ -118,23 +118,23 @@ I step forward, placing myself between Tuyết and the survivors of my platoon, 
 
 Their guns waver but don't lower, suspicion etched deep in their faces. Văn's eyes narrow, his grip on his rifle tightening. "Bitch is fucking VC! We can't trust her.”
 
-"Tuyết is with me," I say firmly.. 
+"Tuyết is with me," I say firmly.
 
-"Thành, what are you doing?" Hung challenges. “You’re on a first name basis with the enemy now?” 
+"Thành, what are you doing?" Hung challenges. “You’re on a first name basis with the enemy now?”
 
 “She saved my life,” I exclaim.
 
-“She what?” Hung asks, bewildered. 
+“She what?” Hung asks, bewildered.
 
 "And I saved her life," I add, my voice steady but laced with an urgency that I hope conveys the gravity of what Tuyết and I have been through. "We’d be dead without each other. Or worse."
 
-The men's eyes flick between me and Tuyết, their fingers still tense on their triggers. Tuyết stands her ground, her gaze steady and unflinching. 
+The men's eyes flick between me and Tuyết, their fingers still tense on their triggers. Tuyết stands her ground, her gaze steady and unflinching.
 
 Lâm's voice cuts through the tense silence, "And how many of our men did she kill in the ambush? How can you just stand there and defend her?"
 
 Tuyết's response is a quiet confession, her voice steady despite the weight of her words. "Yes, I fought against you. You were the enemy," she admits, her eyes never leaving Lâm's. "But the threat we face now, it doesn't care about sides. It's killing everyone, soldiers and civilians alike."
 
-Hung, the youngest member of my squad, his face smeared with dirt and streaked with sweat, looks from me to Tuyết and back again. His rifle, previously aimed with unwavering intent, lowers fractionally. "If Thành vouches for you," he says, his voice betraying a flicker of uncertainty, "then... then that's good enough for me."
+Hung, the youngest member of my squad, his face smeared with dirt and streaked with sweat, looks from me to Tuyết and back again. His rifle, previously aimed with unwavering intent, lowers fractionally. "If Corporal Thành vouches for you," he says, his voice betraying a flicker of uncertainty, "then... then that's good enough for me."
 
 I can see Lam’s resolve wavering. I meet Lâm's eyes, my expression earnest. "Look around you, Lâm. This isn't about North versus South anymore. What we're facing, it's something else entirely. It doesn't see uniforms or flags; it just destroys."
 
@@ -146,19 +146,19 @@ I meet Van's gaze squarely, my voice steady. "It's not an act. You saw her fight
 
 "One pretty face, and you've all caught a case of stupid,” Van says with contempt. “Have you forgotten what her kind did to Hiep?”
 
-Van's words hit me like a physical blow, the mention of my brother dragging up memories I've fought hard to keep at bay. 
+Van's words hit me like a physical blow, the mention of my brother dragging up memories I've fought hard to keep at bay.
 
 I lock eyes with Van. "You think I've forgotten? Every day, I carry that with me. But this... This isn't about revenge. It's about survival."
 
 “Yeah, I’m going to ensure our survival by shooting her brains out,” he counters.
 
-"You're going to make that little girl watch her aunt get shot?" I press, nodding towards the trembling child now clinging to Tuyết's leg, her small face buried in the fabric of Tuyết's trousers. 
+"You're going to make that little girl watch her aunt get shot?" I press, nodding towards the trembling child now clinging to Tuyết's leg, her small face buried in the fabric of Tuyết's trousers.
 
-“Is that the kind of man you are, Van?” What would your daughter think of her father right now?" 
+“Is that the kind of man you are, Van?” What would your daughter think of her father right now?"
 
-Van's jaw clenches, his gaze shifting between me, Tuyết, and the child. “God damn you, Thanh…” 
+Van's jaw clenches, his gaze shifting between me, Tuyết, and the child. “God damn you, Thanh…” he curses me bitterly.
 
-The standoff stretches on, a moment frozen in time, as Van wrestles with the implications of his actions. 
+The standoff stretches on, a moment frozen in time, as Van wrestles with the implications of his actions.
 
 Finally, with a barely audible sigh, Van's stance softens. The tension in his shoulders eases as the rifle lowers, the barrel pointing harmlessly to the ground.
 

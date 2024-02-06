@@ -1,5 +1,7 @@
 [\[Part 4\]](https://www.reddit.com/user/RandomAppalachian468/comments/1aie5q2/the_children_of_the_oak_walker_part_4/)
 
+[\[Part 6\]](https://www.reddit.com/user/RandomAppalachian468/comments/1akd0ue/the_children_of_the_oak_walker_part_6/)
+
 In the quiet dusty interior of the lodge storage room, Jamie sifted through another round white tube on the shelf filled with surveyor’s maps and sneezed. “Ugh, this place is worse than the shop. Does Chris really want to start a school in here?”
 
 I pawed through another thick binder filled with old water testing reports and stifled a choking cough as more clouds of dry particles wafted into my face. “No, not this room, thank God. He was hoping for the Visitor’s Center.”
