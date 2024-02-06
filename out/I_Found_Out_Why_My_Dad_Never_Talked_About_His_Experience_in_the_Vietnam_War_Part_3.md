@@ -184,7 +184,7 @@ As we stand there, grappling with the grim transformation of Mrs. Thảo, a sudd
 
 “Clear the area! Breach on my go!” a voice commands.
 
-[Part 4](https://www.reddit.com/r/nosleep/comments/1akaz81/i_found_out_why_my_dad_never_talked_about_his/)
+[Part 4](https://www.reddit.com/r/nosleep/comments/1akftjh/i_found_out_why_my_dad_never_talked_about_his/)
 
 [X](https://www.reddit.com/r/PageTurner627Horror)
 

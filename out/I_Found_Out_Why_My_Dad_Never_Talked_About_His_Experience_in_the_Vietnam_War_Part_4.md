@@ -6,7 +6,7 @@
 
 In the palpable tension that fills the cramped space of the hut, I lean in close to Tuyết, my voice a whisper. "I have an idea, but we need to act fast."
 
-With a solemn nod, she positions herself by the doorway.
+I explain my risky plan to her. With a solemn nod, she positions herself by the doorway of the hut.
 
 Tuyết takes a deep breath, then shouts towards the door, her voice cracking with feigned helplessness. "Đừng bắn! Em ra đây!" (Don't shoot! I'm coming out!)
 
@@ -68,7 +68,7 @@ I signal to the others, our eyes meeting with a shared understanding. We split, 
 
 As we advance, Lâm takes point on one flank, moving with a silent grace. He spots a commando attempting to reposition. The enemy soldier, unaware of Lâm's approach, is caught off-guard as Lâm closes the distance between them.
 
-The confrontation is sudden and brutal. The commando, surprised, tries to bring his weapon to bear, but it's too late. Lâm's remington shotgun roars with a deafening blast. The soldier is hit square in the chest, the impact throwing him backward, his life extinguished before he hits the ground. Lâm doesn't pause to watch; he's already moving, scanning for the next threat.
+The confrontation is sudden and brutal. Lâm confronts the commando at close range. The commando, surprised, tries to bring his weapon to bear, but it's too late. Lâm's remington shotgun roars with a deafening blast. The soldier is hit square in the chest, the impact throwing him backward, his life extinguished before he hits the ground. Lâm doesn't pause to watch; he's already moving, scanning for the next threat.
 
 As Tuyết and I inch closer, the sound of our adversaries' panicked whispers reaches our ears. They huddled behind the buffalo’s corpse, unaware of our approach, their attention focused on the direction of Lâm's last known position.
 
@@ -92,7 +92,7 @@ Her eyes are fixed on the girl, her posture softened by the instinct to protect 
 
 At that moment, everything slows down. The American’s back is turned to me, his focus entirely on Tuyết and Mai. It's now or never.
 
-I inch forward, my movements barely a whisper. The commando's CAR-15 shakes in his grip, betraying his fear and desperation.
+I inch forward, my movements barely a whisper. The commando's M16 shakes in his grip, betraying his fear and desperation.
 
 As I draw near, his voice cracks, "I'll do it! I swear I'll—"
 
@@ -118,7 +118,7 @@ I step forward, placing myself between Tuyết and the survivors of my platoon, 
 
 Their guns waver but don't lower, suspicion etched deep in their faces. Văn's eyes narrow, his grip on his rifle tightening. "Bitch is fucking VC! We can't trust her.”
 
-"Tuyết is with me," I say firmly.
+"Tuyết is with me," I say firmly..
 
 "Thành, what are you doing?" Hung challenges. “You’re on a first name basis with the enemy now?”
 
@@ -134,7 +134,7 @@ Lâm's voice cuts through the tense silence, "And how many of our men did she ki
 
 Tuyết's response is a quiet confession, her voice steady despite the weight of her words. "Yes, I fought against you. You were the enemy," she admits, her eyes never leaving Lâm's. "But the threat we face now, it doesn't care about sides. It's killing everyone, soldiers and civilians alike."
 
-Hung, the youngest member of my squad, his face smeared with dirt and streaked with sweat, looks from me to Tuyết and back again. His rifle, previously aimed with unwavering intent, lowers fractionally. "If Corporal Thành vouches for you," he says, his voice betraying a flicker of uncertainty, "then... then that's good enough for me."
+Hung, the youngest member of my squad, his face smeared with dirt and streaked with sweat, looks from me to Tuyết and back again. His rifle, previously aimed with unwavering intent, lowers fractionally. "If Thành vouches for you," he says, his voice betraying a flicker of uncertainty, "then... then that's good enough for me."
 
 I can see Lam’s resolve wavering. I meet Lâm's eyes, my expression earnest. "Look around you, Lâm. This isn't about North versus South anymore. What we're facing, it's something else entirely. It doesn't see uniforms or flags; it just destroys."
 
@@ -150,13 +150,13 @@ Van's words hit me like a physical blow, the mention of my brother dragging up m
 
 I lock eyes with Van. "You think I've forgotten? Every day, I carry that with me. But this... This isn't about revenge. It's about survival."
 
-“Yeah, I’m going to ensure our survival by shooting her brains out,” he counters.
+“Yeah, and I’m going to ensure our survival by blowing her brains out,” he counters.
 
 "You're going to make that little girl watch her aunt get shot?" I press, nodding towards the trembling child now clinging to Tuyết's leg, her small face buried in the fabric of Tuyết's trousers.
 
 “Is that the kind of man you are, Van?” What would your daughter think of her father right now?"
 
-Van's jaw clenches, his gaze shifting between me, Tuyết, and the child. “God damn you, Thanh…” he curses me bitterly.
+Van's jaw clenches, his gaze shifting between me, Tuyết, and the child. “God damn you, Thanh…”
 
 The standoff stretches on, a moment frozen in time, as Van wrestles with the implications of his actions.
 
@@ -182,9 +182,9 @@ I hold up his dog tags, flipping them over in my hands. The cold metal feels hea
 
 I begin to search his pockets, methodical and thorough. Aside from a few crumpled bills and a Zippo lighter, there's little of interest until my fingers close around a small, worn photograph.
 
-Pulling it out, the image that greets me is striking. It’s Wright, his arms wrapped around a young woman in an embrace. They're smiling, lost in a moment of joy. It strangely humanizes him.
+Pulling it out, the image that greets me is striking. It’s Wright, his arms wrapped around a Vietnamese woman in an embrace. They're smiling, lost in a moment of joy. It strangely humanizes him.
 
-As we turn our prisoner over to check for concealed weapons, I catch sight of a tattoo on his bicep. It's a macabre image: a smiling skull, blood dripping from its jaws, adorned with a green beret. The letters ‘MACV-SOG’ are etched in bold underneath. It's the name of an organization I've only heard whispered about in hushed tones.
+As we turn our prisoner over to check for concealed weapons, I catch sight of a tattoo on his bicep. It's a macabre image: a smiling skull, blood dripping from its jaws, adorned with a green beret. The letters ‘MACV-SOG’ are etched in bold underneath. It's the name of a shadowy organization I've only heard whispered about in hushed tones.
 
 Rumored to be directly run by the American CIA, their operations are the stuff of ghost stories among the rank and file—missions deep into enemy territory, assassination squads, psychological warfare that know no bounds. The brutality and heartlessness of their actions are nightmare fuel, even among those of us accustomed to the horrors of war.
 

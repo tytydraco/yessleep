@@ -250,7 +250,7 @@ As the figures surround us, the sniper and I are inexorably pushed back to back,
 
 [Part 3](https://www.reddit.com/r/nosleep/comments/1ag5yis/i_found_out_why_my_dad_never_talked_about_his/)
 
-[Part 4](https://www.reddit.com/r/nosleep/comments/1akaz81/i_found_out_why_my_dad_never_talked_about_his/)
+[Part 4](https://www.reddit.com/r/nosleep/comments/1akftjh/i_found_out_why_my_dad_never_talked_about_his/)
 
 [X](https://www.reddit.com/r/PageTurner627Horror)
 

@@ -112,10 +112,9 @@ The silence between us is suffocating, a tangible presence in the cramped tunnel
 
 I hum a tune under my breath, trying to distract myself from the oppressive atmosphere of the tunnel and the haunting moans that seem to claw at the very air around us.
 
-For a long time, the sniper remains silent, her expression unreadable as she listens to the faint hum.   
-Finally, she speaks, her voice low, cutting through the melody. "What song is that?" she asks.
+For a long time, the sniper remains silent, her expression unreadable as she listens to the faint hum.Finally, she speaks, her voice low, cutting through the melody. "What song is that?" she asks.
 
-"Just a song I heard on the radio," I shrug. 
+"Just a song I heard on the radio," I shrug.
 
 "It's...nice," she admits reluctantly.
 
@@ -197,7 +196,7 @@ Their guns do not cease until the last man lies still, his pleas for mercy drown
 
 [Part 3](https://www.reddit.com/r/nosleep/comments/1ag5yis/i_found_out_why_my_dad_never_talked_about_his/)
 
-[Part 4](https://www.reddit.com/r/nosleep/comments/1akaz81/i_found_out_why_my_dad_never_talked_about_his/)
+[Part 4](https://www.reddit.com/r/nosleep/comments/1akftjh/i_found_out_why_my_dad_never_talked_about_his/)
 
 [X](https://www.reddit.com/r/PageTurner627Horror)
 
