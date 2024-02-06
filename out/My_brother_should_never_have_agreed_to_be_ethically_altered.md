@@ -196,9 +196,9 @@ She considered me coolly. “Your brother is one of first people to undergo a re
 
 “That’s not my brother!” I didn’t like her superior attitude. “Shane has never stood still for more than ten seconds in my entire life—look at him!” Shane hadn’t moved an inch from where the guard that was escorting him stopped him when we walked up. He looked over towards me and Dr. Kocik whenever he heard the word “Shane,” but then, realizing we weren’t speaking directly to him, turned his head straight-forward again and stared blankly into space.
 
-“You need to lower your voice.” She bore an expression of annoyance. “I understand that the effects of the process may be shocking at first, but you’ll see, in time, that he’s better off this way. You have to remember that your brother committed a heinous crime and likely would have done something similar in the future had we let him out via the normal process. In any case, the effects cannot be reversed—what we need to discuss now is the path forward.” 
+“You need to lower your voice.” She bore an expression of annoyance. “I understand that the effects of the process may be shocking at first, but you’ll see, in time, that he’s better off this way. You have to remember that your brother committed a heinous crime and likely would have done something similar in the future had we let him out via the normal practice. In any case, the effects cannot be reversed—what we need to discuss now is the path forward.” 
 
-“Fuck you, lady!” I was seething. “You don’t know shit about him—he was innocent—he was a good man. And what do you mean ‘the effects can’t be reversed.’ You change him back—change him back now! I don’t care if he sits in here for the rest of his life, at least he’ll be himself.” 
+“Fuck you, lady!” I was seething. “You don’t know shit about him—he was innocent—he was a good man. And what do you mean ‘the effects can’t be reversed’? You change him back—change him back now! I don’t care if he sits in here for the rest of his life, at least he’ll be himself.” 
 
 She was starting to mark some things off on a clipboard and I could tell was only half-listening to me. Looking up, she began, “Again, the process is irreversible, and you’ll find that your brother signed a binding agreement to participate in this trial. He’s been evaluated over the last several weeks by medical staff and government officials and everyone is on board with moving forward with Phase II—public reintroduction. At this point, you have two options. 
 
@@ -230,9 +230,9 @@ When we arrived at the apartment complex and parked the car, he was still snorin
 
 He turned to look at me, but didn’t reply. 
 
-“Hey, we’re home—you can get out of the car now and we can go inside.” I wondered how much of his behavior was due to the "alteration" and how much might be due to him having been in prison for ten-years and always having to be told what to do. 
+“Hey, we’re home—you can get out of the car now and we can go inside.” I wondered how much of his behavior was due to the "alteration" and how much might be due to him having been in prison for ten years and always having to be told what to do. 
 
-“Okay.” His vocal cords made the sound, but—it’s hard to describe—it wasn’t *his* voice. I know that doesn’t make much sense, but I’ve heard that voice for twenty-four years—I know the quality, the cadence, the inflection; it just wasn’t him. 
+“Okay.” His vocal cords made the sound, but—it’s hard to describe—it wasn’t *his* voice. I know that doesn’t make much sense, but I’ve heard that voice for twenty-four years—I know the quality, the cadence, the inflection; it just wasn’t his. 
 
 Mom had already given up. She’d started crying on the drive home and the minute we parked she’d run upstairs—I knew to go hit the bottle, or maybe something stronger. 
 
@@ -272,7 +272,9 @@ I was happy to see that he at least knew who he was and who I was, but this was 
 
 “Who did you lose your virginity to and where did it happen?”
 
-“Elyse Sherman and in her parents’ basement.” Now this story was one that Shane and I had laughed about often. Elyse’s father had come downstairs while they were in the middle of “the deed” and he chased Shane out of the house with Shane’s pants around his ankles. It’d woken the neighbors and several of them got an eyeful of Shane’s “business” while he desperately tried to pull his pants up and dive back into his car. 
+“Elyse Sherman and in her parents’ basement.” 
+
+Now this story was one that Shane and I had laughed about often. Elyse’s father had come downstairs while they were in the middle of “the deed” and he chased Shane out of the house with Shane’s pants around his ankles. It’d woken the neighbors and several of them got an eyeful of Shane’s “business” while he desperately tried to pull his pants up and dive back into his car. 
 
 But this time, he relayed the information with no humor—no crack of a smile remembering the absurdity of it all. The information was there, in his head, but it was as if he had no connection to it. I realized that they hadn’t removed his ‘criminal tendencies’ as they told him they were going to do—they’d removed *him*. I don’t know how they did it, and at the time I still wasn’t sure what they’d done, but I knew that he wasn’t there anymore. Shane’s body was sitting right in front of me, but my brother had died somewhere in that prison.
 
@@ -376,7 +378,7 @@ My eyelids sagged and I collapsed back onto the bed—I tried to fight it, but e
 
 The next day, I didn’t wake up until noon. Shane had already left for work and I had six missed calls and a flurry of texts from my manager asking why I hadn’t shown up for my shift. 
 
-I played the events of the night before back in my mind and tried to tell myself it was a dream—that there was no way it could be real. But when I looked over at Shane’s bed, I saw there were deep gouges in the wall behind it—gouges that looked like they’d been made by massive, clawed fingers. 
+I played the events of the night before back in my mind and tried to tell myself it was a dream—that there was no way it could be real. But when I looked over at Shane’s bed, I saw there were deep gouges in the wall behind it—gouges that looked like they’d been made by massive, clawed hands. 
 
 Something clicked into place—I formed a theory on what they’d done to Shane at the prison.
 
