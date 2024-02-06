@@ -92,7 +92,7 @@ Her eyes are fixed on the girl, her posture softened by the instinct to protect 
 
 At that moment, everything slows down. The American’s back is turned to me, his focus entirely on Tuyết and Mai. It's now or never.
 
-I inch forward, my movements barely a whisper. The commando's M16 shakes in his grip, betraying his fear and desperation.
+I inch forward, my movements barely a whisper. The commando's CAR-15 shakes in his grip, betraying his fear and desperation.
 
 As I draw near, his voice cracks, "I'll do it! I swear I'll—"
 
@@ -106,7 +106,7 @@ The commando collapses to the ground, motionless, a crumpled heap of fabric and 
 
 Mai, freed from her captor's grasp, runs towards Tuyết, who sweeps her up in her arms, her eyes wide with relief and fear.
 
-Tuyết looks at me, her eyes filled with gratitude. The girl clings to her, his small body shaking with sobs. “You’re okay, baby. I’ve got you,” she whispers to the child.
+Tuyết looks at me, her eyes filled with gratitude. The girl clings to her, her small body shaking with sobs. “You’re okay, baby. I’ve got you,” she whispers to the child.
 
 In the aftermath, the stillness is shattered by the sound of boots crunching on debris. From the smoke, the survivors of my platoon emerge, their weapons trained on Tuyết, the trembling child in her arms.
 
@@ -134,7 +134,7 @@ Lâm's voice cuts through the tense silence, "And how many of our men did she ki
 
 Tuyết's response is a quiet confession, her voice steady despite the weight of her words. "Yes, I fought against you. You were the enemy," she admits, her eyes never leaving Lâm's. "But the threat we face now, it doesn't care about sides. It's killing everyone, soldiers and civilians alike."
 
-Hung, the youngest member of my squad, his face smeared with dirt and streaked with sweat, looks from me to Tuyết and back again. His rifle, previously aimed with unwavering intent, lowers fractionally. "If Thành vouches for you," he says, his voice betraying a flicker of uncertainty, "then... then that's good enough for me."
+Hung, the youngest member of my squad, his face smeared with dirt and streaked with sweat, looks from me to Tuyết and back again. His rifle, previously aimed with unwavering intent, lowers fractionally. "If Corporal Thành vouches for you," he says, his voice betraying a flicker of uncertainty, "then... then that's good enough for me."
 
 I can see Lam’s resolve wavering. I meet Lâm's eyes, my expression earnest. "Look around you, Lâm. This isn't about North versus South anymore. What we're facing, it's something else entirely. It doesn't see uniforms or flags; it just destroys."
 
@@ -182,7 +182,7 @@ I hold up his dog tags, flipping them over in my hands. The cold metal feels hea
 
 I begin to search his pockets, methodical and thorough. Aside from a few crumpled bills and a Zippo lighter, there's little of interest until my fingers close around a small, worn photograph.
 
-Pulling it out, the image that greets me is striking. It’s Wright, his arms wrapped around a Vietnamese woman in an embrace. They're smiling, lost in a moment of joy. It strangely humanizes him.
+Pulling it out, the image that greets me is striking. It’s Wright, his arms wrapped around a young woman in an embrace. They're smiling, lost in a moment of joy. It strangely humanizes him.
 
 As we turn our prisoner over to check for concealed weapons, I catch sight of a tattoo on his bicep. It's a macabre image: a smiling skull, blood dripping from its jaws, adorned with a green beret. The letters ‘MACV-SOG’ are etched in bold underneath. It's the name of a shadowy organization I've only heard whispered about in hushed tones.
 
