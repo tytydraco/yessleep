@@ -1,4 +1,4 @@
-It all happened one night, maybe a decade ago, with me (CJ) and two of my friends, Katie and Sarah. We were all in our early twenties, borderline nocturnal, and all always itching for some sort of fun late night adventure.
+It all happened one night, maybe a decade ago, with me (CJ) and two of my friends, Katie and Sarah*. We were all in our early twenties, borderline nocturnal, and all always itching for some sort of fun late night adventure.
 
 So of course when one warm late spring night Katie offered up the suggestion for us to go tromp through the woods of a local park, me and Sarah were all too happy to join in. We made sure we had flash lights, water, pocket knives and some smokes, and made our way into the woods, making sure to park about a half mile away as to not draw attention from local authorities. Everything was going well enough, we went into the woods, and paused in a clearing with mostly mud as the floor.
 
@@ -39,3 +39,5 @@ We were interrupted, though, by the sound of dirt bikes.
 All of a sudden, the three of us felt the air get thick, it felt like static as goosebumps raised every last body hair we had. There was this feeling in the air for us to leave immediately, but not to run because we would have started a chase. Quietly and quickly, we turned and left the woods. 
 
 On the way out, Katie revealed that she saw something with a white face and black, empty eyes peer out from behind a tree before we realized it was time to go. Once we left the woods, we saw that face again at the edge of the trees. We smudged ourselves immediately once we got home, and thankfully were not followed. After some time to calm down and talk, we realized that the sound of those dirt bikes could have been a way to lure us back to that clearing, since that was the direction we were headed, the ghoul playing on our sense of curiosity and desire to run amok. I can imagine some other hikers may not have been so fortunate.
+
+ETA: *names have been changed to protect privacy and whatnot 
