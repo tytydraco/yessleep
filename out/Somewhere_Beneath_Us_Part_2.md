@@ -1,4 +1,4 @@
-\[[Part 1](https://www.reddit.com/r/nosleep/comments/1ae4emt/somewhere_beneath_us_part_1/?utm_source=share&utm_medium=web2x&context=3)\]
+[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1ae4emt/somewhere_beneath_us_part_1/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) \~ [{Next Part}](https://www.reddit.com/r/nosleep/comments/1aht75m/somewhere_beneath_us_part_3/?utm_source=share&utm_medium=web2x&context=3)
 
 &#x200B;
 
@@ -300,4 +300,4 @@ I hadn't realized how caught up in the memory I had gotten. I said nothing but b
 
 &#x200B;
 
-[\[Part 3\]](https://www.reddit.com/r/nosleep/comments/1aht75m/somewhere_beneath_us_part_3/?utm_source=share&utm_medium=web2x&context=3) \~ [\[Part 4\]](https://www.reddit.com/r/nosleep/comments/1aiy2j3/somewhere_beneath_us_part_4/?utm_source=share&utm_medium=web2x&context=3)
+[{Next Part}](https://www.reddit.com/r/nosleep/comments/1aht75m/somewhere_beneath_us_part_3/?utm_source=share&utm_medium=web2x&context=3)

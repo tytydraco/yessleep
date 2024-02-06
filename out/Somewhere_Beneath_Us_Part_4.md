@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/1ae4emt/somewhere_beneath_us_part_1/?utm_source=share&utm_medium=web2x&context=3) \~ [Part 2](https://www.reddit.com/r/nosleep/comments/1agqawr/somewhere_beneath_us_part_2/?utm_source=share&utm_medium=web2x&context=3) \~ [Part 3](https://www.reddit.com/r/nosleep/comments/1aht75m/somewhere_beneath_us_part_3/?utm_source=share&utm_medium=web2x&context=3)
+[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1aht75m/somewhere_beneath_us_part_3/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web2x&context=3)
 
 &#x200B;
 
@@ -26,7 +26,7 @@ As the world grew dimmer and dimmer outside, the anxiety in my chest grew as wel
 
 Just gently slid her arms around my waist and lay her head on my shoulder. I turned and kissed her head. "See you soon, Bea..."
 
-With that, everyone shuffled into the bedroom, shut the door, and locked it. I said a quick prayer that this wasn't our last time seeing them. Daniel and I then made our way to the kitchen door. We both placed our hands on the pantry. 
+With that, everyone shuffled into the bedroom, shut the door, and locked it. I said a quick prayer that this wasn't our last time seeing them. Daniel and I then made our way to the kitchen door. We both placed our hands on the pantry.
 
 "Are you sure you want to do this, kid? There's no going back..."
 
@@ -38,10 +38,10 @@ Together, we silently slid the pantry to the side and swung open the door.
 
 The scent of mildew and age hit us as we slipped into the old, empty yellow room. The air was cold and stale, carrying only the sound of my and Daniel's shallow breathing. The window on my right was caked with dust and moisture stains; unseen beyond it was the sinister dark hills outside. The orange shag carpet had been matted down with a perfect path from the past years of a routine I would no longer run, now accompanied by a dark crimson stain that smeared to the farthest wall opposite from me. Another door hung open, revealing the darkness beyond. No matter how many times I had seen that open doorway, the dread never went away.
 
-Together, Daniel and I started forward, making sure not to make a sound. We reached the doorway and clicked on the wind-up flashlight. We stepped onto the balcony in the room beyond and shone the light into the lounge below, making sure the thing wasn't there waiting for us. When we felt the coast was clear, we turned to one another, made brief eye contact, then crept down the stairs and into the darkness beneath us.  
-  
-  
-\~  
+Together, Daniel and I started forward, making sure not to make a sound. We reached the doorway and clicked on the wind-up flashlight. We stepped onto the balcony in the room beyond and shone the light into the lounge below, making sure the thing wasn't there waiting for us. When we felt the coast was clear, we turned to one another, made brief eye contact, then crept down the stairs and into the darkness beneath us.
+
+\~
+
 *Knock Knock Knock... Knock.*
 
 The signal was erratic and frantic, and I could hear the knuckles of whoever it was accidentally hitting the door more than intended as their hand shook. Benjamin stepped forward carefully and slowly opened the barrier. Daniel stood waiting in the hall, covered in sweat and clutching a laundry basket filled with various objects. He was alone.
@@ -76,7 +76,8 @@ He didn't push further.
 
 "Do you think that thing... could it have?" Bea asked, gesturing to the basket.
 
-A chill ran down my spine at the thought. If what she was implying was correct, then the creature downstairs had known we were hungry. It knew what we needed to eat soon, or we would die.  
+A chill ran down my spine at the thought. If what she was implying was correct, then the creature downstairs had known we were hungry. It knew what we needed to eat soon, or we would die.
+
 Jan didn't care about the specifics of where the stuff came from. Food was food. She began unloading the basket and separating out the contents. Goldfish, fruit snacks, old granola bars, and a box of Capri-sun.
 
 "This is all of it." She spoke. She popped open the box of granola bars and turned to us. "There's only twelve in here. I know we're all hungry, but everybody just takes one. We have to make sure this lasts. The fruit snacks we can probably ration out longer. It's not much, but it's something."
@@ -117,10 +118,11 @@ I laughed, "He's just scared. I'm not sure anyone on earth has even been in a si
 
 "You seem to be handling yourself well."
 
-"You do too."  
-She chuckled. "Maybe on the outside, but on the inside, I'm freaking out." 
+"You do too."
 
-I laughed. I was too. "You could have fooled me. You're so confident and calm all of the time. It's honestly impressive."
+She chuckled. "Maybe on the outside, but on the inside, I'm freaking out."
+
+I laughed. I was too. "You could have fooled me. You're so confident and calm all of the time. It's honestly impressive."
 
 "Ha. Just get to know me a bit more. You'll start to see the holes in that statement."
 
@@ -128,15 +130,15 @@ I laughed. I was too. "You could have fooled me. You're so confident and calm a
 
 "Yeah, unfortunately, I think you're right." After a beat of silence, she looked at me, "I'm glad you're here, Joel. Well, I'm not glad that you're here, but I'm thankful. You, Bea, and Ethan have really helped me process the last couple of weeks."
 
-"Oh, um, thank you," I said nervously. I hadn't expected that. "I'm happy to have you too." She flashed me a smile, and I felt my heart flutter for a moment. 
+"Oh, um, thank you," I said nervously. I hadn't expected that. "I'm happy to have you too." She flashed me a smile, and I felt my heart flutter for a moment.
 
 'Are you kidding me?' I remembered thinking, 'Now is not the time to start falling for someone.' I guess I didn't stick to that way of thinking as well as I had hoped. I suppose it was something I had always been bad at. "You should, um, come back to the room. I think they found an old Monopoly board in that basket."
 
 "Ugh. Finally, something to do around here." She joked as she joined my side. Together, we headed back to join the others.
 
-  
-\~  
-The Thing thrashed angrily against the door. Luckily, beneath the house was just as indestructible as above. I sat at an old decaying table in the dark room, sketching out the path we had taken so far to get here. I had almost forgotten how nice having furniture was. So far, from the yellow room, we had headed down the first flight of steps. Surrounded by the suffocating darkness, I thought back to what the nameless man had said about the basement that first day. He had been right. This place was strange, even by the house's standards. 
+\~
+
+The Thing thrashed angrily against the door. Luckily, beneath the house was just as indestructible as above. I sat at an old decaying table in the dark room, sketching out the path we had taken so far to get here. I had almost forgotten how nice having furniture was. So far, from the yellow room, we had headed down the first flight of steps. Surrounded by the suffocating darkness, I thought back to what the nameless man had said about the basement that first day. He had been right. This place was strange, even by the house's standards.
 
 The rooms looked like they had been cut straight out of another structure and placed down here with no rhyme or reason. Some looked like vacant offices, others looked like old 70's basements, and a few looked like old boiler rooms, complete with rusty pipes and busted furnaces. We had been creeping through for about fifteen minutes when we reached the second set of stairs. They looked to be a fire escape from some sort of skyscraper. Daniel looked at me in the dark as we prepared to go down. I had never even seen the last few rooms we had just walked through, but for him, this was the furthest he had ever been. Luckily the creature was nowhere to be found. At least not yet. Still, we were sure to tread lightly, especially from this point on. From here forward, it was all new territory.
 
@@ -156,7 +158,8 @@ Just then, I caught something to my left. Movement down one of the corridors. I 
 
 Daniel wasted no time by walking; he leaped straight over the desk and dashed inside. I whipped around and slammed the door shut, jamming the lock into place. Not even a second later, I heard the thing collide with the door.
 
-We both panted before Daniel chuckled to himself, "I guess some things never change, huh?"  
+We both panted before Daniel chuckled to himself, "I guess some things never change, huh?"
+
 I finished drawing the breakroom, then closed the notebook and slipped it back into the bag. By this point, the creature had finally given up and crawled off somewhere down the halls. We still decided that it would be best to stay the night in the room.
 
 "Andi must have marked this place on her way through," I said. "I wonder if she did that with more rooms."
@@ -187,7 +190,8 @@ The black claw of the woman slid effortlessly into another ballerina's torso, pi
 
 "Did you not see the door?" He whispered.
 
-"What door?"  
+"What door?"
+
 "The door behind them."
 
 I glanced back around the corner and suddenly saw what he meant. There was a doorway behind them, and unfortunately, a sign to go with it.
@@ -248,4 +252,4 @@ Just then, I saw something moving in the reflection of the mirror behind Daniel.
 
 "I see it."
 
-"Run."  
+"Run."

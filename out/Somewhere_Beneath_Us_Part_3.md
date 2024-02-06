@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/1ae4emt/somewhere_beneath_us_part_1/?utm_source=share&utm_medium=web2x&context=3) \~ [Part 2](https://www.reddit.com/r/nosleep/comments/1agqawr/somewhere_beneath_us_part_2/?utm_source=share&utm_medium=web2x&context=3)
+[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1agqawr/somewhere_beneath_us_part_2/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) \~ [{Next Part}](https://www.reddit.com/r/nosleep/comments/1aiy2j3/somewhere_beneath_us_part_4/?utm_source=share&utm_medium=web2x&context=3)
 
 &#x200B;
 
@@ -456,4 +456,4 @@ We only had a little over 24 hours of guaranteed safety left. We'd better enjoy 
 
 &#x200B;
 
-[Part 4](https://www.reddit.com/r/nosleep/comments/1aiy2j3/somewhere_beneath_us_part_4/?utm_source=share&utm_medium=web2x&context=3)
+[{Next Part}](https://www.reddit.com/r/nosleep/comments/1aiy2j3/somewhere_beneath_us_part_4/?utm_source=share&utm_medium=web2x&context=3)

@@ -376,4 +376,4 @@ It hadn't seemed important at the time, but after we realized that we might be a
 
 I like to hope that wherever Hillary is now, God rest her soul, she knows that she really did help us in the end...
 
-[\[Part 2\]](https://www.reddit.com/r/nosleep/s/rDG22ArlNF) [\[Part 3\]](https://www.reddit.com/r/nosleep/comments/1aht75m/somewhere_beneath_us_part_3/?utm_source=share&utm_medium=web2x&context=3) [\[Part 4\]](https://www.reddit.com/r/nosleep/comments/1aiy2j3/somewhere_beneath_us_part_4/?utm_source=share&utm_medium=web2x&context=3)
+ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) \~ [{Next Part}](https://www.reddit.com/r/nosleep/comments/1agqawr/somewhere_beneath_us_part_2/?utm_source=share&utm_medium=web2x&context=3)
