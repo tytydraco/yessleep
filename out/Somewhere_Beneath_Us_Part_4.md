@@ -1,4 +1,4 @@
-[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1aht75m/somewhere_beneath_us_part_3/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web2x&context=3)
+[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1aht75m/somewhere_beneath_us_part_3/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web2x&context=3) \~ [{Next Part}](https://www.reddit.com/r/nosleep/comments/1ajzxa6/somewhere_beneath_us_part_5/?utm_source=share&utm_medium=web2x&context=3)
 
 &#x200B;
 
@@ -253,3 +253,7 @@ Just then, I saw something moving in the reflection of the mirror behind Daniel.
 "I see it."
 
 "Run."
+
+&#x200B;
+
+[{Next Part}](https://www.reddit.com/r/nosleep/comments/1ajzxa6/somewhere_beneath_us_part_5/?utm_source=share&utm_medium=web2x&context=3)
