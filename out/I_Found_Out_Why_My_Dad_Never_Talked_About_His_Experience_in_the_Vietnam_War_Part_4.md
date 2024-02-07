@@ -186,7 +186,7 @@ I begin to search his pockets, methodical and thorough. Aside from a few crumple
 
 Pulling it out, the image that greets me is striking. It’s Wright, his arms wrapped around a young woman in an embrace. They're smiling, lost in a moment of joy. It strangely humanizes him.
 
-As we turn our prisoner over to check for concealed weapons, I catch sight of a tattoo on his bicep. It's a macabre image: a smiling skull, blood dripping from its jaws, adorned with a green beret. The letters ‘MACV-SOG’ are etched in bold underneath. It's the name of a shadowy organization I've only heard whispered about in hushed tones.
+As we turn our prisoner over to check for concealed weapons, I catch sight of a tattoo on his bicep. It's a macabre image: a smiling skull, blood dripping from its jaws, adorned with a green beret. The letters ‘MACV-SOG’ are inked in bold underneath. It's the name of a shadowy organization I've only heard whispered about in hushed tones.
 
 Rumored to be directly run by the American CIA, their operations are the stuff of ghost stories among the rank and file—missions deep into enemy territory, assassination squads, psychological warfare that know no bounds. The brutality and heartlessness of their actions are nightmare fuel, even among those of us accustomed to the horrors of war.
 
