@@ -23,7 +23,7 @@ The moment those granules hit his skin, his literally face caught on fire and he
 
 With nothing but sheer will and what remaining adrenaline I had, I dove out into the hallway and dragged myself down the hall. I made it to the end to the glass doors that I knew would lead to the blood bank. 
 
-I pondered for just a moment, but I knew I had no other choice as I smashed the case in and grabbed a handful of IV bags. I reasoned that this blood was willfully donated, albeit for not this reason, but certainly not via violent methods. I immediately started chugging on the first one I could open. The first taste almost made me hurl, but within seconds the blood began to taste like the most beautiful mix of both honey and the finest steak you ever partaken in. 
+I pondered for just a moment, but I knew I had no other choice as I smashed the case in and grabbed a handful of IV bags. I reasoned that this blood was willfully donated, albeit for not this reason, but certainly not via violent methods. I immediately started chugging on the first one I could open. The first taste almost made me hurl, but within seconds the blood began to taste like the most beautiful mix of both honey and the finest steak you’ve partaken of
 
 When it was all said and done, I had downed close to a dozen bags but realized that I was now standing fully upright and felt like I could run a 5k. 
 
