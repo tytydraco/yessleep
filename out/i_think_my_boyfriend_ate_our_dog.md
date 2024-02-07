@@ -28,13 +28,13 @@ i went downstairs and again the fridge light was on. I leaned up against the cor
 
 i pinched myself. it hurt. not dreaming.
 
-after a minute or two, Steve stood up, pet Charlie on the head, and closed the fridge. he took him outside, and that was when I saw 3 turkey remains on the kitchen floor. they were pretty fresh, probably from Steve's last hunting trip (he goes once a month and keeps the meat in a fridge/freezer in the garage). Next to the remains was half a block of Steve's favorite cheese and a bunch of vegetable entrails.
+after a minute or two, Steve stood up, pet Charlie on the head, and closed the fridge. he took him outside, and that was when I saw the scattered remains of 3 turkeys on the kitchen floor. they were pretty fresh, probably from Steve's last hunting trip (he goes once a month and keeps the meat in a fridge/freezer in the garage). Next to the remains was half a block of Steve's favorite cheese and a bunch of vegetable entrails.
 
 I ran, well more like quickly stumbled, upstairs panicking, trying to put all the pieces together in my head and get to the window (the same one that was open minutes beforehand) overlooking the backyard. I looked down and spotted Charlie walking around sniffing as he always does looking for the best spot to pee. Steve was digging a hole in between some bushes. once he was done digging the hole, he threw in it everything I saw on the kitchen floor. he then brought Charlie inside and they both went back to bed.
 
-every night since I've watched. it's the same routine. he feeds Charlie, they go outside, Steve throws the evidence in the hole until it's full then digs another one, they come back to bed. Steve has been acting like everything is normal, in fact he tells me I haven't been seeming like myself lately. can you believe that? me? what about YOU, Steve?
+every night since I've watched. it's the same routine. he feeds Charlie, they go outside, Steve throws the remains in the hole until it's full then digs another one, they come back to bed. Steve has been acting like everything is normal, in fact he tells me I haven't been seeming like myself lately. can you believe that? me? what about YOU, Steve?
 
-last week Charlie went missing. he went missing the same day Steve came back from his monthly hunting trip with new deer meat i just HAD to try.
+last week Charlie went missing. he went missing the same day Steve came back from his monthly hunting trip with new "deer" meat i just HAD to try.
 
 when Charlie went missing, i let him out back around noon and went in to wash a few dishes while he did his business, but when I came back outside, he was gone. i spent all day looking for him and when I came back to take a shower before putting up the rest of the fliers I had made, that's when Steve came back from his trip. well I told him I was trying a new no red meat diet.
 
@@ -60,13 +60,13 @@ for tonight? I'm sweating by this point, but I put on my slippers and followed h
 
 "eat your turkey Sarah."
 
-I grabbed the knife off the counter and ran to the back door, opening it as fast as I could. Steven came directly after me, and I turned around holding out the knife.
+I grabbed the knife off the counter and ran to the back door, opening it as fast as I could. Steve came directly after me, and I turned around holding out the knife.
 
 "I know you ate him! why are you doing this?"
 
 "I don't know what you're talking about, Sarah."
 
-"I KNOW YOU ATE CHARLIE!"
+"I KNOW YOU ATE CHARLIE STEVE! you.. you made me eat him too."
 
 "you're acting crazy, Sarah. come back inside."
 
@@ -86,4 +86,4 @@ i booked it for the gate and made it out. i ran 4 blocks down to Steve's cousin'
 
 "yeah love you too, Sam."
 
-I took Sam's bike 3 towns over to my mom's. Steven's been calling me every day. He keeps leaving voicemails and text messages telling me that we need to talk and that I should think about seeing a therapist for these "episodes" that I've been having. he keeps asking me where I went after I left Sam's. I'm not going to answer. i don't know what to do, and I have no proof. i don't know if I'm safe. will the police even believe me? my mom doesn't think they will. please tell me I'm not crazy.
+I took Sam's bike 3 towns over to my mom's. Steve's been calling me all day. He keeps leaving voicemails and text messages telling me that we need to talk and that I should think about seeing a therapist for these "episodes" that I've been having. he keeps asking me where I went after I left Sam's. I'm not going to answer. i don't know what to do, and I have no proof. i don't know if I'm safe. will the police even believe me? my mom doesn't think they will. please tell me I'm not crazy.
