@@ -32,7 +32,7 @@ after a minute or two, Steve stood up, pet Charlie on the head, and closed the f
 
 I ran, well more like quickly stumbled, upstairs panicking, trying to put all the pieces together in my head and get to the window (the same one that was open minutes beforehand) overlooking the backyard. I looked down and spotted Charlie walking around sniffing as he always does looking for the best spot to pee. Steve was digging a hole in between some bushes. once he was done digging the hole, he threw in it everything I saw on the kitchen floor. he then brought Charlie inside and they both went back to bed.
 
-every night since I've watched. it's the same routine. he feeds Charlie, they go outside, Steve throws the remains in the hole until it's full then digs another one, they come back to bed. Steve has been acting like everything is normal, in fact he tells me I haven't been seeming like myself lately. can you believe that? me? what about YOU, Steve?
+every night since, I've watched. it's the same routine. he feeds Charlie, they go outside, Steve throws the remains in the hole until it's full then digs another one, they come back to bed. Steve has been acting like everything is normal, in fact he tells me I haven't been seeming like myself lately. can you believe that? me? what about YOU, Steve?
 
 last week Charlie went missing. he went missing the same day Steve came back from his monthly hunting trip with new "deer" meat i just HAD to try.
 
