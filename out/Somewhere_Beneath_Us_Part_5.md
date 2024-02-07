@@ -1,4 +1,4 @@
-[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1aiy2j3/somewhere_beneath_us_part_4/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web2x&context=3)
+[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1aiy2j3/somewhere_beneath_us_part_4/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web2x&context=3) \~ [{Next Part}](https://www.reddit.com/r/nosleep/comments/1akua8q/somewhere_beneath_us_part_6/?utm_source=share&utm_medium=web2x&context=3)
 
 &#x200B;
 
@@ -351,3 +351,7 @@ A deep feeling of dread formed in my stomach. Did she mean Andi?
 "Joel," Daniel called out. "We should go..." He said, holding up the bloody cloth he was holding to Ethan's arm.
 
 "Oh, shit, Ethan!" I rushed over to the stairs, and the swan followed. As I stepped through, I saw the light behind me suddenly growing dim. I turned back to see the woman gently closing it behind us. I met her eyes one last time before the door shut, and then, we were all four left alone in the darkness.
+
+&#x200B;
+
+[{Next Part}](https://www.reddit.com/r/nosleep/comments/1akua8q/somewhere_beneath_us_part_6/?utm_source=share&utm_medium=web2x&context=3)

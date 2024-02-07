@@ -104,6 +104,8 @@ With a surge of adrenaline, I swing the rifle down with all my might. The butt o
 
 The commando collapses to the ground, motionless, a crumpled heap of fabric and flesh.
 
+Without hesitation, I kick his weapon away, sending the CAR-15 skittering across the dirt, far out of his reach. My own rifle remains trained on him, the barrel unwavering.
+
 Mai, freed from her captor's grasp, runs towards Tuyết, who sweeps her up in her arms, her eyes wide with relief and fear.
 
 Tuyết looks at me, her eyes filled with gratitude. The girl clings to her, her small body shaking with sobs. “You’re okay, baby. I’ve got you,” she whispers to the child.
