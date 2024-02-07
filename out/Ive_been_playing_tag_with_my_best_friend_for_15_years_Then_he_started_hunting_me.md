@@ -68,17 +68,11 @@ He was working the next day, so I promised not to disturb him. I hd a long drive
 
 A week later, I thought I would be sick again, but for a very different reason.
 
-Back at home, I was prepping for a shoot. BBC News was murmuring away on the TV as background noise when something caught my eye. A picture of Cliff, Olivia and Rosie had appeared on the TV, a happy family shot of them cuddled up in front of Niagara Falls from a trip a few years ago. My stomach tangled in knots as I scrabbled for the remote and turned up the volume.
+Back at home, I was prepping for a shoot, when the police called. Did I know I’d spent the night with a murderer? 
 
-"Police are urging anyone with information to get in contact..." said the news presenter. "
+Cliff had stabbed Olivia and Rosie the morning before I visited. One minute, he was having breakfast with his family; the next, he was puncturing holes into both of them with a filet knife. Their blood was still oozing over the kitchen tiles by the time I arrived just a few hours later. He'd left them to rot there while we got drunk together. 
 
-A giant black & white image of Cliff appeared on the screen. They'd picked the most unsavoury-looking one they could find. It was years old. He was wasted in his garden enjoying a cigarette. It's nighttime. It must have been during one of their wild house parties before Rosie was born. His pink shirt is doused in dark, wet patches, his hair wild and greasy. He's smiling at the camera, the flash illuminating the sheen of sweat on his face.
-
-"...he is considered armed and dangerous."
-
-Cliff had stabbed both of them the morning before I visited. One minute, he was having breakfast with his family; the next, he was puncturing holes into both of them with a filet knife. Their blood was still oozing over the kitchen tiles by the time I arrived just a few hours later. He'd left them to rot there while we got drunk together. 
-
-I immediately told the police what had happened. At first, they were relieved to be talking to me, certain that I could shed some light on the case. That certainty was quickly replaced with mild shock and deep frustration as I told them that we'd spent the whole night together....and that I'd noticed absolutely fuck all. Cliff seemed...fine. Better than fine. He seemed great. 
+The police almost seemed delighted to talk to me, certain that I could shed some light on the case. That certainty was quickly replaced with mild shock and deep frustration as I told them that we'd spent the whole night together....and that I'd noticed absolutely fuck all. Cliff seemed...fine. Better than fine. He seemed great. 
 
 There was no motive, no suspects and no leads. One thing was for certain: they'd been a happy family. No evidence of secret affairs or hidden debts. It was like Cliff simply decided to detonate the life he'd spent so long building. I loved Olivia and Rosie, and now they'd been wiped from the planet by someone I'd called my best friend. 
 
@@ -90,7 +84,7 @@ So much of the night was a blur; it was hard to piece it all together. But there
 
 Was Cliff still playing Tag with me? The police said he'd gone into hiding somewhere in the Peak District. They were searching high and low, but they hadn't found a clue yet. He'd packed nothing and left on foot. The lead officer believed he'd gone out into the woods to die, that we'd find his body washed up in a ditch somewhere. I knew better. If there were still a hint of the old Cliff out there, he'd be plotting to get me back. He never liked to lose...and while he was 'it', he was losing. 
 
-Months went by with sightings from Cornwall to Glasgow, but not a single one led to finding Cliff. I knew he hadn't gone far — he was out there, creeping along the peripheries of my vision, waiting for the best opportunity to strike. I shed friends and jobs like a dying snake. I couldn't leave the house, knowing there was a chance he was still out there. He'd appear in busy crowds, smiling just like he did when I saw him after he'd murdered his family. Sometimes, the crowds would part, and I'd realise it wasn't Cliff. Other times, his features, now gaunt and wild, remained unchanged. 
+Months went and still nobody knew where Cliff had gone. I knew he hadn't gone far — he was out there, creeping along the peripheries of my vision, waiting for the best opportunity to strike. I shed friends and jobs like a dying snake. I couldn't leave the house, knowing there was a chance he was still out there. He'd appear in busy crowds, smiling just like he did when I saw him after he'd murdered his family. Sometimes, the crowds would part, and I'd realise it wasn't Cliff. Other times, his features, now gaunt and wild, remained unchanged. 
 
 One night, I was in my office reviewing some footage for a new film I was working on. I looked out my window, and there he was. Crouched by my shed, obscured by shadows. I told myself it was just a trick of my mind. But then I saw his face: pale white and illuminated by the full moon. He was smiling. I grabbed my phone off the desk and called the police, but by the time they picked up, he was gone. 
 
