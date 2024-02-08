@@ -1,4 +1,4 @@
-[Part I](https://www.reddit.com/r/nosleep/comments/1afkvjx/im_a_park_ranger_in_the_highlands_of_the_dead/) – **Part II**
+[Part I](https://www.reddit.com/r/nosleep/comments/1afkvjx/im_a_park_ranger_in_the_highlands_of_the_dead/) – **Part II –** [Part III](https://www.reddit.com/r/nosleep/comments/1alhs6s/im_a_park_ranger_in_the_highlands_of_the_dead/)
 
 My name is Peter Tully, and I’m a park ranger in the Scottish Highlands.
 
@@ -181,5 +181,7 @@ Matthew paused for a long time before saying something utterly unexpected.
 “I won’t be around to see that, boy,” The old man said. “I'm so tired."
 
 And after so many years, I'm starting to understand what Matthew meant.
+
+[Part III](https://www.reddit.com/r/nosleep/comments/1alhs6s/im_a_park_ranger_in_the_highlands_of_the_dead/)
 
 [X](https://www.reddit.com/r/dominiceagle/)

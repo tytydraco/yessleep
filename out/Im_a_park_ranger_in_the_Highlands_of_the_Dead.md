@@ -1,4 +1,4 @@
-**Part I** – [Part II](https://www.reddit.com/r/nosleep/comments/1ahaep3/im_a_park_ranger_in_the_highlands_of_the_dead/)
+**Part I** – [Part II](https://www.reddit.com/r/nosleep/comments/1ahaep3/im_a_park_ranger_in_the_highlands_of_the_dead/) – [Part III](https://www.reddit.com/r/nosleep/comments/1alhs6s/im_a_park_ranger_in_the_highlands_of_the_dead/)
 
 My name is Peter Tully, and my story is not a happy one.
 
