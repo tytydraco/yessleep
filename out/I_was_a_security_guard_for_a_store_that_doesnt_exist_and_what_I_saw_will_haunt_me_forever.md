@@ -188,7 +188,7 @@ I was confused
 
 “No sir” He responded curtly.
 
-“It is 2:30 am and you have a lunch to attend, in face for that matter considering the situation why don't you take the rest of the night off, it's not gonna be safe in there and the professionals will handle it”
+“It is 2:30 am and you have a lunch to attend, in fact for that matter considering the situation why don't you take the rest of the night off, it's not gonna be safe in there and the professionals will handle it”
 
 “Wait what? What do you mean?”  I stammered out.
 
