@@ -120,11 +120,11 @@ As soon as Rick entered the base, panting and trembling, I pressed the button to
 
 But then, just when we thought we might be safe, when the door was almost fully sealed, the bear's colossal paw penetrated the small gap beneath it, exerting overwhelming pressure as it began to lift it slowly. My heart sank in despair as I weakly pressed the descent button. That door must have weighed at least a ton of lead, what the hell was that bear?Rick pulled out the rifle and fired a few more shots, but the shots only seemed to enrage the beast further, which roared loudly and furiously, not even a trace of blood visible on it. Our fate seemed sealed as the door began to rise under the creature's relentless power.
 
-"Rick, we need to get out of here now!" 
+"Rick, we need to get out of here now!"
 
 I shouted above the deafening roar of the bear, my heart pounding with desperation in my chest as I looked around for an escape route.
 
-"To the other section of the base, quickly!" Rick yelled in response, his voice trembling with fear as he fired one last time in the direction of the beast before turning and running toward the internal door of the base.We ran desperately, our feet pounding on the frozen ground as we heard the sound of metal being twisted and the furious roars of the bear echoing behind us. 
+"To the other section of the base, quickly!" Rick yelled in response, his voice trembling with fear as he fired one last time in the direction of the beast before turning and running toward the internal door of the base.We ran desperately, our feet pounding on the frozen ground as we heard the sound of metal being twisted and the furious roars of the bear echoing behind us.
 
 We reached the internal door of the base, pushing it with all our might before locking ourselves inside, breathing heavily as the sound of the bear reverberated beyond the fragile barrier between us."Call the central, now!" Rick shouted, his voice echoing with urgency as he rushed to activate the emergency radio. I obeyed him, my hands trembling as I dialed the emergency central number, pleading for help as I explained our desperate situation.As we waited for the central's response, the tension in the room was palpable, every passing second feeling like an eternity as we awaited the rescue that might never come. The sound of the bear's roars echoed through the base, a constant reminder of our precarious situation.
 
@@ -162,7 +162,7 @@ Rick quickly approached, his eyes filled with concern as he helped me up from th
 
 I reflected for a moment, my mind reeling from the impact of what I had seen. I decided not to tell him, I should spare Rick from the thing I saw, just as I spare you, not giving descriptions "of that."
 
-"I'm not sure," he replied, his voice trembling slightly. "The creature just... fled. I think it must have had an exposed spot, I guess..."
+"I'm not sure," I replied, my voice trembling slightly. "The creature just... fled. I think it must have had an exposed spot, I guess..."
 
 Rick nodded, his expression tense as he looked out at the dark horizon beyond the base. He knew it wasn't entirely true, at least not the whole truth, but I believe he also understood it was not something worth knowing. Two hours later, we were aboard the S.S. Polar Star, our items in bags, covered with aluminum and warming ourselves with a thin cup of coffee. We didn't speak of the bear anymore, an internal pact of silence; all we reported from our expedition were the walruses, their fights, antics, and the corpses found.
 
