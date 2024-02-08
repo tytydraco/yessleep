@@ -408,7 +408,7 @@ There was only one person in the whole school who would be able to.  Dustin Knox
 
 &#x200B;
 
-While I wouldn’t describe us as friends we did seem to be one of the few people he could tolerate.
+While I wouldn’t describe us as friends we did seem to be some of the few people he could tolerate.
 
 &#x200B;
 
