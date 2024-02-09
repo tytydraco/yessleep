@@ -92,7 +92,7 @@ The soldiers herd the villagers into the center of the hamlet with a cold, metho
 
 The cries of children, the wails of mothers, the pleas of elders, all merge as they huddle together in fear. The soldiers tower over them, shouting orders in broken Vietnamese, their words laced with curses and impatience.
 
-One woman, clutching a wailing infant to her chest, stumbles in her haste. A soldier, without missing a beat, grabs her roughly by the arm, dragging her along. The baby's cries pierce the air.
+One woman, clutching a wailing infant to her chest, stumbles in her haste. A soldier hoists her over his shoulder. She kicks and screams, her cries muffled against the camouflaged fabric of his uniform, her infant clutched tightly in her arms
 
 An elderly man, his back bent with age, falls to his knees, his breath ragged with exhaustion. A boot to his back sends him sprawling to the ground, his frail body crumpling under the assault. No mercy is shown, no compassion given.
 
