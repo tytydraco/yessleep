@@ -138,7 +138,7 @@ Tuyết swallows hard, her eyes glistening with unshed tears. She begins, her vo
 
 "Phạm Minh Khoa, just seven years old. He was hiding in the rice paddy, too scared to cry out. You found him anyway."
 
-"Here are Lê Thiên Kim her and granddaughter Quỳnh Dao. Mrs. Kim was teaching her granddaughter how to read when your helicopters first appeared. They never had a chance to run."
+"Here are Lê Thiên Kim and her granddaughter Định Quỳnh Đào. Mrs. Kim was teaching her granddaughter how to read when your helicopters first appeared. They never had a chance to run."
 
 Bùi Hòa Bình, he survived wars and famines. He died standing up for my niece."
 
