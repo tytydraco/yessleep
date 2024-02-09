@@ -52,7 +52,7 @@ Every victim I am designated to almost seems like they’re specifically selecte
 
 The sound is coming from above me. I can now sense it.   
 
-I could not tell you what I do between killings. It can be up to a year at a time. It is a blur, a buzz. But I know I feel better now versus before I had been given this purpose. Number 11 was a younger one again, all but 60 pounds. Perhaps an apology for number ten. I don’t think she ever saw me coming up from behind her.  
+I could not tell you what I do between killings. It can be up to a year at a time. It is a blur, a buzz. But I know I feel better now than I had before I was given this purpose. Number 11 was a younger one again, all but 60 pounds. Perhaps an apology for number ten. I don’t think she ever saw me coming up from behind her.  
 
 My breathing has not become easier. My ribs feel splintered.   
 
@@ -69,8 +69,10 @@ I am so close, but I can barely breathe. I can see the light finally blooming ab
 
 I had just given my 15th victim to the cave no more than an hour ago. It was the first time I had to hike and deliver a body in the snow. I heard the avalanche happen, watched it so far off. But it moved so fast. I tried to run but to no use. I was buried.  
 
-In a gasp, I can finally breathe more as my lips breach the snow. I gain momentary relief as I see the sky, though there is far more in view.  
+In a gasp, I can finally breathe as my lips breach the snow. I gain momentary relief as I see the sky, though there is far more in view.  
 
-It is above me, and I am below it. The eyes gazing into mine are so large. They are the deepest black I have ever seen. Red saliva drips from its mouth and into mine. It is no animal, and it is no human. It continues to contort as we both pant while catching our breath. It is my savior.  
+It is above me, and I am below it. The eyes gazing into mine are so large. They are the deepest black I have ever seen. Red saliva drips from its mouth and into mine. It is no animal, and it is no human. It continues to contort as we both pant while catching our breath. 
+
+It is my savior.  
 
 In my head, I hear my own name.
