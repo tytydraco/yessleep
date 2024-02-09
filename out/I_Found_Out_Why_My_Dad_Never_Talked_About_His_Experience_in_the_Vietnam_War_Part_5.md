@@ -140,6 +140,8 @@ Tuyết swallows hard, her eyes glistening with unshed tears. She begins, her vo
 
 "Here are Lê Thiên Kim her and granddaughter Quỳnh Dao. Mrs. Kim was teaching her granddaughter how to read when your helicopters first appeared. They never had a chance to run."
 
+Bùi Hòa Bình, he survived wars and outlived his wife. He died standing up for my niece."
+
 Ending with Mrs. Thao, Tuyết's voice is a whisper, laden with grief. "And Trần Thảo Vy. She made the best bánh xèo in the village. Now, look at her."
 
 I step closer to Wright, my voice low but filled with an intensity that commands attention. "You did this. Every name she mentioned, every life you've ruined, it's on you and your men."
@@ -218,7 +220,7 @@ I hold his gaze, the weight of his question heavy in the air between us. "If the
 
 He laughs, a hollow sound that echoes off the walls of the hut. "Hell nah. I'd fill your ass with lead before you could take ten steps."
 
-I nod, the grim truth of his words settling over us like a shroud. Even if I wanted to let him go, I couldn't. He'd warn the others we're coming. “Then, you know what I have to do.”
+I nod, the grim truth of his words settling over us like a shroud. Even if I wanted to let him go, I couldn't. He'd warn the others we were coming. “Then, you know what I have to do.”
 
 Wright's expression hardens, the reality of his situation fully dawning on him. He stares at the dirt floor, then back up at me. "Just make it quick then, bro. A bullet... right here." He tilts his head slightly, indicating a spot between his eyes, a grim acceptance in his gesture.
 
@@ -244,7 +246,7 @@ The sight that greets me is one of pure carnage. Mrs. Thảo, or what she's beco
 
 I raise my weapon, my hands steady despite the chaos of my thoughts. With a breath that feels like it carries the weight of the world, I squeeze the trigger. The bullet finds its mark, piercing through his skull. The impact is instantaneous.
 
-Mrs. Thao continues her macabre feast, oblivious to her meal’s death. My rifle shifts towards her, the sight aligned with her head. My finger hesitates on the trigger, the line between monster and victim blurred in my mind.
+Mrs. Thao continues her macabre feast, oblivious to her meal’s death. My rifle shifts towards her, the sight aligned with her head. My finger hesitates on the trigger. I just don't have it in me to shoot her.
 
 Then, without warning, a gunshot pierces the air, sharp and definitive. Mrs. Thảo's head explodes in a shower of viscous black fluid, her body slumping lifelessly atop Wright's.
 
