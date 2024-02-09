@@ -192,6 +192,8 @@ Rumored to be directly run by the American CIA, their operations are the stuff o
 
 Staring at the tattoo, the realization dawns on us. This young man isn’t just any soldier; he’s part of something far more sinister, an operative trained to sow terror and death without remorse.
 
+[Part 5](https://www.reddit.com/r/nosleep/comments/1ameo4t/i_found_out_why_my_dad_never_talked_about_his/)
+
 [X](https://www.reddit.com/r/PageTurner627Horror)
 
 [Y](https://www.youtube.com/watch?v=MGd1F6Ay8ho)

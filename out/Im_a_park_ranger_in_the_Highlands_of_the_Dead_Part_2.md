@@ -1,4 +1,4 @@
-[Part I](https://www.reddit.com/r/nosleep/comments/1afkvjx/im_a_park_ranger_in_the_highlands_of_the_dead/) – **Part II –** [Part III](https://www.reddit.com/r/nosleep/comments/1alhs6s/im_a_park_ranger_in_the_highlands_of_the_dead/)
+[Part I](https://www.reddit.com/r/nosleep/comments/1afkvjx/im_a_park_ranger_in_the_highlands_of_the_dead/) – **Part II –** [Part III](https://www.reddit.com/r/nosleep/comments/1alhs6s/im_a_park_ranger_in_the_highlands_of_the_dead/) – [Part IV](https://www.reddit.com/r/nosleep/comments/1ameou2/comment/kpl4ie8/?context=3)
 
 My name is Peter Tully, and I’m a park ranger in the Scottish Highlands.
 
