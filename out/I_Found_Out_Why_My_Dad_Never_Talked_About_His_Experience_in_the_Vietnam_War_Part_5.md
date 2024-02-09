@@ -6,7 +6,7 @@
 
 [Part 4](https://www.reddit.com/r/nosleep/comments/1akftjh/i_found_out_why_my_dad_never_talked_about_his/)
 
-“We need to figure out our next move,” I say, breaking the silence. My eyes scan the faces of my squad. Despite their exhaustion, a resolve shines through. 
+“We need to figure out our next move,” I say, breaking the silence. My eyes scan the faces of my squad. Despite their exhaustion, a resolve shines through.
 
 Văn, his usual brusqueness softened by the gravity of the situation, nods. “We can’t go rushing into things. We need intel.”
 
@@ -14,7 +14,7 @@ Lâm interjects, “And then what? What can we possibly do? Do you expect us to 
 
 Before I can respond to Lâm, Tuyết approaches, her expression grim. Beside her is a frail woman, her eyes brimming with unshed tears. "This is Mrs. Hà," Tuyết introduces. "Her son, Lực, was taken by men dressed like the ones we've just fought."
 
-Mrs. Hà's voice trembles as she speaks, her hands clasped tightly together as if holding onto hope itself. 
+Mrs. Hà's voice trembles as she speaks, her hands clasped tightly together as if holding onto hope itself.
 
 "He's just a boy," she pleads, her voice breaking with emotion. "They came at dawn, took him from his bed... Please, you must help me find him!"
 
@@ -28,13 +28,13 @@ I find a bucket of water outside, the liquid cold and indifferent. I splash it o
 
 The young commando jolts awake, coughing and spluttering, his eyes darting around wildly as he realizes his predicament.
 
-Wright's initial reaction is pure instinct—a desperate yet futile attempt to free himself from the constraints that bind him to the wooden chair. 
+Wright's initial reaction is pure instinct—a desperate yet futile attempt to free himself from the constraints that bind him to the wooden chair.
 
-I position myself directly in front of him. As my English is marginally the best, I take the lead. 
+I position myself directly in front of him. As my English is marginally the best, I take the lead.
 
 "We can do this the easy way or the hard way.”
 
-"You've made a huge fucking mistake," he spits out, his voice laced with venom. 
+"You've made a huge fucking mistake," he spits out, his voice laced with venom.
 
 “I’m not the one hogtied to a chair,” I retort.
 
@@ -50,17 +50,17 @@ Ignoring his threat. "Where did your men take the village boy, Luc?"
 
 The moment hangs suspended, a standoff of wills. I reach for the pack of cigarettes tucked into my shirt pocket, drawing one out with deliberate slowness. The flick of the lighter casts a brief glow. I take a long drag, the smoke swirling in the air between us.
 
-Exhaling slowly, I watch Wright's defiant gaze. Then, without warning, I press the burning cigarette against his exposed forearm. The smell of burning flesh mingles with the tobacco smoke. 
+Exhaling slowly, I watch Wright's defiant gaze. Then, without warning, I press the burning cigarette against his exposed forearm. The smell of burning flesh mingles with the tobacco smoke.
 
 "You'll have to do better than that," he gasps through gritted teeth.
 
-I nod slightly towards my men, an unspoken understanding between soldiers. 
+I nod slightly towards my men, an unspoken understanding between soldiers.
 
 Văn steps forward, a twisted grin spreading across his face. He casually adjusts the heavy ring on his finger.
 
 Then, in a movement as swift as it is brutal, he drives his fist into the commando's jaw. The sound of impact is sickening. Blood splatters, and several teeth scatter across the floor.
 
-The commando slumps in his chair, groaning. 
+The commando slumps in his chair, groaning.
 
 "We can keep going," I tell him. "All night if we have to."
 
@@ -72,15 +72,15 @@ Van, his patience frayed to its limits, lands another blow to Wright's midsectio
 
 Lâm, usually the more composed of us, steps in with a calculated iciness. He delivers a kick to Wright's ribs, the dull thud echoing through the hut. The commando's body jerks, a sharp intake of breath the only indication of his pain.
 
-I glance at Hùng, who's been standing back, a storm brewing in his young eyes. 
+I glance at Hùng, who's been standing back, a storm brewing in his young eyes.
 
 "Hung, it's your turn," I say, my voice steady, but with an edge that leaves no room for argument.
 
 “Me?” he asks sheepishly.
 
-“No, your grandfather… Yes, you!” I say, irritated. 
+“No, your grandfather… Yes, you!” I say, irritated.
 
-With a reluctant step forward, Hung raises his fist. His punch lands on Wright's shoulder, a half-hearted attempt that barely elicits a reaction from the commando. 
+With a reluctant step forward, Hung raises his fist. His punch lands on Wright's shoulder, a half-hearted attempt that barely elicits a reaction from the commando.
 
 I lock eyes with Hung, my gaze disapproving. "Harder," I instruct, my voice a mix of command and encouragement.
 
@@ -94,7 +94,7 @@ Hung doesn't stop there. Another punch, then another, each blow landing with inc
 
 —
 
-After an hour of relentless interrogation, Wright is bloodied and bruised, yet his defiance remains unbroken. His face is a mess of cuts and swelling, yet he manages to smirk through the pain, taunting us with a cruelty that chills the bone. 
+After an hour of relentless interrogation, Wright is bloodied and bruised, yet his defiance remains unbroken. His face is a mess of cuts and swelling, yet he manages to smirk through the pain, taunting us with a cruelty that chills the bone.
 
 "You're just dogs, chasing after scraps. You have no idea what's coming for you." He spits in my face to add an extra layer of insult.
 
@@ -108,25 +108,25 @@ Tuyết hesitates, her eyes searching mine for a moment before she nods, underst
 
 She guides me to a structure on the outskirts of the hamlet, its silhouette ominous against the fading light.
 
-The interior of the structure is dimly lit by a single oil lamp, casting long shadows that dance along the walls. 
+The interior of the structure is dimly lit by a single oil lamp, casting long shadows that dance along the walls.
 
-The air is thick, suffocating, laced with the iron scent of blood that clings to the back of my throat. The floor is stained dark, a patchwork of dried blood. Chains hang from the ceiling. 
+The air is thick, suffocating, laced with the iron scent of blood that clings to the back of my throat. The floor is stained dark, a patchwork of dried blood. Chains hang from the ceiling.
 
-In the corner, a collection of tools lies scattered on a wooden table—knives, pliers, a hammer with a handle worn from use. 
+In the corner, a collection of tools lies scattered on a wooden table—knives, pliers, a hammer with a handle worn from use.
 
 We walk past the grim aftermath of today’s massacre. The bodies of victims lay side by side, their lifeless eyes staring into nothingness, each face etched with the terror of their last moments.
 
-Beyond the human tragedy, a row of slaughtered pigs hangs from meat hooks, their carcasses gutted and lifeless. 
+Beyond the human tragedy, a row of slaughtered pigs hangs from meat hooks, their carcasses gutted and lifeless.
 
 As I move past the pigs, a sudden sound halts me in my tracks—a shuffling, a soft, wet dragging. My heart pounds against my ribs, each beat a thunderous echo in the oppressive silence. I raise my flashlight, its beam slicing through the darkness, searching for the source of the movement.
 
 And then I see her.
 
-Dangling from a hook among the pigs is Mrs. Thao, her body a horror show of gaping bullet wounds and torn flesh. 
+Dangling from a hook among the pigs is Mrs. Thao, her body a horror show of gaping bullet wounds and torn flesh.
 
-Her head snaps to attention at our presence, the chains that bind her to the hook rattling in a sinister melody. Her mouth opens wide, revealing a maw of broken teeth and blackened gums, eager to rend and tear. 
+Her head snaps to attention at our presence, the chains that bind her to the hook rattling in a sinister melody. Her mouth opens wide, revealing a maw of broken teeth and blackened gums, eager to rend and tear.
 
-I turn back to Wright, my expression hardened by the horrors I've witnessed. 
+I turn back to Wright, my expression hardened by the horrors I've witnessed.
 
 "Do you even know their names?" I ask him, my voice steady despite the rage boiling inside me. "The people you've terrorized, the lives you've destroyed. Do they mean anything to you?"
 
@@ -138,7 +138,7 @@ Tuyết swallows hard, her eyes glistening with unshed tears. She begins, her vo
 
 "Phạm Minh Khoa, just seven years old. He was hiding in the rice paddy, too scared to cry out. You found him anyway."
 
-"Here are Lê Thiên Kim her granddaughter Quỳnh Dao. Mrs. Kim was teaching her granddaughter how to read when your helicopters first appeared. They never had a chance to run."
+"Here are Lê Thiên Kim her and granddaughter Quỳnh Dao. Mrs. Kim was teaching her granddaughter how to read when your helicopters first appeared. They never had a chance to run."
 
 Ending with Mrs. Thao, Tuyết's voice is a whisper, laden with grief. "And Trần Thảo Vy. She made the best bánh xèo in the village. Now, look at her."
 
@@ -146,7 +146,7 @@ I step closer to Wright, my voice low but filled with an intensity that commands
 
 My men, sensing the shift in my intentions, grasp Wright firmly, pinning him against his chair. Their grips are ironclad, allowing no room for resistance. The commando's eyes flicker with a hint of fear for the first time, a realization dawning that his situation has taken a darker turn.
 
-I approach Mrs. Thao, her undead form bound by the chains that dangle from the ceiling. The twisted parody of life that animates her now is a horror beyond words. 
+I approach Mrs. Thao, her undead form bound by the chains that dangle from the ceiling. The twisted parody of life that animates her now is a horror beyond words.
 
 With a deep breath, I grasp the chain above her, pulling her closer to Wright. Her movements become more frantic, the scent of living flesh driving her into a frenzy. Her chains rattle as she strains towards him, her hunger palpable.
 
@@ -156,11 +156,11 @@ With a deep breath, I grasp the chain above her, pulling her closer to Wright. H
 
 "You can't be serious," Wright. stammers.
 
-"Just try me," I respond, my tone ice-cold, betraying no hint of bluff. With deliberate slowness, I bring Mrs. Thao closer, her jaws snapping centimeters from his face, putrid drool dripping on his face. The commando's earlier defiance evaporates, replaced by a primal fear. 
+"Just try me," I respond, my tone ice-cold, betraying no hint of bluff. With deliberate slowness, I bring Mrs. Thao closer, her jaws snapping centimeters from his face, putrid drool dripping on his face. The commando's earlier defiance evaporates, replaced by a primal fear.
 
 "Okay! Okay!" he gasps, desperation cracking his voice. "I'll talk. Just... just keep that thing away from me."
 
-With a firm grip, I pull on the chain, drawing Mrs. Thảo back slightly, her gnashing teeth still snapping hungrily in the air. 
+With a firm grip, I pull on the chain, drawing Mrs. Thảo back slightly, her gnashing teeth still snapping hungrily in the air.
 
 "Start talking. Now," I press, my voice a razor's edge of urgency.
 
@@ -178,7 +178,7 @@ He hesitates, his gaze flickering to Mrs. Thao before returning to me. "People. 
 
 I nod to Lâm, who quickly unfolds a topographical map on the ground in front of us. The creased map is smeared with dirt and stained with sweat.
 
-I drag Wright's chair closer, positioning him over the map. "Point it out," I demand. 
+I drag Wright's chair closer, positioning him over the map. "Point it out," I demand.
 
 With his arms bound and his body wracked with pain, Wright leans forward as much as the ropes allow, his nose hovering over the map. A droplet of blood, oozing from a gash on his forehead, falls, marking the map. The bloodstain blooms on the paper, a crimson mark that signifies our target.
 
@@ -186,7 +186,7 @@ With his arms bound and his body wracked with pain, Wright leans forward as much
 
 I scrutinize the marked area. "How do we bypass the base’s defenses?"
 
-Wright shakes his head, a bitter laugh escaping his lips. "You don't get it. This place... it's not just guarded. It's designed to be a goddamn fortress. They've got perimeter patrols with shoot to kill orders, motion sensors, mines in the surrounding jungle.” 
+Wright shakes his head, a bitter laugh escaping his lips. "You don't get it. This place... it's not just guarded. It's designed to be a goddamn fortress. They've got perimeter patrols with shoot to kill orders, motion sensors, mines in the surrounding jungle.”
 
 "Even the strongest fortress has weak points," I say, my voice low, as I pull Mrs. Thao closer to help jog his memory. Her snarls grow louder, more desperate.
 
@@ -214,7 +214,7 @@ I stand up, processing the information. Around me, my companions exchange grave 
 
 Wright's bloodshot eyes meet mine, a flicker of something resembling acceptance passing through them. "You gonna kill me now, boss?" His voice is devoid of its earlier bravado, replaced by a weary resignation.
 
-I hold his gaze, the weight of his question heavy in the air between us. "If the roles were reversed, would you let me go?" 
+I hold his gaze, the weight of his question heavy in the air between us. "If the roles were reversed, would you let me go?"
 
 He laughs, a hollow sound that echoes off the walls of the hut. "Hell nah. I'd fill your ass with lead before you could take ten steps."
 
@@ -242,11 +242,11 @@ It's too much. The line between justice and cruelty blurs, and I find myself sta
 
 The sight that greets me is one of pure carnage. Mrs. Thảo, or what she's become, is hunched over Wright, her hands buried deep in his open abdomen. She's chewing on his entrails, pulling at the sinew and flesh with a gruesome eagerness. His eyes meet mine, a silent plea in their fading light.
 
-I raise my M16, my hands steady despite the chaos of my thoughts. With a breath that feels like it carries the weight of the world, I squeeze the trigger. The bullet finds its mark, piercing through his skull. The impact is instantaneous. 
+I raise my M16, my hands steady despite the chaos of my thoughts. With a breath that feels like it carries the weight of the world, I squeeze the trigger. The bullet finds its mark, piercing through his skull. The impact is instantaneous.
 
 Mrs. Thao continues her macabre feast, oblivious to her meal’s death. My rifle shifts towards her, the sight aligned with her head. My finger hesitates on the trigger, the line between monster and victim blurred in my mind.
 
-Then, without warning, a gunshot pierces the air, sharp and definitive. Mrs. Thảo's head explodes in a shower of viscous black fluid, her body slumping lifelessly atop Wright's. 
+Then, without warning, a gunshot pierces the air, sharp and definitive. Mrs. Thảo's head explodes in a shower of viscous black fluid, her body slumping lifelessly atop Wright's.
 
 I whirl around, my heart racing, to find Tuyết standing behind me, her rifle smoking. Tears carve tracks through the dirt and blood on her face.
 
