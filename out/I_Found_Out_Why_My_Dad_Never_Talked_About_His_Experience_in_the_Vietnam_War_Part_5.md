@@ -8,7 +8,7 @@
 
 “We need to figure out our next move,” I say, breaking the silence. My eyes scan the faces of my squad. Despite their exhaustion, a resolve shines through.
 
-Văn, his usual brusqueness softened by the gravity of the situation, nods. “We can’t go rushing into things. We need intel.”
+Văn, his usual abrasiveness softened by the gravity of the situation, nods. “We can’t go rushing into things. We need intel.”
 
 Lâm interjects, “And then what? What can we possibly do? Do you expect us to take on the CIA?”
 
@@ -22,7 +22,7 @@ Lam furrows his brow, "How can we? We wouldn’t even know where to start.”
 
 "He might know something," I say, gesturing to our captive.
 
-We drag Wright to a nearby hut, one that's miraculously still standing amidst the devastation. The interior is dim, the air heavy with the residue of panic and fear. We tie him to a chair, securing his bindings with a ruthlessness born of necessity. His head lolls forward, unconsciousness clinging to him like a shadow.
+We pull Wright into a nearby hut, surprisingly intact amid the ruins. Inside, the dim, tense air fills our lungs. We tie him securely to a chair. His head stoops forward, unconsciousness clinging to him like a shadow.
 
 I find a bucket of water outside, the liquid cold and indifferent. I splash it over Wright's face, the shock of it cutting through his stupor. He jerks awake, sputtering, his eyes wild and unfocused until they settle on us. Even bound and captured, there's a defiance in his gaze, a smoldering ember of resistance.
 
