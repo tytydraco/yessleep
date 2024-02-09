@@ -170,7 +170,7 @@ He swallows hard, his resolve crumbling under the weight of his predicament. "Th
 
 "Subjects? What subjects?" I ask.
 
-He hesitates, his gaze flickering to Mrs. Thao before returning to me. "People. Villagers. Anyone they can grab. They're using them as test subjects for... for Project Wandering Soul."
+He hesitates, his gaze flickering to Mrs. Thao before returning to me. "Criminals. POWs. Villagers. Anyone they can grab. They're using them as test subjects for... for Project Wandering Soul."
 
 "Project Wandering Soul?" I echo. "What is that? Some kind of weapon?"
 
@@ -242,7 +242,7 @@ It's too much. The line between justice and cruelty blurs, and I find myself sta
 
 The sight that greets me is one of pure carnage. Mrs. Thảo, or what she's become, is hunched over Wright, her hands buried deep in his open abdomen. She's chewing on his entrails, pulling at the sinew and flesh with a gruesome eagerness. His eyes meet mine, a silent plea in their fading light.
 
-I raise my M16, my hands steady despite the chaos of my thoughts. With a breath that feels like it carries the weight of the world, I squeeze the trigger. The bullet finds its mark, piercing through his skull. The impact is instantaneous.
+I raise my weapon, my hands steady despite the chaos of my thoughts. With a breath that feels like it carries the weight of the world, I squeeze the trigger. The bullet finds its mark, piercing through his skull. The impact is instantaneous.
 
 Mrs. Thao continues her macabre feast, oblivious to her meal’s death. My rifle shifts towards her, the sight aligned with her head. My finger hesitates on the trigger, the line between monster and victim blurred in my mind.
 
