@@ -1,4 +1,4 @@
-For the past year, I've been the primary caretaker for my father, Thành, who is in the final stages of colon cancer. The responsibility has been incredibly taxing, both emotionally and physically, on me and my family. Watching someone you love slowly fade away is a heart-wrenching experience that words can hardly describe.
+The past two years have been incredibly challenging. After my mom died, I moved back home to become the primary caretaker for my father, Thành, who is in the final stages of colon cancer. The responsibility has been incredibly taxing, both emotionally and physically, on me and my wife, Quinn. Watching someone you love slowly fade away is a heart-wrenching experience that words can hardly describe.
 
 Every day brings a new challenge, a fresh reminder of the inevitable. Yet, in this twilight of his life, I've found a strange comfort in our one-on-one conversations, these rare moments of tranquility amidst the storm.
 

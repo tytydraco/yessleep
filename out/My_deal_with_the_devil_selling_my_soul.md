@@ -1,0 +1,14 @@
+I hope my identity won’t be known, for nobody knows who I am. I am from Europe, a town where everyone is entwined from birth, where anonymity was my only solace. I found myself in the spotlight with a contract from a global music label at just 16. It's not what you think—neither my parents' wealth nor label ownership secured my fortune. Some call it luck, others attribute it to early networking and hard work. The label crafted grand plans for me—a teen idol, paraded on red carpets and headlining shows. But I withdrew, haunted by the weight of such responsibility on young shoulders. Luck, they said, or perhaps destiny's cruel hand. The promise of being a teen idol, a puppet dancing on the strings of fame. 
+
+And now years later, the unbelievable happened again—an even larger contract right there, right before me. Twice blessed or cursed, I face the terrifying decision once more. The fame with a desire for a simple, anonymous existence. The fear of becoming a target for public as a flawed human navigating through life.
+
+Is it worth trading my soul for the fleeting adoration of strangers? Will they truly love me, or merely the image I portray?
+
+Money and fame promise riches beyond imagination, but at what cost? 
+Being viewed by the public like an actual zoo animal? The invasion of the personal space harassment, threats, stalking or trespassing. The loss of authentic relationships of any kind, do people like me for who I am or my success? My final plan and overall goal when I had the contract at 16 years old was getting a gun and shooting through my head. I was 16. I actually thought the only way of escaping that machinery was shooting myself. Let that sink in. Hollywood is pure poison. The exploitation and manipulation you need to face, people taking advantage of you, physically, emotionally or financially. And also my biggest fear, losing people I loved all my life, just think about how scary that is losing lifelong friends or relatives because they feel pressured to hate you after somebody spread a rumour or you’re being cancelled. 
+
+But on the other hand the weight of doing it and committing to it overweighs it still; What if my music is never heard, lost to the void of obscurity? That is a even bigger fear of mine. The terror of lying on my deathbed, consumed by regret, haunts my every waking moment. The thought of the immortality through art is still why I want to pull it through—a chance to leave a lasting legacy beyond the confines of mortal existence. The promise of immortality, of leaving a mark upon the world long after I'm gone, is somehow way bigger than all of these bad things. And even more emotional all of the other humans connecting with each other through my work and craft. Building a unique connection and community which never could be copied or compared to anything else. 
+
+Should I finally surrender to the abyss of fame and face all my fears?
+
+What is life, if not the pursuit of the unknown?

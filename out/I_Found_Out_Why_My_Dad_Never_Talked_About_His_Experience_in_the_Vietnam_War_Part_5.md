@@ -256,7 +256,7 @@ The rifle slips from her fingers, clattering to the ground as her hands cover he
 
 She collapses against me, her body wracked with sobs. Her grief presses down on us both. "I couldn't let her... I couldn't..." she whispers between sobs.
 
-“I know… I know…” I hush her.
+“I know… I know…” I hush her, rocking her in my arms.
 
 [X](https://www.reddit.com/r/PageTurner627Horror)
 
