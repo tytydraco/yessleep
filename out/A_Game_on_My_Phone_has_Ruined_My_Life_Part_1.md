@@ -6,7 +6,7 @@ Recently, I had had a lot more time on my hands. I lost my job a few months ago 
 
 When you're unemployed and live alone, you get bored pretty quickly. I could only send out so many applications before my brain would start to shut down and seek another form of stimulus. That's when I would turn to the games on my phone. Even if it were just for a few minutes, it was a way for me to zone out and avoid thinking about how I was going to be able to pay my rent.
 
-Despite my love for mobile games, I will admit that they are nowhere near where they used to be. Almost every single game in the App Store is just complete garbage. You know the ones I'm talking about. The ones that are so poorly animated it looks like the developers made it in a few hours at most. Not to mention, the CONSTANT onslaught of ads. After every single level there's an ad for another shitty click-bait game. It's enough to drive someone insane sometimes.
+Despite my love for mobile games, I will admit that they are nowhere near what they used to be. Almost every single game in the App Store is just complete garbage. You know the ones I'm talking about. The ones that are so poorly animated it looks like the developers made it in a few hours at most. Not to mention, the CONSTANT onslaught of ads. After every single level there's an ad for another shitty click-bait game. It's enough to drive someone insane sometimes.
 
 But every once in awhile a somewhat interesting game pops up. I download it, play a few levels, get annoyed with the ads. Then the cycle continues. It wasn't uncommon for me to get stuck in an hours-long rabbit hole like this.
 
@@ -14,7 +14,7 @@ One day, I was feeling especially frustrated. I had just received another handfu
 
 That night, the stress was eating me alive and I couldn't sleep. At about 2:00 AM I let out a defeated sigh, resigning to the reality that I would not be sleeping tonight. I pulled out my phone and started playing my usual crappy puzzle games.
 
-I've played so often that I typically recognize a lot of the ads. I felt like I knew the king from Royal Match's ads on a personal level and had all but memorized the solution to the "sort-the-colored-balls-into-different-jars" ad. I've gotten good at finding the small X to close the ad and clicking it without being involuntarily re-directed to the App Store. But that night, an unfamiliar ad grabbed my attention. The screen went black and green, digital font words flashed across the screen:
+I've played so often that I typically recognize a lot of the ads. I felt like I knew the king from Royal Match's ads on a personal level and had all but memorized the solution to the "sort-the-colored-balls-into-different-jars" ad. I've gotten good at finding the small X to close the ad and clicking it without being involuntarily re-directed to the App Store. But that night, an unfamiliar ad grabbed my attention. The screen went black then green, digital font words flashed across the screen:
 
 DO NOT SKIP THIS AD.
 
@@ -52,7 +52,7 @@ DIFFICULTY: EASY
 
 REWARD: $1,000.
 
-"Simple enough" I thought. I figured the reward would be in-game currency that I could use to upgrade my character or convert to real money for pennies on the dollar. I shrugged and began. Once the game started, it was as if I had been teleported to \[REDACTED\]. The ad was telling the truth, this really *was* an immersive experience. From my character's point of view, i was on the rooftop of a skyscraper looking at another skyscraper across the street. I was able to clunkily move my view around (my phone screen was way too small to do this smoothly) and get a full view of my surroundings. It was a bright, sunny day. The traffic below was bustling with the sounds of constant honking and braking. The city was also flooded by the sound of the constant hum of people talking. For a quick moment, I forgot I was laying in bed in my underwear.
+"Simple enough" I thought. I figured the reward would be in-game currency that I could use to upgrade my character or convert to real money for pennies on the dollar. I shrugged and began. Once the game started, it was as if I had been teleported to \[REDACTED\]. The ad was telling the truth, this really *was* an immersive experience. From my character's point of view, I was on the rooftop of a skyscraper looking at another skyscraper across the street. I was able to clunkily move my view around (my phone screen was way too small to do this smoothly) and get a full view of my surroundings. It was a bright, sunny day. The traffic below was bustling with the sounds of honking and braking. The city was also flooded by the sound of the constant hum of people talking. For a quick moment, I forgot I was laying in bed in my underwear.
 
 On the bottom corners of my screen, there were two buttons. In the bottom left corner was a button that said "CHECK WATCH." In the bottom right corner was a button that said "HOLD TO AIM. RELEASE TO FIRE."
 
@@ -68,7 +68,7 @@ I had to put my phone down. I was trembling and on the verge of throwing up. Thi
 
 "For what I've done?..." I thought "...it's just a game..." I reminded myself of the ad.
 
-"It's just AI. the ad specifically warned you about this. You should have known this would happen. What else did you expect?"
+"It's just AI. The ad specifically warned you about this. You should have known this would happen. What else did you expect?"
 
 Still though. I've seen AI art and while it looks pretty accurate, there's always something just a bit off about it. Especially when depicting people. Someone always has an extra finger or something. Not here though.
 
