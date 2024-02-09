@@ -30,7 +30,7 @@ Before I knew it, the day had come. I couldn’t stop the tears from trickling d
 
 Needless to say, I was ecstatic when I received Lela’s first letter. I’d been waiting on pins and needles wondering if she’d forgotten about me already, so my little heart nearly burst with joy upon receiving something from her. I’m pretty sure my mom still has it somewhere, actually.
 
-*Dear Jackson,*
+*Dear Colby,*
 
 *I hope your doing good. I just started at my new school and I don’t like it. I miss you a lot.*
 
