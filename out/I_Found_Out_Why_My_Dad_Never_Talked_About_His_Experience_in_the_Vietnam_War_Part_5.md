@@ -226,7 +226,7 @@ Wright's expression hardens, the reality of his situation fully dawning on him. 
 
 The room is thick with tension, the air punctuated by the incessant, guttural gnarls of Mrs. Thao. Each sound she makes is a reminder of the horror that Wright and his kind have unleashed upon us. The sound burrows deep, igniting a seething hatred that festers in my chest, a dark, burning rage that I can no longer contain.
 
-"You know, in my culture, they say the dead don't rest," I say, my voice firm. "Not until justice has been served. Not until they've had their fill of vengeance."
+"You know, in my culture, they say the dead don't rest," I tell him, my voice firm. "Not until justice has been served. Not until they've had their fill of vengeance."
 
 I take the chain from Hùng, my hands steady despite the turmoil churning inside me. As I pull Mrs. Thảo closer to Wright, her movements grow more hectic, an anticipation in her snarls. Wright's defiant facade crumbles, giving way to raw, unmasked fear. His eyes, wide with terror, dart from Mrs. Thảo to me and back again, pleading silently for a mercy that's no longer mine to give. “No… please…”
 
