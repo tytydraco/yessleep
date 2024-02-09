@@ -9,7 +9,7 @@
 
 “It was about 3 weeks ago as you know, when my wife Lucile came home from work” I say taking a longer puff before resuming
 
-“I remember her being more joyful then usual holding her hands behind her back, when I asked how her day was she smiled and revealed the dog she was hiding behind her”
+“I remember her being more joyful then usual holding her hands behind her back, when I asked how her day was she smiled and stepped aside to revealed the dog she was hiding behind her”
 
 She said “I saw her just wondering around downtown on my way from work, he looked so tired and lost I couldn’t just leave him” with joy in her voice
 
