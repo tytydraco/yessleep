@@ -140,7 +140,7 @@ Tuyết swallows hard, her eyes glistening with unshed tears. She begins, her vo
 
 "Here are Lê Thiên Kim her and granddaughter Quỳnh Dao. Mrs. Kim was teaching her granddaughter how to read when your helicopters first appeared. They never had a chance to run."
 
-Bùi Hòa Bình, he survived wars and outlived his wife. He died standing up for my niece."
+Bùi Hòa Bình, he survived wars and famines. He died standing up for my niece."
 
 Ending with Mrs. Thao, Tuyết's voice is a whisper, laden with grief. "And Trần Thảo Vy. She made the best bánh xèo in the village. Now, look at her."
 
@@ -218,7 +218,7 @@ Wright's bloodshot eyes meet mine, a flicker of something resembling acceptance 
 
 I hold his gaze, the weight of his question heavy in the air between us. "If the roles were reversed, would you let me go?"
 
-He laughs, a hollow sound that echoes off the walls of the hut. "Hell nah. I'd fill your ass with lead before you could take ten steps."
+He laughs, a hollow sound that echoes off the walls of the hut. "Hell nah. I'd fill your ass with lead before you could take ten paces."
 
 I nod, the grim truth of his words settling over us like a shroud. Even if I wanted to let him go, I couldn't. He'd warn the others we were coming. “Then, you know what I have to do.”
 
