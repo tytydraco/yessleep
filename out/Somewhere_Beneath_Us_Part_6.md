@@ -1,4 +1,4 @@
-[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1ajzxa6/somewhere_beneath_us_part_5/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web2x&context=3)
+[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1ajzxa6/somewhere_beneath_us_part_5/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web2x&context=3) \~ [{Next Part}](https://www.reddit.com/r/nosleep/comments/1amafan/somewhere_beneath_us_part_7/?utm_source=share&utm_medium=web2x&context=3)
 
 &#x200B;
 
@@ -301,3 +301,7 @@ Andi had never come back up, the ballerina had told me. What did that mean?
 "N-No, stay," I whispered back as I gripped her tightly. Pressure built in my chest as I lingered between memory and reality. Between Andi and Bea. My heart ultimately dropped as memory won out...
 
 ‘The second we learn something that might point to a way out, I will be right there with you.’
+
+&#x200B;
+
+[{Next Part}](https://www.reddit.com/r/nosleep/comments/1amafan/somewhere_beneath_us_part_7/?utm_source=share&utm_medium=web2x&context=3)

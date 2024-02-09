@@ -217,3 +217,5 @@ She waved but quickly dropped her hand. She looked sad when I didn’t reciproca
 The storm passed, and uncertainty loomed again. I was unsure of where to go next. But I know that it didn’t really matter. She’ll take me to where I need to be. After all, she always does. 
 
 &#x200B;
+
+[[Next](https://www.reddit.com/r/nosleep/s/rk51wBFL2o)]
