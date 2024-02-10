@@ -10,7 +10,7 @@
 
 Văn, his usual abrasiveness softened by the gravity of the situation, nods. “We can’t go rushing into things. We need intel.”
 
-Lâm interjects, “And then what? What can we possibly do? Do you expect us to take on the CIA?”
+Lâm interjects, “And then what? What can we possibly do? Do you expect us to take on the US Military?”
 
 Before I can respond to Lâm, Tuyết approaches, her expression grim. Beside her is a frail woman, her eyes brimming with unshed tears. "This is Mrs. Hà," Tuyết introduces. "Her son, Lực, was taken by men dressed like the ones we've just fought."
 
@@ -138,7 +138,7 @@ Tuyết swallows hard, her eyes glistening with unshed tears. She begins, her vo
 
 "Phạm Minh Khoa, just seven years old. He was hiding in the rice paddy, too scared to cry out. You found him anyway."
 
-"Here are Lê Thiên Kim and her granddaughter Định Quỳnh Đào. Mrs. Kim was teaching her granddaughter how to read when your helicopters first appeared. They never had a chance to run."
+"Here are Lê Gia Bảo and his little sister Quỳnh Đào. Bao was teaching Quynh how to read when your helicopters first appeared. They never had a chance to run."
 
 Bùi Hòa Bình, he survived wars and famines. He died standing up for my niece."
 
