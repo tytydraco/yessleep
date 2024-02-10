@@ -130,9 +130,9 @@ Go at the highest possible level using the Elevator. Press the button to Top-flo
 
 &#x200B;
 
-**STEP C:** ***Peak.***
+**STEP C:** ***Peek.***
 
-Once at the top, you need to commence a peak event. It is simply you poking your head to scan the outside as much as possible. Don't take a step outside or it'll invalidate your attempt. Don't use a flashlight or it'll give away your position.
+Once at the top, you need to commence a peek event. It is simply you poking your head to scan the outside as much as possible. Don't take a step outside or it'll invalidate your attempt. Don't use a flashlight or it'll give away your position.
 
 *What are you looking for?* I'll tell you later. But 9 times out of 10, it should be empty and you're good to go.
 
@@ -140,7 +140,7 @@ Once at the top, you need to commence a peak event. It is simply you poking your
 
 **STEP D:** ***Go to the bottom.***
 
-Having scanned the top floor and seen it's clear, you now need to go back down to the very bottom. Press the button, going back towards the lowest floor. Once at the bottom, Peak again.
+Having scanned the top floor and seen it's clear, you now need to go back down to the very bottom. Press the button, going back towards the lowest floor. Once at the bottom, Peek again.
 
 If the coast is clear then congratulations, *you completed one cycle*. 
 
@@ -170,13 +170,15 @@ Remember these very carefully. These are the obstacles during the ritual that mi
 
 **WARNING:** *Civilian Encounter*
 
-The main glitch is repetitively going back and forth to the lowest possible level from the highest possible level using the Elevator. Doing it precisely at 2:23 AM when there's a *background rupture* and cycling up and down for four times.*What's up with the peek event?* Every time the Elevator opens up, either Top-floor or Bottom-floor, poke your head out and peak. Scan the current floor. Do not use any form of flashlight that'll reveal your position, just peek with your eyes.If you see a person during a peek event, simply just call it a day and try again tomorrow. The glitch is invalidated, a conscious observer potentially saw you or the Elevator and the glitch won't work.
+The main glitch is repetitively going back and forth to the lowest possible level from the highest possible level using the Elevator. Doing it precisely at 2:23 AM when there's a *background rupture* and cycling up and down for four times.*What's up with the peek event?* Every time the Elevator opens up, either Top-floor or Bottom-floor, poke your head out and peek. Scan the current floor. Do not use any form of flashlight that'll reveal your position, just peek with your eyes.
+
+If you see a person during a peek event, simply just call it a day and try again tomorrow. The glitch is invalidated, a conscious observer potentially saw you or the Elevator and the glitch won't work.
 
 &#x200B;
 
 **WARNING:** *Intruder Encounter*
 
-During peak events, apart from eyeing out civilians, you might have a chance of seeing a pair of red eyes in the dark. It means that the Elevator is compromised before the ritual has even started, immediately get back into the Elevator and go to the 4th-floor. Be very quick.
+During peek events, apart from eyeing out civilians, you might have a chance of seeing a pair of red eyes in the dark. It means that the Elevator is compromised before the ritual has even started, immediately get back into the Elevator and go to the 4th-floor. Be very quick.
 
 Once on the 4th-floor, you must step out of the elevator and send it back on wherever you encounter j@#¶£ππ. Leave the lamb inside and let it go back to the j@#¶£ππ.  If you wait, the elevator will soon come back to the 4th floor. But when it does, you better be out of there already. Don't wait, use the stairs and run.
 
@@ -320,7 +322,7 @@ The next day, my friend who's renovating the building, the friend who helped me 
 
 *"The fucking Elevator Sammy! it's like an animal had exploded inside here! Did you know about this shit!? Blood and guts were everywhere in the elevator! Liver, intestines, fur, blood, what the fuck!? We're lucky the thing is somehow still running!"* I can't believe a thing he's saying. Is that really what happened to poor m*rsMediumRare.* Could that have been me if I'm a second slower?
 
-*"Wow man, that's crazy. I don't know, seriously."*
+*"Wow, man that's crazy. I don't know, seriously."*
 
 *"Oh you don't know!? Animal gore at the building!? Not so shocking to you, huh? Almost as if you already know it's there? Almost as if you're the only one that had access outside of staff workers thanks to me? What the fuck di---"*
 
@@ -358,11 +360,13 @@ Nothing of significance it seems, just the ordinary office floor filled with cub
 
 Now you might ask, why am I recording this audio? Well, it's because I messed up. I messed up very very badly.
 
-It was the third cycle yet again. My last stop at the 19th-floor and I'm currently peeking for the final time. I don't know why, It must've been my fear from the previous attempt, the reason I messed up so badly.I peeked carefully, going from corners to corners, cubicle to cubicle. There were more hiding spots to keep an eye out this time, but the coast was clear, nothing new on the 19th-floor.
+It was the third cycle yet again. My last stop at the 19th-floor and I'm currently peeking for the final time. I don't know why, It must've been my fear from the previous attempt, the reason I messed up so badly.
+
+I peeked carefully, going from corners to corners, cubicle to cubicle. There were more hiding spots to keep an eye out this time, but the coast was clear, nothing new on the 19th-floor.
 
 I did it. I sigh in relief, no red eyes, no whatever that thing is, no nothing. I pull my head back into the elevator and lean to its wall as the Elevator starts to head down to the bottom for the final time. Leading me to the final event of the ritual.
 
-I sigh, I'm glad, I did it! A complete and uncompromised Elevator Glitch. No civilians, and no red eyes.I brace myself, readying to see how will my life end. A peak towards the future. However, to me, the real victory is not seeing the prize, but completing the ritual cleanly. All my dedication to ***press on*** had brought me this success.
+I sigh, I'm glad, I did it! A complete and uncompromised Elevator Glitch. No civilians, and no red eyes.I brace myself, readying to see how will my life end. A peek towards the future. However, to me, the real victory is not seeing the prize, but completing the ritual cleanly. All my dedication to ***press on*** had brought me this success.
 
 *wait... press on*.... press on? I didn't remember pressing the Elevator keypad. It went on its own.
 
