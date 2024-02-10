@@ -1,6 +1,6 @@
 &#x200B;
 
-Hello r/nosleep my name is Joshua, and I'm here to tell that my life is fucking strange.
+Hello r/nosleep my name is Joshua, and I'm here to tell you that my life is fucking strange.
 
 You see, there are plenty of weird happenings that occur in our world, and they rarely make any sense. They’re downright incomprehensible, they make your skin crawl, and they make your stomach feel like there is an endless pit inside of you.
 
