@@ -1,6 +1,6 @@
 \[Part 1\] - \[[Part 2](https://www.reddit.com/r/nosleep/comments/1an1l8k/its_time_i_told_you_about_our_film_part_2/)\]
 
-
+ 
 
 It’s been a week since Edith M. Carroll died. She was found dead in her bathroom, having choked on something. It’s an eerie fact, but most people who choke to death do so in their bathroom. Instead of running outside to get help, they go into the bathroom to try and cough it up – often locking the door out of habit. I don’t like to think about it. She deserved better.
 
@@ -10,7 +10,7 @@ As of her passing, I’m the last living member of the film crew. Given the even
 
 And hell, as someone about to hit 70, now’s not the time to wait for better days.
 
-
+ 
 
 I was born in 1957. I finished my studies during the height of the Vietnam War, and by the time I turned 20 we were knee-deep in psychadelics and a stagnating economy. I was working part-time at the cinema, trying to save up enough to follow my on-again off-again girlfriend to San Francisco. We broke up when she left town to pursue a degree in economics.
 
@@ -18,7 +18,7 @@ Through my cinema job, I got to know a few regulars. The kind of people who were
 
 Turns out, Seb was a gaffer. He handled electronics, mostly lights, on small-scale movie sets.
 
-
+ 
 
 At the initial showing of “The Hills have Eyes”, Seb was first in line. He was more eager than usual. He’d actually shaved off his beard and combed his hair; even without bringing a date, like he often did. He paid for his popcorn and gave me a $20 tip.
 
@@ -36,7 +36,7 @@ I handed him his popcorn and a coke. Seb stopped. He looked up, squinted at me, 
 
 “You want a job?”
 
-
+ 
 
 Seb needed an equipment assistant. You can get a long way with a shared love of cinema and a can-do attitude. At least back then. I signed on so fast his popcorn didn’t get cold. Not before long I was handed the official title of gaffer’s assistant, or best boy grip.
 
@@ -44,7 +44,7 @@ We were given a few days to prepare. We were joining a film crew up in New Engla
 
 He told me all about the movie in excruciating detail. It was the passion project of a writer-gone-director named Roy Hampton. He’d mostly worked in advertising and network TV, so this was a sort of breakout project. Still, it was a lot of money involved. Seb had no idea where the financing was even coming from.
 
-
+ 
 
 The movie had signed on a stage actor from Dallas named Dawn Andersen, who was making her debut on the big screen. The script was an adaptation of a story called ‘The Crown of Eo’ by a turn-of-the century writer named Emmett A. Rask. It was originally intended as a sort of drama piece, but it’d been rewritten into a horror script inspired by movies like The Wicker Man, Rosemary’s Baby, and The Omen.
 
@@ -54,7 +54,7 @@ We went past Brunswick to the coastline town of Chatter Blinds. There were less 
 
 Seb seemed to know some of the people we passed. He waved as we made our way through town. Every other street or so, someone would look up and wave back. It was shaping up to be a beautiful summer.
 
-
+ 
 
 There was a fenced-off area at the outskirts of town where we turned in. We followed a bumpy dirt road, lined with birch trees, along a solid chain-linked fence with a guarded gate up front. Seb handed over his ID to one of the security guards. Took them a while to find him on the list, but he was on there.
 
@@ -74,7 +74,7 @@ Seb gave me a sheepish grin as the gates opened. We rolled in without a word. Th
 
 “Good luck, and God bless.”
 
-
+ 
 
 I spent the rest of the day hanging onto Seb for dear life. We were chasing down scripts and inventory lists, double-checking that everything he’d asked for was there. Every cable, every box of screws, every replacement bulb. Seb was a goof, but about this one particular thing he was a machine. Meticulous.
 
@@ -82,7 +82,7 @@ I did get to see some of the other folks in the periphery. The special effects t
 
 I saw Dawn, the main lead. She was simultaneously comparing notes between two different scripts, as they hadn’t settled on which one to go for yet. I think that was the only day when I didn’t see her wearing some kind of blue sundress; the iconic getup of her character.
 
-
+ 
 
 Seb had managed to get a hold of an earlier script and went through the scene markups. I was sealing up boxes with this thick industrial tape while he smoked, flipping through the pages. It was all done by typewriter, and there were smudges of ink on his fingers.
 
@@ -104,13 +104,11 @@ He handed the ripped-out page back to me and put his cigarette out on a nearby f
 
 “Throw it away when you’re done,” he said, stretching out. “It’s already old news.”
 
-
+ 
 
 Later that night, we all gathered in the mess hall. There was a surprising amount of staff, numbering close to a hundred. I was in the thick of it, stuck between technicians, extras, costume designers, makeup artists… everyone was there – shoulder to shoulder. Seb was somewhere up front.
 
 Roy Hampton took center stage, stepping up on top of a rickety plastic table. He threw his arms out, gesturing towards us, and was met with a big cheer. I couldn’t help but to join in.
-
-
 
 “To the End of Eternity!” he laughed.
 
@@ -120,6 +118,8 @@ He was a fit man in his early forties. A thinning hairline underscored by a larg
 
 He laughed, smacking his hands together. Others joined in.
 
+ 
+
 “I want you all to take some time and reflect on where you are. What we are about to do. To make our mark on cinema history, in a way that no one’s done before. No matter what we end up making here, and no matter the outcome, we have already won.”
 
 There was a surge of applause. I could hear Seb up front doing a loud whistle.
@@ -128,7 +128,7 @@ There was a surge of applause. I could hear Seb up front doing a loud whistle.
 
 That last sentiment was echoed the loudest, and by the time Roy stepped down I could tell someone was already lighting up some refreshments in the crowd.
 
-
+ 
 
 Seb didn’t need me for the rest of the day, so I stuck around the mess hall. I got a tour of the equipment sign-out lot and was handed a sleeping bag and a folding cot. By the time I got back, the mess hall was jumping with energy. Someone had brought a whole bunch of Kiss tapes, along with plenty of drinks. There were four six-packs on one of the counters with a large note that just said, ‘Everyone Drinks!!’. I wasn’t gonna pass on that.
 
@@ -136,7 +136,7 @@ I had a couple of drinks, a couple of smokes, and did my best to remember the ly
 
 I talked to people from all over. Some of the practical effects guys were complete geeks, comparing notes on everything from timed explosions to faking a scolding water effect. I remember sharing a beer with the writers too. All in all, it was a good time. I think I made out with Dawn’s hairdresser.
 
-
+ 
 
 Somewhere around midnight, about a dozen more people joined us. They looked a bit more business-y, having starched white shirts and black ties. They were all smiles though, but I could tell they were a bit hesitant to join us. I didn’t hear much about who they were, just the occasional dismissal.
 
@@ -150,7 +150,7 @@ We didn’t mind. This was a closed set, and with the amount of staff we had on 
 
 Still, there was one face I couldn’t look away from.
 
-
+ 
 
 A woman in her late fifties. She was the only one of them who didn’t smile. Her rose-blonde hair was sort of pushed down, as if she’d worn a hat or a cap for most of the day. She, too, was wearing a white shirt; buttoned up all the way to her throat. I only caught a glimpse of her briefly before she disappeared into the back. I didn’t think much of it. Still, I’ll never forget that face. It was telling me something.
 
@@ -158,7 +158,7 @@ I nodded at our counter full of free-to-take refreshments and urged one of them 
 
 I saw disgust.
 
-
+ 
 
 What happened next is etched in my memory.
 
@@ -174,7 +174,7 @@ She was completely unhinged, grunting like an animal with every strike. People s
 
 She bawled her eyes out, smashing the camera to pieces. As the men in the white shirts advanced, screams erupted. Panic.
 
-
+ 
 
 I was too far from the exits to get out in time. One of the men zeroed in on me, following me through the mess hall. We circled a table back and forth like something out of a cartoon. Finally, he got fed up, and tried to jump across. I had to think fast and ducked, pushing the table up. The weight caused it to flip, sending him sprawling onto the floor. That’s when I first noticed that he was holding a knife.
 
@@ -182,7 +182,7 @@ There were two main doors leading out of the mess hall, and one leading further 
 
 I didn’t really have a choice.
 
-
+ 
 
 I burst into a sprint, knocking over two chairs along the way. The plastic pitter-patter against the linoleum floor felt like a mockery. The woman with the shovel wasn’t prepared, but she took a swing at me; crashing through three empty bottles on the counter as she did. I got by, but not by a great margin.
 
@@ -190,7 +190,7 @@ The equipment lot was much larger than it had any right to be. It’d been used 
 
 Right around the corner, I’d been sorting out equipment with Seb earlier. Keeping up a full sprint, I went straight for the lights. I heard approaching footsteps trying to keep up behind me.
 
-
+ 
 
 Thinking back on where I’d seen Seb put out his cigarette, I rounded a corner, almost tripper over a cheap plastic chair, and grabbed the fuse box. With two clicks, I first turned the power off, then ripped out whatever fuses I could grab in the dark. Then I slowly crept backwards, squeezing into a small space behind one of the industrial-sized shelves.
 
@@ -198,7 +198,7 @@ There was no back plate to the shelf, so if they had flashlights, they’d see m
 
 I tried to steady my breathing and keep still. My belt buckle kept tapping against the metal siding, forcing me to put my hand in-between. I was scorching hot; having to brush away a sweaty strand of hair to not get poked in the eye.
 
-
+ 
 
 I just stood there, waiting. I could hear them approaching; a knife running across thick metal bars. Footsteps slowing down. There were at least three of them now.
 
@@ -212,7 +212,7 @@ I didn’t answer. I held my breath.
 
 Way in the back of the storage area, I could see a cone of light. They’d found a flashlight.
 
-
+ 
 
 They started to yell at one another to find the other cameras. One of them were cutting up cables, and another had set fire to a small box of spare parts. They were almost out of turpentine and were now looking for something easily flammable to pile on. I could see the vague outline of the woman with the shovel; her heavy panting making her shoulders rise and fall.
 
@@ -222,7 +222,7 @@ She smacked the shovel against the side of a shelf, making it rattle. A clang ru
 
 *“Where are the fucking cameras?!”*
 
-
+ 
 
 There was chatter up front. One of them was relaying something important. The others had started to pack up, grabbing whatever they could, and leaving through the front. As they did, they scanned the room a final time, looking for our cameras, or tapes. I figured they were with the director; he’d probably be up reviewing test footage ahead of the first shoot.
 
@@ -234,13 +234,13 @@ Dropping the shovel, as if ending the conversation, she took a quick look around
 
 And I think, right before she left, she caught a glimpse of me. I felt a dark lump sink into my stomach.
 
-
+ 
 
 There was hesitation. She peered down at the shovel.
 
 Then she left.
 
-
+ 
 
 I don’t know how long I stood there. I felt like I’d fused with the ground, like my shoes were too heavy to move. It wasn’t until I heard sirens in the distance that I hurried back to the fuse box. My hands were shaking so bad that it took me three tries to put it all back. Hitting the switch, the light came back on; showing little but scattered tools and a burned box as witnesses to what’d happened back there.
 
@@ -248,7 +248,7 @@ People were gathering around the mess hall. I joined them outside, my legs visib
 
 Turns out, these people had a little help from the inside. Four of the crew members and a night guard had up and left with them; leaving behind a broken gate, slashed tires, and several smashed windshields. They’d started a fire in one of the trailers, but it’d burned out without causing too much damage. Still, people were shook. Some talked about leaving.
 
-
+ 
 
 There was an emergency crew meeting. Our security chief promised far and wide about how they’d take extra measures before hiring any locals, and that they’d double patrols. They promised that they’d figure out what was going on, and the motivation behind this. They assured us that they’d coordinate their efforts with the police, and that we were free to add our testimony.
 
@@ -266,7 +266,7 @@ He looked over to me, patted me on the back, and leaned in.
 
 Leaning away, he put his fingers under his eyes, as if to say ‘watch out’, and retreated into the crowd.
 
-
+ 
 
 Over time, we all retreated. Back into tents, trailers, or whatever cheap mattress we could find. It was an uneasy night. I saw that woman’s face every time I closed my eyes. I could hear the clang of metal on metal. There were still broken plastic from the camera scattered across the mess hall. Hell, the shovel was still lying there – in the middle of the equipment lot. At some point, in the middle of the night, I went outside to have a cigarette.
 
@@ -276,13 +276,13 @@ I got up and wandered all the way to the edge of the fence.
 
 And in the distance, I could see something.
 
-
+ 
 
 I stomped out my cigarette and peered across the small dirt road leading up to the set. White birch trees swaying back and forth, making the wind whistle through the leaves.
 
 And there, hanging from the branches, were dozens of neatly pressed white shirts, with black ties.
 
-
+ 
 
 A final reminder that this was far from over.
 
