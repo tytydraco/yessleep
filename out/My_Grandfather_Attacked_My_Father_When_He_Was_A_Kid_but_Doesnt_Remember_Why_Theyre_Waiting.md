@@ -1,19 +1,19 @@
-Growing up, I remember having a pretty good life. Loving parents, two siblings, living in a nice suburban neighborhood. My dad was the breadwinner of the family, while my mom was your regular stay at home mom. My siblings were just like regular siblings, kind of a pain sometimes but I still loved them. I had a younger brother and sister, making me the oldest out of us three. They enjoyed their lives and I had a good childhood. 
-
-We never could have foreseen when everything went wrong. You see, on Fridays after work, my dad would go drinking with his coworkers and friends. He wasn’t a hard drinker and rarely became drunk. Even when he did, he would take a ride home and go pretty much straight to bed, only to deal with a hangover the next day. It was honestly kind of funny sometimes.
-
- Now I know what you’re thinking, and no, my dad never beat us when drunk, or ever. Whenever he would hear about a case where a father beat his kids and wife, he would show visible disgust. He always said he didn’t know how some men could do that and be able to live with themselves afterwards. He himself was abused by his father when he was a kid, resulting in his mother getting killed in the attack, putting him in an orphanage by. My dad could hardly remember any of the details, yet refused to let anything like that happen again. 
-
-That was until the fateful last night of my childhood.  My dad came home smelling of alcohol and started to head off to bed, when something stopped him. This started what lead me to living in an orphanage years later, being referring to as just another victim of a piece of shit father who angrily abused his family. They don’t know that this was not what happened. 
-
-The difference is two things. In most cases, the perpetrator usually ends up in jail, then prison afterwards. My father was sent to an insane asylum, where he later committed suicide out of guilt or some other reason unbeknownst to me. The other difference was that my father did not attack my siblings and I, or kill my mom out of anger. It was complete and utter fear.
-
- My father took a step towards his room, and that’s when it happened. He started screaming. Out of nowhere he started screaming. He swung his arms out and rushed around, fighting with something we couldn’t see, all while screaming things like “get away from me”, “you can’t have us”, “leave me alone”, and “Dear Lord help me”. 
-
-He grabbed a nearby bat to try and fight off his unseen attacker when my mom ran up to try and help him. He saw her coming and let out the most horrifying scream I’ve ever heard. It still haunts me to this day, just as much as what happened next. As my mom ran up to try to help my father, he hit her across the temple with the bat, and when she was on the ground, he brought the bat down repeatedly on her head until it was just a gruesome mess. 
-
-My siblings and I were afraid for our lives and of course screamed. As we tried to get away our father chased after us yelling, “Please God don’t let them get me!”. That was the last thing I remember before everything went black.
-
- The next thing I remember was being awoken by a paramedic and being lifted onto a stretcher, I looked around and my house was an absolute mess, and my head was killing me. I suffered the least severe injuries with a few broken bones and a severe concussion. My two siblings were crippled for life and can’t walk at the very least. My mom was dead, and my father was already taken away. The situation completely horrified me, and I was in shock. 
-
+Growing up, I remember having a pretty good life. Loving parents, two siblings, living in a nice suburban neighborhood. My dad was the breadwinner of the family, while my mom was your regular stay at home mom. My siblings were just like regular siblings, kind of a pain sometimes but I still loved them. I had a younger brother and sister, making me the oldest out of us three. They enjoyed their lives and I had a good childhood.  
+  
+We never could have foreseen when everything went wrong. You see, on Fridays after work, my dad would go drinking with his coworkers and friends. He wasn’t a hard drinker and rarely became drunk. Even when he did, he would take a ride home and go pretty much straight to bed, only to deal with a hangover the next day. It was honestly kind of funny sometimes.  
+  
+Now I know what you’re thinking, and no, my dad never beat us when drunk, or ever. Whenever he would hear about a case where a father beat his kids and wife, he would show visible disgust. He always said he didn’t know how some men could do that and be able to live with themselves afterwards. He himself was abused by his father when he was a kid, resulting in his mother getting killed in the attack, putting him in an orphanage by. My dad could hardly remember any of the details, yet refused to let anything like that happen again.  
+  
+That was until the fateful last night of my childhood.  My dad came home smelling of alcohol and started to head off to bed, when something stopped him. This started what lead me to living in an orphanage years later, being referring to as just another victim of a piece of shit father who angrily abused his family. They don’t know that this was not what happened.  
+  
+The difference is two things. In most cases, the perpetrator usually ends up in jail, then prison afterwards. My father was sent to an insane asylum, where he later committed suicide out of guilt or some other reason unbeknownst to me. The other difference was that my father did not attack my siblings and I, or kill my mom out of anger. It was complete and utter fear.  
+  
+My father took a step towards his room, and that’s when it happened. He started screaming. Out of nowhere he started screaming. He swung his arms out and rushed around, fighting with something we couldn’t see, all while screaming things like “get away from me”, “you can’t have us”, “leave me alone”, and “Dear Lord help me”.  
+  
+He grabbed a nearby bat to try and fight off his unseen attacker when my mom ran up to try and help him. He saw her coming and let out the most horrifying scream I’ve ever heard. It still haunts me to this day, just as much as what happened next. As my mom ran up to try to help my father, he hit her across the temple with the bat, and when she was on the ground, he brought the bat down repeatedly on her head until it was just a gruesome mess.  
+  
+My siblings and I were afraid for our lives and of course screamed. As we tried to get away our father chased after us yelling, “Please God don’t let them get me!”. That was the last thing I remember before everything went black.  
+  
+The next thing I remember was being awoken by a paramedic and being lifted onto a stretcher, I looked around and my house was an absolute mess, and my head was killing me. I suffered the least severe injuries with a few broken bones and a severe concussion. My two siblings were crippled for life and can’t walk at the very least. My mom was dead, and my father was already taken away. The situation completely horrified me, and I was in shock.   
+  
 However, the absolute most horrifying part was what happened when I was being brought out of our house on a stretcher. Completely clear, as I was being brought out, I heard demonic voices coming from our basement that said “we’ll see you soon”.
