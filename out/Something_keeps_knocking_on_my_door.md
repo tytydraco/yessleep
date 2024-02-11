@@ -34,15 +34,12 @@ Then I remembered that watched a youtube video to keep myself awake, and I viewe
 
 So either I was sleepwalking with my mind awake while dreaming, or what I experienced was real
 
-Fast forward, just yesterday, I was reviewing for a veyr important exam on our living room
-
-We have a living room just outside my room, and then a terrace right next to it
-
 After that, I felt so paranoid, I don't even know if the one knocking is my family or not, like, how can I know?? They can literally mimic the voice of people
 
 
+Fast forward, A day after my girlfriend left to go back to her home, just yesterday, I was reviewing for a very important exam in our living room
 
-A day after my girlfriend left to go back to her home
+We have a living room just outside my room, and then a terrace right next to it
 
 I was reviewing for an exam when I heard a knock come from the terrace, and looking at the window, I saw an arm peeking out slightly from the side, it was extremely pale white, it's like someone covered themselves with chalk powder
 
