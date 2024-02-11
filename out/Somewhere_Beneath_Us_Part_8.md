@@ -1,4 +1,4 @@
-[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1amafan/somewhere_beneath_us_part_7/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web2x&context=3)
+[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1amafan/somewhere_beneath_us_part_7/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web2x&context=3) \~ [{Next Part}](https://www.reddit.com/r/nosleep/comments/1anw3b2/somewhere_beneath_us_part_9/?utm_source=share&utm_medium=web2x&context=3)
 
 &#x200B;
 
@@ -315,3 +315,7 @@ Daniel didn't say anything, but I could tell he acknowledged the demand.
 I buried my head into my hands in relief and leaned forward onto the panel. As I did, I noticed a board of glowing lights below me. Some were switched on, some were off. I flicked one, and suddenly, the light in the kitchen came to life. I tried another next to it, and the room turned brighter. I then looked to a handful that had already been switched near the edge of the board. I turned them off and noticed a few lights in the play room go out. A couple of the puppets froze and looked up alongside the birds and my friends. They were the spotlight controls.
 
 That gave me an idea.
+
+&#x200B;
+
+[{Next Part}](https://www.reddit.com/r/nosleep/comments/1anw3b2/somewhere_beneath_us_part_9/?utm_source=share&utm_medium=web2x&context=3)

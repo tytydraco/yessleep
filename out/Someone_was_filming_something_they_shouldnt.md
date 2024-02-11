@@ -34,7 +34,7 @@ Arriving back, I knocked on Jane's door, but she was out, so I went back home to
 
 Again, my mind went to Rick. “How could he film his own daughter?” I thought as I watched her innocently playing with her toys. But of course, I was in denial. I knew who the pervert was - it was my own son.
 
-I confronted him right away. He tried to deny at first, but then burst into tears as he admitted it. I've confiscated every bit of technology he has, but I honestly don't know what to do about it now. Do I tell Rick, or Jane or the police? Do I move away or just try to forget about it? I know my son needs help, but I just don't know what a good father is supposed to do in this situation. It's a hard thing to admit: I'm living with a monster.
+I confronted him right away. He tried to deny at first, but then burst into tears as he admitted it. I've confiscated every bit of technology he has, but I honestly don't know what to do about it now. Do I tell Rick, or Jane or the police? Do I move away or just try to forget about it? I know my son needs help, but I just don't know what a good father is supposed to do in this situation. It's a hard thing to admit: I'm living with [a monster.](https://www.youtube.com/watch?v=H_yVWsUzyck&t=476s)
 
 &#x200B;
 
