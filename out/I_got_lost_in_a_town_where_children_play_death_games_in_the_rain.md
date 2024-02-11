@@ -52,7 +52,7 @@ We started walking then, a rising, nervous energy filling our group. Even Chuckl
 
 Hundreds of the black, eyeless snakes skittered and writhed across its surface, twisting as if their spines were snapped. As we got closer, I could hear gears whirring and grinding. It was hard to hear over the roar of the rain, but the sound was definitely there.
 
-I heard a snapping of twigs to my right in the forest. Looking over, I saw two silvery eyes peering out of the thick brush, so far away that they were almost entirely obscured by the fog. The skin around them appeared dead and white like bleached bones. But the bushes blocked most of the creature’s body and face. It was as if it was peaking at us. When it saw me looking, it quickly ducked down, disappearing from view.
+I heard a snapping of twigs to my right in the forest. Looking over, I saw two silvery eyes peering out of the thick brush, so far away that they were almost entirely obscured by the fog. The skin around them appeared dead and white like bleached bones. But the bushes blocked most of the creature’s body and face. It was as if it was peeking at us. When it saw me looking, it quickly ducked down, disappearing from view.
 
 “I think I just saw something,” I whispered, but my friends paid no attention. They were staring at the snakes with their mouths open. Zach threw the head and body to the side, went to the group of them and grabbed another one. Its head also came off with a popping sound, showing more gears and metal.
 
