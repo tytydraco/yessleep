@@ -1,0 +1,45 @@
+Let me start by saying I am not a writer, so I’m sorry in advance for the difficult read. I will do my best to portray the events of the last decade (give or take) as openly and honestly as I am capable of. Forgive me if this is a bloated account, or if any details are unclear.
+
+  
+  
+It’s hard to place when it started. The feelings come and go, and I often have trouble determining what’s happening in the moment. Often I struggle to remember the episodes, and only recall the events vaguely when something happens to remind me for some reason. Like a smell will take me back or a melody will trigger a deja vu type feeling. Feels like trying to remember a dream, it’s always fleeting as if the memories are fighting my grasp. But forgive me, I’m getting ahead of myself here.
+
+  
+  
+For most of my life I've experienced mental health struggles in some form or another. In early high school I began to struggle with depressive thoughts and anxiety. Due to these problems I struggled making friends and was alone more often than not - no core friend group, certainly no relationships. Despite these struggles however, I always did well in classes and my grades were good. Externally, I probably seemed to be doing well. I never spoke about my mental health struggles with my parents or teachers, so everyone assumed I was alright I suppose.
+
+  
+  
+After high school, I ended up going to college to study engineering. I continued to excel academically, and never struggled particularly badly in class (outside of thinking my gen ed classes were pointless and phoning it in for these credits.) I should note that my university was out of state, so I moved out of my parents’ place and away from anyone I may have called a friend. At this point, my mental health began to deteriorate further. It was becoming more difficult to hide my depressive symptoms, which further alienated me from my peers. I avoided my roommate as often as I could (I think he thought I was weird.) He commented on my odd behavior sometimes, and also noted that I started sleepwalking.
+
+  
+  
+At the end of my freshman year, I moved out of the dorms into a studio apartment (my roommate was a fine enough person, but I was certainly not a people person and was ready to have my own space.) I also began to seek professional help for my mental health issues at this time. Despite my best efforts to avoid, ignore, or otherwise push my symptoms to the side, I continued to experience a steady decline in my mood and general state of mind. Sleep disturbances were becoming more frequent and were beginning to have an effect on my academic performance. My psychiatrist put me on SSRIs to try to treat my depressive/suicidal tendencies. To be honest, I’m not sure how much they helped. I didn’t notice much of an improvement, but I suppose it paused the decline of my symptoms for a while.
+
+  
+  
+The meds seemed to help enough to let me finish up my degree, and I finished my bachelor’s without much further trouble. I ended up going straight into a master’s degree, mostly because I didn’t have anything else lined up and my advisor offered a paid research position. I figured that, at the very least, I’d have something to do for the next couple years and would come out with an M.S. However, around this time my struggles with mental illness began to return. Depression, anxiety, the works. The sleep disturbances came back with a vengeance too - I was sleepwalking worse than ever and frequently woke up in unfamiliar locations. This kind of stuff eventually culminated in me coming to at a forest trail nearby to my college. I awoke near this kind of covered bridge structure with my feet and calves covered in cuts and bruises. I was also clutching a handful of wet silt and gravel, presumably from the nearby creek.
+
+  
+  
+This incident led me to get back in touch with my psychiatrist, who brushed these symptoms off and attributed them to the increased stress associated with starting a master’s program. She upped the dosage on my SSRIs and told me to check back in 4-6 weeks. The meds didn’t help, and my sleep continued getting worse and worse, with increasingly erratic hours. At some time around here I also started experiencing disturbing recurring dreams. These dreams always started out normal, but at some point there would be a shift in tone that made everything feel uncanny. They also all involved an encounter with a human-seeming figure, different from dream to dream but they always carried the same uncanny, “bad-vibes” sort of feeling - I began to call them “visitors” in the accounts of my dreams. These dreams also often coincided with my sleepwalking episodes.
+
+  
+  
+I’ll provide a (hopefully) brief account of one of these episodes here: The dream’s beginning is fuzzy. I remember being involved in some type of car accident. I was standing in a field near the highway with a woman, presumably also involved in the unclear events at the start of the dream. We are arguing, I believe about next steps/what to do. Eventually I spotted a smoke plume in the distance and silence falls. Deafening sound and light overtakes me from an unknown source. I awake in the field with a figure standing over me with an axe. The individual repeatedly swings the axe into my head/neck region. I am paralyzed as this happens for what feels like a very long time. I don’t feel pain, instead I feel a sense of overwhelming grief? or pity? I eventually spot another smoke plume in the distance atop an unusual structure. Looks like a tall barn with a tower and a metal structure protruding horizontally from the top of the tower. The figure drops the axe and sprints towards the tower as I continue to lay paralyzed in the field. The figure climbs the tower and leaps off the metal structure to their death. I wake up with a start at this point, and find myself laying in one of the university’s agricultural research field with a curious cow nudging me with her nose. She was probably almost as confused as I was honestly.
+
+  
+  
+Anyways, these types of episodes continued over the next few years, becoming more and more frequent. Eventually I dropped out of my M.S. due to these troubles. My psychiatrist tried several different medications (SSRIs, MAOIs, benzos, stimulants, probably others I cant remember), none of which improved my situation. After some time, my sleep troubles began to invade my waking life - I started noticing lost time and (more disturbingly) I started hearing voices. This isn’t like in the movies where I’d hear demons speaking to me or telling me to kill people or something, it’s more like when you’re listening to music and think you hear someone calling your name. I’d take off my headphones sometimes because I thought I heard someone speaking in the other room, but of course I live alone so there’s nothing there. Or other times I’d be laying in bed right on the edge of sleep, and hear indiscriminate whispering? I hope this makes sense, it’s hard to describe accurately.
+
+  
+  
+When my psychiatrist heard this was going on, she decided to try putting me on antipsychotics. I was on these for a couple months, and they really seemed to only make things worse. I started experiencing panic attacks, punctuated by the same kind of uncanny feeling I described from my dreams before with the visitors. I became even more reclusive, and started isolating myself from my family, staying at home as much as I could. I became convinced that the meds were causing my problems, so I flushed all my prescriptions down the toilet and cut contact with my psychiatrist. This is really when things started to go south quickly.
+
+  
+  
+Once I stopped the meds, I really couldn’t determine where dreams ended and reality began. Visual disturbances are commonplace, and I often see visitors around my home. Or lurking outside. Their presence never seems hostile, but certainly not friendly either. I really am struggling to put this into words at this point. The sleepwalking is also getting worse now, and I often wake up in stranger and stranger places. Rooftops, fields, forests, private property, I really can’t tell a theme in these locations. Most recently, I came to at a home’s porch that I had never been before. I quickly left before the residents saw me out front but I could not shake that uncanny “visitor” feeling and felt an overwhelming urge to enter the house.
+
+  
+  
+The visitors often speak. But I can’t understand them. It’s like listening to the murmur of a crowd or something like that. They don’t move. They just look, and speak. Always speaking. I wish sleep was a reprieve but they are present in my dreams as well. I’m really at my wit’s end here. Please, if anyone has had a similar experience or knows anything about these visitors or dreams, contact me ASAP. I don’t know what to do and am scared that I will harm myself or someone else during one of these episodes. I’m not crazy.
