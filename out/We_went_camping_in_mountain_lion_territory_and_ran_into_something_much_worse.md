@@ -56,4 +56,4 @@ It checks in on me often, on secluded trails or empty city streets; the location
 
 My questions grow as well.
 
-If I’d let the fire die, would it have taken me that night instead? And [what will happen the day it finally catches me alone in the dark?](https://www.coleschapters.com/p/welcome-from-reddit?r=nzp2a&utm_campaign=post&utm_medium=web)
+If I’d let the fire die, would it have taken me that night instead? And what will happen the day it finally catches me [alone in the dark?](https://www.coleschapters.com)
