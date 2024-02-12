@@ -56,11 +56,11 @@ Of course, the police only patrolled until eight-fifteen, and after that, it was
 
 "You know, there's one thing we haven't done before." Adam suggested as we biked to the park. Spencer and I both looked over at him, when I piped up, "What? Murder someone?" The question was meant sarcastically, and they both knew that, and Adam snorted in amusement. "No," he said, "we haven't explored the woods at night. We're already biking to the park. There's a hiking trail there, meaning.." The expectant trail off caused Spencer to light up with excitement, already knowing what was being suggested.
 
-"Oh shit! We haven't looked for that uhh.. What was it called? The thing that eats people by luring them in with the smell of death or whatever. Ethan, you know what it is, don't you?" He asks, glancing over at me. Before I could answer, Adam chimed in, "Feranauch. Yeah, that's what I'm talking about." And I nodded in agreement. "Right. Well what's stopping us? I have my phone on me and it's nearly fully charged. So at the very least, one of us has both a flashlight and a way to call for help if the boogeyman comes out of the trees to come get us."
+"Oh shit! We haven't looked for that uhh.. What was it called? The thing that eats people by luring them in with the smell of death or whatever. Ethan, you know what it is, don't you?" He asked, glancing over at me. Before I could answer, Adam chimed in, "Feranauch. Yeah, that's what I'm talking about." And I nodded in agreement. "Right. Well what's stopping us? I have my phone on me and it's nearly fully charged. So at the very least, one of us has both a flashlight and a way to call for help if the boogeyman comes out of the trees to come get us."
 
 This caused us all to laugh. For some reason, we found it hilarious to poke fun at the whole thing. Well, no, I guess not for just *some* reason. It was because we were teenagers. Going against the status quo was just what we did.
 
-As we made it to the park and biked through until we made it to the trail, I distinctly remember us all three agreeing to split up. I can't remember exactly how that part of the conversation went, but we made good on our word, and we did just that. We split up when we got there,
+As we made it to the park and biked through until we made it to the trail, I distinctly remember us all three agreeing to split up. I can't remember exactly how that part of the conversation went, but we made good on our word, and we did just that. We split up when we got there.
 
 We made it to the trail, climbed off our bikes and let them fall to the ground in a careless pile, so excited at the prospect of exploring new territory. We were the very thing the Feranauch preyed on. Curious humans who acted a lot tougher than they were. It didn't help that we were stupid kids at the time, and all self-preservation was overshadowed by the adrenaline rush of exploring the woods at night after being fed what, to us, was like the equivalent of campfire ghost stories.
 
@@ -82,7 +82,7 @@ Yeah, as morbid as it was, that was my thinking process. At the time, all I coul
 
 So despite my growing repulsion and the feeling of nausea churning my stomach, I followed the horrid scent. I tried calling Spencer for real this time, but he didn't pick up. I just assumed he either had his ringer off, or was being too brave to answer the phone, wanting to feel as alone as possible. That might seem like a stretch, but that's how he just was. So at first, it didn't matter to me that much.
 
-It was when i started hearing what sounded like the rustling of something in the bushes around me, something *big*, that I actually remembered why I was here. And then I hesitated to keep going.
+It was when I started hearing what sounded like the rustling of something in the bushes around me, something *big*, that I actually remembered why I was here. And then I hesitated to keep going.
 
 Unfortunately, whatever sense I had that came through to the surface for long enough for me to hesitate was overpowered by my stubborn curiosity, and i trekked on. And it was not pleasant when I did. The first thing I saw was a small animal skull that was almost completely cleaned, but the bone was still stained red from its blood.
 
@@ -100,13 +100,13 @@ As I went to shine my flashlight over the rustling bushes, it flickered and went
 
 Two piercing red eyes staring at me from the darkness. And they were rising. First, to my eye-level—which I was 5'11" at the time, so it was already impressive—but then it went beyond. This thing had to be at least seven feet tall. My heart practically leapt into my throat when I saw a mouth full of rows of sharp, long, yellowed teeth glinting in the subtle moonlight.
 
-As my eyes adjusted to having no flashlight, I saw its face. It was horrible, I can't even properly describe it in words. Its head was long, and its mouth protruded in a way it shouldn't have. It's red eyes were sunken in, and its face was thin and hollow. Its skin was so pale, it was almost white, and probably would have been if it weren't for the dirty, dingy gray hue it had.
+As my eyes adjusted to having no flashlight, I saw its face. It was horrible, I can't even properly describe it in words. Its head was long, and its mouth protruded in a way it shouldn't have. Its red eyes were sunken in, and its face was thin and hollow. Its skin was so pale, it was almost white, and probably would have been if it weren't for the dirty, dingy gray hue it had.
 
 This was the Feranauch. It was a thin, lanky, grotesque being, and suddenly it made so much sense how it thrived off of fear. How could anyone not be afraid?
 
 Instinct kicked in and I bolted off running back the way I had came. I didn't exactly memorize the path, but I didn't care. I told myself that I'd keep running until I made it out. And I did. I ran and didn't turn around for even a second, and I'm glad I didn't, because I could hear its heavy, fast footsteps, and it sounded like it was on all fours, which was even more disturbing when I inevitably painted a mental image. Maybe that was a good thing, though, because I ran even faster, fearing for my life.
 
-I could hear its heavy, strained panting, and it's menacing growl for a long time as I ran. I was easily running for longer than fifteen minutes before the noises stopped. I didn't care that they had, I had to get out of there.
+I could hear its heavy, strained panting, and its menacing growl for a long time as I ran. I was easily running for longer than fifteen minutes before the noises stopped. I didn't care that they had, I had to get out of there.
 
 I kept running, and I didn't turn around until I finally emerged by the road leading to the park entrance. My phone's flashlight had come back on, and I hadn't even realized it until I stopped running. Once I was out of the woods, I finally turned around. I had expected to still see the beast, but I didn't, and I was undeniably relieved.
 
