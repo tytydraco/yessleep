@@ -144,6 +144,8 @@ I need to talk to Grayson.
 
 Also the weight lifting class is graded solely on attendance so that means I have to keep going all semester and listen to the swimmers screaming for an hour twice a week RIP my nerves 😭 [\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
 
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/1aosl0t/how_to_survive_college_do_not_pet_the_strange/)
+
 [Read the current draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/18x7wnt/how_to_survive_college_v/)
 
 [Visit the college's website.](https://alderrayne.com/)
