@@ -1,0 +1,18 @@
+Recently I've been going through my things as I'm about to move out of my mom's for college. I honestly saw a few things that surprised me. Whole boxes of things I never remember having,  whole stories that I've suppressed growing up. Life really can be a war zone and sometimes when you want to move on you gotta relive everything. I'm just leaving this for the world to see. This world isn't unfair because bad things happen to good people, quite the opposite. Things are the fairest they can be. It's a blissful ignorance to assume only bad people can be put in horror situations. It's another type of ignorance to think the evil can't touch you. 
+
+I found this notebook that I used as a makeshift diary. Summarizes each day pretty well. I'll be using that as my "fact checker" as I try to remember the events. Scares me even now, the idea that the horror isnt like the movies. It isn't a night or a week, but over the span of years. Truly like a animal waiting for its prey to grow tired and be weak in every way. Can't ever be a mercy killing because where's the fun is that? It's true horror, it's true dread. 
+
+March 11th, 2012
+Today's My Birthday! My Mom Told Me We Are Gonna Be Moving Soon. Can't Wait! New Place and New Opportunities 
+
+March 11th marked the last normal day I ever had. It was my 13th Birthday and everyone was there. It was like one of those big "Calm before the Storm", things. Staying grounded in school was the hardest thing. I couldn't stay still to save my life.Usally I had those little pills that turn little kids into a robot for my ADHD but given the day I think my parents knew I was gonna be hyper and was willing to deal with it for a day. At school we just did this school project where we sent a letter off tied on a Ballon with the school address and I'm assuming an explanation as well but I never saw what it was. We released the balloons and then did a history lesson on the local lore of the pikes peal mountain til school ended. 
+
+March 20th, 2012
+FINALLY GOT A LETTER!? 
+
+The dates between this and the 11th was just me talking about how bad I was wanting a letter back but finally it had came in. Strangely it didn't come from the school but straight to my mailbox. My dad always had me check the mail so I just slid the envelope into my pocket and tried my best to hide it in my room. I successfully got into my room and I was about to tear it open when I heard my dad go up the stairs. I started to hide it in my dresser when he called my name. I froze for a second and threw it under my pillow right before he walked in. "Was there any mail son?" He asked. "Just some junk coupons. I threw those on the table." I responded back. I told him I was gonna change and he left. I locked the door behind him and then ripped into the envelope. Nothing. No letter and a blurry photograph. All that waiting and nothing.
+
+March 24th, 2012
+Think I'm Sleepwalking? 
+
+My sister used to live with me and we had a bunk bed, she ended up getting moving out a year ago or so but my dad didn't make the change. Almost like he refuses to believe his daughter is grown all up. Maybe it's just the reminder that I'm not a small small boy anymore. Anyways I've always slept on the bottom bunk, even after my sister moved. The idea of hurting myself while asleep on the top bunk always scared me from falling g asleep up there when my sister was gone for sleepovers. That's why I found it weird the past couple of days when I awake on the top bunk. I know I would never go up there because of my fears. I'm not scared easily, but when something scares me, it terrifies me.
