@@ -1,4 +1,4 @@
-[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1an3kjq/somewhere_beneath_us_part_8/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1an3kjq/somewhere_beneath_us_part_8/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) \~ [{Next Part}](https://www.reddit.com/r/nosleep/comments/1aoohtn/somewhere_beneath_us_part_10/?utm_source=share&utm_medium=web2x&context=3)
 
 &#x200B;
 
@@ -325,3 +325,7 @@ Nobody said anything. We all just looked on in confusion.
 Grace nodded and then waited another moment before saying, "Alright, everybody. Let's all go."
 
 When we were all back into the room, we made sure that Mark was alright before laying back down into our beds. However, I don't know if any of us even slept a wink after that. We were all too anxious. We knew exactly what Daniel was talking about when he said we needed to have a meeting, and none of us wanted to confront the idea.
+
+&#x200B;
+
+[{Next Part}](https://www.reddit.com/r/nosleep/comments/1aoohtn/somewhere_beneath_us_part_10/?utm_source=share&utm_medium=web2x&context=3)
