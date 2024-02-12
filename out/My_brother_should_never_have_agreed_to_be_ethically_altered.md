@@ -366,7 +366,7 @@ Shane was sitting bolt-upright in his bed, with his feet down on the floor—he 
 
 He didn’t reply—just kept watching me. His eyes were cold and as I stared into them, I caught movement behind him. 
 
-A shadow was crawling across his wall. A shadow with red eyes and long, spindly hands. 
+A shadow was crawling across his wall. A shadow with red eyes and long, spindly fingers.
 
 He opened his mouth and a voice—voices…?...that I did not recognize emanated from it, “Shhh, go back to sleep, little brother.” 
 
