@@ -164,9 +164,9 @@ Nate leaned forward. He looked healthier, his face was fuller, a pinkish blush i
 
 Present Nate had elongated fang-like incisors. When he was eating, Nate could fillet a chicken bone within a second. His teeth were not normal. Neither were mine. I was losing all of mine in favour of sharper points that cut my lip open. 
 
-The boy cleared his throat on the tape, and I leaned closer. Mouth formed a teasing smile. “If you're watching this video, it means all three of us are dead.”
+The boy cleared his throat on the tape, and I leaned closer. Nate's mouth formed a teasing smile. “If you're watching this video, it means all three of us are dead.”
 
-The other two side eyed him, and he burst our laughing. 
+The other two side eyed him, and he burst out laughing. 
 
 Lizbeth nudged him. Just like Nate, she too looked…normal. Her blonde hair was tied into a strict ponytail. This girl was glowing, while present Lizbeth was more of a shell. The girl turned to the camera. “Ignore Nate! He thinks he’s funny.” 
 
