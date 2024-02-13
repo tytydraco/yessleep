@@ -1,0 +1,31 @@
+I loved my brother. We would fight a lot and hurl insults at one another, but when push came to shove, we still loved each other. That’s just how family is, isn’t it? I didn’t want to hurt him, I just wanted to scare him a little bit. Nothing big, but I know that what happened is my fault. It’s my fault my brother disappeared.
+
+You have to understand, that Jer and I never got along perfectly. I mean we could stand each other at family dinners and holiday parties, but whenever we were alone together it would always inevitably end in some sort of argument. I guess we just never had anything in common. He was always the more athletic and outgoing type, joining every sports team he could and spending long nights out with a rotation of girlfriends. I on the other hand was always more devoted to school and working my way towards the university of my dreams. We just never clicked y’know?
+
+So, when I got into my first-choice university with a scholarship, I had no problem saying goodbye to him. Things were good, the first year went well and I was top of my classes. It wasn’t until I heard Jeremy had gotten into the same university as I did with a rowing scholarship that things were spoiled. It was when our parents asked us to watch the house that I next saw him, I asked him why he chose my school, and he told me he wanted to live close by. He even had the audacity to congratulate himself on his sports scholarship as if it were equal to what I had earned.
+
+That night ended in an argument. It was as I was storming back to my room and saw the wardrobe in the hall that I thought of the perfect idea of how to get him back. Now, for context, my brother had always been petrified of the dark. It was something that had been in the background of our entire lives. Even now, he still went to bed with the lights in the room turned on. It was a real phobia of his.
+
+So, when I saw the old antique wardrobe at the end of the hallway, I had an idea of how to get him back. I had never seen the wardrobe before though, so I assumed my parents had bought it. It was a beautiful thing, perfectly carved with long and twisting patterns like that of a web. The brass handles of the doors curved like mandibles. Even though it looked like a beautiful antique, I couldn’t see a mark on the exterior of the wood.
+
+It was only three hours later that I crept back to my brother’s room, the light still shining at full blast despite it being long past midnight. I painstakingly opened the door, slowly to not make a single noise and wake up my brother. Then when I got inside, I carefully moved his mattress off his bed and dragged him down the hallway. Thinking about it now, he should have woken up when I was moving him. Try as I might, I wasn’t good at being stealthy. Maybe it was the wardrobe that kept him asleep.
+
+When I was next to the wardrobe, I silently opened its doors, with the hinges not making a single squeak. Then, before my brother could react, I threw him into the dresser and locked the doors.
+
+At first, he was calm, not understanding what was happening, but as he came to realize his situation, he quickly began to pound on the door asking me to let him out. At this point though, it was nothing out of the ordinary, he told me it wasn’t funny and that he was sorry, but he was just scared. Then he let out a yelp.
+
+He said something had touched him. I still didn’t let him out, I had seen the inside of the wardrobe and knew that the only entrance was the doors I had locked, so I just assumed he was trying to convince me to let him out somehow. But after that, his scratching at the door became more frantic and aggressive. He kept saying how there was something else inside the dark wardrobe with him. By the end, he was practically throwing his entire body into the doors to try and break them open, but despite the wardrobe’s apparent age, the doors held.
+
+Then Jer started to scream. I had never heard my brother make sounds like that before. Even on the rare movie night when we would watch a horror movie, he never screamed with so much fear and pain as I heard in those moments. This scared even me, so I decided to try and open the doors, but the lock had stuck. I assumed it was from my brother’s violent attempts to escape.
+
+I told my brother it was going to be alright, that I was just going to open the door in a second, but right before I opened the door, I heard a crack. That doesn’t accurately describe the last sound that came out of that awful thing though. It was a wet crunching noise, like an egg being crushed in someone’s hand suddenly. My brother’s screams stopped, and the doors opened.
+
+My brother was gone. The inside of the wardrobe was now etched with scratches. Blood was in some of them that were later found to belong to my brother. Some of the scratches though, looked too deep. Too much like teeth instead of fingernails.
+
+I just sat there for the next couple of days. When my parents came home from their small trip, I didn’t know what to tell them. They immediately called the police and filed a missing person report, and I secretly hoped they would find something. That I had gone insane, but they didn’t find him. My parents didn’t remember buying the wardrobe either and threw it away after the police were done with it.
+
+I earnestly believed that I had undergone a mental break. That my brother had been kidnapped in the middle of the night. So that’s what I chose to believe for a year. It wasn’t until last night that I heard him again.
+
+I had been watching the house for a week as my parents went on another trip when I heard him. It was the middle of the night, and I was woken up by a scream. I genuinely thought it was a nightmare until I heard my brother pleading for help. As I looked out my bedroom door down the long hallway, I knew where the screaming was coming from. I should have gone down the hallway to open the doors to the wardrobe, maybe I could’ve still saved my brother. But I doubt it. So I ran.
+
+I never wanted to hurt my brother, but I won’t avoid the blame for what I did. And I’m scared that that dresser isn’t satisfied with just one person. I sleep with the lights on now. I guess me and my brother share [that](https://www.reddit.com/r/CursesAndBoons/comments/180iwt6/welcome_to_cursesandboons/?utm_source=share&utm_medium=web2x&context=3).
