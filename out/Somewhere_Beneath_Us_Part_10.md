@@ -1,4 +1,4 @@
-[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1anw3b2/somewhere_beneath_us_part_9/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1anw3b2/somewhere_beneath_us_part_9/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)  \~ [{Next Part}](https://www.reddit.com/r/nosleep/comments/1aphxuk/somewhere_beneath_us_part_11/?utm_source=share&utm_medium=web2x&context=3)
 
 &#x200B;
 
@@ -68,7 +68,7 @@ I could sense unease in his expression, but his insanity quickly gave him the co
 
 As soon as he finished the sentence, the birds by the doors began to wrangle everyone together to leave.
 
-"Come on, you two. Let's go." Dan said, pulling them toward the door. 
+"Come on, you two. Let's go." Dan said, pulling them toward the door.
 
 I felt a split second of relief, thinking that maybe Larry hadn't gotten the opportunity to enact whatever scheme he had thought up. That went away as soon as I saw him retrieve an object from his back pocket. He had stuffed a shiny red ball from the ball pit inside. He trailed up behind Bea, Ethan, and Daniel, and I quickly began flashing the spotlight, hoping to alert them. As they looked over to acknowledge the flashing, Larry promptly reached up and dropped the ball into the hood of Ethan's jacket. It was so light that he must not have felt it. My friends just looked up at the beam in confusion.
 
@@ -130,24 +130,25 @@ He made a slightly pleased noise. "I see now. You think this makes up for all th
 
 I took a moment to recuperate before continuing. I entered the hall and came to an intersection. I looked both ways, then went left.
 
-Thoughts swirled in my mind as I moved through the corridor. Thoughts that I didn't like intruding. Those occurrences were getting worse by the day. Ever since He had shown up again the day before Andi returned, he had continued haunting me. The hallucinations first started a couple of months into our time at the house. I first saw him when I got up a bit earlier than everyone else one morning. I was walking to the bathroom when I noticed him peeking around the corner to the kitchen. It made my heart skip a beat, but I blinked, and then he was gone. I thought it was just my imagination running wild in the strange place until it happened a few more times. 
+Thoughts swirled in my mind as I moved through the corridor. Thoughts that I didn't like intruding. Those occurrences were getting worse by the day. Ever since He had shown up again the day before Andi returned, he had continued haunting me. The hallucinations first started a couple of months into our time at the house. I first saw him when I got up a bit earlier than everyone else one morning. I was walking to the bathroom when I noticed him peeking around the corner to the kitchen. It made my heart skip a beat, but I blinked, and then he was gone. I thought it was just my imagination running wild in the strange place until it happened a few more times.
 
 Then he started talking to me.
 
- At that point, I knew I was full-blown hallucinating. He would bring up things from memories we had together or feelings that I had confessed when I knew him. Things I was afraid of. Things I felt bad about… That went on for years, but as I got closer to Andi, it began to happen less and less. It stopped altogether after she and I kissed. I never told anyone because, frankly, I didn't really want them to think I was losing it. Especially after Larry… On top of that, it wasn't really a severe issue. All it did was serve as a painful reminder of past mistakes and regrets.
+At that point, I knew I was full-blown hallucinating. He would bring up things from memories we had together or feelings that I had confessed when I knew him. Things I was afraid of. Things I felt bad about… That went on for years, but as I got closer to Andi, it began to happen less and less. It stopped altogether after she and I kissed. I never told anyone because, frankly, I didn't really want them to think I was losing it. Especially after Larry… On top of that, it wasn't really a severe issue. All it did was serve as a painful reminder of past mistakes and regrets.
 
 I entered a decaying room with colorful neon paint plastering its chipping walls. I clicked on my flashlight and was greeted by a nostalgic sight. A large bowling alley sprawled before me, the place once used for fun, now lay in utter ruins. I almost turned to leave, thinking it was a waste of time to scavenge the area, when I remembered something. When I was young, I was never too good at bowling. I would always run too close to the lane and slip on the grease-covered wood. I made my way to the far wall of the room and walked down the path to the service door in the back. I crossed through to the storage and held my breath as I looked around. A large white jug of something was beneath a shelf, and I slid it out. Mineral oil. I smiled in relief. It wasn't what I expected, but it would have to work.
 
-I stepped out of the room, oil in hand, and began to silently jog my way back to the playhouse. I couldn't believe how lucky I had gotten. The odds of finding something like this were astronomically low. I had known it would be the most problematic ingredient to find due to the strange condition of its requirement. I needed something slick and slippery that wouldn't dry up quickly. As I passed the lobby room again, I looked up at the balcony, and a strange realization suddenly hit me.  
+I stepped out of the room, oil in hand, and began to silently jog my way back to the playhouse. I couldn't believe how lucky I had gotten. The odds of finding something like this were astronomically low. I had known it would be the most problematic ingredient to find due to the strange condition of its requirement. I needed something slick and slippery that wouldn't dry up quickly. As I passed the lobby room again, I looked up at the balcony, and a strange realization suddenly hit me.
+
 He had told me to go right if I wanted to find what I was looking for. Sure, I had gone left, but… what if… What if he had been counting on that?
 
-I quickly dismissed the thought. It had to be a coincidence that I found the oil. If I thought about it any further, I might have to accept a terrifying truth. 
+I quickly dismissed the thought. It had to be a coincidence that I found the oil. If I thought about it any further, I might have to accept a terrifying truth.
 
 My hallucination had just given me directions.
 
 I got back to the playhouse and set to work immediately. While everyone was asleep was the best time to set everything up. I grabbed the wrench and headed back to the catwalk stairs that took me to the top of the structure. I hopped the railing and made my way over to the kitchen opening, where I climbed onto the metal scaffolding. Slowly and cautiously, I made my way over to the center of the table below. The room's height was much more intimidating now that I was dangling over it, but I stowed away my fear. There was a lot more that I would have to be afraid of when the time came. This wasn't about to be one of those things.
 
-When I got to the spot I wanted, I reached the wrench underneath and began undoing the bolt of one of the beams that went over the top of the table. I took the thing out all the way before climbing to the other side of the grid and doing the same thing. I managed to worm the second bolt out until it came loose, and the rod began to tilt downward. From there, I hooked my feet around the pole behind me and twisted it free. The six-foot bar began to fall, but I managed to catch it. However, I dropped the wrench in the process, and it plummeted to the kitchen table with a loud clatter. Luckily, I no longer needed it. I quickly pulled the pole up and lay atop the bars in the same spot I had removed it from underneath. It was almost unnoticeable but perfectly unstable, exactly how I needed it. 
+When I got to the spot I wanted, I reached the wrench underneath and began undoing the bolt of one of the beams that went over the top of the table. I took the thing out all the way before climbing to the other side of the grid and doing the same thing. I managed to worm the second bolt out until it came loose, and the rod began to tilt downward. From there, I hooked my feet around the pole behind me and twisted it free. The six-foot bar began to fall, but I managed to catch it. However, I dropped the wrench in the process, and it plummeted to the kitchen table with a loud clatter. Luckily, I no longer needed it. I quickly pulled the pole up and lay atop the bars in the same spot I had removed it from underneath. It was almost unnoticeable but perfectly unstable, exactly how I needed it.
 
 From there, I scurried back along the scaffolds just in time for the clock on the wall to start laughing, and for one of the birds to come barging in to investigate. It looked at the wrench and bolts laying on the table, then up at the ceiling in pure confusion. Other than that, it didn't seem to notice the loose pole or me. So far, so good.
 
@@ -181,14 +182,11 @@ That night I set to work on the second half of things. I had no scavenging to do
 
 I had to empty my water bottle and fill it with oil to have an easier time carrying it. I then climbed onto the scaffolding over the kitchen once again. I poured the clear liquid over the metal bars near the pole I had removed, coating them in a slippery film, then ran my finger against the surface to test it. It proved thoroughly slick. Once I had covered it all perfectly, I headed back to the roof of the playhouse and triple-checked everything.
 
-By the time I had finished, I had a couple of hours to spare. As the time got closer, my heart began to pound more and more. I couldn't believe I was doing this. I couldn't believe that this was actually my plan. It didn't matter now. It was too late either way. Best case scenario, it worked, and we all made it out with our lives. The worst-case was that we all died, which the grim truth was that that was most likely going to happen sooner or later. 
+By the time I had finished, I had a couple of hours to spare. As the time got closer, my heart began to pound more and more. I couldn't believe I was doing this. I couldn't believe that this was actually my plan. It didn't matter now. It was too late either way. Best case scenario, it worked, and we all made it out with our lives. The worst-case was that we all died, which the grim truth was that that was most likely going to happen sooner or later.
 
 With the time remaining, there was only one last thing to do. I tied my rope into the best lasso I could, then practiced using it on the computer chair. By the time the day started, I had gotten pretty good with the thing but not good enough. I was only going to have one shot, and I couldn't afford to blow it. Even while I surveyed my friends, I continued practicing, only taking a break to fill them in on any details they might still need.
 
 All the while, I could see Larry glaring at them in the background. I suddenly realized that in all of my planning, I hadn't really factored him in at all. I didn't think he would interfere with anything. There would already be so much chaos I don't know if there was anything he could've added. But I hadn't thought about what to do with him, and I knew why. It was because I already knew what I had to do, and somehow, despite everything Larry had done, I still felt terrible about it. A familiar feeling swelled in my throat, a feeling that I had gotten a year prior when I had to make the exact same decision.
-
-  
-
 
 "What are we going to do with him?" Daniel asked us.
 
@@ -258,7 +256,8 @@ I looked across the room to Mark, who hadn't really looked up the entire meeting
 
 "What about you, Mark?" I asked. He glanced at me, and I continued. "I feel like you and Dan should get the final say on this. After all, you were the one he attacked, and he clearly has it out for Dan."
 
-Mark swallowed a gulp that obviously pained him before speaking in a raspy voice, "Daniel is right. That's not Larry anymore. The guy was a jerk to begin with, but I think we need to acknowledge that we never treated him the best. I would go crazy too if I were trapped in the same place for three years with people that hated me." Everyone shifted their glances to the floor. "We can't be angry about it anymore. What's done is done. All we can do is show a little mercy to him. I agree with Ethan."  
+Mark swallowed a gulp that obviously pained him before speaking in a raspy voice, "Daniel is right. That's not Larry anymore. The guy was a jerk to begin with, but I think we need to acknowledge that we never treated him the best. I would go crazy too if I were trapped in the same place for three years with people that hated me." Everyone shifted their glances to the floor. "We can't be angry about it anymore. What's done is done. All we can do is show a little mercy to him. I agree with Ethan."
+
 Mark looked to Dan to get his opinion as well. Daniel said nothing in return. Just shook his head in agreement.
 
 "Then it's settled," Claire said.
@@ -271,7 +270,7 @@ All was silent for a long time before Bea spoke.
 
 "When are we doing this?"
 
-We all exchanged glances with one another before looking to Daniel for that answer as well. "We may as well get it over with. No point in drawing things out."
+We all exchanged glances with one another before looking to Daniel for that answer as well. "We may as well get it over with. No point in drawing things out."
 
 We watched as Daniel walked into the bedroom and knelt next to Larry. He began speaking, and we all just stared. We saw Larry's face morph from insane amusement to pure dread as he looked past Dan to us in disbelief. He began to squirm in protest as Daniel lifted him from the ground and led him out.
 
@@ -285,16 +284,14 @@ Larry bared his teeth like a dog and twisted his face into that of pure rage but
 
 Ethan and I slid the pantry quietly to the side and then turned to Daniel, who nodded. I placed my hand on the black doorknob and swung it open. The stench of mildew flooded the air and filled the kitchen. Daniel loosened the ropes on Larry's hands so that he could worm them out with enough effort, then unceremoniously pushed him forward into the room.
 
-We didn't want to make a big scene out of it. As soon as he was through, I began to shut the door behind him. Through the crack, I caught one last glimpse of Larry's crazed expression. His eye twitched, and his jaw was clenched, A look of pure betrayal.  
-A look that stuck with me every day since.  
-  
+We didn't want to make a big scene out of it. As soon as he was through, I began to shut the door behind him. Through the crack, I caught one last glimpse of Larry's crazed expression. His eye twitched, and his jaw was clenched, A look of pure betrayal.
 
+A look that stuck with me every day since.
 
-There was no saving Larry, and I knew that.  
-  
+There was no saving Larry, and I knew that.
 
+When the day was done and my friends lay down to rest, I made rounds around the playhouse one last time, ensuring everything was in order for the next night. I even crawled out on the scaffolding again to re-oil the bars. I needed to make sure they were extra slick. After that, I went into the hallways to scavenge objects to practice lassoing, then did so all night.
 
-When the day was done and my friends lay down to rest, I made rounds around the playhouse one last time, ensuring everything was in order for the next night. I even crawled out on the scaffolding again to re-oil the bars. I needed to make sure they were extra slick. After that, I went into the hallways to scavenge objects to practice lassoing, then did so all night.  
 When the Clock woke everyone up, my heart began pounding like a war drum. 'This is insane,' my conscience screamed; 'This isn't going to work.' I shoved the thought out of my head and continued practicing.
 
 Breakfast, activities, playhouse.
@@ -359,8 +356,10 @@ The Curator reached both of its arms forward, one to grab the next rung, and the
 
 That's when all hell broke loose.
 
-The beast before me grabbed the unstable bar, causing it to slip from the scaffolding. It fell to the table below with a thunderous clatter, and the birds paused their execution to look up. All of them began to point at us and wildly flail their arms. The Curator tried to catch itself on an oiled bar with the hand meant for me, but it barely managed to do so and slipped slightly into the hole. I couldn't believe it had worked. There was only one thing missing. It wasn't going to fall on its own. I threw the lasso out, and it looped perfectly around the Curator's neck. Without hesitation, I leaped from the bars and held tight to the rope. It went taut, and the jolt caused The Curator's hands to slip effortlessly from the oil-covered scaffolds. 
+The beast before me grabbed the unstable bar, causing it to slip from the scaffolding. It fell to the table below with a thunderous clatter, and the birds paused their execution to look up. All of them began to point at us and wildly flail their arms. The Curator tried to catch itself on an oiled bar with the hand meant for me, but it barely managed to do so and slipped slightly into the hole. I couldn't believe it had worked. There was only one thing missing. It wasn't going to fall on its own. I threw the lasso out, and it looped perfectly around the Curator's neck. Without hesitation, I leaped from the bars and held tight to the rope. It went taut, and the jolt caused The Curator's hands to slip effortlessly from the oil-covered scaffolds.
 
 Together, we plummeted to the table far, far below.
 
-
+&#x200B;
+
+[{Next Part}](https://www.reddit.com/r/nosleep/comments/1aphxuk/somewhere_beneath_us_part_11/?utm_source=share&utm_medium=web2x&context=3)
