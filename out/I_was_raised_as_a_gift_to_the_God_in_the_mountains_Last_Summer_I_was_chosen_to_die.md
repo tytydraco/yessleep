@@ -25,7 +25,7 @@ The animals reared upon the land grew strong and hale, as did the crops fed from
   
 In time, the Hill Father allowed some of the settlers to travel as far as the neighbouring town of Walpurgis to sell what they had sown, and from this those families came into wealth such as they had never known in the country they’d left behind.   
   
-Technology and industry came to us, in time, vehicles, computers, and telephones. As with the visits to Walpurgis, all within the bounds of our community were forbidden to speak of our pact with the Hill Father by any means, nor were our men permitted to lure strange women into town to exchange for their blood.  
+Technology and industry came to us, also, vehicles, computers, and telephones. As with the visits to Walpurgis, all within the bounds of our community were forbidden to speak of our pact with the Hill Father by any means, nor were our men permitted to lure strange women into town to exchange for their blood.  
   
 This Elke, as mouthpiece to the God, commanded, and so in spite of such advances and communication with the outer world the cause of our riches remained a secret, a bleak and festering shame.  
   
