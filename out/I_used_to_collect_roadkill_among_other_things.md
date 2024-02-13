@@ -28,7 +28,7 @@ Luckily, though, he seemed to buy the story and proceeded to remove a small note
 
 The cop raised an eyebrow and lowered his sunglasses which were still on for some inexplicable reason even though it was dark out by that point. He snapped his notebook closed without writing anything and with one last up and down glance and a 'You have a good night now, sir', he hopped back into his squad car and sped away. I felt so tired. Work could wait until morning. I was on the cusp of finishing my masterpiece and it couldn’t be perfected through fatigue. It needed to be just right…
 
-The following few days sped past in a blur of sawing and sewing, working furiously in anticipation of Anna the social worker's next visit. I was just adding the finishing touches when I heard the knock at the door. Anxiously I draped the sheet back over and rushed over to finally reveal the real me to my soulmate. I undid the locks and the door to destiny swung open.
+The following few days sped past in a blur of sawing and sewing, working furiously in anticipation of Anna the social worker's next visit. I was just adding the finishing touches when I heard the knock at the door. Anxiously I draped the sheet back over and rushed to finally reveal the real me to my soulmate. I undid the locks and the door to destiny swung open.
 
 "Anna! So lovely to see you!"
 
@@ -50,13 +50,13 @@ She cleared her throat and with her voice softening slightly she replied wearily
 
 My heart shriveled but my resolve held strong. I tried not to let her see how much she had hurt me.
 
-"Oh, okay. If you really have to get going… I'll walk you out."
+"Oh, okay. If you really have to be going… I'll walk you out."
 
 I started towards the front door, and as she stood up to follow me I yanked the sheet away from on top of my magnum opus, clumps of matted fur and maggots fell to the floor with it along with a dusting of powdered detergent. I spun around to face my bride for all time and I yelled,
 
 "WHADDAYA THINK, BABY! IS THIS IT OR WHAATT!!"
 
-A chalk-white color claimed her complexion as she took in what was in front of her. Secured around the top of a wooden coat rack with duct tape and staples was the mound of gutted animal carcasses I'd spent the last month procuring. The torsos of raccoons, rats, foxes, rabbits and a whole assortment of other wild things in various states of decomposition were balled into a molting mass of death. Their limbs sewn into the sides to create the impression of a Great Spider, with a great many legs. And atop the Great Spider were my prized possessions. The scalps… adorning my masterpiece like a glorious crown of blonde and brunette and gray and redhead. They weren't quite dead when I found them… Well, most of them anyway… in their homes and on their ways to and from work… all those late nights. But their sacrifice allowed for this one glorious moment in the sun. Something to tell the grandkids about. And then, just like that, all of the illusions were shattered. She rejected me, running screaming, fleeing out the front door… brushing right past me.
+A chalk-white color claimed her complexion as she took in what was in front of her. Secured around the top of a wooden coat rack with duct tape and staples was the mound of gutted animal carcasses I'd spent the last month procuring. The torsos of raccoons, rats, foxes, rabbits and a whole assortment of other wild things in various states of decomposition were balled into a molting mass of death. Their limbs sewn into the sides to create the impression of a Great Spider, with a great many legs. And atop the *Great Spider* were my prized possessions. The scalps… adorning my masterpiece like a glorious crown of blonde and brunette and gray and redhead. They weren't quite dead when I found them… Well, most of them anyway… in their homes and on their ways to and from work… all those late nights. But their sacrifice allowed for this one glorious moment in the sun. Something to tell the grandkids about. And then, just like that, all of the illusions were shattered. She rejected me, running screaming, fleeing out the front door… brushing right past me.
 
 I've been back in the hospital for just over six years now. The media has taken to calling me "Sam the Scalper", if you've ever heard such a ridiculous thing. People always miss the point. I'm not allowed to do interviews, and I don't want to. All I want to do now is count the days until I can see my sweet Anna again, and begin work on a new creation that really will win her heart once and for all.
 
