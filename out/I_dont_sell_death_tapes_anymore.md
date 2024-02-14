@@ -18,7 +18,7 @@ Bill was my tapes guy. About 10 years ago I started a gore site online. At first
 
 Until I met bill. I don't ask bill where he gets his tapes, he just brings me a crazy new batch every week, I pay him, then we go our separate ways.
 
-Usually me and bill meet at a tacobell or a pub, but today he dragged us half way across town to some scummy dive where half the patrons look like they would sell their mothers cooch for a hit of anything. Probably a good half of my website viewers were probably in here.
+Usually me and bill meet at a tacobell or a pub, but today he dragged us half way across town to some scummy dive where half the patrons look like they would sell their mothers cooch for a hit of anything. Probably a good half of my website viewers were in here.
 
 "Fine but why this place?"
 

@@ -13,13 +13,13 @@ As Alex handed me the sheet of paper, my fingers shook slightly with anticipatio
 
 "Rule number one," I read aloud, my voice trembling slightly. "Survive until 6 AM." The words hung in the air, heavy with the weight of their implication.
 
-"Rule number two: Monitor the cameras for any anomalies," I continued, my heart racing as I imagined the horrors that might appear on the screens before me.
+"Rule number two: Monitor the cameras for any anomalies,"
 
-"Rule number three: No leaving the basement until the shift ends," I read, feeling a sense of claustrophobia closing in around me at the thought of being trapped in this dark, oppressive space.
+"Rule number three: No leaving the basement until the shift ends," 
 
 I glanced up at Alex, my eyes pleading for some reassurance, but his expression remained stoic and unreadable.
 
-"Rule number four: At 2:25 AM, check under the bed for any entities," I read, a shiver running down my spine at the thought of what might lurk in the shadows beneath the bed.
+"Rule number four: At 2:25 AM, check under the bed for any entities,"
 
 "Rule number five: If you hear scratching at the door, do not open it," I continued, my voice growing hoarse with each word. The rules seemed to stretch on endlessly, each one more ominous than the last.
 
@@ -31,42 +31,43 @@ I glanced up at Alex, my eyes pleading for some reassurance, but his expression 
 
 “Rule number eight: Do not let the clocks strike midnight. The consequences: Time will warp and distort, causing your body to age rapidly before your very eyes, leaving you a withered husk of your former self.” The rules kept getting more confusing, how was I supposed to do this?
 
-“Rule number nine: If you see a figure standing in the shadows, do not make eye contact,” I continued, a shiver running down my spine at the thought of the invisible entity’s that surrounded me.
+“Rule number nine: If you see a figure standing in the shadows, do not make eye contact,”
 
-“Rule number ten: If you feel a sudden drop in temperature, hide immediately and stay quiet,” I read, my breath breathing in the chill air as the temperature seemed to plummet around me.
+“Rule number ten: If you feel a sudden drop in temperature, hide immediately and stay quiet.”
 
-“Rule number eleven: If you hear your name whispered in the darkness, do not respond,” I continued, the hairs on the back of my neck standing on end at the thought of someone – or something – calling out to me from the shadows.
+“Rule number eleven: If you hear your name whispered in the darkness, do not respond,”
 
-“Rule number twelve: If you encounter a mirror, do not look into it,” I read, feeling a sense of unease wash over me at the thought of what might be lurking on the other side.
+“Rule number twelve: If you encounter a mirror, do not look into it.”
 
-“Rule number thirteen: If you see a door that wasn’t there before, do not open it,” I continued, my heart pounding in my chest as the rules seemed to blur together in a haze of fear and uncertainty.
+“Rule number thirteen: If you see a door that wasn’t there before, do not open it,” I continued,
 
-“Rule number fourteen: If you hear footsteps echoing through the halls, do not investigate,” I read, the sound of my own heartbeat pounding in my ears as the tension in the room reached a fever pitch.
+“Rule number fourteen: If you hear footsteps echoing through the halls, do not investigate,” 
 
-“Rule number fifteen: If you feel a sudden sense of dread, trust your instincts and seek safety,” I continued, my hands trembling as I struggled to keep the paper steady in my grasp.
+“Rule number fifteen: If you feel a sudden sense of dread, trust your instincts and seek safety,” 
 
-“Rule number sixteen: If you encounter a staircase leading downward, do not descend,” I read, a sense of vertigo washing over me at the thought of the depths that lay beneath.
+“Rule number sixteen: If you encounter a staircase leading downward, do not descend,”.
 
-“Rule number seventeen: If you see a shadow move out of the corner of your eye, do not turn to look,” I continued, a cold sweat breaking out across my brow as the darkness seemed to press in on all sides.
+“Rule number seventeen: If you see a shadow move out of the corner of your eye, do not turn to look,”
 
-“Rule number eighteen: If you hear music playing from an unknown source, cover your ears and run,” I read, my pulse quickening as the imagined strains of an eerie melody filled the air.
+“Rule number eighteen: If you hear music playing from an unknown source, cover your ears and run,”
 
-“Rule number nineteen: If you encounter a locked window, do not attempt to escape,” I continued, feeling a sense of hopelessness creeping in as the realization sank in that there was no way out.
+“Rule number nineteen: If you encounter a locked window, do not attempt to escape,”
 
-“Rule number twenty: If you hear a voice beckoning you to follow, do not heed its call,” I read, a chill running down my spine at the thought of the unseen forces that sought to lure me into the darkness.
+“Rule number twenty: If you hear a voice beckoning you to follow, do not heed its call,” 
 
-“Rule number twenty-one: If you feel a sudden sense of being watched, do not turn around,” I continued, the hairs on the back of my neck standing on end as I felt the weight of unseen eyes boring into me from the shadows.
+“Rule number twenty-one: If you feel a sudden sense of being watched, do not turn around,” 
 
 “Rule number twenty-two: If you encounter a door marked ‘Exit,’ do not believe it,” I read, my heart sinking as the realization dawned that there was no escape from this nightmarish labyrinth.
 
-“Rule number twenty-three: If you see a clock ticking backwards, close your eyes and count to ten,” I read, a sense of disorientation washing over me as time seemed to warp and twist around me.
+“Rule number twenty-three: If you see a clock ticking backwards, close your eyes and count to ten,”
 
-“Rule number twenty-four: If you hear the sound of children laughing, do not be fooled – they are not children,” I read, a shiver running down my spine at the thought of the sinister entities that lurked in the darkness.
+“Rule number twenty-four: If you hear the sound of children laughing, do not be fooled – they are not children,”
 
 As I reached the second to last rule, my hands grasped on the paper.
+
 “Rule number twenty-five: If you see yourself reflected in a mirror, do not trust what you see – for in this place, nothing is as it seems.” Then, the last rule. I don’t even know anymore.
 
-As I took a deep breath to steady my nerves, a new sense of dread washed over me. My eyes scanned the list of rules once more, searching for any additional guidance in the face of the of   Alex.
+As I took a deep breath to steady my nerves, a new sense of dread washed over me. My eyes scanned the list of rules once more, searching for any additional guidance in the face of the of Alex.
 "Rule number twenty-six: The rules will change every night. Stay vigilant and adapt to survive."
 
 My heart skipped a beat as I read the ominous words, a chill creeping down my spine. The realization hit me like a ton of bricks – not only was I trapped in this nightmarish scenario, but the very rules meant to guide me were in constant flux.
