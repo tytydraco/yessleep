@@ -1,14 +1,16 @@
 Valentine's Day was always a joke to us, a commercial holiday for saps and those too desperate to cling to the idea of romantic love. So, when Mia found that ancient book buried in the corner of that musty old bookstore, it was meant to be another laugh. A dusty tome with spells for love, prosperity, and, amusingly, one to summon Cupid himself. We thought, why not?
 
-"Let's summon Cupid, bind our love eternal, and have a story to tell," Mia suggested with a smirk, her eyes alight with mischief.
+"Hey, Chase, how about we summon Cupid? You know, bind our love eternally, yada yada..." Mia suggested with a smirk, her eyes alight with mischief.
 
-We didn't believe, not really. But we were curious, thirsty for a thrill that our mundane lives lacked. The ritual was simple, almost disappointingly so: a circle of rose petals, two candles lit at its center, and a chant in a language that sounded like gibberish. We held hands, our fingers laced tightly together, and recited the words with skepticism.
+I looked at her skeptically. "Sure, why not? Maybe we'll have a story to tell afterwards," I conceded.
+
+We didn't believe it, not really. But we were curious, thirsty for a thrill that our mundane lives lacked. The ritual was simple, almost disappointingly so: a circle of rose petals, two candles lit at its center, and a chant in a language that sounded like gibberish. We held hands, our fingers laced tightly together, and recited the words with skepticism.
 
 "This feels ridiculous," I whispered, trying to stifle a laugh.
 
 "Shh, just go with it," Mia whispered back, squeezing my hand.
 
-The moment the final syllable left our lips, a gust of wind extinguished the candles, and the room fell into an unnerving silence. We laughed it off, ready to move on from our little adventure, but then we saw him. 
+The moment the final syllable left our lips, a gust of wind extinguished the candles, and the room fell into an unnerving silence. We laughed it off, ready to move on from our little adventure, but then we saw him.
 
 Cupid, a figure far removed from any quaint depiction we had imagined. Not the plump cherub of greeting cards, but a being of ancient majesty and awe, his presence alone rendering the air around us thick, almost tangible. He stood enveloped in a soft, ethereal glow, his wings magnificent and iridescent, casting dancing shadows around us. His attire, a blend of armor and robes, spoke of eras long past, and his eyes, deep pools of timeless wisdom tinged with a melancholy that tugged at the very essence of our beings, held us captive.
 
