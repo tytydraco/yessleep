@@ -1,4 +1,4 @@
-[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1aoohtn/somewhere_beneath_us_part_10/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1aoohtn/somewhere_beneath_us_part_10/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) \~ [{Next Part}](https://www.reddit.com/r/nosleep/comments/1aqbowj/somewhere_beneath_us_part_12/?utm_source=share&utm_medium=web2x&context=3)
 
 &#x200B;
 
@@ -32,8 +32,7 @@ Ethan and Bea threw open the library doors then turned back to hold them open, b
 
 Daniel and I were abruptly brought to the floor as Larry tackled us from behind. He wasted no time in jumping on top of Dan and punching him over and over like a feral animal. I rolled to my knees and reached out, tearing him off and shoving him to the ground.
 
-I quickly turned back to Bea and Ethan,
- "The third shelf on the right! Blue book! Get it open, now!"
+I quickly turned back to Bea and Ethan, "The third shelf on the right! Blue book! Get it open, now!"
 
 "But, Joel-"
 
@@ -147,8 +146,7 @@ The sentence felt odd to hear. Considering we had spent every day together for t
 
 With the stress of my friends being gone now lifted, and the lack of sleep that I had gotten the past week taking its toll, that night was the best rest I had gotten since arriving at the house. It must have been for the others as well because all of us ended up sleeping in way past intended. When we finally did get up and around that morning, we decided that we needed to take a day to do some serious scavenging. Unfortunately, my friends' packs had been left at the playhouse, and I had burned through most of mine during the rescue mission. That meant we had less than a fourth of the resources we needed to stay alive.
 
-Bea and Daniel paired up, going one way, while Ethan and I took the other hall. It was nice to have time alone with Ethan again. We hadn't really gotten to hang out much since we left the house, although the term 'hang out' was quite a loose one.
- as we walked, he seemed less than his usual optimistic self, though. He was quiet and spacey, and I noticed him jumping at every little pop and crack of the house settling. When we stopped in a room that looked like an old food pantry, I confronted him.
+Bea and Daniel paired up, going one way, while Ethan and I took the other hall. It was nice to have time alone with Ethan again. We hadn't really gotten to hang out much since we left the house, although the term 'hang out' was quite a loose one. as we walked, he seemed less than his usual optimistic self, though. He was quiet and spacey, and I noticed him jumping at every little pop and crack of the house settling. When we stopped in a room that looked like an old food pantry, I confronted him.
 
 "Everything alright, man?"
 
@@ -388,7 +386,7 @@ We nodded.
 
 We hauled it back through a couple of rooms and then took another hallway, much to the confusion of Daniel and Ethan. It may have been a small thing, and maybe Bea and I really had just thought it was a different sight than it was. But two people hallucinating the same thing was unlikely, and on top of that, we didn't want to take any chances.
 
-We traveled for another day and a half before finding the next set of stairs, but this set was strange. There were no twists or turns to it, just a staircase going straight down into darkness. Even shining our new flashlight down the steps didn't allow us to see the bottom; they were clearly expansive. The wet concrete slabs were stained with rust and grime, and the sound of our footsteps echoed frantically throughout the stone corridor as we descended. 
+We traveled for another day and a half before finding the next set of stairs, but this set was strange. There were no twists or turns to it, just a staircase going straight down into darkness. Even shining our new flashlight down the steps didn't allow us to see the bottom; they were clearly expansive. The wet concrete slabs were stained with rust and grime, and the sound of our footsteps echoed frantically throughout the stone corridor as we descended.
 
 About halfway down, A slight feeling of hope began to grow in my heart. This one was taking us deep. Maybe we were close to the exit. Perhaps all of this was coming to an end soon. Finally, the beam from our light shone across the bottom of the steps where a door sat on the wall. We swung it open, and the hope that I held in my heart quickly gave way to utter confusion.
 
@@ -425,3 +423,7 @@ I stepped to the lawn and bent over, unable to believe what I was seeing. Howeve
 Just then, my watch began beeping, alerting us that it was nighttime above. Then, something strange happened. Ahead, lining the road, one by one, orange fluorescent streetlights began to flick on. They illuminated not only the road but something else that lay beyond. Houses. A suburban neighborhood of cookie-cutter homes painted various shades of green, orange, blue, and yellow.
 
 "Yay…" Ethan nervously joked, "We're home..."
+
+&#x200B;
+
+[{Next Part}](https://www.reddit.com/r/nosleep/comments/1aqbowj/somewhere_beneath_us_part_12/?utm_source=share&utm_medium=web2x&context=3)

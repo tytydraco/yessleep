@@ -4,12 +4,12 @@
 
 We all huddled together in the middle of the street and began to make our way further along. None of the houses appeared to have any lights on, and other than the sound of pipes groaning from somewhere far away, there was no noise at all. The dread began to mount in our guts. This was a very new experience and one that felt unsafe at that. I noticed Ethan seemed especially afflicted as his head pivoted much more rapidly than the rest of ours. I suddenly remembered what he had asked me back during the scavenging run, and a lump formed in my throat. The next time we caught each other's glance, he coughed and stood up more confidently in an attempt to hide his concern. I wasn't buying it, however. Not only was he a terrible liar, but it was an act that I had seen too many times before.
 
-  
-  
+&#x200B;
+
 One that I wouldn't ignore again.
 
-  
-  
+&#x200B;
+
 "Are you okay?"
 
 "Yeah, I'm fine."
@@ -108,12 +108,12 @@ I could tell that it wasn't what she wanted to hear right now and immediately fe
 
 "I love you too, Joel." She looked up at me with a smile, "Just by the way."
 
-I smiled back and pulled her into a kiss. The pressure of the hills was nothing at that moment. The conversation we just had was nothing at that moment. The poison I had infected Andi with; in my mind, it was nothing at that moment. 
+I smiled back and pulled her into a kiss. The pressure of the hills was nothing at that moment. The conversation we just had was nothing at that moment. The poison I had infected Andi with; in my mind, it was nothing at that moment.
 
 It never was…
 
-  
-  
+&#x200B;
+
 As we walked down through the dark suburban neighborhood, I realized that I had started fidgeting with the folded paper in my pocket. Andi's note. The one she had left for me the night that she departed. It was crumpled beyond belief, and the parchment had become soft and worn over the last year, a side effect of it spending every day in the same place. I withdrew my hand and focused on the area around us once again.
 
 As we passed by a red house, Daniel suddenly spoke, "Wait a minute."
@@ -186,7 +186,7 @@ We began to walk the moat's perimeter, looking for another bridge that might lea
 
 "No, no, no, no…"
 
-"Ethan? What's wrong-" 
+"Ethan? What's wrong-"
 
 I realized the answer as soon as the question left my lips. The door we had left open was now shut; the book Ethan had wedged under it was nowhere to be found. Ethan reached the barrier and began to claw his fingers along the cracks, hoping to tear it open. After a good minute of trying, he defeatedly traveled back to us.
 
@@ -224,9 +224,9 @@ We sprinted through the streets with Dan at the helm, flying past the red house 
 
 "The garage!"
 
-We turned back and ran over to the door. Dan flipped open a box on the side of the wall and began punching in a code. I prayed that there was actually power to the houses and not just the street. Ethan shined the good flashlight down the road as we waited, and the beam caught something barreling toward us at an alarming rate. 
+We turned back and ran over to the door. Dan flipped open a box on the side of the wall and began punching in a code. I prayed that there was actually power to the houses and not just the street. Ethan shined the good flashlight down the road as we waited, and the beam caught something barreling toward us at an alarming rate.
 
-Behind us, the keypad flashed red at an incorrect code. 
+Behind us, the keypad flashed red at an incorrect code.
 
 Dan swore under his breath and tried once more. This time, the keypad lit up green, and the labored sound of an engine rang out as the door was hoisted up. We didn't even wait until it was off the ground; we dropped to the floor, and all slid under. As I hopped up, I was greeted with a flashy yellow Ferrari. Unfortunately, I didn't have time to admire its craftsmanship; we made for the door into the house just as we heard the thing behind us pounding on its instrument and squealing like an injured pig. I saw it begin to squeeze its form beneath the crack just as we slammed the door shut and thrust the lock into place.
 
@@ -386,7 +386,7 @@ I stood up from the stool and started back toward the living room.
 
 I spun around and looked Daniel dead in the eye, "I am not going to let this place have you, Dan. We'll find a way out. For all of us."
 
-Without another word, I stormed up the steps. I needed to stop the voices. I needed to not be conscious. I needed warmth. 
+Without another word, I stormed up the steps. I needed to stop the voices. I needed to not be conscious. I needed warmth.
 
 I needed Bea.
 
@@ -402,15 +402,15 @@ I just nodded and kissed the top of her head. "I just *really* missed you."
 
 I could feel the warmth of her breath and the beating of her heart as I held her close. The former was slow and deep, and the latter was rapid and anxious.
 
-"I really missed you too..."  
-   
-  
-  
+"I really missed you too..."
+
+ 
+
 A heavy cough from Mark woke me from my sleep. The poor guy's neck still hadn't healed from Larry's assault. I glanced toward the window on the wall across from me to see that the sky was a deep periwinkle color. Early morning. There was still a good few hours of rest to be had before everyone awoke for the day. A slight chill brushed over my skin, and I tugged lightly on the blankets, hoping to steal back what had been taken by Andi. I was surprised when it came my way so effortlessly. Feeling bad for now being the one who was the thief, I shifted to cover her more, but my embrace only found the mildew-stenched sheets beneath me. I lifted my head and saw that Andi wasn't next to me. Sighing, I lay back against my pillow and nestled myself into the sprawl of coverage I now had, waiting for her to return from the bathroom. She always had to go in the morning, and it always woke me up, but I didn't mind. It gave me an excuse to snuggle back up to her once she lay down again.
 
 Listening to the room's ambiance, I felt a sense of relief. Gentle breathing from all of the bodies around me (albeit a more labored breathing from Mark) and a sense of peace. Something I hadn't felt in a long while. We had gotten so used to the stress from the thing downstairs that other worries began to rise to the surface. One of those things was Larry, and while I felt awful for admitting it, it was a massive weight off everyone's backs to have him gone. It was always like walking on eggshells when he had been around, and with his slow descent into madness, that only became worse and worse. Now that only the sane people remained, we all felt united again. Deep down, I was still feeling uneasy about Andi and the exit, but after the conversation we had had the week prior, I felt a lot better.
 
- Surprisingly, it seemed Andi did too. She was a lot more lively and less often in her head. Her faces of concern disappeared and were instead replaced by the smile we all knew her by. I had tried a couple of times to apologize for how I had acted on the porch, but anytime I did, she would just shush me with a smile and tell me, 'It's okay, Joel. You don't need to be sorry.' 
+Surprisingly, it seemed Andi did too. She was a lot more lively and less often in her head. Her faces of concern disappeared and were instead replaced by the smile we all knew her by. I had tried a couple of times to apologize for how I had acted on the porch, but anytime I did, she would just shush me with a smile and tell me, 'It's okay, Joel. You don't need to be sorry.'
 
 It really seemed like Andi was okay.
 
@@ -436,6 +436,6 @@ Against my better judgment, I stepped into the sunroom. My heart began to pound 
 
 Step by step, I rounded the corner into the dining room. I didn't see her in any of the corners. I didn't see her lying on the blanket we called our "table". I didn't see her at all. I nearly couldn't bring myself to continue forward. There was only one last place to check, and I didn't want to check it. I already knew the outcome. Regardless, I stepped around the corner and peered into the kitchen.
 
-It took a few seconds for the sight to process, despite being prepared for it. Things were foggy and hazy like a dream. My legs shook and eventually gave out on me as I collapsed to the floor with blurry eyes. The pantry that blocked the yellow room door had been slid aside. Slid aside just enough to be opened. 
+It took a few seconds for the sight to process, despite being prepared for it. Things were foggy and hazy like a dream. My legs shook and eventually gave out on me as I collapsed to the floor with blurry eyes. The pantry that blocked the yellow room door had been slid aside. Slid aside just enough to be opened.
 
 Opened just enough for Andi to fit through.
