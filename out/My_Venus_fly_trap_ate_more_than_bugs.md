@@ -143,7 +143,7 @@ The snow had started to melt but still covered almost all of the ground, and as 
  
 "The fuck is this? An earthquake?" I heard Rodney muttering. Then, without warning, from under the snow, a long green vine shot out and grabbed Rodney's left arm. He screamed in shock as another shot out and grabbed his right.
  
-I watched from the open window of the tree house as he struggled, his heels digging into the ground as he was pulled ever closer to where the vines originated when a huge bulb of a plant the size of a small car revealed itself from the snow. The bulb opened up, revealing set after set of razor-sharp teeth, each as long and sharp-looking as a kitchen knife. Rodney kicked and screamed as the plant bit down on Rodney's head, making a sound like a horse eating an apple.
+I watched from the open window of the tree house as he struggled, his heels digging into the ground as he was pulled ever closer to where the vines originated when a huge bulb of a plant the size of a small car revealed itself from the snow. The bulb opened up, revealing set after set of razor-sharp teeth, each as long and sharp-looking as a kitchen knife. Rodney kicked and screamed as the plant bit down on his head, making a sound like a horse eating an apple.
  
 I felt my stomach flip flop. Is this what had become of fern while I was away? I was terrified and kicked the rope ladder down and descended while Fern was finishing up devouring my brother.
  
