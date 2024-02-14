@@ -1,0 +1,115 @@
+I look out over the balcony at the gloomy metropolis below. The fumes from my cigarette mixing with the city's thick smog. I was in Apartment 842-B1 in Megatower Delta, one of the largest housing complexes on the East Coast. I'd been moved here after the outbreak of the 6th Conglomerate War of 2103 when a plasma shell cooked out the left side of my government appointed domicile, and now after believing that things couldn't get any worse they decided to ship me somewhere infinitely more unliveable. Being housed in the city is one thing, but these Towers are hellscapes. Crime of the highest depravity is rampant and corruption among authorities is near total. There's just too many people to control, chaos was always inevitable in a slum like this.   
+  
+  
+  
+  
+  
+I toss the Electric Cherry brand smoke over the balcony and it disappears into the cloud below mere inches from my face, it's pinkish-red tip trailing before fading out of sight. I take one last look at the skyline, beaming at me through the pollution, and I can't help but feel sick to my stomach. All this and yet we still live like savages?   
+  
+  
+  
+ I turn the light off as I wave my hand over the door control and I hear various scuttling noises envelope my one room apartment as I leave, the mag-locks securing my meager living arrangement behind me being their reassurance of my departure. Where those bugs come from I have no idea, there's not exactly much furniture to hide under. Must be the cracks in the walls.   
+  
+  
+  
+I crouch down and peek around the corner into the large concrete hallway dimly lit by overhead lights, most of which have been smashed by vandals. The elevator is near the end in the glow of a smoldering dumpster fire, the coast seems clear. I can hear screaming coming from one of the many graffiti covered apartments littering the chasm-like hallway, blaring hard-techno coming from another and something that sounds like power-tools from another. Which was which was anyone's guess, maybe they were all coming from the same room. The echo made it difficult to tell. I listen through the mess of noise for anything that sounds like it might be an immediate threat. Scavengers make their nests in burn-outs and other condemned places around the Tower in small gangs, then they jump the residents when they have to leave the relative safety of their homes for their depressing assigned job, shoveling scop or supervising droids in the factories.   
+  
+  
+  
+  
+  
+Scavs were rife on my floor.  
+  
+  
+  
+  
+  
+I hear footsteps running up behind me and I sprint the last stretch to the elevator. I smash the door release button and my body collapses to the grubby metal plating beneath as I state the voice command for my specified floor. Thankfully, the AI understands me first time for once and the steel doors slowly close, the heavy thuds coming to a stop as whoever it was giving chase realises they weren't going to get me today.  
+  
+  
+  
+  
+  
+The large box begins it's descent to the ground floor and I thank Zombie Jesus that I made it this time. This was a close call but I've had closer. One time some psychofreak bit into my ankle with chrome chompers and I was laid up for a month, I almost starved to death. I back myself up into a corner and I clutch the small homemade knife in my pocket as I watch the numbers on the floor-dial tick down. Most of the time the elevators are safe due to the biosensors but people still get robbed in them and worse everyday.  
+  
+  
+  
+Nobody else uses the elevator and I enter into the Megatower foyer alone. Security drones buzz above my head and their scanners make my midsection feel hot as they check me out. The ground floor is the safest part of any Megatower, everywhere else in the building seems to be fair-game for scum looking to take advantage these days. The rain hits me hard in the face as I step outside and the neon from the street makes my eyes twitch, bedazzling compared to the depressing interior lighting of the towering tomb I call home.  
+  
+  
+  
+  
+  
+I'm about to arrive at the geo-mine, where I'll spend the next 14 hours jacked into a bot-control extracting ore and other valuable materials from the earth's seabed, when I notice a new light-board I've never seen before. It's an ad for the 'Pleasure Cube' program. Apparently GysCorp had developed a new power conversion technology the previous year that harnesses the human mind, and they were looking for volunteers to test on. The idea being that they hook you into their system, you become their battery, and in return you get to experience "Bliss Forever", or so the marketing said.  
+  
+  
+  
+I take a deep breath and scan my wrist-dock, adding the contact info into my database. Tears begin to roll down my face for the first time in years and they mingle with the heavy rain as I finally accept the fact that I can't keep living like this.   
+  
+  
+  
+  
+  
+\-  
+  
+  
+  
+  
+  
+I eventually make it home after another stressful trek through the halls of Megatower Delta, narrowly managing to sneak past some rabid junkheads on the hunt for fresh parts to pawn off. As soon as the doors close behind me I access my call service and initiate contact with the GysCorp contact ID from the light-board, an automated response picks up and in a friendly, sing-songy tone of voice states,   
+  
+  
+  
+  
+  
+"Thank you for contacting the GysCorp Department of Research, your doing so has been recorded as proof of your agreement to the terms of the Pleasure Cube program. A GysCorp mobile-unit is on their way to escort you to your final destination. Your new life starts now!"  
+  
+  
+  
+  
+  
+A knot hits my stomach as I realise the finality of my decision. I know that everything is about to change forever and a deep sense of dread overcomes me as I prepare to say goodbye to the hovel the powers that be dare to call suitable mass-accommodation.  
+  
+  
+  
+  
+  
+ I open the cupboard under the sink that doesn't work and I grab the tiny bottle of 'spirits' I've been keeping for a moment like this. I crack it and I swig it down in one mouthful, it's only about 12% but it's all I can afford. Just as the fiery liquid hits my stomach a loud knock at the door jolts me, and I feel a warmth like when the bots scan me for contraband. I release the mag-locks and two men in long black coats walk over, take me by the arms and lead me to the elevator. No words are exchanged. We walk out into the street and I feel a prick at the base of my spine.   
+  
+  
+  
+I awake and I'm already restrained in what I assume is the fabled "Pleasure Cube", I was strapped into a table-like platform which took up most of the cold ten square foot metallic room. Illuminated by bright flickering lights not dissimilar to that of the Megatower's.   
+  
+  
+  
+  
+  
+The same woman's voice from the light-board contact begins to speak through my ear-ware.   
+  
+  
+  
+  
+  
+"Welcome to the Pleasure Cube programme. GysCorp is delighted to have you! We're sure you can't wait to move onto the greener pastures we are providing, so we promise to keep this introduction brief! You are mandated to stay on your designated 'Pleasure Platform' with all required technical implantation active for the entirety of your allotted 23.5 hour 'Work Day'. Failure to comply will result in termination. On your break, we advise that you practice relevant stretching and exercise to avoid preventable muscle decay. Any attempt to leave your 'Pleasure Cube' without proper authorisation from staff will result in termination. Immediately before and after your break, staff will implant and remove appropriate GysCorp technology to facilitate the entering and exiting of 'Bliss-State'. Any attempts to interact with staff during this time will result in termination. This announcement has legally been recorded as your final required acceptance of the terms of the 'Pleasure Cube' programme and of the GysCorp 'Testing Treaty of 2048', all of your previously given rights under the Eastern Coalition have now been revoked."  
+  
+  
+  
+  
+  
+I tense up as the door to the small chamber slides open and two doctors in white scrubs begin preparing equipment. I don't want to risk breaching the terms I just agreed to, so I don't yell out in pain when one of them jams a tube in my urethra. Nor when the other presents another tube with a drill like device on the end and uses it to burrow into my stomach. Finally two electrodes are fastened to my temples and with a flash I'm transported to a world of pure color like nothing I've ever seen. I can't move. I don't even seem to have a body anymore, but I don't need one. And just as I'm rolling in a crescendo of ecstacy a bright streak of white covers my vision and I scream my lungs out in terror.  
+  
+  
+  
+ My senses come back to me as a single masked orderly makes his way over to my platform. Without much care he yanks out my nutrition-tube and with slightly less roughness he removes my catheter. Then as my wrist and ankle restraints are removed I try to stand up and immediately fall to the ground. It takes me a while to get on my feet and I try my hardest to perform the recommended exercises, but I struggle not to collapse back to the floor. And then just as I'm beginning to get my footing the guard returns and forcefully places me back on the chilly metallic slab, tightly fastening my restraints. We make eye contact for a few seconds and I can tell that he is also dead inside, like myself and many others I've known and lost. I wonder why he doesn't also join the program. The tubes are painfully reinserted and I'm back in heaven, it feels so good. And yet so incredibly brief, like a dream.  
+  
+  
+  
+  
+  
+I return to consciousness once again and the immediate ache in my bones and muscles is debilitating. I whimper as the men in white fiddle with my extensions and I flop onto the pristine white floor as the door closes behind them. This time I never even make it past a crawl. I struggle as best I can to kick my legs and flail my arms, anything to keep them from withering away, but I'm too weak. The men return and it takes everything in me not to beg for more time to try and recuperate. I'm jacked in, and all feels right. But only for a moment.  
+  
+  
+  
+  
+  
+This time my eyes open and I feel nothing, not even a tingle. A different man is accompanying the staff, distinguished looking. Clearly a superior of some sort. He stares me up and down and prods at my limbs with a pen before declaring me ready for "advanced siphoning" and the two underlings remove the piss-tube from my now raw and lightly bleeding urethra along with my nutrition-port. Another goon wheels in a gurney and I'm carelessly plopped onto it with little concern for my well being. An increasingly painful numb sensation is starting to overtake my body and before I could let out any sort of plea for help I was brought into a large hall stretching as far as I could see, filled with big red pods. An endless sea of bodies. The last thing I feel before they entomb me and hook me up for the final time is a wave of relief. I'm glad I never have to wake up again.
