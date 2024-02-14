@@ -22,7 +22,7 @@ We thought it poetic, if overly dramatic. But before either of us could protest,
 
 In the days that followed, our love intensified, a burning passion that consumed every waking moment.
 
-"I've never felt this way before," Mia confessed one night, after a night of passionate lovemaking. Her eyes gleamed with an intensity that both thrilled and scared me. "I was like..."
+"I've never felt this way before," Mia confessed one night, after a night of passionate lovemaking. Her eyes gleamed with an intensity that both thrilled and scared me. "It was like..."
 
 "...You felt what I felt," I complete her thought.
 
