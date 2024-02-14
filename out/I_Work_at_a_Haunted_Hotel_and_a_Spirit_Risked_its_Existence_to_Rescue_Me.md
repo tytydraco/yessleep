@@ -200,7 +200,7 @@ I stared at her, my mouth hanging open at the barrage of news that seemed way to
 
 I smiled through my tears. “And I’d be very proud to be your kid.”
 
-[Part 1](https://www.reddit.com/r/nosleep/comments/18011dv/i_work_at_a_haunted_hotel_and_its_more_dangerous/) - [Part 2](https://www.reddit.com/r/nosleep/comments/187lmda/i_work_at_a_haunted_hotel_and_the_tenants_saved/) - **Part 3**
+[Part 1](https://www.reddit.com/r/nosleep/comments/18011dv/i_work_at_a_haunted_hotel_and_its_more_dangerous/) - [Part 2](https://www.reddit.com/r/nosleep/comments/187lmda/i_work_at_a_haunted_hotel_and_the_tenants_saved/) - **Part 3** - [Part 4](https://www.reddit.com/r/nosleep/comments/1ah7uk9/i_work_at_a_haunted_hotel_and_i_was_once_buried/?rdt=38151) - [Part 5](https://www.reddit.com/r/nosleep/comments/1aqsc3v/i_work_at_a_haunted_hotel_and_we_were_betrayed/)
 
 \-----
 
