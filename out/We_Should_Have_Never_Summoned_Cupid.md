@@ -1,4 +1,4 @@
-Valentine's Day was always a joke to us, a commercial holiday for saps and those too desperate to cling to the idea of romantic love. So, when Mia found that ancient book buried in the corner of that musty old bookstore, it was meant to be another laugh. A dusty tome with spells for love, prosperity, and, amusingly, one to summon Cupid himself. We thought, why not?
+Valentine's Day was always a joke to us, a commercial holiday for saps and those too desperate to cling to the idea of romantic love. So, when Mia found that ancient book buried in the corner of that musty old bookstore, it was meant to be another laugh. A dusty tome with spells for love, prosperity, and, amusingly, one to summon Cupid himself.
 
 "Hey, Chase, how about we summon Cupid? You know, bind our love eternally, yada yada..." Mia suggested with a smirk, her eyes alight with mischief.
 
@@ -54,7 +54,7 @@ As the days passed, the reality of our existence became a living nightmare. Memo
 
 —
 
-In moments of lucidity, we long for the simplicity of our previous  lives, for the loss of our individuality, the unique quirks that made us, Mia and I. But those moments are now fleeting, quickly drowned out by our growing oneness.
+In moments of lucidity, we long for the simplicity of our previous  lives, for the loss of our individuality, the unique quirks that made us, Mia and Chase. But those moments are now fleeting, quickly drowned out by our growing oneness.
 
 [X](https://www.reddit.com/r/nosleep/comments/19aj2dc/i_found_out_why_my_dad_never_talked_about_his/)
 
