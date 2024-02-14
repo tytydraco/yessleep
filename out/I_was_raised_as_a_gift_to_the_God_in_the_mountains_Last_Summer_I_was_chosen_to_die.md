@@ -41,9 +41,9 @@ Thus as prisoners we girls have been raised across the centuries, knowing our fa
   
 I've lived a life of dread since birth, of sleepless nights praying with cold hands to be spared when the next night of choosing came. As a youth I survived it, and watched with a harrowed gladness as another was led into the woods on the hill.  
   
-But when, last year, Elke passed through the waiting crowd to take my hand I felt fear sing through my very bones until I fell loose into her arms.  
+But when, this year, Elke passed through the waiting crowd to take my hand I felt fear sing through my very bones until I fell loose into her arms.  
   
-My two younger sisters carried me home, their faces torn between the relief of their survival and the loss of me to the mountain. They looked at me and whispered amongst themselves as they went about the housework, and in their eyes I saw the same terror of the mountain I felt in my own hopeless soul.  
+My two younger sisters carried me home, their faces torn between the relief of their survival and the loss of me to the mountain. They looked at me and whispered amongst themselves as they went about the housework, and in their eyes I saw the same terror I felt in my own hopeless soul.  
   
 My father didn’t take well to my choosing. He wasn’t so hard as other men, being that my mother had died giving birth to me, a misfortune almost unknown to our folk, who took pride in their God-given vigour.  
   
@@ -96,6 +96,7 @@ I began to retreat with him, halted only by another blunt command.
 “You stay.”  
   
 In a panic, I glanced at my father, but he was quite drunk with terror, and as useless as a child. He stood, swaying, breathing thickly through his open mouth.  
+
 He would be hated, a pariah, if the town learned he meant to give another’s daughter in my place. This we both knew, but what guilt either of us felt then was eaten up by our desperation to preserve my own life.  
   
 “It’s alright,” I said. “Go home. I love you, Dad.”  
@@ -134,7 +135,7 @@ I followed the Ancestress into the forest, noting that the three wolf dogs came 
   
 Elke found her way through the dark by way of an old-fashioned lantern, though from the certain tread of her boots I imagined she’d know her way just as well without. Her sturdy shape was like a trundling stone against the forest, only marked as human by the clothes on her back.  
   
-Every step I took at her heels was grudging and unstable with fear. None of us from town dared enter the forest in which the Hill Father lived, having heard enough stories of his cantankerous awakenings to value our skins over any curious venture. Even had I not known these stories I would have felt from the very air of that place that I was not wanted there.  
+Every step I took at her heels was grudging and unstable with fear. None of us from town dared enter the forest in which the Hill Father lived, having heard enough stories of his cantankerous awakenings to value our skins over any curious venture. Even had I not known these tales I would have felt from the very air of that place that I was not wanted there.  
   
 Each sound and small motion in the trees was hostile, of that I was certain. I thought of the storms that had shaken the settling families, the wandering colossus that had been seen in the woods above. I walked as close to the Ancestress as I dared, holding the lamp she had given me as though coveting a jewel.  
   
@@ -173,6 +174,7 @@ I believed it. The forest seemed to listen to the old woman’s words.
 “Does the Hill Father know we’re here?” I asked, in quivering trepidation.  
   
 The Ancestress nodded.  
+
 “Yes.”  
   
 I froze. Had I been tricked, lured here to gift to the God a day earlier than agreed?  
@@ -216,6 +218,7 @@ I paused, and there was only the beat of my sickened heart and her guttural brea
 The following morning I wed a boy I barely knew, and with my father's blessing. I went to the young man’s door with the Ancestress at my side, drawing him, dull eyed, from his bed to ask him for his hand.   
   
 Emil had lost three sisters to the Hill Father’s collection, and was young enough that he was not yet cold to their fate, as so many of the townsmen had learned to be.  
+
 Some months after the last of his siblings was sent to the mountain Emil had gone to the Ancestress to beg her favour, as I had.  
   
 "I'm not made for this place," he'd told her. "Will you ask the Hill Father to let me leave unharmed?"  
@@ -233,7 +236,7 @@ Afterwards I began to weep, first from relief, and then over the pity in his eye
 There would never be love, in our house. We had each lost too much.  
   
   
-\*  
+*  
   
   
 Elke went again to the mountain that day and asked for another name in substitute for mine. I watched a neighbour’s daughter weep, and stare upon my beringed hand with hatred.  
