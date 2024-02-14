@@ -83,7 +83,7 @@ Heart broken I trudged next door to my house to flop on the couch and wait to te
  
 "RODNEY!!" I screamed after him, but it was no use. I heard my door fling open and smash into the wall. By the time I got upstairs, he had already flipped my bed onto its side and was standing over it, breathing heavily.
  
-"Fuck is this?" He said turning to me and pointing at something with the bat. I entered the room to see my plant, now overflowing from its pot. It had grown maybe five times its size from yesterday. 
+"Fuck is this?" He said turning to me and pointing at something with the bat. I entered the room to see my plant, now overflowing from its pot. It had grown maybe five times its size since yesterday. 
  
 "Where's the raccoon?" He sounded almost disappointed. "I got more firecrackers and everything!" He said swinging his bat with his good hand at the pot, shattering it into a dozen pieces. "Whatever," he muttered, "gardening's for girls anyway, you little bitch." He pushed past me out of my room, leaving me to look on in horror at the last piece I had to remember my dead friend by, now lying in a clump of soil and broken ceramic. 
  
@@ -133,7 +133,7 @@ I was shaking with rage. I couldn't believe he had just left Ms. Rodriguez dead 
  
 Rodney spit out his beer and hopped on his sport bike, kicking it to life. "LIKE HELL YOU ARE!! WHEN I CATCH YOU, I'M KICKING YOUR DICK SO FAR UP YOUR ASS, YOU'LL BE ABLE TO FLOSS WITH IT!!"
  
-I knew I wouldn't be able to make it to the police before Rodney would catch up to me, so I made a beeline for the woods; he didn't know them as well as I did and would have to ditch his bike.
+I knew I wouldn't be able to make it to the police before Rodney would catch up to me, so I made a beeline for the woods; he didn't know them as well as I did and he would have to ditch his bike.
  
 I got to the forest edge and could hear Rodney close on my heels. I tore through the brush and tree limbs in my way and across the still-frozen creek to the old tree house, the rope ladder hanging down like a hand from God just beckoning me up. 
  
