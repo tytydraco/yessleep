@@ -41,7 +41,7 @@ Thus as prisoners we girls have been raised across the centuries, knowing our fa
   
 I've lived a life of dread since birth, of sleepless nights praying with cold hands to be spared when the next night of choosing came. As a youth I survived it, and watched with a harrowed gladness as another was led into the woods on the hill.  
   
-But when, this year, Elke passed through the waiting crowd to take my hand I felt fear sing through my very bones until I fell loose into her arms.  
+But when, last year, Elke passed through the waiting crowd to take my hand I felt fear sing through my very bones until I fell loose into her arms.  
   
 My two younger sisters carried me home, their faces torn between the relief of their survival and the loss of me to the mountain. They looked at me and whispered amongst themselves as they went about the housework, and in their eyes I saw the same terror of the mountain I felt in my own hopeless soul.  
   
