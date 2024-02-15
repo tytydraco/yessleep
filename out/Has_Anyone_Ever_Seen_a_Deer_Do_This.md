@@ -88,7 +88,7 @@ I pulled over in the same spot as before. I checked the time, it was 11:11pm las
 
 I had to stand on my toes and wiggle my flashlight less than a foot below the bird to get it to fly away. It darted straight through the woods in the direction it was facing and I had been walking, and I charged after it. I'm not sure how long I ran for, but I kept my light ahead and was able to get glimpses of the bird and keep up with it. Eventually, it took me down a very steep hill, where I fell and slid sideways into a small clearing.
 
-It was the absoulte strangest thing I had ever seen in my life.
+It was the absolute strangest thing I had ever seen in my life.
 
 The first thing I noticed was that there were animals all around me. They were all dead, and all in the same way as Charlie. There must have been dozens. Birds, squirrels, chipmunks, rabbits, skunks, possums, and even what looked like a mangy stray cat. All of them were lying in or around the clearing, with their heads snapped back toward their bodies and the insides of their necks on display.
 
@@ -120,7 +120,7 @@ James
 
 &#x200B;
 
-*This is where James' wildlife thread ended. There were a bunch of commenters asking him for updates, but he never gave any. They never found any reports of a missing person named 'James' in WV, but one commenter did find someone named 'Daniel J Shindley' whose middle name was supposedly James, but was 20 years old and reported missing in Maryland 2 weeks after James' last post above. Does anybody else have any info on this? Thanks.* 
+*This is where James' wildlife thread ended. There were a bunch of commenters asking him for updates, but he never gave any. They never found any reports of a missing person named 'James' in WV, but one commenter did find someone named 'Daniel J Shindley' whose middle name was supposedly James, but was 20 years old and reported missing in Maryland 2 weeks after James' last post above. Does anybody else have any info on this? Thanks.*
 
 &#x200B;
 
