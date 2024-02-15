@@ -2,7 +2,7 @@ From the first night, odd things happened to us.
 
 My now ex-wife, Jane, had a great grandmother who passed away; Hilda was her name, and she was an extremely devout Christian. Perhaps that's why this creature never seemed to have bothered her. If anyone had the power of Christ on their side, well, it would've been a woman so devout people regularly called her "Holy Hilda". 
 
-Upon her passing, my ex-wife inherited Holy Hilda's home. It was a nice little home for us to raise our family in; Jane had a child before we met, and was a few months pregnant when I met her. 
+Upon her passing, my ex-wife inherited Holy Hilda's home. It was a nice little home for us to raise our family in; Jane had a child before we met, and was a few months pregnant (with a second child) when I met her. 
 
 Jane and I weren't people of organized religion. We each held our beliefs, but they weren't Christian. The very first night we stayed, the children were actually due for a visit to their father's home. In their absence, we decided to have a little fun, the kind that involved a third party and zero clothing. 
 
@@ -60,13 +60,13 @@ We didn't know about Annie, at first. All we knew was sometimes, the baby would 
 
 But then, one day, Jane heard her older child in the other room, speaking to thin air, what could even be called *playing* with thin air.
 
-Jane went into the room, asking "Hey baby, who are you playing with".
+Jane went into the room, asking "Hey baby, who are you playing with?"
 
 "I play with Annie."
 
 I'm sorry, *who*?
 
-Annie was a little girl, or at least, showed herself as one. Annie was her "friend". We knew any "leave Annie alone" speeches would be futile. 
+Annie was a little girl, or at least, showed herself as one. Annie was their "friend". We knew any "leave Annie alone" speeches would be futile. 
 
 It was, believe it or not, easy enough to pawn this off on an imaginary friend; maybe I didn't really believe that, but I forced myself to. Until I saw it. 
 
@@ -80,7 +80,7 @@ I stopped in my tracks. *What the fuck did I just see walking into my bathroom?*
 
 Finally, the structure remnants in the yard. 
 
-One day, Jane and I were playing with the children in the yard. The younger one suddenly, mid run, tripped and fell. We went over to check, and found what she'd tripped over; it was a board, mostly still under the earth, but a bit was sticking up, enough to trip tiny running feet. 
+One day, Jane and I were playing with the children in the yard. The younger one suddenly, mid run, tripped and fell. We went over to check, and found what the little one had tripped over; it was a board, mostly still under the earth, but a bit was sticking up, enough to trip tiny running feet. 
 
 I asked Jane if there had ever been any other buildings on the property, as Hilda had lived her most of her life, and all of Jane's. She said no, but asked her father, Hilda's son, who had grown up there. The house had been new when his parents bought it, the land undeveloped before there was a home there (I actually checked the city's records because it was driving me up a wall). If there'd ever been a building, he would have known. 
 
