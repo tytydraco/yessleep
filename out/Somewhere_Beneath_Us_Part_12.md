@@ -1,4 +1,4 @@
-[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1aphxuk/somewhere_beneath_us_part_11/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web2x&context=3)
+[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1aphxuk/somewhere_beneath_us_part_11/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web2x&context=3) \~ [{Next Part}](https://www.reddit.com/r/nosleep/comments/1ar4yjy/somewhere_beneath_us_part_13/?utm_source=share&utm_medium=web2x&context=3)
 
 &#x200B;
 
@@ -439,3 +439,7 @@ Step by step, I rounded the corner into the dining room. I didn't see her in any
 It took a few seconds for the sight to process, despite being prepared for it. Things were foggy and hazy like a dream. My legs shook and eventually gave out on me as I collapsed to the floor with blurry eyes. The pantry that blocked the yellow room door had been slid aside. Slid aside just enough to be opened.
 
 Opened just enough for Andi to fit through.
+
+&#x200B;
+
+[{Next Part}](https://www.reddit.com/r/nosleep/comments/1ar4yjy/somewhere_beneath_us_part_13/?utm_source=share&utm_medium=web2x&context=3)
