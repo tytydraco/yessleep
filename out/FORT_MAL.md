@@ -215,3 +215,9 @@ Out of curiosity, on the stairs I asked Maria why the walls whisper. Cheerfully 
 After that, little-by-little I noticed how consumed she was by the walls. Every night I'd slip down stairs to check up on her and their she'd be listening to what they had to say as they whispered about stuff I'd never get the chance to learn about. Sure it was terrifying but it was harmless at first so I decided to ignore it.
 
 You see, at the time I believed that certain things happen for a reason; Some people come into your life to teach you a valuable life lesson, and sometimes we go through hardships to help us grow. I like to tell myself that what happened was for a good reason, as comfort to heal from the pain. And yet, looking back I wish I had stopped it sooner, because that was only the beginning.
+
+&#x200B;
+
+[FORT MAL PT2](https://www.reddit.com/r/nosleep/comments/1ar8rxk/fort_mal_pt2/)
+
+&#x200B;

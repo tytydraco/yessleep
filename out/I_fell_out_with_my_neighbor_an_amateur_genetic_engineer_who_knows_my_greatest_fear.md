@@ -1,8 +1,8 @@
-I hate it when a fly buzzes and taps against the inside of my bedroom window. You know that thing where you try to gently coax it out but it flits sideways? I lay there that early autumn morning focused on the irritating hum. I thought “that sounds like an odd fly, I should get it out”. But I was too cosy in bed. It would settle down and I could let it out in the morning. But then a buddy joined it, and I couldn’t get back to sleep. They dive bombed the window glass.  
+I hate it when a fly buzzes and taps against the inside of my bedroom window. You know that thing where you try to gently coax it out but it flits sideways? I lay there that early autumn morning focused on the irritating hum. I thought “that sounds like an odd fly, I should get it out”. But I was too cosy in bed. It would settle down and I could let it out when I go up. But then a buddy joined it, and I couldn’t get back to sleep. They dive bombed the window glass.  
   
 BUZZZ BUZZZ BZZZ TAP TAP  
   
-The good news that night was my next-door neighbor was quiet. When I’d moved into this neighborhood, it was beautifully hush. Except in the mornings with the chorus of doves and goldfinches. If you listened carefully you could just make out the whisper of a distant freeway, almost calming. No noisy families.  
+The good news that morning was my next-door neighbor was quiet. When I’d moved into this neighborhood, it was beautifully hush. Except in the mornings with the chorus of doves and goldfinches. If you listened carefully you could just make out the whisper of a distant freeway, almost calming. No noisy families.  
   
 Until my neighbor moved in.  
   
@@ -36,7 +36,7 @@ And pretty rapidly, things had gone south after that day.
   
 After that I had become hypersensitive to any noise the kid made. At times I lay in bed with tears of frustration coming out of my eyes. I would try desperately to focus on reading, meditating, I even tried earplugs (which are painful for me).   
   
-I had stood on her front a few times, the first time trying to be calm. The second time, I ashamed to say, I had been rather more angry. She looked scared. I hadn’t meant to frighten her, but I was exhausted. I was tense as I hate confrontation.   
+I had stood on her front porch a few times, the first time trying to be calm. The second time, I ashamed to say, I had been rather more angry. She looked scared. I hadn’t meant to frighten her, but I was exhausted. I was tense as I hate confrontation.   
   
 She had slammed the door in my face.   
   
@@ -122,19 +122,21 @@ The third try, the third spider. EXACTLY the same result. The mysterious dread s
   
 How many darn flies…were there in my bedroom!?  
   
-I mean…  
-  
 A fly landed on my arm.   
   
-A … landed on my arm.   
+No…  
   
 A large hairy house spider landed on my arm.  
   
 I froze for a moment, had a chance to see its fly wings. The same veined transparency from nature documentaries. I almost blacked out with anxiety. It flew away.  
   
-It flew…away.  
+It FLEW away.  
   
-I blacked for a few moments there. The next thing I knew I was out of breath. In the kitchen looking under the sink. Why was I looking under the sink? Of course! Liquid, what I needed was liquid. You could hit flies with a spray of noxious. I had used spray bleach in the past.  
+I blacked for a few moments there. 
+
+
+
+The next thing I knew I was out of breath. In the kitchen looking under the sink. Why was I looking under the sink? Of course! Liquid, what I needed was liquid. You could hit flies with a spray of noxious fluid. I had used spray bleach in the past.  
   
 I grabbed it. Stood a little staring out at the trees outside.  
   
