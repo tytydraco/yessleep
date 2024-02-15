@@ -1,4 +1,4 @@
-I hate it when a fly buzzes and taps against the inside of my bedroom window. You know that thing where you try to gently coax it out but it flits sideways? I lay there that early autumn morning focused on the irritating hum. I thought “that sounds like an odd fly, I should get it out”. But I was too cosy in bed. It would settle down and I could let it out when I go up. But then a buddy joined it, and I couldn’t get back to sleep. They dive bombed the window glass.  
+I hate it when a fly buzzes and taps against the inside of my bedroom window. You know that thing where you try to gently coax it out but it flits sideways? I lay there that early autumn morning focused on the irritating hum. I thought “that sounds like an odd fly, I should get it out”. But I was too cosy in bed. It would settle down and I could let it out when I got up. But then a buddy joined it, and I couldn’t get back to sleep. They dive bombed the window glass.  
   
 BUZZZ BUZZZ BZZZ TAP TAP  
   
@@ -78,7 +78,7 @@ I woke up and kept my eyes closed. Savoring that lovely sense of nothing to do, 
   
 At first I thought I was seeing things. I did too much acid back at college so in low light I sometimes see things that aren’t there. I could see some spots on my wall. Weird There were 3 or 4 on the wall in front of my bed. There were a couple on the wall by the window. I rubbed my LSD-weary eyes, but the spots were still there.  
   
-The room lit up in a glare as I flicked on the main light. There were not spots.   
+The room lit up in a glare as I flicked on the main light. These were not spots.   
   
 They were fucking house spiders.   
   
@@ -104,7 +104,7 @@ I opened my bedroom door. The spiders were motionless. Including the 6 or so on 
   
 I positioned the shoe over the motionless spider, held my breath, and stopped. It did look a bit odd for a spider, but perhaps it was just my fear triggering me. I lowered the heel quickly, firmly and quietly onto it. It didn’t have a chance. I gently shuffled the heel from side to side, and pulled it back.  
   
-There wasn’t even a mark. I looked on the shoe, nothing there. no crushed spider. I checked the floor. No spider corpse.  
+There wasn’t even a mark. I looked on the shoe, nothing there. No crushed spider. I checked the floor. No spider corpse.  
   
 I noticed a fly was buzzing around again. Not exactly my top priority right now.  
   
