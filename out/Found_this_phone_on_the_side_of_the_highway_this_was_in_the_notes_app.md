@@ -1,5 +1,7 @@
 Please whoever is reading this I am begging you to find me. I don’t care how I don’t care about anything else just get me out of this room. My name is Claire Marie Price, my birthday is 07/19/2000. My parents are Jonathan and Rosetta Price, if someone can contact them please tell them I love them and call the police. My phone can’t get through to an emergency operator, I just get a busy tone. I’ve tried so many times. I just want to go home, please God, let me go home. 
+
 …
+
 
 Hello again whoever is reading this. No one has found me yet. I don’t know if these messages are even going anywhere. If this is gonna be it for me I might as well tell you what’s going on to the best of my ability. I don’t know much. I have a portable battery with me for my phone, whoever stuck me in here didn’t think to take my purse. I wish I had something more helpful, but this will do. 
 
@@ -11,7 +13,7 @@ My left leg is shackled to the floor, the chains are metal, pretty typical stuff
 
 …
 
-Someone put water in the box. I fell asleep for a few hours, it’s the first time I’ve slept all week. I was crying and I just drifted off, I was so exhausted I couldn’t stay awake. When I woke up, there was a bottle of water. Just a regular zephyrhills water bottle. I checked every wall and the ceiling too. There’s no door, no holes, no way to get in or out. I want out so badly but right now I just have to count my blessings and drink. My tongue started to swell up. I think I almost died. 
+Someone put water in the box. I fell asleep for a few hours, it’s the first time I’ve slept in days. I was crying and I just drifted off, I was so exhausted I couldn’t stay awake. When I woke up, there was a bottle of water. Just a regular zephyrhills water bottle. I checked every wall and the ceiling too. There’s no door, no holes, no way to get in or out. I want out so badly but right now I just have to count my blessings and drink. My tongue started to swell up. I think I almost died. 
 
 …
 
@@ -31,8 +33,13 @@ He’s here. Someone is in the left corner on the other side of the box. I hear 
 …
 
 He was very hungry. 
+
 The world is going dark. 
+
 The flashlight is scaring him back into the corner but the battery will die soon. 
+
 He’s looking at me again. 
+
 This is the end.
+
 I love you mommy. I love you. I love you. I lo
