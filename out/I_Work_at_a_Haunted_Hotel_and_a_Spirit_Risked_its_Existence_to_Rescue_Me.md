@@ -136,7 +136,7 @@ A powerful force pressed against my stomach, and I grunted as I was jerked to th
 
 “We’ll make it!” he said, dipping closer to the ground.
 
-He made a mad dash towards the hotel, and I glimpsed a few other spirits in the lobby, holding the door open. We all screamed as the vipirit let out an ear-piercing screech that was too close for comfort, and I squeezed my eyes as I prayed we’d make it through safely.
+He made a mad dash towards the hotel, and I glimpsed a few other spirits in the lobby, holding the door open. We all screamed as the vipirit let out an ear-piercing screech that was too close for comfort, and I squeezed my eyes shut as I prayed we’d make it through safely.
 
 I let out a yelp of pain as I crashed and tumbled, and I opened my eyes to find myself facedown on a wooden floor. The lobby floor. Wd. Bunny was floating beside me. We’d made it. 
 
