@@ -194,6 +194,6 @@ I also figured out that Grace had been the one to plant a card in Harper’s loc
 
 \---
 
-The reason I’m telling you all of this right now is because this morning, in front of the door to my apartment was a red heart shaped-box. It had been so long. I went on one date, one FRICKIN’ date for Valentine’s Day with someone I barely knew, and everything's coming back to haunt me.
+The reason I’m telling you all of this right now is because this morning, in front of the door to my apartment was a red heart shaped-box with a withered, dead violet poking out from under the ribbon. It had been so long. I went on one date, one FRICKIN’ date for Valentine’s Day with someone I barely knew, and everything's coming back to haunt me.
 
 There was a note attached to the box. Handwritten. In big dark letters, it said – “*YOU PINKY PROMISED*.”
