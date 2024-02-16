@@ -96,7 +96,7 @@ With tears in my eyes, I took the sledgehammer from him and ran to my closet. I 
 
 I found the hollow corner and let the sledgehammer loose on it. 
 
-What they don't tell you about dead bodies is, if they're trapped in an airtight space, such as a wall, they don't really decompose. They more just dry up, like meat in a dry aging fridge. 
+Something they don't tell you about dead bodies is, if they're trapped in an airtight space, such as a wall, they don't really decompose. They more just dry up, like meat in a dry aging fridge. 
 
 Jacob's official cause of death was starvation. He was still alive when they put him in there. 
 
