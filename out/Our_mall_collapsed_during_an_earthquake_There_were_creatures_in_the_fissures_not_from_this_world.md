@@ -116,7 +116,7 @@ This case ended up getting international attention. Over 500 people died in the 
   
 Of course, the official report is that all the deaths were from the collapse itself. No one wanted to listen to me when I talked about the creatures or the man with the bleeding eyes. I pointed to my mutilated hand and my permanently missing fingers. I even tried to find the rescuer who had first looked down through the opening, but no one would admit to seeing anything like the naked, pale creatures who had attacked us.  
   
-But as they got me and Stevie out, I heard other strange rumors from the emergency responders.  
+But as they got me and Stevie out, I heard other strange rumors from the emergency responders at the Sampoong department store where this took place.
   
 Rumors that they had found a strange room in the basement where someone had been kept as a prisoner and tortured to death. Later on, I would see a picture of the man and realize it had been the Asian man with the bleeding eyes who had tried to save our lives.  
   

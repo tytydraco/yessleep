@@ -112,4 +112,4 @@ Veronica leaned back in her chair and gave me the sweetest, yet, deadliest smile
 
 I didn’t know I could be so afraid and so in love with someone before…
 
-So in conclusion, I will \*definitely\* forget about Valentine’s Day next year. And maybe in a year, or two, I’ll try my luck at camping again. Hopefully next time I won’t lose one of my balls.
+So in conclusion, I will \*definitely\* not forget about Valentine’s Day next year. And maybe in a year, or two, I’ll try my luck at camping again. Hopefully next time I won’t lose one of my balls.
