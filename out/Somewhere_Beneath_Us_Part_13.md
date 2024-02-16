@@ -1,4 +1,4 @@
-[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1aqbowj/somewhere_beneath_us_part_12/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1aqbowj/somewhere_beneath_us_part_12/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) \~ [{Next Part}](https://www.reddit.com/r/nosleep/comments/1arxoc2/somewhere_beneath_us_part_14/?utm_source=share&utm_medium=web2x&context=3)
 
 &#x200B;
 
@@ -443,3 +443,7 @@ He turned the handle with a creak of the pipes, and slowly, the flow trickled to
 "I tried everything while the paramedics came, but she wouldn't wake up… CPR didn't work… trying to give her oxygen didn't work… Begging her to wake up didn't work… It was too late for any of that… I let my daughter die because I…." He looked at the keys in his hand and angrily lobbed them out of the door and against the hallway wall. "I belong here. This is what I deserve."
 
 He buried his face into his arms and knees and let the grief take over as Bea, Ethan, and I all stared at one another. Nobody knew what to say. Nobody wanted to move. Nobody wanted to do anything. After a moment, I looked back to Daniel and then silently stepped into the room with him, sliding against the vanity and sitting in the puddle. After a moment, Ethan and Bea did the same. Our thoughts on what had happened were irrelevant. What was done was done. We knew that, and Daniel certainly did as well. Nothing we could do was going to cure that. Dan hated himself, and that wasn't going to change either. So instead, we just sat with a man who was broken and hoped that that was enough.
+
+&#x200B;
+
+[{Next Part}](https://www.reddit.com/r/nosleep/comments/1arxoc2/somewhere_beneath_us_part_14/?utm_source=share&utm_medium=web2x&context=3)
