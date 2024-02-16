@@ -135,4 +135,4 @@ I have a few more stories about this town to share. I don't really know if they'
 
 This is Katie Smith, signing out for the night as there is only soo much more bright light my sleep deprived-eyes can take from my laptop at 3 in the morning.
 
-Part II (SOON) 
+[Part II](https://www.reddit.com/r/nosleep/comments/1asgpn1/three_more_strange_tales_from_the_town_of/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
