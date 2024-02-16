@@ -100,7 +100,7 @@ What they don't tell you about dead bodies is, if they're trapped in an airtight
 
 Jacob's official cause of death was starvation. He was still alive when they put him in there. 
 
-I didn't ever see mom and dad after that. I went to live with my aunt. I never saw Jacob, either. I missed him. 
+I didn't ever see mom and dad after that. Police took me to live with my aunt. I never saw Jacob, either. I missed him. 
 
 The last time I saw him, I was in the back of a police car, being taken to a foster home until they could find a relative who would take me in.
 
