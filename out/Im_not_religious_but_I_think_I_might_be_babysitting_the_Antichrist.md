@@ -112,7 +112,9 @@ Then everything fell into place.
 
 I don’t think that the woman I talked to was his mother. I don’t think Michael *has* a mother. 
 
-I would consider ditching him, but I’m sure he has a plan for that. I don’t want to find out what he’s willing or able to do. I know that I arrived a couple of hours before sunset, but the windows now only show a pitch-black sky. The blood soup came from somewhere, and I’m guessing its contributors had neither the intent nor anticipation of becoming this hellion’s snack. 
+I would consider ditching him, but I’m sure he has a plan for that. I don’t want to find out what he’s willing or able to do. I know that I arrived a couple of hours before sunset, but the windows now only show a pitch-black sky. The blood soup came from somewhere, and I’m guessing its contributors had neither the intent nor anticipation of becoming this hellion’s snack.
+
+I then realized that she wasn't his mother, but the last person who babysat him. She got me as a replacement, and as a consequence I'm stuck here until finding another replacement. I also checked the front and back doors; they are unlocked, but they cannot physically open. As a consequence, there's nothing I can do to go outside. 
 
 I’m smart enough to be afraid at my lack of options.
 
