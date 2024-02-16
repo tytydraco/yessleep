@@ -156,7 +156,7 @@ I don’t want to write the next bit. But I have to get this down. I can’t kee
   
 There was a fist-sized hole in the wall under the table. The entirety of the floor in front of the hole was a blackish brown carpet. Of house spiders. The whole of the underside of the table was covered in in the same jagged alive coating.   
   
-More. More spiders were constantly crawling through the hole. Joining the carpet, building a carpet of legs and bodies on the wall around the hold.  There were hundreds or was it thousands?  
+More. More spiders were constantly crawling through the hole. Joining the carpet, building a carpet of legs and bodies on the wall around the hole.  There were hundreds or was it thousands?  
   
 Almost all had wings.   
   
