@@ -1,8 +1,8 @@
-An ordinary night, cold and dark as usual. I've always been afraid of nighttime. Can't put my finger on why. But "Last News" surely showed me the purest of the fears. Its finally over, it's finally over. I repeated this as I considered myself lucky. Nonetheless,I was sitting in front of my computer with a cup of coffee making adjustments to my microphone, doing some edits and re-reading my script at the same time to take my mind off it.
+An ordinary night, cold and dark as usual. I've always been afraid of nighttime. Can't put my finger on why. But "Last News" surely showed me the purest of the fears. Its finally over, it's finally over. I was repeating this as I considered myself lucky. Nonetheless,I was sitting in front of my computer with a cup of coffee making adjustments to my microphone, doing some edits and re-reading my script at the same time to take my mind off it.
 
 Still this helped nothing at all. Suddenly I got a text message. "Don't let me distract you," it said. Well that was fucking hard when my life was (or is) at stake.
 
-But has never been wrong to listen to their advice, so I turned my all my previous scripts to a paper ball and threw it in the trash. Afterwards I started talking into the microphone quietly as possible since my family was sleeping at the time. I then voiced out the part named by me:"Last News",Even surprising myself how decent of a job i did mere minutes ago. I started praising the scary yet kinda person behind this when i noticed the clock was about to hit 3 Am."Fuck what the fuck. I was going to be done until 2:30"
+But has never been wrong to listen to their advice, so I turned my all my previous scripts to a paper ball and threw it in the trash. Afterwards I started talking into the microphone quietly as possible since my family was sleeping at the time. I voiced out the part named by me:"Last News",Even surprising myself how decent of a job i did mere minutes ago. I started praising the scary yet kinda creative person behind this until i noticed the clock was about to hit 3 Am."Fuck what the fuck. I was going to be done until 2:30"
 
 I could feel like I was going crazy. I immediately stopped everything. First thing I did was saving all my work followed by placing my laptop and microphone into a high section in my bookshelf. Now that all of my equipment was safe, I rushed to the bed as I have never before. On the way I tripped and hit the metal structure of my bed.
 
@@ -78,7 +78,7 @@ After the message, the green online icon beside him turned gray. I was left with
 
 He got the keychain out of his pocket. There were 12 other keys besides the house's. Half of them I knew: Car key, Basement key, 2 shop keys (he owned one of the thrift stores) , finally the garage key and the safe key. Even after this much i didnt know what the other six keys did. I never ever saw them before either. I started to play with the keychain, holding the keys I knew and spun others because it made a pleasant noise. I then placed the keychain in my pocket.
 
-Ten minutes later I stopped only to see that the road was separated into [](http://two.one), that would take longer but had more street lamps.Other way was the direct one that we used to come to town square. Which one should I have chosen? I don't have any idea to this day. Just a small, unimportant decision turned my life around.
+Ten minutes later I stopped only to see that the road was separated into , that would take longer but had more street lamps.Other way was the direct one that we used to come to town square. Which one should I have chosen? I don't have any idea to this day. Just a small, unimportant decision turned my life around.
 
 After a moment of hesitation I chose the left way, the way which had more street lamps. After all, I've heard pickpockets or maybe worse kidnappers roaming around nighttime, especially in secluded, dark places.
 
