@@ -4,7 +4,7 @@ We were neighbors. I remember watching him and his parents taking boxes from the
 
 I spent the rest of the day watching Ted and his family get used to their new house. I ran from room to room. To whichever window had the best view. I watched them unpack and have dinner and play games. It was so much fun. Their house seemed so alive compared to my own.
 
-My mother was ill. My father was dead already. A thick silence lay over my house. One that was only broken by the occasional groan of discomfort from my mother as she lay motionless in her bed. She was dying, but I couldn't take her to the hospital so I cared for her the best I could. I fed her and got her water. I tried to spend as little time in her room as possible. It reeked. Whenever I went in there I made a metal note to buy some air freshener. I always forgot though.
+My mother was ill. My father was dead already. A thick silence lay over my house. One that was only broken by the occasional groan of discomfort from my mother as she lay motionless in her bed. She was dying, but I couldn't take her to the hospital so I cared for her the best I could. I fed her and got her water. I tried to spend as little time in her room as possible. It was dirty and didn't smell nice.
 
 That night I fed my mother as quickly as possible, then ran back to the window. Ted was in bed, his father sat on a chair nearby, I could see his mouth moving. Telling him a story? Does Ted like stories? I thought to myself. Eventually his father left the room, flicking the switch on the wall as he left. Leaving us both without light.
 

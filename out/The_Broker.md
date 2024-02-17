@@ -518,4 +518,4 @@ He took out his planner and jotted down a date. Then he looked over at me and sa
 
 “Just hold up your end of the bargain.”
 
-“Hopefully, our next encounter won’t be for a very long time. For your sake, Mr. Cross. Oh, and my secretary has something for you. A parting gift if you will.”
+“Hopefully, our next encounter won’t be for a very long time. For your sake, Mr. Cross. Oh, and my secretary has something for you. A parting gift if you [will.”](https://www.reddit.com/r/RingocrossStories/)
