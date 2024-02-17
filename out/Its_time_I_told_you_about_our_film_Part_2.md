@@ -1,4 +1,4 @@
-\[[Part 1](https://www.reddit.com/r/nosleep/comments/1ahjr4v/its_time_i_told_you_about_our_film_part_1/)\] - \[Part 2\]
+\[[Part 1](https://www.reddit.com/r/nosleep/comments/1ahjr4v/its_time_i_told_you_about_our_film_part_1/)\] - \[Part 2\] - \[[Part 3](https://www.reddit.com/r/nosleep/comments/1astlhp/its_time_i_told_you_about_our_film_part_3/)\]
 
  
 
