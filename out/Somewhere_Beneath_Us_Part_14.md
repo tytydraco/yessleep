@@ -1,4 +1,4 @@
-[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1ar4yjy/somewhere_beneath_us_part_13/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1ar4yjy/somewhere_beneath_us_part_13/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) \~ [{Next Part}](https://www.reddit.com/r/nosleep/comments/1asrgc3/somewhere_beneath_us_part_15/?utm_source=share&utm_medium=web2x&context=3)
 
 &#x200B;
 
@@ -263,3 +263,7 @@ Daniel looked at me, and I looked at him. I was suddenly aware of how tightly my
 I slowly released my grip and felt Daniel's leg slip through my fingers. He looked at me for a second longer before he began swimming back away from me. Behind me, I heard Ethan and Bea screaming after him, but it was no use. He had made up his mind. There was no other way. I felt a slight tug from back as a small hole formed in the ice. It got stronger and stronger the further Daniel swam away from me. The infants moved closer, but he didn't panic. Instead, he just stopped swimming and stretched his arms out, letting them take him.
 
 The last thing I saw before the ice broke and water swept Bea, Ethan, and I further down into the house was Daniel looking back at me, eyes closed and accepting.
+
+&#x200B;
+
+[{Next Part}](https://www.reddit.com/r/nosleep/comments/1asrgc3/somewhere_beneath_us_part_15/?utm_source=share&utm_medium=web2x&context=3)

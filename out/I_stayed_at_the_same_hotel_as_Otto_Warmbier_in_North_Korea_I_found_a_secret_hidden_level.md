@@ -34,7 +34,7 @@ The elevator dinged as the door opened onto a spotlessly clean, totally empty fo
   
 It looked much darker and spookier than the other hallways. The elevator doors here were fused shut. The car position indicator and exterior buttons all looked dark. But why? I couldn’t figure it out.  
   
-The fluorescent lights above us flickered and made soft, rhythmic tinking sounds. Our dull footsteps on the carpeted floor were the only sounds I noticed besides the light and my racing heart. There was an old smell on this level I hadn’t noticed in the rest of the hotel, like an old, dusty mansion sealed away from the world for a century. Erin wrinkled her nose.  
+The fluorescent lights above us flickered and made soft, rhythmic tinking sounds. Our dull footsteps on the carpeted floor were the only sounds I noticed besides the light and my racing heart. There was an old smell on this level I hadn’t noticed in the rest of the hotel, like a dusty mansion sealed away from the world for a century. Erin wrinkled her nose.  
   
 “Is this just an abandoned floor?” Erin asked, sounding disappointed. “If it is, that’s a major let-down. I was hoping we’d find top-secret government labs or child slaves or…” Her voice trailed off. We had gone most of the way down the hallway, seeing another hallway intersecting it at 90 degrees.   
   
@@ -44,7 +44,7 @@ I instinctively put my arm in front of Erin’s chest, stopping us both in our t
   
 “I’m officially creeped out now,” Erin whispered, glancing back the way we had come. “Let’s get the hell…” But that was all she got to say before a wailing cacophony exploded from the dark room. I backpedaled away from the threshold, which was only twenty feet away. We didn’t have much of a head start. The cry went on far longer and louder than any human scream. It sounded deep, almost demonic, the roaring of a truly disturbed creature. Then it abruptly cut off. The silence felt unnatural and oppressive in the aftermath.  
   
-“Run,” I whispered as my heart raced and sweat covered my face. But for a few moments, I couldn’t tear my eyes away, and neither could Erin. So when some monstrous man in a gas mask and a leather butcher’s apron slunk out of the shadows, we saw him at once.  
+“Run,” I whispered as my heart raced and sweat covered my face. But, for a few moments, I couldn’t tear my eyes away, and neither could Erin. So when some monstrous man in a gas mask and a leather butcher’s apron slunk out of the shadows, we saw him at once.  
   
 He towered over us, his head nearly scraping the door. His bulging, muscular arms and legs had many deep slashes criss-crossing the flesh. The skin tore on many of the slices on his legs as he walked like mouths opening and closing. Yet only black blood the consistency of maple syrup trickled down from the wounds.  
   
