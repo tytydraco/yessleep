@@ -1,73 +1,7 @@
-Hello, I'm in need of help. I'm currently hiding in my closet, unsure of what to do now. I'm not leaving this spot, not with that psychopath in my house. Luckily I found my laptop with just enough power to type this out.
+My fiancé (F26) and I (M27) are on a weekend getaway in this old wooden cabin we rented in a rural village 1.5 hour away from the city we both live in. We were both really busy lately and we finally took the time to spend a couple of days together alone and decided this was the best place if any. We rented the cabin on Booking and came here on Friday (yesterday) evening. We were both super excited when we saw it since the cabin is literally in the middle of nowhere, on the end of an old country road. The first houses are like five minutes away by foot. Upon arrival we were greeted by the host, an old lady who lives in of those above-mentioned houses. She showed us the cabin and handed us the keys. Before we arrived, she warmed the house for us by starting the fire in the furnace. Upon leaving she casually warned us that it is better to keep the lights on outside at night. When we asked why, she replied that it's better that it is showing that someone is inside. We didn't give it much thought and spent a wonderful night together. However the lights outside stopped working after the first couple of hours which we thought was funny but a little scary too. Today we were visiting the beautiful landscape of the countryside known for its rivers and waterfalls where two century old mills were put up almost as barriers seemingly trying to control what can't be tamed. 
 
-It was about three months ago when me and my now ex-boyfriend, Ian split apart. I just couldn't handle his weird behavior anymore. He was crazy, possessive, and got angry very easily. 
+When we got back from our trip, we were both feeling really sleepy and decided to take an afternoon nap. I noticed that there wasn't plenty of wood left in the cabin and was thinking to bring more from the shack when it's still daylight but I decided I will get it after we wake up. When we woke up we had coffee and I decided it's time to start the fire since the nights are very cold in this parts even in the summer. My fiancé was scrolling on her phone on the kitchen bench when I went out to get the wood. The shack is located at the back of the cabin and it took me less then two minutes to get back inside. When I got back inside I started the fire which took me a couple of minutes to do. When I turned around I noticed my fiancé wasn't on the bench anymore. I laughed and stared to look for her since we love to prank each other by one of us suddenly disappearing. I searched everywhere inside the house and she wasn't there. I slowly started to panic I would have surely heard her opening the cabin door and leaving outside since the door gives a loud, long shrinking sound when it opens. Also, I was sure she was on the bench when I came back. I tried calling her and I keep calling her since her phone wasn't on the kitchen table but she isn't answering. When I first called her she I could see she picked up but since I didn't look at my phone I already eneded the conversation before I could stop myself. Afterwards she never picked up again.
 
-The relationship didn't begin like this, he was different when we first met. He was nicer and calm, or so he appeared to be. 
+It's been an hour now and she is still missing. I don't know what to do, I am slowly starting to think to call the police, but I still don't if she is pulling a prank on me. However while I was in panic checking to see whether she was maybe online on Instagram I noticed she posted a couple of strange photos earlier after we got back to the cabin. The photos are in a dark tone showing the countryside we visited and what's really strange is that on one of the photos she is shown looking back at the camera. I can't explain this since it shows her on a location we were at earlier today but it definitely wasn't me who took it. I don't know what to and out of desperation I'm writing this post hoping someone will explain everything while also hoping she will return when she notices it's not funny anymore. Also I just can't shake the thought that I wanted to get the wood earlier, but didn't because I was tired. 
 
-I didn't know what was wrong with him, all I could do at the moment was end the relationship and beg him to get help. 
-
-I wanted to forget about Ian, and just see him as someone in need of mental help. I wanted to be done with the whole relationship.
-
-Little did I know, he was much more terrifying than I first thought.
-
-This downward spiral began when I was in my bedroom, watching TV at the late hours like I usually do. My cat, butterscotch sleeping in the corner of my room. The entire break-up between me and Ian in the very back of my mind. Then, out of nowhere, I received a text message from an unknown number.
-
-"Hello darling." The text read.
-
-Slightly confused by this, I ignored the text and didn't respond. I thought it was probably a scam number trying to convince me to give them all my bank information. Then I get another text:
-
-"Why the \*\*\*\* are you not answering me?"
-
-I read the text, more confused than ever, still, I didn't respond. 
-
-"Don't give me the silent treatment, answer the phone."
-
-After this message, I decided to respond.
-
-"Hello? Who is this?"
-
-"Finally, you responded to me. Did you forget about me already dear? It's me, Ian."
-
-My blood froze.
-
-"Ian? How did you get this number? I got a new number, you shouldn't have it."
-
-"That's irrelevant Ana. Anyway, I was wondering what you've been up to lately. It's been awhile hasn't it?"
-
-"Ian, please stop texting me, we're done. Remember?"
-
-"Oh I remember Ana....I remember the day you broke my heart and left me. That's in the past now, we can start over."
-
-"No! We're not starting over, no stop texting me."
-
-After sending that message, I blocked his number and returned to watching TV, now more cautious than ever. Two hours passed and nothing else seemed to happen, eventually I got tired and went to sleep.
-
-At 3 am, I heard my ringtone. Someone was calling me, I looked at the phone to see who it was, but feeling groggy my vision was slightly blurred, so I answered the call just in case.
-
-"Hello? Who's this?" I said, still trying to shake off the cobwebs of sleep.
-
-"Hello Ana, are you having a good night's rest?" I heard the all too familiar voice say on the other end.
-
-"Ian? I blocked you!"
-
-"Yes you did, but I have my ways of contacting you, darling. Please hear me out..I w-"
-
-"No! I-I'm not taking you back, leave me alone!"
-
-"I knew you'd say that..." (Click)
-
-After he ended the call I was on high alert, I couldn't go back to sleep. How was he able to call me even though I blocked him? My mind was in so many different places, I couldn't think. I couldn't focus on anything.
-
-Crash...
-
-That's what I heard before hopping out of my bed. It came from downstairs, I needed to check what it was. I grabbed the baseball bat from my bedroom doorway, hoping that holding it would scare off the intruder. I exited my bedroom, ignoring my sleeping cat in the corner.
-
-I looked around the living room and kitchen for any broken windows. Then I looked at my backdoor, the window on my door was smashed, and the door wide open. I was terrified, thinking about who could've possibly broken into my home. I wanted to run for the hills, but where would I go? I have no neighbors, and the nearest police station is too far to walk to. I was trapped, with the intruder, and the worst part is, I already knew who it was. It was Ian, this isn't the first time he's done something like this, he'd break into my home to 'surprise me' after work. I didn't like it when he did that, and he didn't seem to care that I was upset, but he stopped doing it.
-
-I heard shuffling upstairs and ducked into a closet as quietly as possible. I heard hissing noises, then a shout, then a loud band, then horrible yelps coming from my cat, then silence. My cat was dead, and that psychopath was still roaming my home. I heard Ian opening every door in the house and looking everywhere for me.
-
-"Ana....are you there? I know you're home alone..." He said in an eerily cheerful tone. "I just want to start over with you." 
-
-I peeked from the closet to see Ian searching the living room, he was holding a large kitchen knife in his right hand. I scrambled to grab my phone to call the cops, but I couldn't find it anywhere. I saw it in the living room. Right where Ian was, I don't know what to do anymore, he won't leave my house. I know if I try to run, I'll be easily overpowered by him, I have a frail body. 
-
- I'm certain that knife isn't for show, I can hear him laughing and talking, trying to lure me out of my hiding spot. What do I do?
+Please someone help me, I'm not feeling well. This is one of the photos she posted on Instagram
