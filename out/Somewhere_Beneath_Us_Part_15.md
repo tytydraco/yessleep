@@ -1,4 +1,4 @@
-[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1arxoc2/somewhere_beneath_us_part_14/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1arxoc2/somewhere_beneath_us_part_14/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) \~ [{Next Part}](https://www.reddit.com/r/nosleep/comments/1atjwli/somewhere_beneath_us_part_16/?utm_source=share&utm_medium=web2x&context=3)
 
 &#x200B;
 
@@ -443,3 +443,7 @@ Suddenly, behind her, I caught movement from the corner of my eye. From a balcon
 It was too late. I had already thrown open the door and was halfway up the steps. It was stupid. I knew it was. It was incredibly dangerous to pursue something that I knew was a threat. But I had to know. I needed to find out what the thing that had been haunting me the last four years was because it certainly wasn't in my head anymore.
 
 So why was it pretending to be?
+
+&#x200B;
+
+[{Next Part}](https://www.reddit.com/r/nosleep/comments/1atjwli/somewhere_beneath_us_part_16/?utm_source=share&utm_medium=web2x&context=3)
