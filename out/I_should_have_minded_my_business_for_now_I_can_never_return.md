@@ -1,0 +1,89 @@
+You won’t believe me. I know you will not believe me, so I do not know why I am still trying to convince somebody. Please, do not take this comment of mine personally- I do not mean to doubt your understanding in any way, shape or form, it is merely that nobody has ever believed me. Yet I will never get that image out of my head, I know that it will haunt me forever, and deep down, I hope that by sharing this terror I will be lifted of part of the weight.
+
+
+
+I am not sure as to how long ago it was, exactly. I remember the activity surrounding it increasing in scale in my second to last year of highschool, hearing more and more people comment on it,but that does not mean it did not happen beforehand. Rumors surrounding it always floated around, local urban legend, just a stupid tale to scare children with, or so I thought. Personally, I always assumed it had to do with drug dealing, or some sort of underground politics. I am deeply sorry, I am pointlessly rambling. I really should have given you the locational context beforehand, I am afraid I may need to repeat myself later on.
+
+I was raised in a seaside town in the Mediterranean. No, I am sorry, I would rather not answer that question, I will not name the country, for I wish to maintain my privacy, or the illusion of it. Though I did not live directly on the shore, I would consider a ten minute walk, or three minute drive, close enough to be considered seaside, wouldn’t you agree? It was a quiet life, and though I am negatively biased after what I am about to confess cropped up, deep down I miss it dearly. I miss the suffocating salty smell, the specific accent of it at the salt works is with me every day, still. Autumns were exciting, transitioning from Summer into what we as kids considered to be the “boring” and “mundane” bit of the year, which is the span between October and April. Winters, similarly, were a blur into Spring, with Spring blurring into Summer once May rolled around. The summer was what we truly lived for. Though our lives went on normally during the year, nothing seemed to matter, unless the month was numbered “6”, “7” or “8” on our calendars. 
+
+
+
+Elementary school went by as you would imagine for a small fishing and salt producing town, seemingly ordinary, though now I know they were all liars. Schoolwork in the morning, occasional tutoring at dawn, or a sports club, or any other irritating activity our parents’ signed us up for to socialize just took up time in our schedule, time that could have been spent in the seaside sand dunes, the fields, in the water. Though, they were not entirely useless.
+
+It was in the swim team where I met Dina, and it was in the art club that I met Nelson. Nelson was one of my first memorable friends, one of the first people I befriended after obtaining the maturity needed to choose your friends and acquaintances and not leave them up to chance, or to your teacher’s seating chart pairing. I believe I was 12 when I met him. His eyes lit up with joy when drawing, his face so blushed and happy as if it was his first time picking up a brush each and every Monday evening. Though he was sociable, I do not recall him making friends easily, he never quite clicked with anybody until me and Dina. I still see him from time to time, his brunette locks shining the same way they did back when we were kids, though his sparkle is long gone. 
+
+
+
+Dina and I were friends for a couple of years before meeting Nelson. We figured neither of us were the athletic type, which was obvious even when we were children, so we switched over to the art club. She shined like the sun. Everywhere she went, she fit in, like a shapeshifting puzzle piece, or like a chameleon. Though she enjoyed age-appropriate activities and hung out with us plenty, even back then we knew she would shine academically, even more than she shined socially. Her long black hair, her characteristic hooked nose and her amber eyes stuck with everybody she met like a magnet to a fridge, holding up a family’s photos, like she held up our little group of friends. I will never forgive myself for what happened to her.
+
+
+
+Weird people are not uncommon nowadays and they were not uncommon back in the 90’s either. Now I know “stranger danger” to us meant something different, now I know everybody shunning our associations of past events with each other, forming connections between them, was a liar. We were told we were just children and our imaginations would soon quell down. The first event I can recall revolves around my great grandfather. He was raised in our area, and in turn his child and grandchild, my father, all grew their families here. He died when I was twelve. The only surprising fact surrounding it is how he lived to 96, taking into account all his years of drinking. Yet alas, it did strike me as odd how my family chose to cremate him, something uncommon within our culture. I figured out it was some sort of twisted last wish, which was reinforced to me when my father let me know we would be sprinkling his ashes in the sea. He must have loved it dearly.
+
+
+
+ It only truly bewildered me when the following year, aged 77, following a depressive episode so self destructive I could not bare to look at him, that my grandpa followed his father beyond. He too was cremated, what remained of him was also tossed at sea. Odd family tradition, I thought, and it did not seem that odd for my underdeveloped thirteen year old brain. Both funerals were crammed full of people, there was not enough room to stand, let alone cry. In fact, nobody was crying, they appeared proud, satisfied even. In between the attendees, all bearing usual funeral attire, their humble black garbs, a group of three appeared salient. Their white jumpsuits marking them as doves between the crows. “They must be workers attending in between their shifts.”, I assumed, and life went on. 
+
+
+
+Dina and Nelson both reassured me that must have been the case, and while I could tell they were sympathetic, no pre-teen can offer advice on mourning, and nor could they. Yet time heals, right? It healed back then, and I hope it heals me now.
+
+Dia, Nelson and I became inseparable.We tried every activity available in our little town, whether it was sports, the arts or even religion related. During the summer when we were fourteen, we chanted prayers with the church youth group. We ended up regretting signing up, as it was not entertaining, as it did not provide the thrill we desired. The only good thing to have come out of our prayer shenanigans was realizing I needed glasses. They poked fun at me for struggling to read from the prayer book and I eventually realized what everybody assumed was dyslexia was actually Myopia, and finally purchased glasses.
+
+We decided to seek true excitement, and what would be more exciting to fourteen year olds than exploration? Near our city, subterranean rivers ran, passing beneath the town, and washing out at our “blessed” sea. Through a short walk, god call it a hike through an olive field, we found the entrance to the underground section of the stream. It passed through a small tunnel, I could not differentiate it from one belonging to the sewage system nowadays. Dia worried about the hygienic aspect of our little excursion, while Nelson was worried there would not be enough time to explore until the sun set. When we approached the tunnel's mouth, the sun glowing a vibrant red overhead, as I was scraping the olives stuck on my converse on the concrete sidewalk, I felt a hand touch my shoulder. Nelson slowly pulled me backwards, shushing me right as I was about to speak.
+
+
+
+ Dia was frozen in fear. Their facial expressions, a warning all of their own, induced me to gaze at what they were looking at. The men in the white suits were carrying large, white, nylon bags, and what I could only assume to be a rake, heading deeper and deeper into the river. It was only when all three of us instinctively started taking multiple steps back that I realized one of the bags had a slight red hue to it, something seemingly dripping at the bottom. We all wanted to leave, we all acknowledged that without talking. With no words spoken we had an entire conversation. We all knew it would be logical and safe to leave, yet our town was safe. Nothing bad could ever happen to us there, and what we craved was not safety nor stability, but excitement.
+
+
+
+ We followed behind them. We moved slowly, methodically, only communicating with each other through our eyes, or flashlights barely bright enough to light the path, let alone alarm the men in the white suits. They continued forward, seemingly endlessly, yet suddenly took a left turn. We stopped, fear rushing through us. I felt my body enter fight or flight more, and I knew I wanted to flee. My legs were about to move all on their own, when Nelson grabbed me and held me in place. Dina pushed her body against the wall, minimizing the space she took up. Soon after, the men in the jumpsuits reemerged and continued walking down the stream, towards the rivers exit on the shore. Dia, obviously scared yet mesmerized, nearly sprinted towards the left turn. To our pleasant surprise, the door remained unlocked.
+
+What we saw in there has been engraved upon my mind forever. I wish I could forget all about it, the smell, the sight, the shivers that rushed through my entire body like the sea chill itself, yet no amount of drinking has ever granted me the release of forgetting. There were rows upon rows of storage shelves, all filled to the brim with nylon bags, ostensibly organized by color. The shivers returned, this time with the force of a typhoon, when I noticed the white bags all appeared to be tinted red at the bottom. The light blue and dark blue bags were clean in terms of appearance. While me and Nelson were taking in the sight, when we returned to reality we noticed Dina reading something.
+
+
+
+ The bags were labeled, reading “Sailor”, the white ones having an added “Delicacy” written in bold lettering. The other two were simply titled “Light” and “Normal”. Spaced out yet again, I only stirred when Dina held my palm out and Nelson poured a fine powder into it. I was taken aback and accidentally dropped it all over the floor, it looked like snow falling so rhythmically. “You idiot!” Dina proclaimed.
+
+“It is just salt.”, chimed in Nelson. Himalayan salt. The scare of our lives over himalayan salt. Yet the metallic smell in the storage room would not permit my senses to relax. The white sacks stank so bad I can smell them right now. Can you too, I wonder? There was nothing else for us to see. Dina may have filled her pockets with salt, or I could be misremembering after the incident. While walking back home with them, we gazed up at the night sky, amazed by its stars and how clear we could see them. They were like sprinkles of salt spilled on a kitchen counter, yet with magnitude so large we could not grasp it.
+
+
+
+ Summer soon ended and our lives continued. We returned to normality and we never saw the men in the strange attire ever again.
+
+
+
+It was the summer before our last one together. Second to last summer we were to spend as friends. A lot had happened during the previous summers. Nelson realized art was what he was put on this planet to do, it became his life mission, and Dina decided to follow biology. They were all working hard, they had goals and aspirations, while all I could do and all I can do still is talk. I figured I would become a sort of radio host to the local radio, and I figured I would have to watch Nelson and Dina leave me behind. I wish that had been the case, looking back.
+
+
+
+ With our newfound freedom of having a driver in the friendgroup, we spent every day at the beach itself. We would head down there with the sun rising and head back up to town with the sun sinking most days. Some days we remained there, welcoming the moon. We had nearly forgotten all about the men in white or “Salt doves” as I grew to call them when one night, under the moonlight, while sitting around our usual campfire, we saw some emerge from the tunnel onto the estuary. Their rakes appearing comically large were being dragged along behind them, headed towards the salt works. One might say sixteen is too early to limit your salt consumption yet even the sight of the salter brought back that awful metallic smell. We stopped camping out at night since then. 
+
+
+
+Though they never confronted us, they knew we had seen them, and they knew we had followed them. Though there was no proof for this claim, the spilled salt and our unsurprised reaction to seeing them pace along the sand dunes sufficed to convince me. I thought if I were to see them again my heart would burst, yet it beat gently, as if embracing the fear.
+
+The older we got, more grandparents of ours and our friends’ would pass, and though through insensitive questions I came to learn that cremation was not as uncommon as I believed it was, at least in our town, yet some people stuck to the traditional methods. I at least knew for certain that my low sodium diet would guarantee I have enough time to consider what I would pick for my own passing.
+
+The taste of guilt never quite left my mouth, knowing whatever this salt trade might have been, was one of the city’s main sources of income. My father, a truck driver, must have delivered hundreds if not thousands of the blue toned sacks. Dina’s mother, a microbiologist, surely must have conducted research and tests for them. Nelson’s father, a cook, relied on it daily. If it was just salt, what was that metallic smell I wondered? Why store it underground? Why did it all feel so wrong? We never investigated, we did not want to know, we could not bite into more than we could chew. Saying these words now makes me sick to my stomach. The stars had not shined for me the same since that night’s walk home. Summer came and went again.
+
+A lot can happen over two to three months. Dina and Nelson decided never to speak to each other again. I do not know if they argued, I do not know if they were civil about it. It was only years later when I learned that Dina’s mother had an affair with Nelson’s father. I was alone with Dina the night that happened.
+
+
+
+ We were sitting in her car, listening to music. Jefferson Airplane was our only company that night, until Dina’s phone rang. It was her mother, absolutely hysteric. She begged Dina to go meet her, and Dina, without even glancing at me, instantly put the car into drive and sped back to her house, where we found ms. Aggeliki in tears. Through ugly sobs and pitiful whimpers we came to learn that Nelson’s father had passed, note being delivered to ms. Aggeliki by none other than a man in a white suit. The stamp on it pictured a little dove, with a blue and white background. I felt vomit building up in my throat and excused myself outside. I closed my eyes and the little dove taunted me, fluttering over me. I have memorized the note like a sickly sonet.
+
+“Do not cremate me, imbued my body into our treasure. Our white gold, paint it red with my flesh, use it shamelessly, as I have been for years. I am sorry I could not stick around long enough to add to our product’s worth, please take care of yourself and Dina.”
+
+That night the men in white showed up at Dina’s house and escorted them both into their vehicle. Dina insisted I follow with. “You are mature enough to witness this.” said ms. Aggeliki. I did not expect us to be brought to the saltworks, though the note could not have stated it simpler. I watched Nelson’s father’s lifeless body be dumped into a harvest field, covered with salt. We stood in silence till the sun rose. This was the first time I ever got to have a good look at the men haunting me all these years. They wore a jumpsuit of sorts with a built in apron, held by a belt. I built up the courage to look at their faces for the first time. They were ordinary men I had seen around town. In the supermarket, in the sportsfield. They were my people. In the morning, the body was removed, carefully, leaving behind a rose tinted salt, painting the water a slight red.
+
+“He was not even fifty. No delicacy can be produced from such youth, mix this into the Light batch. Sad he could not provide anything notable.” I heard muttered by the man in white who I recognized as my elementary school teacher.
+
+Nelson appeared to cope well enough. The summer that followed he moved out into university, never approaching Dina about this. Dina shut herself off for a while. I continued to go to the beach alone, yearning for what I once had. One night I accidentally fell asleep in my car illegally parked on the sand. I had not seen Dina in multiple months and Nelson in a few weeks, so when somebody knocked on my window, I expected it to be a mere parking ticket.
+
+Dina stood there in her white attire.
+
+“Thank god, I thought you had died in there. I would never be able to bring myself to use my own friend for our produce.”  were the last words she ever spoke to me. I do not know what happened to her to end up involved in this morbid system. I left town that summer, I never spoke to my father or mother again. The burden of knowing my town treated its people like infused sugars, like human life meant nothing, and the fact that the sea did not discriminate based on who was in its waters is a heavy one.  I wonder where my great grandfather and grandfather ended up in the end.
+
+I do not know if I will ever return to my town. I do not know if I can bare to look at the welcome sign, with the birds flying freely in its illustrated background.
