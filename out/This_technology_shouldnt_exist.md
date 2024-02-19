@@ -140,7 +140,7 @@ He’d brought with him a small tray for breakfast and asked that I eat before w
 
 Again, things felt like they were moving too rapidly, but I was also eager to get it all over with—I just wanted to get back home and start paying off my debts—maybe even begin house-hunting.
 
-When I’d finished eating, he walked me down to a room labeled, “Observation Chamber” and showed me inside. It was at least twenty feet by twenty feet square and another twenty feet tall—on one wall, there was a set of windows, behind which, I could see people looking down into the space. The entire room was painted white, as was the chair with restraints on the arms and legs that was bolted to the floor in the center of the room.
+When I’d finished eating, he walked me down to a room labeled, “Observation Chamber” and showed me inside. It was at least twenty feet by twenty feet square and another twenty feet tall—on one wall, there was a set of windows, behind which, I could see people looking down into the space. The entire room was painted white, as was the chair with restraints on the arms and legs that was bolted to the floor in the center of it.
 
 Dr. Webster directed me to sit down, while he explained that the restraints were for my safety—he said that the test would likely be very disorienting as they played with the settings of my senses, and he didn’t want me to accidentally hurt myself.
 
@@ -254,7 +254,7 @@ My hearing was gone and I found I could feel the chair I was sitting in.
 
 *He wants to hurt you*
 
-Then—a hand. A hand with fingers that were far too long rested on my right shoulder. I felt a razor sharp nail run down my left cheek, and I know this thing was right behind me.
+Then—a hand. A hand with fingers that were far too long rested on my right shoulder. I felt a razor sharp nail run down my left cheek, and I knew this thing was right behind me.
 
 "What the fuck is that?!" I could feel my vocal cords moving and knew I must be screaming aloud.
 
@@ -302,7 +302,9 @@ Without warning, I was plunged back into the void and I started to panic immedia
 
 *Beep*
 
-I could see again—I quickly scanned myself for injuries and then I saw it…my right, index finger had been sliced off and was laying on the floor in front of me—blood was spurting out of the stump where it used to be.
+I could see again—I quickly scanned myself for injuries and then I saw it…
+
+My right, index finger had been sliced off and was laying on the floor in front of me—blood was spurting out of the stump where it used to be.
 
 *Beep*
 
@@ -336,7 +338,7 @@ I tasted blood in my mouth and I was certain I’d coughed it up when they’d p
 
 *Beep Beep*
 
-But again, when my senses were returned, I saw that I was fine—at least physically. Both of my legs were fully intact, my finger was back on my hand, and there was no gaping wound in my chest.
+But when my senses were returned, I saw that I was fine—at least physically. Both of my legs were fully intact, my finger was back on my hand, and there was no gaping wound in my chest.
 
 “How about that time? Can you describe everything for us?” There was a darkness in his voice now—I could tell that he knew exactly what I’d experienced.
 
@@ -362,13 +364,13 @@ Terrified of what else they could do, I relented and relayed back everything tha
 
 Eventually, someone I’d never seen before came and unstrapped me, then quickly rushed me out through a back door to my car.
 
-I drove back to my apartment in silence—I got home three days ago, and haven’t slept since.
+I drove back to my apartment in silence. Since I got home three days ago, I haven’t slept.
 
 The money was deposited in my account, just as they said it would be, but I can’t enjoy any of it. I can’t stop thinking about what it’s payment for.
 
 This technology shouldn’t exist—I don’t know what their plans are for it, but I know it’s not the bullshit Dr. Webster fed me to get me to agree to the study.
 
-And, I realized that I can’t keep it a secret, even though I know what posting this means for me.
+And, I’ve realized that I can’t keep it a secret, even though I know what posting this means for me.
 
 Even though, I just heard the voice again.
 
