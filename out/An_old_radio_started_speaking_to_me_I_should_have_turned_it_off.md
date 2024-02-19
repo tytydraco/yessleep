@@ -1,0 +1,17 @@
+The radio wasn’t just old; it was ancient, a relic from a bygone era with its wood worn smooth by countless hands. Its discovery, buried under a pile of discarded toys and dusty books at a neighborhood garage sale, seemed like fate. I've always been fascinated by the past, and this radio, with its promise of nostalgia, whispered my name. Little did I know, it was a siren's call.  
+  
+For the first week, it was a delightful novelty. It crackled to life with the turn of a knob, bringing with it the sounds of jazz, the buzz of old news broadcasts, and the warmth of a world long passed. But soon, the nostalgia turned nightmarish. Static filled the gaps between stations, and within that white noise, voices began to emerge. At first, they were just murmurs, lost in the sea of static, but they grew clearer, more desperate, with every passing night.  
+  
+"Help us," they pleaded, "please, can you hear us?" It was as if the radio had become a portal, a gateway to souls trapped in limbo, reaching out to the living for salvation. I was hooked, drawn into their world, a mix of fear and fascination driving me to unlock the mysteries of the radio.  
+  
+Each night, as the world outside my window fell silent, the voices grew louder, more insistent. They knew things—things about me, about the world, secrets whispered in the static that chilled my blood. They spoke of lives cut short, of messages left undelivered, of a darkness that held them captive. And then, they made an offer: freedom for knowledge.   
+  
+In my hubris, I thought I could control it, that I could be the hero of this story. So, I followed their instructions, speaking words into the void that felt ancient and forbidden. The storm outside mirrored the chaos in my heart, lightning illuminating the room as the radio glowed with an otherworldly light. Shadows twisted into humanoid shapes, stretching towards me, their fingers brushing against the edge of reality.  
+  
+When the ritual was complete, the storm abruptly ceased, and silence—a profound, deafening silence—filled the room. The voices were gone, but the cost of their freedom was more than I could have ever imagined. Darkness lingered in the corners of my life, an oppressive weight that watched, waited.  
+  
+The radio, now silent, seemed to mock me with its quiet. Attempts to rid myself of it failed; it always found its way back, a constant reminder of the door I had opened and couldn’t close. Friends began to distance themselves, unnerved by the shadows that clung to my presence. Sleep became a battleground, my dreams invaded by the whispers of those I had freed. They were free, but their liberation came at the expense of my peace.  
+  
+I live in fear of what I’ve unleashed, a prisoner in my own home, the radio a sentinel of my folly. The whispers in the static were a warning, a plea to let sleeping dogs lie. But I didn’t listen, and now, I’m ensnared in a web of my own making, a cautionary tale for those who would meddle with forces beyond their understanding.  
+  
+Beware the allure of the unknown, for some doors, once opened, can never be closed. The radio was not a passage to the past, but a gateway to a nightmare that I now live every day. And the most terrifying truth of all? I am not alone. The shadows I released now linger in the corners of the world, a silent testament to the power of the voices in the static.
