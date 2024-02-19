@@ -1,4 +1,4 @@
-[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1asrgc3/somewhere_beneath_us_part_15/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web2x&context=3)
+[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1asrgc3/somewhere_beneath_us_part_15/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web2x&context=3) \~ [{Next Part}](https://www.reddit.com/r/nosleep/comments/1aud0d0/somewhere_beneath_us_part_17/?utm_source=share&utm_medium=web2x&context=3)
 
 &#x200B;
 
@@ -327,3 +327,7 @@ At that, the ability to make sound came back to me, and I used it. I screamed lo
 "I know you do. Don't worry, though; your room is coming soon. Then you won't have to worry anymore."
 
 I felt a chill run down my spine, and with that, the thing that haunted us disappeared into the ground leaving us alone with our pain and agony.
+
+&#x200B;
+
+[{Next Part}](https://www.reddit.com/r/nosleep/comments/1aud0d0/somewhere_beneath_us_part_17/?utm_source=share&utm_medium=web2x&context=3)
