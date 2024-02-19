@@ -182,7 +182,7 @@ I take a look at our captive’s face. I’m struck by how young he looks. Barel
 
 I hold up his dog tags, flipping them over in my hands. The cold metal feels heavy, engraved with the name "Elijah Wright."
 
-I begin to search his pockets, methodical and thorough. Aside from a few crumpled bills and a Zippo lighter, there's little of interest until my fingers close around a small, worn photograph.
+I begin to search his pockets, methodical and thorough. Aside from a few crumpled bills, a Zippo lighter, and a small baggie of black tar heroin, there's little of interest until my fingers close around a small, worn photograph.
 
 Pulling it out, the image that greets me is striking. It’s Wright, his arms wrapped around a young woman in an embrace. They're smiling, lost in a moment of joy. It strangely humanizes him.
 
