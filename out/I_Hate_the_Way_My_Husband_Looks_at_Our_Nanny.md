@@ -1,4 +1,3 @@
-Hello everyone! I stumbled across this page and decided it’s time I talk about the reason why I’m having trouble sleeping at night. I hope I’m doing this right, in the right place.
 
 A little backstory would serve my story right. At 15, I ran away from the small Kentucky town I’d grown up in. My father was a mean, abusive drunk and my mother was no help. I found myself in Georgia, where I worked as a [redacted] and lived in the Tracy Lane Inn. The motel was infested with mold and rats, but somehow my lifestyle made the motel look like the Ritz.
 Even though I’d abandoned my parents, their strict Catholic upbringing followed me into the darkest parts of my life. I prayed every night for release, for help, for love.
