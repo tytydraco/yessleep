@@ -222,7 +222,7 @@ It was times like that when I was glad the teachers didn’t have guns. Mr. Hewi
 
 &#x200B;
 
-“Ah, shit,” he murmured, seeing he didn’t have any.
+“Ah, shit,” he murmured, seeing he didn’t have any more erasers.
 
 &#x200B;
 
