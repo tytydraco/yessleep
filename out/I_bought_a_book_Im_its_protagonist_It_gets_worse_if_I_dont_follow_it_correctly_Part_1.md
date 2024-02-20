@@ -34,7 +34,7 @@ Have you ever memorized so much a context that, if something changes, you notice
 
 "Once upon a time, a young adult, enjoying of the wonders of the life, assisting the college to become great in the future. Till one day, one of the students decided to surround the brave warrior and punch him with fierce and hate, friends of the bully arriving and making the brave warrior suffer with more intensity, but the brave warrior stood up and fought back with a victorious screech".
 
-My lighter turned off, my eyes were wide open passing over the text and my body started to shake. "This can't be true! That part wasn't there in the last time I read it!" I dropped the book to the pillow and my breathing was hard and confused. "This can be only a coincidence." was the quote I tried to repeat till convince myself, but my head repeat over and over again that "what would happen if this happens again tomorrow?".
+My lighter turned off, my eyes were wide open passing over the text and my body started to shake. "This can't be true! That part wasn't there in the last time I read it!" I dropped the book to the pillow and my breathing was hard and confused. "This can be only a coincidence." was the quote I tried to repeat till convince myself, but my head repeat over and over again that "what would you do if this happens again tomorrow?".
 
 Nothing to be done for now... but skipping classes tomorrow wasn't an option.
 
