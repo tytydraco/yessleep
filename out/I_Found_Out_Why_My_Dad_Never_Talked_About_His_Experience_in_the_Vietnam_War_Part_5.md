@@ -194,7 +194,7 @@ Wright shakes his head, a bitter laugh escaping his lips. "You don't get it. Thi
 
 “Wait! Wait!” Wright blurts out, panic edging his voice as he watches the undead form of Mrs. Thao inch closer, her teeth snapping in anticipation. "There might be... a way. But it's a long shot. A one in a million."
 
-I hand over the reins over to Hung, who tightens his grip on the chain, holding Mrs. Thao at bay. "Explain," I demand.
+I hand the reins over to Hung, who tightens his grip on the chain, holding Mrs. Thao at bay. "Explain," I demand.
 
 He swallows hard, his eyes darting between Mrs. Thao and me. "There's... a drainage system. Runs underneath the compound, empties into the river. They use it for... for runoff. Chemicals, waste. It's guarded, but not as heavily. Everyone's focused on the jungle."
 
