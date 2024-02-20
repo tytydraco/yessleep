@@ -1,0 +1,109 @@
+I didn’t exactly have an idyllic childhood, but it was nice. My parents were always hovering above poverty enough that we never went hungry or without a warm place to sleep. My parents seemed to be trying their best for two people who had kids far too young. My mom was prone to guilt-tripping and seemed to only have kids so she would never be alone. She always said I love you after a fight and while never actually apologizing she would look remorseful. My dad on the other hand acted like a friend. He would often take me aside after my mother had yelled at me and he would tell me.
+
+“She has been through a lot cut her some slack.” In a tone that condescended towards me and my mother. He never said I love you, but he let me start taking sips of his beer when I turned 12 and even seemed to encourage me when I decided to join theater over sports. I also had an older sister who did theater with me. Some of my best memories of her are driving to play practice as she bought me Gatorade and let me listen to songs with swears. As she grew up, I started to see her fighting with my parents more and more, especially my mom. The biggest of which took place when I was 8.
+
+“You would rather hang out with your friends than spend time with your family? With your sibling? We are blood?” My mom's sickly sweet voice was laying it on far too thick.
+
+“You don’t get to weaponize my love against me. I can love you guys and still want friends and things of my own!”
+
+“What your mother is trying to say...” My dad began always feeling the need to break the tension.
+
+“Dad stop defending her. If you have an opinion, say it.”
+
+“If you are going to act this emotionally, we can have this conversation once you calm down.” Dad raised his voice, something he rarely did.
+
+“Fuck you.” My sister said exasperated. She ran up to her room to pack a bag. She quickly gathered her things and went back down the stairs. As she neared them, she noticed me peeking out from behind a corner. She walked up to me, placed a hand on my shoulder, and said “I will be staying with a friend if you need me call here.” She quickly wrote out a note and stuffed it in my pocket.
+
+“Why are you leaving us?” I asked, not understanding what had happened but I figured it was my fault. “I’ll be a better sibling I promise.” I was starting to get choked up.
+
+“I just need some time to cool off” She assured me. “I will always come back for you.” She patted me on the head and then went straight out the door.
+
+She never did come back. My parents told me that my sister had run away with some boy she had met online. It didn’t make sense she was so close to college she was so close to getting out. Ever since my parents only talked about her as a cautionary tale. Every mistake I made every time I acted out in any way, they would tell me “Stop acting like Kimmy.” At first, I resisted their snide remarks and jokes but eventually, I went along with them and even made some of my own. Kimmy in my house became the synonym for crazy.
+
+As one does, I grew up and started to act out. Or at least act out in ways my parents found unacceptable. I started to make friends and take more interest in them. My mother had a difficult childhood and saw every act of differentiation as abandoning her and lashed out in turn. My dad always took her side by saying “Mom might be crazy, but she has been through a lot and you have to cut her some slack.” I got real fucking tired of cutting my mom any slack.
+
+I came out when I turned 16 years old. I always knew I didn’t quite fit and I started to make friends like me and even a boyfriend. My dad refused to use my pronouns always saying, “It just doesn’t make sense so I’m not gonna use it they/them? It’s just grammatically incorrect.” My mom took no issue with my identity, only with my boyfriend and how much time I was spending with them. I brought him over one time and it ended with a fight as I expected. My mom found something minute to start yelling about and kicked them out. I started following behind them. My mom ran up behind me and grabbed my arm.
+
+“You fucking leave now and it’s all gone your insurance, your room in this house, fucking everything.” My mom spit the words out like venom that left my tear ducts stinging and caused a lump to rise in my throat. I remembered the last thing that Kimmy had said to my parents, and I mustered up all the courage that I had.
+
+“Kimmy was right fuck you.” I made the words sound tougher than I felt and hopped into my car with my boyfriend Josh already waiting there.
+
+The next few days were really nice. I spent it with my boyfriend's family who were far too understanding. I binge-watched seasons of shows with him. Summer break had just begun. Summer was a time to put things on hold, at least that’s how they had felt my whole life. That week with Josh and his family might be the happiest of my life and perhaps the last happy week of my life.
+
+My parents texted me on our group chat on the Saturday following the fight. They waited exactly a week and said,
+
+“We are so sorry, please come home so we can talk.” As much as I dreaded the idea, I was still 16 and had little to no practical skills. And my parents weren’t that bad, they just loved me too much. I texted them back and said I would talk to them the following morning. They simply sent back a thumbs-up. I decided I wouldn’t tell Josh I was going to handle it quickly. I knew they would let me stay as long as possible, but I did not want to become an imposition.
+
+On Sunday the following day, I drove my piece of shit bug over to my parent's house. The lights were off inside, and everything seemed so quiet. The sound of me slamming my car door reverberated through the empty street. My heart was trying to escape through my ears. Every step I took towards the front door it felt like my shoes were filling with lead. I wanted to escape back to the warmth of Josh’s arms and bed. But I kept walking and regretted it as soon as I reached the door. I knocked and heard my mother yell in a sing-songy voice.
+
+“Come in.” I did and that is the last thing that I remember.
+
+ I woke up. I was not sure how long I was asleep, but it was long enough for my neck to be aching from the angle at which I lay. I felt the floor beneath me was cool metal and was vibrating and bouncing as the vehicle drove ever onward. I stood up and rubbed the back of my head. I felt a large goose egg forming that explained my loss of consciousness. As soon as I gathered myself and went to what I thought may be the exit the vehicle came to a screeching halt. The force knocked me on my ass and produced a jolt of pain from the back of my head. I heard a truck door open and the sound of someone large scuffling through the dirt. I prepared my scrawny arms to fight off what I assumed would be a muscle-bound kidnapper with a neck tattoo. I heard the trailer being opened and the light that crept in blinded me for a second. When I finally regained my sight, I saw my captor.
+
+“Hiya friend” a small man dressed like Jake from State Farm gave me a wave. One of his hands offered to help me down while the other held a very official-looking clipboard.
+
+“Who the fuck are you?” Despite his appearance, I was still prepared for a fight and didn’t come any nearer to the door.
+
+“Well first of all,” his squeaky voice was almost nauseating. “Watch your language please and secondly I am counselor Keith and welcome to Camp Felix.” He continued checking boxes on his stupid clipboard.
+
+“You guys fucking kidnapped me what do you mean watch my language I don’t give a fuck what this place is take me home.” Already I was worrying about Josh and where he would think I had gone.
+
+“Oh, I am going to make a fortune off the swear jar from you I can tell.” He snickered and my fear and confusion turned mostly to anger. “And your parents told us you were being a sourpuss. Disobeying them and not respecting your elders?” He clicked his mouth in disapproval. “So, they asked that we come and grab you and help you be a kind citizen to your parents and the world.” He made a circular motion with his hands and then hugged himself.
+
+“My parents sent me here?” The thought leveled me and almost sent me to my knees.
+
+“Yessiree bob and all you have to do to get back home is follow along with camp activities and listen to your counselors.” His bright disposition never wavered and made him seem more menacing given the situation.
+
+“And what if I just run away?”
+
+“Oh well, I wouldn’t advise that.”
+
+“Oh, why not are you gonna stop me, Khakis?” I was prepared to dropkick this motherfucker or at least attempt to.
+
+“Come take a look for yourself.” He finally dropped his outstretched hand and instead motioned behind him. I cautiously approached the opening of the trailer and jumped out.
+
+From what I could see we were in a massive circular clearing in the woods. The forest was so dense it was almost a solid wall, the only reprieve being the small dirt road that the truck had maneuvered through. I could see no light in the woods, it seemed too dark and cold in between those trees to support any life. Hugging the edges were seven large wood cabins that looked older than the one Abraham Lincoln had lived in. They increased in size starting on my left with the smallest and ending with the biggest on my right. In the middle stood a large circular domed monstrosity. It had large archway doors facing each of the cabins. The dome sent a tingle up my spine, and it seemed as if it had thousands of eyes watching me.
+
+“Camp Felix lies 55 miles from anything that could qualify as “Civilization” The douche canoe actually made air quotations around the word civilization. “The woods are super duper dangerous and hard to navigate even for…” He scanned me up and down. “Experienced outdoorsman. So, your best bet would be to enjoy your short stay here and get back as soon as you can.”
+
+“How short of a stay” I asked, still fighting down the urge to punch him or throw up neither of which would help the situation.
+
+“That my friend is entirely up to you, everyone's experience is as unique as a snowflake.” I didn’t know what to do, I felt trapped. I had never been in a fight so I doubted I could win even against this pile of potato salad gathered neatly in a pair of khakis.
+
+“What is the soonest I could feasibly get out of here?” I wanted to know how long before I could completely cut my parents out of my life. There was no way this was legal right? I am a minor but still, there are rules.
+
+“One week if we get your full cooperation but who knows you may want to stay longer.” I caught a hint of shade moving in on his sunny disposition, but it was gone faster than it came. I know what you are thinking. This is a classic fucking horror movie, and I was walking into the basement where the killer is definitely at. At the time though I was so consumed with anger towards my parents, and I was missing my boyfriend. Anyway, my parents wouldn’t put me in any actual danger, right?
+
+The morning was filled with admin tasks because apparently parentally approved kidnapping involves its fair share of paperwork. The last thing I had to do was sign an ancient-looking book. It was made from papyrus or something and it was loosely bound with a course leather. It smelt like my grandma’s house and gave me a similar feeling of unease. It gave me a paper cut as I turned the page to sign next to my already printed name. I had to sign it with a goddamn quill, but I was so beyond worrying about that at this point.
+
+I was in the first and smallest cabin. Khakis gave me the tour which was not what I had expected. I was the only one assigned to the room at the time. Beds speckled every inch of the floor like an infection. Despite the lack of occupants my new “Counselor” was still very specific about which bed was mine. He left me to get settled as he handed me a bag that contained the same outfit he was wearing. Khakis, a crimson shirt, and a pair of loafers that I assumed came with a 401K and an alimony payment.
+
+“Is this a conversion camp? Are you trying to remove all sense of style from me and hope that cures my lingering queerness?”
+
+“Does your preferences preclude you from dressing appropriately?” This wasn’t a question and the look he gave me and my outfit after was one of pity. I decided not to press my luck and shimmied into the tight pants and even tighter expectations. The entire time the stuffed boar's head that hung over my bed looked at me with the same look of pity.
+
+The rest of the day was spent tending to a garden that surrounded the dome. The sun was scorching overhead and there I was knelt down pulling weeds. I wasn’t exactly known for my green thumb, but I was going to do whatever it took to get out of this fucking place. The entire time I saw 5 people at most, and it was hard to tell whether they were my captors or my fellow captives. I tried to give a couple of them knowing looks wanting any form of compassion or commiseration, but I received none. Occasionally, Keith would stop by to check on my progress and offer me water or lemonade. He even had snacks prepared which I turned down despite how hungry I was. I did accept the water and during one of my approved breaks I decided to ask Keith something that had bounced around my head.
+
+“Where are all of the other campers?” I took another sip of the cold water, ice cubes clinking off the glass. Water droplets dripped down the side onto my hand. Keith was standing next to me offering me a small bit of shade. I am not sure if it was the impending Stockholm, but I was grateful for the shade and company even if it was with this probable sex offender.
+
+“Currently you are the only camper in cabin one. Every camper moves on to the next cabin as soon as we deem them fit.” He said this as if it was the most normal thing in the world.
+
+“So how many other campers are there? Do we have a big dining room or something? I am great at food fights.” Keith’s smile remained the same, not widening or retracting just saying.
+
+“This is a personal experience,” He took the not-quite-empty glass from my hands. “Focus on yourself and you will find your stay here far more enjoyable.” He power walked over to the biggest cabin, the one reserved for people who were about to leave and apparently counselors. I peered through the window in front of the cabin and almost swore I could make out the low electric light illuminating from a computer.
+
+The day was over so quickly it almost gave me vertigo. The shocking arrival and subsequent gardening had made the day pass in a blur. When my gardening duties were over the sun was beginning to set over the tree line. The colors were beautiful and vibrant but didn’t dare shine through the dense forest canopy. The forest was always looming there pitch black. Keith came and brought me back to my cabin saying very little. My khakis were stained from the days labor and Keith instructed me to change and leave the dirty clothes in a pile outside of the door.
+
+“Also, as you can see there is no border between us and the untamed wild.” He motioned with his fingers towards the dense forest. His pearly white chompers were nearly glowing in the twilight. “So try to stay inside at night. I would hate to find you dead in the morning.”
+
+Keith started walking towards his cabin as I entered the lifeless cabin. I was almost cartoonishly lifted towards the scent of food emanating from my bed. Placed on three large trays was an entire roast chicken, a platter of steamed broccoli, and a large dish of reddish custard. The only issue was that no silverware was laid out along with the feast.
+
+“They think I am a fucking animal,” I spoke aloud to no one breaking the heavy silence that loomed in my cabin. I started looking at the chicken, deciding if they wanted me dead poison would be their least efficient means. The chicken was moist and as I pulled a shred of flesh from the breast, liquid gushed out. The chicken melted in my mouth, and it filled my tongue with so many spices and juices I legitimately sighed as it ran down my throat. Before I knew what was happening, I started tearing at the chicken with both hands. Sinew and bone were no match for my insatiable hunger as I ripped and clawed leaving meat under my fingernails and juices dripping down my chin. I had the slight wherewithal to notice I was sucking on the bones leftover from my carnage. No shame was felt though as I remembered the platter of broccoli and pudding. The broccoli was roasted and it tasted like butter, garlic, salt, and ecstasy. I felt strands of green stalk still in my teeth as I started shoveling the pudding into my mouth with both hands. About 50% of what I intended to go in my mouth ended up on the floor. I ended up licking up that as well. It was pomegranate flavored and had seeds throughout that burst in my mouth and felt like mini fireworks exploding. By the time every particle of food had been scarfed down, I sat in a puddle on my bed covered in grease, pudding, and a growing feeling of disgust and confusion. I still felt hungry despite my carnage. Had they put something in my water? What was wrong with me? I decided to leave the self-reflection for a different time and just accept how gross I felt.
+
+I placed the platters and my dirty clothes outside of the door as instructed. I wiped my face on the discarded shirt and made a mental note to ask Khaki Keith where the showers were. As I set them by my front door there was a chill in the air, and it was almost pitch black. There were no lights on in or outside of any of the cabins. The only illumination came from the full moon that was slowly creeping directly overhead. It looked too big and was the brightest I had ever seen. The huge spotlight shown down on our hideaway revealing a stream of counselors entering the dome. I could see the moonlight reflecting off the bright enamel teeth that were still stretched into smiles. I felt a shiver shoot up my spine. The fear wasn’t coming from them but from the dome. Despite the moonlight, the dome seemed to exude pure darkness encasing the shadowy structure that ebbed and flowed. And just as soon as I paid attention to it, the darkness disappeared. I started to question whether I was dreaming. Maybe this entire day was a dream. I wanted to wake up next to Josh, kiss his neck, and go back to sleep content and safe. One of the counselors started to look my way and I quickly ducked back inside.
+
+I laid down on my bed and suddenly felt extremely tired. I wanted to run into the forest, possibly never to be seen again. Even though my parents sent me here they couldn’t know the reality, could they? Did they know about the dress code and the Lovecraftian dome rising out of the ground? These thoughts filled my head as I stared upwards at the dead boar nailed to the wall. I decided its name was Barry and that he was the only one on my side anymore. I finally drifted to sleep staring at that gaping mouth.
+
+I was cold and surrounded by smooth black stone. My body wouldn’t move but I was still positioned with my face upwards. My eyes darted back and forth, and I could see that surrounding me were robed figures that swayed back and forth. I knew I was in that godforsaken dome and the feeling of unease I felt when it was looming behind me was amplified by 1000 being inside. I could feel my stomach growling and I felt hunger like a black hole in my stomach. The motherfuckers around me didn’t chant or do any other culty shit I expected they just stared at me. I wanted to kill them. I wanted them dead, and I wanted the whole world to follow suit somebody please god feed me. I felt my bladder release and warm urine coursed down my leg and collected in the bottom of the container I lay in. I wanted to die and embrace the darkness. Maybe they would throw my body into the forest where the wolves would tear me apart. Anything to get out of this goddamn tomb. One of the figures grabbed my arm and bit down hard. A single tear escaped as the pain coursed through my limp body. They dropped my arm with abandon, and I felt blood trickle down my forearm. I saw the figures leave the side of the bowl slowly backing up. They seemed to be floating more than walking. Filling the void, they left behind my parents strode forward towards the lip of the bowl. The last thing I remember was my mom arm in arm with my father offering me a hand.
+
+I woke up jumping out of my bed almost hitting my head on Barry. Cool sweat was running down my forehead. I looked all around me expecting to be surrounded by the robes ready to fight or at least whatever equivalent I was capable of. I checked my pants remembering how I pissed myself. There was no pee, only the now familiar feeling of khaki pressed against my leg. All I knew was I wasn’t hungry or filled with pee and my arm didn’t have teeth marks or any distinguishable wound. I decided I couldn’t stay in that cabin I ran outside deciding wolves were a better choice than my dream. I remembered the computer in the counselor's cabin and ran towards the only comfort I could think of. The courtyard was clear, and I sprinted not daring to glance at the dome. The counselor's cabin was empty of people, there were only about 10 beds in this cabin, and it looked sparse in comparison to my crowded living space. The computer was out in the open with no password or anything. I am typing so fast now. I think I can see them starting to leave the dome. It is still dark outside, and my fingers are cramping from typing so fast. I am scared and feel like I am going crazy. I want Josh or my parents even, any sense of familiarity. 

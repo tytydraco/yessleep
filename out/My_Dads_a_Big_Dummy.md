@@ -7,7 +7,7 @@ Me: That’s not how you talk to me anymore,  remember? Now apologize.
 Senior: Alright. I’m sorry you’re evil and ugly.
 
 
-Now normally I'm not the judgmental type. But in the case of my father, Herman Sr., his dumbass has become the biggest problem I could have ever imagined in my short and sad harmonica sixteen year-old so-called life.
+Now normally I'm not the judgmental type. But in the case of my father, Herman Sr., his dumbass has become the biggest problem I could have ever imagined in my short and sad harmonica, sixteen year-old, so-called life.
 
 "Ain't that right, senior dummy?" I asked my dad.
 
@@ -31,13 +31,23 @@ Yeah, Ma was great. I sure do miss her. In fact since the insomnia I been seeing
 
 "No! I think that embalming fluid made your head goofy."
 
-"Think what you want, junior. But you know it's true. All those men. All those stifled screams in the night. It's true. All I did was give her what she deserved."
+"Naw boy. Yer ma wanted sex on the back of the bus-"
+
+"That doesn't make her a whore, you big dummy," I  said feeling my collar start to get hot.
+
+"She wanted me to drive the bus, son...."
+
+"You lie like the rug, dummy," I said just to be saying something. 
+
+"Think what you want, junior. But you know it's true. All those men. All those stifled screams in the night. It's true. All I did was give her what she deserved. Just like Weepy Moyer gave it around Chicago with an ice pick; only better."
 
 "You're insane. Mom should have never let you back in. She should have let you die in the street from Covid."
 
-"I wish she had. Be better than sharing this crummy sty with your cowardly ass. I ain't even sure you're my spawn, boy."
+"I wish she had. Be better than sharing this crummy sty with your cowardly ass. I ain't even sure you're my spawn, boy. 
 
-"Wouldn't that be nice?" I asked. "And watch your mouth about Mom, dummy," I warned, "or I'll wash it out with Murphy's oil."
+Imagine a boy of mine getting his vengeance with a Black & Decker. Ice pick is the way to go. A nice ice cold ice pick. That takes a specialist to serve it cold. Yeah," senior goaded making a double-take. "You probably ain't even of my seed."
+
+"Wouldn't that be nice, Pinocchio?" I mused. "And watch your mouth about Mom, dummy," I warned, "or I'll wash it out with Murphy's oil and a blowtorch."
 
 "Watch your mouth, dummy," Dad mimicked. "Watch your mouth, dummy!"
 
@@ -51,7 +61,9 @@ I used to know how to sleep. But before you cast aspersions on me for being an i
 
 Ma always said smoke and mirrors wouldn't get us anywhere. So the hard truth of the matter is I got nothing in the nighttime sleep department; nighttime brings me nothing but face to face with my worries.
 
-"Man up, junior! She had it coming to her.... They'll never believe the truth. They're gonna put you away in a small little case called solitary and they're gonna throw away the key. And that's if you get lucky, boy. You picked the wrong horse, son. We could have gotten away with it. We could have been on easy street but you had to fuck it up, boy."
+"Man up, junior! She had it coming to her.... They'll never believe the truth. They're gonna put you away in a small little case called solitary and they're gonna throw away the key. 
+
+And that's if you get lucky, boy. You picked the wrong horse, son. We could have gotten away with it. We could have been on easy street but you had to fuck it up, boy."
 
 I flipped the couch cushions. The blast radius of potato chips, gummy bears and cookie crumbs made it past the peanut butter and jelly stained glass top coffee table.
 
@@ -72,6 +84,12 @@ Heck, after a year Unc was letting me do the customers all by myself. And me and
 "My word's good, junior. I said I'd be back and I came back, boy. But Unc Buck; well he was bound to fall in that vat. 
 
 I said I can sleep the big sleep and you seen that too. So you best believe your old man’s word is his bond. What you don’t know and what you ain't seen is what’s gonna happen when they find me with a reconstructed jaw made outta chicken wire..."
+
+I did a double-take twice and heard myself say,  "I think I am losing my mind. "
+
+"Aw come on, junior.  It's only insomnia cause you patricided and pickled your old man. I wouldn't lose any sleep over it."
+
+"Fuck you, dummy." Herman Muenster Hororrwitz, Jr.; master of the snappy comeback. 
 
 I went into the bedroom since the dummy was obviously not going to zip it.
 
