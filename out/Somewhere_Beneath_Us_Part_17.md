@@ -1,4 +1,4 @@
-[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1atjwli/somewhere_beneath_us_part_16/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web2x&context=3)
+[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1atjwli/somewhere_beneath_us_part_16/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web2x&context=3) \~ [{Next Part}](https://www.reddit.com/r/nosleep/comments/1av7a9i/somewhere_beneath_us_part_18/?utm_source=share&utm_medium=web2x&context=3)
 
 &#x200B;
 
@@ -305,3 +305,7 @@ I could barely breathe with how tight it was holding me, and the panic combined 
 The curator adjusted us in its hands, sliding us both into one palm, then began squeezing even tighter than before. I watched my vision blur as my lungs were crushed up against Ethan's back. From the sound of his breathing, he was experiencing the same pain. The curator reached into the elevator's black shoot, grabbed ahold of one of the chords, then pulled itself inside. Rapidly, it began to slide down it like a firepole at alarming speeds. A scream rose to my lips from the sensation, but with no air to fuel it, my vision turned red instead.
 
 Soon the darkness of the shaft blurred with the darkness of unconsciousness, and it didn't take long for the latter to win out.
+
+&#x200B;
+
+[{Next Part}](https://www.reddit.com/r/nosleep/comments/1av7a9i/somewhere_beneath_us_part_18/?utm_source=share&utm_medium=web2x&context=3)

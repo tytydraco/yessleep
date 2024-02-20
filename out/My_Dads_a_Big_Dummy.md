@@ -1,4 +1,11 @@
-My name's Herman Muenster Hororrwitz, Jr. and my dad's a big dummy.
+My name's Herman Muenster Hororrwitz, Jr. and my dad's a big dummy. Don't believe  me? Why just a hot minute ago it went this way...
+
+Senior: You’re evil and ugly.
+
+Me: That’s not how you talk to me anymore,  remember? Now apologize.
+
+Senior: Alright. I’m sorry you’re evil and ugly.
+
 
 Now normally I'm not the judgmental type. But in the case of my father, Herman Sr., his dumbass has become the biggest problem I could have ever imagined in my short and sad harmonica sixteen year-old so-called life.
 
