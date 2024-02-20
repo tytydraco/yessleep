@@ -4,7 +4,6 @@ I go inside myself, where it's quiet. See the world as through a little window, 
  It's summer, and I see the dead flies collecting on my windowsill, and I'm scared of everything. Scared of the postman, Scared of going near the doors. The curtains stay shut, and the windows stay closed.
 I'm paranoid, self-isolating, afraid of people. 
 I've heard things before, things that weren't real. Music coming from the fan in my bedroom. A snippet of a song, repeated guitar and drums, getting louder and louder, an irritating, dull little riff Playing again, and again. I've thought things that weren't true. 
-
  But I swear to God, that is not what is happening to me now. 
 I'm on a good medication now, a good one. And I haven't felt like that for a good while. 
 This is different. 

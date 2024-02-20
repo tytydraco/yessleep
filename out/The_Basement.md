@@ -1,89 +1,133 @@
-I grew up in an old house. Not Victorian old, more like 1950s old. It was a small rancher that only had 6 rooms. You'd enter a very narrow kitchen before turning a corner where you'd be at a junction. Go straight and you'd wind up in the living room. To your right is a pantry door with a set of steps leading to the attic. To your left was a small hallway that we called the "dining room" since there was enough space to set up a small table on the left side of the room to eat at when we had company. The first door to your right was the master bedroom, my parents’ room. At the end of the hall, you could go right or left. To the left was our one and only bathroom and to the right was my small, cramped room. The room that I swear was supposed to be a closet.
+I looked down at the creaky basement stairs trailing off into a void of darkness. I tried to swallow but my throat wouldn’t let me. I was too afraid. My grandmom’s house was a mostly pleasant place to me- all except the basement, that is. 
 
-The dining room, bedrooms, and bathroom were the original portion of the house that was built in the early 1950s. It was tiny and cheap. It just had a crawl space underneath, and it was poorly insulated. My room was scorching hot in the summers and freezing cold in the winters. Interestingly, it was only my room that ever had these wild fluctuations in temperature. The kitchen and living room were an addition put on in the late 50s and the owners opted to dig out a basement underneath this portion of the home. A small one, but no less imposing than any other unfinished basement is to a child.
+  
+The basement was old and smelled of mildew and dust. The stairs leading down were the wooden ones that have gaps behind each stair which only amplified the feeling that when you walked down them something would grab you from underneath. The were 3 singular lights down there that had to be turned on with pull cords so you had to go down into the near complete darkness to turn them on.   
+I stood at the top of the stairs, my childhood imagination running wild with thoughts of monsters in the darkness. I knew I had to go down. 
 
-I grew up in this home from the day I was born. This story occurred when I was maybe 12 or 13. It was a good house, for what little it was. I had a lower middle-class family, but it was a loving home, and I had a family that never let on if there were hardships. I was an only child. My mother had endometriosis and had to have a hysterectomy when I was still an infant. I was the only child she'd ever bear. My father was....scratch that....is a good man. He works hard and though we butted heads when I was a teen, he always wanted the best for me.
+Both my grandparents were disabled so it had to be me to go bring up the things from the freezer my grandmom needed. I knew the very real risk of one of them injuring themselves down there greatly outweighed my fear of things that lurk in the dark. I took a deep shaky breath and ran down the stairs as fast as I could and sprinted towards the first light. 
 
-Unfortunately, like so many families, mine didn't stay intact. My parents divorced when I was 10. I won't go into the details as they're not relevant to this story but know this. It was amicable and clean. My father gained full custody of me without any long, drawn-out legal battle and my mother moved to the next town over and I saw her often. I was lucky that my parents saw past their differences and tried to keep my life normal.
+  
+Click. 
 
-My father didn't make enough money working his regular schedule to keep the house. So he worked overtime.....a lot of overtime. He normally worked the day shift, 7am to 3 pm. After the divorce, he would pick up nights from 7 pm to 11 pm or even 3 am at times just so he could make ends meet. I was old enough that he trusted me to take care of myself. I'd get off the bus, let myself in the house, and he'd be home shortly thereafter. We'd talk about our days, he'd cook dinner, take a nap, then go back to work. It was hard on him, I knew it was, even if he didn't admit it. We made it work like that for years, by the time of this story, we had gone on like this for 2 or 3 years.
+  
+The dim light buzzed softly with electricity as it came to life. It only illuminated about a 4ft circle around me. I looked around at the old work bench and all the random stuff that was down there which did nothing but creep me out even more. There were so many dark corners for things to lurk and the dim ring of light around me only made the rest of the darkness seem more oppressive.   
+As I was preparing myself to run to the next light near the old fridge suddenly I was plunged into darkness. I didn’t hear a click or that distinct popping noise of a bulb dying. It was just silent. Waves of fear washed over me as my mind raced. I had to do something. I ran towards the next light feeling invisible hands reaching for me as I moved. 
 
-If you've ever lived in an old house, then you know that they have a unique......personality to them. Creaking floors, uneven floorboards, poorly done renovations, terrible wallpaper, etc. This house was no different. As a kid, like most kids, I was afraid of the dark. I slept with the nightlight on until I was 7. I was so easily spooked. I watched the opening scene of the original "IT" movie....you know the one, where Georgie gets dragged down into the sewer?? It traumatized me for MONTHS when I was 5 or 6. I had trouble sleeping for the longest time and I would see monsters in the shadows of my nightlight, always hiding under the blankets for some sort of protection, the naïve notion all children seem to have as though by instinct. Having seen the IT remake as an adult, the Georgie scene in the new movie would've terrified me for years as a child.
+  
+Click. 
 
-The one thing that always helped me sleep was our American Bulldog Paisley. She was the best dog we ever had, playful and full of energy but protective. She once nearly killed our neighbor's Black Lab when he jumped the fence into our yard and ran straight towards me. When she was with me in my bed, I knew I could sleep in peace. She wouldn't let anything near me. At the time of this story, she was 7 years old.
+  
+Nothing. 
 
-Our house being old as it was, had its own flavor of creepy noises. I swore at times I would hear footsteps in the attic above my room, of course it was probably just the expansion and contraction of the wood. My father liked to play it up by saying things like "Well you know, someone did die in this house..." just to rile me up. I never really knew if it was true, but some nights I swear I heard whispering in my room coming from the closet. I used to chalk it up to my imagination and ignore it.
+  
+The lights weren’t working. I pulled the chain again keeping my eyes shut tight just praying that when I pulled it again I’d see a flash of light through my eyelids. But I didn’t. It was dark. The only light in the basement was the subtle glow of the streetlights coming through the tiny basement windows. I told myself on repeat there was nothing there and monsters weren’t real, trying to find any shred of bravery left in me. 
 
-The worst noises came from hot water baseboard heat. In the winter, the boiler in our house would heat up water before sending it through copper pipes that would heat our home via conduction. I understand this process now as an adult, but I didn't as a child. When that hot water went through those cold pipes, the pipes would expand. They gave out this god-awful creaking and snapping sound as it happened. When it would occur in the middle of night when everything was still and silent, it terrified me.....unless Paisley was there. She wouldn't bark, or stir, or pop her head up. She'd snore away, unbothered. As a kid, it was the best indication I had that everything was ok and there was nothing to be afraid of.
+  
+I took a deep breath as I flung the door of the freezer open and grabbed the things my grandmom had asked me to bring up. I started turning to run back to the stairs when I heard the worst noise I could have imagined at that moment. The basement door slammed shut loudly and forcefully. WACK.   
+“No, no, no, no, no! Please no!” I scrambled up the stairs as fast as my body would carry me and tried desperately to open the door. It wouldn’t budge. The door didn’t have a lock on it, but it did stick in the frame sometimes and was hard for even a grown adult to open…. let alone a young girl. My grandparents never closed it for exactly that reason. “Grandmom? Grandpa?? Someone PLEASE. PLEASE open the door!” I dropped everything I was holding and violently shook the door handle as hard as I could. I yanked and pulled on it desperately, but it didn’t move.  
 
-That all changed one night.
+  
+The door opened in towards the basement so ramming myself into wasn’t an option. But truthfully, I wasn’t strong enough to unstick the door, let alone bash my way through it. Then a horrible thought crept into my mind. The door faced inward. There was no draft at all, let alone one strong enough to have done that. Someone had to have slammed it like that… from inside the basement.   
+Then I remembered just to the left of the fridge was the cellar door that led to the outside… but I’d have to go all the way across the basement to get there. I sat for a moment with my head against the door and my back scrunched tightly against the wall trying to figure out what to do when I heard a noise from below. 
 
-Our small basement was a dimly lit mess. You entered through the kitchen. The door to the basement was across from the door to come into the house. It contained our washer and dryer, hot water heater, and boiler. It also had a bunch of assorted junk that couldn't be stored anywhere else. It would leak when it rained particularly hard so it always had a damp feel to it and mold would stick to the damp concrete walls. I only went down there to do laundry, that was it. There was a small basement hopper window on the front side of the house and a full size, normal window on the back side with a window well that was 6 feet deep. Ostensibly it was there so someone could get out of the house if need be. It had a couple of dark corners behind the steps into it where you couldn't see. My mind would play tricks on me and after retrieving my laundry, I'd run as fast as I could with my eyes closed to get out before I heard or saw anything. It always gave me a feeling of dread. Even at 12 or 13, I knew it was irrational, but I couldn't help it.
+  
+Shhhhrrhhhhh.
 
-On this night. I began to think it wasn't my irrational and childish fears.
+  
+It was just a quiet little scuffle like someone dragging something across the concrete floor but it sounded like it was directly below me. I froze as I listened. There it was again. 
 
-It started like any other. My dad cooked dinner, laid down for a nap before going to work. His shift was 7pm-3am this night. After he left, I went about my usual night routine. Grab some snacks and watch TV like any kid left to fend for themselves. I don't remember exactly what I was watching but for some reason I think it was The Clone Wars animated series, this was around 2011 and as big of a Star Wars fan as I was/am, it would make sense.
+  
+Shhrrrhhkkhhh. 
 
-My night was...typical. I snacked on junk food, watched TV, let Paisley out so she didn't pee on the carpet overnight, etc. After letting her in around 9:30 or so, I sat down and began munching on nacho cheese Doritos when I heard a noise below me. It was indistinguishable due to the noise from the TV, so I muted it and listened for 30 seconds or a minute. I couldn't really tell what it was, it sounded like something dragging across the floor, but I also couldn't be sure that it wasn't just the TV or maybe the furnace kicking on, it was December after all. I shrugged it off and unmuted the TV and continued stuffing my face.
+  
+It sounded like it was moving out from under the stairs towards the bottom step. I was shaking so violently if someone had seen me they probably would have thought I was having a seizure. Maybe I was, I don’t really know. 
 
-Then it happened again.
+  
+“GRANDMOM!? GRANDPA!!?! PLEASE. PLEASE OPEN THE DOOR! PLEASE!” I slammed my fists as hard as I could against the door. From below me I heard the same sound, growing closer. 
 
-This time, Paisley heard it. She was lying on the floor in front of me and popped her head up, her ears raised and alert. I muted the TV again. I wasn't crazy after all. Now my heart began to race, pounding in my chest. Paisley didn't move, I tried to pet her, but she didn't budge. She remained looking at the corner of the room, listening intently. Taking my cue from her, I listened too, although all I could hear was my own heartbeat.
+  
+Ssshhhhhrrrrhhhh.
 
-Then it happened again. Even louder than the first two times.
+  
+“PLEASE!” I slammed my fists so hard I had long, colorful bruises on them for over a week after. I’m truthfully amazed I didn’t break any bones in my hands. As I heard the noise again I turned my head towards the bottom of the stairs. I thought for a second I could make out the outline of some tall, lanky, dark figure hunched over just past the stairs, just beginning to stand up in the darkness below. 
 
-It sounded like something scraping against the concrete floor of the basement directly below. Paisley heard it too and she's now standing and growling. She never growls. Her back hair standing on end. She's never like this. The last time I had seen her like this......she saved me from the neighbor’s dog. She had been viciously defensive of me that day. After the two dogs had been separated, I remember my dad holding her back as she growled and snarled at the other dog, blood on her mind and her hair on end. She now had a similar look to her now.
+  
+In that moment the purest form of fight or flight took over my body, it was almost like being possessed by someone else.. someone far braver and smarter than me. Before I could have any more thoughts, I launched myself through the gap in the railing onto the concrete floor. I hit the ground hard but I had too much adrenaline to care. 
 
-I tried to rationalize what was going on. Furnace kicked on?? No, not three times in succession like that. I felt the heat registers, they were hot. The furnace had been on for some time. Maybe it was a mouse or rat, shuffling through some old backpack. It sounded heavier than that but, it wasn't impossible. My mind was racing, going through all possible explanations but all the routine, normal moans and groans of the house didn't explain Paisley's reaction. She never reacted like this to anything except for that one time....that time.....that I was in immediate danger.
+  
+I heard some kind of deep, raspy, inhuman groan coming from behind me as I got back onto my feet and started running towards the cellar doors. I could hear whatever it was joints crackling and popping as it shuffled towards me making that awful dragging noise. I didn’t dare turn around to see it. 
 
-I hear shuffling below me. Not the dragging sound like before but not footsteps. It sounds like someone taking a stiff broom or brush to the floor of the basement. Paisley loses it. She runs out barking like crazy. She stands looking at the basement door and she stops. As she stops the noises in the basement stop. She then sits against the basement door, putting her back into it.
+  
+As I finally reached the little stairs leading to freedom I rammed my shoulder as hard as I could against the cellar doors. They were heavy and barely moved at all when I slammed into them, but I knew this was life or death. I wedged myself between the top step and one side of the doors and pushed myself and the door up with all the strength I had in me. I heard  the raspy groan growing closer and louder. I pushed the door as hard as I could until finally I could see the back yard. I felt something unnaturally cold and bony swipe against my leg as I fell out onto the ground.   
+“GatorSwampWitch?” I heard my grandmom say in a completely confused voice from over by the pond, “honey.. what are you doing?” 
 
-My first thought after this was "Oh my god, someone's in the basement." I grab my phone and start to text my dad,
+  
+“I.. the… basement… the door….. slammed shut,” I panted, my mind still racing. As the comfort of adults being with me again started to melt the fear off me, I gained enough courage to look down the cellar steps. For just a moment, I saw something slink away back into the darkness. It looked pale and bony and just… wrong. I saw a singular bloodshot eye that was far too big and wide with no iris as it vanished into the darkness. As soon as that eye connected sight with mine the fear returned and I slammed the door shut aggressively. 
 
-*Hey, I think there's someone in the basement. I hear a bunch of noise down there and Paisley is freaking out*
+  
+“Baby, what are you doing? Are you okay?” My grandmom started to make her way over to me with a look of grave concern on her face. “What happened to you?” I look down at myself. I was covered in dust and dirt, bleeding in a few places. The side of my body that hit the basement floor when I jumped off the stairs was covered in scraps with purple bruises beginning to form underneath. The sides of my fists were swollen and already beginning to change colors from banging so hard against the door.   
+After I gained my composure for a moment I looked at my grandmom’s sweet, concerned face. “The basement door slammed shut on me and I thought I heard… saw… I thought. Something else was down there. I was yelling for you guys but no one answered me.” I knew as I was saying it she wasn’t going to believe me that something was down there. I shook my head and covered my face in my hands.
 
-After a few minutes, my phone vibrates,
+  
+“I’m so sorry, honey, we came outside to feed the fish when you went down. Can’t hear anything from out here.. Not at our age, anyway.” She smiled playfully but dropped her smile once she realized how shaken up I really was, “The dark can play tricks on your mind sometimes. That’s probably all it was” She smiled again and rubbed her hand against my back gently, “why don’t you go inside and get yourself washed up and we’ll watch a movie when we’re done out here, maybe some ice cream?”
 
-*lol what*
+  
+I walked inside from the back of the house so I wouldn’t have to go past the basement. As I was washing all the dirt off myself and cleaning up my scrapes I heard the distinct pop of the basement door unsticking followed by the slow creak of the hinges. I froze in place, listening for every possible sound. It was quiet. I peeked my head out the little window to see both of my grandparents were still outside by the pond. The bathroom was in the same hallway as basement door so I got on the ground and looked under the crack of the door. 
 
-I rolled my eyes and began furiously tapping on my phone,
+  
+I couldn’t see much, but I could see that the basement door was wide open now and a few of the things I had dropped sitting on the steps. I didn’t see movement and I couldn’t hear the grotesque raspy groans or crackling of that… thing moving. I opened the door slowly trying not to make a sound and stepped into the hallway. I inched closer towards the steps keeping my eyes fixed on the black void of the basement. 
 
-*Dad, I'm being serious. There's a bunch of noise down there and the dog is flipping out too.*
+  
+Nothing was there. 
 
-My phone, buzzes again, he's calling me,
+  
+I slid my way past the open basement door into the kitchen to grab a flashlight. I grabbed the flashlight and pointed it all around into the dark basement. Still nothing. By some miracle, none of the things I dropped fell off the stairs and were all still between the first and third steps. “It’s all in your head. Grandmom is right. Nothing was there. You’re okay” I told myself keeping the flashlight fixed towards the steps. 
 
-"He-Hello..." My voice was shaking.
+  
+I knelt down as far back from the actual basement as I could to grab the things I dropped. Just as I was about to grab the last item I heard a dishearteningly familiar sound. A slow, dragging shuffle combined with popping and crackling. 
 
-"Are you ok??"
+  
+Not from the basement. 
 
-I explained to him what was going on as fast as I could. My voice was shaking, heart still pounding.
+  
+*From behind me.* 
 
-"Ok, ok. I believe you; I'm coming home. Grab my gun and if you think you need to, just call 911, ok??"
+  
+I turned my head towards the hallway and then felt the life force drain out of me as my eyes once again met those horrible, iris-less, bloodshot eyes. 
 
-"I-I-I'm sorry dad, I feel stupid......" my voice trailed off. I hated to make him come home over this, but I was scared to death. I hadn't felt this level of fear since the time I had seen "IT" so many years ago.
+  
+Whatever it was… was tall and thin, covered in semi-translucent pale flesh that seemed like it was draped over the thing’s “skeleton”. It didn’t seem like it was attached in any meaningful way. Its arms and torso were both too long and skinny.. so were its horrible bony fingers with black, rotten nails. And its face. 
 
-"It's ok, I'll be there soon," he hung up. He sounded genuine in his concern; he wasn't frustrated or mad.
+  
+Its fucking face…
 
-I went to my dad's room and retrieved his 9 mm handgun that he kept just in case of a break in. I knew how to use it; I'd shot it dozens of times. I made sure to keep the safety on and the chamber was empty, I kept it that way. God forbid I accidentally shoot myself. I figured the threat of a firearm would be enough to deter any would be attacker. Oddly, it had been quiet for maybe 10 minutes and Paisley was now lying down against the basement door. I went around the house, turning on all the lights just to calm my nerves some and closing the blinds in case anyone was watching from outside.
+  
+Two bulging, bloodshot eyes that were too close together with tiny black dots in the middle… a long, thin mouth with no lips that were just parted enough to reveal what seemed to be rows of thin, yellow-orange, needle-like teeth. It seemed to have no expression on its face, but looking at it pierced through my soul with hopelessness. It looked like the result of a mad scientist trying to combine an emaciated human-alien hybrid with an angler fish or something horrible like that. 
 
-Just as I thought it was over, I heard a loud BANG from the basement as if something heavy had been dropped on the floor. My heart is racing, and I go over to the basement door. Paisley is standing and growling once more, letting out the occasional bark.
+  
+Fear once again took over. I tried to scream but instead my mouth just hung open silently. I wanted to run, but my body betrayed me. I was paralyzed kneeling on the floor just staring at this thing. It slowly began to move towards me making those horrible fucking noises. 
 
-Now I heard the shuffling again, even louder than before, moving around now I can hear it going towards the washer and dryer. I hear it hit the washer, I know this because the washer is old and out of balance and makes a similar noise when the inner basket slams against the aluminum skin. I hear things falling on the ground. The sounds of plastic hitting the floor and the distinct sound of aluminum rattle paint cans smashing into the concrete floor. Then another loud metallic bang, louder than before, slamming against the washer. Paisley is freaking out, scratching the door and barking incessantly. The noise all seems too crescendo all at once. Things falling, dog barking, heart pounding....I cover my ears as a tear rolls down my cheek......stop please...I think to myself......just stop..... STOP!! Then silence.
+  
+The way it moved was unnatural. It was almost like when you’re watching someone move in a strobe light. Disjointed, like it was teleporting a few inches at a time more than walking with its legs.. despite the noises it made as it moved. 
 
-The noises all stop at once. Paisley stops barking but maintains a low growl. I take a deep breath. I try to muster the strength to open the door but Paisley snarls at me. A warning. I listen to her judgement. Then light reflects off the kitchen walls from behind me. I turn around to see a pair of headlights coming closer. Dad.
+  
+It was within a few feet of me as it began reaching out towards me with its horrible, twisted fingers. As it reached out to touch me, my body abruptly released me from fear paralysis and I screamed at the top of my lungs. I didn’t know I was capable of making a noise that loud. I screamed so loud I seemed to startle the thing for a second. It paused before turning its head 180 degrees with a sickening crunch to face the back door. 
 
-I had never been happier to see my father in my life. I placed the gun on the kitchen counter and hugged him tighter than I ever had before in my life, tears streaming down my face. For the first time in what seemed like hours, my heart had stopped pounding.
+  
+I heard the door fly open and my grandparents both calling my name with almost as much fear as I had. The thing let out a wailing, groaning scream for lack of a better word and fled back into the basement. As I sat there shaking like a leaf I saw my grandparents standing at the end of the hallway.   
+“What… a-th-wha-?” I’d never seen my grandparents look scared before. My grandmom rushed towards me with a quickness I didn’t know she was capable of. She quickly ushered me out of the house as she yelled to my grandfather directing him to go back out the door, “Call the police. NOW.”
 
-"Jesus bud, are you ok?"
+  
+I don’t remember most of the rest of the night. My grandparents rushed me outside and we all stood in their driveway and waited for them to arrive. It felt like hours to me but it was probably less than 10-20 minutes before they arrived. They searched the whole house and yard but they found nothing.   
+When they asked us all for details about what we saw, my grandparents said it was a tall, skinny, naked, hairless man they’d seen run down into the basement… but I knew it wasn’t a man. It wasn’t human. I didn’t tell the police that, though. I knew no adult would really take me seriously if I explained the full extent of everything. I didn’t want this to just be dismissed as a child’s overactive imagination, even if my grandparents had seen it too. I just told the police the basement door slammed shut, I thought I heard someone down there, and then saw someone in the hallway when I went to pick the things back up. I think some part of me just didn’t really want to relive the whole thing again either. 
 
-I started rambling, recounting everything that occurred in the minutes before his arrival. The noises, the barking, the fear. He listened. He seemed to be trying to make sense of it. When I finally stopped to catch my breath, he finally interjected,
+  
+They did a full investigation of the basement, the house, searched the surrounding neighborhood and woods, but nothing ever came of it as far as anyone told me.
 
-"Well, I guess I need to go down there."
+  
+Thankfully, less than 6 months later my grandparents ended up moving to a retirement home that was closer to our house and I never had to go down into that basement again… but I will never forget what happened that night. 
 
-I nodded. He retrieved the gun and opened the basement door, having to push the door against poor Paisley to get it open as she steadfastly guarded it, still growling, still on edge. He turned the light on and began to slowly walk down the steps with me attached to his hip. Paisley stood at the top of the steps. Her growling gave way to a low whimper. He made the left at the bottom of the steps towards the washer and dryer. Paint cans and cleaning supplies were strewn across the floor. A plastic, portable shelf was pushed over leaning against the washer. Aside from the newfound mess, the basement was empty as far as we could tell.
+  
+I still sleep with the lights on a lot of the time and I do everything in my power to avoid having any dark or open spaces behind me. I hate to admit that, but I’d rather people think I’m a pussy than ever have to see that thing again. I don’t think I’ll ever feel truly safe again for the rest of my life. 
 
-"Well bud, I think we might have a mouse problem." He chuckled and shook his head, amused that his son had dragged him home because a rodent had made noise and knocked some things over. As he turned to face me, he looked me in the eyes before looking up and past me. He turned white as a ghost and the amused expression gave way to a look of pure fear.
-
-"Dad?? What is it, Dad??"
-
-I felt a cool breeze against my back and heard the distinct sound of something dragging across the concrete directly behind me.
+It's been more than 15 years since it happened, but some part of me will always be on edge… waiting for my gaze to meet those horrible eyes again.   
