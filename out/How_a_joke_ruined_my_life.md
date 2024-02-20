@@ -78,7 +78,7 @@ One night, coming home late from work, I conveniently checked the mailbox as I l
 
 &#x200B;
 
-CHILD: James Cooper					                         
+CHILD: James Cooper
 
 Alleged FATHER: Chris J. Cooper
 
@@ -86,7 +86,7 @@ Alleged FATHER: Chris J. Cooper
 
 Interpretation:
 
-Combined Paternity Index: 0				
+Combined Paternity Index: 0
 
 Probability of Paternity: 0%
 
@@ -137,3 +137,5 @@ Lying on the double bed, staring at the bleak ceiling, surrounded by the empty h
 &#x200B;
 
 That is how a joke ruined my life.
+
+[x](https://www.reddit.com/r/PIPIDOG_LOL/)
