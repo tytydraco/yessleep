@@ -56,7 +56,7 @@ Next day, I had everything prepared, but my nerves were killing me, this time, t
 
 The bell rang, I walked to the garage of the college for my bicycle... That place was lonely, so... this time, I knew they were coming... I could hear their steps... Opened the door, and right next of the door from inside the garage, I left my father's baseball bat, grabbed it as fast as could and swinged all I could, sometimes I hit, sometimes I didn't. My eyes were closed shut, my instinct was weak and after some hits and loud "Clanks", I opened my eyes. The three guys were on the floor, not moving, some blood on the floor coming from their mouths or noses...
 
-Panting from the horror, I screamed of such horrifying scene I just provoked, more after see that I was holding the baseball bat as a weapon. Hop on my bicycle and rode as fast as could back to home. Ran to my room and lock myself in, the baseball bat bounced on the floor and I sat against my door and scratching my head, sobbing and scared of what I just did.
+Panting from the terror, I screamed of such horrifying scene I just provoked, more after see that I was holding the baseball bat as a weapon. Hop on my bicycle and rode as fast as could back to home. Ran to my room and lock myself in, the baseball bat bounced on the floor and I sat against my door and scratching my head, sobbing and scared of what I just did.
 
 But... like a heartbeat... I remembered the book... I looked at it with my red-teary eyes and slowly opened the book. The chapter 1 stood the same, except... my signature appeared at the bottom right of the page.
 
