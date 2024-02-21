@@ -1,6 +1,6 @@
-Let me start off by daying that I've somehow managed to live 28 years without being able to hold a successful conversation. You'd think I'd have caught on by now, but nope, I still sound like an alien talking to a human being for the first time. 
+Let me start off by saying that I've somehow managed to live 28 years without being able to hold a successful conversation. You'd think I'd have caught on by now, but nope, I still sound like an alien talking to a human being for the first time. 
 
-To give you an example, a girl from another department was waiting to use our ancient copier machine that only works when it wants to. I'm not going to give her name or where we work because I'm terrified of this getting back to me. Just know that it's pharmaceuticals. I work the night shift in the lab as a research technician, which means that my lackluster social skills are normally not an issue. Thankfully, cell cultures don't give a hoot if you say something weird. 
+To give you an example, a girl from another department was waiting to use our ancient copy machine that only works when it wants to. I'm not going to give her name or where we work because I'm terrified of this getting back to me. Just know that it's pharmaceuticals. I work the night shift in the lab as a research technician, which means that my lackluster social skills are normally not an issue. Thankfully, cell cultures don't give a hoot if you say something weird. 
 
 But anyways, the copier was doing that wonderful thing where it pretends that it doesn't have paper (it does), and the girl made a comment about how it needs replaced. 
 
@@ -18,9 +18,9 @@ The incident that led to me getting to this point centers around the new IT guy.
 
 I tried to say something normal: "I know that the copy machine sucks, but violence isn't the answer."
 
-It must've worked, because he chuckled. When he turned to face me I saw that he was wearing sunglasses. That should've been my first clue that something was "off" about him, but one thing you need to understand is that the lab has what I like to call "morgue lighting:" it's stark bright, the kind of lights that instantly trigger headaches in people unlucky enough to have sensory issues. I myself had to get a blue light filter on my glasses just to keep from getting daily migraines at this place. Sure, wearing sunglasses inside is kind of extreme, but maybe he was even more photosensitive than I am.
+It must've worked, because he chuckled. When he turned to face me I saw that he was wearing sunglasses. That should've been my first clue that something was "off" about him, but one thing you need to understand is that the lab has what I like to call "morgue lighting:" they're the kind of lights that instantly trigger headaches in people unlucky enough to have sensory issues. I, myself, had to get a blue light filter on my glasses just to keep from getting daily migraines at this place. Sure, wearing sunglasses inside is kind of extreme, but maybe he was even more photosensitive than I am.
 
-He joked that the copier's funeral would be on Wednesday. He then informed me that it would be a few hours. He said something about a processor going bad. I resolved to try again later and went back to work. All in all, our first interaction was fairly normal, and I silently applauded myself for getting what I would consider a Good Grade in Conversation.
+He joked that the copier's funeral would be on Wednesday. He then informed me that it would be a few hours, saying something about a processor going bad. I resolved to try again later and went back to work. All in all, our first interaction was fairly normal, and I silently applauded myself for getting what I would consider a Good Grade in Conversation.
 
 The second time I saw the IT guy, it was in the break room a few nights later. The break room was completely empty while I was getting my first meal of the day... at midnight. Being on nights has made a mess of both my sleep schedule and appetite. 
 
