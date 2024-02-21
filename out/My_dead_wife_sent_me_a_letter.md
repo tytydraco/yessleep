@@ -49,7 +49,7 @@ The moment the paper touched the flame a loud noise startled me.
 
 BANG! It came from above me, so without thinking I ran upstairs.
 
-My bedroom was open, it swung wildly due to the wide open window in my room. I entered my room, but as I was going to close the window I noticed it. Large red text on the wall.
+My bedroom door was open, it swung wildly due to the wide open window in my room. I entered my room, but as I was going to close the window I noticed it. Large red text on the wall.
 
 “Regrets again?”
 
