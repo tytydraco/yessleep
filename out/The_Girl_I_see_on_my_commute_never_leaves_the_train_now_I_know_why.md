@@ -128,7 +128,7 @@ Zoe seemed like a really nice girl. I figured it would be unfair for someone lik
 
 “Promise.”
 
-“Ok. I believe you. Meet me here tomorrow at 10. There’s less people around that time. I’ll introduce you to the family.”
+“Ok. I believe you. Meet me here tomorrow night at 10. There’s less people around that time. I’ll introduce you to the family.”
 
 “Who exactly is the family?”
 
