@@ -6,7 +6,8 @@ We had been friends for most of our childhood, that was until we went camping. M
 
 I moved on after a while. I eventually moved away from Pinestone down to Houghton and eventually married a woman who for her safety I won't name before taking a job on a charter fishing boat. I eventually had my own daughter who again I won't name here in case they happen to read this. I didn't think of Marlene until my little girl and I were walking through the forest and she found Marlene's backpack hanging on a tree. I was surprised to see it after all these years but even more surprised by the fact that it looked just as it did the day she disappeared. 
 
-L.k. 
+I cautiously picked up the backpack and began to open it up and I was hit with the memories of Marlene, she was my best friend since I was 3 and I had abandoned her after I thought she was dead, in her pack I found a not I gave her that day I opened it up and saw she had written a response I asked if she liked me…she wrote she like liked me. Heh it's childish but that made the memories hurt all the more. Then I saw another note, this one newer. I opened it up and was horrified when I read it. She had written this note begging me to find her twelve years ago when I was 15. I don't know why this pack was here but it's obvious to me these jagers had been tracking me ever since that day. They took toys I thought I had lost over the years they took notes, books hell my fucking homework assignments that I thought were lost! They put them all in her backpack along with a final note. “Beware beware the forest at night should you go out and not be right . We come to make sure you never never leave.” The old rhyme my mom used to tell me so I'd never go out into the forests without her or my dad. I grabbed my daughter and began to run back to the car. I took the backpack with me, if they could fool the cops back then I have no doubt they'd do it again. 
 
-(Author here this is the first part in hopefully a series that I plan on writing. I would appreciate any and all constructive comments,feedback and criticism. Also if you have any questions about the world I'll be happy to answer in character.) 
+
+
 

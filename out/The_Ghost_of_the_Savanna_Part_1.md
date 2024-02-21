@@ -257,3 +257,7 @@ A beep sounded from Benjamin's device. He stopped, looked, and as soon as his ey
 He turned to us, showing [this](https://ibb.co/gZ1gm9y) image: a huge lion, on the camera that was at the camp's door. Its fur was completely white. I don't know if the picture can convey its size, but believe me: we don't have a lion of this size registered! We were petrified until we heard, closer and louder than we expected, a hoarse and animalistic roar, the roar that caused my nightmares, and beyond it, all we heard were Barasa's few words:
 
 "The Ghost of the Savannah..."
+
+&#x200B;
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1awl3x6/the_ghost_of_the_savanna_final/) 
