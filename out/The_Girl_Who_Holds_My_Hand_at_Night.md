@@ -42,6 +42,6 @@ He was kind. Understanding. At least on that first night.
 
 We came to the conclusion that it was some weird form of sleep paralysis. A waking nightmare.  A neurological hiccup.
 
-And that was enough for me.
+And that was enough.
 
 Until she held my hand the next night.

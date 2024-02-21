@@ -1,4 +1,4 @@
-[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1aud0d0/somewhere_beneath_us_part_17/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1aud0d0/somewhere_beneath_us_part_17/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) \~ [{Next Part}](https://www.reddit.com/r/nosleep/comments/1aw1izg/somewhere_beneath_us_part_19/?utm_source=share&utm_medium=web2x&context=3)
 
 My eyes shot open, and I looked up at the ceiling with a sigh. I checked my watch; 2:46 am. Nearly two hours of sleep. That was a new record. Still, I knew that there wasn't going to be much more than that tonight. I slowly sat up and began to make my way to the door, then ducked into the hall without a sound. The bodies were already at the window looking at me, Hillary front and center beckoning eagerly. They had been a lot more active since the stunt I had pulled. The more I watched them, the sicker I felt, so I crept toward the end of the hall and slouched into the corner facing the kitchen. Not a moment after I sat, I heard the door to the bedroom open, and Bea stepped out. She walked over and stood before me.
 
@@ -245,3 +245,7 @@ As she counted down and the dread mounted in my chest, I looked over to the Cura
 "Yeah," I said, peering past Grace and into the sunroom to Bea. She was reading a book while leaning against the wall, and as she turned the page, she caught my eye and gave me a warm smile. "I know exactly what you mean."
 
 *"Come a little bit closer, I'm all alone, and the night is so long…."*
+
+&#x200B;
+
+[{Next Part}](https://www.reddit.com/r/nosleep/comments/1aw1izg/somewhere_beneath_us_part_19/?utm_source=share&utm_medium=web2x&context=3)
