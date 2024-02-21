@@ -7,7 +7,7 @@ When I was about 8 or 9 I lived in this really old house. The stairs were carpet
 
 
 
-Early into the night around 7pm-8pm my mother had left, to go where? I don’t quite remember but she was gone. So it was just me and my siblings, me being the youngest. We had just recently moved in the house, so we were still getting adjusted. As a result me and two of my siblings slept in the living room and my other two sibling slept in my mothers rooms. Which is right next to the living room. When I was younger I had night terrors and insomnia, so it wasn’t unusual that I’d wake up in the middle of the night. This night I had woken up at about 1am for no particular reason, just cause my body felt like being awake. 
+Early into the night around 7pm-8pm my mother had left, to go where? I don’t quite remember but she was gone. So it was just me and my siblings, me being the youngest. We had just recently moved in the house, so we were still getting adjusted. As a result me and two of my siblings slept in the living room and my other two siblings slept in my mothers room. Which is right next to the living room. When I was younger I had night terrors and insomnia, so it wasn’t unusual that I’d wake up in the middle of the night. This night I had woken up at about 1am for no particular reason, just cause my body felt like being awake. 
 
 
 
@@ -16,12 +16,12 @@ That’s when I heard it. It sounded as if there was some kind of snickering ups
 
 
 
-I sat there shocked and terrified that if I made noise they would come down. That’s when the  foot steps started to come down a couple of the steps and then would go running back upstairs. At this point I’m in full out tears. The laughing continued as the foot steps kept making their way down the stairs and back up. Each time getting closer and closer to the bottom of the stairs. I was so scared I finally woke up my brother whose about a year older then me. Once he woke up and seen me crying he asked what’s wrong. I told him to listened to see if he could hear it, and to my horror he did. The laughter continued and so did the foot steps down the stairs. He’s terrified at this point too, we sat there holding each other hoping it would just stop.
+I sat there shocked and terrified that if I made noise they would come down. That’s when the foot steps started to come down a couple of the steps and then would go running back upstairs. At this point I’m in full out tears. The laughing continued as the foot steps kept making their way down the stairs and back up. Each time getting closer and closer to the bottom of the stairs. I was so scared I finally woke up my brother who’s about a year older then me. Once he woke up and seen me crying he asked what’s wrong. I told him to listened to see if he could hear it, and to my horror he did. The laughter continued and so did the foot steps down the stairs. He’s terrified at this point too, we sat there holding each other hoping it would just stop.
 
 
 
 
-After a while and it had continued, we decided that we’d have our dog at the time come with us up stairs to check it out. When we got up there and looked around, there was nothing, no one, not even a sound. We still terrified quickly ran back down stairs and under the covers. We thought after that it would stop. Boy were we wrong. It’s as if we had angered them. The foots steps grew louder and the laughter became more maniacal. This time it seemed as if the children became more wild and determined to scary us. It seems as if they were no longer children. It continued to go on for about another 30 mins or so. Me and my brother are in tears because we didn’t know what to do. How to get it to stop. 
+After a while and it had continued, we decided that we’d have our dog at the time come with us up stairs to check it out. When we got up there and looked around, there was nothing, no one, not even a sound. We still terrified quickly ran back down stairs and under the covers. We thought after that it would stop. Boy were we wrong. It’s as if we had angered them. The foots steps grew louder and the laughter became more maniacal. This time it seemed as if the children became more wild and determined to scare us. It seems as if they were no longer children. It continued to go on for about another 30 mins or so. Me and my brother are in tears because we didn’t know what to do. How to get it to stop. 
 
 
 
