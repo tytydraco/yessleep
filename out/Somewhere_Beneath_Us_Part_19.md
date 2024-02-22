@@ -1,4 +1,4 @@
-[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1av7a9i/somewhere_beneath_us_part_18/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web2x&context=3)
+[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1av7a9i/somewhere_beneath_us_part_18/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web2x&context=3) \~ [{Next Part}](https://www.reddit.com/r/nosleep/comments/1aww1tb/somewhere_beneath_us_part_20/?utm_source=share&utm_medium=web2x&context=3)
 
 &#x200B;
 
@@ -405,3 +405,7 @@ I did my best to hold back a sob and squeezed his hand back. "Okay, Mark. I prom
 We talked for a while longer, with Mark giving me an official goodbye that was full of tears on both ends. After that, everyone else rejoined the room. We all went to our spots and leaned up against the wall while Jan took a seat next to Mark and held his hand. Nobody said a word after that. We all just waited. Night fell, but nobody went to sleep. We knew if we did, we would most likely be a person less when we woke up. Ethan sat close next to me, and to my other side, Bea leaned her head on my shoulder. Time felt agonizingly long moment by moment, yet by the time the window across from me had turned from dark blue to black, and back to dark blue, it had all gone so fast. Much too fast… an hour later, we heard Mark take a struggled breath in that never came back out. Jan took a sharp inhale and held it as Benjamin slowly crept over to his body. He placed his fingers to his wrist and then turned back to the room.
 
 We had all been doing our best to be strong for him in his last moments, but the second we saw Ben solemnly nod his head, we crumpled like paper in the rain.
+
+&#x200B;
+
+[{Next Part}](https://www.reddit.com/r/nosleep/comments/1aww1tb/somewhere_beneath_us_part_20/?utm_source=share&utm_medium=web2x&context=3)
