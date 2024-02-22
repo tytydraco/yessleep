@@ -102,7 +102,7 @@ His men step aside, parting a path for him as he approaches the center of the co
 
 Wolff stops and surveys the scene with a calculated gaze, his hands clasped behind his back. He turns to the soldier who had spoken. "Report, sergeant," he commands, his voice firm and devoid of emotion.
 
-"Sir, the villagers claim they don’t know anything about Project Wandering Soul. We've searched the houses, interrogated several of them. Nothing."
+"Sir, the villagers claim they don’t know anything about Project Grim Harvest. We've searched the houses, interrogated several of them. Nothing."
 
 Wolff responds with an icy, humorless chuckle. "Bullshit they don’t," he says, his voice tinged with scorn. He pulls down his bandana, revealing a face that's as battle-scarred as it is cold.
 
@@ -187,6 +187,8 @@ As we stand there, grappling with the grim transformation of Mrs. Thảo, a sudd
 [Part 4](https://www.reddit.com/r/nosleep/comments/1akftjh/i_found_out_why_my_dad_never_talked_about_his/)
 
 [Part 5](https://www.reddit.com/r/nosleep/comments/1ameo4t/i_found_out_why_my_dad_never_talked_about_his/)
+
+[Part 6](https://www.reddit.com/r/nosleep/comments/1axj5s5/i_found_out_why_my_dad_never_talked_about_his/)
 
 [X](https://www.reddit.com/r/PageTurner627Horror)
 
