@@ -19,11 +19,11 @@ I had to work super early but I couldn't say no, I poured myself a glass of wine
 We were about halfway through the movie when we finished the bottle of wine and I went to the fridge to get another. I looked behind me while I was bent over in the fridge fishing for a second bottle and thought I saw Dan checking me out. He had a weird, cold, mannequin-esque look on this face, like he was sizing me up.
 His expression melted back to his old comfortable smile almost in a flash when he caught me looking back at him though, so I couldn't be sure.
 
-I cracked the bottle open and poured us another glass, I could feel myself getting a bit drunk as I sat down on the couch and Dan cozied right up to me and put an arm around my shoulder.
+I cracked the bottle open and poured us another glass, I could feel myself getting a bit drunk. As I sat down on the couch, Dan cozied right up to me and put an arm around my shoulder.
 
 Everything starts to get a bit hazy for me around here, I remember looking over into Dan's eyes and... just feeling lost, like I was hypnotized or something.
 
-I don't know who started it, but we began to make out, and eventually had sex. I laid sprawled out on the couch in pure ecstasy afterwards as Dan excused himself to the bathroom. It only felt like I had been laying there for 5 minutes, but when I looked up at the clock it was almost 3am, Dan would have been in the washroom for almost an hour. 
+I don't know who started it, but we began to make out, and eventually had sex. I laid sprawled out on the couch in pure ecstasy afterwards as Dan excused himself to the bathroom. It only felt like I had been laying there for 5 minutes, but when I looked up at the clock it was almost 3am, Dan would have been in the bathroom for almost an hour. 
 
 I started to get concerned and got up to check on him when I heard a key turning in the door of the apartment, I froze as... Dan stumbled in.
 
