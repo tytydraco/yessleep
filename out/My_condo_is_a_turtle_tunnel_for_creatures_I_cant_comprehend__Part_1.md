@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/1axc7fs/my_condo_is_a_turtle_tunnel_for_creatures_i_cant/?utm_source=share&utm_medium=web2x&context=3)
+
 By the time I turned to Van for help, my life had become a living hell, and I was desperate enough to try anything.
 
 My condo, it seemed, was haunted. The experience is nothing like what you’d watch some oblivious horror b-movie character blunder through, though. In fact, I mistook my first encounter for a home invasion. But after what I discovered in the spare bedroom, I knew I needed the kind of help police couldn't provide.
@@ -159,3 +161,7 @@ I shook my head.
 “What’s that?” I asked.
 
 [“We catch it.”](https://www.coleschapters.com)
+
+\*\*\*
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1axc7fs/my_condo_is_a_turtle_tunnel_for_creatures_i_cant/?utm_source=share&utm_medium=web2x&context=3)
