@@ -238,7 +238,7 @@ I groaned, feeling blood running down my face. I opened my eyes. Sharp, stabbing
   
 
   
-“I just got here and heard the door shattering back here. I circled around your yard and found you here like this. I have no idea where the girl is,” he said, looking around with concern. He had the look of a man who had accidentally walked into a lunatic asylum filled with dangerous lunatics.
+“I just got here and heard the door shattering back here. I circled around your yard and found you here like this. I have no idea where the girl is,” he said, looking around with concern. He had the look of a man who had accidentally walked into a lunatic asylum filled with dangerous inmates.
   
 
   
@@ -306,7 +306,7 @@ I spun around to see the mouth of the lion opening wide inches from my face. A d
   
 
   
-The sounds of our screams echoed across the room. It felt my vocal cords tear as blood spurted from my mouth. The pain seemed to go on and on as the jaws came down again and again, ripping off pieces of my body. Eventually, once I was nearly dead, Mr. Crawley came over, peering down at me with his glistening beetle eyes.
+The sounds of our screams echoed across the room. I felt my vocal cords tear as blood spurted from my mouth. The pain seemed to go on and on as the jaws came down again and again, ripping off pieces of my body. Eventually, once I was nearly dead, Mr. Crawley came over, peering down at me with his glistening beetle eyes.
   
 
   

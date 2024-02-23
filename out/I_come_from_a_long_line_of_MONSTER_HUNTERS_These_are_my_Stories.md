@@ -106,7 +106,9 @@ Halliburton was delighted. “You can’t save him,” he laughed, while licking
 
 Holding Gary’s cold hand, I prayed for guidance. At once, Father’s voice chimed inside my mind, telling me what needed to be done, and how to do it. I stood tall, and pointed. “Go back to Hell, Halliburton!”
 
-Bombastic bolts of lightning blasted out of me. Halliburton flew back, his tattered rags flaming. A sully layer of smoke wafted above him, quickly spreading. The smell of burning flesh was all-encompassing. Arms flapping, Halliburton floundered. His entire body was ablaze. He snarled. I could feel his hatred burning into me. Hatred so deep, it was [bottomless.Blue](http://bottomless.Blue) and golden thunderbolts flowed out of me,  as I unleashed holy hell.
+Bombastic bolts of lightning blasted out of me. Halliburton flew back, his tattered rags flaming. A sully layer of smoke wafted above him, quickly spreading. The smell of burning flesh was all-encompassing. Arms flapping, Halliburton floundered. His entire body was ablaze. He snarled. I could feel his hatred burning into me. Hatred so deep, it was bottomless.
+
+Blue and golden thunderbolts flowed out of me,  as I unleashed holy hell.
 
 “Stop it! You insufferable Sleether!” Amidst fiery flames, Halliburton’s body started flickering, going in and out of view. He struggled as he dropped to his bony knees. Something snapped. Then, cursing and cackling, Halliburton gradually descended into the deep, dark cemetery ground. The rats followed.
 
@@ -122,14 +124,12 @@ Then came a sonic boom, and I was back at home, consoling my grieving mother, wh
 
 “I’m a Sleether,” I told my grieving mother.
 
-Her eyes were oceans of blue. “I know, Sam.” She smiled sadly. \[“So am I.”\](https://www.reddit.com/r/StoriesFromStarr/)
+Her eyes were oceans of blue. “I know, Sam.” She smiled sadly. \[“So am I.”\]
 
 
 
-
+(https://www.reddit.com/r/StoriesFromStarr/)
 
 \[Part One\](https://www.reddit.com/r/nosleep/comments/194ypw2/the\_terrifying\_tales\_of\_graveyard\_gary/?utm\_source=share&utm\_medium=web3x&utm\_name=web3xcss&utm\_term=1&utm\_content=share\_button)
-
-
 
 \[Part Two\](https://www.reddit.com/r/nosleep/comments/1amnm11/the\_terrifying\_tale\_of\_graveyard\_gary\_part\_2/?utm\_source=share&utm\_medium=web2x&context=3)
