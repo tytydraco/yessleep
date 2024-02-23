@@ -26,11 +26,11 @@ Tuyết, who had been quiet up until now, stands abruptly. "I can help with that
 
 She leads us through the remnants of the village, her silhouette a ghostly figure against the backdrop of destruction.
 
-A dilapidated hut looms ahead, its structure a skeleton of what it once was. The roof sags dangerously, and the walls are pockmarked with bullet holes. Tuyết pauses at the entrance, her hand resting on the frame, her expression unreadable in the dim light.
+A dilapidated hut looms ahead, its structure a skeleton of what it once was. The roof sags dangerously, and the walls are pockmarked with bullet holes. Tuyết pauses at the entrance, her hand resting on the frame.
 
 With a determined push, she opens the door, revealing the dark interior. A musty smell, the scent of earth and decay, wafts out, greeting us like an old, unwelcome friend. We step inside, our eyes adjusting to the darkness, the beam of a single flashlight cutting through the shadows.
 
-Tuyết heads to the far corner of the hut. She kneels, brushing away layers of dirt and debris, revealing a trapdoor hidden beneath. With a grunt of effort, she pulls it open, unveiling a narrow staircase that descends into the bowels of the earth.
+Tuyết heads to the far corner of the hut. She kneels, brushing away layers of dirt and debris, revealing a trapdoor hidden beneath. With a grunt of effort, she pulls it open, unveiling a narrow staircase that descends down.
 
 We follow her down, the air growing cooler as we descend. The staircase ends in a cavernous space, the walls lined with shelves that groan under the weight of their cargo. Our flashlight beams dance across crates stamped with Cyrillic and Chinese characters.
 
@@ -42,13 +42,13 @@ Lâm whistles lowly, impressed despite himself. “Goddamn…”
 
 "These were meant for a different fight…" she says with a hint of irony. “But they’ll do the job.”
 
-In the flickering shadows of the hut, we set about our grim task with a silent efficiency. The air is thick with the smell of oil and metal as we inspect and load the weapons, each of us aware that what lies ahead may well be a one-way journey.
+In the flickering shadows of the hut, we set about our grim task with a silent efficiency. The air is thick with the smell of oil and metal as we inspect and load the weapons.
 
-Tuyết, her movements precise and methodical, demonstrates the use of an RPG to Hùng, who watches intently, nodding his understanding. Lâm and Văn are hunched over a map spread on the floor, plotting our approach with meticulous care.
+Tuyết demonstrates the use of an RPG to Hùng, who watches intently, nodding his understanding. Lâm and Văn are hunched over a map spread on the floor, plotting our approach with meticulous care.
 
 I stumble upon a small box slightly separated from the others, its contents obscured by a thick layer of dust.
 
-I pry the lid open, revealing a Makarov pistol nestled within its confines, alongside a spare magazine and a worn leather holster.
+I wipe off the dust and pry the lid open, revealing a Makarov pistol nestled within its confines, alongside a spare magazine and a worn leather holster.
 
 I eject the magazine, checking it, before sliding it back in with a satisfying click. I thread my belt through the holster, securing the semiautomatic at my side.
 
@@ -60,7 +60,7 @@ Văn nods in agreement, his eyes scanning the terrain marked on the map. "We'll 
 
 —
 
-As the night cloaks us in its embrace, we gather the villagers at the mouth of the tunnel. Their possessions, meager remnants of shattered lives, are bundled in makeshift carriers. The children clutch tightly to their parents' hands, their small figures shadowed in the dimming light.
+We gather the villagers at the mouth of the tunnel. Their possessions, meager remnants of shattered lives, are bundled in makeshift carriers. The children clutch tightly to their parents' hands, their small figures shadowed in the dimming light.
 
 Tuyết steps forward, her figure bathed in the soft glow of the lanterns we've handed out, her voice steady as she addresses the huddled masses.
 
@@ -70,35 +70,35 @@ Tuyết steps forward, her figure bathed in the soft glow of the lanterns we've 
 
 Under the cover of a moonless night, we set off towards the heart of darkness. The jungle around us is alive with unseen creatures, their eyes glinting in the darkness, watching our every move. We can almost feel the presence of the undead, lurking just beyond our sight, drawn by the scent of the living. The soft murmur of the Thu Bồn River guides our path.
 
-As we draw closer to the drainage system, the anticipation within the group is palpable. I signal for a halt, crouching low behind a thicket, the rest of the team mirroring my actions. Through my binoculars, the drainage system looms ahead, its entrance obscured by overgrown foliage, a dark maw waiting to swallow us whole.
+As we draw closer to the drainage system, I signal for a halt, crouching low behind a thicket, the rest of the team mirroring my actions. Through my binoculars, the drainage system looms ahead, its entrance obscured by overgrown foliage, a dark maw waiting to swallow us whole.
 
 A lone guard tower stands sentinel over the entrance, its silhouette stark against the starlit sky. The solitary figure of a sentry, manning a .50 caliber machine gun is visible. His posture is relaxed, unaware of the eyes trained on him from the shadows.
 
-Tuyết, her presence almost ethereal in the darkness, slips forward with her scoped SKS in hand. She finds her position, a natural hollow that offers both a clear line of sight and camouflage. She settles in, her breathing controlled, waiting for the right moment.
+Tuyết slips forward with her scoped SKS in hand. She finds her position, a natural hollow that offers both a clear line of sight and camouflage. She settles in, her breathing controlled, waiting for the right moment.
 
 The distant thrum of a CH-47 Chinook approaches, its heavy blades cutting through the air with a sound like rolling thunder. Tuyết's eyes narrow, her focus absolute as she aligns her sight with the oblivious sentry.
 
-As the Chinook flies overhead, its noise overwhelming the jungle's nocturnal chorus, she exhales and squeezes the trigger. The shot, muffled by the helicopter's roar, is a whisper in the night. The sentry collapses without a sound, his body slumping in the tower, unseen and unheard.
+As the Chinook flies overhead, its noise overwhelming the jungle's nocturnal chorus, she exhales and squeezes the trigger. The shot is muffled by the helicopter's roar. The sentry collapses without a sound, his body slumping in the tower, unseen and unheard.
 
 We fan out, shadows melding with the darkness. Our movements are specters on the wind.
 
-Văn moves with a predator's grace, his steps barely disturbing the underbrush as he advances towards a small outpost, a flicker of light betraying the presence of another sentry. The guard, a young man lost in the monotony of his watch, whistles a tune to keep the oppressive silence at bay. Unaware, he steps outside, a cigarette dangling from his lips.
+Văn moves with a predator's grace, his steps barely disturbing the underbrush as he advances towards a small outpost, a flicker of light betraying the presence of another sentry. The guard is a young man lost in the monotony of his watch. Unaware, he steps outside, a cigarette dangling from his lips.
 
-Văn waits, patient as stone, until the guard's back is turned, the glow of the cigarette casting a small, eerie light. With a swift motion, he closes the distance, his hand clamping over the guard's mouth, stifling any cry as his other hand drives a combat knife deep into the sentry's chest. The guard's eyes widen in shock and pain as Văn's blade finds its mark again and again. The guard collapses, his blood a dark stain on the earth.
+Văn waits, patient as stone, until the guard's back is turned. With a swift motion, he closes the distance, his hand clamping over the guard's mouth, stifling any cry as his other hand drives a combat knife deep into the sentry's chest. Văn's blade finds its mark again and again. The guard collapses, his blood a dark stain on the earth.
 
 Lâm and Hùng, operating as a pair, advance towards another vantage point, their movements synchronized. They come upon a sentry, with his pants down urinating, oblivious to the danger creeping up behind him. Lâm signals to Hùng, a silent command that is received with a nod.
 
-Hùng circles wide, flanking the sentry, while Lâm prepares his garrote, a lethal length of wire. In a moment fraught with tension, Lâm strikes, the wire snaking around the sentry's neck, pulling tight. The guard's hands claw at his throat, desperate for air that won't come, his struggles futile against Lâm's relentless grip. Hùng is there to support, ensuring their victim makes not a sound as he is eased to the ground.
+Hùng circles wide, flanking the sentry, while Lâm prepares his garrote, a lethal length of piano wire. Lâm strikes, the wire snaking around the sentry's neck, pulling tight. The guard's hands claw at his throat, desperate for air that won't come, his struggles futile against Lâm's relentless grip. Hùng is there to support, ensuring their victim makes not a sound as he's eased to the ground.
 
 Meanwhile, Tuyết and I move towards the drainage system entrance.
 
-The entrance is guarded by one last sentry, his posture lax, unaware that death approaches. Tuyết motions for me to hold, her eyes scanning the area for any unseen threats. Satisfied, she nods, and we proceed.
+The entrance is guarded by one last sentry, his posture lax. Tuyết motions for me to hold, her eyes scanning the area for any unseen threats. Satisfied, she nods, and we proceed.
 
-I take the lead, my knife ready, the metal cool and reassuring in my grip. The guard, lost in thought, doesn't hear my approach, his fate sealed. With a swift, practiced motion, I'm upon him, my blade finding the soft flesh beneath his ribcage. He gasps, a sound choked off by my hand over his mouth, his body tensing in shock and pain.
+I take the lead, my knife ready, the metal cool and reassuring in my grip. The guard, lost in thought, , whistles a tune to keep the oppressive silence at bay. With a swift, practiced motion, I'm upon him, my blade finding the soft flesh beneath his ribcage. He gasps, a sound choked off by my hand over his mouth, his body tensing in shock and pain.
 
 Tuyết is beside me, holding him down. It's over quickly, the guard's struggles ceasing as his life ebbs away, his body gently slumping to the ground.
 
-With the perimeter sentries dispatched, our path to the drainage system is clear. A rusted grate blocks the entrance. Văn retrieves a block of Semtex from his pack, the plastic explosive malleable in his hands. He molds it around the lock and hinges of the grate, the process methodical, each movement precise.
+With the perimeter sentries dispatched, our path to the drainage system is clear. A rusted grate blocks the entrance. Văn retrieves a block of Semtex from his pack, the plastic explosive malleable in his hands. He molds it around the lock and hinges of the grate.
 
 I pull the detonator from my own pack, connecting the wires with steady fingers. The team steps back, taking cover behind the dense foliage that lines the entrance. "Clear," I whisper, pressing the button.
 
@@ -108,27 +108,27 @@ Our lights pierce the darkness, revealing a tunnel that stretches into the bowel
 
 We enter the water with a collective hesitation, the liquid cold and vile against our skin. It rises quickly, from ankle to waist high, a foul brew that clings to us, seeking to infiltrate every pore, every opening. The beam of my flashlight dances across the surface, revealing ripples that are not of our making.
 
-Suddenly, Văn stops short, his light fixed on a shape that floats in the murky water ahead. It's a grotesque mockery of a human form, bloated and disfigured, its skin a patchwork of decay and unnatural growths. The face, if it can still be called that, is a horror of gaping orifices and bulging, unseeing eyes.
+Suddenly, Văn stops short, his light fixed on a shape that floats in the murky water ahead. It's a grotesque mockery of a human form, bloated and disfigured, its skin a patchwork of decay and unnatural growths. The face, if it can still be called that, is full of gaping orifices and bulging, unseeing eyes.
 
-A collective gasp escapes us. My hand finds Tuyết's, my grip tight. "Keep moving," I whisper, my voice a cracked echo in the stifling air. "Don't look at it. Just keep moving."
+A collective gasp escapes us. My hand finds Tuyết's, my grip tight. "Keep moving," I whisper. "Don't look at it. Just keep moving."
 
-We navigate the tunnel with a renewed urgency, our lights revealing more  ghastly nightmares as we proceed. One figure, half-submerged, its limbs twisted at impossible angles, reaches towards us with fingers that are too long, too jointed. Another, its torso split open to reveal a cavity writhing with what looks like eels, floats past us, borne by the gentle current of the sewer.
+As we navigate farther into the tunnel, our lights revealing more ghastly nightmares. One figure, half-submerged, its limbs twisted at impossible angles, reaches towards us with fingers that are too long, too jointed. Another, its torso split open to reveal a cavity writhing with what looks like eels, floats past us, borne by the gentle current of the sewer.
 
-The faintest hint of light signals the tunnel's end. Our pace quickens, each step a splash in the vile water, our hearts racing in unison with our hurried footsteps. The light grows, not the welcoming glow of salvation, but a sterile, artificial harshness that chills the soul.
+The faintest hint of light signals the tunnel's end. Our pace quickens, each step a splash in the vile water. The light grows, not the welcoming glow of salvation, but a artificial harshness that chills the soul.
 
-We reach the source, a rusted ladder leading up to a heavy metal hatch. With a collective effort, we push it open, emerging into a new circle of hell. The air hits us first, a sterile, chemical scent that masks the stench of death and decay. Fluorescent lights flicker overhead, casting an unforgiving glow over a scene that freezes the blood.
+We reach the source, a rusted ladder leading up to a heavy metal hatch. With a collective effort, we push it open, emerging into a new circle of hell. The air hits us first, a sterile, chemical scent that masks the stench of death and decay. Fluorescent lights flicker overhead, casting an unforgiving glow.
 
 As we move through the laboratory, our lights reveal more of the twisted experiments. A cage of rats, their bodies elongated and limbs multiplied, scurry in a mad, never-ending dance. Another holds what might once have been a dog, now a mass of fur and teeth, its bark a guttural, unsettling sound that echoes off the walls.
 
 But it's the largest cage that holds our rapt, terrified attention. Inside, a creature of such monstrous proportions and bizarre mutations that it takes me a moment to recognize it as an elephant. Its hide is a canvas of tumors and growths, eyes bulging. One limb ends not in a foot but in a mass of tentacles, wriggling and twitching as if sensing our presence. Its trunk, split down the middle, reveals rows of sharp, jagged teeth.
 
-The elephant's gaze meets ours, a flicker of intelligence, of suffering, shining through the madness. A sound, half-trumpet, half-scream, fills the lab.
+The elephant's gaze meets ours, a flicker of intelligence, of suffering. A sound, half-trumpet, half-scream, fills the lab.
 
 We press on without pausing. The hallway leads us to a heavy, steel door, its surface marred by scratches. Văn takes point, his hands steady as he eases the door open.
 
-The fluorescent lights flicker, casting an eerie, strobe-like illumination over the room. Our flashlights scan the space, revealing tables laden with surgical tools, their metal surfaces stained with blood.
+Our flashlights scan the space, revealing tables laden with surgical tools, their metal surfaces stained with blood.
 
-In the center of the room, suspended from chains that dig cruelly into its flesh, is a figure so grotesquely transformed that it’s barely human anymore. The man’s ribs are splayed open like the wings of some macabre angel, his internal organs exposed to the stale air of the lab. Among the viscera, a heart beats with a steady, haunting rhythm.
+In the center of the room, suspended from chains that dig cruelly into its flesh, is a figure so grotesquely transformed that it’s barely human anymore. The man’s ribs are splayed open like the wings of a macabre angel, his internal organs exposed to the stale air of the lab. Among the viscera, a heart beats with a steady, haunting rhythm.
 
 The figure's tongue and lower jaw are missing, leaving a gaping chasm that silently screams of unspeakable agony. His eyes are hidden behind blood-soaked blindfolds.
 
@@ -136,7 +136,7 @@ A subtle movement catches our eye. The figure's head, barely held aloft by the s
 
 "Kill me," the nods spell out, over and over again.
 
-In the far corner of the lab, a small, dimly lit cage draws our attention. As we approach, the soft whimpering of a child pierces the heavy silence. Inside, a young boy huddles in the shadows, his small form curled into a ball. It's Luc, his eyes wide with terror, staring back at us through the bars.
+In the far corner of the lab, a small, dimly lit cage draws our attention. As we approach, the soft whimpering of a child pierces the heavy silence. Inside, a young boy huddles in the shadows, his small form curled into a ball. It's Luc, staring back at us through the bars.
 
 Luc recoils as we near, his sobs cutting through the sterile air.
 
@@ -166,7 +166,7 @@ Văn's hand tightens on the trigger of his RPD, his eyes tracking the soldiers a
 
 Tuyết's gaze meets mine across the cold steel of the autopsy table, her eyes a calm sea.
 
-I give the signal, and in unison, we unleash a sudden and lethal eruption of violence. Văn's RPD roars to life. The bullets tear through the first line of soldiers, their bodies jerking and collapsing as the rounds find their marks.
+I give the signal, and in unison, we unleash hell on them. Văn's RPD roars to life. The bullets tear through the first line of soldiers, their bodies jerking and collapsing as the rounds find their marks.
 
 Lâm and Hùng follow suit, their AKs barking in short, controlled bursts. The soldiers, caught off guard, scramble for cover, returning fire in a panicked, disorganized fashion. Their shots ricochet off the metal surfaces, sparks dancing in the air like deadly fireflies.
 
@@ -180,7 +180,7 @@ With a swift movement, I knock the clipboard from his grasp, sending papers flut
 
 "Open the cage," I command, my voice leaving no room to defiance. His eyes dart from me to the small, barred enclosure holding Luc, then to the control panel mounted on the wall nearby.
 
-Nodding frantically, he scrambles to his feet, his movements erratic with fear. I release my grip, allowing him just enough freedom to move towards the panel. His hand, shaking, hovers over the device, hesitating. "Now!" I growl.
+Nodding frantically, he scrambles to his feet. I release my grip, allowing him just enough freedom to move towards the panel. His hand, shaking, hovers over the device, hesitating. "Now!" I growl.
 
 With a resigned sigh, he presses his palm against the scanner. The panel beeps, a green light blinking in confirmation. A series of clicks echoes through the room as the lock on Luc's cage disengages.
 
@@ -198,11 +198,11 @@ I narrow my eyes, the anger simmering within me. "Control group?"
 
 “It means he's... he's unharmed, physically,” he clarifies.
 
-My grip on the scientist tightens, every muscle in my body coiled, ready to execute him on the spot for the horrors he's complicit in. As I draw back my arm, the sound of heavy boots coming from the direction we came freezes me in place. We’re cut off our planned escape route.
+My grip on the scientist tightens, every muscle in my body coiled, ready to execute him on the spot for the horrors he's complicit in. As I draw back my arm, the sound of heavy boots coming freezes me in place. We’re cut off our planned escape route.
 
 The scientist, sensing my hesitation, seizes his chance. "Wait! I can get you out, but you need me alive!" His eyes dart towards the door then back to me.
 
-I pause, the reality of our situation crashing down. We're trapped, the way we came now swarming with hostiles. "Talk," I hiss, pressing the barrel of my rifle against his forehead.
+We're trapped, the way we came now swarming with hostiles. "Talk," I hiss, pressing the barrel of my rifle against his forehead.
 
 "There's a secondary exit," he stammers, "a service tunnel used for equipment transport. It's hidden behind the lab through the cold storage. But it's secured, biometric locks. Without me, you'll never get through."
 
@@ -210,11 +210,11 @@ Lâm interjects, his voice low, "We can't trust him."
 
 "We don’t have much of a choice," I counter, weighing our dire options.
 
-"Move!" I bark, forcing the scientist to lead the way. Tuyết, clutching Luc close, falls in step behind me, her gaze sweeping the room for any further threats. Văn and Hùng provide rear cover, their rifles trained on the path we've left behind.
+"Move!" I bark, forcing the scientist to lead the way. Tuyết, clutching Luc close, falls in step behind me, her gaze sweeping the room for any further threats. Văn and Hùng provide rear cover, their rifles trained on the path behind us.
 
-The scientist, a quivering mass, scuttles ahead, his lab coat a ghostly banner in the artificial light. We follow as a silent phalanx, each step a calculated risk in this maze of madness.
+The scientist, a quivering mass, scuttles ahead, his lab coat a ghostly banner in the artificial light. We follow as a silent phalanx.
 
-The sound of approaching footsteps echoes ominously. Suddenly, the scientist's resolve crumbles. With a shrill cry that pierces the tense silence, he shouts, "Help! Here! Over here!"
+The sound of approaching footsteps echoes ominously. Suddenly, the scientist lets out a shrill cry that pierces the tense silence. "Help! Here! Over here!"
 
 In an instant, the element of surprise is torn from our grasp, leaving us exposed and vulnerable.
 
@@ -226,17 +226,15 @@ The soldiers, alerted by the scientist's cry, round the corner, their weapons ra
 
 The soldiers, momentarily frozen by my threat, exchange wary glances, their fingers hovering over their triggers.
 
-From behind the ranks, a captain steps forward, his gaze cold and calculating. His voice, when it cuts through the standoff, is devoid of hesitation. "Open fire," he commands.
+From behind the ranks, a captain steps forward, his gaze cold and calculating. His voice cuts through the standoff. "Open fire," he commands.
 
 Instinct takes over. I shove the scientist forward, using the fleeting distraction to dive for cover behind a sturdy, overturned table.
 
 The scientist, caught in the open and defenseless, is hit with a hail of lead. His body jerks violently, as round after round rips through him. In moments, he's reduced to nothing more than a lifeless heap on the floor.
 
-The lab erupts into chaos. Bullets bounce off metal surfaces, the sound deafening in the confined space.
-
 Tuyết, hunkered down beside me, keeps Lực pressed tightly against her, her body a protective barrier for the boy.
 
-Lâm and Hùng, positioned on our flanks, return fire with disciplined bursts.
+Lâm and Hùng, positioned on our flanks, return fire with short bursts.
 
 The captain signals his men to advance. They move as a single unit, a relentless force bearing down on us.
 
