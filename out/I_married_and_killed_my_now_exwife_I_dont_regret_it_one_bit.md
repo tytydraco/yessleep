@@ -34,9 +34,7 @@ Initially, we fought for it. I snatched the candy bar up first, claiming finders
 
 We already knew who Rich Girl was. Her parents made more money than the Queen. At least, that’s what the rumour was in class. Rich Girl was *rich* rich, which meant she was either a celebrity, or a long lost princess. 
 
-In reality, her father, Jason Song, had bought our little coastal town. Rich girl plucked the candy bar from the boys, and initiated a truce, splitting it four ways instead. 
-
-I did try to argue that I saw it first, but the girl insisted on us sharing.
+In reality, her father, Jason Lockhart, had bought our little coastal town. Rich girl plucked the candy bar from the boys, and initiated a truce, splitting it four ways instead. 
 
 It was when she was handing out chunks of chocolate, did we share our names, grinning at each other with chocolatey mouths. 
 
@@ -158,7 +156,7 @@ Ben met my gaze, his lips curling. “Where do you think?”
 
 I shrugged. “I dunno. Did they go out?”
 
-I think Ben was waiting for me to give him a reason to find Harry. I couldn't give him one without going against the Song family, and putting myself in danger. 
+I think Ben was waiting for me to give him a reason to find Harry. I couldn't give him one without going against her  family, and putting myself in danger. 
 
 The boy scoffed. “Whatever, Thea,” he stood up. “Tell that bastard I never want to see him again,” he mumbled, staggering out of the kitchen. 
 
@@ -212,7 +210,7 @@ Ariosa went down a darker route, saying Esme would burn the campus to the ground
 
 Esme did neither, attempting manipulation more directly. 
 
-In the days following his announcement, Harry had received three *anonymous* death threats, and a stuffed rabbit filled with pigs blood thrown in his locker. When he talked to his parents, they went straight to the police, only to drop the case several hours later after a talk with Jason Song. 
+In the days following his announcement, Harry had received three *anonymous* death threats, and a stuffed rabbit filled with pigs blood thrown in his locker. When he talked to his parents, they went straight to the police, only to drop the case several hours later after a talk with her dad. 
 
 Harry said it was like his parents had been hypnotised. 
 
@@ -398,7 +396,7 @@ Perfect white sand, filtering through my fingers.
 
 It was the kind of sand I dreamed of, unlike the actual beach which was mostly pointed rocks and spiky shells. It was too *perfect*. I looked around, gulping down air. Ariosa and Wylan trying to get the fire going, and Esme handing out food. The perfect night. 
 
-The stars twinkling were above us.
+The stars twinkling above us.
 
 The perfect sky. 
 
@@ -526,9 +524,9 @@ The doors flew open, the sound of heels clicking loudly on marble.
 
 Harry dropped to his knees, and I straightened up, fashioning my expression back to vacant. I wanted to help him. He couldn't stand up, his head bowed. If I was going to kill her, though, I had to catch her off guard. 
 
-Esme appeared, a blur of golden curls and fluffy pink. She was noticeably older too. Esme Song was still beautiful, almost breathtakingly so. Her expression may have looked maturer, but that psychotic gleam was still there, twinkling in her eyes. “Harry,” her voice was more of a bird-like squawk. 
+Esme appeared, a blur of golden curls and fluffy pink. She was noticeably older too. Esme Lockhart was still beautiful, almost breathtakingly so. Her expression may have looked maturer, but that psychotic gleam was still there, twinkling in her eyes. “Harry,” her voice was more of a bird-like squawk. 
 
-I stayed frozen, watching the girl march over to him, entangling her arms around him. “You do realize it's bad luck for the groom to see his bride the night before.” Harry didn't fight back when she pulled out a silk cloth, wrapping it around his eyes, her hand slipping over his mouth. Esme’s lips found his ear, and I heard every word. This was the first time I'd heard her actually scared. 
+I stayed frozen, watching the girl march over to him, entangling her arms around his waist. “You do realize it's bad luck for the groom to see his bride the night before.” Harry didn't fight back when she pulled out a silk cloth, wrapping it around his eyes, her hand slipping over his mouth. Esme’s lips found his ear, and I heard every word. This was the first time I'd heard her actually scared. 
 
 “Since you're *insistent* on ruining our perfect day, I want to give you your wedding present early.”  Esme’s voice was silky smooth, sultry. She held him like a toy, rocking him side to side. Harry didn't move, crumpling in her arms. His frenzied eyes found mine. 
 
@@ -598,7 +596,7 @@ Ariosa Carlisle.
 
 Wylan Sutton.
 
-Thea Littlewood. 
+Thea Samuels. 
 
 “Take Esme Analise Lockhart to be my wife, to have and to hold from this day forward. For better, for worse, for richer, for poorer, in sickness and in health, to love and to cherish, until parted by death.”
 
@@ -646,7 +644,7 @@ There was no sign of my parents, anyone I knew. I didn't even see Esme’s fathe
 
 Knowing that I would regret it if I left him, I pulled a barely responsive Harry along too, who awkwardly stumbled after me. We made it out of the hotel grounds, and I called the police, who immediately sent us to urgent care. 
 
-I spent two weeks in the emergency room, and I got two visitors. Emma, from high school. She hugged me, and so did her five year old girl. The second visitor was a surprise. Ben, Harry's old boyfriend who was now a cop, had been tracking us down since our “death” when we were seventeen. Apparently, the Song family faked our deaths. 
+I spent two weeks in the emergency room, and I got two visitors. Emma, from high school. She hugged me, and so did her five year old girl. The second visitor was a surprise. Ben, Harry's old boyfriend who was now a cop, had been tracking us down since our “death” when we were seventeen. Apparently,  Esme faked our deaths. 
 
 Ben told me my parents left town a year after my death. He had contacted them multiple times, but no reply. 
 
