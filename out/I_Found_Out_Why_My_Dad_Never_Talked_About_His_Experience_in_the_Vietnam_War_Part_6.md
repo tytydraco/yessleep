@@ -24,7 +24,7 @@ Hung frowns as he checks his ammunition. "If we're doing this, we're gonna need 
 
 Tuyết, who had been quiet up until now, stands abruptly. "I can help with that.” Without waiting for a response, she strides away from the fire, motioning for us to follow.
 
-She leads us through the remnants of the village, her silhouette a ghostly figure against the backdrop of destruction. 
+She leads us through the remnants of the village, her silhouette a ghostly figure against the backdrop of destruction.
 
 A dilapidated hut looms ahead, its structure a skeleton of what it once was. The roof sags dangerously, and the walls are pockmarked with bullet holes. Tuyết pauses at the entrance, her hand resting on the frame, her expression unreadable in the dim light.
 
@@ -52,7 +52,7 @@ I pry the lid open, revealing a Makarov pistol nestled within its confines, alon
 
 I eject the magazine, checking it, before sliding it back in with a satisfying click. I thread my belt through the holster, securing the semiautomatic at my side.
 
-We paint our faces with camo colors, the green, brown, and black streaks hide our features and blend us into the jungle's heart. 
+We paint our faces with camo colors, the green, brown, and black streaks hide our features and blend us into the jungle's heart.
 
 "We'll move under the cover of darkness," I declare, tracing a route with my finger. "Avoid the main paths. They'll be expecting that."
 
@@ -84,7 +84,7 @@ We fan out, shadows melding with the darkness. Our movements are specters on the
 
 Văn moves with a predator's grace, his steps barely disturbing the underbrush as he advances towards a small outpost, a flicker of light betraying the presence of another sentry. The guard, a young man lost in the monotony of his watch, whistles a tune to keep the oppressive silence at bay. Unaware, he steps outside, a cigarette dangling from his lips.
 
-Văn waits, patient as stone, until the guard's back is turned, the glow of the cigarette casting a small, eerie light. With a swift motion, he closes the distance, his hand clamping over the guard's mouth, stifling any cry as his other hand drives a combat knife deep into the sentry's chest. The guard's eyes widen in shock and pain, the cigarette falling from his slack lips as Văn's blade finds its mark again and again. The guard collapses, his blood a dark stain on the earth.
+Văn waits, patient as stone, until the guard's back is turned, the glow of the cigarette casting a small, eerie light. With a swift motion, he closes the distance, his hand clamping over the guard's mouth, stifling any cry as his other hand drives a combat knife deep into the sentry's chest. The guard's eyes widen in shock and pain as Văn's blade finds its mark again and again. The guard collapses, his blood a dark stain on the earth.
 
 Lâm and Hùng, operating as a pair, advance towards another vantage point, their movements synchronized. They come upon a sentry, with his pants down urinating, oblivious to the danger creeping up behind him. Lâm signals to Hùng, a silent command that is received with a nod.
 
@@ -124,7 +124,7 @@ But it's the largest cage that holds our rapt, terrified attention. Inside, a cr
 
 The elephant's gaze meets ours, a flicker of intelligence, of suffering, shining through the madness. A sound, half-trumpet, half-scream, fills the lab.
 
-We press on without pausing. The hallway leads us to a heavy, steel door, its surface marred by scratches. Văn takes point, his hands steady as he eases the door open. 
+We press on without pausing. The hallway leads us to a heavy, steel door, its surface marred by scratches. Văn takes point, his hands steady as he eases the door open.
 
 The fluorescent lights flicker, casting an eerie, strobe-like illumination over the room. Our flashlights scan the space, revealing tables laden with surgical tools, their metal surfaces stained with blood.
 
@@ -142,7 +142,7 @@ Luc recoils as we near, his sobs cutting through the sterile air.
 
 Tuyet steps forward, her expression softening as she kneels before the cage. "Luc, it’s me, Aunty Tuyet. We're here to take you home," she says, her words soothing, patient. "We need to leave this place, and we need your help. Can you be very quiet for us?"
 
-I notice that the walls of his cage are covered in crude drawings, the shaky lines of a child's hand depicting scenes of unimaginable horror. Among them, one drawing stands out—a figure with a disturbingly wide smile, its eyes empty circles that seem to follow us as we move. 
+I notice that the walls of his cage are covered in crude drawings, the shaky lines of a child's hand depicting scenes of unimaginable horror. Among them, one drawing stands out—a figure with a disturbingly wide smile, its eyes empty circles that seem to follow us as we move.
 
 Luc sees what I’m looking at and whispers, his voice trembling, "The Smiling Man. He comes at night."
 
@@ -152,15 +152,15 @@ I assess the lock on Luc's cage—a heavy-duty padlock beyond our means to pick.
 
 The sudden clamor from the adjacent room heightens our urgency. A voice, cold and authoritative, cuts through. "Destroy everything. Check the labs—every subject must be eliminated. Leave no evidence of Project Grim Harvest."
 
-Hùng moves closer to the door, pressing his ear against the cool metal, trying to gauge the number of enemies and their proximity. He turns to us, signaling with his hand—three fingers up, then a fist, indicating at least thirty hostiles, moving our way.
+Hùng moves closer to the door and peeks a glimpse through. He turns back to us, signaling with his hand—three fingers up, then a fist, indicating at least thirty hostiles, moving our way.
 
-The lab is suddenly alive with the sound of gunfire, as the soldiers start executing the test subjects. 
+The lab is suddenly alive with the sound of gunfire, as the soldiers start executing the test subjects.
 
-As the clamor of gunfire grows closer, I motion to the team to find cover. The screams of the dying, the sound of bodies hitting the floor, echo in our ears as we press ourselves into the shadows, our breaths held, our weapons clutched in anticipation. 
+As the clamor of gunfire grows closer, I motion to the team to find cover. The screams of the dying, the sound of bodies hitting the floor, echo in our ears as we press ourselves into the shadows, our breaths held, our weapons clutched in anticipation.
 
 The door bursts open, and a group of soldiers, their boots thudding against the tiled floor, storm into the room. They sweep the area, rifles at the ready, their eyes missing our hidden forms by mere centimeters. Behind them, a meek-looking man in a blood-stained white lab coat follows, clutching a clipboard to his chest as if it were a lifeline.
 
-As the soldiers spread out, methodically checking each corner of the lab, we position ourselves for an ambush. 
+As the soldiers spread out, methodically checking each corner of the lab, we position ourselves for an ambush.
 
 Văn's hand tightens on the trigger of his RPD, his eyes tracking the soldiers as they move closer, unaware of the storm that awaits them. Beside him, Lâm and Hùng are statues carved from the shadows.
 
@@ -182,7 +182,7 @@ With a swift movement, I knock the clipboard from his grasp, sending papers flut
 
 Nodding frantically, he scrambles to his feet, his movements erratic with fear. I release my grip, allowing him just enough freedom to move towards the panel. His hand, shaking, hovers over the device, hesitating. "Now!" I growl.
 
-With a resigned sigh, he presses his palm against the scanner. The panel beeps, a green light blinking in confirmation. A series of clicks echoes through the room as the lock on Luc's cage disengages. 
+With a resigned sigh, he presses his palm against the scanner. The panel beeps, a green light blinking in confirmation. A series of clicks echoes through the room as the lock on Luc's cage disengages.
 
 Tuyết rushes to the cage. She swings the door open, crouching to meet Luc's gaze at his level. "It's okay, Luc. You're safe now," she whispers, extending her hand. The boy hesitates for a heartbeat before launching himself into her arms.
 
@@ -194,9 +194,9 @@ I narrow my eyes, the anger simmering within me. "Control group?"
 
 "Yes," he stammers, pushing his glasses up his nose with a shaky hand. "In any experiment, you need a baseline. A group that receives a placebo, to measure against those that do…”
 
-“Goddamn it! What does that mean?” I demanded. 
+“Goddamn it! What does that mean?” I demanded.
 
-“It means he's... he's unharmed, physically,” he clarifies. 
+“It means he's... he's unharmed, physically,” he clarifies.
 
 My grip on the scientist tightens, every muscle in my body coiled, ready to execute him on the spot for the horrors he's complicit in. As I draw back my arm, the sound of heavy boots coming from the direction we came freezes me in place. We’re cut off our planned escape route.
 
@@ -208,7 +208,7 @@ I pause, the reality of our situation crashing down. We're trapped, the way we c
 
 Lâm interjects, his voice low, "We can't trust him."
 
-"We don’t have much of a choice," I counter, weighing our dire options. 
+"We don’t have much of a choice," I counter, weighing our dire options.
 
 "Move!" I bark, forcing the scientist to lead the way. Tuyết, clutching Luc close, falls in step behind me, her gaze sweeping the room for any further threats. Văn and Hùng provide rear cover, their rifles trained on the path we've left behind.
 
@@ -224,25 +224,25 @@ The soldiers, alerted by the scientist's cry, round the corner, their weapons ra
 
 "Back off," I shout. "Or he dies!"
 
-The soldiers, momentarily frozen by my threat, exchange wary glances, their fingers hovering over their triggers. 
+The soldiers, momentarily frozen by my threat, exchange wary glances, their fingers hovering over their triggers.
 
 From behind the ranks, a captain steps forward, his gaze cold and calculating. His voice, when it cuts through the standoff, is devoid of hesitation. "Open fire," he commands.
 
-Instinct takes over. I shove the scientist forward, using the fleeting distraction to dive for cover behind a sturdy, overturned table. 
+Instinct takes over. I shove the scientist forward, using the fleeting distraction to dive for cover behind a sturdy, overturned table.
 
 The scientist, caught in the open and defenseless, is hit with a hail of lead. His body jerks violently, as round after round rips through him. In moments, he's reduced to nothing more than a lifeless heap on the floor.
 
 The lab erupts into chaos. Bullets bounce off metal surfaces, the sound deafening in the confined space.
 
-Tuyết, hunkered down beside me, keeps Lực pressed tightly against her, her body a protective barrier for the boy. 
+Tuyết, hunkered down beside me, keeps Lực pressed tightly against her, her body a protective barrier for the boy.
 
-Lâm and Hùng, positioned on our flanks, return fire with disciplined bursts. 
+Lâm and Hùng, positioned on our flanks, return fire with disciplined bursts.
 
-The captain signals his men to advance. They move as a single unit, a relentless force bearing down on us. 
+The captain signals his men to advance. They move as a single unit, a relentless force bearing down on us.
 
-As we exchange fire with the advancing soldiers, a sudden shout slices through the turmoil with chilling clarity. "Frag out!" 
+As we exchange fire with the advancing soldiers, a sudden shout slices through the turmoil with chilling clarity. "Frag out!"
 
-Just then, I see a grenade, its pin pulled, arcs through the air. The world narrows to a heartbeat, a single moment stretched thin, as it lands with a soft thud right next to where Tuyết and Lực are huddled. 
+Just then, I see a grenade, its pin pulled, arcs through the air. The world narrows to a heartbeat, a single moment stretched thin, as it lands with a soft thud right next to where Tuyết and Lực are huddled.
 
 In that frozen moment, her terrified eyes meet mine, a silent plea for help, for salvation, that I'm powerless to answer. The space between us, just a couple meters, stretches into an insurmountable distance.
 
