@@ -76,7 +76,7 @@ It started subtly. When other kids wanted to hang out with us, she was adamant t
 
 We were fourteen years old and in our freshman year of high school. Making new friends was inevitable. I invited two girls to sit with us at lunch, and Esme immediately stood up, dragging the boys and Ariosa to another table. 
 
-When I stood my ground and plonked down, refusing to follow them, Esme came over and politely asked me to join her and the others. By now, I was getting odd looks from other kids. Esme Song was a well-known name across town, and so was my name, by default. 
+When I stood my ground and plonked down, refusing to follow them, Esme came over and politely asked me to join her and the others. By now, I was getting odd looks from other kids. Esme was a well-known name across town, and so was my name, by default. 
 
 I was already in way too deep with her family to brush her off. Esme’s father had already insisted on paying for my college tuition. I said no initially, though my mother thought it was a great idea. 
 
