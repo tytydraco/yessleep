@@ -366,7 +366,7 @@ In the darkness of the alleyway, I thought I saw the silhouette of mouse ears on
   
 
   
-“I hope this isn’t the world of Storyland,” I said, a sense of desperation clenching my heart. “Sometimes, I wonder if I ever left it. I wonder if Casey and I still there, waiting for the next round of torture.” 
+“I hope this isn’t the world of Storyland,” I said, a sense of desperation clenching my heart. “Sometimes, I wonder if I ever left it. I wonder if Casey and I are still there, waiting for the next round of torture.” 
   
 
   
