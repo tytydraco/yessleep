@@ -12,7 +12,7 @@ For a long time none of us reacted. It was Val who spoke first. "That was some f
 
 Our business with the old guy finished, we turned our attention to the door he had been guarding. It was a weird door, given the location. It looked like the kind of door you'd see in a bank heist movie. Heavy, reinforced steel with thick hinges and a huge wheel-lock with a high-tech digital combination beside it. It looked like the door of a vault -- which was exactly what it was. A weird fucking place for a vault, in the basement of a crumbling, old, long-abandoned building way out in the middle of the desert.
 
-This whole job was pretty weird, if you thought about it. Why the fuck had the Russian tasked us with driving all the way across the fuckin country to off some old fuck and bust open a vault to retrieve an item and then not even tell us what it was? We had asked, of course, but he had just brushed us off and told it was "a personal favor to an associate" of his. It didn't matter, really. It wasn't our business to question the Russian's business, and his "associate" was paying us a shitload for this particular assignment.
+This whole job was pretty weird, if you thought about it. Why the fuck had the Russian tasked us with driving all the way across the fuckin country to off some old fuck and bust open a vault to retrieve an item and then not even tell us what it was? We had asked, of course, but he had just brushed us off and told us it was "a personal favor to an associate" of his. It didn't matter, really. It wasn't our business to question the Russian's business, and his "associate" was paying us a shitload for this particular assignment.
 
 Hutch was crouched over his backpack, already unloading his equipment.
 
@@ -26,15 +26,15 @@ Stacy told Val to go upstairs and keep watch in case anyone showed up outside. V
 
 Meanwhile, with nothing else much to do, I began to poke around the basement just to pass the time. There wasn't much to poke around, really. An old table and chair. Piles of rusty junk in the corners. A stack of old porn magazines from the 1970s. I picked up one and glanced through it, whistling -- chicks with more hair than a barber shop floor (I pocketed a couple for later viewing). Besides that, there wasn't much else...
 
-My eyes fell upon a book sitting on an otherwise bare shelf. I picked it up. It was bound in black leather. Then cover was blank. I opened it and saw it was some kind of journal or logbook or something. I skimmed the first page idly...then not so idly. I turned a page and read a little more. Turned another page and read a little more.
+My eyes fell upon a book sitting on an otherwise bare shelf. I picked it up. It was bound in black leather. The cover was blank. I opened it and saw it was some kind of journal or logbook or something. I skimmed the first page idly...then not so idly. I turned a page and read a little more. Turned another page and read a little more.
 
 "Yo, Stace, check this shit out," I told him, showing him the book.
 
-"What the fuck's that?" Stacy asked without much interested.
+"What the fuck's that?" Stacy asked without much interest.
 
 "I think it was the old guy's. There's some pretty weird shit in here," I told him, then looked at the page and began to read aloud:
 
-*"June 17th -- It started moving again. After three months, the goddamn thing started moving again. Just when I beginning to think it was finally truly dead."*
+*"June 17th -- It started moving again. After three months, the goddamn thing started moving again. Just when I was beginning to think it was finally truly dead."*
 
 I turned a couple pages.
 

@@ -315,3 +315,7 @@ We fell into the darkness of the room next to us, and in the minimal light that 
 "Come on! Over here!" She screamed as she took off running in the opposite direction. I continued to hear her call as her voice got further and further away. Finally, the momentary shock wore off, and I realized what was happening.
 
 Alice was sacrificing herself for us; two complete strangers she had only known a couple days. I tried to comprehend why, but then quickly realized that the beasts cornering us weren't far behind, and if I didn't get my ass up right now, it was all going to be in vain...
+
+&#x200B;
+
+[{Next Part}](https://www.reddit.com/r/nosleep/comments/1axq90j/somewhere_beneath_us_part_21/?utm_source=share&utm_medium=web2x&context=3)
