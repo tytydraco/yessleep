@@ -66,7 +66,7 @@ We stepped in and gathered around the duffel bag. It was about four feet long, t
 
 Me and Hutch knelt down and grabbed ahold of the duffel bag...and immediately both of us recoiled in shock.
 
-"Hey!" Hutch shouted, what the *fuck*?"
+"Hey!" Hutch shouted, "what the *fuck*?"
 
 "What is it?" Stacy demanded.
 

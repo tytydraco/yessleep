@@ -172,7 +172,7 @@ I pulled up slowly to the metal gate, looking out at the guard in his sleek unif
   
 Shaking, I looked down at my phone. I sent a mass text message to all my friends.  
   
-“I just rented a house at an exclusive Disney town! My address is at 777 Celebration Road, Storyland. Unlimited free drinks and food there. Make yourselves at home. Just tell the guard you know me.” As soon as I pressed send, the gate started to swing to the side, and I left that den of horrors. I glanced back and saw two obsidian eyes and a grinning slash of a mouth peering out of the guardhouse. I shuddered.  
+“I just rented a house at an exclusive Disney town! My address is at 777 Celebration Road, Storyland. Unlimited free drinks and food there. Feel free to let yourselves in and stay as long as you want. Make yourselves at home and explore the town. I will not be at the house, however. Just tell the guard you know me.” As soon as I pressed send, the gate started to swing to the side, and I left that den of horrors. I glanced back and saw two obsidian eyes and a grinning slash of a mouth peering out of the guardhouse. I shuddered.  
   
 \*\*\*  
   
