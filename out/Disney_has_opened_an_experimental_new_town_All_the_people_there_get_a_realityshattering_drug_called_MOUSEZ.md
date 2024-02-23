@@ -182,6 +182,6 @@ I finished telling my story to Angel, who nodded, unsurprised. The homeless luna
   
 In the darkness of the alleyway, I thought I saw the silhouette of mouse ears on Angel’s head and teeth growing out of his gums like tumors. I blinked, and he was just a normal vagrant again.  
   
-“I hope this isn’t the world of Storyland,” I said, a sense of desperation clenching my heart. “Sometimes, I wonder if I ever left it. I wonder if Casey and I still there, waiting for the next round of torture.”   
+“I hope this isn’t the world of Storyland,” I said, a sense of desperation clenching my heart. “Sometimes, I wonder if I ever left it. I wonder if Casey and I are still there, waiting for the next round of torture.”   
   
 Angel only grinned, his lips spreading wide. And in the shadows of the alley, his teeth jutted out like hundreds of needles.
