@@ -202,7 +202,7 @@ A plume of fluffy, luminescent fog a few dozen feet away disappeared like a brea
   
 
   
-“This is my world,” he said as silver saliva dripped from his grinning mouth. “Do you think you can run from me? I am everywhere, in the wind and in the trees and even in you. I am Mr. Crawly, and I know who you are. Your daughter is here with us, too.” I shook my head, closing my eyes.
+“This is my world,” he said as silver saliva dripped from his grinning mouth. “Do you think you can run from me? I am everywhere, in the wind and in the trees and even in you. I am Mr. Crawley, and I know who you are. Your daughter is here with us, too.” I shook my head, closing my eyes.
   
 
   

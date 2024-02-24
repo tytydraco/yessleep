@@ -1,4 +1,4 @@
-[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1aww1tb/somewhere_beneath_us_part_20/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1aww1tb/somewhere_beneath_us_part_20/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) \~ [{Next Part}](https://www.reddit.com/r/nosleep/comments/1ayk74o/somewhere_beneath_us_part_22/?utm_source=share&utm_medium=web2x&context=3)
 
 &#x200B;
 
@@ -259,3 +259,7 @@ Grace and I removed the bits of gum from our mouths and squished them onto the b
 "Sure. If you think about it, a quick death would be just that. You die before you've even realized it. But I'd think that even with the most painful death, there'd come the point when your body shuts down. Close to the end, I mean. Only your brain is still functioning, and at that moment, there'd be nothing left to worry about. Just a last breath as you slip on to whatever comes next. Maybe that sounds scary to some, but I find that thought peaceful."
 
 "I don't think that sounds scary. I think you're right." I said, staring up at the Cardinals. "I think that sounds nice."
+
+&#x200B;
+
+[{Next Part}](https://www.reddit.com/r/nosleep/comments/1ayk74o/somewhere_beneath_us_part_22/?utm_source=share&utm_medium=web2x&context=3)

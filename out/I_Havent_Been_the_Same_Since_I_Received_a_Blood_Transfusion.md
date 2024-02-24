@@ -12,6 +12,12 @@ The deeper I dug, the clearer it became. This wasn't about saving lives; it was 
 
 The more I resisted, the stronger the pull became. I found myself drawn to cold, dark places, my body moving with a grace and power that felt alien. And the reptiles, I could sense them, hear them. Snakes, lizards, even the occasional alligator—I felt a kinship, an understanding that transcended words.
 
-I stumbled upon a hidden forum, whispers of others like me. We connected, sharing tips on controlling our new instincts. Together, we weren't just surviving; we were learning to thrive.
+While researching online, I stumbled upon a hidden forum, whispers of others like me. We connected, sharing tips on controlling our new instincts. Together, we weren't just surviving; we were learning to thrive.
 
 I'm writing this as a warning, from a makeshift den in the sewers, the only place that feels like home now. If you're reading this, be careful where you get your blood from. You never know what's really flowing through your veins. And to those behind the project, know this: I'm out here, and I'm not alone. We're cold-blooded, yes, but we're not without warmth. There's a fire in us, a desire to reclaim our lives, our humanity. And we'll stop at nothing to do just that.
+
+[X](https://www.reddit.com/r/PageTurner627Horror/)
+
+[Y](https://www.reddit.com/r/nosleep/comments/19aj2dc/i_found_out_why_my_dad_never_talked_about_his/)
+
+[Z](https://www.youtube.com/watch?v=MGd1F6Ay8ho)
