@@ -16,10 +16,10 @@ I woke up around midnight a couple weeks ago, and sauntered into the kitchen to 
 
 I had to work super early but I couldn't say no, I poured myself a glass of wine, plopped down next to Dan on the couch and fired up *A nightmare on elm street.*
 
-We were about halfway through the movie when we finished the bottle of wine and I went to the fridge to get another. I looked behind me while I was bent over in the fridge fishing for a second bottle and thought I saw Dan checking me out. He had a weird, cold, mannequin-esque look on this face, like he was sizing me up.
+We were about halfway through the movie when we finished the bottle of wine and I went to the fridge to get another. I looked behind me while I was bent over in the fridge fishing for a second bottle and thought I saw Dan checking me out. He had a weird, cold, mannequin-esque look on his face, like he was sizing me up.
 His expression melted back to his old comfortable smile almost in a flash when he caught me looking back at him though, so I couldn't be sure.
 
-I cracked the bottle open and poured us another glass, I could feel myself getting a bit drunk. As I sat down on the couch, Dan cozied right up to me and put an arm around my shoulder.
+I cracked the bottle open and poured us another glass, I could feel myself getting a bit drunk. As I sat down on the couch, Dan cozied right up to me and put an arm around my shoulders.
 
 Everything starts to get a bit hazy for me around here, I remember looking over into Dan's eyes and... just feeling lost, like I was hypnotized or something.
 
