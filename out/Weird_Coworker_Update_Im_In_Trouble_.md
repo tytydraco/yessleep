@@ -1,4 +1,4 @@
-It's so wild to me that no matter what happens, you still have to go to work. Your life can be falling apart around you, you could see [your coworker wandering down a backroad covered in blood](https://www.reddit.com/r/nosleep/s/MlA5sTH9vn), but you're still expected to clock in the next day as if nothing is wrong.  
+It's so wild to me that no matter what happens, you still have to go to work. Your life can be falling apart around you, you could see [your coworker wandering down a backroad covered in blood](https://www.reddit.com/r/libraryofshadows/s/Lh4xgh32xI), but you're still expected to clock in the next day as if nothing is wrong.  
 
 I keep thinking back to when I saw the IT guy reaching for me. He was bloody, but I don't remember seeing any wounds. Maybe it's just because I was driving and it was dark, but honestly? I don't think it was his blood. And the way his eyes lit up like an animal's just... it's not right. Nothing about that was right. 
 
