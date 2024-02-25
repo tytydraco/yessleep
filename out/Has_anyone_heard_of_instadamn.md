@@ -1,3 +1,10 @@
+“Monsters don't die early; they hang on long. Awfully long. Their vanity's infinite, almost as infinite as their disgust with themselves.”  
+― Tennessee Williams, Sweet Bird of Youth
+
+...
+
+The End?
+
 *Suddenly*, I was butterfingers.
 
 Only two, at most three clicks away and my keyboard ninja skills were failing me.
@@ -14,13 +21,13 @@ I looked up at the clock on the wall.
 
 Almost high noon.
 
-Except for the clock, you'd never know daylight was working.
+Except for the clock, you might never have known daylight was working.
 
 Vera had done up my place with blackout blinds and blackout curtains right after she'd begun making herself at home during Covid lockdown. Before I knew it Vera was a permanent fixture, hand creams and endless potions all. But she was serious about the blackout thing.
 
-She said it would make sleeping the big sleep a lot easier. I might have asked her what she meant but by then I had realized my opinions were only okay when they were the same as Vera's. And even then, sometimes, they were met with disdain.
+She said it would make sleeping the big sleep a lot easier. I might have asked her what she meant but by then I had realized Vera wasn't much for questions. And as for opinions? My opinions were only okay when they were the same as Vera's. And even then, sometimes, they were met with disdain.
 
-But it didn't matter. You had to know Vera to know what I mean. Vera was like a demon goddess. She could bring sad and lonely me to the heights of ecstasy, for sure, like nobody ever has; but beware; even the slightest infractions would be met outrageously incongruent punitive responses; there was nowhere safe as we shared a futon.
+But it didn't matter. You had to know Vera to know what I mean. Vera was like a demon goddess. She could bring sad and lonely me to the heights of ecstasy, for sure, like nobody ever has; but beware; even the slightest infractions would be met by outrageously incongruent punitive responses; there was nowhere safe for me as we shared a futon.
 
 I let the desperate breath pass.
 
@@ -84,13 +91,17 @@ Slowly, and deliberately I put the cursor in the password input. Even more slowl
 
 It was: **50Sh@d3s0fD0r1@nGr@Y@666**
 
-I heard Vera stirring. The cat mewled like someone stepped on her tail. The mouse went, "Click," and I felt the dark web beckon. Then I was greeted by an animation of fire and brimstone that dispersed to reveal the lone word, "instadamn" engraved in a Stonehenge background.
+I heard Vera stirring. The cat mewled like someone stepped on her tail. The mouse went, "click," and I felt the dark web beckon.
 
-It was like instagram only it wasn't. It was deep and dark and all button led to Vera. Vera's instadamn. And there were pictures of a very hideous and gnarled caricature of an old woman.
+Then I was greeted by an animation of fire and brimstone that dispersed to reveal the lone word, "instadamn" engraved in a Stonehenge background.
+
+It was like instagram only it wasn't. It was deep and dark and all buttons led to Vera. Vera's instadamn; Damn!
+
+There were pictures, so many pictures, of a very hideous and gnarled caricature of an old woman.
 
 I rubbed my eyes and readjusted my glasses.
 
-My heart sank and I knew. I knew it was Vera.
+My heart sank and I knew. I knew beyond any doubt it was Vera.
 
 Only it wasn't the Vera sleeping fitfully on the futon ten yards away. Not sexy Vera with her impossibly long sexy legs twitching restlessly. Not breathtaking Vera the goddess, her long tresses of silken blonde catching all slivers of light.
 
@@ -104,7 +115,9 @@ And then I found Vera's reels.
 
 My hand covered my mouth once it began its silent scream.
 
-There it was. In black & white. Reel after reel of young men turned decrepit in real-time. And Vera next to them; starting out hideous yet ending young as Spring. And the men. It was early autumn at best and late winter or worse for the most of them.
+There it was. In black & white. Reel after reel of young men turned decrepit in time-lapse terror. And there stood statuesque Vera next to them all.
+
+Each played out the same drama. Each reel starting out with Vera hideously decrepit yet by the time the curtain dropped Vera was again young as springtime. But the men, it was the exact opposite. They had been drained of their essence.
 
 I thought, Run! But my legs did not cooperate. I remained frozen in my chair. The cat scooched in, pawing at my robe; mewling piteously.
 
@@ -126,4 +139,22 @@ Hopping to it, I got Vera a fresh pack of smokes from my desk drawer. She grabbe
 
 Vera got a smoke going then ambled off to the bathroom, a silver plume crowning her mare's nest of golden tresses. For a moment, I thought I saw some gray. Then before my eyes, as if someone were running the cosmic avid, Vera's tresses reverted to blonde again.
 
-Vera's in the bathroom and I'm having trouble moving. I hope someone can help me. It's getting harder to think clearly and the cat is getting frantic. Has anyone else heard of instadamn?
+I wish I could call a friend. But somehow since falling for Vera I am no longer in contact with my family or old friends. Just Vera's friends. Not that she has many. Just that old Haitian lady she speaks French with when they make chicken once a month.
+
+The cat scratched my foot. It began to bleed but it did not move. I saw a blue varicose vein begin to form, then recede, then reform.
+
+Vera hacked up some phlegm and spat it in the sink.
+
+Vera looked at herself in the medicine chest mirror. I fake-reached for a pen and caught a peek. There, in the mirror, clear as day was Vera... old Vera. Ugly Vera. Angry, hungry and hungover, Vera. The reflection gave me the malochi.
+
+"Can I make you coffee, Vera?" I asked.
+
+"Quit making husband noises!" she barked, then coughed spastically before she spat into the sink again. I saw a crack appear in her forehead. Then her cheeks.
+
+Yep. Vera's in the bathroom and I'm having trouble moving. I hope someone can help me.
+
+How does one go about reporting a murder not yet committed with no murder weapon except the looks that kill?
+
+And then I remembered a quote from somewhere long ago, "I knew that I had come face to face with someone whose mere personality was so fascinating that, if I allowed it to do so, it would absorb my whole nature, my whole soul, my very life itself."
+
+It's getting harder to think clearly and the cat is getting frantic. Has anyone else heard of instadamn?
