@@ -1,4 +1,4 @@
-[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1axq90j/somewhere_beneath_us_part_21/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1axq90j/somewhere_beneath_us_part_21/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) \~ [{Next Part}](https://www.reddit.com/r/nosleep/comments/1azdvsq/somewhere_beneath_us_part_23/?utm_source=share&utm_medium=web2x&context=3)
 
 &#x200B;
 
@@ -36,14 +36,14 @@ I stared into her piercing blue eyes. They were full of fear and tears. I had be
 
 "Okay," I told her. "Okay."
 
-I crawled onto the edge of the bed and wrapped my arms around her as she nestled in close and held on tight. Her embrace was honest and full of love, and her skin was warm and reassuring. The world was wrong. So so wrong. But holding Rose, that was the one thing I knew was right.  
-  
-Holding Bea, that was the one thing I knew was right.  
-  
-Holding Andi, that was the one thing I knew was right.  
-  
-Holding Sarah, that was the one thing-  
-  
+I crawled onto the edge of the bed and wrapped my arms around her as she nestled in close and held on tight. Her embrace was honest and full of love, and her skin was warm and reassuring. The world was wrong. So so wrong. But holding Rose, that was the one thing I knew was right.
+
+Holding Bea, that was the one thing I knew was right.
+
+Holding Andi, that was the one thing I knew was right.
+
+Holding Sarah, that was the one thing-
+
 Her razor-sharp nails were wormed under my skin, dripping endless blood from where they burrowed. I thought surely I'd bleed out after a few days, but I didn't. Blood kept flowing and time kept winding, but I stopped counting. All the while, she whispered chills into my ears with her fridged breath.
 
 "I'm so happy we're finally together, baby. I've waited soooo long." She cooed.
@@ -56,8 +56,8 @@ Daniel and Bea might be dead.
 
 Andi was dead. She was killed by lacerations. Cuts that were fine and effortless. Just like the ones that the nails were nested in. I stared at the bloodstains on the fake grass that led into darkness as She whispered in my ear.
 
-"I had to kill her, baby." She told me, planting another icy kiss on my lips, "I'm the only girl for you."  
-  
+"I had to kill her, baby." She told me, planting another icy kiss on my lips, "I'm the only girl for you."
+
 As we walked down the mucky, leaf-covered driveway, the trees rustled in the autumn breeze around us. The gentle ambiance was quickly drowned out, though, by the sound of the ongoing party in the old plastic slatted house ahead. The bass from the music blaring rattled both my teeth and the exterior of the old rickety structure. The smell of cheap perfume and aerosol cologne leaked from its seems, and inside, I could see dozens of people twisting their bodies to the music, clearly already drunk. I hated parties. I hated them, and this was the last place on earth I wanted to be. I could already feel a headache worming its way into my skull when Rose squeezed my hand.
 
 "Hey, we don't have to go if you don't want to. We can go do something else." She said with a sympathetic smile.
@@ -66,16 +66,16 @@ As we walked down the mucky, leaf-covered driveway, the trees rustled in the aut
 
 "Okay. But if you want to leave at any time, just let me know. I'll be right here all night." She said, squeezing my hand and pulling me into a kiss. Like medicine, the pain in my head melted away.
 
-"C'mon, let's go. I'm sure Ethan and Sarah are wondering what's taking us so long."  
-  
-Ethan wasn't the name she had said. It was His name. Why did it feel like she had said Ethan?  
-  
-"Joel?"  
-  
-Maybe it didn't matter. They were similar in a lot of ways. Both were kind, selfless people. Both cared about me too much. I treated them both the same in the end too.  
-  
-"Joel?"  
-  
+"C'mon, let's go. I'm sure Ethan and Sarah are wondering what's taking us so long."
+
+Ethan wasn't the name she had said. It was His name. Why did it feel like she had said Ethan?
+
+"Joel?"
+
+Maybe it didn't matter. They were similar in a lot of ways. Both were kind, selfless people. Both cared about me too much. I treated them both the same in the end too.
+
+"Joel?"
+
 "Hold your horses, I'm thinking," I said, furrowing my brow.
 
 "Sorry, Joel. I think he's got you beat." Andi teased, leaning on my shoulder with a slight chuckle.
@@ -112,8 +112,8 @@ Without a word, Jan leaned in from the dining room and glared at me, making a 'z
 
 "Look, can we just move on from this conversation?" Ethan asked in a hushed tone. "Now go get my gummy worms, peasant."
 
-I kissed Andi's head as I stood and smiled, "As you wish, my lord."  
-  
+I kissed Andi's head as I stood and smiled, "As you wish, my lord."
+
 I walked into the kitchen and came back out holding three beers as I made my way back to the circle of friends in the living room. As I moved, the sounds and smells of the party overwhelmed my pounding head, and the air felt thick and hot like magma. I stepped back into the ring and passed the cold bottles out to Him, Sarah, and Rose.
 
 "Aw, what? You didn't grab one for yourself, Joel?" Another classmate of ours called out.
@@ -140,7 +140,8 @@ Suddenly a girl across the room called out over to Rose, beckoning for her to jo
 
 I stared her down, holding my same expression, but I just couldn't resist her eyes. They were so gentle and pure, with a hint of hardship hidden behind them. I never wanted to be a reason she was upset or sad, so against my better judgment, I let her go. She turned up a smile at me before I watched her bounce happily over to the other group and embrace Mckayla.
 
-"How have you guys been doing?" He asked next to me. "Have things been better since… you know?"  
+"How have you guys been doing?" He asked next to me. "Have things been better since… you know?"
+
 I nodded, but my stomach began to twist itself into knots, "Yeah, for the most part. Watching her go through withdrawals was really hard to see; she was like a different person. Lately, though, she's been acting like herself again, so that's good."
 
 "I'm glad she's okay." Sarah cut in, "When I heard she had OD'd, I was worried sick." I winced at her mention of the event. "I had been at the party, and she was so faded when I saw her; I was scared that it might have been too much."
@@ -151,10 +152,10 @@ I nodded, but my stomach began to twist itself into knots, "Yeah, for the most p
 
 "Yeah, no, we're doing great. She's doing great." I told them with a smile that hid my anxieties. I turned back to the girl I loved just in time to see her friends gesture somewhere down the hall, beckoning for her to follow. She did so without looking back. As soon as she disappeared into the crowd, the party's ambiance began to drill into my skull. The bass from the overbearing music rattled my brain, and the laughter of everyone around me sounded like nails on a chalkboard. The smells and flashing lights made me feel nauseous.
 
-A friend next to me took a big swig from a bottle of vodka and then passed it over to me, "You sure you ain't drinking tonight, Joel?" He slurred as he sloshed the bottle in my face. I checked the hall one last time, hoping that I might see Rose making her way back, but when she didn't, and the knot in my stomach was too tight, I grabbed the bottle's neck.  
-  
-"Actually, I changed my mind."  
-  
+A friend next to me took a big swig from a bottle of vodka and then passed it over to me, "You sure you ain't drinking tonight, Joel?" He slurred as he sloshed the bottle in my face. I checked the hall one last time, hoping that I might see Rose making her way back, but when she didn't, and the knot in my stomach was too tight, I grabbed the bottle's neck.
+
+"Actually, I changed my mind."
+
 "To what?"
 
 "Potatoes."
@@ -203,32 +204,32 @@ She sat up and looked at me like I had just said something really stupid, "Of co
 
 I stared at her and smiled, butterflies filling my stomach. "I love you, Rose."
 
-"I love you more." She said, placing her lips to mine.  
-  
-Her kisses started off gentle but slowly got more and more vicious. She rolled on top of me and pinned me to the ground, assaulting my mouth over and over with her own. Her hands grappled at me, and as they did, her nails tore at my flesh, reopening the past cuts that had barely time to heal and creating new ones. How long had I been here? Days? Weeks? Months?  
-  
-Years?  
-  
-I couldn't tell anymore. I could barely recall why I was there. I knew why I was *there*; In that room with the thing that looked like Sarah. But how did I reach that point? There was the house. I knew the house. I was in the house. I remembered hills and a yellow room, and I remembered leaving. Leaving for where? For what?  
-  
-To find something.  
-  
+"I love you more." She said, placing her lips to mine.
+
+Her kisses started off gentle but slowly got more and more vicious. She rolled on top of me and pinned me to the ground, assaulting my mouth over and over with her own. Her hands grappled at me, and as they did, her nails tore at my flesh, reopening the past cuts that had barely time to heal and creating new ones. How long had I been here? Days? Weeks? Months?
+
+Years?
+
+I couldn't tell anymore. I could barely recall why I was there. I knew why I was *there*; In that room with the thing that looked like Sarah. But how did I reach that point? There was the house. I knew the house. I was in the house. I remembered hills and a yellow room, and I remembered leaving. Leaving for where? For what?
+
+To find something.
+
 To find something, that was right. Others had come with me too, but they were all gone now. People who trusted and believed in me. People I let down.
 
 I left to find something, and I did. I did find it. But now, I couldn't reach it. Or maybe I could? I didn't remember. I knew it didn't matter, though. Whatever it was no longer held importance. This was my room. This was where I belonged.
 
-She continued to indulge herself with my body as I lay helpless in her grasp. At one point, she pressed hard against me with a kiss, pushing me harder against the floor. As she did, I felt something jam into the small of my back. An object tucked in the belt of my pants, concealed by my shredded jacket. An object I had put there intentionally long ago. I needed it for something, I remembered. What was it for?  
-  
-Don't think about it. The House will hear you. There's still a chance. Think about something else. Anything else.  
-  
-Think about anything-  
-  
+She continued to indulge herself with my body as I lay helpless in her grasp. At one point, she pressed hard against me with a kiss, pushing me harder against the floor. As she did, I felt something jam into the small of my back. An object tucked in the belt of my pants, concealed by my shredded jacket. An object I had put there intentionally long ago. I needed it for something, I remembered. What was it for?
+
+Don't think about it. The House will hear you. There's still a chance. Think about something else. Anything else.
+
+Think about anything-
+
 "Shhh. It's okay. He won't know."
 
-"This is still wrong, Sarah. I don't want-" Before I could protest further, she pressed her lips to mine again. As much as I knew I should refuse, I was starting to warm up to the feeling.  
-  
-No. Not this. Anything but this.  
-  
+"This is still wrong, Sarah. I don't want-" Before I could protest further, she pressed her lips to mine again. As much as I knew I should refuse, I was starting to warm up to the feeling.
+
+No. Not this. Anything but this.
+
 She stared intensely at me from next to Him as he talked. I tried to avoid eye contact. I always got the feeling Sarah didn't like me.
 
 "Dude, for real! Ms. Bleacher was crazy!" He laughed. The two of us were lightly buzzed at this point.
@@ -239,7 +240,8 @@ She stared intensely at me from next to Him as he talked. I tried to avoid eye c
 
 The two of us stood and began making our way through the house, scanning the crowd in each room like a where's Waldo picture. When we got to one room, we saw a couple of girls she had gone off with now talking with a different group. He made his way over and tapped on one of their shoulders.
 
-"Hey, do you know where Rose went?" I heard him call over the noise of music and drunken rambling.  
+"Hey, do you know where Rose went?" I heard him call over the noise of music and drunken rambling.
+
 The girl said something in return, but I couldn't hear it. I did notice He looked slightly taken aback by what she said. However, he quickly pulled back his smile and thanked her before crossing back to me.
 
 "She, uh, she might have gone out back to say hi to some more people. They're having a bonfire out there or something. We should go back to the group, though. I'm sure she'll be back soon."
@@ -300,9 +302,9 @@ At that, I turned around and looked at her pleading eyes. They were so hard to r
 
 "W-What do you mean?"
 
-"What else, Rose? Ecstasy? Oxy? Benzos? You know that shit that put you in the hospital last year?" Now it was her turn not to respond. She looked guiltily at the ground. "Rose, I can't keep doing this. Do you know how scared I was? When someone called me and told me you had overdosed, do you realize how absolutely terrified I was? I didn't eat or sleep for days until I could see you and know you were okay. Do you know how hard it is to see you slowly give your life over to those stupid pills and tabs and whatever the hell else you pop into to body?" 
+"What else, Rose? Ecstasy? Oxy? Benzos? You know that shit that put you in the hospital last year?" Now it was her turn not to respond. She looked guiltily at the ground. "Rose, I can't keep doing this. Do you know how scared I was? When someone called me and told me you had overdosed, do you realize how absolutely terrified I was? I didn't eat or sleep for days until I could see you and know you were okay. Do you know how hard it is to see you slowly give your life over to those stupid pills and tabs and whatever the hell else you pop into to body?"
 
-Tears welled in her eyes, and people were staring now, but I didn't care. My brain had finally snapped, and I snapped with it. 
+Tears welled in her eyes, and people were staring now, but I didn't care. My brain had finally snapped, and I snapped with it.
 
 "I care about you, Rose! More than any of the people who take that shit with you, and yet you always pick them over me. Why? *Why*, Rose?"
 
@@ -320,8 +322,8 @@ She stared at me, and I could see she was desperately trying to push past the fo
 
 He greeted me as I made my way back to the house and put an arm on my shoulder, "It's gonna be okay, man. You guys will work it out tomorrow. You always do."
 
-I wanted to believe him, but I didn't know this time. My head still hurt, and I was pissed. I needed to do anything I could to drown out the pain. As we re-entered the house, everything seemed to spin and pulse, and I just wanted to scream. The music was too loud, the lights were too bright, and it was too damn cold without Rose. I walked into the kitchen, found whatever I could, and then drank it to its back end. After I finished doing that once, I did it again. And again and again and again. I knew the pain of everything wouldn't stop until I wasn't thinking at all, though, so I drank until everything went black.  
-  
+I wanted to believe him, but I didn't know this time. My head still hurt, and I was pissed. I needed to do anything I could to drown out the pain. As we re-entered the house, everything seemed to spin and pulse, and I just wanted to scream. The music was too loud, the lights were too bright, and it was too damn cold without Rose. I walked into the kitchen, found whatever I could, and then drank it to its back end. After I finished doing that once, I did it again. And again and again and again. I knew the pain of everything wouldn't stop until I wasn't thinking at all, though, so I drank until everything went black.
+
 From the darkness, Rose stirred next to me. I didn't bother to move. I just sat on the edge of her bed and stared vacantly at the glowing numbers across the room. 5:13 AM.
 
 I felt her hand wrap around my wrist in an attempt to pull me toward her. It was burning hot, and her skin was clammy, but her touch was gentle and weak, begging for me to join her. Even though I was still upset, I obliged, not wanting to make her feel worse than I knew she already felt. As soon as my back was against the bed, she climbed onto me and lay her head just below my chin.
@@ -350,18 +352,17 @@ I closed my eyes and tilted my head back as my mind felt heavy. I wanted to be m
 
 "I know. I'm sorry. That was the last time, I swear."
 
-"Shhh. Just go back to sleep. We can talk later." I whispered.  
-  
-Why did that memory seem so familiar? Where had I heard that said? It was long after that night, years later. When I was in the house. I was apologizing to someone too. Someone who I cared about, like Rose.  
-  
-Bea.  
-  
-The thought hit me like a wash of cold water, waking me up from the horrible drug I had been under. She was still alive, at least, we believed she was. 
+"Shhh. Just go back to sleep. We can talk later." I whispered.
+
+Why did that memory seem so familiar? Where had I heard that said? It was long after that night, years later. When I was in the house. I was apologizing to someone too. Someone who I cared about, like Rose.
+
+Bea.
+
+The thought hit me like a wash of cold water, waking me up from the horrible drug I had been under. She was still alive, at least, we believed she was.
 
 Well, there was only I now…
 
-I believed she was. I needed to find her still. There was another too. Daniel. And the others on the surface. I needed to get back to them. They were still waiting still; At least, I hoped.  
-
+I believed she was. I needed to find her still. There was another too. Daniel. And the others on the surface. I needed to get back to them. They were still waiting still; At least, I hoped.
 
 "What's the matter, baby?" The thing that looked like Sarah cooed in my ear. "You seem so upset lately…." Her nails dug further into my skin as she spoke again. "Is this all not enough for you? Am I not enough for you?"
 
@@ -371,7 +372,7 @@ I believed she was. I needed to find her still. There was another too. Daniel. A
 
 She smiled a wicked grin and bit her lip before digging into me with excitement and kissing me a few more times, "Oh, baby." She moaned, "That sounds so enticing. But I don't know if my father would let us."
 
-"He let you come out to find me, didn't he?" I said, trying not to focus on the implications of her statement. 
+"He let you come out to find me, didn't he?" I said, trying not to focus on the implications of her statement.
 
 Her 'Father'?
 
@@ -409,8 +410,8 @@ I stared stone-faced for a moment before breaking into laughter myself. Mine was
 
 She nodded eagerly and then slipped her blades deeper into my skin. I tried to hide the pain as I began to limp forward.
 
-'Hang on, Bea.' I thought, 'I'm coming.'  
-  
+'Hang on, Bea.' I thought, 'I'm coming.'
+
 When I woke up, the music from the party was still playing, although the volume was much quieter now. I was thankful since if I thought my headache had been bad before, It was a million times worse now. I looked around the living room to see others who had joined me among the unconscious; among them were Him and Sarah cuddled on the couch. That's when my shattered brain remembered the previous night's events. I needed to find her.
 
 I scraped myself off the couch and began to softly call her name as I shambled from room to room. There was no answer. It was possible that she had left already, but I knew she wouldn't have left without me, argument or not. I began to head to the backyard, hoping she may still be there. The hallway seemed to spin as I moved, and the waves in my head split my skull open and came crashing to the floor. Thinking was so hard. I just wanted to find her and get us out of there. Tell her that I was so sorry for yelling at her and that I know that I'm awful. That we would get past all of this.
@@ -435,10 +436,10 @@ I didn't answer. I just shouted at them to call 911 and continued my begging. Ov
 
 "I'm sorry…." I told her. "I'm so sorry… Please come back, Rose; I didn't mean what I said." I lay my head against her freezing lap and sobbed relentlessly into it. "I'll never leave you, please-- just come back… I need you, Rose."
 
-I lay there for a long time, people gathered around and watching, unsure of what to do. I lay there until the sun eventually crested the horizon, but it offered no warmth against the absence of hers. I wanted to lay there forever until I joined her in the very spot, but a hand on my shoulder from the paramedics shattered that dream. I turned back and couldn't look away as I was escorted out. 
+I lay there for a long time, people gathered around and watching, unsure of what to do. I lay there until the sun eventually crested the horizon, but it offered no warmth against the absence of hers. I wanted to lay there forever until I joined her in the very spot, but a hand on my shoulder from the paramedics shattered that dream. I turned back and couldn't look away as I was escorted out.
 
-I left Rose's body lying in that chair, but the cold never left me.  
-  
+I left Rose's body lying in that chair, but the cold never left me.
+
 I ran through the halls with the Sarah creature for a while, blood dripping from the holes in the hand she kept me held by. She giggled and laughed the whole time, eager to attack me once we stopped. I felt a strange pity for her, even though she was an abomination of my own creation. It wasn't her choice. The House made her like this. The House was to blame for all of it. I reached behind me to make sure the object was still tucked in my belt and held my breath when I felt it was. Everything was set. There was only one thing left to do.
 
 We came to a stop at the balcony of some sort of corporate building. To my surprise, it was one I had been in before: the high rise where Bea and I had talked in the lounge below. Where she told me about her sister. Some of the anxiety I felt melted away as I remembered the moment. I missed her greatly.
@@ -490,3 +491,7 @@ They dropped down next to me, using one hand to inspect my wounds.
 I smiled weakly as I realized who the voice belonged to, "Alice… You're safe…."
 
 She offered a smile back, but her expression was mostly concern, "Come on, Joel," She reassured, helping me to my feet, "let's get you cleaned up."
+
+&#x200B;
+
+[{Next Part}](https://www.reddit.com/r/nosleep/comments/1azdvsq/somewhere_beneath_us_part_23/?utm_source=share&utm_medium=web2x&context=3)
