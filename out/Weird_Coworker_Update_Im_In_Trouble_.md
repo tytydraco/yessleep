@@ -26,7 +26,7 @@ So I went to work.
 
 After my usual of checking cultures and filling out reports, I began to feel the familiar feeling of caffeine leaving my body as it came close to the typical time that I take my break. The nervous part of me wondered if I should try to wait until longer, maybe see if I can avoid the IT guy. Eventually, I talked myself into going to break on the grounds that I didn't want to seem like I was avoiding him. I think it would be best if I didn't draw attention to myself. 
 
-Also, on a more depressing note, I hadn't spoken a single word to another person that entire day. The fact that I felt so isolated that I was willing to entertain the idea of talking to a potential murderer makes me wonder if I should try to get out more. 
+Also, on a more depressing note, I hadn't spoken a single word to another person that entire day. The fact that I felt so isolated that I was willing to entertain the idea of talking to a potential monster makes me wonder if I should try to get out more. 
 
 When I got to the break room, he was already there, thermos in hand, sunglasses covering his eyes. He smiled and made a comment about me being late. 
 
@@ -55,7 +55,7 @@ I lied, "No. I haven't been that way in a while."
 
 "Huh. I could've sworn I saw your car on the way home last night. Green PT Cruiser, right? It's kinda hard to miss."
 
-Not good. Especially since he ripped off my bumper last night. 
+Not good. 
 
 "Uh, no, it wasn't me." I insisted. Then I started to ramble, "I usually take 534, since my poor car is kind of begging for death and I'm worried it'll break down at any moment." 
 

@@ -134,7 +134,7 @@ Zoe seemed like a really nice girl. I figured it would be unfair for someone lik
 
 “You’ll have to meet me to find out.”
 
-As the train came to a stop, I said my byes to Zoe, my mission clear. I may have been biased because I did really like her, but it’s more than that. I was going to help her, whatever it takes. Apparently I’ve had this gift to see people on a whole different existential plane, and it makes me wonder how many more have I unknowingly seen. Shopping at the store, going for morning runs, playing at the playground. What souls were stuck in the same spot, doing the same thing forever. 
+As the train came to a stop, I said my byes to Zoe, my mission clear. I may have been biased because I did really like her, but it’s more than that. I was going to help her, whatever it takes. Apparently I’ve had this gift to see people on a whole different existential plane, and it makes me wonder how many more have I unknowingly seen. They may have been shopping at the store, going for morning runs, playing at the playground. What other souls were stuck in the same spot, doing the same thing forever?
 
 Finishing those thoughts, the doors slid open, greeting me with a swift breeze and pink and blue gradient sky. I only managed to take a few steps before I froze completely. My breath was visible again. I had goosebumps, like my skin was freezing. I heard a familiar humming. 
 
