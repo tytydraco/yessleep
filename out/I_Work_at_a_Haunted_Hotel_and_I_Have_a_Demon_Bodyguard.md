@@ -334,7 +334,7 @@ I ignored him, hoping the police would show up soon and take him away. Once the 
 
 It didn’t move, so I walked towards the desk to show it I wasn’t kidding. It still didn’t move. Maybe my body heat was enough right now. As insectile as KC looked, it was rather cute, and I gave it a little pat as I sat behind the counter. It responded to my touch by sitting up and poking my cheek with its leg. The lamp behind us cast our shadow, and it looked like I had a giant demon perched on my shoulder. KC was going to be a great addition to our hotel.
 
-[KC & me](https://www.reddit.com/r/SkittishReflections/comments/1b00jg9/i_work_at_a_haunted_hotel_and_i_have_a_demon/)
+[I drew KC & me :)](https://www.reddit.com/r/SkittishReflections/comments/1b00jg9/i_work_at_a_haunted_hotel_and_i_have_a_demon/)
 
 
 [Part 1](https://www.reddit.com/r/nosleep/comments/18011dv/i_work_at_a_haunted_hotel_and_its_more_dangerous/) - [Part 2](https://www.reddit.com/r/nosleep/comments/187lmda/i_work_at_a_haunted_hotel_and_the_tenants_saved/) - [Part 3](https://www.reddit.com/r/nosleep/comments/18xqn01/i_work_at_a_haunted_hotel_and_a_spirit_risked_its/) - [Part 4](https://www.reddit.com/r/nosleep/comments/1ah7uk9/i_work_at_a_haunted_hotel_and_i_was_once_buried/?rdt=38151) - [Part 5](https://www.reddit.com/r/nosleep/comments/1aqsc3v/i_work_at_a_haunted_hotel_and_we_were_betrayed/) - **Part 6**

@@ -249,7 +249,7 @@ She smiled back as she led me to the rear door to the basement, and I felt a del
 
 Revenge had never tasted so sweet. 
 
-[Part 1](https://www.reddit.com/r/nosleep/comments/18011dv/i_work_at_a_haunted_hotel_and_its_more_dangerous/) - [Part 2](https://www.reddit.com/r/nosleep/comments/187lmda/i_work_at_a_haunted_hotel_and_the_tenants_saved/) - [Part 3](https://www.reddit.com/r/nosleep/comments/18xqn01/i_work_at_a_haunted_hotel_and_a_spirit_risked_its/) - **Part 4** - [Part 5](https://www.reddit.com/r/nosleep/comments/1aqsc3v/i_work_at_a_haunted_hotel_and_we_were_betrayed/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/18011dv/i_work_at_a_haunted_hotel_and_its_more_dangerous/) - [Part 2](https://www.reddit.com/r/nosleep/comments/187lmda/i_work_at_a_haunted_hotel_and_the_tenants_saved/) - [Part 3](https://www.reddit.com/r/nosleep/comments/18xqn01/i_work_at_a_haunted_hotel_and_a_spirit_risked_its/) - **Part 4** - [Part 5](https://www.reddit.com/r/nosleep/comments/1aqsc3v/i_work_at_a_haunted_hotel_and_we_were_betrayed/) - [Part 6](https://www.reddit.com/r/nosleep/comments/1azzkt8/i_work_at_a_haunted_hotel_and_i_have_a_demon/)
 
 \-----
 

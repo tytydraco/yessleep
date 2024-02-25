@@ -324,7 +324,7 @@ I swallowed the lump in my throat. No one had ever said they loved me before.
 
 I hung up, hurled the phone, and held my breath as Wd. Luleelei grabbed my waistband and the back of my shirt. She took off into the sky, and I closed my eyes and hugged myself, afraid of heights, but trusting Wd. Luleelei. And Mrs. Coriz. I just hoped her plan would go off without a hitch.
 
-[Part 1](https://www.reddit.com/r/nosleep/comments/18011dv/i_work_at_a_haunted_hotel_and_its_more_dangerous/) - [Part 2](https://www.reddit.com/r/nosleep/comments/187lmda/i_work_at_a_haunted_hotel_and_the_tenants_saved/) - [Part 3](https://www.reddit.com/r/nosleep/comments/18xqn01/i_work_at_a_haunted_hotel_and_a_spirit_risked_its/) - [Part 4](https://www.reddit.com/r/nosleep/comments/1ah7uk9/i_work_at_a_haunted_hotel_and_i_was_once_buried/?rdt=38151) - **Part 5**
+[Part 1](https://www.reddit.com/r/nosleep/comments/18011dv/i_work_at_a_haunted_hotel_and_its_more_dangerous/) - [Part 2](https://www.reddit.com/r/nosleep/comments/187lmda/i_work_at_a_haunted_hotel_and_the_tenants_saved/) - [Part 3](https://www.reddit.com/r/nosleep/comments/18xqn01/i_work_at_a_haunted_hotel_and_a_spirit_risked_its/) - [Part 4](https://www.reddit.com/r/nosleep/comments/1ah7uk9/i_work_at_a_haunted_hotel_and_i_was_once_buried/?rdt=38151) - **Part 5** - [Part 6](https://www.reddit.com/r/nosleep/comments/1azzkt8/i_work_at_a_haunted_hotel_and_i_have_a_demon/)
 
 \-----
 
