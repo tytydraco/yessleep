@@ -349,3 +349,6 @@ A gurgling, hissing voice filled every carriage up and down the seemingly infini
 “This is bad,” he said. “Dead things crawl out of the Boglands at night. I doubt we will have an easy time of it.” With a steely glint in his eyes, he gripped the rifle tightly to his chest, ready for whatever would come.
 
 And though I would inevitably survive and leave that foul train, I would have many scars and remember this moment as the last bit of peace I would ever have.
+
+Part 2
+https://www.reddit.com/r/nosleep/comments/1azte0t/i_found_a_living_train_that_slinks_through_the/
