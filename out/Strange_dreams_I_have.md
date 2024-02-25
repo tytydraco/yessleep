@@ -1,0 +1,33 @@
+So where do I begin...  
+
+
+Salutations, I'm just some nobody that has come here to post about strange dreams they have been having. Now normally I don't post anything on Reddit but I really wanted to Relay these strange dreams I have been having to an audience that might find them interesting.  
+
+
+1st Dream: Road Trip
+
+I don't really know when to start as I don't remember specific dates or times but I wrote them down when I figured I should start writing them down. The one I remember the most vividly is when I was driving a Winnebago of some kind down the interstate, I think I was following my dad on some kind of road trip but The cars where not moving and i was driving around them, With my sister and some other girl I don't recognize. We where talking and laughing enjoying the drive until the Road split off and I couldn't follow my dad and said we are gonna split up and Meet some where I don't remember what he said. I obliged and continued following a off ramp to what seemed to be a dense forest. The cars started to get less and less until the road became tighter and more unfinished, I felt nervous or scared but then i felt a hand on my shoulder. The Girl said something to me and i Steeled my resolve managing to dive over the unfinished off shoot before stopping on solid ground. I saw the road behind me collapse but didn't hear anything. Everything was silent like a very strange still ness, No birds, No wind, No engine sound, No slapping of shoes and floor. I continued driving. Everything is desolate like driving through a quite apocalypse. Thinking about it now I didn't really notice anything of importance inside the Winnebago, Food, Computer, Probably Survival things. Just Me my sister and some girl I never seen before. Don't ask me if she was a 10/10 nock out or something because her figure is smudged in my head, all that really matter is when ever she "Looked" or what I could describe as looking at me It made me feel important like I mattered, and honestly it felt nice. 
+
+Continuing on ward we stopped by some buildings, I think it was a Motel surrounded by trees. The place looked abandoned but nothing seemed broken, just ferns and weeds growing out of the side walk. I notice my sister and the girl get out of the van. the girl gestured me over and crouched down looking at the sidewalk. She pointed at what looked like a weed growing out from between the cracks. I couldn't tell what she was saying But some how I knew she was fawning over the plant. I looked up at my sister and she nudged my shirt and pointed over to something. Some how I had a fire axe and as if my body was on auto pilot I went to the area my sister was pointing at.
+
+Now this is where it all starts to blur because I wrote this dream down around 30 minuets after I woke up. I feel stupid for not writing it all down but I hope you can forgive me. 
+
+The only remaining things that happened that I have written down are that we managed to Tie something up, I think it was a guy. The Winnebago parked outside what looked to be a vacated house in the middle of the woods. The only thing I remember about the house is it was olive green. We boarded up all the windows and we each where armed with weapons... I think? As the Sun began to set we saw the dude outside convulsing violently. We quickly closed the door and boarded it up, all the lights seemed to be off in the house. I took a peek outside to notice what seemed to be what i can describe as long spindly arms erupt from the mans back. 
+
+Then I woke up. that was the End of my most recent dream. Sorry to disappoint you but that's the end of what i wrote down. I got 2 more dreams I remember but unfortunately they wont be as detailed as the 1st one. Also I apologize in advance about my grammar, I never really paid attention in English and well I can never tell if I'm grammatically incorrect or not. but never the less Ill do my best to describe things to you the best I can.
+
+2nd Dream: House
+
+Now this one is gonna be a bit shorter but Ill do my best to describe it to you. I can always tell when I'm going to have this dream as my head will literally feal like its sinking into the bed room that I always awake in, inside that dark house. When I close my eyes I get this overwhelming sense of dread and i can slowly start to see the door and walls of the place slowly start to form around me. Its horrible and I just felt a chill as I'm writing this as cringe as that may sound, but that's how real the experience feels to me. Now describing the room is really hard all I remember is the bed and the door. The Door was always closed but the Room was so barren, It had a closet that was closed and a single night stand with a lamp to my left. I laid in the bed looking at the door on the far left corner of my room. Now this doesn't sound to bad until I factor in the overwhelming sense of fear i felt lying in that bed. I don't know how to even describe it. It was like the as if there was no escape and I knew something was in the house, It was so cold I remember that to well. After the 1st encounter with that dream I learned how to forcefully wake my self up by moving my fingers and breaking this very strange sleep paralysis i was in. Like It wasn't your typical Sleep paralysis I was in an entirely different location, a place I didn't recognize. I don't know maybe that's normal, Ill look up peoples experiences after I'm done writing this. 
+
+3rd Dream: Wheat fields
+
+This one is the one I feel like doesn't exist, the only reason I can recall it is because of the fact in a note book i found I had written. "
+
+I'm in a wheat field I cant look up, Something is drawn on the stone wall"
+
+Now I have no idea what this means but Ill try to write it down if I dream about it tonight or any time. What I probably should have mentioned is that I have trained my self to not dream ever since the Dark House. The feeling of being dragged into that nightmarish scenario made me never want to dream again. But for you guys If you are interested Ill get out of the bed and explore the house. Since its a dream Ill try to give my self a flash light to explore the place. But then again I have a hard time dreaming. 
+
+This is all she wrote, This isn't a long post but I figured that you guys might find this interesting. I will write down my dreams here if they are interesting but if not this might be the last post you get from me. By now.
+
+The Author- 

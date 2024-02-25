@@ -1,4 +1,4 @@
-*Suddenly*, I was butterfingers.
+My *first crack* at the dark web and s*uddenly* I was butterfingers.
 
 Only two, at most three clicks away and my keyboard ninja skills were failing me.
 
@@ -110,13 +110,17 @@ My hand covered my mouth once it began its silent scream.
 
 There it was. In black & white. Reel after reel of young men turned decrepit in time-lapse terror. And there stood statuesque Vera next to them all.
 
-Each played out the same drama. Each reel starting out with Vera hideously decrepit yet by the time the curtain dropped Vera was again young as springtime. But the men, it was the exact opposite. They had been drained of their essence.
+Each played out the same drama. Each reel starting out with Vera hideously decrepit yet by the time the curtain dropped Vera was again young as springtime. But for the men, it played out exactly the opposite. They had been drained of their essence; sweet bird of youth never to fly high again.
 
-I thought, Run! But my legs did not cooperate. I remained frozen in my chair. The cat scooched in, pawing at my robe; mewling piteously.
+My first thought? Run! My legs response?
 
-Then a funny thing happened; the electric went out.
+*Fuck you, Chief.*
 
-I picked up my phone. It hesitated, but still recognized my face.
+No, my legs did not cooperate. I remained frozen in my chair. The crazy cat now scooched in, pawing at my robe frantically; mewling piteously.
+
+Then a funny thing happened; the lights went out.
+
+I picked up my phone. It hesitated, but it still recognized my face.
 
 The camera app was open and pointed at me. It captured my face effortlessly only it wasn't my face. Well, not quite. This face had more character if hard times build such a thing. And more fright lines. Wrinkles, wrinkles deep enough to hide a sesame seed.
 
@@ -150,4 +154,6 @@ How does one go about reporting a murder not yet committed with no murder weapon
 
 And then I remembered a quote from somewhere long ago, "I knew that I had come face to face with someone whose mere personality was so fascinating that, if I allowed it to do so, it would absorb my whole nature, my whole soul, my very life essence itself with each release."
 
-It's getting harder to think clearly and the cat is getting frantic. Has anyone else heard of instadamn?
+It's getting harder to think clearly and the cat is beyond frantic. Vera's gonna be done in the bathroom soon and I haven't slept all night. 
+
+Has anyone heard of instadamn? 
