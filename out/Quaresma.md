@@ -39,3 +39,6 @@ My mother said that she always felt that my grandfather didn't tell my grandmoth
 She said she doesn't know where the ring is, and after I got older I forgot that little detail. Recently, however, I received a letter that I only found out about when I visited the post office and found out that this item was pending.
 
 It's not a letter, exactly, it's just an envelope with a photo and a ring. The problem with all of this, besides the ring that reminded me of this story, is that the photo is of me as a child. I know I should ask my mom about it to confirm any suspicions, but to be honest, I'm a little scared of what kind of answer she can give to me.
+
+https://drive.google.com/file/d/11LUVLWCbbRY59dU0oSVyV_YCx7u5hxTE/view?usp=drivesdk
+https://drive.google.com/file/d/11LfzJ-bxS0ksSctidIeoxDKLUD4KePIe/view?usp=drivesdk
