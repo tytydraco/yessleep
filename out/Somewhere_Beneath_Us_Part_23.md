@@ -72,7 +72,11 @@ Alice said nothing, but I could tell she understood.
 
 "Ethan." I forced myself to say out loud. It nearly physically hurt as it swelled past the lump in my throat, but I needed to say it. I didn't want his name to be another one I was too afraid to speak.
 
+&#x200B;
+
 His optimism. His positivity. No matter how bad things got in the house, above or below, Ethan was always dead set on keeping spirits high. Once, after we exiled Larry, he tried to cheer everyone up with a "movie night." We didn't have T.V, obviously, But that didn't stop him from reenacting several films from memory all by himself. Sure, it was cheesy, but watching him pretend to be both Jack and Rose from Titanic at the same time made it impossible not to smile.
+
+&#x200B;
 
 After a brief respite, I was immediately back to business. As hopeless as things had become, I felt more invigorated than ever. It was one part determination to finish the job I had started and two parts pure rage toward the creature that had damned my friends and me. Since the night in the parking garage, the shattered fragments of my mind had been formulating a new plan, and now that those shards were back together, everything seemed so clear. It was going to be hard, but nothing so far had been easy, and I was somehow still alive. Although, according to Ethan's dream, that might not be the case for too much longer. But he also said that he had changed some of his dreams. I was betting on that single fact alone.
 
@@ -106,7 +110,11 @@ We both shuddered at the thought.
 
 I asked her about the rooms she knew of, seeing if she had found any matching Daniel's room or anything that might be Bea's. She had what seemed like a match for Daniel; floor 693. The elevator on the level only opened into one room with a locked door that slowly leaked water from its seams. The floor number seemed to match up with when we lost Dan, and the water certainly felt like it belonged to his room. Once I took care of what I needed to, that was where I would look for Daniel.
 
+&#x200B;
+
 His strength. His levelheadedness. Ever the leader, Daniel always put the group's interests first. He was just as scared and confused as the rest of us the day we arrived in the house, yet he never showed it. After the first few weeks, when starvation began to set in, Daniel was the first person to volunteer to go downstairs and scavenge for food. He insisted on going alone, as he didn't want anyone else to be at risk, but we didn't let him. If he hadn't felt the need to stick around for the rest of us, I truly believe Dan would have attempted the journey to the exit on his own long before Andi had.
+
+&#x200B;
 
 As for Bea, the closest thing she knew of was an area on floor 864, just a few levels above the exit. It was a door located among the tangle of halls and minor rooms that opened into a pitch-black void. At first, she thought it was a sheer drop, but tossing a piece of debris into it, she found that there actually was unseen ground. However, she decided against going inside, not wanting to chance it. She returned a few times after to find that the door never moved though, meaning it was most likely holding someone. If Bea fell into a dark void, she probably ended up there. I now had two headings.
 
@@ -224,9 +232,13 @@ I promise.
 
 My heart froze in my chest, and tears returned to my eyes as I tightly gripped a handful of her hair, not wanting to let go. I knew I had to, though. There was work to be done.
 
+&#x200B;
+
 Her kindness. Her selflessness. Bea always made it a point to get a conversation in with everyone in the house at least once a day. Even Larry. She did this to make everyone feel seen. That they were just as important as anyone else. Such a simple act went a long way in keeping everyone grounded. Any time you'd think to yourself, 'what's even the point? I'm a nobody destined to die here,' You always had to remind yourself, 'Bea doesn't think so. She'll be around tomorrow to tell me so.'
 
 One time in a basket drop, we found this small plastic dolphin. Bea ended up with it and slipped it into my pocket when I wasn't paying attention. I found it later, which started a back-and-forth of us secretly putting this toy into the other's possession. Whenever I felt particularly upset or hopeless, I would just randomly check my pocket to see if Bea had made a move. Every time without fail, it was there waiting for me.
+
+&#x200B;
 
 Alice and I stepped out of the room but left the door open, just in case Bea had a miracle happen like I did.
 

@@ -1,15 +1,8 @@
-“Monsters don't die early; they hang on long. Awfully long. Their vanity's infinite, almost as infinite as their disgust with themselves.”  
-― Tennessee Williams, Sweet Bird of Youth
-
-...
-
-The End?
-
 *Suddenly*, I was butterfingers.
 
 Only two, at most three clicks away and my keyboard ninja skills were failing me.
 
-Steady, brother, I thought. But I wasn't steady. Something terrible was happening. I wasn't myself. I wasn't right. But I couldn't describe the feeling. Or maybe it was like the feeling of losing all feeling?
+Steady brother, I thought. But I wasn't steady. Something terrible was happening. I wasn't myself. I wasn't right. But I couldn't describe the feeling. Or maybe it was like the feeling of losing all feeling?
 
 My hands went reactionary, unceremoniously defecting to fear; blatantly disregarding my brain's chain of command. Fingers don't fail me now! Come on, come on, I thought frantically.
 
@@ -155,6 +148,6 @@ Yep. Vera's in the bathroom and I'm having trouble moving. I hope someone can he
 
 How does one go about reporting a murder not yet committed with no murder weapon except the looks that kill?
 
-And then I remembered a quote from somewhere long ago, "I knew that I had come face to face with someone whose mere personality was so fascinating that, if I allowed it to do so, it would absorb my whole nature, my whole soul, my very life itself."
+And then I remembered a quote from somewhere long ago, "I knew that I had come face to face with someone whose mere personality was so fascinating that, if I allowed it to do so, it would absorb my whole nature, my whole soul, my very life essence itself with each release."
 
 It's getting harder to think clearly and the cat is getting frantic. Has anyone else heard of instadamn?
