@@ -302,9 +302,9 @@ It stared at us for a moment, analyzing our every action, before it chomped its 
 
 I could barely breathe with how tight it was holding me, and the panic combined with the radiating pain from my arm was making my heart beat a million miles an hour. The Curator zigzagged down corridor after corridor, clearly on a mission to get somewhere specific. It stopped before a set of rusted steel doors, then reached forward and pried them open with a single finger. An elevator shaft… How had we never seen one in the house before?
 
-The curator adjusted us in its hands, sliding us both into one palm, then began squeezing even tighter than before. I watched my vision blur as my lungs were crushed up against Ethan's back. From the sound of his breathing, he was experiencing the same pain. The curator reached into the elevator's black shoot, grabbed ahold of one of the chords, then pulled itself inside. Rapidly, it began to slide down it like a firepole at alarming speeds. A scream rose to my lips from the sensation, but with no air to fuel it, my vision turned red instead.
+The curator adjusted us in its hands, sliding us both into one palm, then began squeezing even tighter than before. I watched my vision blur as my lungs were crushed up against Ethan's back. From the sound of his breathing, he was experiencing the same pain. The curator reached into the elevator's black shoot, grabbed ahold of one of the chords, then pulled itself inside. Rapidly, it began to slide down it like a firepole at alarming speeds. A scream rose to my lips from the sensation, but with no air to fuel it, my vision turned red instead. Soon the darkness of the shaft blurred with the darkness of unconsciousness, and it didn't take long for the latter to win out.
 
-Soon the darkness of the shaft blurred with the darkness of unconsciousness, and it didn't take long for the latter to win out.
+I stayed in that darkness for what felt like an eternity, but when I finally woke up, it wasn't in a location that I was expecting...
 
 &#x200B;
 

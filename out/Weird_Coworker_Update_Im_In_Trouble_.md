@@ -1,6 +1,6 @@
 It's so wild to me that no matter what happens, you still have to go to work. Your life can be falling apart around you, you could see [your coworker in the process of decapitating a man](https://www.reddit.com/r/nosleep/s/gdzNrc6uIQ), but you're still expected to clock in the next day as if nothing is wrong.  
 
-I keep thinking back to when I saw the IT guy reaching for me. I'm trying to figure out what could've happened. Maybe he'd been defending himself? He was bloody, but I don't remember seeing any wounds. I don't think any of it was his blood. And the way his eyes lit up like an animal's just... it's not right. Nothing about that was right. 
+I keep thinking back to when I saw the IT guy in the woods. I'm trying to figure out what could've happened. Maybe he'd been defending himself? He was bloody, but I don't remember seeing any wounds. I don't think any of it was his blood. And the way his eyes lit up like an animal's just... it's not right. Nothing about that was right. 
 
 But one thought keeps sticking in my head: I drove away. I saw something horrible, and I just ran off.  
 
@@ -10,7 +10,7 @@ I guess I am a terrible person. Or a coward. Or I'm driving myself crazy. It doe
 
 And I still had to go to work. 
 
-It took a lot of convincing myself to get into my car. A lot. The handprint was still there this morning. It took ten minutes of scrubbing with Dawn and paper towels to get it off while being sick to my stomach. I avoided the road from last night. During the drive, my thoughts were a spiraling, panicked mess. What if he's there? What if he's not there? And how in the hell am I going to be able to face him if he is? What if he was also hurt? What if he'd been the real victim and I'd just left him there?
+It took a lot of convincing myself to get into my car. A lot. The handprint was still there this morning. It took ten minutes of scrubbing with Dawn and paper towels to get it off while being sick to my stomach. During the drive, my thoughts were a spiraling, panicked mess. What if he's there? What if he's not there? And how in the hell am I going to be able to face him if he is? What if he was also hurt? What if he'd been the real victim and I'd just left him there?
 
 Suffice to say, I was not feeling fly like a G6.  
 
