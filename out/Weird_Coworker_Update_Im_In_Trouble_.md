@@ -163,4 +163,4 @@ Ramy. Fuck. My eyes, still watering from throwing up, stayed on the floor.
 As expected, I was alone when I eventually turned around. 
 By the time I finally got home, I ached all over and was shaking from nerves. The burning has subsided somewhat. I've been monitoring myself for changes. The only thing I've noticed is that somehow... I just know where Ramy is and I think he knows where I am, too. 
 
-I think he made me swallow his blood so that he can find me easier. I don't know what else is going to happen to me. 
+I think he made me swallow his blood so that he can find me easier. I don't know [what else](https://www.reddit.com/r/nosleep/s/qq7ZB5xCUy) is going to happen to me. 
