@@ -237,7 +237,7 @@ I couldn't help myself as I asked, “Did you get the footage you wanted?”
 
 My smile widened as they refused to make eye contact. As crazy as this shift was, it couldn't have ended in a better way.
 
-**Part 1** - [Part 2](https://www.reddit.com/r/nosleep/comments/187lmda/i_work_at_a_haunted_hotel_and_the_tenants_saved/) - [Part 3](https://www.reddit.com/r/nosleep/comments/18xqn01/i_work_at_a_haunted_hotel_and_a_spirit_risked_its/)
+**Part 1** - [Part 2](https://www.reddit.com/r/nosleep/comments/187lmda/i_work_at_a_haunted_hotel_and_the_tenants_saved/) - [Part 3](https://www.reddit.com/r/nosleep/comments/18xqn01/i_work_at_a_haunted_hotel_and_a_spirit_risked_its/) - [Part 4](https://www.reddit.com/r/nosleep/comments/1ah7uk9/i_work_at_a_haunted_hotel_and_i_was_once_buried/?rdt=38151) - [Part 5](https://www.reddit.com/r/nosleep/comments/1aqsc3v/i_work_at_a_haunted_hotel_and_we_were_betrayed/) - [Part 6](https://www.reddit.com/r/nosleep/comments/1azzkt8/i_work_at_a_haunted_hotel_and_i_have_a_demon/)
 
 \-----
 

@@ -196,7 +196,7 @@ She may have chosen to look like a succubus, but the only emotion she was elicit
 
 “I am now, thanks to you two and Wd. Rowena,” I said, still trembling despite my smile. “Can one of you untie me while the other finds my phone? There's an officer I need to call.”
 
-[Part 1](https://www.reddit.com/r/nosleep/comments/18011dv/i_work_at_a_haunted_hotel_and_its_more_dangerous/) - **Part 2** - [Part 3](https://www.reddit.com/r/nosleep/comments/18xqn01/i_work_at_a_haunted_hotel_and_a_spirit_risked_its/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/18011dv/i_work_at_a_haunted_hotel_and_its_more_dangerous/) - **Part 2** - [Part 3](https://www.reddit.com/r/nosleep/comments/18xqn01/i_work_at_a_haunted_hotel_and_a_spirit_risked_its/) - [Part 4](https://www.reddit.com/r/nosleep/comments/1ah7uk9/i_work_at_a_haunted_hotel_and_i_was_once_buried/?rdt=38151) - [Part 5](https://www.reddit.com/r/nosleep/comments/1aqsc3v/i_work_at_a_haunted_hotel_and_we_were_betrayed/) - [Part 6](https://www.reddit.com/r/nosleep/comments/1azzkt8/i_work_at_a_haunted_hotel_and_i_have_a_demon/)
 
 \-----
 
