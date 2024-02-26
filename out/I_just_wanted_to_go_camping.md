@@ -1,7 +1,7 @@
 I’ve always been a nature lover, but not quite enough of one to convince myself to trek off trail and set up camp. I’d always wanted to, but I have a paralyzing fear of being torn to shreds by a bear, despite living in a place where the scariest animal alive is the fat and happy dumpster diving squirrel that lives on my street. I call him Stan. He hates me.
 
   
-My resolve to never venture into the woods overnight remained intact until the day I got dumped. I wasted seven years of my life with someone who ended up boinking my best friend, and I was so delusional that I didn’t even figure it out. She ended things with me. \*She\* confessed to \*me\* and admitted that she didn’t even feel the least bit bad about what she’d done. I sure felt like shit, though, and wandered home with no idea what to do next. 
+My resolve to never venture into the woods overnight remained intact until the day I got dumped. I wasted seven years of my life with someone who ended up boinking my best friend, and I was so delusional that I didn’t even figure it out. She ended things with me. *She* confessed to *me* and admitted that she didn’t even feel the least bit bad about what she’d done. I sure felt like shit, though, and wandered home with no idea what to do next. 
 
   
 During my walk thunder clouds rolled in, billowing and black, threatening to unleash torrents of water at any given moment. The first drops smacked me in the eyeballs as I stared up at the sky. I ducked under the eaves of a nearby business right as sheets of rain plummeted to the earth. 
