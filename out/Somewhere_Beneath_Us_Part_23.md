@@ -1,4 +1,4 @@
-[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1ayk74o/somewhere_beneath_us_part_22/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1ayk74o/somewhere_beneath_us_part_22/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) \~ [{Next Part}](https://www.reddit.com/r/nosleep/comments/1b09akm/somewhere_beneath_us_part_24/?utm_source=share&utm_medium=web2x&context=3)
 
 &#x200B;
 
@@ -263,3 +263,7 @@ She looked at me skeptically, concerned, "What are you saying?"
 I drew in a deep breath, steadying myself mentally. Once I said it out loud, I knew the gravity of my plan was going to finally set in.
 
 "I... I need to kill the House."
+
+&#x200B;
+
+[{Next Part}](https://www.reddit.com/r/nosleep/comments/1b09akm/somewhere_beneath_us_part_24/?utm_source=share&utm_medium=web2x&context=3)

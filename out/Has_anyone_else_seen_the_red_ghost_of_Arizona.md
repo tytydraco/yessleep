@@ -1,0 +1,18 @@
+For context, I have lived in Arizona all my life, and there are always weird stories about monsters that are in the desert. I have never really believed any, though, I always thought they were just spooky things you say at a campfire or when you are roasting s'mores. But there has been one story that really has messed with my head.   
+  
+The red ghost of Arizona. There's been many stories about it, but today, I am only going to tell two. The first story goes like this: America is fighting the confederate states in the civil war. They don't want the confederate states to gain control of Arizona and possibly California, so they bring a bunch of camels to the middle of the desert and are called the American camel corps. One day, a soldier is super scared of camels during training for some reason, so they tie him to a camel. The camel freaks out and runs off into the desert, and the guy was never to be seen again.   
+  
+Occasionally, people say that they will see his corpse riding the camel, forever doomed to ride the plains, unable to free himself from the back of the thing he hated most. The second story is much darker. It goes like this; A native american bringing settlers into the west for a small fee of money. But he suddenly goes mad. Settlers say that what he wanted to talk about was the afterlife and transformation. One day, his brain finally snaps. He breaks into the home of a family and kills them all brutally. When the sheriff enters the house, there is so much blood and the native american is also covered in blood. He tore all of their ligaments and muscles that the bodies were unrecognizable. It was as if a geyser of blood was coming from each body.  
+  
+The sheriff and the native american fight, but eventually the native american gets the sheriff off of him. He runs through the door and runs off into the middle of the desert, never to be seen again. Settlers said that when they entered Arizona, there were red letters on almost every boulder that said ‘WELCOME TO HELL, MILE MARKER 1’. I think this story is very gruesome and kind of creepy  
+  
+  
+The reason I am telling you this story is that I also experienced something otherworldly. For context, I am a national park ranger just outside of Phoenix, Arizona. Me and my buddy, Gus, are assigned to find an alleged mad man running around out in the middle of the desert. The higher ups told us that the man most likely escaped from the insane asylum, that was 3 miles from the park. When we got to the location where he was last seen, I smelt something foul. I smelt death. I can see from Gus's reaction that he smelt it too.   
+  
+We covered our noses and started searching for him. I was about 30 feet away from Gus, when I heard a “What the hell is this?”. I ran over to him and looked where his eyes were pointing. Big red letters on a boulder spelled out ‘3 BLACK CATS WERE KILLED, WITCHES DON'T LIKE THEIR BLACK CATS BEING KILLED’   
+  
+We told Terry, our higherup, about it and he thought it was weird. He told us it was probably the guy and he also told us that this guy keeps terrorizing hikers. He would run up to them scream and run off into the desert. 30 people reported about it, but there was 1 thing concurrent with every report. His face was too big for his head. His eyes, nose, and mouth were too big to fit on his head. Every time, he would come out of nowhere scream at them, and run off.  
+  
+When I heard about this, I immediately thought about the red ghost of arizona. But if I am going to catch this ‘red ghost’, then I will need help, the park service needs help. Has anyone else out in the desert seen the red ghost of arizona?  
+  
+  
