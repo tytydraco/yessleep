@@ -1,4 +1,4 @@
-Dr. Virgil works in a strip mall between the Four Seasons Lawn Care and a sex shop. Day or night, he’ll be there, any time at all. I’ve been his nurse, account, secretary, and confidant for five years and eighty-seven days. No one can succeed like Dr. Virgil, because he does what no one else can. 
+Dr. Virgil works in a strip mall between the Four Seasons Lawn Care and a sex shop. Day or night, he’ll be there, any time at all. I’ve been his nurse, accountant, secretary, and confidant for five years and eighty-seven days. No one can succeed like Dr. Virgil, because he does what no one else can. 
 
 Last night, he had just injected a healthy dose of Clonazepam, because no one had come into the office for hours. Dr. Virgil swears that he can work just as well under a Clone fog, and we’ve never had a patient who’s survived to contradict him. 
 
