@@ -2,8 +2,6 @@
 
 &#x200B;
 
-***Note to the reader:*** *I recommend asking questions in the comments. I may respond.*
-
 &#x200B;
 
 February, Monday 26, 2024
@@ -245,5 +243,3 @@ Sincerely,
 Austin Davis
 
 &#x200B;
-
-Reminder to me: Post this to Reddit to get an extra opinion about this situation. Don’t want to make a final judgment by myself about Thompson.
