@@ -100,7 +100,7 @@ She sputtered, "I'm sorry! I wasn't going to kill him! I swear! I wouldn't-"
 
 Ramy's smile wasn't friendly as her seized her ankle and pulled her towards him. She squealed and tried to kick him off, but as strong as she was, she wasn't a match for him. 
 
-I don't how nobody inside the bar heard any of this. Neither entity was making any attempt to be quiet during this entire struggle. Either the soundproofing in that place is impeccable or the people inside just didn't want to deal with it. 
+I don't know how nobody inside the bar heard any of this. Neither entity was making any attempt to be quiet during this entire struggle. Either the soundproofing in that place is impeccable or the people inside just didn't want to deal with it. 
 
 I began to feel lightheaded as Ramy rested his hand on the woman's chin. Her eyes were squeezed shut, her body limp as she stopped fighting. He tapped her cheek with his thumb until she eventually opened her eyes. 
 

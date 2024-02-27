@@ -1,4 +1,4 @@
-[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1azdvsq/somewhere_beneath_us_part_23/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1azdvsq/somewhere_beneath_us_part_23/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) 
 
 &#x200B;
 
@@ -421,3 +421,7 @@ I checked my belt to ensure I still had my plan tucked in it before shakily stan
 I saw it land one last hit into the Curator before it turned its amber eyes on me. It had no true face, no real expression, and yet still, for the first time since I had known the creature, it looked confused. For once, it looked like this was out of its control.
 
 "I'm not done yet," I said through gritted teeth.
+
+&#x200B;
+
+[{Next Part}](https://www.reddit.com/r/nosleep/comments/1b13idr/somewhere_beneath_us_part_25/?utm_source=share&utm_medium=web2x&context=3)
