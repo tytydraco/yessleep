@@ -2,7 +2,7 @@
 
 &#x200B;
 
->!Note to the reader: I recommend asking questions in the comments.!<
+***Note to the reader:*** *I recommend asking questions in the comments. I may respond.*
 
 &#x200B;
 
