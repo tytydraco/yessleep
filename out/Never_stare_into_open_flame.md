@@ -1,0 +1,47 @@
+Before I get into this, I want to be clear, I'm not insane. I don't take meds for anything and I sure as hell don't do any drugs. I'm as sober as they come, mostly by choice, but my folks drilled into me that a clean body is what's best if you want to live well. 
+
+I say this because every time I tell someone about what I'm about to tell you they say I smoked too much of something or I need to be checked by some darn specialist. I know damn well I'm fine and I regret ever telling anyone who just wants to brush off what I have to say, not that I don't blame them. Hell, I wouldn't believe it, but ignoring it only makes it worse, I wish it were just a bad pill or brain defect. But it ain't.
+
+It happened only a couple months ago, me and my buddy, we'll call him Red, always headed out into the woods to get away from our obligations back in the city. Nothing beat the smell of the pines and a good ol day of fishing while you kick back as the sparrows chirp in the distance. I tell ya, it was like healing the soul every time Red and I went out there, I just wish it stayed that way. 
+
+You see this thing never happened before, not once in all my years of going out into the woods and sleeping under the stars did I ever feel unsafe or worried something might go wrong. Red always brought bear spray and a good amount of supplies in case anything didn't go our way, I slept as sound as a bug in a rug knowing whatever came our way, me and Red could take it on. But after that night, no amount of bear spray or bullets will ever let me sleep that soundly again. 
+
+It was the last day of our weekend trip, Red had already packed up his tent and was getting the fire going before dark set in. He always slept in his truck on the last night, said it made the next morning easier for him, he hated having to get up and start packing. I was chopping wood for the fire with our old axe we brought with us on every trip, we had chopped down an old pine early that day and I was cutting them into smaller sections so we could get a nice warm fire going. Just before the sun set we had our fire roaring like you wouldn't believe, Red even called it the perfect camp fire and I had to agree. We stacked the wood like a jenga tower so the flames could crawl inside the holes and breathe without losing too much heat. We admired our handy work while Red cracked a beer and I sipped on a cool batch of ice tea I brewed yesterday. 
+
+We sat there in the dark, with the glow of the fire, chatting about work, movies we hadn't seen and our own observations on life. But if you've ever sat around a fire you know for the most part, you're not looking at the people with you. No, you're watching the fire, watching its flames lick the side of the wood, seeing it dance around as it makes its way into the air. You feel it drawing you in, it's warmth, it's light, it's so easy to get lost in it. Makes you want to touch it but you know it'll burn, so you compose yourself to just stare at it. Sometimes it feels like you're losing track of time and you gotta ask yourself when was the last time I said something? I had that thought when Red and I were sitting around the fire, so I snapped myself back and asked Red when he wanted to wake up tomorrow. 
+
+That's when I noticed Red was standing, he was holding his beer at his side, the white suds from his drink were beginning to pour out onto the dirt and his eyes were locked on the flames. I didn't think anything of it at first, figured he was stretching his legs, I made some dumb joke about watering the ground with beer ain't good for the trees, But he didn't respond. He just kept staring at the fire like it was the most interesting thing he'd ever seen. Thinking he was just tired of my crap I let him be and tossed another log into the flames, it was then Red seemed to shake his fog and come back. 
+
+He noticed his beer was suddenly empty and crushed the can before venturing over to his truck to grab another. I remember asking him if I pissed him off, but when he returned he told me he didn't even hear my joke, said he didn't even remember getting up. We both agreed no more logs for the rest of the night and sleep was a good idea, so after cracking another beer Red and I sat once again around the fire waiting for the remaining wood to burn. I wish we had just gone to bed. 
+
+Once again I found myself watching the fire in silence, staring at the red and yellow light as it swirled and flickered in the darkness. After a while I swore I started to see shapes or pictures begin to form in the flames, like animated images manifesting within the heat of the fire, I watched as faces began to form and disappear almost like magic was being performed. I knew it was most likely my brain trying to find patterns in the light so I let my mind wander as I watched the burning flames continue, but I stopped thinking that way when I swore I heard someone speak. It was a low rumbling voice mixed with the hissing of the pine wood, it sounded like low thunder and sharp abrupt words that cut deep into my mind. It asked me if I was cold, if I was lonely, if I was hungry, all at once, like a course of rolling voices overlapping each other. 
+
+I couldn't believe what I was experiencing, I felt so warm, embraced by the fire like a fresh blanket. The flames seemed so inviting, like it had answers to questions I didn't know I had. I wanted to taste the fire, hold the fire, be in the fire.
+
+I needed to be a part of the flame. 
+
+I could see hands gesturing me closer towards the embers, pulling me into its glow, its beautiful welcoming glow. The fire was all around me now as I stood up from my seat, it swirled like a raging tornado but its heat did not cause me pain. I knew with my very being to trust this flame with all I had within me, to let it take me, I would be safe no matter what happened. I saw beauty manifest itself in the embers as they drew me closer and closer, the smell of the smoke was intoxicating. I wished I would never breathe air again, I wished I'd never feel anything other than this flaring heat. I stepped closer with each heightened sensation that passed over me, I never wanted anything more than to be in the fire. The idea of my flesh melting away brought me joy, to become ash and join the fire became a fate I accepted with eager breath. I stood now before the fire, its flames rose into the air like a pire that reached the sky turning the cosmos red, it burned the stars and ignited the trees leaving the branches black and charcoal. Nothing could extinguish its light, nothing will ever stop it, all that was left was to join the burning euphoria and submit myself to its divinity and cleanse myself of this physical form.
+
+The voice was a booming orchestra of revelation and jubilee echoing through the sky, it called out with prophetic blessing promising me a life of ease and without woe. I believed its words and I reached out to grasp at its flaming tendrils enveloping my hands with warmth and welcoming touch. For the first time in my life I knew my purpose, it was to be here, it was to hear these words, it was to burn. 
+
+The flames would be my guide and take me into its arms, I felt loved, I felt cherished and then I felt a strike hit me across the face. 
+
+I hit the ground hard and rubbed my cheek which felt hot from the impact, i looked around after collecting myself to see Red was standing over me breathing heavily like he just got done lifting weights. I scanned our campsite and saw nothing out of the ordinary, no blazing trees, no red sky filled with fire, just a campfire barely lit and two fools who looked like they just got done fighting each other. It was then I noticed the pain in my hand, I looked down to see my right hand had been severely burned and was not looking so good. 
+
+I asked Red just what the hell was he thinking punching me in the face, he lifted me to my feet and told me what just happened while he bandaged me up. 
+
+Apparently if he hadn't done anything I'd be a dead man. 
+
+Red had snapped out of some kind of trance when he dropped his beer on his foot and then noticed I was standing over the fire. No matter what he did he couldn't pull me away from it, said I looked possessed and wasn't answering him when he called out. He punched me when I started putting my hand into the fire and wouldn't pull back, said he tried to wrestle me away but I was locked in like some kind of statue. The moment he started to hear my skin sizzle a quick right hook to the jaw was all he could think to do. 
+
+As he told me this I couldn't help but think about what I had just seen, the images were as clear as daylight in my mind. 
+
+After he finished wrapping my hand I told him what I saw, to which he simply answered. I wanted to burn too. 
+
+We didn't talk about the fire after that. In silence we put out the fire, grabbed our stuff and drove into town to get me some medical attention. 
+
+That was the last time Red and I ever went out into the woods and the last time I ever went near an open flame. Thankfully the hand is healing up ok, but it's a grim reminder of that night and every time I catch myself looking at it, that low rumbling voice echoes in my mind.
+
+Believe me or not, that's up to you.
+
+But if you're ever near a flame and it starts to feel inviting, crack open a beer. It might just save your life.
