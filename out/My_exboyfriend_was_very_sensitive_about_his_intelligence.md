@@ -1,12 +1,12 @@
 Until I saw what he kept in the basement, I might’ve been able to move past that insecurity.
 
-My name is Sonya, I’m 24 years old, and I started dating Mateo a year ago. We met at university, and we had a connection, but Mateo switched direction after graduating – he decided to study medicine instead. Something that, midway through the course, he ended up quitting. So, we didn’t start dating until our paths crossed a few years later. He was a ‘bonny boy’, as my Scottish mother would say. He had the sort of face that could make a person forget their better senses, and that almost happened to me.
+My name is Sonya, I’m 24 years old, and I started dating Mateo a year ago. We met at university, and we had a connection, but Mateo switched direction after graduating – he decided to study Medicine instead. Something that, midway through the course, he ended up quitting. So, we didn’t start dating until our paths crossed a few years later. He was a ‘bonny boy’, as my Scottish mother would say. He had the sort of face that could make a person forget their better senses, and that almost happened to me.
 
 I don’t trust pretty exteriors anymore.
 
 Before I tell my tale, I want you to know that I’m smart. I only mentioned that for the sake of context. That was the first time I ever admitted it. Self-confident affirmations are reserved for boys, after all. Ladies must be modest, and they must never outshine their male counterparts.
 
-I’m being frivolous. I don’t *really* believe that women should douse their flaming bras, pick them up, and strap into the 1950s. Yet, so many people in today’s world do believe that. And it's not just the outspoken, oafish sexists who oppress women – it’s the nice boys too. The ones who tell you how amazing you look, though they wish you wouldn’t lie by using make-up. The ones who tell you that you’re strong for a woman.
+I’m being facetious, of course. I don’t *really* believe that women should douse their flaming bras, pick them up, and strap into the 1950s. Yet, so many people in today’s world do believe that. And it's not just the outspoken, oafish sexists who oppress women – it’s the nice boys too. The ones who tell you how amazing you look, though they wish you wouldn’t lie by using make-up. The ones who tell you that you’re strong for a woman.
 
 The ones who like you as long as you don’t outshine them.
 
@@ -242,7 +242,7 @@ Without warning, her hand gripped my upper arm in a vice-like hold.
 
 “Never mind… Towers… Okay, Mum,” She said, unleashing a hoarse cry.
 
-“... I’m going to get help,” I shivered, prying her strong fingers from my arm.
+“... I’m going to get help,” I shivered, prizing her strong fingers from my arm.
 
 Before the damaged woman could injure me again, whether intentionally or not, I twisted to flee the basement. And a warm wave of panic immediately drenched my face.
 
