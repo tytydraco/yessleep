@@ -58,7 +58,7 @@ The woman with backwards feet smirked, "I could tell you how to get your voice b
 
 Dread settled in my stomach. I used the notebook to ask her what her price was. 
 
-The smile she gave me probably looked charming to onlookers, but she reminded me of a cat that had found a rodent it was eager to dismember. She suddenly stood up and declares that she needed to smoke and wanted me to follow her. 
+The smile she gave me probably looked charming to onlookers, but she reminded me of a cat that had found a rodent it was eager to dismember. She suddenly stood up and declared that she needed to smoke and wanted me to follow her. 
 
 No way. I didn't want to be alone with her, especially not with the way she just looked at me. 
 
@@ -70,7 +70,7 @@ I pointed to her whiskey sour, then wrote out, 'Sure, I'll pay for it.'
 
 The woman with backwards feet impatiently beckoned for me to join her outside. I still didn't feel right, but I'd paid her price, didn't I? That meant that she wouldn't require anything else, right?
 
-In hindsight, I see where I went wrong: she'd offered me two things; buying the whiskey sour for her had only paid for one. 
+In hindsight, I see where I went wrong: she'd offered me two things. Buying the whiskey sour for her had only paid for one. 
 
 She insisted that she had to tell me what I needed to know outside to avoid being eavesdropped on. Even though my gut was screaming at me not to oblige her, I followed her outside. 
 
@@ -78,7 +78,7 @@ Another thing that made me nervous was that I could sense that Ramy was close by
 
 While I spent all that time panicking over the possibility of Ramy showing up, I failed to notice the threat right in front of me. 
 
-The woman with backwards feet threw herself bodily into me, knocking me to the ground. As I struggled to push her off, she sunk her teeth into where my shoulder met my neck and began to drink. Her teeth tore at my skin, deep enough to make the muscles twitch involuntarily, and as she sucked the blood from my body, it felt as if she was ripping my soul out along with it. 
+The woman with backwards feet threw herself bodily into me, knocking me to the ground. As I struggled to push her off, she sank her teeth into where my shoulder met my neck and began to drink. Her teeth tore at my skin, deep enough to make the muscles twitch involuntarily, and as she sucked the blood from my body, it felt as if she was ripping my soul out along with it. 
 
 I was having my life stolen away and I couldn't even scream. 
 
@@ -86,11 +86,11 @@ Two people walked towards the entrance of the bar. I reached for them, hoping, p
 
 The woman yanked her head to the side, ripping my flesh off, hard enough to make my entire body shake, as if I were a toy in the jaws of a vicious dog. But I still couldn't scream or even sob as she drank my life away. The bar's neon sign got blurrier as she swallowed more of my blood. I couldn't die like this. Please, not like this.
 
-I sensed Ramy's presence before I saw him. He appeared suddenly and seized the woman's ear, dragging her away by the cartilage as if she were a naughty child. She howled like a coyote, clawing at his hand and leaving little scrathes, but he didn't seem to notice. 
+I sensed Ramy's presence before I saw him. He appeared suddenly and seized the woman's ear, dragging her away by the cartilage as if she were a naughty child. She howled like a coyote, clawing at his hand and leaving little scratches, but he didn't seem to notice. 
 
 After taking a moment to make her scream again by roughly yanking her head to the side, he eventually tossed her so that she toppled to the ground, the back of her head slamming against the bar's brick wall. 
 
-Ramy turned to me then as I laid, limo, prone, and bleeding onto the ground ground. I weakly tried to scoot away, but in two steps he was by my side, propping me up against a wall and pressing something to the missing chunk on my neck. It felt like a shirt, or a cloth napkin. It didn't matter. 
+Ramy turned to me then as I laid, limp, prone, and bleeding onto the ground. I weakly tried to scoot away, but in two steps he was by my side, propping me up against a wall and pressing something to the missing chunk on my neck. It felt like a shirt, or a cloth napkin. It didn't matter. 
 
 He let out a small laugh, "Damn. She really got you good, huh? You're a bad judge of character, you know that, Lab Rat?" 
 
