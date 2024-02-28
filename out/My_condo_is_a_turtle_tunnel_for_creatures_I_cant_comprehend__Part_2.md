@@ -1,4 +1,6 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/1avlld6/my_condo_is_a_turtle_tunnel_for_creatures_i_cant/)
+[Part List](https://www.reddit.com/r/theNoble/comments/1axcqgr/turtle_tunnel_series/)
+
+[Earlier...](https://www.reddit.com/r/nosleep/comments/1avlld6/my_condo_is_a_turtle_tunnel_for_creatures_i_cant/)
 
 As it turned out, the first step in ending my nightly torment involved taking my remaining savings to the hardware store. We replaced my flimsy and mangled bedroom door with a steel one, complete with a heavy deadbolt, an impact plate, all held in place with four inch screws.
 
@@ -113,3 +115,5 @@ Instinctively, I recoiled, nearly losing my balance again. "Woah... who are you?
 "Sorry, I didn't mean to scare you." She stood still, and lowered the blade. "Forgive me if I've forgotten my manners... it's been quite a while since I've spoken with anyone?"
 
 "Where--" I stopped myself. This wasn't the important question. ["Who are you?"](https://www.coleschapters.com/)
+
+[later...](https://www.reddit.com/r/nosleep/comments/1b2fhqi/my_condo_is_a_turtle_tunnel_for_creatures_i_cant/)

@@ -138,6 +138,8 @@ He started off by telling me that I was a fucking idiot. No disagreement there. 
 
 He also winked at me when he told me that he didn't do it out of the kindness of his heart. I'd have to repay him once I'd recovered, but he promised he'd be more fair than the woman with backwards feet had been. That wasn't much comfort.
 
+Update: [He made his request. ](https://www.reddit.com/r/nosleep/s/VPR6Hsodqr)
+
 
 
 
