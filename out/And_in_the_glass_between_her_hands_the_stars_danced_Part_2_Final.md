@@ -134,17 +134,17 @@ I closed my eyes and put my left little finger into the gnarled wooden lock. It 
   
 
   
-Bargains are sacred to my kind.
+"Bargains are sacred to my kind.
   
-Our word is our bond.
+ Our word is our bond.
   
-And there is no word more powerful than a name.
+ And there is no word more powerful than a name.
   
-You gave me your name and I took it as my own. Our names belong to each other.
+ You gave me your name and I took it as my own. Our names belong to each other.
   
-But my father’s name is his own.
+ But my father’s name is his own.
   
-And there’s only one place he’d keep it. 
+ And there’s only one place he’d keep it."
   
 
   
