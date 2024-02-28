@@ -18,7 +18,7 @@ I fumbled around for my glasses, and after putting them on, I was able to take a
 
 “I’m not.” I said through gritted teeth. I composed myself again. “Seriously though, who are you? Where are your parents?”
 
-“Our parents.” She corrected, hopping off the bed. She checked looked at my alarm clock. “It’s 11 o’clock, why are you still sleeping?” 
+“Our parents.” She corrected, hopping off the bed. She looked at my alarm clock. “It’s 11 o’clock, why are you still sleeping?” 
 
 “Because it’s my day off!” I scoffed. I couldn’t believe I was having a conversation with this girl - this child. Why was I entertaining her? I watched in annoyance as she traipsed round my small apartment, picking things up and not putting them back in their place. “Can you sit still for one minute, and tell me where your parents are? If not, I’ll call the police.” I stated, sternly. She sat down on my sofa compliantly.
 
