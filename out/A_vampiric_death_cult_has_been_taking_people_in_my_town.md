@@ -38,7 +38,7 @@ Behind him loomed a dozen of those vampiric abominations with eyes like pale moo
   
 As Saklas stepped forward triumphantly, I knew we were doomed. I saw death in his cold gaze and in his iron grin. Stacey gave a choked gasp. Tears streamed down her face. She silently sobbed, her back held tightly against the wall as she faced down her doom.  
   
-“Oh, I’m really sorry about all this,” Saklas said disingenuously, his eyes flashing with amusement and excitement. “But I have a job to do, after all. The Master says we must build an army. And, as a wise man once… an army runs on its stomach.” He gave a quick nod to his inhuman zealots. With a scream, Stacey disappeared out the window. I started to run toward her, my arm outstretched, but a pale blur zoomed across the room and tackled me.  
+“Oh, I’m really sorry about all this,” Saklas said disingenuously, his eyes flashing with amusement and excitement. “But I have a job to do, after all. The Master says we must build an army. And, as a wise man once said… an army runs on its stomach.” He gave a quick nod to his inhuman zealots. With a scream, Stacey disappeared out the window. I started to run toward her, my arm outstretched, but a pale blur zoomed across the room and tackled me.  
   
   
   
