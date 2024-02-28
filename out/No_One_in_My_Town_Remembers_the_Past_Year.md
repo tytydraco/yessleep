@@ -26,7 +26,7 @@ As the conversation spiraled deeper into the shared darkness of our memories, I 
 
 Then, from the back, the voice of my neighbor, Tom, cut through the quiet. "Can you still taste them?"
 
-Those four words were like a key turning in a lock I didn't know existed. A floodgate of memories opened, and with it came a rush of visceral, undeniable truth. I was back there, in the clearing, the fog caressing my skin with cold fingers. And there, in my hands, was flesh. Cooked human flesh. The horror of the realization was paralyzing, but even as my mind recoiled, my senses betrayed me. The taste, the texture, it was all there, horrifyingly vivid.
+Those five words were like a key turning in a lock I didn't know existed. A floodgate of memories opened, and with it came a rush of visceral, undeniable truth. I was back there, in the clearing, the fog caressing my skin with cold fingers. And there, in my hands, was flesh. Cooked human flesh. The horror of the realization was paralyzing, but even as my mind recoiled, my senses betrayed me. The taste, the texture, it was all there, horrifyingly vivid.
 
 As if watching through someone else's eyes, I saw myself take a bite, the act so barbaric yet so achingly familiar. And then I saw it, the remnants of a tattoo on the charred skin.
 

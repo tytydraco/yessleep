@@ -72,7 +72,7 @@ My body kept trying to pull me back toward the threshold, the lack of sleep hitt
 
 I stared into the black as the time passed. All I could do was let the time pass. Things formed in the darkness of my hallway, my mind playing tricks and filling the space with grotesque makeshift people. At first, it was just distorted blobs, indescribable and moving. But as I started to take notice of them, letting my eyes follow their path, they started to take notice of me. Staring back with large eyes that would rot inward and regrow in front of my eyes, decaying but never leaving my form. Begging me to blink first. Pleading for me to step forward, lean into them just an inch. They would take me in their cold grasp and I would become their eyes.
 
-I could feel fingers wrapping around my ribs, grasping and pulling my forward. Just as it felt they were going to break, just as I started to let them take me,
+I could feel fingers wrapping around my ribs, grasping and pulling me forward. Just as it felt they were going to break, just as I started to let them take me,
 
 I felt the sun hit the side of my cheek.
 
