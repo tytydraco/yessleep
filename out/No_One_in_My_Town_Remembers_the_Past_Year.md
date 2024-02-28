@@ -1,16 +1,16 @@
-The morning I woke up to find girlfriend Ava gone was like a splash of cold water to the face. At first, I thought she had left for an early shift at her job at the diner in downtown Eldridge, a sleepy little town that rarely saw anything more exciting than the annual fall fair. My phone was dead, which was odd because I could've sworn I plugged it in the night before. After rummaging through the drawers for a charger and giving it some juice, the date flashing on the screen made my heart stop. 
+The morning I woke up to find my girlfriend Ava gone was like a splash of cold water to the face. At first, I thought she had left for an early shift at her job at the diner in downtown Eldridge, a sleepy little town that rarely saw anything more exciting than the annual fall fair. My phone was dead, which was odd because I could've sworn I plugged it in the night before. After rummaging through the drawers for a charger and giving it some juice, the date flashing on the screen made my heart stop.
 
 February 17, 2024. That couldn't be right. Last night was February 16, 2023.
 
 I stumbled out of bed, my heart racing as I dialed Ava’s number, only to be greeted by the cold, impersonal tone of a disconnected line.
 
-The streets were just as confused and silent as I felt. Neighbors milled around, some in tears, others with a dazed look I probably mirrored. It wasn't just Ava; others were missing too. 
+The streets were just as confused and silent as I felt. Neighbors milled around, some in tears, others with a dazed look I probably mirrored. It wasn't just Ava; others were missing too.
 
 "We're doing everything we can," the sheriff assured everyone at the press conference, his eyes hollow, reflecting a year of questions with no answers.
 
 The police investigation stirred up more confusion than clarity. The only common thread was the last thing anyone could recall: a thick, unnerving fog that had swallowed the town whole.
 
-Hours turned into days, and with each passing moment, the weight of our collective amnesia pressed heavier. Then the visions started. At first, I thought they were nightmares, fragments of a subconscious trying to make sense of the nonsensical. But when I overheard Mrs. Henderson at the grocery store, whispering about the shadows she'd seen in her dreams, I realized these weren't just personal demons. Others were all seeing them as well. 
+Hours turned into days, and with each passing moment, the weight of our collective amnesia pressed heavier. Then the visions started. At first, I thought they were nightmares, fragments of a subconscious trying to make sense of the nonsensical. But when I overheard Mrs. Henderson at the grocery store, whispering about the shadows she'd seen in her dreams, I realized these weren't just personal demons. Others were all seeing them as well.
 
 In the days that followed, a makeshift support group formed. We were a band of the bereaved, each of us missing a piece of our lives, desperately searching for answers in a town that had none to give. We met in the back room of Eldridge's library, a space generously offered by the librarian, Sara, who was missing her husband and children.
 
@@ -22,7 +22,7 @@ Every account converged on a single scene: a clearing in the woods, enveloped in
 
 The memories were fragmented, like shards of glass reflecting pieces of a whole we couldn’t quite grasp. But as we shared, the picture became clearer, and a chilling realization settled over us: We had all been there, standing in a circle around the altar, our hands joined in a pact we could scarcely comprehend.
 
-As the conversation spiraled deeper into the shared darkness of our memories, I found myself speaking without thought, my voice a stranger to my own ears. "It was the only way," I heard myself say, "the only way the fog would let the town go." The room fell into a hushed silence, the weight of my words hanging heavy in the air. 
+As the conversation spiraled deeper into the shared darkness of our memories, I found myself speaking without thought, my voice a stranger to my own ears. "It was the only way," I heard myself say, "the only way the fog would let the town go." The room fell into a hushed silence, the weight of my words hanging heavy in the air.
 
 Then, from the back, the voice of my neighbor, Tom, cut through the quiet. "Can you still taste them?"
 
@@ -34,7 +34,7 @@ The revelation hit me like a truck, sending me spiraling into a nightmare I coul
 
 As I tried to catch my breath, gasping for air that suddenly felt too thick to breathe, Sara's screams tore through the eerie silence of the library. Her cries, raw and filled with an agony that words couldn't possibly capture, echoed off the walls. She collapses into a heap on the floor, her body wracked with sobs that seemed to shake the very foundation of the room.
 
-"I ate them... My God, I ate my children!" 
+"I ate them... My God, I ate my children!"
 
 [X](https://www.reddit.com/r/PageTurner627Horror/)
 
