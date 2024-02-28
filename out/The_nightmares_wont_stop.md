@@ -1,4 +1,4 @@
-I have been having night terrors. Now I know at first, that doesn't sound like much, but I've been having the same one, over and over again every night and I always wake up the same: screaming and drenched in a pile of my own sweat. 
+I have been having night terrors. Now I know that doesn't sound like much, but I've been having the same one, over and over again every night and I always wake up the same: screaming and drenched in a pile of my own sweat. 
 
 Not only that, but in every dream I encounter this faceless, anomalous man.
 
@@ -22,7 +22,9 @@ If my sister manages to find this, then I'm sorry for what you're about to read.
 
 My therapist recommended that I start journaling, so here I am. I was hesitant at first, but obviously, I eventually caved in. Not because she told me to but because I wanted to seize the opportunity to record my dreams. They’re what’s important right now anyway, and way more interesting than anything else my real life has to offer, at least at the moment. 
 
-I know they say that dreams are supposedly visualizations of your brain processing information and all that, but I’m not so sure I actually believe it. I mean yeah, of course sometimes that’s the case, like when I have dreams centered around what I did that day. But how can you say that me dreaming about meeting a cult high up on some desolate rooftop, who claim to identify as another race and in turn wear the freshly harvested skin of people just to satisfy their personal perception, is me processing things? 
+I know they say that dreams are supposedly visualizations of your brain processing information and all that, but I’m not so sure I actually believe it. I mean yeah, of course sometimes that’s the case, like when I have dreams centered around what I did that day. 
+
+But how can you say that me dreaming about meeting a cult high up on some desolate rooftop, who claim to identify as another race and in turn wear the freshly harvested skin of people just to satisfy their personal perception, is me processing things? 
 	
 I call bullshit.
 	
@@ -34,7 +36,9 @@ Last night, it was the same thing, but this time, something unusual happened. It
 
 This is what I recollected:
  	
-We were at a park feeding ducks. It was oddly serene compared to the usual atmosphere I’d encounter, and he was in a very talkative mood for some reason. I remember bending down to grab a handful of feed conveniently placed by my feet, and as I descended, I heard him say something interesting.
+We were at a park feeding ducks. It was oddly serene compared to the usual atmosphere I’d encounter, and he was in a very talkative mood for some reason. 
+
+I remember bending down to grab a handful of feed conveniently placed by my feet, and as I descended, I heard him say something interesting.
 
 “You don’t remember, do you?”
 
@@ -54,7 +58,9 @@ I took a few steps away from The Man and launched the food out of my palm as if 
 
 “You only ever ask questions,” I said plainly. He laughed. 
 	
-It was true though, that our conversations in my dreams were limited. Usually, we would communicate through my subconscious. Him influencing my intuition and guiding me to places, things, and conclusions. Never saying words, only thinking them in my direction. But for some reason, he wanted to talk to me. One on one. My eyes followed a few strands of pellets as they splashed into the pond a few meters away. 
+It was true though, that our conversations in my dreams were limited. Usually, we would communicate through my subconscious. Him influencing my intuition and guiding me to places, things, and conclusions. Never saying words, only thinking them in my direction. 
+
+But for some reason, he wanted to talk to me. One on one. My eyes followed a few strands of pellets as they splashed into the pond a few meters away. 
 
 “Are you always this standoffish?”
 
@@ -62,7 +68,9 @@ I could feel his gaze, cold just like his hand.
 
 “Only when you’re around.”
 
-A shit-eating grin formed along my face as I turned to meet him, but to my surprise, he had vanished. Instantly, I was engulfed with the sensation of despair and suddenly heard a noise coming from a path to the right of me. It led to a vastly dense forest that seemed to appear right out of nowhere (adhering to the logic of dreams), and a cobblestone path touched the tips of my shoes as it beckoned me to follow it. I uncontrollably began to slowly venture down it, though my mind was screaming no. 
+A shit-eating grin formed along my face as I turned to meet him, but to my surprise, he had vanished.
+
+Instantly, I was engulfed with the sensation of despair and suddenly heard a noise coming from a path to the right of me. It led to a vastly dense forest that seemed to appear right out of nowhere (adhering to the logic of dreams), and a cobblestone path touched the tips of my shoes as it beckoned me to follow it. I uncontrollably began to slowly venture down it, though my mind was screaming no. 
 Don’t. 
 Stop. 
 	

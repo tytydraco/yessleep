@@ -90,7 +90,7 @@ He lifted his shirt and had an old scar covering his entire lower belly and poin
 
 "But! You're with us!"
 
-She pointed over to a wall that I hadn't noticed that seemed to be multiple A3 pages pinned to the wall. All the sheets were in grids and the more I focused the more I saw highlighted areas with red circles. At the middle, a house drawn in red marker. I deduced it was a map and the place I was in was the middle, but what were the other markers for? I didn't get the chance to ask as she continued.
+She pointed over to a wall I hadn't noticed that seemed to be covered in multiple A3 pages pinned to the wall. All the sheets were in grids and the more I focused the more I saw highlighted areas with red circles. At the middle, a house drawn in red marker. I deduced it was a map and the place I was in was the middle, but what were the other markers for? I didn't get the chance to ask as she continued.
 
 "We have a plan to leave, or at least try to leave. It can't go on forever and Atlas heard some rumours that this place has its own type of compass, two of our members are out now to the closest group we're on good terms with, they should be back in two days."
 

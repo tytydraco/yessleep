@@ -1,4 +1,4 @@
-[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1b09akm/somewhere_beneath_us_part_24/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web2x&context=3)
+[{Previous Part}](https://www.reddit.com/r/nosleep/comments/1b09akm/somewhere_beneath_us_part_24/?utm_source=share&utm_medium=web2x&context=3) \~ [{Part List}](https://www.reddit.com/user/Ink_Wielder/comments/1ajypwi/somewhere_beneath_us_part_list/?utm_source=share&utm_medium=web2x&context=3) \~ [{Next Part}](https://www.reddit.com/r/nosleep/comments/1b1xpql/somewhere_beneath_us_final/?utm_source=share&utm_medium=web2x&context=3)
 
 &#x200B;
 
@@ -387,3 +387,7 @@ Frank began to walk through the doorway, and the light fully engulfed us both. T
 As I drifted into unconsciousness, a heavy realization finally dawned on me, one that I hadn't let myself accept until I was certain we were walking through that door: It was finally over.
 
 For four and a half years we had lived among decrepit walls and moldy carpets, surviving on food long expired and the company of people once strangers. But on that day, we finally left the house behind as a family, and a whole mess of pain and suffering along with it.
+
+&#x200B;
+
+[{Next Part}](https://www.reddit.com/r/nosleep/comments/1b1xpql/somewhere_beneath_us_final/?utm_source=share&utm_medium=web2x&context=3)

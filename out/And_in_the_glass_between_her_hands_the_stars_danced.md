@@ -353,3 +353,5 @@ But I should have remembered the night I met Elise.
 In the glass, the stars had danced.
 
 \* \* \*
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1b1wzc0/and_in_the_glass_between_her_hands_the_stars/)
