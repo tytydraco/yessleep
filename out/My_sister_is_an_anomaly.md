@@ -4,7 +4,7 @@ When it gets swept away, unexplained, however much the anomaly has affected your
 
 My sister is an anomaly now.
 
-It started last week, when she complained about her hand feeling strange. A tingling sensation. The doctors almost flat-out refused to do anything. I want to be angry, but then I remember telling her my own thoughts. "It's nothing - Everyone gets weird feelings. It'll pass."
+It started with a simple complaint about her hand feeling strange. A tingling sensation. The doctors almost flat-out refused to do anything. I want to be angry, but then I remember telling her my own thoughts. "It's nothing - Everyone gets weird feelings. It'll pass."
 
 It's what everyone told her. I suppose we thought we were reassuring her.
 
