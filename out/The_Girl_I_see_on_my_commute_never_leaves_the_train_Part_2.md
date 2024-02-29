@@ -37,7 +37,7 @@ My head was spinning, if he could move my body with just the beckoning of his fi
 
 “Truth is, Corporeal, you amuse me. So many others run, if they had the chance. But you…came back. You actually came back. That was a nice trick, by the way, pretending you were on the phone. But I have seen you, and I know when you’re talking to someone alive and someone who is not. Speaking of which, you wish to help this girl, whom you’ve just met? Now that is something I want to see you try. I will make you a deal, Corporeal. You can help this girl, and all others who you meet on this train. I’ll give you one week’s time. I will not interfere, I will not cause trouble. If you cannot save them, I’ll devour your soul. I’ll use your body and throw you on to the tracks. I’ll feed on your fear as you beg for mercy or death or whichever you prefer. And if you try to run away…”
 
-He reached into his jacket pocket and pulled out something black and rectangular. It had accents of gold, it looked like some type of writing on it. He handed it to me, and my hands were shaking. Through the thick vapor of my cold breath, I read the object he gave me. It was an address plaque. My address plaque. The one that sat above door for almost my whole life. 
+He reached into his jacket pocket and pulled out something black and rectangular. It had accents of gold, it looked like some type of writing on it. He handed it to me, and my hands were shaking. Through the thick vapor of my cold breath, I read the object he gave me. It was an address plaque. My address plaque. The one that sat above my door for almost my whole life. 
 
 “I may not be able to leave the station, but I have friends in other regions who know exactly where to find you.”
 
