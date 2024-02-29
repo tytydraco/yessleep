@@ -2,7 +2,7 @@
 
 &#x200B;
 
-Alice stared for a moment, her mouth parted as if to say something, but no words came out, "Joel, I know you're upset about your friend and Ethan, but that's insane. Whatever that thing is is far beyond our understanding. How would you even attempt to *kill* it\*?\*"
+Alice stared for a moment, her mouth parted as if to say something, but no words came out, "Joel, I know you're upset about your friend and Ethan, but that's insane. Whatever that thing is is far beyond our understanding. How would you even attempt to *kill* it?"
 
 "I told you Ethan had injured it, remember? If I can get close enough to it, I think I can finish it off."
 
