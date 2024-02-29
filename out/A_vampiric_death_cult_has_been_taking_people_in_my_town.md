@@ -44,7 +44,7 @@ As Saklas stepped forward triumphantly, I knew we were doomed. I saw death in hi
   
 \*\*\*  
   
-A large, thin vampire came loping around the front of the trailer, effortlessly draggina  struggling Stacey behind him. Stacey and I had our hands yanked behind our backs. We were dragged into the kitchen, where the grinning, stony faces of the monsters regarded us with bloodlust and hunger.  
+A large, thin vampire came loping around the front of the trailer, effortlessly dragging a struggling Stacey behind him. Stacey and I had our hands yanked behind our backs. We were dragged into the kitchen, where the grinning, stony faces of the monsters regarded us with bloodlust and hunger.  
   
 “OK, who gets these ones?” Saklas asked in a bored tone. The little girl stepped forward, gnashing her teeth. A small rivulet of clear drool dripped from her tiny, pursed mouth.  
   
@@ -76,7 +76,7 @@ The old man continued advancing on the vampires surrounding Stacey, striking at 
   
 Stacey had started to regain consciousness. Her eyes fluttered and she moaned softly. She crawled forward, pushing herself up slowly with her trembling hands. Thin rivulets of blood continued to stream down her neck, staining her white shirt with crimson splotches.  
   
-“Come on, fuckers!” the old man cried in a battle frenzy at me as another vampire rushed him. He brought the blade straight down into the center of the vampiric man’s skull. His head split open with a crunch of bones and a blossoming explosion of gore and brains.   
+“Come on, fuckers!” the old man cried in a battle frenzy as another vampire rushed him. He brought the blade straight down into the center of the vampiric man’s skull. His head split open with a crunch of bones and a blossoming explosion of gore and brains.   
   
 “You two! It’s time to go!” he yelled at us. I didn’t need any more encouragement than that. I ran over to Stacey, threading my arms under her shoulders before dragging her up. She staggered, putting out her hands before her like a blind person. I wrapped my arm around her and helped her stumble forward.  
   
