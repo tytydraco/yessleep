@@ -141,3 +141,9 @@ Finishing those thoughts, the doors slid open, greeting me with a swift breeze a
 On the bench a few feet in front of me was that nightmare I was hoping to never see again. The same skinny, lanky man looking down to where I couldn’t see his face, but I knew it was him. He was sitting there, waiting for me. 
 
 It was the Thin Man. 
+
+
+__________
+
+
+[Part 2](https://www.reddit.com/r/nosleep/s/O0IJ1oS9iZ)
