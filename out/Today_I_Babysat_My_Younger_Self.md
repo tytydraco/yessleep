@@ -1,8 +1,8 @@
 Today was my day off. 
 
-Well, actually, I work from home on Wednesdays, but I had completed most of my designs on the weekend, so I only had to spend a bit of time on the upcoming project plan. It wouldn’t had taken more than a couple of hours to do anyway. Except, I didn’t manage to do anything at all, because of the kid that sat at the foot of my bed when I woke up.
+Well, actually, I work from home on Wednesdays, but I had completed most of my designs on the weekend, so I only had to spend a bit of time on the upcoming project plan. It wouldn’t have taken more than a couple of hours to do anyway. Except, I didn’t manage to do anything at all, because of the kid that sat at the foot of my bed when I woke up.
 
-I have to say, I am deeply embarrassed at the numerous curses that unfurled out of my mouth when I first spotted her. I mean, screaming, “get out, you (see you next Tuesday)!” At a child that couldn’t have been older than six years old was not the most appropriate thing to do. But to be fair, a random child sitting on your bed in the morning  would elicit a strong reaction from just about anyone. Maybe not a series of swears, but certainly fright at a minimum. 
+I have to say, I am deeply embarrassed at the numerous curses that unfurled out of my mouth when I first spotted it. I mean, screaming, “get out, you (see you next Tuesday)!” At a child that couldn’t have been older than six years old was not the most appropriate thing to do. But to be fair, a random child sitting on your bed in the morning  would elicit a strong reaction from just about anyone. Maybe not a series of swears, but certainly fright at a minimum. 
 
 I fumbled around for my glasses, and after putting them on, I was able to take a good look at them — her. She was small, so my assumption that she was around six seemed correct. She was tanned, with long, brown hair and a fringe covering her forehead. It was a similar colour to mine. Chubby cheeks, and a school uniform on. My old primary school uniform. That was really weird. She was visibly shaken from my words. 
 
