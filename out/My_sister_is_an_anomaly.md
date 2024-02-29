@@ -38,7 +38,7 @@ Her voice broke slightly. It broke all of us along with it. To sound so dazed an
 
 It was the last time I saw her with any description of human emotion.
 
-She lunged towards my mother in the doorway - Not to hurt her, but just to leave to room. Although, with all the urgency she had in her movement, I don't believe she would have cared if she had hurt anybody on the way out.
+She lunged towards my mother in the doorway - Not to hurt her; Just to leave the room. Although, with all the urgency she had in her movement, I don't believe she would have cared if she had hurt anybody on the way out.
 
 We all called out for her, but she didn't turn back around. She didn't speak. She just ran through the house.
 
@@ -56,7 +56,7 @@ Her voice, raspy and weak, frightened me. Her black hair, usually down to her sh
 
 My voice shook as I spoke, trying to calm her. "We'll fix this," I held out my hand.
 
-For a moment, I thought she might hold out her own. Maybe she would have if the sirens weren't so loud. An ambulance at the front of the house caught her attention as she let go of the tree - Her snake-like limbs falling the ground, as she made her way over the fence.
+For a moment, I thought she might hold out her own. Maybe she would have if the sirens weren't so loud. An ambulance at the front of the house caught her attention as she let go of the tree - Her snake-like limbs falling to the ground, as she made her way over the fence.
 
 They never caught her. We never found her. Her funeral was held a month later.
 
@@ -70,7 +70,7 @@ Is she still out there, stretched?
 
 I got my answer last night.
 
-Unable to sleep, I slowly became more acutely aware of a tapping noise. I don't know how long it had been going before my mind allowed it to be perceived - Seconds? Minutes? Hours? I suppose it doesn't matter - Once I had heard it, it stayed. 5 taps, rhythmically pattering against my window, behind the curtain.
+Unable to sleep, I slowly became acutely aware of a tapping noise. I don't know how long it had been going before my mind allowed it to be perceived - Seconds? Minutes? Hours? I suppose it doesn't matter - Once I had heard it, it stayed. 5 taps, rhythmically pattering against my window, behind the curtain.
 
 Sick of the noise, I got up, ready to see tree branches blowing in the wind.
 
