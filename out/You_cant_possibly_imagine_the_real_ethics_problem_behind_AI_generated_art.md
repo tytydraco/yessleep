@@ -24,7 +24,7 @@ Some requests were vile. leaving me dry heaving, shaking, and occasionally shutt
 
 The passage of time became impossible to manage. The lighting never changed. I never slept. Paint never seemed to deplete. 
 
-For a time I tried to number my creations, but eventually lost track. The art supplies never dwindled. The whole room itself seemed to reset for each project, erasing any markings or notes I made. 
+For a time I tried to number my creations, but eventually lost track. The art supplies never dwindled. The whole room itself seemed to reset for each project, erasing any markings or notes I made.
 
 As I slipped into madness, I watched the quality of my work degrade until my creations scarcely resembled the original request.
 
@@ -62,6 +62,6 @@ What they did... juicing me for all that art... seemed to obliterate most of my 
 
 Still, one cop keeps coming back to my hospital room to see if I remember any more. He's persistent. Always seems to look relieved when I tell them I don't.
 
-A normal life seems out of the question for now. But I suppose I'm lucky to be alive. 
+A normal life seems out of the question for now. But I suppose I'm lucky to be alive.
 
-I guess I'm sharing my story primarily to let you know what really goes into "AI Generated Art..." and what [the process takes away from us artists.](https://www.coleschapters.com)
+I guess I'm sharing my story primarily to let you know what really goes into "AI Generated Art..." and what the process takes away from [us artists.](https://www.coleschapters.com)

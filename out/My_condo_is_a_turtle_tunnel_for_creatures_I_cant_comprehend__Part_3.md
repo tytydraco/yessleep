@@ -160,4 +160,4 @@ I squinted my aching eyes against the gloom. Was that light ahead? I fluttered m
 
 I reached out, and my hand broke the surface. My stomach turned inside out, as my sense of gravity reoriented. I'd swam to the bottom, and reached the top?
 
-A pair of strong arms reached around me, wrenched me from the deep and [into a blinding, brilliant light.](https://www.coleschapters.com/)
+A pair of strong arms reached around me, wrenched me from the deep and into a blinding, [brilliant light.](https://www.coleschapters.com)

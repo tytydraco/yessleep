@@ -114,6 +114,6 @@ Instinctively, I recoiled, nearly losing my balance again. "Woah... who are you?
 
 "Sorry, I didn't mean to scare you." She stood still, and lowered the blade. "Forgive me if I've forgotten my manners... it's been quite a while since I've spoken with anyone?"
 
-"Where--" I stopped myself. This wasn't the important question. ["Who are you?"](https://www.coleschapters.com/)
+"Where--" I stopped myself. This wasn't the important question. "Who [are you](https://www.coleschapters.com)?"
 
 [later...](https://www.reddit.com/r/nosleep/comments/1b2fhqi/my_condo_is_a_turtle_tunnel_for_creatures_i_cant/)
