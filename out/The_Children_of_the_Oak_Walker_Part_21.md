@@ -1,5 +1,7 @@
 [\[Part 20\]](https://www.reddit.com/user/RandomAppalachian468/comments/1b1aruy/the_children_of_the_oak_walker_part_20/)
 
+[\[Part 22\]](https://www.reddit.com/user/RandomAppalachian468/comments/1b42m6r/the_children_of_the_oak_walker_part_22/)
+
 “Feel free to borrow anything that strikes your fancy.”
 
 I jumped despite myself, so absorbed in my book that I hadn’t heard Professor Carheim approach through the maze of bookshelves in the tiny library. “Oh, thanks, but we’ll be leaving on the patrol soon. I just wanted to get a few more pages in.”
