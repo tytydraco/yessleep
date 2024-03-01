@@ -15,9 +15,7 @@ My apologies in advance that this story will likely be less theatrical and well 
 Anyway, enough rambling, let’s just get into what happened.
 
   
-Not long after I posted my first story I got a call from my mom. She told me that my grandparents old house was back on the market and since my grandparents have both passed, she really wanted to go and take a stroll down memory lane with me. That house had been part of her life since she was born until they moved so I could sympathize with her wanting to go back. I could tell by the
-
-I could tell by the emotional tone in her voice when she asked me to come with her this was really important to her.   
+Not long after I posted my first story I got a call from my mom. She told me that my grandparents old house was back on the market and since my grandparents have both passed, she really wanted to go and take a stroll down memory lane with me. That house had been part of her life since she was born until they moved so I could sympathize with her wanting to go back. I could tell by the emotional tone in her voice when she asked me to come with her this was really important to her.   
 I thought to myself that maybe this is a sign from the universe that it’s time to go back and confront my fears. I’d just written a story about it, so maybe this was the last piece of the puzzle I needed to fully heal. I had this grand plan of how I’d stroll down into the basement with all the confidence in the world, see nothing down there, conquer my fears, and finally move on with my life. It felt like the stars were aligning for me at the time. 
 
   
@@ -162,7 +160,7 @@ It spoke in a distorted, two-toned voice. It sounded as if someone was talking i
 ***I KNEW YOU’D COME BACK FOR ME***
 
   
-Its mouth never moved but it felt like it was screaming those words directly into my brain. Its mouth didn’t move with it's words when it spoke to me. 
+Its mouth never moved but it felt like it was screaming those words directly into my brain. 
 
   
 ***I’ve waited ssssoooooo long for you, GatorSwampWitch.*** 
@@ -175,7 +173,7 @@ Its mouth never moved but it felt like it was screaming those words directly int
 The way it paused when it said fear was similar to the way you might pause thinking of a cherished memory… or maybe your favorite food. Its mouth stretched farther open, showing its horrible needle-sharp teeth.  
 
   
-***Even as an adult there’s something about how deep your fear runs… your fear me of…. that is just so… mmmmmm sssssatisfying***
+***Even as an adult there’s something about how deep your fear runs… your fear of me…. that is just so… mmmmmm sssssatisfying***
 
   
 It turned its head a little bit too far to the side, seeming to eye me up and down. Then it showed the first expression of genuine emotion I’d ever seen on it- pure, furious rage.  

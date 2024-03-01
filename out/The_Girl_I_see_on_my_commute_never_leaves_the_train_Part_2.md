@@ -109,10 +109,10 @@ The plump man stood up, and addressed Zoe.
 
 Zoe nodded as he continued to stare at me with fascination. 
 
-“I haven’t seen on of your kind in so long. My name’s Percy.”
+“I haven’t seen one of your kind in so long. My name’s Percy.”
 
 The lady with the Afro spoke next. 
-“I’m Claire, it’s nice to meet you young man.”
+“I’m Claire, it’s nice to meet you, young man.”
 
 I looked at the guy with the leather jacket, expecting him to greet me. He looked me up and without a care in his face, and after a few seconds he told me his name. 
 “Dex. Short for…I don’t really know.”
@@ -121,7 +121,7 @@ Percy pointed to the little girl. “That’s Julia over there. Julia, come say 
 
 Julia slid off her seat and skipped toward me. Everyone looked kind of exhausted, just barely hanging on. But Julia had such a cheery nature to her. 
 
-“Hiya mister. Are you stuck on the train too?”
+“Hiya, mister. Are you stuck on the train too?”
 
 Her question caught me off guard, I didn’t want to rub being alive in her face, but I also didn’t want to lie to her. 
 
@@ -145,9 +145,9 @@ Dex scoffed, catching us all a bit by surprise considering he’s been so quiet 
 
 “Actually, it’s a train.” I figured a joke could help lighten the mood. Percy bellowed at my corny joke, and Julia giggled quite a bit. I even got a chuckle from Claire and Zoe, the latter giving me a face that said ‘that’s such a dumb joke but I’ll laugh anyway.’ The only one with zero reaction was Dex. 
 
-“Lighten up, Dex. If Zoe doesn’t wanna join us all the time, she doesn’t have to.” Percy shifted his focus to me. “I like you, kid. Now, down to business. Zoe says you’re gonna us?”
+“Lighten up, Dex. If Zoe doesn’t wanna join us all the time, she doesn’t have to.” Percy shifted his focus to me. “I like you, kid. Now, down to business. Zoe says you’re gonna help us?”
 
-Everyone’s ears perked up, and stared at me with a type of hope I’ve only seen in fiction. It felt like a lot of pressure was on me to fulfill this promise, for their sake and for mine. I told them everything, about meeting Zoe and about my encounter with the Thin Man. However, I did leave out the part of our “deal”. I’m not really sure why, it just felt disingenuous if I told the main motivation was just to save my own skin. Hours passed, I tried asking everyone questions about what happened in their lives, but just like Zoe, all they could remember was there names. With practically nothing to go off of, I had no idea where to even start. My thoughts were soon interrupted by a large yawn coming from Julia. 
+Everyone’s ears perked up, and stared at me with a type of hope I’ve only seen in fiction. It felt like a lot of pressure was on me to fulfill this promise, for their sake and for mine. I told them everything, about meeting Zoe and about my encounter with the Thin Man. However, I did leave out the part of our “deal”. I’m not really sure why, it just felt disingenuous if I told the main motivation was just to save my own skin. Hours passed, I tried asking everyone questions about what happened in their lives, but just like Zoe, all they could remember was their names. With practically nothing to go off of, I had no idea where to even start. My thoughts were soon interrupted by a large yawn coming from Julia. 
 
 “I’m tired. Mister, could ya take me to the front of the train?”
 
@@ -165,7 +165,7 @@ I looked over at the others to see if it was ok with them, with which Percy gave
 
 “Don’t worry, she’ll be fine. We’ll see you tomorrow, kid.”
 
-I sighed with a soft smile as I stopped down for her to hop on my back. She handed me her horse toy so it wouldn’t fall, so I stuffed it in my jacket pocket for safe keeping. I carried her all the way to the front car, Zoe walking right next to me. It’s so late, it’s deserted, not a single soul except for the two right by me. As I laid Julia on the comfiest seat I could find, Zoe I watched as she drifted off. 
+I sighed with a soft smile as I stooped down for her to hop on my back. She handed me her horse toy so it wouldn’t fall, so I stuffed it in my jacket pocket for safe keeping. I carried her all the way to the front car, Zoe walking right next to me. It’s so late, it’s deserted, not a single soul except for the two right by me. As I laid Julia on the comfiest seat I could find, Zoe I watched as she drifted off. 
 
 “So, do you guys really need sleep here?”
 
