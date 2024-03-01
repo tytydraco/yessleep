@@ -17,7 +17,7 @@ Anyway, enough rambling, let’s just get into what happened.
   
 Not long after I posted my first story I got a call from my mom. She told me that my grandparents old house was back on the market and since my grandparents have both passed, she really wanted to go and take a stroll down memory lane with me. That house had been part of her life since she was born until they moved so I could sympathize with her wanting to go back. I could tell by the
 
- emotional tone in her voice when she asked me to come with her this was really important to her.   
+I could tell by the emotional tone in her voice when she asked me to come with her this was really important to her.   
 I thought to myself that maybe this is a sign from the universe that it’s time to go back and confront my fears. I’d just written a story about it, so maybe this was the last piece of the puzzle I needed to fully heal. I had this grand plan of how I’d stroll down into the basement with all the confidence in the world, see nothing down there, conquer my fears, and finally move on with my life. It felt like the stars were aligning for me at the time. 
 
   
