@@ -126,7 +126,7 @@ Ramy looked amused as I shook my head quickly in embarrasment and tried again, "
 
 He said he didn't feel a thing. That was good, I suppose. It definitely looked painful. 
 
-After a moment of consideration, he gave me a mischievous look as he said, "Since you're so concerned about me, I'll give you another opportunity to help me out. Now, Lab Rat, this won't just be for my benefit, this'll be good for you, too. If you can get rid of all those wards on Matthew's door, I'll give you your voice back."
+After a moment of consideration, he gave me a mischievous look as he said, "Since you're so concerned about me, I'll give you another opportunity to help me out. Now, Lab Rat, this won't just be for my benefit, this'll be good for you, too. If you can get rid of all those [wards](https://www.reddit.com/r/nosleep/s/YyRoXJPdOJ) on Matthew's door, I'll give you your voice back."
 
 
 
