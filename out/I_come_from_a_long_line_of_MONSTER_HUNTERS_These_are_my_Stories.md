@@ -124,12 +124,4 @@ Then came a sonic boom, and I was back at home, consoling my grieving mother, wh
 
 “I’m a Sleether,” I told my grieving mother.
 
-Her eyes were oceans of blue. “I know, Sam.” She smiled sadly. \[“So am I.”\]
-
-
-
-(https://www.reddit.com/r/StoriesFromStarr/)
-
-\[Part One\](https://www.reddit.com/r/nosleep/comments/194ypw2/the\_terrifying\_tales\_of\_graveyard\_gary/?utm\_source=share&utm\_medium=web3x&utm\_name=web3xcss&utm\_term=1&utm\_content=share\_button)
-
-\[Part Two\](https://www.reddit.com/r/nosleep/comments/1amnm11/the\_terrifying\_tale\_of\_graveyard\_gary\_part\_2/?utm\_source=share&utm\_medium=web2x&context=3)
+Her eyes were oceans of blue. “I know, Sam.” She smiled sadly. So am I.”
