@@ -16,7 +16,7 @@ I lived in that cabin for three months without any major issues other than the c
   
 “No work, no stress, no pollution, no cars honking all the time…” I closed my eyes, breathing in the clean air. I ended up falling asleep for a couple hours, waking up just as the Sun had started setting. Bright orange streaks mixed with the bloody smears of the fading light as it disappeared behind the mountains.  
   
-I groggily arose, stumbling over to make a cup of instant coffee. As I sipped it, I wandered around the room, looking for something to pass the time. There were still quite a few random objects left behind by the last owner that I hadn’t gotten rid of yet. I had moved in to find a stocked bookshelf filled with classics by Philip K. Dick, Isaac Asimov and Robert Heinlein. Bored, I started rifling through the collection, looking for something good to pass the time. As I shuffled past “The Maze of Death” and “Ubik”, something caught my eye.  
+I groggily arose, stumbling over to make a cup of instant coffee. As I sipped it, I wandered around the room, looking for something to pass the time. There were still quite a few random objects left behind by the last owner that I hadn’t gotten rid of yet. I had moved in to find a stocked bookshelf filled with classics by Philip K. Dick, Isaac Asimov and Robert Heinlein. Bored, I started rifling through the collection, looking for something good to pass the time. As I shuffled past “A Maze of Death” and “Ubik”, something caught my eye.  
   
 A black, leather-bound book with no title or author name stood there, its cover faded with time and wear. Curious, I pulled it out and opened it. I saw the cursive scrawled across the pages in a neat, copperplate script and realized it was a diary left behind by the previous owner. The first entry was dated “January 9th, 2015.” This is what it said.  
   
@@ -40,7 +40,7 @@ A black, leather-bound book with no title or author name stood there, its cover 
   
 I slammed the diary shut, not wanting to read anymore. I didn’t want to become infected by some kind of contagious cabin fever. If the last owner had gone insane in the mountains and started hallucinating naked corpses crawling around, I really didn’t want to know.  
   
-I shoved the diary back in the bookshelf, going for “The Maze of Death” instead. I tried to forget what I had read in the diary as I flew through the novella. All night, I tried to get the image of the naked, twisting man with rotted eyes out of my head, but I couldn’t.  
+I shoved the diary back in the bookshelf, going for “A Maze of Death” instead. I tried to forget what I had read in the diary as I flew through the novella. All night, I tried to get the image of the naked, twisting man with rotted eyes out of my head, but I couldn’t.  
   
 I eventually fell asleep right before dawn. But, as my eyes were closing, I thought I saw a silhouette in the window- a starved man with excited, black eyes that seemed to be rotting out of his skull. I thought I saw him put his inhumanly long fingers against the glass as he leaned forward. I blinked, sitting up and glancing out into the white, snow-covered wonderland.  
   
