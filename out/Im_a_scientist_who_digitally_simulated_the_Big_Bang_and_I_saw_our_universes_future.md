@@ -1,4 +1,4 @@
-But that future no longer exists. And, soon, neither will I.
+But something killed that future, and I’m next.
 
 Dozen Minus is the convergence point for every elite physicist and computer scientist on the planet. It is advantageous to be qualified in both disciplines, given that the agency prides excellence above all things. As a result, I flourished. After years of studying, I became a qualified physicist and a qualified computer scientist. And yet, during my studies, I scarcely learnt anything.
 
