@@ -2,11 +2,11 @@ But something erased that future. Something that plans to erase me.
 
 Dozen Minus is the convergence point for every elite physicist and computer scientist on the planet. It is advantageous to be qualified in both disciplines, given that the agency prides excellence above all things. As a result, I flourished. After years of studying, I became a qualified physicist and a qualified computer scientist. And yet, during my studies, I scarcely learnt anything.
 
-At Dozen Minus, on the other hand, I unearthed complex truths beyond even the most involuted university course. Truths better left buried.
+At Dozen Minus, on the other hand, I unearthed complex truths beyond even the most taxing university course. Truths better left buried.
 
 Things we aren’t meant to know about reality.
 
-This unofficial organisation accepts nothing less than perfection. We must exceed physically, mentally, and even spiritually. Long ago, I doubted the existence of a plane beyond the tactile realm. Today, however, I saw something which left me without a shred of scepticism.
+This unofficial organisation accepts nothing less than perfection. We must excel physically, mentally, and even spiritually. Long ago, I doubted the existence of a plane beyond the tactile realm. Today, however, I saw something which left me without a shred of scepticism.
 
 I should’ve feared the brutality of Dozen Minus. Our monstrous overlords value mankind’s progression above mankind *itself*. They don’t care about you. They don’t even care about the geniuses who make their dreams happen. We are expendable. Commodities measured by profitability. Nothing more, and nothing less.
 
