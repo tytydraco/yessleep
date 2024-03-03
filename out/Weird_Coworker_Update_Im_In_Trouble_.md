@@ -130,7 +130,7 @@ I quickly looked through Google maps, hoping there would be some mysterious way 
 
 Minutes felt like hours as I watched the clock. All I wanted to do was run home, lock myself in, and hope that I didn't encounter Ramy on my way out. I ended up walking out five minutes early, hoping that my lab coordinator wouldn't care too much. 
 
-But whoever I had prayed to apparently didn't feel like answering: I rounded the hallway leadjng towards the elevator to see that Ramy was waiting for it.
+But whoever I had prayed to apparently didn't feel like answering: I rounded the hallway leading towards the elevator to see that Ramy was waiting for it.
 
 I didn't think he saw me. I quietly hurried to the stairwell. It was only three flights of stairs. It wouldn't be that bad, especially since being alone with him again terrified me. 
 
