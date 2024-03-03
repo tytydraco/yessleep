@@ -252,7 +252,7 @@ I half wondered if this boy had the same feverish urge like me.
 
 I let out a sob I couldn't control, my  nerve endings on fire. I wanted to kill my dad, right there, barely conscious and trapped, I wanted to wrap my hands around my father’s neck and squeeze until he was blue, until his eyes were rolling into the back of his head. 
 
-Still, fuck, I couldn't my eyes off of the *intelligence* being paraded in front of me. 
+Still, fuck, I couldn't take my eyes off of the *intelligence* being paraded in front of me. 
 
 This nineteen year old boy with a crooked smile, freckles speckling his cheeks. 
 
@@ -278,13 +278,15 @@ Following the store owner’s order to restrain me, they did, hesitant when my f
 
 His smile widened, and I heaved up my meagre dinner, spewing all over the guard. When I screamed, my cries were muffled, suffocated, I felt like I was choking. I was going to fucking die. 
 
-I have to get out of here, my thoughts were paralysed, fight or flight sending my body into a manic frenzy. 
+*I have to get out of here*, my thoughts were paralysed, fight or flight sending my body into a manic frenzy. 
 
 I wanted to find comfort in the boy on sale. 
 
 But he kept smiling, wider and wider. 
 
-The owner ignored my freak out, my violent struggle to survive, to claw my way back outside. It was dark outside, but the darkness felt safe, while light was threatening to plunge me deeper and deeper. The store owner was still speaking, and I took the opportunity to headbutt a guard. He let go instantly, and I dropped to my knees. 
+The owner ignored my freak out, my violent struggle to survive, to claw my way out of that place. It was dark outside, and we were so far away from home, but the darkness felt safe, while light was threatening to plunge me deeper and deeper. The store owner was still speaking, and I took the opportunity to headbutt a guard. 
+
+He let go instantly, and I dropped to my knees. 
 
 I was free. But I didn't know where to go.
 
@@ -338,7 +340,7 @@ Like I had been forced into slow motion.
 
 The back of my head had been shaved, and all of my hair was gone. 
 
-The ice cold surface of the surgical table made me shiver. 
+The freezing surface of the surgical table made me shiver. 
 
 When the sound of the saw became unbearable, I gave up and forced myself to peer through a curtain of plastic. 
 
