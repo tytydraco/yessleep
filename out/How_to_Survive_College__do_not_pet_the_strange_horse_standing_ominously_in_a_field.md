@@ -230,6 +230,8 @@ I didn’t know what to say to that, so I just told her that it just kind of wor
 
 That’s why I’m telling all of you, though, even though I don’t really want to hear what you’ll inevitably say.  Because why do I remember it differently than Maria?  Which one of us is wrong? [\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
 
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/1b59131/how_to_survive_college_in_my_defense_i_have_to/)
+
 [Read the current draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/18x7wnt/how_to_survive_college_v/)
 
 [Visit the college's website.](https://alderrayne.com/)
