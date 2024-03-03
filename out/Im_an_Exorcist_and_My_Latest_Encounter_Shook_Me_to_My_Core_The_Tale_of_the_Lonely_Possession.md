@@ -87,4 +87,4 @@ As this happened, the two once lifeless corpses of the cops were suddenly filled
 
 As I emerged from the house unscathed, I knew that I had witnessed something beyond the realm of my mortal comprehension. And though the mysteries of the universe remained as enigmatic as ever, I found solace in the knowledge that even the darkest souls could find redemption in the embrace of understanding and compassion.
 
-In the end, it was not my strength or my faith that saved this being, but something far more unexpected. As the possessed man lay vanquished at my feet, I saw not a monster, but a lost soul yearning for purpose in this cruel world of existence.
+In the end, it was not my strength or my faith that saved this being, but something far more unexpected. As the possessed man lay vanquished back inside the house, I did not see a monster, but a lost soul yearning for purpose in this cruel world of existence.
