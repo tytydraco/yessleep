@@ -64,7 +64,7 @@ Ok, 2 for 2. I needed to think of something no one bar myself would be able to k
 
 She paused for a second, before hesitating to answer. In a small, weak voice, she responded. “Uncle Harry.”
 
-My heart sank. She was correct. I felt like a villain, making a small child have to speak about such a horrible thing. Something that I, as an adult, have at least been able to work through, somewhat. I stood up, and sat down next to her, wrapping an arm around her shoulders. Well, I suppose they were my shoulders, at some point, but it felt too strange to call her myself as well. 
+My heart sank. She was correct. I felt like a villain, making a small child have to speak about such a horrible thing. Something that I, as an adult, have at least been able to work through, somewhat. I stood up, and sat down next to her, wrapping an arm around her shoulders. Well, I suppose they were my shoulders, at some point, but it felt too strange to call her myself as well. I passed her a tissue to aid her sniffles.
 
 “I’m sorry. Are you hungry?” I asked, in an attempt to soothe her. Instantly her eyes lit up, and she nodded fervently. “Okay, what would you like?” 
 
@@ -146,7 +146,7 @@ She looked at me with slight pity; a sympathetic nod that appreciated my despera
 
 “You won’t disappear right away. Just once I become who I want to be.” 
 
-Then she disappeared completely. I hadn’t even blinked, and she was gone. If it weren’t for the plate and cutlery that once held her pancakes, I would’ve considered that it had all been a dream. I looked up at the clock. 11:01am. 
+Then she disappeared completely. I hadn’t even blinked, and she was gone. If it weren’t for the plate and cutlery that once held her pancakes, I would’ve considered that it had all been a dream. I looked up at the clock. 11:01am. Rushing back to the living room window, I saw the people begin the move; the man and his dog walked, the cyclist cycled, and the woman on the bench swallowed a large chunk of her sandwich. In the corner of my eye, I saw it - a scrunched up ball of tissue that ‘younger me’ blew her nose into. At that point, there was no doubt in my mind that this was all very, very real, and the persistent dread that racked my body was only further confirmation of such. 
 
 So that’s that. I babysat my younger self, and now I’m filled with the existential dread that, at some point, I will cease to exist; erased from time completely - a mistake. Yet, as I type this, there is a small part of me that feels… almost happy. Not for myself, but for her. The me that I neglected. Maybe she will have a better life than the one I never managed to live properly. I suppose I shouldn’t have let the cynicism of adult life overwhelm me.
 
