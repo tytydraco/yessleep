@@ -12,7 +12,7 @@ A wooden door.
   
 The door would be locked with the same golden brass lock, and no one was ever allowed in there.  
 When grandpa died when I was 13, Annie distanced herself away from us.  
-We wouldn’t see her familiar face at thanksgiving. You wouldn’t see her smiling, wrinkled face bringing the roast turkey at setting it at the table.  
+We wouldn’t see her familiar face at thanksgiving. You wouldn’t see her smiling, wrinkled face bringing the roast turkey and setting it at the table.  
 We missed her very dearly, to say the least.  
   
   
