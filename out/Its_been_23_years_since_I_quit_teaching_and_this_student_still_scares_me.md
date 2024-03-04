@@ -40,7 +40,7 @@ The bullets had barley left their guns before stopping mid air to reposition the
 
 All of the staff was huddled like a coven of witches around the laptop now. A coven of middle aged, teachers salary witches, scared shitless as we saw on screen, that Tommy now stood outside the teachers lounge. We all knew what was coming as the door blasted off it’s hinges.
 
-The faculty panicked and threw any close object they could grab towards Tommy, I remember shouts of *GET AWAY FROM ME YOU LITTLE MONSTER!!* and *IM NOT FUCKING DYING LIKE THIS!! I WAS SUPPOSED TO RETIRE TO FLORIDA THIS YEAR!!” 
+The faculty panicked and threw any close object they could grab towards Tommy, I remember shouts of *GET AWAY FROM ME YOU LITTLE MONSTER!!* and *IM NOT FUCKING DYING LIKE THIS!! I WAS SUPPOSED TO RETIRE TO FLORIDA THIS YEAR!!*
 
 Eyes popped out of skulls, limbs were ripped from sockets with sick wet tearing noises and teachers sailed around the room in the air so fast and with such force that when they hit the ground, they exploded like a balloon full of jelly. And the whole time, I just crouched in the corner, shaking and terrified.
 
