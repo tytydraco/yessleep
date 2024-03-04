@@ -20,7 +20,7 @@ I still can't decide if I was alarmed or relieved to see him sitting at his comp
 
 Despite this reassurance that I didn't leave an injured man for dead, I didn't feel much better. I still had no idea how to handle any of this. Should I pretend like nothing is wrong? Should I confront him?
 
-No, confrontation seemed like a a terrible idea. If he was dangerous, I didn't want to put myself at risk (he says on an internet post that said IT guy could potentially find). After allowing my last two braincells to argue with each other for way too long, I figured that the best thing to do was to  play it by ear. See what he does before I make any stupid decisions. 
+No, confrontation seemed like a terrible idea. If he was dangerous, I didn't want to put myself at risk (he says on an internet post that said IT guy could potentially find). After allowing my last two braincells to argue with each other for way too long, I figured that the best thing to do was to  play it by ear. See what he does before I make any stupid decisions. 
 
 So I went to work. 
 
@@ -38,7 +38,7 @@ He considered, then smirked, "Two things can be true at once, Lab Rat."
 
 Naturally, he didn't call me Lab Rat, he used my real name. I just feel like a bunch of rats in a trench coat masquerading as a person, so it seems like a good pseudonym for me. And while we're on that subject, I think it might be easier to give IT guy a fake name from here on out. He mentioned once that he is Iraqi. After bouncing around some middle eastern baby name sites, I think Ramy should work. 
 
-As for my observation of him, I didn't see a single mark on him. I really, really don't think it was his blood, now. 
+As for my observation of him, I didn't see a single mark on him. I really, *really* don't think it was his blood, now. 
 
 
 Ramy didn't seem to notice or care that I was acting like some twitchy prey animal. I guess it helps that I act like it's my first time ever encountering another human being on a regular basis, so his standards for me must be low. Maybe my social ineptitude will work in my favor, for once. 
