@@ -132,7 +132,7 @@ I was feeling anxious even before we reached the front door and could hear her d
 
 “Aw, my poor buddy was stuck here all alone all night! I’m so sorry. I was getting someone to help us. Yes, I was.” Alice glanced back at me and said, “Joel, this is Hairy Styles. The love of my life. Hairy, this is Joel… He a’ight.”
 
-“Pleased to meet you,” I said, greeting Hairy with a quick wave as I followed Alice inside and began to survey the foyer. “Remember that this needs to be quick. Just the essentials. Dawn is in a couple hours and we don’t wanna be anywhere near this place by then.”
+“Pleased to meet you,” I said, greeting Hairy with a wave as I followed Alice inside and began to survey the foyer. “Remember that this needs to be fast. Just the essentials. Dawn is in a couple hours and we don’t wanna be anywhere near this place by then.”
 
 “Why?”
 
