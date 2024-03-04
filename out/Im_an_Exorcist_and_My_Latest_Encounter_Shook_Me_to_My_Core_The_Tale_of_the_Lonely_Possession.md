@@ -12,7 +12,7 @@ I demanded, my voice steady despite the fear crawling at my insides.
 
 The possessed figure smirked; a cruel twist of its lips sent a shiver down my spine. 
 
-"I am no demon or angel, neither Satan nor God like you may believe." They replied, their voice echoing with an otherworldly resonance. 
+"I am no demon or angel, neither a devil nor a god like you may believe." They replied, their voice echoing with an otherworldly resonance. 
 
 "I am something beyond your comprehension, something older than time itself. I am a remnant of a forgotten age."
 
