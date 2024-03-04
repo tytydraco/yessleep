@@ -43,3 +43,4 @@ I thought that the fog had left my body, but lately I find myself losing more an
 
 
 I'm terrified of what I may be doing during the time I lose, and what I did during the weeks lost. I just wanted to go camping.   
+[X](https://www.reddit.com/r/cmpaizspooks/s/vm0XAEw6rs)

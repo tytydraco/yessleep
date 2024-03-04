@@ -43,3 +43,5 @@ I have my suspicions about the man at the grocery store. He could see the woman 
 I had hoped finding her had allowed her to finally rest, but in the middle of the day yesterday the all-consuming blackness surged back, despite warm daylight streaming through my front window moments before, and it will not relent. She still needs my help. I just need to figure out how to give it.  
 
 There's just one problem; I've been noticing a tall figure standing just at the edge of the shadows thrown by trees that line my property. Every night. Just watching.
+
+[X](https://www.reddit.com/r/cmpaizspooks/s/826B3NzL5r)
