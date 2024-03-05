@@ -60,7 +60,7 @@ I nervously nodded, guiding the view away from galaxy formations. I typed nervou
 
 “– *mankind*,” The director finished my sentence.
 
-Viewing the planet from an aerial perspective of fifty feet, we witnessed the beginnings of humanity. Of course, at the simulation speed I’d chosen, history passed in a flicker. Neanderthals quickly turned to ash, and Homo Sapiens seized the world’s reigns.
+Viewing the planet from an aerial perspective of fifty feet, we witnessed the beginnings of humanity. Of course, at the simulation speed I’d chosen, history passed in a flicker. Neanderthals quickly turned to ash, and Homo Sapiens seized the world’s reins.
 
 My office was filled with twelve bulging sets of dilated pupils – a gaggle of fidgety, intoxicated onlookers, and I was one of them.
 
