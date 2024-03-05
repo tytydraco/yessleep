@@ -108,15 +108,15 @@ I planned to stay out here for as long as my food held out for. I didn’t need 
 
 Since the rain died down, I could hear the footsteps from outside getting closer to the door as the smell grew. My fingers tensed ready to draw my weapon. So very slowly the door started to open creaking as it did so.   
 
-A tall thin figure took a single step inside the cabin. My eyes had long since adjusted to the dark. Because of this, my body froze seeing what had just entered the cabin. He wore scraps of dirty stained clothing. The lips were torn away revealing pale gums. This person had no muscle mass and looked to be a walking skeleton with a thin layer of skin clinging to their bones. Long dirty fingernails gave the bony hands a dangerous appearance. For a moment the eyes appeared to glow white.  
+A tall thin figure took a single step inside the cabin. My eyes had long since adjusted to the dark. Because of this, my body froze in fear seeing what had just entered the cabin. He wore scraps of dirty stained clothing. The lips were torn away revealing pale gums. This person had no muscle mass and looked to be a walking skeleton with a thin layer of skin clinging to their bones. Long dirty fingernails gave the bony hands a dangerous appearance. For a moment the eyes appeared to glow white causing my heart to skip a few beats.
 
 When it met my eyes, it smiled and inhaled a rancid breath. I snapped out of my trace. Within a second, I threw off the blanket and started firing. Even in the dark, I should have hit him at such a close distance. I lost count of how many times I pulled the trigger. Dark blood that appeared black poured from three bullet wounds on its chest and yet those long legs covered the distance between us showing not an ounce of pain.  
 
-It fell on me. I kicked, threw punches, and did everything I could to get that vile creature away. To my horror, it started laughing. My arms were pinned down by strength it should not possess.   
+It fell on me. I kicked, threw punches, and did everything I could to get that vile creature away. To my horror, it started laughing. My arms were pinned down by strength it should not possess. I've never felt so scared and helpless before.
 
 “You smell like her.” A low voice rasped.  
 
-I felt as disgusted as I was angry. I hated this thing with every single fiber. Amused, he brought his face closer. The stench was almost overwhelming. Thick blood dripped onto my clothing soaking through. Strangely it felt ice cold.  
+I felt as disgusted as I was angry. I hated this thing with every single fiber. Amused, he brought his face closer. The stench was almost overwhelming. Thick blood dripped onto my clothing soaking through. Strangely it felt ice cold. This terrifying creature couldn't be natural. 
 
 “Are you jealous?” He spoke through rotten teeth. “You loved her and yet I was the one to eat her. To have her be a part of me forever. Don’t you wish it was you?”  
 
@@ -172,6 +172,6 @@ He finished up his task and left the room not even looking back. Once he was gon
 
 I’m going back into those woods. I need to burn a Wendigo. But I didn’t want Lexi to have died without anyone knowing what happened to her. I may not be able to come back out of those woods.   
 
-Honestly, I would like to believe my mind snapped from the intensity of what happened. But didn’t people say crazy people don’t know they’re crazy? I knew the vast empty hunger was insane. I knew this cold running through my body wasn’t natural. And I know sane people don’t start chewing layers off their lips.   
+Honestly, I would like to believe my mind snapped from the intensity of what happened. But didn’t people say crazy people don’t know they’re crazy? I knew the vast empty hunger was insane. I knew this cold running through my body wasn’t natural. And I know sane people don’t start chewing layers off their lips. I'm scared of what I'm becoming.
 
 Crazy or a Wendigo. Either way, I loved my sister and fire should solve this problem before I pass it on to someone else.
