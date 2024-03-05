@@ -101,7 +101,7 @@ As I stood there, still unable to move or process everything that had just happe
 Numbly, I remembered that the churel was still out there. Given my research, I doubt that a shotgun would be enough to kill her. 
 So I took up his offer. I gathered my poor, scared animals and packed up some basic necessities for all of us. The first thing I did when I got to his apartment was shower off all the churel chunks. Now, I'm camped out on his couch, polishing off a bottle of Absolut while waiting for him to return from arranging Matthew's 'drunk driving accident.'
 
-I'm not sure what to do with my three wishes yet. With how tired and sore (and drunk) that I am, I figure that's for Future Lab Rat to figure out. 
+I'm not sure what to do with my three [wishes](https://www.reddit.com/r/nosleep/s/Y8adV7aDAm) yet. With how tired and sore (and drunk) that I am, I figure that's for Future Lab Rat to figure out. 
 
 So... any suggestions on what I should name the goat?
 

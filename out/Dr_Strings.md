@@ -48,7 +48,7 @@ Ackerman: *scoff* Exhausting. Even now, I’m not sure if they really loved me o
 
 Ramirez: I’ve had a number of patients with cases similar to yours. In my experience, it’s painful to listen to. Unfair, as well. I couldn't imagine my own… Never mind, I digress. If you don’t mind, I’d like to move on to the incidents. Only if you feel comfortable with that; no rush.
 
-Ackerman: *deep breath* Right. Dr. Strings. Like I said, my parents were divorced, I visited my dad on weekends. When I first saw him, it was the night of my seventeenth birthday. I saw him in a sleep paralysis episode that night. You know the drill with sleep paralysis: both asleep and awake, can’t move, seeing stuff that belongs in dreams, yadda yadda. I saw was the strings first. I saw thin strings lowering from my ceiling. No demons, no monsters, not yet; just strings. They lowered to various parts of my body, my legs, arms, mouth, eye lids, etc. I could feel the strings brush against me every night it happened. 
+Ackerman: *deep breath* Right. Dr. Strings. Like I said, my parents were divorced, I visited my dad on weekends. When I first saw him, it was the night of my seventeenth birthday. I saw him in a sleep paralysis episode that night. You know the drill with sleep paralysis: both asleep and awake, can’t move, seeing stuff that belongs in dreams, yadda yadda. I saw the strings first. I saw thin strings lowering from my ceiling. No demons, no monsters, not yet; just strings. They lowered to various parts of my body, my legs, arms, mouth, eye lids, etc. I could feel the strings brush against me every night it happened. 
 
 Ramirez: How often was this? 
 
