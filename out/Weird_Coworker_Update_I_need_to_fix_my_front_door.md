@@ -44,7 +44,7 @@ I shook my head. The homeowner lowered his shotgun and nodded in my direction, "
 
 I slowly got my notebook and pen out of my pocket, not wanting this already on-edge man to think I was reaching for a weapon, then held them up to him. His eyes were narrowed, but he didn't raise his shotgun again. I wrote that I didn't know what was in the box, I was just supposed to deliver it. As I was about to throw the notepad to him, he curtly told me that I could just come onto the porch, but to leave the box where it was. 
 
-I obeyed, letting the mystery package where it sat in his driveway. Now that I was closer, I recalled seeing his face before, but I couldn't place from where. After he read my note, he demanded to know who sent me, so I gave him Ramy's real name. 
+I obeyed, leaving the mystery package where it sat in his driveway. Now that I was closer, I recalled seeing his face before, but I couldn't place from where. After he read my note, he demanded to know who sent me, so I gave him Ramy's real name. 
 
 "I have no idea who that-" The homeowner paused suddenly, getting a strange expression on his face. "You wouldn't happen to know if he's from Iraq, would you?"
 
@@ -84,7 +84,7 @@ The closet door opened. I didn't dare to even breathe as I heard the floor creak
 
 That's when Ramy arrived and announced his presence to the intruder by calling, "How'd your family reunion go, Matthew?"
 
-The moment he spoke, the intruder stomped towards him. I finally allowed myself to let suck in some air, now that Matthew's attention was on Ramy. I heard another crash, followed by the deafening crack of a gunshot. I hunkered down, curling up around Ciri. 
+The moment he spoke, the intruder stomped towards him. I finally allowed myself to suck in some air, now that Matthew's attention was on Ramy. I heard another crash, followed by the deafening crack of a gunshot. I hunkered down, curling up around Ciri. 
  
 "It was an accident, God damn it!" Matthew shouted, sounding desperate as he punctuated his sentence with another gunshot. 
 
@@ -94,7 +94,7 @@ I don't know if Matthew would've hurt her if I hadn't grabbed her, but I'm glad 
 
 Abruptly, the sounds of fighting stopped, leaving my home in a silence so dense that it made my ears ring. I waited for what felt like ages, making sure that I didn't hear anything else. I left Ciri, thinking it would be safest if she stayed in the crawlspace until I could make sure that we weren't in danger anymore. 
 
-It looked like a small tornado had gone through my living room. The front door, by some miracle, was still on its hinges, but pieces of the frame where dangling by threads. My coffee table was absolutely decimated, strewn about the room in sections. Of course, everything that was on the table had gone with it; I shivered as my brain conjured images of my skull shattered on the ground instead of my thrifted ceramic mug that said, '#1 Grandma.' As stupid as it sounds, I began to think about how long it was going to take to clean up. 
+It looked like a small tornado had gone through my living room. The front door, by some miracle, was still on its hinges, but pieces of the frame were dangling by threads. My coffee table was absolutely decimated, strewn about the room in sections. Of course, everything that was on the table had gone with it; I shivered as my brain conjured images of my skull shattered on the ground instead of my thrifted ceramic mug that said, '#1 Grandma.' As stupid as it sounds, I began to think about how long it was going to take to clean up. 
 
 I initially didn't notice that Ramy was in the kitchen, hands on the counter, completely still. My eyes were immediately drawn to a bullet hole right above his left eyebrow, which didn't seem to be bothering him. He had still been wearing his work clothes, his white shirt now stained a deep red. It was probably ruined beyond even the most aggressive cleaning. His short dark hair, normally gelled, was disheveled. His strange eyes reflected the light from the setting sun like twin mirrors, staring intensely down at the table.
 
