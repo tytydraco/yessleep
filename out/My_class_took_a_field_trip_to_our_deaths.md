@@ -1,0 +1,75 @@
+My name is Mark, and I want to recount the events that unfolded while I was in 8th grade. I don’t expect you to entirely believe me, but I do hope you at least attempt to understand what happened that day.
+
+It was the end of our 8th-grade year, only one day left of school before we were off to a well-needed summer vacation. But before this, we were scheduled for a small class field trip to a local aquarium in the city, not too far from our campus. I had my permission slip signed, my lunch box packed with snacks, and a feeling of excitement for the day to come. I wanted to cherish the memories that I was about to make with my friends on our last day of school and to savor the moments yet to arrive.
+
+My class of about 22 kids were all loading into two different small bright yellow school buses, making sure to hand our teacher our permission slips as we stepped into our assigned bus. Sixteen kids went into the first bus, while the last six kids of the class, including me, went into the second bus. Four of the kids in my bus sat towards the front, and since there was a lot of room in our vehicle, my lifelong friend Alex and I sat towards the back. We were both quiet kids who liked to stay reserved, and we found friendship because of this common trait.
+
+We began to talk about all the fun we were about to have on this field trip, while also discussing our plans for the swiftly approaching summer break. As we were talking, our teacher came into our bus, doing a headcount to make sure we were all here. She counted, then told us that she would be riding in the first bus, so we should behave ourselves while she was not present. Alex and I were glad because she could really be a pain in the ass sometimes. It was a miracle that she even let us have a final field trip in the first place. Anyways, she told us that until we made it to the aquarium, our bus driver, Mr. Brown, would be looking after us, and we should do as he says. Then she left for the first bus.
+
+Alex and I never liked Mr. Brown; in fact, we hated him more than our teacher. He took us to school and dropped us off at home every day. Mr. Brown was a grumpy old man in his mid-60s who was very strict. Alex and I were used to it by now and already knew his rules for riding in his bus: no talking or eating food in his bus, and complete silence while he drove. If anyone broke any of these rules, he would kick you off the bus and make you walk home or to school.
+
+One time, Mr. Brown did this very thing to a young girl a few years back, and she told on him to a teacher afterward. Then, she mysteriously “moved to a different school.” Alex and I didn’t really buy it and thought that he “murdered her.” Obviously, we didn’t actually believe this and were just joking around, but Mr. Brown seemed…different ever since.
+
+The first bus began to move forward, and soon after, our bus followed suit. We drove for about 25 minutes, until I noticed that the first bus began to get farther and farther ahead of us. I wondered if the driver in the first bus was speeding up or if ours was slowing down.
+
+Five minutes later, the first bus took a right, and we took a sharp and sudden left turn into a remote neighborhood. I wasn’t sure what we were doing since the first bus was going in the opposite direction. I didn’t recognize the area we were heading into; it seemed like a run-down rural group of homes. One of the girls in the front of the bus began to stand up, looking towards Mr. Brown, who was keen on driving this way. She asked him where we were going and why the other bus was going the other way. He grunted, giving her a scary look of disgust. After this, the girl quickly sat down in her seat, regretting the actions she had just taken. I couldn’t blame her because Mr. Brown was one scary guy.
+
+The bus began to slowly decelerate in speed, coming to a sudden halt in front of one of these residences. Mr. Brown then stood up, looking towards us students who were clearly confused and in search of some kind of answer. He told us that he had forgotten something inside his home and needed to grab it before we could continue our field trip. He then walked out of the vehicle and into his house, closing the door behind him.
+
+Alex told me that he had a weird feeling about all of this, and I told him the same. We must’ve been waiting inside that scorching hot bus for about half an hour until I looked to my right and noticed something odd. I was looking through one of Mr. Brown’s windows and noticed what almost looked like a person’s eyes staring back at me through the curtains. As soon as I saw this, I told Alex. But when he looked, there was nothing.
+
+Five more minutes passed, and then Mr. Brown came walking out of his house. He had left the front door to his home wide open, which I thought was very strange. He was also holding something in his right hand. It seemed to be some sort of cylindrical can, almost like a hairspray bottle. Alex and I were furious that he made us all wait in the summer heat for a damn can, but we knew that if we tried to express these feelings, then we’d be walking home.
+
+Mr. Brown stepped into the bus and stood in the aisle next to the four kids seated far in front of Alex and me. He looked at them and began smiling in the most awkward and ugly way I have ever seen a person smile. He lifted up his right hand and began spraying at the four kids. As he did this, the bus began to fill with screams from the confused, yet terrified children who were being terrorized by this man. Alex and I looked at each other with a sense of panic. Alex whispered to me and asked me what we should do. However, before I could even answer, Mr. Brown had already made his way to us. He lifted up his right hand while once more spraying Alex and me. I tried to fight back but was succumbed by some unseen feeling of drowsiness. Before everything went black, I could almost see Mr. Brown licking his dry lips while making strange, moaning noises.
+
+I woke up in a strange cell, behind rusted metal bars. The room was cold, dimly lit up by a lamp that hung in the center of the ceiling. I looked around and noticed Alex next to me, still unconscious. I also saw that there was only one other student from the bus with us in this cell, also unconscious. I tried to stand up but still felt the effects of whatever Mr. Brown had done to us. I was confused, questioning to myself what he was doing to us and why he was doing it.
+
+As I got up, I noticed that wherever we were was a much larger place than what I had initially realized. Directly across from our cell was another identical one, housing the last of our bus’s occupants. Two of them were still unconscious, while one of them was sitting in front.
+
+As I walked over to the bars, I noticed the person sitting down in the cell across from mine was the same girl who stood up to Mr. Brown earlier. She then quickly noticed me and stood up from the ground. She asked me where we were and if I knew anything about what was going on, with tears still in her eyes. I told her that I had no clue about our current situation. Alex then woke up from behind me and looked around in confusion. I went over to him, helping him up, while explaining to him what was going on. I told him, and the girl, that we were likely kidnapped by Mr. Brown. Obviously, I couldn’t be too sure, but that’s what it seemed like.
+
+The three of us who were now conscious were debating on what to do, and as we were, I began to hear faint, heavy footsteps from across the hallway. I also heard the faint sound of soft whistling coming from that same direction. Alex tried to say something to me, but I quickly covered his mouth, moving him back to the original positions we were in when we were unconscious. I whispered to him to stay quiet and not move an inch.
+
+The footsteps were beginning to get louder and louder until a dark figure who resembled Mr. Brown, but in an uncanny way, looked at the two cells. The girl in the other cell didn’t step back, and she sure as hell didn’t stay quiet.
+
+With the same confidence as before when we were in the bus, she looked right up at Mr. Brown and told him to let her go. I applaud her for having the guts that Alex and I didn’t. He began to chuckle, which turned into a maniacal laughter. He told her that he’d never leave this place. He reached into his pockets and grabbed a set of keys which he then put into her cell door’s lock and twisted it. While doing so, he demanded her to stay back, and of course, with the same confidence as before, and probably running purely off of adrenaline, she lunged at him and screamed.
+
+This knocked him onto his feet, and for a moment, I thought that she had actually taken him down. But then, he hastily got onto his feet and told her that she’d pay for that. He went over to her and slapped her across the face, which made her cry in physical and mental pain. He grabbed her with such a vicious force that I think her arms may have popped out of their sockets.
+
+He dragged her out of the cell, tugging at her with his arms wrapped around her body. He said something in that moment that made my skin crawl. He said, “It looks like you’re first.” And then he began to laugh once more in the same psychopathic way. The girl tried to squirm, fighting back with all the strength that she could muster. In doing so, I could hear the faint sound of something dropping to the ground. Almost like a ring of keys had been dropped to the floor.
+
+In all of the commotion that was currently transpiring, Mr. Brown seemed to have slipped up on this extremely important noise. After this, he once again dragged the poor girl towards the darkness of the hall, poking her neck with some kind of syringe that was housing a mysterious fluid. The girl's cries became less and less understandable until she completely went silent. After that, all I could hear was the sound of Mr. Brown dragging her away.
+
+Once Alex and I were sure that he was gone, we both looked at each other in fear. We were both terrified of what he might do to our classmate, but more so what he might do to us. Until, I remembered the sound I heard of something dropping. I got up, praying that the keys Mr. Brown was once holding were now at the foot of our cell. And sure enough, there they were, a set of keys a few feet from where our cell stood. I crouched down, reaching my arm out as far as I could to try to gain possession of these keys only to find out that I couldn’t reach them.
+
+Alex looked at me and gestured me away. He then attempted, and to none of our surprise, he easily reached over and grabbed the keys. Alex was much taller than me, and I always hated it. But at this moment now, I am most thankful for his height.
+
+Alex handed me the keys. At this moment, the last person in our cell began to regain consciousness. Luckily, he did because I had honestly almost forgotten about my fellow classmates other than that girl before, and of course Alex.
+
+I told our newly conscious classmate that there was no time to explain, and that we were about to get the hell out of dodge. He was surprisingly calm and understood our current situation quickly.
+
+I then went over to the door lock, and began shuffling with the keys, attempting to see which one fit our cell’s lock. To all of our horror, we heard the sound of a creaking metal door opening from across the hallway, from where Mr. Brown had just left. I began to panic, fumbling the keys as my hands began to shake. My two cellmates were now pleading with me to hurry as the sounds of heavy footsteps began to resonate clearly into our ears.
+
+I tried one key, then another, until I finally got one to fit. I twisted it and forcefully swung the heavy metal gate. As I stepped out, I turned to my left, and in my horror, standing about 20 feet away from us was Mr. Brown who was holding an ax that seemed to be covered in blood. The blood was dripping from the ax’s tip which fell onto the floor, creating a small puddle.
+
+I screamed at everyone to run, and jolted towards the hallway to our right, away from the man that stood to the left. The other two followed closely behind me. As we ran, Mr. Brown seemed to be gaining on us, at least on the third boy. Alex and I were pretty fast, but the other boy wasn’t. And this ultimately led to Mr. Brown catching up to him. I turned around and saw an ax swing down onto the poor boy. His screams vibrated throughout the narrow hallway. I turned my head straight, trying to maintain my speed.
+
+The boy then screamed even more, so loudly that I think it woke up our other classmates in the cell that was across from ours because they began to scream in confusion and terror. I felt bad for them, I truly did, but I knew that there was no way to save them.
+
+The harmonized screams began to dampen as Alex and I reached the end of the hallway, which had led us to a door. I pushed open the door at my current speed, spraining my hands in the process. On the other side of this door was a set of stairs, spiraling upwards. It took Alex and me about 2 full minutes of running to make it to the top, and when we did, we were exhausted.
+
+The stairs took us up to a home, which was rundown and reeked of spoiled food and piss. It was easy to tell that this was the inside of Mr. Brown’s house. I saw the front door and didn’t hesitate to rush towards it. I unlocked it and was met with the darkness that filled the night sky. I wondered how long we’d been inside that man’s basement, but ultimately knew that we didn’t have much time to waste before Mr. Brown came back looking for us.
+
+So, Alex and I ran as fast as our little legs could. We passed by the familiar yellow school bus that had brought us to this hellish place. We both looked at each other, confused why this had happened to us, but thankful that we both made it out. Alex ran to his home, and I ran to mine. We both gave each other a look of relief as we parted ways.
+
+After what seemed like hours of exhaustion-filled running and walking, I finally made it home. My parents were confused where I had been all night and told me the teachers were calling to ask where I had been. I told them everything, and my mom called the police, relaying everything I had told her.
+
+The police then went to Mr. Brown’s home the next day, and he graciously cooperated with them. The police then came back to us, telling us that there was no sign of a basement, and that Mr. Brown was indeed at the aquarium that day, with surveillance footage proving his innocence.
+
+I was astounded at what they were telling me. They also told me that the other classmates that I had said were there that they were all fine, and that they too were at the aquarium that day as well, the same as Mr. Brown.
+
+I didn’t want to believe what I was hearing. I wondered if I was wrong, if I was going crazy, until Alex texted me later that night.
+
+His text read:
+
+“Do you remember what happened last night? I’m not going mad, right?”
