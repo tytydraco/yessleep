@@ -94,7 +94,7 @@ Jason bent down and grabbed something.
 
 “This has to be Mark’s!” Jason said as he held up a beer bottle. 
 
-Indeed, Jason was holding some shitty microbrew IPA that I had only ever seen Mark drink. 
+Indeed, Jason was holding some shitty microbrew IPA that I had only ever seen Mark, Jason’s older brother, drink. 
 
 “Put that in the bag, show it to Mark to prove we actually went here.” I said. 
 
@@ -106,7 +106,7 @@ I huffed as I turned around, refusing to let my idiot friend get crushed by a ca
 
 “Shh.” I said, grabbing his arm, trying to stop his ruffling. 
 
-However, completely ignoring me, Jason whipped out his biggest flashlight and shone it downwards. To my relief, nothing was down there. 
+Completely ignoring me, Jason whipped out his biggest flashlight and shone it downwards. To my relief, nothing was down there. 
 
 “Yeah yeah, I heard it. But look, it’s nothing ya big pussy.” He said as he grabbed out another flashlight, shoving it in my hands. 
 
@@ -174,19 +174,19 @@ Hours later, I awoke to the feeling of being violently shaken. The sleep left my
 
 Somebody was incessantly knocking on Jason’s… Second story window. 
 
-I, like Jason, was frozen in fear. The knocking wasn’t violent, it was almost, seductive I guess? The knocking did eventually stop after a good 30 seconds, but was replaced with a much worse sound. 
+I, like Jason, was frozen in fear. The knocking wasn’t violent, it was almost, seductive, I guess? The knocking did eventually stop after a good 30 seconds, but was replaced with a much worse sound. 
 
 “JaSoN… DOnT yOu wANt To explORE?”
 
 Every syllable this thing spoke sounded like it came from a different person, as if someone was turning to different radio stations one after the other. 
 
-After this, there was a long pause pause. Jason, who was back on the couch, turned toward me. I’ll never forget his face. My best friend looked as if he had been told his mother had just died. I tried sitting up out of my sleeping bag, but everything happened before I could. 
+After this, there was a long pause. Jason, who was back on the couch, turned toward me. I’ll never forget his face. My best friend looked as if he had been told his mother had just died. I tried sitting up out of my sleeping bag, but everything happened before I could. 
 
 Again, it felt as though I was watching myself experience this in third person. First, the window broke and the blinds were ripped away. The room then got unnaturally bright, like a flashbang had just gone off. Jason shrieked in terror, the same tone he had used as he told me to run in the mine. Then came that noise again, a high pitch industrial squeal. Finally, I saw a boot? A foot? A paw? Coming down at my face. Then… nothing. 
 
 The next thing I knew, I woke up seeing red, and my eyes were stinging like hell. I wiped the blood out of them only to be met by the sight of Jason’s parents standing in the doorway, looking at the far wall, screaming. But I couldn’t hear them? I only heard the crunching of my broken nose as I moved. 
 
-I looked where they were looking. The shattered window and surrounding wall was caked with blood. Before I could comprehend the situation I found myself in, I passed out again. 
+I looked where they were looking. The shattered window and surrounding wall were caked with blood. Before I could comprehend the situation I found myself in, I passed out again. 
 
 They never found Jason, but the amount of blood in the room all but confirmed that Jason was dead. I was considered a suspect for a day or so, but Jason’s mom herself told the detective that she had checked on us only about 15 minutes before she and Jason’s dad heard what they described as “A tornado localized completely in their home”. Not nearly enough time for me to kill Jason, throw his body through the window, and hide it somewhere nobody would ever find it. The prevailing idea in my town’s PD is that multiple intruders, people we probably saw commiting a crime in Tillsville, broke into Jason’s house, brutally beat me, killed Jason, and took his body out the front door. I guess they believe the broken window is a diversion of some kind? 
 
