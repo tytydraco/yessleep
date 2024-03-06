@@ -30,7 +30,7 @@ I got this ~~painting~~ ~~art~~ fucking abomination of a German cabin in a birch
 
 I found it at a yard sale. I don’t know. Just picked it up because it reminded me of a similar cabin my Oma had back in the fatherland. I guess the nostalgia that came when seeing it made me feel just a little less alone but I didn’t fucking know.
 
-As soon as I hung it up, ~~something itched at the back of my neck~~ just felt plain wrong. I had just fucking bought it and already something was off. I looked at it. It wasn’t the placement. ~~Actually, it looked quite good on the wall. It felt like it expanded the room~~
+As soon as I hung it up, something ~~itched at the back of my neck~~ just felt plain wrong. I had just fucking bought it and already something was off. I looked at it. It wasn’t the placement. ~~Actually, it looked quite good on the wall. It felt like it expanded the room~~
 
 So I kept staring at it. Staring and staring and staring. There had to be something I hadn’t seen before. I even forgot to blink every now and again. Only when I had to go eat, sleep or shit I would avert my eyes. The very existence the picture was supposed to help me alleviate had only become worse and worse. I was basically living out of my bedroom, now nothing more than a rectangular cell with pastel wallpaper, a wooden Swedish bed and closets and my desk.
 
