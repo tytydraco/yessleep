@@ -37,7 +37,7 @@ Dr. Johnson: We are so close to making history, Chris. We just need one last com
 
 Chris: Like another intern, or assistant?
 
-Dr. Johnson: Yes! We need another assistant to help us out. Go find someone that you know, it could be practically anyone. Also, for some incentive, tell them that I’d be paying them $100.
+Dr. Johnson: Yes! We need another assistant to help us out. Go find someone that you know, it could be practically anyone. Also, for some incentive, tell them that I’d be paying them $100 for one day of work.
 
 I agreed and did as he asked of me. I went out the following Friday and asked one of my classmates if they’d be interested. His name was Jared, and frankly I didn’t know much about him. We had worked on a few projects together this semester, but other than class, I didn’t ever see him. He reluctantly agreed as he was in dire need of some money.
 
