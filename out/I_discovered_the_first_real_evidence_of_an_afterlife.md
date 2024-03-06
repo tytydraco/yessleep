@@ -121,7 +121,7 @@ And before I could muster the last word, he clenched his left fist while squeezi
 
 Blood now covered my face as I began to scream in a wretched tone, my voice trembling as I did so. I was mortified by what I had just witnessed. I fell to my knees and began sobbing.
 
-I don’t remember much of what happened next. A janitor who worked weekend nights at the school heard the gunshot and reported it to the police. When they arrived, they found me lying on the floor, still horrified by what had just happened. They took me down to the station and I told them everything that I could remember. They filed this down as an apparent murder-suicide.
+I don’t remember much of what happened next. A janitor who worked weekend nights at the school heard the gunshot and reported it to the police. When they arrived, they found me lying on the floor, still horrified by what had just happened. They took me down to the station and I told them everything that I could remember, which they ended up filing down as an apparent murder-suicide from Dr. Johnson.
 
 To this day, I am still shaken up by what happened that night, because I now know what lies beyond our mortal lives, and I now have the first piece of evidence of an afterlife.
 
