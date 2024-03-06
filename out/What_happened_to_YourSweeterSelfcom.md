@@ -1,4 +1,4 @@
-YourSweeterSelf.com was one of those horrid, hidden webpages that could only have existed during the days of the digital Wild West. Do you remember those times? A lofty monitor. A clunky keyboard. Beneath a desk in the study, the family’s shared computer whirred achingly — clogged with years of dust and mites. You moaned when your sibling played flash games past the allotted time-slot. Worst of all, you naively browsed unsafe websites.
+YourSweeterSelf.com was one of those horrid, hidden webpages that could only have existed during the days of the digital Wild West. Do you remember those times? A weighty monitor. A clunky keyboard. Beneath a desk in the study, the family’s shared computer whirred achingly — clogged with years of dust and mites. You moaned when your sibling played flash games past the allotted time-slot. Worst of all, you naively browsed unsafe websites.
 
 And YourSweeterSelf.com was the *worst* of the lot.
 
@@ -84,7 +84,7 @@ She chuckled. “Right, your turn now! I’m eager to see—”
 
 The door swung open. That moment every child dreads — the unannounced entry of a parent.
 
-“Kids, didn’t you hear your mum? Dinner’s ready, and… Lisa, it’s lovely to see you!” My dad said. “Leon’s mum made a plate for you too.”
+“Kids, didn’t you hear your mum? Dinner’s ready, and… Ella, it’s lovely to see you!” My dad said. “Leon’s mum made a plate for you too.”
 
 “Thanks, Mr Poole!” Ella replied.
 

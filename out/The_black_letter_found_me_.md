@@ -61,13 +61,13 @@ The black creature started emerging from the mirror , I tried to stab it but the
 I then punched the mirror to break it , It broke. The thing was no longer there. But my fist got injured and blood was dripping. From the blood emerged the creature with 6 arms and 3 bloodshot eyes.
 
 
-I tried to run upstairs but it grabbed my left arm , I managed to grab the knife by my left hand. That's when I suddenly remembered the ritual.
+I tried to run upstairs but it grabbed my left arm , I managed to grab the knife by my right hand. That's when I suddenly remembered the ritual.
 
 
 "A fresh meat offering huh" I mumbled
 
 
-I then cut my left arm off using the knife and said "Custodi me et esto mihi custos. Hic contractus manebit donec unus ex nobis pereat" three times repeatedly.
+I then cut my left arm off using the knife and said "Custodi me et esto mihi custos. Hic contractus manebit donec unus ex nobis pereat".
 
 
 Then I started losing consciousness, Possibly due to the blood loss. The last thing I saw was the creature eating my arm before passing out.
