@@ -153,3 +153,7 @@ I turned away to make some phone calls while Dr. Virgil busied himself with the 
 [BD](https://www.reddit.com/r/ByfelsDisciple/)
 
 [W](https://www.youtube.com/channel/UCcn_pa1QfNMRzbTuJqXSoRQ)
+
+--------
+
+[What happened next](https://redd.it/1b8tyf9)
