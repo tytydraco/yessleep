@@ -98,11 +98,7 @@ I take the lead, my knife ready, the metal cool and reassuring in my grip. The g
 
 Tuyết is beside me, holding him down. It's over quickly, the guard's struggles ceasing as his life ebbs away, his body gently slumping to the ground.
 
-With the perimeter sentries dispatched, our path to the drainage system is clear. A rusted grate blocks the entrance. Văn retrieves a block of Semtex from his pack, the plastic explosive malleable in his hands. He molds it around the lock and hinges of the grate.
-
-I pull the detonator from my own pack, connecting the wires with steady fingers. The team steps back, taking cover behind the dense foliage that lines the entrance. "Clear," I whisper, pressing the button.
-
-The explosion is a muffled roar, the grate blown inward with a force that sends ripples through the stagnant water beyond. Shards of metal and clumps of earth rain down. the smell of sewage and decay wafts out to greet us.
+With the perimeter sentries dispatched, our path to the drainage system is clear. The smell of sewage and decay wafts out to greet us.
 
 Our lights pierce the darkness, revealing a tunnel that stretches into the bowels of the earth, its walls slick with moisture and growths that seem to pulse with a life of their own.
 

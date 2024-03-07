@@ -252,6 +252,4 @@ Later that night, whilst reflecting on my brother's terrifying tale, a frightful
 
 “Five years to go, Erik…” He softly whispered, stale breath clouding my ear.
 
-And I remember feeling *eager*.
-
-[X](https://www.reddit.com/r/dominiceagle)
+And I remember feeling [eager](https://www.reddit.com/r/dominiceagle).
