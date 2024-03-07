@@ -106,6 +106,4 @@ So, please—if you ever see a jogger at night, and you think for a second they 
 
 Don’t brush it off as a brain glitch.
 
-Run the other way, and don’t look back.
-
-[+](http://www.reddit.com/r/blairdaniels)
+Run the other way, and don’t look [back.](http://www.reddit.com/r/blairdaniels)
