@@ -1,0 +1,17 @@
+The therapy happened like any other, to a certain extent, the therapist placed me on the couch lying in a comfortable position, turned down the lights, the silence in the room was like when you go underwater. He started talking gently to me, doing those same exercises to make me go into a trance. I started to feel relaxed to the point where I almost fell asleep.  
+  
+I woke up with a the sound of a ship's horn. I looked around and didn't see the therapist, I was scared. The room was dark as if it had already gotten dark outside, which was impossible as the appointment started at 10:45 in the morning. I confess that it took longer than I would like to admit for me to realize that the room was different, but at the same time it was very similar. The carpet was a different color, the paintings on the walls were different, the furniture was different, the couch I was lying on was more noticeable to me because it was covered in a different fabric and I felt it very intensely by touch. I got up, a little staggering from the shock, and went to the window. It was the same city outside, but it wasn't the same houses or buildings. I almost fell back when I looked up at the sky and saw a huge airship with a logo that was familiar but different, it was a peach with a "bitten off" piece.  
+  
+I couldn't even put my thoughts in place when a woman entered the room and screamed in fright when she saw me. She stood there with wide eyes looking at me for a few seconds. I was going to ask her where i was, but before I could open my mouth she told me "You shouldn't be in Sombralina" and just ran away. I ran after her to try to understand and when I went through the door I arrived in the waiting room where there were some people waiting and when they saw me they also had a startled reaction. One woman even grabbed her son by the arm and pulled him against her body to protect him.  
+  
+The woman who had run away made a gesture with her hands at me like someone scaring away an animal in the forest, pointing into the therapy room and again said "You have to go back, you shouldn't be in Sombralina".  
+  
+I barely opened my mouth to ask and again she made a gesture with her hands, and a man in the room said very harshly and energetically, "Yes, girl, you shouldn't be here."  
+  
+Well, I was a bit in shock and to be honest at that moment I thought I was dreaming during hypnosis. I then decided to go back to the room to try to put an end to the nightmare and return to reality.  
+  
+I looked around the room again, not knowing what to do I lay down on the couch and literally in the blink of an eye I woke up to the therapist saying "Don't worry, you're back."  
+  
+I told him my experience, and he listened patiently without interrupting. When I finished, I thought he would judge me in some way, or blame it on hypnosis, or maybe even refer me to a fellow psychiatrist, but no. He asked me the following "Sombralina, you said? And how did it feel to be there?" I found the question strange, he should try to invalidate this false experience, it seems he realized that I was uncomfortable with the question and then amended "The woman you met is called Rosa, and I also know her. I see her from a glance a few times and when I turn my focus to her, in the blink of an eye she disappears."  
+  
+I didn't know what to say, I thought I was still dreaming. I got up and went towards the exit door, but he grabbed my arm and said "They don't like us going to Sombralina"
