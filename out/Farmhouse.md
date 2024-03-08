@@ -180,7 +180,7 @@ I was speed walking and when I got to the bridge I could feel its eyes. Spinning
 
 Jamming it into drive, I sprayed rocks behind me as I peeled away into the night, the figure fading into the darkness. I was driving way too fast for the little road, but every part of my psyche was screaming. The radio cracked back to life, these low dreadful tones eking through manic chattering as I scrambled for the volume knob, tears forming in my eyes. 
 
-Silent in the car I took another breath, still driving as fast as my little Sunfire would take me when in my periphery I saw movement in my rearview mirror. Focusing, there was nothing. I looked back to the road ahead when I heard it breathing on my neck. Suddenly ahead I could see headlights. In my panic I’d drifted into their lane and at the last second laid on the horn as I pulled my car back to my side, my tires squealing, kicking rocks into the tree line.  
+Silent in the car I took another breath, still driving as fast as my little Sunfire would take me when in my periphery I saw movement in my rearview mirror. Focusing, there was nothing. I looked back to the road ahead when I felt its breath on my neck. Suddenly ahead I could see headlights. In my panic I’d drifted into their lane and at the last second laid on the horn as I pulled my car back to my side, my tires squealing, kicking rocks into the tree line.  
 
 As soon as I was past them, the breathing stopped. The radio was softly playing Merle Haggard as I made it back to the crossroads. I drove slow and silent all the way back to the city, the Am radio coming and going as it pleased, my single loveseat cushion waiting for me on the living room rug back in Mack’s basement apartment.  
 
