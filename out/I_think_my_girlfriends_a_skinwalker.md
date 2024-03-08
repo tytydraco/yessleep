@@ -266,8 +266,7 @@ Abby, if you’re out there please come home, I know you’re still in there, an
   
 I packed my bags, and loaded a gun. Not for Abby, but for those other creatures. I will find her, I will find her and I will make things right again. If you don’t hear from me do not look for me, I do not want anyone else to suffer the way we have, I do not want anyone else to become a monster.  
   
-And to Abby, here I come.  
-  
+I found an email sent to me the other day and tears filled my eyes as I saw it was an audio message from Abby. I will play it here for you, and to Abby, here I come.  
   
 “My name is Abby Ray Johnson, and it would seem, that maybe, I am becoming a monster.  
   
@@ -297,7 +296,7 @@ What I don’t know is how he didn’t hear my screams. Moments after he left th
   
 Something wasn't right though, there was something wriggling underneath its skin.  
   
-That is when it stabbed me with its hand going through my stomach. Pain shot through my body like a laser and I immediately began to cough up blood. I could feel something whirring and twisting inside of me, tendrils flowing to each limb then reaching up and up towards my brain.  
+That is when it stabbed me with its hand going through my stomach. Pain shot through my body like a lazer and I immediately began to cough up blood. I could feel something whirring and twisting inside of me, tendrils flowing to each limb then reaching up and up towards my brain.  
   
 It was strange, although I felt the immense pain, I didn’t feel like I was dying. I felt…. Calm as the organism reached up towards my brain and began to latch itself onto it.   
   
@@ -314,7 +313,7 @@ But when I began to bar my teeth, lower them towards Max’s throat as he slept 
   
 I could not hurt my love and when he woke up and the thought of him seeing me standing over him made me feel ashamed, so very, very ashamed of what I had become. The shame was overpowering, I could do nothing but run.  
   
-I am at an internet café now and I am recording this on my phone. Max has called me dozens of times but I will not pick up. I tried to stab myself with a knife but I am no longer in control of my body, the knife stopped inches from my throat. I need to go back there, I need to hide in those woods and find answers so maybe I can reverse what I’ve become. But most of all, I need to hide so that I do not hurt anyone or anything anymore.  
+I am at an internet cafe now and I am recording this on my phone. Max has called me dozens of times but I will not pick up. I tried to stab myself with a knife but I am no longer in control of my body, the knife stopped inches from my throat. I need to go back there, I need to hide in those woods and find answers so maybe I can reverse what I’ve become. But most of all, I need to hide so that I do not hurt anyone or anything anymore.  
   
 My dearest Max. If you or anyone sees me in Oakridge woods, please, I am begging you, shoot me. I am no longer in control, the thing patrolling in my body is no longer Abby, it is a vicious demon that only exists to hunt, torment, and kill. Please kill me before I harm anyone else, it is the only way that I will be able to rest in peace. Please…. Please….”  
   
