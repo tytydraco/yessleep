@@ -104,7 +104,7 @@ General Matheson left and returned a few minutes later with a piece of paper in 
   
 “Why?” he whispered. “That computer is evil. The project has soured. Perhaps every computer that attains sentience will become like Aleph in the end.”  
   
-“Perhaps,” I said, rising from my chair. General Matheson had disappeared. The hallway leading to Aleph stood empty. Hesitantly. Dr. Gardner got to his feet. His heavy footsteps followed close behind me as we made our way back toward the experiment, the god-like being trapped in a metal body of wires and circuits.
+“Perhaps,” I said, rising from my chair. General Matheson had disappeared. The hallway leading to Aleph stood empty. Hesitantly. Dr. Harper got to his feet. His heavy footsteps followed close behind me as we made our way back toward the experiment, the god-like being trapped in a metal body of wires and circuits.
   
 “Hello, Dr. Gardner. Dr. Harper,” Aleph said politely as we neared. I hadn’t even had to activate it this time or press the speaker button. It had seen us coming through the cameras and preemptively responded. I wondered if it had heard our conversation in the breakroom as well. Were there cameras or microphones in there? I didn’t know. I cursed myself for not paying more attention.  
   
