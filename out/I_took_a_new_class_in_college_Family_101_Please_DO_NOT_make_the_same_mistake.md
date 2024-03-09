@@ -422,7 +422,7 @@ Every part of me, every piece of *her* was wiped away.
 
 The girl who liked bad horror movies and wanted to be an artist. 
 
-Inside the room with pale blue walls, that girl’s body and mind was twisted and contorted into me. They tore away my ability to cry, to scream, to beg for help, forcing metal rods into my skull and twisting until I gave up my name through a cry that begged to die. They forced me to give up the names of my family and friends, replacing them with names u did not know yet. But as the light flickered above me and time passed slowly, I stopped screaming. 
+Inside the room with pale blue walls, that girl’s body and mind was twisted and contorted into me. They tore away my ability to cry, to scream, to beg for help, forcing metal rods into my skull and twisting until I gave up my name through a cry that begged to die. They forced me to give up the names of my family and friends, replacing them with names I did not know yet. But as the light flickered above me and time passed slowly, I stopped screaming. 
 
 I repeated the names I was told to say, when I didn't speak fast enough, I demanded to be punished. 
 
@@ -524,7 +524,7 @@ Mom clapped her hands together. “Who wants chocolate chip pancakes?”
 
 I grinned. 
 
-“I do!*
+“I do!"
 
 The Fairview Family were just your average American family.
 
@@ -616,7 +616,7 @@ Static in my head, but this time I could feel.
 
 The gravel on my bare toes when I landed. 
 
-“3.1 and 3.2. Stay where you are,” a voice screeched in my skull when u bound forwards. “The Fairview family has been compromised. Deactivate.”
+“3.1 and 3.2. Stay where you are,” a voice screeched in my skull when I bound forwards. “The Fairview family has been compromised. Deactivate.”
 
 I dropped to my knees, my brain sizzling. 
 

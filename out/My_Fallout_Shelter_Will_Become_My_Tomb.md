@@ -2,7 +2,7 @@ August 21st, 2021
 
 &#x200B;
 
-Back in the 80's, my father had built a nuclear fallout shelter to protect us. I remember being young and listening to him excitedly tell us that it was almost done, and that we would finally be safe. He was afraid of the communist's, like many others. He 'knew' that bombs would drop any day, and that his bunker would save us all. Of course, no bombs ever fell, but still he would spend most of his time in the bunker, eventually growing old and dying there in his bunker in the woods of North Dakota.
+Back in the 80's, my father had built a nuclear fallout shelter to protect us. I remember being young and listening to him excitedly tell us that it was almost done, and that we would finally be safe. He was afraid of the communists, like many others. He 'knew' that bombs would drop any day, and that his bunker would save us all. Of course, no bombs ever fell, but still he would spend most of his time in the bunker, eventually growing old and dying there in his bunker in the woods of North Dakota.
 
 He died in his sleep, alone, scared of a war that would never come. I was the only one in the family that had any faith that the bunker was safe. I was very close to my father, and his fears made a lot of sense to me.
 
@@ -70,7 +70,7 @@ I don't even know what to write at the moment. I feel a deep fear that I haven't
 
 It was dinner time as usual, and all nine of us were around the table. Austin and Max hadn't ate much, as usual, but everyone else was eating as normal. I noticed Austin and Max staring at me, and I met eyes with Austin. His gaze felt like it was staring straight in to my being, the very fabric of my soul. I felt uneasy. His expression was... unimpressed... it was like he was deciding my fate, like I was in front of the pearly gates and he was God, judging whether I would be able to enter.
 
-I looked away, returning to my food, but I couldn't make myself eat. I still felt them staring at me. I looked back up, and this time at make. We made eye contact, and he smirked smugly. Right after he smirked. I felt a pain shoot through my head, enough to make me want to scream in agony. But I didn't. My body went back to eating as my mind was filled with pain. The pain stopped, only to be replaced with one of the weirdest, most unpleasant feelings I've ever felt. It felt like a hand was digging through my memories, examining each one. Then it found what it was looking for.
+I looked away, returning to my food, but I couldn't make myself eat. I still felt them staring at me. I looked back up, and this time at Max. We made eye contact, and he smirked smugly. Right after he smirked. I felt a pain shoot through my head, enough to make me want to scream in agony. But I didn't. My body went back to eating as my mind was filled with pain. The pain stopped, only to be replaced with one of the weirdest, most unpleasant feelings I've ever felt. It felt like a hand was digging through my memories, examining each one. Then it found what it was looking for.
 
 I was transported back to one of my earliest memories. I was around 6 years old, and my mother was sick. She was in the hospital bed, her head void of hair and tubes coming out of her. She looked so weak, and then the heart rate monitor beeped, then settled on a steady beep as the line when flat. My father wiped a tear from his eye, and I did too, even if I didn't fully understand why at the time.
 
@@ -106,7 +106,7 @@ Around mid June, things started getting weird again. This time with everyone. No
 
 Around late August it got worse... So much worse... I was in the bathroom brushing my teeth when I got that feeling like I was being watched. I felt like I couldn't openly look for what was watching me, as that seemed dangerous. I acted normal as I scanned the mirror in front of me, looking behind me. It took a while, but I saw it. Behind the crack in the door, I saw the TV. It lit up the surroundings in flashes and straight in the middle, right in front of the TV, was a pair of white eyes staring at me.
 
-I immediately averted my eyes, scared that whatever or whoever it was would notice me looking at it. I used my peripheral vision to examine it. I couldn't make out much, but whatever it was, it looked human. From the silhouette I could see it had two horns poking out of the top of it's head, both relatively thin and clean, pointing almost vertically. I could also see it breathing, as it's whole body was moving with every deep, slow breath.
+I immediately averted my eyes, scared that whatever or whoever it was would notice me looking at it. I used my peripheral vision to examine it. I couldn't make out much, but whatever it was, it looked human. From the silhouette I could see it had two horns poking out of the top of it's head, both relatively thin and clean, pointing almost vertically. I could also see it breathing, as its whole body was moving with every deep, slow breath.
 
 I broke my eyes from the mirror and spit out my toothpaste, and when I looked back, it was gone. Something deep within me told me I needed to get out of there. The top floor was empty, and I decided to just try to leave the bunker to get help, and if there was none, the wasteland would surely be a better way to die. I didn't even think to go downstairs and get my family, I just needed to go.
 
@@ -150,7 +150,7 @@ I slammed the door shut just in time for Max to slam in to it. By some miracle, 
 
 I shoved as much furniture as I could in front of the door. As Max kept trying to get in. It stopped after what felt like hours.
 
-I've been down here for two months now. I have food and water, but they still keep trying to get in, both Max and Austin. Every once in a while, I hear screams. Not theirs, but Mary's, Caleb's, James', Violet's... All of them. They are the most pained, desperate, heartbroken screams I have ever heard. I can't tell if Max and Austin are playing with me, after all, they were able to shove metal in to concrete, so this door should be no problem... or was it something else that did that?
+I've been down here for two months now. I have food and water, but they still keep trying to get in, both Max and Austin. Every once in a while, I hear screams. Not theirs, but Mary's, Caleb's, James', Kate's... All of them. They are the most pained, desperate, heartbroken screams I have ever heard. I can't tell if Max and Austin are playing with me, after all, they were able to shove metal in to concrete, so this door should be no problem... or was it something else that did that?
 
 I spend all my time praying, praying that this will be over soon. God help me.
 
@@ -162,7 +162,7 @@ I spend all my time praying, praying that this will be over soon. God help me.
 
 March 8th, 2024
 
-It was all a trick. The bombs never fell. It was Max's and Austin's trap. They're not my children, they haven't been for many years. They got lost overnight in the forest when we went camping when they were around 6... That's when they got replaced. They got in months ago. Only a couple days after I last wrote. I tried to run... and they let me, but the door was still jammed.
+It was all a trick. The bombs never fell. It was Max and Austin's trap. They're not my children, they haven't been for many years. They got lost overnight in the forest when we went camping when they were around 6... That's when they got replaced. They got in months ago. Only a couple days after I last wrote. I tried to run... and they let me, but the door was still jammed.
 
 The only living things that are uninjured are Max's cat, Kevin, and Austin's dog, Almond. They live a cushy life in this big bunker along with Max and Austin. My family aren't allowed to leave the chapel. The demons took their minds from them. Twisted every memory and thought in to pure agony, and when they were done with their minds, the demons tortured them for days as I watched. They didn't take my mind.
 
