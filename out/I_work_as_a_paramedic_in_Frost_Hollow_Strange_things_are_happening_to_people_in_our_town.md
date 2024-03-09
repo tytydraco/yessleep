@@ -165,7 +165,7 @@ Another one of those abominations jumped down, sprinting after me. I knew I was 
   
 I ran to my car, hyperventilating. I called Detective Larson and told him to go to my apartment, that it was happening again. He had many questions, but I turned my phone off and drove out of there without a backwards glance. I abandoned everything I owned in that town, renting a motel in the next state over. I heard the local news talk about the spike in recent murders and disappearances in Frost Hollow.  
   
-I ended up going to talk to a college professor who supposedly knew about demons and fae and other supernatural creatures. She was a strange, bird-like woman, advanced in years with glasses that magnified her eyes to owlish proportions.   
+I ended up going to talk to a college professor who supposedly knew about demons and fae and other supernatural creatures, still wearing a bandage on my face. She was a strange, bird-like woman, advanced in years with glasses that magnified her eyes to owlish proportions.   
   
 She invited me over to her house, a stuffy place with odd books on the occult and powerful talismans from voodoo and shamanism plastered over the walls. As I told her everything that happened, she started playing with her Tarot cards, flipping them over. Her wrinkled, serious eyes took in the images without a word.  
   
