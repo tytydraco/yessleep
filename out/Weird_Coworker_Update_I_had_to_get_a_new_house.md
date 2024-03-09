@@ -132,4 +132,4 @@ There is a perfect, purple imprint of a hand on my arm. It still hurts to move i
 
 There's no way that I'm going to be able to get back to sleep, not while every noise makes me flinch. That thing that was in my house has to be Matthew, or more accurately, it *used to be* Matthew. I don't know if he's some sort of ghost or something else, but whatever he is now, he wanted me to find these. While that makes me scared of what's written on their pages, I'm hoping that one of these notebooks will have some information about the talismans. 
 
-I haven't gotten too far into them yet, so I'll get back to you all when I've found something interesting. 
+I haven't gotten too far into them yet, so I'll get back to you all when I've found [something interesting ](https://www.reddit.com/r/nosleep/s/pEwkKkV2ZA). 
