@@ -270,7 +270,7 @@ Someone shouted in the audience.
 
 “Yeah,” another girl joined in. “It's not the 1950’s anymore, weirdo.”
 
-Another boy stood up, cupping his mouth. 
+A boy stood up, cupping his mouth. 
 
 “Who gives *you* the right to tell us what to do? We’re adults, aren't we?”
 
@@ -362,7 +362,7 @@ But then the guy in front of me dropped to his knees, then his stomach.
 
 I didn't notice his blood was spraying my face until my vision blurred. 
 
-A girl tipped sideways. 
+Another girl tipped sideways. 
 
 The entire front row went down like domino's, and yet I stayed perfectly still. 
 
@@ -377,6 +377,10 @@ Screams slammed into my skull.
 Students dropped into their seats, their eyes wild. 
 
 I was half aware of being violently dragged backwards, grouped with the girls. While my friend was pulled back and forced into line with the boys. The professor told us to stand still, and we did, while a swath of black surrounded us. Guards. They poked and prodded us, forcing us to line up like cattle to the slaughter. 
+
+Ten, no, twelve, of us were dead.
+
+The rest of us prisoners. 
 
 I remembered absently wiping slick red from a blonde’s cheek. 
 
@@ -420,7 +424,7 @@ The girl who liked bad horror movies and wanted to be an artist.
 
 Inside the room with pale blue walls, that girl’s body and mind was twisted and contorted into me. They tore away my ability to cry, to scream, to beg for help, forcing metal rods into my skull and twisting until I gave up my name through a cry that begged to die. They forced me to give up the names of my family and friends, replacing them with names u did not know yet. But as the light flickered above me and time passed slowly, I stopped screaming. 
 
-I repeated the names I was told to say, when u didn't speak fast enough, I demanded to be punished. 
+I repeated the names I was told to say, when I didn't speak fast enough, I demanded to be punished. 
 
 When the electroshocks stopped running up and down my spine, my body no longer belonged to me. 
 
