@@ -132,10 +132,32 @@ We watched as the being fell to its knees before curling into the fetal position
 
 “You want to collect its blood.”
 
-“We rarely see something *this* evil, Nurse,” he explained. “The blood will be an invaluable addition to my apothecary.” 
+In that moment, the disgusting tongue whipped at my face. I instinctively protected myself with my hand, raising it just in time to feel it horrid tongue hit my palm. It was somehow both hot and cold, dry and wet at the same time. My skin burned on contact, and I was horrified at the smell of my own barbecued flesh hitting my nostril. 
 
-I groaned and crossed my arms. “This counts as overtime.”
+I pulled back, convinced that Dr. Virgil would need to perform immediate surgery, and stared at my hand. 
 
-“I can pay you in powdered grixxxley beeth resin. You’ll never need another cigarette again.”
+“I think we have a problem, Doctor,” I gasped.
 
-“No thank you, I’m at peace with my drug use. Nothing supernatural. You can be a difficult man, Dr. Virgil, so I guess I’ll have to settle for making a tiny change to the world as payment. Now hurry up and cut this thing’s head off, I don’t want to touch it any longer than is [absolutely necessary](https://www.reddit.com/r/ByfelsDisciple/).”
+He stared at my hand. Instead of looking like it was burned with acid, my flesh appeared as though deep scars had healed over long ago.
+
+Except the scar was glowing.
+
+“Shit.”
+
+I stared at Dr. Virgil; that’s never what you want to hear when a medical professional examines you.
+
+“It really hurts,” I gasped, sweat running down my forehead and stinging my eyes. 
+
+“I don’t know if I have enough Clonazepam to perform the necessary surgery,” he gurgled.
+
+I stared at him. “Clonazepam isn’t a general anesthetic, it won’t help me during surgery.”
+
+“I wasn’t planning to give it to you,” he answered.
+
+The mimic rolled over. It was slowing down, but still quite conscious.
+
+“This is bad,” he said. “I can’t dispose of it without your help, and you cannot help me with only one hand.”
+
+“Well we’d better move quick,” I answered. “My hand is in agony, but we cannot let this thing escaped.” I winced. “What’s the bigger priority?”
+
+Dr. Virgil folded his arms and stared at me through his round spectacles. “You’re indispensable, Beatrice.” He let out a long, low sigh. “So I’ll let you have the rest of my Clonazepam. It’ll take the edge off your pain. Now help me get to work, we have some blood to harvest.”

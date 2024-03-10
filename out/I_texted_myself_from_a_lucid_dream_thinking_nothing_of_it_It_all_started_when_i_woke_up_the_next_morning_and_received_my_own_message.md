@@ -17,3 +17,4 @@ I pulled back the shower curtain to reveal my wife and two kids dead, with their
 
 Let this be advice to anyone who sees this. DON’T LET THEM IN.
 
+(If anyone wants to post this on youtube, i really don’t care i wrote it for fun, feel free to do whatever you want with it)
