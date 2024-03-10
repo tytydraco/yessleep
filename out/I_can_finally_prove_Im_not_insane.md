@@ -42,6 +42,6 @@ And please, if someone has ever experienced the same thing or even felt the same
 I'm scared. My heart is still pounding so hard that I feel nothing but nausea. But I took a screenshot anyways because this, despite everything, is the only proof that I have. Even if it makes *something* more real than it should be.  
 Here goes nothing:
 
-.  
+\[Image: Screenshot Sunday 10. Mar 2024 - 3:34\]   
 **From: 3333 - \[03/10/2024, 33:33am\]**  
 *hi :)*
