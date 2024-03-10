@@ -26,7 +26,7 @@ I look at the sky, there were two suns and a big ass moon, this definitely wasn'
 
   
 Some sort of disembodied voice telepathically said to me that I shall reside here for 1500 days, no more, no less.  
-My first day was a nightmare, I prayed to whatever god that oversaw this planet to alleviate the direness of my situation, and desperately tried finding a shelter as it was storming. I find a cave in which I would live for the next 4 years, and start a fire through friction.
+My first day was a nightmare, I prayed to whatever god that oversaw this planet to alleviate the direness of my situation, and desperately tried finding a shelter as it was storming. I find a cave in which I would live for the next 4 years, and started a fire through friction.
 
   
 The next few days, with the storm abated, I started studying the organisms, and which would be the easiest to kill and eat.  
@@ -56,7 +56,7 @@ I was at the top of the food chain in this new ecosystem.
 
   
 What killed me was a lack of human contact, on the flipside.  
-With a two-ply yarn, I made myself a noose to kill myself with, but changed my mind at the last moment.  
+With a two-ply yarn, I made a noose to kill myself with, but changed my mind at the last moment.  
 As animals started disappearing from my hunting grounds, food was becoming harder to find. Quicker animals I lamed because they were too fast.
 
   

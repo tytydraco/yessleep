@@ -30,7 +30,7 @@ The young commando jolts awake, coughing and spluttering, his eyes darting aroun
 
 Wright's initial reaction is pure instinct—a desperate yet futile attempt to free himself from the constraints that bind him to the wooden chair.
 
-I position myself directly in front of him. As my English is marginally the best, I take the lead.
+I position myself directly in front of him. My English is rough, pieced together from interactions with American advisors, and heavily skewed towards military jargon. But it's marginally the best.
 
 "We can do this the easy way or the hard way.”
 
