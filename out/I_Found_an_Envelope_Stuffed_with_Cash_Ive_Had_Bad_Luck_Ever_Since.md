@@ -30,7 +30,7 @@ Dreadfully, I drove to work, where I got reprimanded for being late. Making matt
  
 Head down and unhappy, I collected my belongings and hunkered home. The envelope greeted me, missing a twenty, which I’d used for the crotchety coffee. I ordered a pizza. When the pizza arrived, I grabbed two twenties from the envelope and paid the pizza delivery guy, tipping him handsomely.
  
-After scarfing down half the pizza, I settled in front of my laptop and went job hunting, feeling more miserable than ever. At some point, I fell asleep, and woke up feeling noxious. 
+After scarfing down half the pizza, I settled in front of my laptop and went job hunting, feeling more miserable than ever. At some point, I fell asleep, and woke up feeling nauseous. 
  
 I groaned. Something was wrong. My stomach and bowels belched simultaneously. Cold sweat stung my eyes. I raced to the toilet, barely making it in time. Cheese and dough and meat spewed from my face. After an abominable bout of barfing, I prayed to the porcelain god: “Please oh please make this suffering stop.” 
 
@@ -150,7 +150,7 @@ The gang of motleys cackled.
  
 I scanned the vicinity, searching for rescue. The streets were barren. It was too cold for stragglers. I was helpless.
  
-The knife tickled my throat. It’s long and slender blade glistened under the glow of the Snow Moon. I gulped. One wrong move and I’m dead. Shakily, I emptied my pockets. My keys spilled onto the slushy sidewalk. So did the cash.
+The knife tickled my throat. Its long and slender blade glistened under the glow of the Snow Moon. I gulped. One wrong move and I’m dead. Shakily, I emptied my pockets. My keys spilled onto the slushy sidewalk. So did the cash.
  
 “You rich, eh?” They counted the cash, walloping like hyenas. “This is our money, now!”
 

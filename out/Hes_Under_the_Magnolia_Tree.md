@@ -6,7 +6,7 @@ Our new abode was a two-story country house on an acre of land in our rural Nort
 
 At night, we’d open the windows to let the cool air of the evening come in. That night in particular, I woke up for no particular reason. I didn’t need to pee, and I wasn’t thirsty. But something roused me from my slumber and compelled me to gaze out of the window. The pale blue light of the street lamp was soft and serene, casting an ethereal glow on my window sill. The cool wind blew gently, rustling the branches of the magnolia tree. I climbed out of bed and walked over to peer outside, and froze in my tracks in what I can only describe as cold-blooded panic.
 
-Beneath the branches of the faithful magnolia, barely visible in the shadows of its branches and the thick trunk, was the tall, lean outline of a man. He was shrouded in darkness. I couldn’t make out his age, his hair color, what he was wearing, or any details of his face. But somehow, even without seeing his eyes, I knew he could see me. Because as I stood there, frozen in place looking down at him, he stood there unmoving, looking up at me. 
+Beneath the blooms and leaves, barely visible in the shadows of the branches and thick trunk, was the tall, lean outline of a man. He was shrouded in darkness. I couldn’t make out his age, his hair color, what he was wearing, or any details of his face. But somehow, even without seeing his eyes, I knew he could see me. Because as I stood there, frozen in place looking down at him, he stood there unmoving, looking up at me. 
 
 ‘Go wake Mom. Go, go wake Mom. Go, NOW!’ 
 
