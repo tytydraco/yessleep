@@ -1,3 +1,5 @@
+[Part 1](https://www.reddit.com/r/nosleep/comments/1b95vd1/something_weird_keeps_happening_on_the/)| [Part 2](https://www.reddit.com/r/nosleep/comments/1bayg95/something_weird_keeps_happening_on_the/)| 
+
 I’ve been hiking parts of the Appalachian Trail for about 15 years, successfully through hiked it NOBO in 2020 (from Georgia to Maine for any readers not familiar with the jargon), and would humbly consider myself an all around seasoned hiker. I’ve spent hours searching online, spoken to hiking friends, burned through books at the library and have simply come up short. I’m writing this post because I’ve never experienced anything like what happened the last few times I’ve been on the trail and need to know if anyone knows what the hell this is.
 
 It started happening about two months ago on a weekend backpacking trip. I left right from work so I got a bit of a late start but I work pretty close to a trail head that takes me up to a nice, more remote section of the trail. I’m just going to start from the beginning, specific details and all, about each day I’ve been on the trail. Hopefully I overlooked something that makes this make sense.
