@@ -1,0 +1,29 @@
+When I was 10, I often suffered from sleep paralysis. I'd be unable to move as this man in a black suit, a green tie, and aviator sunglasses would walk up to me and grab my hand, revealing his eyes—one pure stark white with a scar and the other intense kelly green that made me feel a sense of joy and euphoria.   
+
+I felt safe, like in the presence of a long-lost friend or a relative. But his smile broke his disguise. A smile in which I'd practically hear a word if I stared too long. A word I didn't know the meaning of because of how young I was but knew I could listen to if I just tried hard enough. It echoed, bouncing off not only the baby blue walls of my tiny bedroom but also the  walls in the interior of my mind. "Malice".  
+
+He would stand there for hours on end staring, every minute passing the word on his lip, growing louder and louder. The color of his kelly green eye became brighter until his ever so relaxed facade quickly decayed as the sense of malice became more than just a word I didn't understand but a warning. The feeling of security I once felt at the beginning of this encounter was almost brutally murdered by fear... by malice.  
+   
+A minute before I'd wake up, he would lean in, smile intact, and the only thing I could see was his kelly green eye, almost blinding, almost hypnotic. Still, I couldn't look away, the smell of cheap cologne getting ever more intense, and then I heard it. Whispers in the wind, a voice emanating from behind, perhaps within my mind, details. Gory, traumatizing information, descriptions of people, a lot of people suffering, and not only that but offers of knowledge, my future, offers of everything I could ever want, but I just couldn't speak, I couldn't scream until finally, I'd wake up. This happened every day for 6 months. Whenever I tried thinking about the nightmare, specifically what was said during it, all I remember was a dreadful silence followed by a sense of relief I can not explain. Yet, from somewhere inside of me comes excitement for the subsequent encounter.   
+
+One day, the final day, another man appeared. The black-suited man was unaware of the other man, and right when his kelly green eye was getting closer like usual, a hand was placed where his eye was. The last thing I saw was the black-suited man getting ready to turn around and let go of my hand, and then I woke up. That was the last time I saw both men. Part of me always thought it was just a nightmare. Awful nightmares that I would just forget the following day as if they were a distant memory, with a sense of confusion from the intertwining feelings in my 10-year-old brain that could easily be ignored. But this time was different because when I woke up, my hand was bruised as if someone had squeezed it too hard. That's when I knew I would see them again.  
+
+12 years later, and I'm outside my car, staring at the man who got rid of my nightmares, taking a picture of my license plate with an old Cosmoflex camera, and threatening to tow my car for parking on top of his… hole?  
+
+The man who once freed me from my nightmares was now threatening the mundane tranquility of my adult life over a parking dispute? His presence, no less unsettling in the daylight, sparked the fire that brought all these memories and unanswered questions to the forefront of my thoughts. Why had he saved me? And what was this 'hole' he claimed I had carelessly parked over? And why hasn't he aged in these 12 years?  
+
+"Excuse me," I began, my voice steadier than I felt, "but we've met before, haven't we?" The question hung in the air, charged with the same intensity as our previous encounter, though in a vastly different context.  
+
+He paused, his eyes giving way to a flicker of recognition or perhaps intrigue. "I have never seen you in my life," he stated simply, his tone neutral yet carrying an undercurrent of something I couldn't quite place—was he lying?  
+
+The mention of the hole again piqued my curiosity, overshadowing the immediate irritation of the parking issue. "What's so important about this spot?" I asked, gesturing to the seemingly ordinary asphalt patch under my car.  
+
+"It's not the spot," he replied cryptically, "but what lies beneath. Go ahead, go take a look." His gaze shifted from me to the car, then back to me as if waiting for a reaction.  
+
+I dropped to my knees and bent down. I stared intently at the ground under my car to try and make out what he meant by "hole," but it was too dark. I reached for my phone as a flashlight and pointed it at the ground under my car. It was like the darkness swallowed the light. Then, suddenly, as I desired to get closer to the hole, the man grabbed my arm and helped me onto my feet.  
+
+"It's not safe," he warned his grip firm yet not unkind. His grave eyes bore into mine, rooted me to the spot. "Still have a bit of an inquisitive spirit, do you?" his words, laced with an enigmatic familiarity, echoed a sentiment of forewarning, as if acknowledging a shared history yet to be fully understood. "What lies beneath is not for the unprepared," he continued, whispering against the cacophony of my racing thoughts. "Some doors, once opened, cannot be closed." The air around us felt charged, heavy with unspoken truths and the shadow of secrets untold. "Anyway, I don't think you're ready yet, so you should continue your day. I'll see you again." He said wishfully as he pressed his index finger on my forehead.  
+
+Suddenly, I popped into my car, the engine on, and the car pulled out of the parking spot. I don't remember doing it, yet I feel comfortable with that idea. I'm almost glad I don't know how I got here. It is as if some perception filter in my brain triggered it.   
+
+I continued on with my life for a year until one day. I woke up at a crossroads, standing, unable to move with the smell of cheap cologne in the air.  
