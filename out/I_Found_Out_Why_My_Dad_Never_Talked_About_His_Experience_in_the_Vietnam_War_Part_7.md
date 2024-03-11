@@ -196,7 +196,7 @@ I whirl around just in time to see two smoldering undead soldiers, their uniform
 
 I raise my rifle, taking aim at the closest one. The bullets tear through the approaching undead, stopping it in its tracks. 
 
-Before I can fully register the threat, the second undead soldier closes the gap, its burned body pressed against me, its jaw snapping at my face. The stench of charred flesh and death is overwhelming, nearly choking me. In a panic-driven reflex, I fumble for the Makarov pistol at my side, yanking it free from its holster.
+Before I can fully register the threat, the second undead soldier closes the gap, its burned body pressed against me, its jaw snapping at my face. The stench of charred flesh and death is overwhelming, nearly choking me. In a panic-driven reflex, I fumble for the Makarov at my side, yanking it free from its holster.
 
 With the creature's grotesque face looming over mine, I jam the muzzle of the pistol under its jaw and squeeze the trigger. The shot reverberates sharply in the confined space. The creature's head snaps back, its body going limp before collapsing in a heap at my feet.
 
@@ -402,7 +402,7 @@ Lâm places a hand on my shoulder, squeezing it lightly. "Take as much time as y
 
 As Tuyết and I stand there, holding each other in the quiet dawn, she untangles her checkered black and white scarf from around her neck and drapes it over mine. The fabric feels soft against my skin, carrying the warmth of her body. She smiles up at me.
 
-"If anyone asks," she starts, trying the scarf into a knot. Her smile widens playfully. "You can tell them you took it off the elusive Viet Cong sniper you killed."
+"If anyone asks," she starts, trying the scarf into a knot. Her smile widens playfully. "You can tell them you took it off the elusive Viet Cong sniper you killed with your bare hands."
 
 I laugh, the sound more heartbroken than I intended.
 
