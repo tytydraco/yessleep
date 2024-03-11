@@ -156,7 +156,7 @@ As the clamor of gunfire grows closer, I motion to the team to find cover. The s
 
 The door bursts open, and a group of soldiers, their boots thudding against the tiled floor, storm into the room. They sweep the area, rifles at the ready, their eyes missing our hidden forms by mere centimeters. Behind them, a meek-looking man in a blood-stained white lab coat follows, clutching a clipboard to his chest as if it were a lifeline.
 
-As the soldiers spread out, methodically checking each corner of the lab, we position ourselves for an ambush.
+As the soldiers spread out, methodically going through each cage and shooting its occupant, we position ourselves for an ambush.
 
 Văn's hand tightens on the trigger of his RPD, his eyes tracking the soldiers as they move closer, unaware of the storm that awaits them. Beside him, Lâm and Hùng are statues carved from the shadows.
 
@@ -190,7 +190,7 @@ I narrow my eyes, the anger simmering within me. "Control group?"
 
 "Yes," he stammers, pushing his glasses up his nose with a shaky hand. "In any experiment, you need a baseline. A group that receives a placebo, to measure against those that do…”
 
-“Goddamn it! What does that mean?” I demanded.
+“Goddamn it! What does that mean?” I demand.
 
 “It means he's... he's unharmed, physically,” he clarifies.
 
