@@ -104,7 +104,7 @@ Wolff stops and surveys the scene with a calculated gaze, his hands clasped behi
 
 "Sir, the villagers claim they don’t know anything about Project Grim Harvest. We've searched the houses, interrogated several of them. Nothing."
 
-Wolff responds with an icy, humorless chuckle. "Bullshit they don’t," he says, his voice tinged with scorn. He pulls down his bandana, revealing a face that's as battle-scarred as it is cold.
+Wolff responds with an icy, humorless chuckle. "Bullshit they don’t," he says, his voice tinged with scorn. He pulls down his bandana, revealing a face that's as battle-hardened as it is cold.
 
 Wolff's movements are swift and predatory as he navigates through the crowd of villagers. His eyes scan the gathered people, searching for a target to make an example of.
 
@@ -120,29 +120,29 @@ From the terrified crowd, a small child breaks free, a little girl no more than 
 
 "Mẹ ơi!" (Mommy!) she cries, her voice piercing the tense silence.
 
-As the child reaches her mother, wrapping her small arms around her, Wolff grabs the girl by the back of her shirt collar. He lifts her up, her legs kicking in a futile attempt to break free. Linh’s screams, a raw, primal sound that cuts through the air.
-
 “That’s Mai!” Tuyet cries.
 
-Wolff's hand moves to his side, drawing an M1911 pistol. The gun gleams coldly in the sunlight as he presses it against the Mai's temple. The girl's eyes are wide with uncomprehending fear, her sobs choked and quiet.
+As the child reaches her mother, wrapping her small arms around her, Wolff grabs the girl by the back of her shirt collar and tosses the her to the side like discarded trash. Linh’s screams, a raw, primal sound that cuts through the air.
 
-"Where are you hiding them?" Wolff barks in heavily accented Vietnamese. “Speak, or the girl dies!"
+Wolff lifts Linh up, her legs kicking in a futile attempt to break free. His hand moves to his side, drawing an M1911 pistol. The gun gleams coldly in the sunlight as he presses it against the Linh's temple. The woman's eyes are wide with uncomprehending fear, her sobs choked and quiet.
 
-Linh, her body trembling, stammers in response, "Please, I don't know what you're talking about. Please, don't hurt her!"
+"Where are you hiding them?" Wolff barks in heavily accented Vietnamese. “Speak, or she dies!"
+
+Linh, her body trembling, stammers in response, "Please, I don't know what you're talking about. Please, don't hurt me!"
 
 The major cocks his pistol. "I won’t ask again. Where are they?"
 
-Tuyết, watching helplessly, whispers through gritted teeth, "We have to do something, Thành. That's my niece. We can't let him..."
+Tuyết, watching helplessly, whispers through gritted teeth, "We have to do something, Thành. That's my sister. We can't let him..."
 
 I agree with her sentiment, but what can we do? We are two against many. The thought of intervening is a dangerous one, a likely suicide mission. Yet, doing nothing feels like an even greater crime.
 
-As the tension in the village square reaches a feverish peak, an elderly villager steps forward. His gait is unsteady, his back bent with age, but his eyes burn with a defiant fire. “Take me instead,” he says, his voice raspy but firm. “Let the child go.”
+As the tension in the village square reaches a feverish peak, an elderly villager steps forward. His gait is unsteady, his back bent with age, but his eyes burn with a defiant fire. “Take me instead,” he says, his voice raspy but firm. “Let the woman go.”
 
 The Major turns to face the old man, his smirk a cruel twist of lips. For a moment, there's a flicker of emotion in his eyes, as if he finds the offer amusing, a brief interlude in his reign of terror. Then, without a word, he raises his pistol towards the man and fires. The old man collapses, a crimson stain spreading across his shirt.
 
 Panic erupts among the villagers. Cries of horror and grief mingle with the wails of the child, still held captive in Wolff's merciless grip.
 
-Wolff tosses Mai roughly to the ground beside her mother, who immediately envelops her in a protective embrace. The girl's sobs are muffled against her mother's chest, her small body shaking with fear.
+Wolff throws Linh roughly to the ground beside her daughter, who immediately envelops her in a protective embrace. The girl's sobs are muffled against her mother's chest, her small body shaking with fear.
 
 Wolff stands up, surveying the village with a cold detachment. "Burn it all," he orders, his voice devoid of emotion. "Leave no witnesses."
 
