@@ -16,7 +16,25 @@ Before I can respond to Lâm, Tuyết approaches, her expression grim. Beside he
 
 Mrs. Hà's voice trembles as she speaks, her hands clasped tightly together as if holding onto hope itself.
 
-"He's just a boy," she pleads, her voice breaking with emotion. "They came at dawn, took him from his bed... Please, you must help me find him!"
+"He's just a boy," she pleads, her voice breaking with emotion. "They came at dawn, took him... Please, you must help me find him!"
+
+Mai, still visibly shaken, clings to her aunt's leg, her small frame trembling. Tuyết kneels down to her level, her voice a soothing whisper, trying to coax her niece into sharing what she saw. "It's okay, Mai. You're safe now. Can you tell us what happened to Lực?"
+
+Her voice is barely above a whisper, her words fragmented by fear. "We were... we were fetching water... from the stream," she begins, her eyes darting around as if the memory itself could bring the terror back to life. "And then... then they came."
+
+"Who came?" I press.
+
+Through her sobs, Mai explains how they were ambushed. "A smiling man came... he grabbed Lực," she manages to say. "I hid... I hid behind the rocks. They didn't see me."
+
+"Did you see where they took him, Mai?" I ask, keeping my voice gentle, not wanting to push her too hard.
+
+Mai shakes her head, fresh tears brimming in her eyes. "No... I was scared. I stayed hidden until they were gone. I'm sorry..."
+
+"It's okay sweetie. You were very brave." Tuyết pulls her niece into a tight embrace, her eyes meeting mine over the girl's head.
+
+"Please, you must help me find him!" Mrs. Ha pleas.
+
+"We'll do everything we can to find your son," Tuyet declares. "Won't we, Thanh?"
 
 Lam furrows his brow, "How can we? We wouldn’t even know where to start.”
 
@@ -213,6 +231,18 @@ His admission sends a chill down my spine. I press him for details, "What failed
 He shudders, closing his eyes as if to block out the memories. "Things... not human anymore. Some were dead, but not dead. Others... twisted, screaming. They were trying to weaponize them, use them against Charlie. But some... they couldn't control."
 
 I stand up, processing the information. Around me, my companions exchange grave looks.
+
+"Who is the Smiling Man?" I ask directly, my tone neutral yet firm, aiming to penetrate his initial bewilderment.
+
+Wright's confusion is evident as his brow furrows, clearly caught off guard by the question. It takes him a moment, but recognition slowly dawns in his eyes. 
+
+"You mean Dr. Archer?" he finally responds, his voice laced with a hint of surprise. "That's what some people call him, yeah. He's the site director."
+
+"Why do they call him that?" I press, curious about the origins of such a moniker, especially under these circumstances.
+
+Wright shrugs, a helpless gesture that conveys his limited insights. "I don't know, honestly. I've never met him in person. Just heard the guys talking about him sometimes. Maybe he just has a big grin on his face all the time."
+
+I take a moment to reflect on what he said.
 
 Wright's bloodshot eyes meet mine, a flicker of something resembling acceptance passing through them. "You gonna kill me now, boss?" His voice is devoid of its earlier bravado, replaced by a weary resignation.
 
