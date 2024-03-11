@@ -118,7 +118,7 @@ As we move cautiously through the aisles, the sounds of frantic activity reach u
 
 At the end of one aisle, a maintenance ladder is bolted to the wall, leading up to a narrow catwalk that runs the length of the storage area, crisscrossing overhead.
 
-We make a beeline for that ladder, moving as quietly as a group of heavily armed, slightly banged-up commandos possibly can. It's like some twisted game of hide and seek, with stakes much higher than any of us would like. Tuyet, with Luc clinging to his back like a little monkey, goes first. The kid's got a tight grip, but I can't help but admire his silence through all this. Kid's got guts.
+We make a beeline for that ladder, moving as quietly as a group of heavily armed, slightly banged-up commandos possibly can. It's like some twisted game of hide and seek, with stakes much higher than any of us would like. Tuyet, with Luc clinging to his back like a little monkey, goes first. The kid's got a tight grip, but I can't help but admire her silence through all this. Kid's got guts.
 
 As we navigate the precarious catwalks above, the cold air bites at our exposed skin. The metal underfoot groans with every step. From this vantage point, we have a clear view of the facility's interior workings, a hive of activity.
 
@@ -180,7 +180,7 @@ With the facility descending into pandemonium, the screams of the trapped and bu
 
 As the undead draw closer, we make a desperate dash up a set of stairs leading to the maintenance door, our only chance of escape. Reaching the door, I see it’s locked, the biometric pad blinking mockingly in the dim light.
 
-I retrieve the severed hand from my pack. Pressing the grotesque key against the pad yields nothing but a blinking red light in refusal. "Fuck!" I curse.
+I retrieve the severed hand from my pack. Pressing the grotesque key against the pad, yielding nothing but a blinking red light in refusal. "Fuck!" I curse.
 
 "I think… the hand's too cold. The scanner can't read it," Tuyết observes, her voice strained.
 
@@ -232,23 +232,23 @@ As the group wheels the coffin towards the awaiting Chinook in the courtyard, th
 
 Realizing time is slipping through our fingers like sand, I signal to my team.
 
-Without hesitation, we break cover, rushing towards the door with the desperation of the damned. Our footsteps echo loudly, a drumbeat to our frantic sprint.
+Without hesitation, we break cover, rushing towards the doors with the desperation of the damned. Our footsteps echo loudly, a drumbeat to our frantic sprint.
 
 The soldiers, caught by surprise, react with trained efficiency, turning their weapons towards us. Bullets whiz past, close enough to singe the air. 
 
 Tuyết, still protecting Luc, falls behind me, her movements hampered by the need to shield him. Lâm and Hùng flank her, providing cover fire.
 
-As we close the distance, the door begins to inch shut, the finality of it like a death knell. I surge forward, throwing caution to the wind, firing my AK-47 in controlled bursts.
+As we close the distance, the doors begin to inch shut, the finality of it like a death knell. I surge forward, throwing caution to the wind, firing my AK-47 in controlled bursts.
 
 A bullet grazes my thigh, a line of fire that almost buckles my knees. I grit my teeth against the pain, pushing through it.
 
-But it's too late. With a resounding clang, the door slams shut.
+But it's too late. With a resounding clang, the doors slam shut.
 
-Kicking at the door proves futile; the heavy steel doesn't even budge under the assault of our boots and shoulders. The sounds of the undead grow closer, a cacophony of groans and dragging feet encroaching from three directions. 
+Kicking at the doors proves futile; the heavy steel doesn't even budge under the assault of our boots and shoulders. The sounds of the undead grow closer, a cacophony of groans and dragging feet encroaching from three directions. 
 
 I reach into my pack, my fingers finding the cold, malleable block of Semtex. Lâm joins me as we work to set the charges, a race against the relentless advance of the undead. The corridors echo with their hungry moans, a chilling soundtrack to our desperate efforts.
 
-Lâm presses the plastic explosive along the door's seams. I wire the charges, connecting them to a detonator. Our audience, the undead, draws ever closer, their disjointed limbs casting long, grotesque shadows that stretch towards us.
+Lâm presses the plastic explosive along the doors' seams. I wire the charges, connecting them to a detonator. Our audience, the undead, draws ever closer, their disjointed limbs casting long, grotesque shadows that stretch towards us.
 
 Tuyết and Hùng stand ready, their weapons aimed at the encroaching horde. Luc clings to Tuyết, his small body pressed against hers.
 
