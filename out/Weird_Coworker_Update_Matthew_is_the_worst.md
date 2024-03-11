@@ -75,7 +75,7 @@ I'm in here! This isn't me! Please don't hate me! *Please!*
 
 But when you're in the backseat, you're helpless, only able to sit in stunned terror as the driver yanks the steering wheel into a head-on collision. 
 
-I wished I could stop myself or look away as the person who wasn't me weilded my car keys like claws, raking long scrapes across Ramy's face. *I'm sorry.* Ramy seized the False Lab Rat's wrist, then in ine swift motion, he was on top of the imposter. 
+I wished I could stop myself or look away as the person who wasn't me weilded my car keys like claws, raking long scrapes across Ramy's face. *I'm sorry.* Ramy seized the False Lab Rat's wrist, then in one swift motion, he was on top of the imposter. 
 
 Ramy's voice was surprisingly gentle as he kept my body from thrashing, "Hang in there, Lab Rat."
 
