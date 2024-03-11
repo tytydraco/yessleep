@@ -388,7 +388,7 @@ As I glance back at Lâm and Hùng. "Give us a moment?" I ask, my voice softer t
 
 Hùng, with a playful grin, says, “Try to send him back to us in one piece.”
 
-“Yeah, we've grown quite fond of him,” Lam jokes. “Despite how ugly he is.”
+“Yeah, we've grown quite fond of him,” Lam jokes. “Despite how damn ugly he is.”
 
 Tuyet chuckles, a spark of light in her eyes. "I'll do my best, but I'm not making any promises."
 
