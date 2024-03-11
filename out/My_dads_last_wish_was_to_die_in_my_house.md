@@ -16,7 +16,7 @@ We named him August.
 
 Four years later, there was a knock at my door. When I opened it, I saw the last person I ever expected to find on my porch: my dad. He had a suitcase in his hands and a smile on his face. 
 
-"There he is!" He said, immediately pulling me into a hug. I was speechless. I recognized him instantly, but the past 16 years had taken a profound toll on him. He was sallow and bald, rake-thin and unsteady on his feet. His eyes had the same piercing quality they'd always had, but despite his lucidity, I could tell that he was very ill. He eventually let me go, and as if to confirm my suspicions, he said, "Come on, now; won’t you invite a dying man inside?"
+"There he is!" He said, immediately pulling me into a hug. I was speechless. I recognized him instantly, but the past sixteen years had taken a profound toll on him. He was sallow and bald, rake-thin and unsteady on his feet. His eyes had the same piercing quality they'd always had, but despite his lucidity, I could tell that he was very ill. He eventually let me go, and as if to confirm my suspicions, he said, "Come on, now; won’t you invite a dying man inside?"
 
 Once the shock of his appearance and his morbid news wore off enough for me to move again, I let him inside my (his? our?) home. He set down his suitcase in the living room and took a seat on the couch, taking in the room while I nervously sat on the chair across from him. 
 
@@ -36,7 +36,7 @@ That night, I had the strangest dream. I was in a meat locker, laying on the cem
 
 *Coming in?* 
 
-I woke up with a jolt, sweaty and sick to my stomach from the nightmare, which had been so vivid that I had to take a few moments to ensure my skin was still attached to my body. Once I had steadied myself, I got out of bed and made myself presentable. I found Dani cooking breakfast in the kitchen. My dad was there too, sitting at the table and helping August cut up his pancakes and strawberries. The sight of three of them sharing a happy moment together made my heart soar. Forgetting my dream, I joined them, cooking and sharing stories of the past twelve years with my father. It was a perfect morning. 
+I woke up with a jolt, sweaty and sick to my stomach from the nightmare, which had been so vivid that I had to take a few moments to ensure my skin was still attached to my body. Once I had steadied myself, I got out of bed and made myself presentable. I found Dani cooking breakfast in the kitchen. My dad was there too, sitting at the table and helping August cut up his pancakes and strawberries. The sight of three of them sharing a happy moment together made my heart soar. Forgetting my dream, I joined them, cooking and sharing stories of the past sixteen years with my father. It was a perfect morning. 
 
 I enjoyed having my dad in my life again, but his rapidly declining health was difficult to contend with. I did my best to care for him while still giving him privacy and autonomy. Deep down, although I knew it was unfair, I couldn't help but be frustrated by his weakness. *So it was all for nothing?* I wanted to scream at him. *You put us both through Hell all those years just so you could leave me again?* Instead, though, I put on my brightest smile and tried to make his days as easy as possible. I had learned nothing from all of those fasts if not restraint. 
 
