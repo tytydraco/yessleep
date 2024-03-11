@@ -1,0 +1,31 @@
+Everyone and everything goes through cycles. How is what we do now in anyway different from what we did 1000 years ago? If you have any knowledge of history I'm sure you understand what I mean. My point is that; What we are doing wrong today will eventually be repeated again tomorrow.
+
+I've had a series of dreams over the last year. The strangest part was that they didn't feel like "dreams." In a dream, you are usually hopping around from one place to the next. When you wake up, you forget everything. I'm not one to keep a dream journal, but I remembered the entirety of the dreams I had. Not just that, but in these dreams everything appeared to be absolutely coherent. Even though the content of them didn't make sense to me at the time.
+
+Let me begin from the top:
+
+The first dream I had was about a man standing in front of a mirror. When I woke up, I remembered every single detail of that dream. This is what shocked me to start writing: The man's face didn't look right. He stood in a bathroom facing the mirror with a hand to his chin. I know that I cannot create new faces inside of my dream, so why is was his face so different?
+
+In all honesty up until now in writing this I've been trying to keep my cool and avoid using any certain words that come off too strong. I had a vision that predicted looks-maxing.
+
+I am on the verge of tears thinking about telling you all this. Everyone I have told has laughed me off. It's like I've gone insane. I tried keeping this all to myself originally but after months the follow dream logs pushed me to say something:
+
+Sat on a surgery table was someone surrounded by nurses and a doctor. They were administering some type of medicine through a syringe. There was a big bag of fluid. I didn't know why I focused so much on this stupid bag, but I do now. The next dream I was holding this phone or something. But it was different. No buttons or a power jack. It was almost completely a glass brick. When I sat it down it shut off. When I picked it up it turned right on. That's when I realized I didn't know what year it was. If I predicted something to happen in 8 months, why couldn't I predict something several years ahead as well? When I thought about the last dream I had a video instantly started playing on the phone.
+
+"You might have seen this picture online of a man getting surgery to have half of his stomach acid removed." Stood in front of the camera was a man with an undercut/pompadour that went straight up like the Slim Jim Guy. Must have reached at least a foot above his head. "The "Yellow Man" has been memed to death on Z (formally known as X) but I'm going to tell you that there actually ARE some benefits to his decision." This is where people stop listening to me when I try to explain my dreams to them, but here is the most important part:
+
+"Recent studies have indeed shown that America's gut health problem can simply be solved by preventing your gastric glands from producing the normal amount of acid. Now, this DOES cost the under-goer of the surgery to have a shortened lifespan. But it is an equal trade for some people to be able to live out there 20s to 50s without the tremendous gut pain that people commonly experience growing older. And...- As we have seen, being 80+ years old is not exactly good for the rest of the population. The only thing that's holding people back from this surgery is the yellow hue that forms on the skin. However, doctors and medical professionals say this should clear up after a couple days."
+
+The next dream took form as a typical YouTube rant about "Yellow Man" surgery. A long haired deep voiced man sat in front of his desk as he said:
+
+"The Yellow Men have taken over the internet and it's crazy. Ha Ha. Recently a friend of mine is actually going through the process of yellow man surgery himself. Le wish him luck. Ha Ha. My problem with it however is just that well so basically; first this has yet to be absolutely CONFIRMED by scientists and doctors for long term effects. Like yes, I know it halves your life span. But what if this causes more issues 5 years or just like 5 months after the surgery? And also, I understand that, yes, nobody should need or really want to live until 80 years or older. But it's like, just sort of think about all the things you could like basically do with just like 20 extra years. I don't know."
+
+I got to read the comments of that same video and every single one was some form of: "F you" or "You're an A hole". Some people went into full paragraph discussions about the Youtuber was spreading hateful and selfish ideas because of his support for living longer than 50. On Z, the Youtuber's home address went trending. Other Youtubers were quick to bandwagon on him. I had not seen a more awful reaction on the internet ever.
+
+The next dream I had was of the same Youtuber. This time I was on his home page and his 4 last videos were titled: "I'm Sorry", "Tiktoker Eats Boogers for Clout", and "I'm Getting the Yellow Man Surgery" which was posted a full 5 months before his latest video "Surgery Update".
+
+"Surgery Update" is probably one of the saddest experiences I've had to endure in my entire life. Sitting before the camera is a man I once thought I knew. His long hair now falling out, skin hued to a bright yellow, and shaking violently. He was weak and frail and if the years he aged rapidly to the years he thought he threw away, and his eyes bloodshot from appearing to have been crying before the recording.
+
+"So I meant with a few doctors and apparently because of some preexisting medical conditions I had the surgery didn't go as planned. We are looking into mercy killing options and I will not be around for this channel from here out."
+
+The final dream I had was of months later when it appeared on Z that blood transfusions could have possibly reversed the effects that caused the Youtubers death. When he died people actually did seem to care for a little while. But he was forgotten. And everyone eventually just continued on.
