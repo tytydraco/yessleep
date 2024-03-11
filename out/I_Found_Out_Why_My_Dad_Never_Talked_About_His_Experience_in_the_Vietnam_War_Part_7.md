@@ -268,7 +268,7 @@ The Chinook, its twin rotors whipping the air into a frenzy, begins to lift off,
 
 I bark a command to Hùng, "Take it down!"
 
-Hùng quickly loads a fresh rocket into the launcher. But just as he aligns his sight with the fleeing helicopter, a voice, weak and soaked with blood, pierces the din. "Please, don't! I beg you…"
+Hùng quickly loads a fresh rocket into the launcher. But just as he aligns his sight with the fleeing helicopter, a weak voice pierces the din. "Please, don't! I beg you…"
 
 It's Dr. Archer, the Smiling Man, emerging from beneath a pile of rubble, his body a map of wounds and his face smeared with blood.
 
@@ -310,7 +310,7 @@ I keep my rifle trained on him. "You still need to reap what you sewed…" I tel
 
 We start moving, quickly and quietly, back into the dark embrace of the jungle. Behind us, the groans and shuffling footsteps of the undead grow louder.
 
-Behind us, the Smiling Man's screams are drowned out by the growls and snarls of his own creation. I don't look back.
+The Smiling Man's screams are drowned out by the growls and snarls of his own creation. I don't look back.
 
 —
 
@@ -324,7 +324,7 @@ After washing away the grime and the vestiges of death that clung to our skin, t
 
 During the meal, Tuyết's hand finds mine beneath the rough-hewn table. Her fingers interlace with mine, squeezing tight. It’s a cathartic gesture that binds us closer than any words could.
 
-We quietly excuse ourselves from the communal table, slipping away into the cool evening. I leave first, followed by Tuyet, as to know draw any unwanted attention. 
+We quietly excuse ourselves from the communal table, slipping away into the cool evening. I leave first, followed by Tuyet, as to not draw any unwanted attention. 
 
 Tuyết leads me to a small, secluded hut on the edge of the village. The air between us is thick with unspoken emotions.
 
