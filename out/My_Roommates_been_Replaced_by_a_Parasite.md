@@ -50,6 +50,20 @@ I’m ashamed to say I maybe could’ve helped the poor guy, based on his scream
 
 “Good, spread the feeling,” Halle replied to him, still not sounding or speaking quite like herself, but sounding much closer than she did before. That’s the thing that worried me most, she seemed much more coherent and better at sounding like herself.
 
-After that, I ran out of there, not even bothering to stop back at the apartment to grab my things, instead running straight to my friend Devin’s dorm on the other side of campus. I figured he’d let me crash with him for a day or two until I can get off this campus all together. I’m convinced whatever that was wasn’t actually Halle, some kind of parasite or fucking body snatcher or something.
+Just as I was about to run out of there, ready to run from whatever terrifying attack I just saw and never come back, Halle's phone went off in my pocket. Her loud ass ringtone that I had heard a thousand times now ringing out through the otherwise quite night. I silently swore and tried to quickly silence it.
 
-I don’t know if something happened to her at that night lab she went to, or if the night lab was even a real thing, but I just need to get out of here. I don’t know if these things are going to “spread this feeling” to the whole campus, but I’m not staying around to find out.
+Both Halle and the other guy's heads snapped in my direction immediately, catching a glimpse of me before I could fully duck back around the corner.
+
+"Marshall... was that you?" The thing the had replaced Halle called out and she slowly started walking up the alley towards me.
+
+"We... can make... you feel better," The other one called out, its speech still noticeably worse than the one that had replaced Halle.
+
+"Marshalllll, it'll be good for you," The first one called out as she continued to more closer.
+
+I was paralyzed with fear for a moment, trying to will myself to run with no success. It was only when Halle was about halfway to me and she started running did my fear paralysis shake off. I ran away from the apartment, dropping her still ringing phone as I did, and they both broke off in a dead sprint after me. I think Halle was keeping pretty good pace with me, I was too scared of what I'd see to look back, but I could hear her footsteps slamming behind me, closer than I'd like. The other one, whether he could feel the pain or not, his leg was still broken. It took about three or four awkward steps towards me before its leg buckled, collapsing in a heap on the ground.
+
+After running through streets that were only kind of familiar for five minutes, I got tripped up on myself and fell to the ground hard. The thing that was imitating Halle was on top of me instantly, clawing at my chest with her nails and trying to fully pin me down. Panicking, I fumbled for the knife in my pocket, trying hard to overwhelm my fear and steady my hands enough to get it out. I lashed out with my legs and planted a foot in Halle's chest, knocking her off of me for only a few seconds. The few seconds was all I needed to grab the knife and plunge it into her upper thigh over and over again.
+
+Feeling confident that she could no longer chase me, but not wanting to stick around, I continued running for another 20 minutes, fueled by nothing but cortisol and adrenaline. I ran until I got to my friend Devin's dorm on the other side of campus, and frantically pounded on the door until he let me in. I must've looked terrible, panicked and bleeding from my partially sliced open torso. Devin could tell something was up and told me I could stay with him for a few days. I thought about calling campus police, but thought against it, as it would probably incriminate me more than anything else. I needed to get away from that fuckin place.
+
+I don’t know if something happened to Halle at that night lab she went to, or if the night lab was even a real thing, but I just need to get out of here. I don’t know if these things are going to “spread this feeling” to the whole campus, but I’m not staying around to find out.
