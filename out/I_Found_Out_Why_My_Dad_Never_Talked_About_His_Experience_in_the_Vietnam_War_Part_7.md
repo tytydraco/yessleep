@@ -12,7 +12,7 @@
 
 Without even thinking, I launch myself towards the grenade, every muscle tensed for the desperate attempt to save Tuyet and the boy Luc.
 
-But before my fingers can grasp its cold metal, Văn surges past, and pushes me out of the way. 
+But before my fingers can grasp its cold metal, Văn surges past, shoving me out of the way. 
 
 "Get down!" he bellows. In one fluid motion, he grabs the grenade, intent on hurling it back towards our attackers.
 
@@ -402,7 +402,7 @@ Lâm places a hand on my shoulder, squeezing it lightly. "Take as much time as y
 
 As Tuyết and I stand there, holding each other in the quiet dawn, she untangles her checkered black and white scarf from around her neck and drapes it over mine. The fabric feels soft against my skin, carrying the warmth of her body. She smiles up at me.
 
-"If anyone asks," she starts, trying the scarf into a knot. Her smile widens playfully. "You can tell them you took it off the elusive Viet Cong sniper you killed with your bare hands."
+"If anyone asks," she starts, tying the scarf into a knot. Her smile widens playfully. "You can tell them you took it off an elusive Viet Cong sniper you killed with your bare hands."
 
 I laugh, the sound more heartbroken than I intended.
 
@@ -412,7 +412,7 @@ Once the badge is free, I hold it out to Tuyet. "And you can tell everyone you s
 
 Tuyết stares at the badge in her hands, her eyes glistening with unshed tears. I step closer, wrapping my arms around her in a tight embrace. 
 
-"I'll find you," I whisper into her hair, my voice steady despite the turmoil inside me. "When this godforsaken war is over, I'll come back for you."
+"I'll find you," I whisper into her ear, my voice steady despite the turmoil inside me. "When this godforsaken war is over, I'll come back for you."
 
 She pulls back slightly, looking up at me as if to gauge my sincerity. With a shaky breath, she manages a smile.
 
@@ -420,7 +420,7 @@ She pulls back slightly, looking up at me as if to gauge my sincerity. With a sh
 
 I lean in, pressing my lips to hers in a kiss that feels like both a beginning and an end. Time seems to stand still at that moment. The intensity of our emotions makes it feel like an eternity, yet when we finally part, it feels as though no time has passed at all, leaving us yearning for more.
 
-The sound of distant artillery, a grim reminder of the reality we're forced to return to, breaks the spell. With one last look, I turn to join Lâm and Hùng, each step away from her heavier than the last.
+The sound of distant artillery, a grim reminder of the reality we're forced to return to, breaks the spell. With one last look at Tuyet, I turn to join Lâm and Hùng, each step away from her heavier than the last.
 
 —
 
