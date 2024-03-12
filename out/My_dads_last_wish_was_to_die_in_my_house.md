@@ -64,7 +64,7 @@ After my wife and son left, I went to check in with my father only to discover t
 
 "What happened to your hand?" I asked. My dad pulled his eyes away from the window to look down at the angry slit running up the pad of his thumb. 
 
-"Cut it a few days ago. Happened when Dani and me were making dinner." 
+"Cut it a few days ago. Happened when Daniela and me were making dinner." 
 
 No he hadn't. I would've noticed. I would've bandaged it for him, and the cut looked too fresh besides. 
 
@@ -120,7 +120,7 @@ My dad didn't say anything for a moment, and then he gave a humorless chuckle.
 
 I shook my head at his nonsense, but said nothing. He was too far gone to argue with. Maybe he had been since that morning at the lake. Instead of trying to convince him, I placed my hand atop his and listened to the rain. After everything he and I had been through, it was nice to simply exist beside him. I sat there all night in silence, turning his offer over and over in my mind. When at last the storm ceased and the light of dawn broke through the darkness, I looked upon my dad's face and knew that he had died. To this day, I regret the fact that I do not know the exact time of death, nor do I know how long I was holding his hand after he was already gone. 
 
-Before I called EMS, I went to check in on my family. Dani was asleep in our bed, tired from her night out. I gave her a light kiss on the cheek before making my way to August's room. When I opened the door, I found my son sitting up in his bed, staring at the door frame in much the same way my dad had the night before. 
+Before I called EMS, I went to check in on my family. Dani was asleep in our bed, tired from her night out. I gave her a light kiss on the cheek before making my way to August's room. When I opened the door, I found my son sitting up in his bed, staring at the door frame in much the same way my father had. 
 
 "You alright, buddy?" 
 
@@ -132,7 +132,7 @@ The most significant change of all was in August. August, who had once been the 
 
 This morning, I woke August up and invited him on a trip to the lake with me. I'm not sure why, exactly. Maybe I thought that it would bring me some clarity, or maybe I was just hoping for a chance to bond with my son. Whatever the case, he accepted my offer, and so we loaded ourselves into the car and drove to the same lake my dad had first taken me to when I was eight years old. It was a cold but beautiful day. There were no other cars around, and so I parked right on the bank. I stepped out of the car into the bracing morning, walking down the shore with my son close behind me. 
 
-Once we made it to the water's edge, August picked up a smooth rock from the shore and flung it towards the water. It was an impressive throw, and the rock skipped a full quarter of the lake's length before finally sinking beneath the surface. I wonder where he'd learned how to do that. 
+Once we made it to the water's edge, August picked up a smooth rock from the shore and flung it towards the water. It was an impressive throw, and the rock skipped a full quarter of the lake's length before finally sinking beneath the surface. I wondered where he'd learned how to do that. 
 
 "Your grandpa used to take me out here," I told him. I had planned to follow up the statement with a happy memory of my dad and I at the lake, but none came to mind. Instead I stood there in awkward silence, toeing the sand at my feet as August searched for more stones. 
 
@@ -160,11 +160,11 @@ I trailed off, considering whether it was appropriate to share my father's last 
 
 "Because there'd be no meaning to life if we were all immortal." I finally answered. August looked as unconvinced as I felt. He looked out to the far bank of the lake, his expression solemn. He appeared far beyond his years. 
 
-"What about you, August? Do you want to know?"
+"What about you, August? Do you want to know how to live forever?"
 
 He looked back at me slowly, smiling that self-satisfied smile. When he locked eyes with me, he gave me a wink.
 
-"I already know how to live forever." 
+"I already do." 
 
 He took off from me then, running until he was knee-deep in cold water before diving inside. My father's last words played on repeat in my mind as I watched him breach the surface, yelling and laughing with glee despite the frigidness. My scars burned hot with the knowledge that whatever I had done had not been enough. In that moment, I knew. 
 

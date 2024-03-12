@@ -18,7 +18,9 @@ Lucky had disappeared three hours ago. I didn’t think he was the cause of the 
 
 I saw the pile from a few feet away. My heart stopped as bile rose to my throat. I didn’t want to keep moving closer, but I needed to know if Lucky was there. I closed the distance to stop in front of a pile of dead animals. I blinked away tears as I looked over the bodies of all different sizes of dogs and cats. All of which had countless wounds made from sharp teeth. My chest grew so tight I almost couldn’t breathe when I noticed the smaller animals had been spray-painted before their death.   
 
-I guessed there were about thirty dogs and even more cats. But no Lucky. This was a dumping ground for a dog fighting ring. By looking for Megan's lost best friend, we stumbled on something far more serious.  
+At least there was no Lucky. 
+
+This was a dumping ground for a dog fighting ring. By looking for Megan's lost best friend, we stumbled on something far more serious.  
 
 A chill ran up my spine as if I was being watched. I feared that whoever dumped these poor innocent animals may somehow know they had been discovered. After taking out my phone I quickly took photos in case someone came back to clean up. I then rushed back to my friend telling her we needed to call the police all while trying not to scare her.  
 
