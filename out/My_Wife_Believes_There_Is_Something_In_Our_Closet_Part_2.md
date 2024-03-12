@@ -258,7 +258,7 @@ I felt insane. Surely none of this made any sense, surely I was being ridiculous
 
 There was something in her tone, something in the almost cruel humor with which she spoke my name that made me stir uneasily.
 
-“Come to bed, Callllvin, I miss youuu…”
+*“Come to bed, Callllvin, I miss youuu…”*
 
 Something was wrong, I could feel it in my gut, a churning unease all too similar to what I’d felt that morning, standing in Mrs. Aldridge’s living room while that voice summoned me from the open doorway. Her voice - it wasn’t right…there was something in it, a wheezing sort of hiss that made my stomach turn.
 
@@ -278,17 +278,17 @@ A long, errant creak rang out from somewhere just beyond where even the light se
 
 I could just barely make out a form, standing mostly obscured by the wall, with long dark hair hanging over the face.
 
-Tttap. Tttap.
+*Tttap. Tttap.*
 
 Janice stood unnaturally still, hiding herself behind the wall as she peaked around the corner in an almost childish fashion, her neck craned at such an angle that I couldn’t make sense of it, certain the shadows were playing tricks with my vision. A single hand gripped the corner of the wall, muscles tense like a claw as she tapped repeatedly, almost absentmindedly.
 
 I could feel the blood turn to ice in my veins, everything about the scene before me oozing an uncomfortable surreality that made the air feel of static and awful tension.
 
-“Sweetheart,” the voice that echoed from the top of the stairs made my skin crawl.
+*"Sweetheart,”* the voice that echoed from the top of the stairs made my skin crawl.
 
 It was Janice’s but not quite, as though it had come through a broken recording or some cheap AI program.
 
-“Come to bed…” there was something almost mocking in the way she - it spoke to me, as though an unspoken threat lingered between each syllable. I could feel a sudden rage burning hot in my chest, momentarily greater than the fear that had rooted me in place.
+*“Come to bed…”* there was something almost mocking in the way she - it spoke to me, as though an unspoken threat lingered between each syllable. I could feel a sudden rage burning hot in my chest, momentarily greater than the fear that had rooted me in place.
 
 This thing - whoever, or whatever it was dared to mock me in my own home, mimicking the face and voice of the woman I loved. I could feel hot indignation driving me forth as I took my first steps up the creaking stairs.
 

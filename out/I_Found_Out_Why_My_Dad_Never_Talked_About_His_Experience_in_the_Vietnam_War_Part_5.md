@@ -236,11 +236,11 @@ I stand up, processing the information. Around me, my companions exchange grave 
 
 Wright's confusion is evident as his brow furrows, clearly caught off guard by the question. It takes him a moment, but recognition slowly dawns in his eyes. 
 
-"You mean Dr. Archer?" he finally responds, his voice laced with a hint of surprise. "That's what some people call him, yeah. He's the site director."
+"I've only heard the name," he confesses, his voice a low murmur. "Never met the man. But they say... he's the brains behind this whole operation. Obsessed with perfecting something they call Agent Indigo."
 
-"Why do they call him that?" I press, curious about the origins of such a moniker, especially under these circumstances.
+"Agent Indigo?" I press, curious yet wary of the answer.
 
-Wright shrugs, a helpless gesture that conveys his limited insights. "I don't know, honestly. I've never met him in person. Just heard the guys talking about him sometimes. Maybe he just has a big grin on his face all the time."
+He nods, a grimace of distaste crossing his bruised face. "Yeah, that's what they're calling the stuff that..." he pauses, his gaze shifting uncomfortably towards Mrs. Thao, "makes them like her." 
 
 I take a moment to reflect on what he said.
 
