@@ -110,15 +110,15 @@ As we settle into an awkward silence, our eyes meet occasionally, quickly lookin
 
 The silence between us is suffocating, a tangible presence in the cramped tunnel.
 
-I hum a tune under my breath, trying to distract myself from the oppressive atmosphere of the tunnel and the haunting moans that seem to claw at the very air around us.
+I whistle a tune under my breath, trying to distract myself from the oppressive atmosphere of the tunnel and the haunting moans that seem to claw at the very air around us.
 
-For a long time, the sniper remains silent, her expression unreadable as she listens to the faint hum.Finally, she speaks, her voice low, cutting through the melody. "What song is that?" she asks.
+For a long time, the sniper remains silent, her expression unreadable as she listens to the faint whistle.
 
-"Just a song I heard on the radio," I shrug.
+"Hey asshole!" she snaps, her tone laced with irritation. "Can you stop that?"
 
-"It's...nice," she admits reluctantly.
+I cease the tune mid-breath, a bit taken aback. "Sorry," I mutter.
 
-After another brief silence, she speaks again. "Why did you save me?" she whispers, her eyes not meeting mine.
+After another extended silence, she speaks again. "Why did you save me?" she whispers, her eyes not meeting mine.
 
 I ponder her question. "I don't know," I admit. "Maybe because, in that moment, you were just another person trying to survive. Like me."
 
