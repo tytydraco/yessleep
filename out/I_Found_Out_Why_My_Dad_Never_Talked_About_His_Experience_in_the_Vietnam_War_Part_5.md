@@ -190,15 +190,11 @@ He swallows hard, his resolve crumbling under the weight of his predicament. "Th
 
 "Subjects? What subjects?" I ask.
 
-He hesitates, his gaze flickering to Mrs. Thao before returning to me. "Criminals. POWs. Villagers. Anyone they can grab. They're using them as test subjects for... for Project Grim Harvest."
-
-"Project Grim Harvest?" I echo. "What is that? Some kind of weapon?"
-
-"Grim Harvest... it's not just a weapon. It's something worse," Wright says, his voice barely above a whisper. 
+He hesitates, his gaze flickering to Mrs. Thao before returning to me. "Criminals. POWs. Villagers. Anyone they can grab. They're using them as test subjects for... their experiments."
 
 I nod to Lâm, who quickly unfolds a topographical map on the ground in front of us. The creased map is smeared with dirt and stained with sweat.
 
-I drag Wright's chair closer, positioning him over the map. "Point it out," I demand.
+I drag Wright's chair closer, positioning him over the map. "The base. Point it out," I demand.
 
 With his arms bound and his body wracked with pain, Wright leans forward as much as the ropes allow, his nose hovering over the map. A droplet of blood, oozing from a gash on his forehead, falls, marking the map. The bloodstain blooms on the paper, a crimson mark that signifies our target.
 
@@ -238,9 +234,9 @@ Wright's confusion is evident as his brow furrows, clearly caught off guard by t
 
 "I've only heard the name," he confesses, his voice a low murmur. "Never met the man. But they say... he's the brains behind this whole operation. Obsessed with perfecting something they call Agent Indigo."
 
-"Agent Indigo?" I press, curious yet wary of the answer.
+"Agent Indigo?" I echo. "What is that? Some kind of weapon?"
 
-He nods, a grimace of distaste crossing his bruised face. "Yeah, that's what they're calling the stuff that..." he pauses, his gaze shifting uncomfortably towards Mrs. Thao, "makes them like her." 
+"Agent Indigo... it's not just a weapon. It's something worse," Wright says, his voice barely above a whisper. "Something that can bring back the dead. Make them... like her," he nods toward Mrs. Thao, his voice thick with revulsion.
 
 I take a moment to reflect on what he said.
 
