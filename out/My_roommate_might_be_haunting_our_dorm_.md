@@ -1,4 +1,4 @@
-In the sprawling dorms of Westwood University, unsettling events started unfolding, transforming mundane residence life into a tableau of horror that seemed lifted straight from a psychological thriller. Subtly at first, personal items vanished from dorm rooms, later to be discovered in common areas, arranged in ways that chilled anyone who found them.
+In the sprawling dorms of Westwood University, unsettling events started unfolding, transforming mundane residence life into a tableau of horror. Subtly at first, personal items vanished from dorm rooms, later to be discovered in common areas, arranged in ways that chilled anyone who found them.
 
 Among the initial incidents setting this eerie tone was a collection of photographs from different rooms, found scattered across the common room floor. Their faces were scratched out, surrounded by candles, some still flickering with faint light. It appeared as if someone aimed to erase the identities, the very essence, of those captured in moments of joy, turning the room into a shrine of anonymity and loss.
 
