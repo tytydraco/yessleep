@@ -194,7 +194,7 @@ He hesitates, his gaze flickering to Mrs. Thao before returning to me. "Criminal
 
 "Project Grim Harvest?" I echo. "What is that? Some kind of weapon?"
 
-"Grim Harvest... it's not just a weapon. It's worse," Wright says, his voice barely above a whisper. "They're experimenting with... something. Something that can bring back the dead. Make them... like her," he nods toward Mrs. Thao, his voice thick with revulsion.
+"Grim Harvest... it's not just a weapon. It's something worse," Wright says, his voice barely above a whisper. 
 
 I nod to Lâm, who quickly unfolds a topographical map on the ground in front of us. The creased map is smeared with dirt and stained with sweat.
 
