@@ -1,4 +1,3 @@
-  
 I remember the day the Cartwrights moved into the apartment building across the street. It was like something out of a dream – or maybe a nightmare. Their arrival was shrouded in mystery, their faces hidden behind dark sunglasses and their movements precise and deliberate. From the moment they stepped foot into the lobby, I knew there was something off about them, something... otherworldly.  
   
 I watched from my window as they unloaded their belongings – strange, oversized crates that seemed to emit an eerie glow in the dim light of the street lamps. Their arrival sent ripples of unease through the building, whispers of suspicion and fear echoing through the halls like a contagion.  
@@ -15,9 +14,8 @@ For weeks, I couldn't shake the feeling that something was watching me – that 
   
 But it wasn't until I stumbled upon a tattered journal hidden away in the depths of the building's basement that the true horror of the Cartwrights' disappearance began to unravel before my eyes. Scribbled on its pages were cryptic passages and ominous warnings, hints of dark rituals and unspeakable horrors lurking just beyond the threshold of our reality.  
   
-And as I read those words, a chill ran down my spine, and I realized with growing horror that the truth behind the Cartwrights' disappearance was far more terrifying than anything I could have ever imagined. And that whatever malevolent force had claimed them was still out there, waiting patiently in the shadows for its next unsuspecting victim.  
-
-
+And as I read those words, a chill ran down my spine, and I realized with growing horror that the truth behind the Cartwrights' disappearance was far more terrifying than anything I could have ever imagined. And that whatever malevolent force had claimed them was still out there, waiting patiently in the shadows for its next unsuspecting victim.  
+  
 The discovery of the journal sent shivers down my spine, but it also ignited a spark of curiosity within me. Despite the warnings scribbled on its pages, I couldn't resist the urge to uncover the truth behind the Cartwrights' disappearance. I knew I was treading into dangerous territory, but the need for answers outweighed my fear.  
   
 Armed with the journal and a flashlight, I ventured into the abandoned penthouse, the air heavy with a sense of foreboding. The once pristine rooms were now cloaked in darkness, the only sound the echo of my footsteps as I made my way deeper into the heart of the Cartwrights' lair.  
