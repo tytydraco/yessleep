@@ -1,3 +1,5 @@
+[Previous Posts](https://www.reddit.com/r/goatvalleycampgrounds/comments/s75n1c/how_to_survive_college_index/)
+
 My former boss (I really wish I’d thought of a better nickname for her but now it’s kind of too late and also I’m only coming up with stupid stuff like “Barista Boss” so maybe I shouldn’t be allowed to name things) said she’d handle [the situation with Mr. Antacids](https://www.reddit.com/r/nosleep/comments/1b59131/how_to_survive_college_in_my_defense_i_have_to/) (see?  bad at naming things)  In the meantime, I could keep working there if I liked.  She’d talk to him soon so that I wouldn’t have to pretend I hadn’t seen the creature eating all the food for long.
 
 “But what if he’s mad at me?” I asked.
@@ -11,8 +13,6 @@ She stared at me incredulously for a moment.
 “Listen,” she said sternly, “he’ll just be happy to have someone who shows up on time and wearing something other than pajamas, much less someone that can multi-task and keep cool in a difficult situation.  And if he does get pissy because you know he’s, uh, *changing*, you let me know and I’ll handle it.”
 
 If by “keep cool” she means “freeze in terror”, then sure, I am certainly quite good at that.
-
-(if you’re new, [start here](https://www.reddit.com/r/nosleep/comments/rnauck/how_to_survive_the_holidays/), and if you’re totally lost, [this might help](https://www.reddit.com/r/goatvalleycampgrounds/comments/s75n1c/how_to_survive_college_index/))
 
 But jokes aside, I guess I am getting better at thinking through these situations.  Maybe it only took practice.  Exposure to the inhuman isn’t exactly something I *wanted* for myself, but perhaps it was inevitable.  I was cursed when my dad vanished and we all knew something unnatural had happened to him.  That sort of knowledge can’t be given away.  I carry it like a stone in my belly.
 
@@ -224,8 +224,4 @@ It didn’t feel like he was trying to reassure me.  It sounded like he was tryi
 
 Some things you just have to endure.
 
-But I think it’s time Grayson knows he doesn’t have to go through this alone.  Next time we talk, I’m going to ask him what, exactly, is going on with his [dad.](https://www.reddit.com/r/goatvalleycampgrounds/)
-
-[Read the current draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/18x7wnt/how_to_survive_college_v/)
-
-[Visit the college's website.](https://alderrayne.com/)
+But I think it’s time Grayson knows he doesn’t have to go through this alone.  Next time we talk, I’m going to ask him what, exactly, is going on with [his](https://alderrayne.com/) [dad.](https://www.reddit.com/r/goatvalleycampgrounds/)
