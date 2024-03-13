@@ -240,7 +240,7 @@ Just then, I see a grenade, its pin pulled, arcs through the air. The world narr
 
 In that frozen moment, her terrified eyes meet mine, a silent plea for help, for salvation, that I'm powerless to answer. The space between us, just a couple meters, stretches into an insurmountable distance.
 
-[Part 7](https://www.reddit.com/r/PageTurner627Horror/comments/1bdua81/i_found_out_why_my_dad_never_talked_about_his/)
+[Part 7](https://www.reddit.com/r/nosleep/comments/1bboyvp/i_found_out_why_my_dad_never_talked_about_his/)
 
 [X](https://www.reddit.com/r/PageTurner627Horror/)
 

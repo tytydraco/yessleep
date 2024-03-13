@@ -286,7 +286,7 @@ She collapses against me, her body wracked with sobs. Her grief presses down on 
 
 [Part 6](https://www.reddit.com/r/nosleep/comments/1axj5s5/i_found_out_why_my_dad_never_talked_about_his/)
 
-[Part 7](https://www.reddit.com/r/PageTurner627Horror/comments/1bdua81/i_found_out_why_my_dad_never_talked_about_his/)
+[Part 7](https://www.reddit.com/r/nosleep/comments/1bboyvp/i_found_out_why_my_dad_never_talked_about_his/)
 
 [X](https://www.reddit.com/r/PageTurner627Horror)
 
