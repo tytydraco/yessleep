@@ -224,7 +224,7 @@ It didn’t feel like he was trying to reassure me.  It sounded like he was tryi
 
 Some things you just have to endure.
 
-But I think it’s time Grayson knows he doesn’t have to go through this alone.  Next time we talk, I’m going to ask him what, exactly, is going on with his dad.[\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
+But I think it’s time Grayson knows he doesn’t have to go through this alone.  Next time we talk, I’m going to ask him what, exactly, is going on with his [dad.](https://www.reddit.com/r/goatvalleycampgrounds/)
 
 [Read the current draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/18x7wnt/how_to_survive_college_v/)
 

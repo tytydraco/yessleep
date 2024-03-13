@@ -4,7 +4,7 @@ Twenty-three girls, ages three to four, stamped their tap shoes. 
 I watched my daughter, Emma, in the large mirror through the window of the side door. There's a bigger viewing window around the corner, in the main hall of the Tiny Stars Dance Club, but it's always mobbed with other parents filming and taking photos of their kids. 
 
 
-I got sick of jockeying for position and nobody else seemed to have figured out the side door viewing option. If only I hadn't, then maybe things wouldn't be so fucked up now.
+I got sick of jockeying for position, and nobody else seemed to have figured out the side door viewing option. If only I hadn't, then maybe things wouldn't be so fucked up now.
 
 
 At first, I thought I simply counted wrong: Twenty-three in the mirror. Yet, when the kids switched to the softer jazz shoes for the second part of class, one kid was missing. She'd been beside my daughter. I'd noticed her because she talked a lot to Emma and they were both giggling so hard I could hear it through the glass.
@@ -228,12 +228,25 @@ Then we drove her home.
 
 I'm so ashamed. I didn't look in the rear view mirror. I stayed with the other parents in the main hall where I couldn't see all the little dancers.
 
-
-And now it's Sunday night.
-
-
-Six more days till the next tap class.
+When Emma left the class she looked sick with purplish bags beneath her eyes. I hugged her close and then I saw it: A bright, almost white, lock of hair down the center of her scalp.
 
 
+I went to Wasp House and took Emma home, where she developed a fever. It worried me because it wouldn't come down until I gave her Tylenol and Advil.
 
-[Cleriot](https://www.reddit.com/u/APCleriot?utm_medium=android_app&utm_source=share)
+
+The fever broke on the wrong side of midnight, and she slept until dawn. When she awoke, she was quiet, reserved, and watched me with a guarded expression. 
+
+
+I don't know how to write this, but it's not my daughter. Something has changed dramatically. Emma stares out the window. She holds her tap shoes in her tiny fingers. Or someone does. Something.
+
+
+It's Sunday night.
+
+
+"Six more days till the next tap class," she tells me.
+
+
+I start to cry.
+
+
+I don't think we'll have to stop by Wasp House on our way to dance [next time](  https://www.reddit.com/u/APCleriot?utm_medium=android_app&utm_source=share).
