@@ -138,7 +138,7 @@ I was about to turn around because I'd had *enough,* but Ramy stopped me, "He's 
 
 I kept my eyes on Ramy after that, ignoring the ruckus that the shitty redneck ghost was causing. Just focus on Ramy. Fuck Matthew. He doesn't matter. One way or another, he was going to be gone in a few minutes. Even if I had to waste a wish to get rid of him, I'd do it. 
 
-Ramy cut his finger, drawing a symbol on the cover of Matthew's journals with his own blood. He smiled, that murderous, cold fury was still pulling at the corners of his eyes.
+Ramy cut his finger, drawing a symbol on the cover of Matthew's journals with his own blood. He smiled, that murderous, cold fury still pulling at the corners of his eyes.
 
 When Ramy spoke, his voice was eerily calm, "You want to know what I did to your unit, Matthew?"
 
