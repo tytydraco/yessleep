@@ -192,6 +192,8 @@ Iâ€™m not going to tell him myself.  Not without having a better idea of how heâ
 
 I really want that money.[\[x\]](https://www.reddit.com/r/goatvalleycampgrounds/)
 
+[Keep reading.](https://www.reddit.com/r/nosleep/comments/1bdi5uf/how_to_survive_college_yaaaay_more_trauma/)
+
 [Read the current draft of the rules.](https://www.reddit.com/r/goatvalleycampgrounds/comments/18x7wnt/how_to_survive_college_v/)
 
 [Visit the college's website.](https://alderrayne.com/)
