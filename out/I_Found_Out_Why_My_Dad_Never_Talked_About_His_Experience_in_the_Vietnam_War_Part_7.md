@@ -328,7 +328,7 @@ We quietly excuse ourselves from the communal table, slipping away into the cool
 
 Tuyết leads me to a small, secluded hut on the edge of the village. The air between us is thick with unspoken emotions.
 
-As we step inside the dimly lit interior, the door closing behind us with a soft click, the silence becomes almost palpable. We stand there, less than a meter apart, neither of us finding the words to breach the distance between us. My heart races, pounding against my ribs with the same ferocity it did when we were surrounded by the undead. Except now there's no gunfire, no screams, just the quiet night that envelopes the both of us. I start whistling a tune to help ease my nerves. 
+As we step inside the dimly lit interior, the door closing behind us with a soft click, the silence becomes almost palpable. We sit there, less than a meter apart, neither of us finding the words to breach the distance between us. My heart races, pounding against my ribs with the same ferocity it did when we were surrounded by the undead. Except now there's no gunfire, no screams, just the quiet night that envelopes the both of us. I start whistling a tune to help ease my nerves. 
 
 Tuyết breaks the silence, a slight smile curving her lips. "That’s the same tune you were whistling when we were in the tunnels…”
 
