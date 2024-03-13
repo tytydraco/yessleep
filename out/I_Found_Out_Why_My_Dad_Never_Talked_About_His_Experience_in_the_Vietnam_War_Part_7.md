@@ -436,10 +436,4 @@ To our relief and surprise, we see the hull painted with the familiar colors and
 
 As the boat slows, approaching cautiously, we signal to the crew, identifying ourselves as friendly. The sailors aboard the patrol boat are initially wary.
 
-After a brief but tense exchange of identification and purpose, their wariness turns to welcome. We're pulled aboard the vessel with efficient, helping hands. 
-
-[X](https://www.reddit.com/r/PageTurner627Horror/comments/15fzowz/im_an_arctic_researcher_we_accidentally_released/)
-
-[Y](https://www.reddit.com/r/PageTurner627Horror/comments/1582v0v/our_search_for_a_missing_teen_uncovered_the/)
-
-[Z](https://www.youtube.com/watch?v=MGd1F6Ay8ho)
+After a brief but tense exchange of identification and purpose, their wariness turns to welcome. We're pulled aboard the vessel with efficient, helping hands.
