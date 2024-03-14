@@ -42,8 +42,35 @@ Anyway, curious if anyone’s seen something like this before? I exported the vi
 
 &#x200B;
 
-"HALL" video: https://youtube.com/shorts/Yhagikkf82g?feature=share
+"HALL" video: [https://youtube.com/shorts/Yhagikkf82g?feature=share](https://youtube.com/shorts/Yhagikkf82g?feature=share)
 
 &#x200B;
 
-Footage of DVD: https://youtube.com/shorts/v5NuNFpxIc0?feature=share  
+Footage of DVD: [https://youtube.com/shorts/v5NuNFpxIc0?feature=share](https://youtube.com/shorts/v5NuNFpxIc0?feature=share)
+
+&#x200B;
+
+**EDIT:** 
+
+Thanks for all the comments. Some of you are wondering about the date and quality. Honestly I don’t know either. I’m thinking the original footage was maybe recorded in 92 and then transferred over to the disc? Maybe it was cleaned up? But why use a DVD now if it’s recent?
+
+&#x200B;
+
+I also didn’t know that there might be more data on the DVD so I took time to clean it and played it more. Eventually there WAS something else that came up. It’s two short clips of what looks like water, but it’s red. I don’t want to think it’s blood, but especially with that smell, I get this sick feeling looking at it. Like it’s not water but meat. Wriggling meat.
+
+&#x200B;
+
+(One of you said the smell might be the ink on the disc, but I don’t know. I almost feel like the smell’s on me now.)
+
+&#x200B;
+
+Anyway. There’s a sound in the background of the red water video. Breathing. Breathing and then crying. Some woman crying. I grabbed that footage, too, but I’m honestly shaking just typing this. These videos are getting stuck in my head.
+
+&#x200B;
+
+Some of you said to take it to the police, but maybe it’s too late??  
+
+
+Red water: [https://youtube.com/shorts/8W2o\_Hm9UeA?feature=share](https://youtube.com/shorts/8W2o_Hm9UeA?feature=share)
+
+&#x200B;
