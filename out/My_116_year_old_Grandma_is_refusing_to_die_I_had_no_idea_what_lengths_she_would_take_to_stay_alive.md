@@ -806,11 +806,7 @@ Dead and drooping, but unlike us, they were real.
 
 Not made of static, pins and needles stitching them together. 
 
-“Oh, you're awake,” Jem threw a phone at me. “Calls don't work. Neither do texts. But I'm pretty sure we can use the internet.”
-
-I counted my fingers. Four. 
-
-Almost five. I had half of a thumb. 
+“Oh, you're awake,” Jem threw a phone at me. “Calls don't work. Neither do texts. But it has the internet.”
 
 “Jem.”
 
