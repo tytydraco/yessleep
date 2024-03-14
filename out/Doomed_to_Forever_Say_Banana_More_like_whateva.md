@@ -112,7 +112,8 @@ BANANA? MORE LIKE WHATEVA!
   
 *Screeeeech!* My car pulled into the church’s parking lot. Practically running into the door, I swung it open and dashed to the nearest priest. Tears in my eyes, I pulled out my phone to discover… The video was normal. It was just a funny banana short. There was no blood. Brad looked the same as ever. A video uploaded posthumously. I looked at the comments, and it was the usual “OMG!” and “LMAO”. It had a hundred thousand views already, and hundreds of normal comments. The priest shrugged, and I embarrassedly walked back to my car.   
   
-I drove home. Had I imagined everything? I could only wonder, as the cacophony of the video went on and on.  
+I drove home. Had I imagined everything? I could only wonder, as the cacophony of the video went on and on. But then, I noticed it.
+I swear I could see the beginning of a bruise forming on his arm.
   
 BANANA? MORE LIKE WHATEVA!  
   
