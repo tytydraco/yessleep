@@ -91,7 +91,9 @@ No way. Could it really be that easy? I scrambled over to my online banking app 
 
 After getting myself back on semi-stable financial footing within some hours, my masochistic curiosity eventually got the better of me. I decided to go back to the site, maybe review my old stream to see just how big of an obliviously humiliating spectacle I had made of myself. Or maybe I could even stream again, grind some more money. I couldn't believe my luck, really.
 
-With a few clicks, I pulled up the video from my recent 24 hour stream - but felt the blood drain from my face almost instantly.The title alone made me audibly gasp.
+With a few clicks, I pulled up the video from my recent 24 hour stream - but felt the blood drain from my face almost instantly.
+
+The title alone made me audibly gasp.
 
 >***I FUCKING KILLED HER***
 
@@ -101,7 +103,9 @@ Thoroughly unsettled by the drastic change from the fairly innocuous title I had
 
 It started fairly innocent. I cringed at my own awkward greeting and watched how I eventually started streaming - all normal, all good. To save myself from the embarrassment though, I skipped several minutes and hours.
 
-Suddenly I was able to watch in complete bewilderment and abject horror as a version of myself I didn't recognize looked up from his phone screen directly into the camera. It looked like me, sure - same disheveled hair, same gaming chair and cluttered studio apartment backdrop.But the way this... this debased doppelgänger was behaving was a million miles away from the shy, reserved person I knew myself to be.
+Suddenly I was able to watch in complete bewilderment and abject horror as a version of myself I didn't recognize looked up from his phone screen directly into the camera. It looked like me, sure - same disheveled hair, same gaming chair and cluttered studio apartment backdrop.
+
+But the way this... this debased doppelgänger was behaving was a million miles away from the shy, reserved person I knew myself to be.
 
 "Now, time to switch the fucking gears a bit, this shit is boring," the on-screen figure snarled, eyes bulging maniacally as spittle flew from his contorted mouth. "You've tuned in for a night of utter moral depravity, I hope? *Good*."
 
