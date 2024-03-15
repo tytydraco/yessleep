@@ -54,7 +54,7 @@ It perplexed me. Here, he had this story and a warning to not come around the ar
 “So why work here? And why is this place still in business when even they might know the history of the area?”  
   
   
-“Minerals,” the worker explained.  “minerals are the only reason why we still excavate the area at all. And the pay is good. The plant is mostly harmless unless your buddy decides to do something stupid like jump off a boulder or something. But if anyone tries to walk off-site, to like, piss in the woods we usually tell them not to.”   
+“Minerals,” the worker explained. “Minerals are the only reason why we still excavate the area at all. And the pay is good. The plant is mostly harmless unless your buddy decides to do something stupid like jump off a boulder or something. But if anyone tries to walk off-site, to like, piss in the woods we usually tell them not to.”   
   
 “Anything else you’d like to add?” I asked.  
   
