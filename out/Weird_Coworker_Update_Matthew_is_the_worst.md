@@ -157,3 +157,5 @@ The cold anger drained slowly from Ramy as the ashes fluttered into the wind. Af
 I took in a deep breath, turning my face up to the sky, savoring the sun on my skin. It's funny. I never appreciated how good it felt until that moment. It was comforting. A breeze gently brushed my hair, the early spring air tasting like heaven. 
 
 I have promised myself that I would never take my life or my body for granted ever again. 
+
+Update: I used my [second wish. ](https://www.reddit.com/r/nosleep/s/jJOkqvHMrr)

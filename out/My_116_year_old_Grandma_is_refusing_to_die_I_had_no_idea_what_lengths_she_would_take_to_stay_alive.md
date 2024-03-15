@@ -802,7 +802,7 @@ When I woke up, my body was made of static, my fingers etched from pins and need
 
 There were flowers in the attic. 
 
-Dead and drooping, but unlike us, they were real. 
+Dead and drooping. 
 
 Not made of static, pins and needles stitching them together. 
 
