@@ -82,7 +82,7 @@ I nodded.
   
 Ghosts are a common fairy tale in the South. People from all over have sworn to have seen them. The relative area in which the miner found the kids, as well as the smell of sulfur, led me to believe that he had happened to come across an area of Braxton. Or at least it was enough of a coincidence for me to conclude that fact. Looking back on this now provides me with a bitter sort of irony due to my skepticism. As I never heeded any warning from anyone to stay away from anywhere due to the nature of my job.   
   
-For the sake of my research, I decided to travel to the area myself. It was around 5 in the afternoon, I knew that the miners should have at least gone home for the day by then. I drove my car to the area and parked near the front entrance of the plant. I grabbed my pack and went to the area where they found the kids. In that spot was a little clearing, and what looked to be a path.   
+For the sake of my research, I decided to travel to the area myself. It was around five in the afternoon, I knew that the miners should have at least gone home for the day by then. I drove my car to the area and parked near the front entrance of the plant. I grabbed my pack and went to the area where they found the kids. In that spot was a little clearing, and what looked to be a path.   
   
 Against my better judgment, I decided to walk it. The path was long and winding. A dense wall of trees on either side. I almost thought that it would never end. Then, I smelt the sulfur.   
   
@@ -98,7 +98,7 @@ I jumped up, startled by the sudden noise
   
 Cough, cough cough.  
   
-The coughs echoed through the streets, and I could see a figure standing near an old drugstore. Grabbing my things,  I approached the figure with caution. It could be one of the workers who came to the plant looking for me. Or maybe he, or rather, it was something else. The coughing became louder, and then other coughs came from out of the alleyways. I couldn’t tell if they were echoes from the man somehow now right in front of me, and then, right when I tried to back away slightly, crack.  
+The coughs echoed through the streets, and I could see a figure standing near an old drugstore. Grabbing my things, I approached the figure with caution. It could be one of the workers who came to the plant looking for me. Or maybe he, or rather, it was something else. The coughing became louder, and then other coughs came from out of the alleyways. I couldn’t tell if they were echoes from the man somehow now right in front of me, and then, right when I tried to back away slightly, crack.  
   
 I stepped on a branch.   
   
