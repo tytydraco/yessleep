@@ -184,9 +184,9 @@ No, I kept telling myself - this can't be real. It *cannot* be real. There's no 
 
 After what felt like a dozen eternities of relentlessly depraved, graphic confessional, the video finally cut to black without any resolution. I collapsed into my desk, sobbing uncontrollably in utter devastation and swirling confusion. My hands frantically fumbled for my phone to call Mai, to ask her if she was okay, as a thousand frantic thoughts threatened to unhinge my already tenuous grip on sanity.
 
-While the rational part of my brain knew that this way no way real, I was *scared*.
+While the rational part of my brain knew that this could not be real, I was *scared*.
 
-One rings, then two, then the phone suddenly cut to dreadful silence. No one picked up. I sent her several texts afterwards while pacing through the room, told her to immediately call me back when she had time. But once I was too exhausted to move further, I found myself in front of my computer again. Now I needed answers more than anything else.
+One ring, then two, then the phone suddenly cut to dreadful silence. No one picked up. I sent her several texts afterwards while pacing through the room, told her to immediately call me back when she had time. But once I was too exhausted to move further, I found myself in front of my computer again. Now I needed answers more than anything else.
 
 My hands were trembling anxiously over what fresh horrors might be awaiting me. Blocking or deleting that... that inhuman monster's channel was the first instinct. Next was scouring every recess of the `Don't-Stream.oni` website for any shred of evidence regarding its origins or who was behind this unfathomable depravity.
 

@@ -26,7 +26,7 @@ My breath came in quick shudders, pressing harder against the door as I felt ano
 
 It scratched at the door, its claws screeching against it not unlike nails on a chalkboard, making my teeth clench in reflex. I didn't budge, not even to cover my ears. This carried on for about ten minutes, until finally, the infernal scraping stopped. I stayed where I was, afraid to move away. 
 
-Once I was sure that the creature was finally gone, I slumped to the ground, catching my breath. I hadn't noticed that Connie and Ciri had been hiding. Both came out, Ciri from behind the couch, Connie from under the kitchen table, and apprehensively crept towards me. Hands trembling, I tentatively reach out to pet them both. 
+Once I was sure that the creature was finally gone, I slumped to the ground, catching my breath. I hadn't noticed that Connie and Ciri had been hiding. Both came out, Ciri from behind the couch, Connie from under the kitchen table, and apprehensively crept towards me. Hands trembling, I tentatively reached out to pet them both. 
 
 There was blood on Connie's neck. 
 
