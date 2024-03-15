@@ -18,7 +18,7 @@ Deep within this basement lay hidden chambers, their secrets shrouded in darknes
 
 I really hate this basement and the thing that lurks within it. And I hate the voices coming closer and closer to me. That thing is good at impersonating people, or at least the thing that makes the noises. I even find writing on walls. Every sentence ends with a “(:”
 
-Oh god, it found me. Anything else written on this log is not by me-
+Oh god, it found me. Anything else written on this log is not by m-
 
 Yes it is (: I’m ok (:
 
