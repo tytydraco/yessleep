@@ -168,7 +168,7 @@ Why is he like this? And worst of all, why do I find it endearing? Why am *I* li
 
 Between the weird woman watching us and Ramy being Ramy, I was getting overwhelmed. I excused myself to the restroom to get some semblance of composure. I leaned against the wall, taking deep breaths, wondering why I agreed to go out when I honestly just wanted to pass out when I heard the door creak open, then get stuck with a one foot gap. 
 
-Reflexively, I glanced up, seeing nothing. Something told me to look out of the corner of my eye. On the floor, was a blue hand, the boneless, ropey arm it was attached to slinking along the floor like a snake. *You've GOT to be kidding!* Heart beating in my ears, I jumped on top of the sink, pulling my legs up, using the corner of my eye to watch as the arm pulled itself further into the restroom. It just kept *going.* Could she make her arms longer by will? 
+Reflexively, I glanced up, seeing nothing. Something told me to look out of the corner of my eye. On the floor, was a blue hand, the boneless, ropey arm it was attached to slinking along the floor like a snake. *You've GOT to be kidding!* Heart beating in my ears, I jumped on top of the sink, pulling my legs up, using the corner of my eye to watch as the arm pulled itself further into the restroom. It just kept *going.* Could she make her arms longer at will? 
 
 Her fingers flexed individually as the hand slithered towards me. Slowly, it raised itself up, reminding me of a king cobra as it rose higher off of the ground. 
 
