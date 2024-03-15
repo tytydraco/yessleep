@@ -72,7 +72,7 @@ This continued for a while, my coping with the impossible by simply ignoring it.
 
 Then came my father’s sickness. It happens to everyone in the end, doesn’t it? Meat spoils, after all. I don’t remember all the details, the doctors used a lot of fancy sounding medical terminology for it, something about blood clots and brain damage, but what it all boiled down to is that the man who raised me was on his deathbed, unconscious and unresponsive.
 
-I never knew my mother. She ran off at some point before I was born, leaving daddy dearest to take care of me the best he could. And he did do his best, I’m sure of that now. He fucked up along the way, but everyone’s parents do. They’re not perfect. Nobody is perfect. We’re all just meat, after all.
+I never knew my mother. She ran off at some point shortly after I was born, leaving daddy dearest to take care of me the best he could. And he did do his best, I’m sure of that now. He fucked up along the way, but everyone’s parents do. They’re not perfect. Nobody is perfect. We’re all just meat, after all.
 
 I started spending a lot of time with my father. He spent so much of his life caring for me when I had just entered this world, I felt like it was only fair I was by his side as he left it. I wasn’t deluded into thinking that he’d get better, or even that he would be aware of my presence, but it felt right for me to be next to him. I didn’t want him to die alone.
 
