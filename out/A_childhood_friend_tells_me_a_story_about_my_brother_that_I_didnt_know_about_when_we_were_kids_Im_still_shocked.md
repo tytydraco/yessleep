@@ -54,7 +54,7 @@ The conversation was flowing, catching us up mostly on what our acquaintances we
 
 \- We were terrible kids!, remember when we used to climb the wall that closed the soccer field of the neighborhood team? I think I had more fun climbing up and down than watching the games for free - I also remembered with real nostalgia.
 
-\- I was finishing my second beer, Matias had his second whiskey, since he sat down, and the dizziness was already starting to be evident.
+I was finishing my second beer, Matias had his second whiskey, since he sat down, and the dizziness was already starting to be evident.
 
 \- Do you remember that in your staircase lived an old Galician woman, blonde and white as paper, always with impeccable make-up, she wore nightgowns and slippers all the time.
 
