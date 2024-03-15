@@ -150,7 +150,7 @@ I'm sure none of you will be astonished when I tell you that I got to test out R
 
 Ramy noticed her first. He'd already gotten some questioning looks for wearing sunglasses so late indoors, so I didn't think much of her watching us until he pointed her out. 
 
-What was bizarre is that when I looked at her straight on, she looked like an ordinary middle aged woman permanently stuck in the 80's complete with the big blonde hair, enjoying a drink by herself. However, when viewing her from the corner of my eye, she was *massive.* Her head was tilted, cheek resting on the ceiling. Ropelike arms dangled onto the floor, her hands not visible to me, assuming that she had them. Her took on a grey hue, spotted with blue that reminded me of pictures depicting human skin afflicted with severe frostbite. 
+What was bizarre is that when I looked at her straight on, she looked like an ordinary middle aged woman permanently stuck in the 80's complete with the big blonde hair, enjoying a drink by herself. However, when viewing her from the corner of my eye, she was *massive.* Her head was tilted, cheek resting on the ceiling. Ropelike arms dangled onto the floor, her hands not visible to me, assuming that she had them. Her skin took on a grey hue, spotted with blue that reminded me of pictures depicting human skin afflicted with severe frostbite. 
 
 Ramy playfully whispered, "I think you should shoot your shot, Lab Rat."
 
