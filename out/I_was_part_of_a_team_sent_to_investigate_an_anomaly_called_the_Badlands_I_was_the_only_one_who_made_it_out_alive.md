@@ -132,7 +132,7 @@ I opened fire on the creatures writhing on the ground. They ran forward towards 
   
 One by one, Katrina and I shot them, but Moloch had begun to charge at us again. I grabbed the boy, hurling him to the side. Katrina sidestepped, but Moloch changed direction. With his horns down, he plowed right into her, skewering her body right through the navel. She was raised high into the air as his head came up. She screamed in agony, her arms and legs flailing as blood exploded from her mouth.  
   
-“Katrina!” I cried, knowing it was too late. She didn’t appear to her me. Her eyes rolled back in her head as she went silent.  
+“Katrina!” I cried, knowing it was too late. She didn’t appear to hear me. Her eyes rolled back in her head as she went silent.  
   
 I grabbed the boy and pushed him forward toward the pale creatures. I reloaded, keeping a constant rate of fire. We headed back towards the mummified corpses and computer room. The boy had become a blubbering mass of gibberish.  
   
