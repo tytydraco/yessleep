@@ -144,7 +144,7 @@ Reine finally joined Ash in front of the camera. Her hair was pulled back in a p
 
 "Hey, sorry about that. Bedtime is like negotiating with tiny, unreasonable bosses," she said, her slight accent danced softly on the edges of her words.
 
-"We hit a goldmine when we stumbled upon a local newspaper article from 2018. It was a profile on a veteran named Đinh Mỹ Tuyệt," Ash said, his tone animated, reflecting the importance of this find. "She was described as a sniper during the War. The timeline matched perfectly with what you told us."
+"We hit a goldmine when we stumbled upon a local newspaper article from 2018. It was a profile on a veteran named Đinh Mỹ Tuyết," Ash said, his tone animated, reflecting the importance of this find. "She was described as a sniper during the War. The timeline matched perfectly with what you told us."
 
 Reine leaned closer to the screen, her eyes bright. "The article mentioned that she's retired and living in Hội An. It even had a photo of her, and let me tell you, the resemblance to the woman in your dad's photo is uncanny," she added, her excitement palpable.
 
@@ -250,7 +250,7 @@ Duyên giggled, sensing my apprehension. "Don't worry. We make it work here." Wi
 
 I put on the helmet and climbed onto the back of the Wave, my hands tentatively finding a hold as Duyên kick-started the engine to life.
 
-The ride was an experience unlike any I'd ever had. Duyên navigated through the chaotic traffic with the skill of a seasoned rider, weaving between cars and trucks with what seemed like mere inches to spare. Every honk and near-miss had me gripping the sides of the bike tighter, but Duyên seemed unfazed, occasionally throwing cursing at particularly errant drivers.
+The ride was an experience unlike any I'd ever had. Duyên navigated through the chaotic traffic with the skill of a seasoned rider, weaving between cars and trucks with what seemed like mere inches to spare. Every honk and near-miss had me gripping the sides of the bike tighter, but Duyên seemed unfazed, occasionally throwing curses at particularly errant drivers.
 
 Trying to distract myself from the fear of imminent death, I struck up a conversation with Duyên, raising my voice to be heard over the roar of the engine and the cacophony of the traffic.
 
