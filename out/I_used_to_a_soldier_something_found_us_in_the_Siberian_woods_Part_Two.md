@@ -1,6 +1,6 @@
 \[Part 1\](https://www.reddit.com/r/nosleep/comments/1bb6dlj/i\_used\_to\_a\_soldier\_something\_found\_us\_in\_the/)
 
-We made torches from my ruined uniform. The small patches of light were like a small island amid the sea of darkness. Kiril was carrying Batu who pointed the direction, while I was watching for any signs of trouble. I breathed deeply, staring into the darkness holding the torch high like Prometheus.   
+We made torches from my ruined uniform. The small patches of light were like islands amid the sea of darkness. Kiril was carrying Batu who pointed the direction, while I was watching for any signs of trouble. I breathed deeply, staring into the darkness holding the torch high like Prometheus.   
 The idea of spending more time in this forest didn’t fill me with joy.   
 
 I kicked myself again for not taking a flashlight. This was supposed to be a punishment, not a field exercise. We took as little as possible hoping that the lieutenant would not notice. The flashlights were at the bottom of our list of priorities. No radio either – the things were just too heavy.   
@@ -36,7 +36,7 @@ I almost growled when a light in the distance disappeared suddenly. We all frown
    
 We stood back-to-back, ready to fight back. Kiril was shaking, Batu was praying, and my heart was ready to jump out of my chest. My eyes were tearing up, knowing that the end was near. But to my surprise, nothing had happened. No attack followed, the silence didn’t break with screeches or growls.   
    
-So, we carefully continue moving in the direction of the light with a slither of hope in our hearts. Finally, we entered a small opening lit by moonlight. And in the middle of the opening was an old wooden cabin.   
+So, we carefully continue moving in the direction of the light with a slither of hope. Finally, we entered a small opening lit by moonlight. And in the middle of the opening was an old wooden cabin.   
    
 It was… well not even a cabin, more like a shack half buried in the ground and with the roof completely covered by moss. I noticed a tiny empty window and a wooden door barely big enough for a man.   
    
@@ -52,7 +52,7 @@ I barged in, guns blazing, preparing to shoot on sight. But there was no one ins
    
 “Nothing! All clear! Get inside.”   
    
-We’ve put Batu on a bed. Kiril closed the door and we barricaded it with the table and the chest. If we wished to survive, we had to hold this hut till the sunrise, which was supposed to be any moment now. For now, we could rest. Keril moved the skull somewhere in the corner facing toward the wall.   
+We’ve put Batu on a bed. Kiril closed the door and we barricaded it with the table and the chest. If we wished to survive, we had to hold this hut till the sunrise. For now, we could rest. Kiril moved the skull somewhere in the corner facing toward the wall.   
    
 “It looks creepy” he confessed, red with embarrassment.    
    
@@ -79,11 +79,13 @@ He passed me the old diary.
    
 I chuckled, shaking my head. I never understood how Kiril could live that long and stay so disgustingly naïve. But he was my friend, and it's not like had many of them left. So, humoring him was the least I could do.  
    
-The paper was fragile and threatened to crumble to dust any moment. The handwriting looked quaint – very neat and fancy. The letters reminded those old Pre-Revolution writings. The Old Believers who used to live here maybe?  
+The paper was fragile and old. The handwriting looked quaint – very neat and fancy. The letters reminded those old Pre-Revolution writings. The Old Believers who used to live here maybe?  
    
-It took some effort to read it. I’ve already knew what I'd find. Kiril stared at me intently, expecting a reaction. Did he think I’d join him in the excitement of discovering some dark hidden truth?   
+It took some effort to read it. Kiril stared at me intently, expecting a reaction. Did he think I’d join him in the excitement of discovering some dark hidden truth?   
    
-The moment I turned the first page, my hand stopped. The tingling in the back of my head returned. Some primal instinct told me there was a cold gaze laid on me. Slowly, I turned my face toward the tiny window. Kiril did the same, and we saw a face in the empty window.    
+The moment I turned the first page, my hand stopped. The tingling in the back of my head returned. Some primal instinct told me that we had been watched. Slowly, I turned my gaze toward the entrance of the hut. Kiril did the same. 
+
+In the tiny window we saw a face. 
    
 It looked malnourished and small, like the face of a little kid. Pale skin clung tightly to the skull like a leather mask a size too small. Two wide eyes with tiny black dots instead of the pupils. And impossibly wide smile. The creature grinned literally ear to ear, like a freakish toad, showing us a row of human teeth. The bastard stared at us never blinking once – I could see the excitement and some perverted playfulness on its face. The dots in its eyes wandered from me to Kiril and back, as if it was deciding whom it liked more. My blood froze. My limbs refused to obey no matter how loud I mentally screamed at myself.   
 The thing then raised something clutched in its clawed hand – a bloodied piece of someone’s leg with a Kirza boot on it. The creature opened its mouth wide and began to chew, crunching and chomping the leg with pure undiluted happiness. Blood and pieces of meat and fabric fell down. It tore one of the toes off with its teeth and continued munching looking straight at Kiril with terrifying joy.   
