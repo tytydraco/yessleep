@@ -300,7 +300,7 @@ Once Duyên had left to make the tea, Tuyet gestured for me to take a seat on a 
 
 "Spencer," I replied, watching her face as she tried to wrap her tongue around the unfamiliar sounds.
 
-With a soft chuckle, she shook her head. "These English names are too complicated for these old ears," she admitted. "Do you have a Vietnamese name?"
+With a soft chuckle, she shook her head. "These English names are too complicated for my old ears," she admitted. "Do you have a Vietnamese name?"
 
 "Sang," I said, feeling a connection to that part of my heritage, even if it was one I rarely used.
 
@@ -326,7 +326,7 @@ Tuyết returned to her seat next to me. "May I ask… How did your father pass?
 
 "Cancer," I replied. "It was... quick, at the end."
 
-Tuyet nodded, a knowing sadness crossing her features. "I'm not surprised. Agent Indigo... it was a horror we didn't fully understand back then," she reflected. "It wasn't just those directly caught in its flames. We all suffered from its consequences. The fumes, the contaminated water... Hell, your dad and I waded waist-deep in that stuff! It seeped into our skin, into our blood, mutated us on a cellular level.”
+Tuyet nodded, a knowing sadness crossing her features. "I'm not surprised. We didn't fully understand the horror of Agent Indigo back then," she reflected. "We all suffered from its consequences, not just those directly caught in its flames. The fumes, the contaminated water... Hell, your dad and I waded waist-deep in that stuff! It seeped into our skin, into our blood, mutated us on a cellular level.”
 
 The weight of her words hung in the air.
 
@@ -368,7 +368,7 @@ Duyên stepped beside me, her presence a small comfort. "He has his moments of c
 
 That night, after a subdued dinner, Duyên showed me to a small bedroom on the ground floor they had set aside for me, its windows offering a view of the garden under the moonlight.
 
-I settled into the cozy bedroom, the weight of the day pressing down on me. The moonlight spilled across the floor, casting shadows that seemed to dance with my tumultuous thoughts. My phone buzzed with an incoming video call, a welcome distraction. It was Mira.
+I settled into the small bedroom, the weight of the day pressing down on me. The moonlight spilled across the floor, casting shadows that seemed to dance with my tumultuous thoughts. My phone buzzed with an incoming video call, a welcome distraction. It was Mira.
 
 "Hey, what’s up?” I greeted her.
 
