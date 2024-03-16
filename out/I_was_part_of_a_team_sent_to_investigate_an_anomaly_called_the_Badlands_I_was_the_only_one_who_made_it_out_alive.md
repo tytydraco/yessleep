@@ -82,7 +82,7 @@ The floors and walls had started to change as well into a glassy, obsidian-like 
   
 Stretched across the narrow tunnel stood a blackened metal statue of a bull. It loomed at least thirty feet in the air. In its belly, I saw a raging inferno, the flames writhing and dancing in cyclonical currents. The bull’s eyes glowed a bright red like freshly-spilled blood. Its gaping maw grinned, showing off countless needle-sharp silver teeth. It had its giant blackened hands extended toward us, like a child showing off a toy.  
   
-But in its smoking metal palms was no toy. Instead, I saw the burnt, smoldering body of many infants.  
+But in its smoking metal palms was no toy. Instead, I saw the burnt, smoldering bodies of many infants.  
   
 A roaring emanated from the statue’s mouth, deafening as a gunshot. I covered my ears, turning away from the horrid sight. Even Snake and Katrina looked taken aback.  
   
@@ -92,7 +92,7 @@ Then the statue moved, its head lowering, its eyes blazing, its mouth slowly ope
   
 “What’s going on there, team?” the Director asked as we backpedaled quickly. The statue’s thick, clawed legs extended so that its head nearly scraped the ceiling. Its grin seemed to widen as it stared directly at me. My heart froze in my chest. I raised my gun, but it felt feeble and small compared to this beast of metal and fire.  
   
-“No, no, help me!” a small voice cried out from behind the best. I saw men in black robes dragging out a small boy from behind Moloch, still chanting. Behind them, cultists dressed in the same garb as the mummified corpses rang bells and bashed drums. The cacophony nearly drowned out the screaming of the child.  
+“No, no, help me!” a small voice cried out from behind the beast. I saw men in black robes dragging out a small boy from behind Moloch, still chanting. Behind them, cultists dressed in the same garb as the mummified corpses rang bells and bashed drums. The cacophony nearly drowned out the screaming of the child.  
   
 The priests and cultists froze when they saw us. The singing and drums immediately cut out, leaving only the panicked screams of the boy. The priests stood around the bull-god, their faces pale and expressionless. Many of the cultists had signs of lobotomies on their foreheads, deep, straight scars dug into both sides of their frontal lobes. They stared like sheep with open mouths, their eyes glassy and rolling.  
   
