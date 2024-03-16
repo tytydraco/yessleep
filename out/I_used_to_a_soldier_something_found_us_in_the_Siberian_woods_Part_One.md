@@ -104,13 +104,9 @@ I heard the murmur. Couldn’t figure out what they were saying but I did not li
 
 “What do you mean he is not here?” by lieutenant’s tone indicated he was a moment from committing an act of violence. 
 
-“Comrade lieutenant…” said someone scarily. 
+“Comrade lieutenant…” said someone scarily. “He was just here – he told me he is going to take a leak. Just over there behind the trees” 
 
-“He was just here – he told me he is going to take a leak. Just over there behind the trees” 
-
-“Take a… WHAT IS YOUR MAJOR MALFUNCTION, MO-RON?!” Despite being absolutely exhausted I jump unexpecting such violent reaction. 
-
-“Are you deaf, worm? I ordered you to stand in attention! This means even if a nuke is about to fall – you bloody stand!” 
+“Take a… WHAT IS YOUR MAJOR MALFUNCTION, MO-RON?!” Despite being absolutely exhausted I jump unexpecting such violent reaction. “Are you deaf, worm? I ordered you to stand in attention! This means even if a nuke is about to fall – you bloody stand!” 
 
 He grew silent for a second and I could almost hear gears in his head turning. 
 
@@ -182,9 +178,7 @@ I kept glancing toward the other teams walking a few dozen meters away from us. 
 
 “Shut it, damn gopnik” I hissed. 
 
-“What did you say, fraier?!” he spatted turning to me. 
-
-“What, you think you are the boss, huh? You think you can mess with me?!”
+“What did you say, fraier?!” he spatted turning to me. “What, you think you are the boss, huh? You think you can mess with me?!”
 
 Dima advanced toward me, not holding his tone. 
 
@@ -194,9 +188,8 @@ Dima advanced toward me, not holding his tone.
 
 “We are on a search mission! So shut it, lowlife”. 
 
-He looked at me curiously and tilted his head, like a child looking at a new toy. “A mission!” he laughed mockingly. 
-
-“Oh, you are some kind of special agent, huh? What a looser” 
+He looked at me curiously and tilted his head, like a child looking at a new toy. 
+“A mission!” he laughed mockingly. “Oh, you are some kind of special agent, huh? What a looser” 
 
 I grabbed him by the throat, surprising even myself. My fingers dug into his flesh, and Dima’s eyes widened in shock. I kept pressing, feeling rage inside. It felt good – better than the constant pressure and anxiety that ground my sanity the last hour. His eyes widened. Dima coughed and started to wave his hands trying to hit me. 
 
@@ -222,7 +215,7 @@ I nodded again.
 
 He helped me up and I started to clean myself of dirt and leaves, avoiding Kiril’s eyes. The rage had disappeared completely, replaced by shame. I messed up – I knew it, and if not for the guys I would probably gut Dima. His life didn’t matter of course, but mine would be ruined for scum like him. 
 
-“Guys…” said Batu nervously looking around. “Where are the others?” 
+“Guys… I have a question” said Batu nervously looking around. “Where are the others?” 
 
 “Huh?” I blinked confused and looked around, trying to see the silhouettes of our comrades. 
 
@@ -252,7 +245,9 @@ He looked at his watch and I didn’t like the expression on his face.
 
 Batu sighed as if he felt relief. I guess he was hoping against hope. 
 
-“I noticed maybe half an hour ago. The markings look different. I cut the Xs, right?” ‘So?” I asked trying to remember what marks we passed lately. 
+“I noticed maybe half an hour ago. The markings look different. I cut the Xs, right?” 
+
+"So?” I asked trying to remember what marks we passed lately. 
 
 “Someone cut another line on it – now it’s more like a star”. 
 
@@ -357,3 +352,6 @@ I nodded and once finished bandaging his wound, I went to Kiril. He was eyeing m
 By that time, I think I reached my breaking point. No fear, no panic. As if it was completely ordinary thing to find some monsters in the woods. I guess, it was just too much. Mostly I was just tired and somehow vindicated. There was something in this forest after all. Yay? 
 
 I sighed again looking into the night and preparing my AKM. We knew it was going to be a long march home.
+
+\[Part 2\]
+(https://www.reddit.com/r/nosleep/comments/1bf49wl/i_used_to_a_soldier_something_found_us_in_the/)
