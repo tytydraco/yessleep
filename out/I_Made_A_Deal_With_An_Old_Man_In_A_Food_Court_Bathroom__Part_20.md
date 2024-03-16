@@ -190,7 +190,7 @@ They both ran to the refrigerator and began doing the same.
 
 I thought about making some coffee, there was a coffee maker on the counter, and I saw some powdered creamer and a bag of sugar in one of the top cabinets, but I figured it would take too long, and I really wanted to get out of that house. 
 
-I could always “want” one later, I’d worse came to worse.
+I could always “want” one later, If worse came to worse.
 
 Anyway, when the guys had all they could handle, they shuffled back over to the opening. 
 
