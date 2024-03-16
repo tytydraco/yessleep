@@ -12,7 +12,7 @@ My heart skipped a beat at the mention of my name as he gazed into the depths of
 
 "What do you mean, and how do you know my name?" I asked, my voice barely above a whisper.
 
-The stranger leaned in closer, his raspy voice making the hairs on my neck stand. "I know everyone and everything in these lands. There are legends whispered among the tribes, tales of creatures that stalk the night, wearing the skins of men and beast.”
+The stranger leaned in closer, his raspy voice making the hairs on my neck stand up. "I know everyone and everything in these lands. There are legends whispered among the tribes, tales of creatures that stalk the night, wearing the skins of men and beast.”
 
 My blood ran cold as I continued listening to the stranger's words, my mind racing with images of ancient spirits and malevolent entities that lurked in the shadows. Things I believed were made up to scare children. 
 
@@ -24,7 +24,7 @@ As the days turned to weeks, my obsession grew, driving me deeper into the heart
 
 But the more I searched, the more elusive the truth became. It was as if the land itself conspired to keep its secrets hidden, shrouding the truth in layers of darkness that only the most foul creatures can see through.
 
-Then, one moonlit night, as I  stood on the edge of the reservation, gazing out into the vast expanse of darkness, I felt a presence looming behind him. I turned, my heart pounding, to confront the stranger once more.
+Then, one moonlit night, as I  stood on the edge of the reservation, gazing out into the vast expanse of darkness, I felt a presence looming behind me. I turned, my heart pounding, to confront the stranger once more.
 
 But what stood before me was not a man, but a creature of nightmares, its form twisted and contorted, its eyes burning with an unholy fire. It looked as if evil itself was staring into my soul.
 
@@ -36,4 +36,4 @@ But I realized something, and got a sinking feeling in my heart. My revelation w
 
 Then, as if reading my mind the creature smiled. It had an awful grin that sent shivers all over my body, but it seemed to be changing. Before my eyes now stood a coyote, it stared at me with that same sinister look as before, only to turn and disappear into the darkness. 
 
-I don’t know how I made it home alive. All I know is that I’m never going out in the desert again. I’ve been blessed by a medicine man who since then who believes the skinwalker saw something in me. What that is I’ll never know and I hope I never do. 
+I don’t know how I made it home alive. All I know is that I’m never going out in the desert again. I’ve been blessed by a medicine man since then who believes the skinwalker saw something in me. What that is I’ll never know and I hope I never do. 
