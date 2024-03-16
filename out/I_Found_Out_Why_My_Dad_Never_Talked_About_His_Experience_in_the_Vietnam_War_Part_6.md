@@ -242,6 +242,8 @@ In that frozen moment, her terrified eyes meet mine, a silent plea for help, for
 
 [Part 7](https://www.reddit.com/r/nosleep/comments/1bboyvp/i_found_out_why_my_dad_never_talked_about_his/)
 
+[Part 8](https://www.reddit.com/r/nosleep/comments/1bg5b5b/i_found_out_why_my_dad_never_talked_about_his/)
+
 [X](https://www.reddit.com/r/PageTurner627Horror/)
 
 [Y](https://www.reddit.com/r/nosleep/comments/16texdg/im_a_private_investigator_in_new_orleans_i/)

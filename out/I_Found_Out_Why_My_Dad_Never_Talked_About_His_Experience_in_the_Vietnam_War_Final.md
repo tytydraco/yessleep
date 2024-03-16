@@ -340,6 +340,8 @@ Tuyet's gaze was piercing, as if she was trying to read more into me. "Have you.
 
 After a long pause, she asked, "Would you like to meet Nhân?"
 
+—
+
 Tuyet and Duyen led me upstairs, the wooden steps creaking softly under our feet. As we ascended, Tuyet shared more about her life and Nhân's. "For the longest time, I thought I’d been spared the worst of Agent Indigo's effects. I’ve never been sick a day in my life," she said. "Nhân grew up healthy, strong... He had a good life."
 
 Reaching the top of the stairs, we paused at a door at the end of a short hallway. Tuyet lingered at the doorway as she continued. "It wasn't until he was in his forties that we noticed changes. It started small—forgetfulness, mood swings—but it got worse quickly."

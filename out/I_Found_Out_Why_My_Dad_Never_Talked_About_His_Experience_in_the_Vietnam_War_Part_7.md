@@ -12,7 +12,7 @@
 
 Without even thinking, I launch myself towards the grenade, every muscle tensed for the desperate attempt to save Tuyet and the boy Luc.
 
-But before my fingers can grasp its cold metal, Văn surges past, shoving me out of the way. 
+But before my fingers can grasp its cold metal, Văn surges past, shoving me out of the way.
 
 "Get down!" he bellows. In one fluid motion, he grabs the grenade, intent on hurling it back towards our attackers.
 
@@ -24,7 +24,7 @@ My heart hammers in my chest as I crawl over to where Văn lies prone on the flo
 
 “Van!” I cry out.
 
-At first glance, Văn seems miraculously intact, almost sleeping. But the illusion shatters as I turn him over. His right forearm is gone, severed by the blast. Shrapnel wounds pepper his body. Half his face is missing, obliterated in an instant. 
+At first glance, Văn seems miraculously intact, almost sleeping. But the illusion shatters as I turn him over. His right forearm is gone, severed by the blast. Shrapnel wounds pepper his body. Half his face is missing, obliterated in an instant.
 
 His eyes flutter open, a glimmer of consciousness piercing through the haze of pain.
 
@@ -40,7 +40,7 @@ Tears blur my vision as I grip Văn's remaining hand, my voice breaking. "Why? W
 
 He coughs, a faint chuckle escaping his lips despite the agony he must be in. "Because... you can't throw for shit," he manages to say.
 
-His fingers, still warm, squeeze mine."Tell... tell Hạnh..." he starts. But the words trail off, unfinished, as the light in his eyes dims. A final, labored exhale escapes his lips, and then nothing. 
+His fingers, still warm, squeeze mine."Tell... tell Hạnh..." he starts. But the words trail off, unfinished, as the light in his eyes dims. A final, labored exhale escapes his lips, and then nothing.
 
 I gently remove Văn's dog tags, the metal cool and heavy in my hand. My fingers find the wedding ring on his left hand, slipping it off with a reverence that feels like a prayer. In his pockets, I discover a worn letter, the edges frayed from being read and folded countless times. Beside it, is a photo of Văn, his wife Lan, and their little daughter Hạnh, smiling, a moment of happiness frozen in time.
 
@@ -50,7 +50,7 @@ Scanning the room for any advantage, my gaze falls on a control panel mounted on
 
 I glance at the lifeless body of the scientist, an idea sparking amidst the despair. I drag his corpse closer, the blood from his wounds leaving a dark trail on the tiled floor. "Tuyết," I call over the din of gunfire, "I need his hand."
 
-Her eyes wide with horror before nodding grimly. Without a word, she pulls out her machete, its blade gleaming under the harsh fluorescent lights. With a swift motion, she hacks at the scientist's hand, the sound of bone and sinew giving way under the blade echoing sickeningly. 
+Her eyes wide with horror before nodding grimly. Without a word, she pulls out her machete, its blade gleaming under the harsh fluorescent lights. With a swift motion, she hacks at the scientist's hand, the sound of bone and sinew giving way under the blade echoing sickeningly.
 
 "Cover me!" I shout, snatching up the severed hand and making a mad dash for the control panel. Bullets fly past, the air alive with the deadly song of gunfire. I can feel the heat of the shots as they slice through the space where I was just moments before.
 
@@ -76,9 +76,9 @@ Its trunk, split and lined with teeth, snaps up a third man, lifting him into th
 
 "Move! Move!" I yell, firing a burst of covering fire.
 
-We make our break for the service tunnel, elephant’s rampage providing the distraction we desperately need. 
+We make our break for the service tunnel, elephant’s rampage providing the distraction we desperately need.
 
-Tuyết grabs Luc, and we make a break for it, dodging between lab benches and equipment. Her movements are shadowed by Hùng and Lam, who fire off a suppressing volley towards the soldiers trying to regroup. 
+Tuyết grabs Luc, and we make a break for it, dodging between lab benches and equipment. Her movements are shadowed by Hùng and Lam, who fire off a suppressing volley towards the soldiers trying to regroup.
 
 Then, a soldier, torn in half but horrifically alive, is hurled into our path, his eyes wide with shock and agony. Without pausing, I sidestep the dying man.
 
@@ -92,9 +92,9 @@ Tuyết, catching the grimace of pain that I can't quite hide, orders, "Sit, now
 
 Hung rummages through his pack, producing a first aid kit. Its contents are spilled out in a practiced motion, gauze, bandages, and small vials of morphine coming to rest on the concrete floor beside me.
 
-Lâm kneels beside me, his fingers probing the wound with a gentle precision. "Bullet's still in there," he mutters, more to himself than to me. 
+Lâm kneels beside me, his fingers probing the wound with a gentle precision. "Bullet's still in there," he mutters, more to himself than to me.
 
-Hùng and Tuyết work in tandem, cleaning the wound. The sting of antiseptic bites into my flesh, drawing a hiss of pain through clenched teeth. Tuyết's hands are steady as she bandages the wound. 
+Hùng and Tuyết work in tandem, cleaning the wound. The sting of antiseptic bites into my flesh, drawing a hiss of pain through clenched teeth. Tuyết's hands are steady as she bandages the wound.
 
 As the adrenaline begins to ebb, the true extent of the pain crashes into me like a tidal wave. It's a searing, pulsating agony that radiates from my shoulder, each heartbeat a reminder of the injury.
 
@@ -122,7 +122,7 @@ We make a beeline for that ladder, moving as quietly as a group of heavily armed
 
 As we navigate the precarious catwalks above, the cold air bites at our exposed skin. The metal underfoot groans with every step. From this vantage point, we have a clear view of the facility's interior workings, a hive of activity.
 
-Below us, snippets of conversation that float up are tense, filled with urgency. 
+Below us, snippets of conversation that float up are tense, filled with urgency.
 
 "Dr. Archer, the President wants Grim Harvest and Agent Indigo buried," a voice asserts, the tone icy. "No evidence. No loose ends.”
 
@@ -132,7 +132,7 @@ Peering over the edge, I catch sight of a group of soldiers maneuvering a peculi
 
 Through a small, reinforced view window on top of the coffin, a deathly pale young woman is visible. She lies still, so still you'd think she was dead if not for the faint mist that clouds the glass with each shallow breath she takes. Her features are serene, almost angelic, but there's something unsettling about the way she's encased, like a specimen preserved for study rather than rest.
 
-As the soldiers fumble with the coffin, their movements clumsy in their haste, Dr. Archer’s voice cuts through the chaos, like a knife slicing through the buzz of activity. 
+As the soldiers fumble with the coffin, their movements clumsy in their haste, Dr. Archer’s voice cuts through the chaos, like a knife slicing through the buzz of activity.
 
 "Careful with her! She's more valuable than all of you put together."
 
@@ -142,9 +142,9 @@ The Smiling Man approaches the metallic coffin. He places a hand gently on the g
 
 "Don't worry, Lyra," he murmurs, his voice barely audible above the din. "We'll bring you back. We're so close now."
 
-We don’t waste any more time gawking as we move on. 
+We don’t waste any more time gawking as we move on.
 
-Suddenly, a sharp, piercing alarm cuts through the facility, a harsh wail that echoes off the metal and concrete. 
+Suddenly, a sharp, piercing alarm cuts through the facility, a harsh wail that echoes off the metal and concrete.
 
 Over the loudspeaker, a voice, cool and detached, announces, "Attention all personnel: intruders have been detected within the premises. They are to be considered armed and dangerous. Initiate lockdown protocol immediately."
 
@@ -156,7 +156,7 @@ Our escape route, a mere whisper of hope moments ago, seems to be slipping away 
 
 But then, eyes darting around in desperation, I spot it—our slim chance. Far across the opposite end, a maintenance door. It's barely visible, tucked away like a secret, but it’s a shot. But getting there would be like crossing no-man's land in broad daylight. We need a distraction, something big, chaotic enough to turn every head away from that door.
 
-My gaze snags on a monstrosity of machinery, pipes, and tanks, all connected in a way that screams 'important'. And nestled among them, a large rack filled with canisters of Agent Indigo. 
+My gaze snags on a monstrosity of machinery, pipes, and tanks, all connected in a way that screams 'important'. And nestled among them, a large rack filled with canisters of Agent Indigo.
 
 I catch Hùng's eye, gesturing subtly to the machinery with a tilt of my head. He nods, understanding flashing in his gaze.
 
@@ -194,7 +194,7 @@ Lâm, thinking quickly, grabs the hand. “Let me try something.” He tucks it 
 
 I whirl around just in time to see two smoldering undead soldiers, their uniforms charred and their flesh seething with blue flames, charging up the stairs towards us.
 
-I raise my rifle, taking aim at the closest one. The bullets tear through the approaching undead, stopping it in its tracks. 
+I raise my rifle, taking aim at the closest one. The bullets tear through the approaching undead, stopping it in its tracks.
 
 Before I can fully register the threat, the second undead soldier closes the gap, its burned body pressed against me, its jaw snapping at my face. The stench of charred flesh and death is overwhelming, nearly choking me. In a panic-driven reflex, I fumble for the Makarov at my side, yanking it free from its holster.
 
@@ -204,9 +204,9 @@ But there's no time to catch my breath. The sounds of more approaching undead gr
 
 "Hurry up!" I shout back.
 
-“Here goes nothing!” Lam says, pressing the hand against the scanner again. This time, after a tense moment, the light blinks green, and with a heavy metallic click, the door unlocks. 
+“Here goes nothing!” Lam says, pressing the hand against the scanner again. This time, after a tense moment, the light blinks green, and with a heavy metallic click, the door unlocks.
 
-Tuyết and Luc rush through first. Lâm and Hùng follow. 
+Tuyết and Luc rush through first. Lâm and Hùng follow.
 
 As I stand at the threshold, my gaze catches the sight of at least half a dozen undead shambling up the bottom of the staircase.
 
@@ -216,7 +216,7 @@ I don't wait to see the explosion. The moment the grenade leaves my hand, I turn
 
 I take a deep breath, allowing myself a moment to steady my racing heart. Then, with a nod to my team, we move on.
 
-We follow a corridor lit only by emergency lights that leads us to the loading bay, a large, open space filled with crates and vehicles. The far end of the bay opens up to a pair of heavy metal doors, standing ajar, revealing the dark outline of a courtyard beyond. It’s the exit that promises freedom from this nightmarish ordeal. 
+We follow a corridor lit only by emergency lights that leads us to the loading bay, a large, open space filled with crates and vehicles. The far end of the bay opens up to a pair of heavy metal doors, standing ajar, revealing the dark outline of a courtyard beyond. It’s the exit that promises freedom from this nightmarish ordeal.
 
 But our relief is short-lived. As we draw nearer, the unmistakable sound of helicopter rotors stops us in our tracks. We press ourselves against the cold walls. I motion to keep low.
 
@@ -234,7 +234,7 @@ Realizing time is slipping through our fingers like sand, I signal to my team.
 
 Without hesitation, we break cover, rushing towards the doors with the desperation of the damned. Our footsteps echo loudly, a drumbeat to our frantic sprint.
 
-The soldiers, caught by surprise, react with trained efficiency, turning their weapons towards us. Bullets whiz past, close enough to singe the air. 
+The soldiers, caught by surprise, react with trained efficiency, turning their weapons towards us. Bullets whiz past, close enough to singe the air.
 
 Tuyết, still protecting Luc, falls behind me, her movements hampered by the need to shield him. Lâm and Hùng flank her, providing cover fire.
 
@@ -244,7 +244,7 @@ A bullet grazes my thigh, a line of fire that almost buckles my knees. I grit my
 
 But it's too late. With a resounding clang, the doors slam shut.
 
-Kicking at the doors proves futile; the heavy steel doesn't even budge under the assault of our boots and shoulders. The sounds of the undead grow closer, a cacophony of groans and dragging feet encroaching from three directions. 
+Kicking at the doors proves futile; the heavy steel doesn't even budge under the assault of our boots and shoulders. The sounds of the undead grow closer, a cacophony of groans and dragging feet encroaching from three directions.
 
 I reach into my pack, my fingers finding the cold, malleable block of Semtex. Lâm joins me as we work to set the charges, a race against the relentless advance of the undead. The corridors echo with their hungry moans, a chilling soundtrack to our desperate efforts.
 
@@ -262,7 +262,7 @@ We surge through the gaping maw into the open, the night air cool against our sw
 
 Among the carnage, a gravely injured soldier, barely more than a boy, reaches tremblingly for his dropped weapon. Our eyes meet, a momentary connection. I raise my rifle and fire, the shot swift and merciful. The soldier slumps, his struggle ending in a silent exhale.
 
-The courtyard, bathed in the harsh light of the Chinook's spotlights, feels like a stage set for our final act. 
+The courtyard, bathed in the harsh light of the Chinook's spotlights, feels like a stage set for our final act.
 
 The Chinook, its twin rotors whipping the air into a frenzy, begins to lift off, carrying its precious cargo away from the madness below.
 
@@ -276,7 +276,7 @@ I ignore Archer's pleas, turning my gaze back to Hùng. "Do it," I say, my voice
 
 But then he speaks again, his voice cracking with emotion. "My daughter... she's on board. Please, don't do this."
 
-The revelation stirs a turmoil within me, a storm of conflicting emotions. 
+The revelation stirs a turmoil within me, a storm of conflicting emotions.
 
 "Hold your fire!" I shout, my voice cutting through the chaos. Hùng wavers, the launcher still aimed skyward, a look of confusion on his face.
 
@@ -286,7 +286,7 @@ I approach Archer, the barrel of my rifle pressing coldly against his forehead. 
 
 Archer's gaze falters, his voice a murmur of broken justifications. "I had to weaponize it... it was the only way they would fund my research. It was for her... all for her."
 
-The conflict rages within me, a storm of empathy and revulsion. 
+The conflict rages within me, a storm of empathy and revulsion.
 
 Hung's voice slices through the tension, urgent and clear. "Now or never, Thành!"
 
@@ -300,13 +300,13 @@ But then I think of Lyra, another victim out of countless victims of this sensel
 
 "Stand down, Hùng," I order, my voice steady but laden with an unseen weight.
 
-Hung hesitates, his gaze flicking between me and the Chinook, then slowly lowers the RPG. 
+Hung hesitates, his gaze flicking between me and the Chinook, then slowly lowers the RPG.
 
 Archer slumps, relief and resignation mingling in his expression. "Thank you," he whispers, the fight draining out of him.
 
 I keep my rifle trained on him. "You still need to reap what you sewed…" I tell him, my voice cold and devoid of sympathy.
 
-“Move out!” I command, turning away from Archer, who now looks utterly defeated. 
+“Move out!” I command, turning away from Archer, who now looks utterly defeated.
 
 We start moving, quickly and quietly, back into the dark embrace of the jungle. Behind us, the groans and shuffling footsteps of the undead grow louder.
 
@@ -318,17 +318,17 @@ The return to Tuyết's village is a silent procession, each step heavy with the
 
 The sight of Lực, safe in Tuyết's arms, sparks a collective sigh of relief that ripples through the crowd. His mom rushes forward, tears streaming down her face, as she takes him into her arms. The reunion is a moment of pure, unadulterated joy amidst the pain and loss.
 
-The villagers' initial wariness of us, the armed strangers, fades as they welcome you as heroes. 
+The villagers' initial wariness of us, the armed strangers, fades as they welcome you as heroes.
 
-After washing away the grime and the vestiges of death that clung to our skin, the villagers invite us to join them for a communal meal. It's a somber affair. There's an undercurrent of grief for those lost and a quiet gratitude for the lives spared. 
+After washing away the grime and the vestiges of death that clung to our skin, the villagers invite us to join them for a communal meal. It's a somber affair. There's an undercurrent of grief for those lost and a quiet gratitude for the lives spared.
 
 During the meal, Tuyết's hand finds mine beneath the rough-hewn table. Her fingers interlace with mine, squeezing tight. It’s a cathartic gesture that binds us closer than any words could.
 
-We quietly excuse ourselves from the communal table, slipping away into the cool evening. I leave first, followed by Tuyet, as to not draw any unwanted attention. 
+We quietly excuse ourselves from the communal table, slipping away into the cool evening. I leave first, followed by Tuyet, as to not draw any unwanted attention.
 
 Tuyết leads me to a small, secluded hut on the edge of the village. The air between us is thick with unspoken emotions.
 
-As we step inside the dimly lit interior, the door closing behind us with a soft click, the silence becomes almost palpable. We sit there, less than a meter apart, neither of us finding the words to breach the distance between us. My heart races, pounding against my ribs with the same ferocity it did when we were surrounded by the undead. Except now there's no gunfire, no screams, just the quiet night that envelopes the both of us. I start whistling a tune to help ease my nerves. 
+As we step inside the dimly lit interior, the door closing behind us with a soft click, the silence becomes almost palpable. We sit there, less than a meter apart, neither of us finding the words to breach the distance between us. My heart races, pounding against my ribs with the same ferocity it did when we were surrounded by the undead. Except now there's no gunfire, no screams, just the quiet night that envelopes the both of us. I start whistling a tune to help ease my nerves.
 
 Tuyết breaks the silence, a slight smile curving her lips. "That’s the same tune you were whistling when we were in the tunnels…”
 
@@ -352,27 +352,27 @@ Tuyết smiles, gingerly placing her hand in mine, her touch light as a feather.
 
 With a gentle pressure on her back, I lead her into the first step, the movement tentative at first. "Just follow my lead," I murmur, our steps slowly finding a rhythm of their own. There's no music, just the sound of our footsteps on the wooden floor and the distant hum of the village at night.
 
-As we move together in the dim oil lamplight of the hut, the world outside fades away. For a moment, it's just the two of us, lost in a dance of our own making. My gaze drops to meet hers, and I find myself truly seeing her for the first time since we met. 
+As we move together in the dim oil lamplight of the hut, the world outside fades away. For a moment, it's just the two of us, lost in a dance of our own making. My gaze drops to meet hers, and I find myself truly seeing her for the first time since we met.
 
-I’m struck by her beauty. The faint glow of the lantern illuminates her features, casting a soft light that plays across her face, highlighting her fair complexion, her freckled cheek, and the gentle curve of her lips. Her dark eyes, framed by long, thick lashes, hold mine with an intensity that sends a shiver down my spine. I can feel the warmth of her breath against my skin, her heart beating in sync with mine. 
+I’m struck by her beauty. The faint glow of the lantern illuminates her features, casting a soft light that plays across her face, highlighting her fair complexion, her freckled cheek, and the gentle curve of her lips. Her dark eyes, framed by long, thick lashes, hold mine with an intensity that sends a shiver down my spine. I can feel the warmth of her breath against my skin, her heart beating in sync with mine.
 
-As we sway to the rhythm of our own hearts, I find myself leaning in. Her eyes widen in surprise, but she doesn't pull away, instead, she meets me halfway, her lips pressing gently against mine. 
+As we sway to the rhythm of our own hearts, I find myself leaning in. Her eyes widen in surprise, but she doesn't pull away, instead, she meets me halfway, her lips pressing gently against mine.
 
 Without a word, we begin to strip away the layers of clothing that separate us, eager to feel skin against skin. It's a slow, almost reverent process, each movement deliberate as we take in every centimeter of each other's exposed bodies.
 
 We stumble back towards the small cot in the corner, our bodies entwined as we lose ourselves in each other. Neither of us really knows what we’re doing. We just do what feels right.
 
-We both know that what we're doing is reckless. But in the moment, we don't really care. Our world is literally on fire, and neither of us knows if we'll live to see tomorrow. What do we have to lose? 
+We both know that what we're doing is reckless. But in the moment, we don't really care. Our world is literally on fire, and neither of us knows if we'll live to see tomorrow. What do we have to lose?
 
 —
 
-As the first rays of dawn seep through the curtains, casting a soft glow within the hut, I stir gently. Tuyet, peacefully asleep in my arms, breathes softly. I take a moment to watch her sleep, memorizing the details, knowing that it may be the last time I see them. 
+As the first rays of dawn seep through the curtains, casting a soft glow within the hut, I stir gently. Tuyet, peacefully asleep in my arms, breathes softly. I take a moment to watch her sleep, memorizing the details, knowing that it may be the last time I see them.
 
 Carefully, I extricate myself from her embrace, ensuring not to disturb her rest. She murmurs something in her sleep, a soft smile on her lips. I cover her with a thin blanket, tucking it around her shoulders. I silently dress and step outside.
 
 Rejoining Lâm and Hùng in their hut, they give me a somber smile. They're already up, quietly packing their own gear, each movement heavy with the unspoken weight of what's to come. We work in silence, the kind that's loud with all the things better left unsaid.
 
-Once I'm done packing, I do a final check, ensuring everything is secured. I pull out the black and white family photo I've kept tucked away. 
+Once I'm done packing, I do a final check, ensuring everything is secured. I pull out the black and white family photo I've kept tucked away.
 
 While looking at it, an idea strikes me, a gesture that feels like necessary for a proper goodbye. Carefully, I tear myself out of the photo, the rip sound echoing louder in the morning stillness than I expected.
 
@@ -380,9 +380,9 @@ As I'm folding the larger piece of photo to tuck into my pocket, I hear a stirri
 
 I step towards her, the torn photo of myself in my hand. "I wouldn't leave without saying goodbye," I tell her.
 
-As I extend the torn photo towards Tuyết, she hesitates for a moment before reaching into her pocket. She pulls out a similarly torn photo, this one of herself, seemingly torn from a larger picture as well. 
+As I extend the torn photo towards Tuyết, she hesitates for a moment before reaching into her pocket. She pulls out a similarly torn photo, this one of herself, seemingly torn from a larger picture as well.
 
-Our fingers touch briefly as we exchange our photos. It's a bittersweet moment, filled with the unspoken promises and regrets of what might have been. 
+Our fingers touch briefly as we exchange our photos. It's a bittersweet moment, filled with the unspoken promises and regrets of what might have been.
 
 As I glance back at Lâm and Hùng. "Give us a moment?" I ask, my voice softer than usual. They nod in understanding.
 
@@ -394,7 +394,7 @@ Tuyet chuckles, a spark of light in her eyes. "I'll do my best, but I'm not maki
 
 “Take care, you two. Never change who you are,” she says, giving each of them a hug.
 
-“You too, sister,” Hung replies. 
+“You too, sister,” Hung replies.
 
 Lâm places a hand on my shoulder, squeezing it lightly. "Take as much time as you need."
 
@@ -410,7 +410,7 @@ Feeling the need to reciprocate, my hand instinctively goes to the unit badge se
 
 Once the badge is free, I hold it out to Tuyet. "And you can tell everyone you shot an elite Ranger at 1,000 meters."
 
-Tuyết stares at the badge in her hands, her eyes glistening with unshed tears. I step closer, wrapping my arms around her in a tight embrace. 
+Tuyết stares at the badge in her hands, her eyes glistening with unshed tears. I step closer, wrapping my arms around her in a tight embrace.
 
 "I'll find you," I whisper into her ear, my voice steady despite the turmoil inside me. "When this godforsaken war is over, I'll come back for you."
 
@@ -428,12 +428,14 @@ Leaving Tuyết and the village behind, we navigate the dense jungle, heading so
 
 Several hours into our journey, the dense jungle gives way to a narrow clearing. The sound of running water reaches our ears, a signal that we're close to one of the many rivers that criss-cross this region. Cautiously, we approach the riverbank.
 
-As we scout the area for enemy activity, the distant hum of a boat engine catches our attention. With weapons raised and hearts racing, we prepare for whatever comes around the river bend. 
+As we scout the area for enemy activity, the distant hum of a boat engine catches our attention. With weapons raised and hearts racing, we prepare for whatever comes around the river bend.
 
 Hiding among the foliage, we watch as a patrol boat rounds a bend in the river, its camouflage paint blending with the surroundings.
 
-To our relief and surprise, we see the hull painted with the familiar colors and insignia of the South Vietnamese Navy. 
+To our relief and surprise, we see the hull painted with the familiar colors and insignia of the South Vietnamese Navy.
 
 As the boat slows, approaching cautiously, we signal to the crew, identifying ourselves as friendly. The sailors aboard the patrol boat are initially wary.
 
 After a brief but tense exchange of identification and purpose, their wariness turns to welcome. We're pulled aboard the vessel with efficient, helping hands.
+
+[Part 8](https://www.reddit.com/r/nosleep/comments/1bg5b5b/i_found_out_why_my_dad_never_talked_about_his/)
