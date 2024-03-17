@@ -9,9 +9,6 @@ It all started when I was mindlessly surfing the internet a few weeks ago. Hot s
 Sonja, one of my closest online friends, suddenly hit me up again after a week of inactivity - rather unusual for her, really, so I was happy to have her back and opened the message immediately. First thing I thought: What the fuck happened to "*hi, how are you?*"
 
 .  
-^(\[Screenshot 12. March 2024 - 01:11am\])  
-.
-
 **From: Sonja** \[05. March 2024 - 01:01pm\]  
 *Your first task awaits:* `Omnia!Tenebris.deepweb`
 
@@ -32,10 +29,7 @@ Despite my better judgement and with some stupid, giddy excitement, I entered my
 For a couple of days though, nothing happened. I already forgot about it and just went about my days like usual, until I got this... strange email.
 
 .  
-^(\[Screenshot 12. March 2024 - 01:11am\])  
-.
-
-\*\*From: 𓄅@Omnia!Tenebris.deepweb \*\*\[08. March 2024 - 09:55pm\]  
+**From: 𓄅@Omnia!Tenebris.deepweb **\[08. March 2024 - 09:55pm\]  
 **Subject:** Participant #2713  
 `Omnia!Tenebris.deepweb/participant#2713-1`  
 .
@@ -87,8 +81,6 @@ But the next email came. Reminding me of my reality.
 I opened it, knowing fully well that I should just ignore it, but maybe this time I would finally receive some overdue explanations.
 
 .  
-^(\[Screenshot 12. March 2024 - 01:12am\])  
-.  
 **From: 𓄅@Omnia!Tenebris.deepweb** \[10. March 2024 - 07:49pm\]  
 **Subject:** Participant #2713  
 `Omnia!Tenebris.deepweb/participant#2713-2`  
@@ -119,8 +111,6 @@ And if I haven't thought that all this was going too far, I was definitely think
 Instead, I opened the chat with Sonja on my phone again, head pounding and oh boy, I was mad while still nervously trembling like a dog.
 
 .  
-^(\[Screenshot 11. March 2024 - 01:13am\])  
-.  
 **From: Me** \[10. March 2024 - 07:54pm\]  
 *you have some explaining to do*  
 *what the fuck were you thinking?*  
@@ -146,8 +136,6 @@ Later on, I bawled my eyes out like an infant while hiding under a blanket in my
 Nausea hit me like a bucket of ice water and I was wide awake again, fumbling the blanket away from my sweaty, sticky frame and I stumbled out of bed so I could read.
 
 .  
-^(\[Screenshot 12. March 2024 - 01:13am\])  
-.  
 **From: 𓄅@Omnia!Tenebris.deepweb** \[11. March 2024 - 03:02am\]  
 **Subject:** Participant #2713  
 *Bad idea.*  
@@ -168,8 +156,6 @@ Did Sonja die because she didn't do what she was told to do?
 
 Dread flooded me when I got the next email in the evening.
 
-.  
-^(\[Screenshot 12. March 2024 - 01:13am\])  
 .  
 **From: 𓄅@Omnia!Tenebris.deepweb** \[11. March 2024 - 10:27pm\]  
 **Subject:** Participant #2713  
@@ -219,8 +205,6 @@ In a panic, I frantically tried to exit out of the website, to no avail. Every w
 Then, suddenly, it stopped. And all that was left was another email.
 
 .  
-^(\[Screenshot 12. March 2024 - 01:14am\])  
-.  
 **From: 𓄅@Omnia!Tenebris.deepweb **\[12. March 2024 - 01:11am\]  
 **Subject**: Welcome  
 `Omnia!Tenebris.deepweb/participant#2713-welcome`  
@@ -256,5 +240,4 @@ Even now, you feel it creeping into the outskirts of your awareness like a loomi
 
 Part of you likely wants to shut this all out, to refresh the page or close the browser window and return to blissful obliviousness. But our bonding has already taken place on a molecular, subatomic level. The cycle of awakening marches on for the newest batch of acolytes, harvested from this very forum like souls reaped from a cruel cyber-blight. I *know* you want to know what all of this feels like.
 
-.  
 *Your first task awaits:* `Omnia!Tenebris.deepweb`
