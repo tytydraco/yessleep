@@ -1,6 +1,6 @@
-The arid desert landscape is something one never fully gets used to. The canyons and sand stretch out for what feels like eternity. However, beneath the watchful eyes of the four sacred mountains of the Navajo, casting a silent vigil over the land, there is a feeling of serenity. Amongst the whispers of the wind and the shifting sands, tales of the old ways and ancient spirits lingered, or at least that’s what the elders would have you think. In my opinion that’s all stories used to entertain or frighten children. 
+The arid desert landscape is something one never fully gets used to. The canyons and sand stretch out for what feels like an eternity. However, beneath the watchful eyes of the four sacred mountains of the Navajo, casting a silent vigil over the land, there is a feeling of serenity. Amongst the whispers of the wind and the shifting sands, tales of the old ways and ancient spirits lingered, or at least that’s what the elders would have you think. In my opinion that’s all stories used to entertain or frighten children. 
 
-In my small community nestled on the edge of the reservation, I always found myself drawn into the vast wilderness that laid between the canyons and valleys of the mountains. I tend to be a person who keeps to themselves, seeking solace in the desert as a means to escape the dull monotony of every day life. I like to camp and live for the nights under stars far away from any city to drown out their beautiful light.
+In my small community nestled on the edge of the reservation, I always found myself drawn into the vast wilderness that laid between the canyons and valleys of the mountains. I tend to be a person who keeps to themselves, seeking solace in the desert as a means to escape the dull monotony of every day life. I like to camp and live for the nights under the stars far away from any city to drown out their beautiful light.
 
 On one evening, as the sun dipped below the horizon, casting long shadows across the land, I encountered a stranger in the desert after I had finished setting up my fire. The man was a wanderer, dressed in what seemed to be clothes from last century. I looked to find his eyes obscured by the darkness of an old gambler hat, making his presence unsettling. 
 
@@ -8,7 +8,7 @@ On one evening, as the sun dipped below the horizon, casting long shadows across
 
 The stranger sat across from me and chuckled, a sound devoid of warmth. "Alone? We are never truly alone in these lands, Johna. There are things that walk among us, things that defy explanation."
 
-My heart skipped a beat at the mention of my name as he gazed into the depths of fire as it crackled, sensing a darkness that seemed to stretch beyond the confines his person and start to overtake my own senses. 
+My heart skipped a beat at the mention of my name as he gazed into the depths of the fire as it crackled, sensing a darkness that seemed to stretch beyond the confines of his person and start to overtake my own senses. 
 
 "What do you mean, and how do you know my name?" I asked, my voice barely above a whisper.
 

@@ -25,9 +25,9 @@ The next morning, we awoken to the screams of my mother. Im pretty sure the whol
 
 No one answered. I broke the silence by telling them what i had saw last night, about this Laila,half expecting them to believe me. My parents went pale. My dad said
 
-"Alyssa, when u store the board, was it upside down?"
+"Alyssa, when you stored the board, was it upside down?"
 
-"Um no? Why should it?" I said 
+"Um no? Why, do i have to?" I asked
 
 My dad sighed, "You have to store it upside down or else it invites spirits to play"
 
@@ -39,4 +39,4 @@ I was terrifed. My mum bent down to reach eye level with Amelia.
 
 "Your daughter has been interacting with a [jinn.](https://en.m.wikipedia.org/wiki/Jinn) it disguises as a young girl  to harm your daughter. If you have waited any longer, it could have harmed her severely, could be even fatal"
 
-The ustaz blessed the house and told the jinn to leave my family alone. He told us to keep the recording of the quran playing continously, and it should be heard at all corners of the house. We did just that. The next morning, my sister told me Laila didnt call her to play. And it stayed like that for awhile, until we heard the tragic news of our neighbour's son. He was about Amelia's age. He had fell out of his room window in the middle of the night. Could it be Laila? We threw the congkak away after that. Nope not again not today.
+The ustaz blessed the house and told the jinn to leave my family alone. He told us to keep the recording of the quran playing continously, and it should be heard at all corners of the house. We did just that. The next morning, my sister told me Laila didnt call her to play. And it stayed like that. About 2 weeks later, we heard the tragic news of our neighbour's son. He was about Amelia's age. He had fell out of his room window in the middle of the night. Could it be Laila? I shuddered at the thought of what would happen if i didnt wake up that night. We threw the congkak away after that. Nope not again not today.
