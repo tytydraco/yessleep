@@ -136,7 +136,7 @@ Then, nearly two weeks in, my phone rang with Ash's number. I picked up on the f
 
 "Yeah, we did," he confirmed, a tired but triumphant smile spreading across his face as he switched to FaceTime. Ash looked exactly as I remembered him, albeit with a few more grays and the unmistakable signs of sleepless nights etched under his eyes.
 
-Reine appeared in the background, her voice floating in. "I'll join y’all in a sec. Just need to put these little rebels to bed."
+Reine appeared in the background, her voice floating in. "I'll join y’all in a sec."
 
 Ash started, detailing their steps with a level of detail that was frankly astonishing. "So, first, we combed through military archives for any mention of a Tuyet fitting your description around the specified time frame," he said, his tone shifting to what I could only describe as detective-mode. "It was like looking for a needle in a haystack, considering how common the name is."
 
@@ -368,7 +368,7 @@ Duyên stepped beside me, her presence a small comfort. "He has his moments of c
 
 That night, after a subdued dinner, Duyên showed me to a small bedroom on the ground floor they had set aside for me, its windows offering a view of the garden under the moonlight.
 
-I settled into the small bedroom, the weight of the day pressing down on me. The moonlight spilled across the floor, casting shadows that seemed to dance with my tumultuous thoughts. My phone buzzed with an incoming video call, a welcome distraction. It was Mira.
+I settled into the bedroom, the weight of the day pressing down on me. The moonlight spilled across the floor, casting shadows that seemed to dance with my tumultuous thoughts. My phone buzzed with an incoming video call, a welcome distraction. It was Mira.
 
 "Hey, what’s up?” I greeted her.
 
