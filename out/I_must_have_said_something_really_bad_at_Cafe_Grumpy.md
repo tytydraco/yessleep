@@ -6,7 +6,7 @@ I heard the door jingle bell open and in lumbered a very, very large man who app
 
 The man's stench preceded him, and except for a large burlap blanket swaddling his amazing girth, which I imagined to be somewhere in the neighborhood of close to 400lbs, there was nothing else to clothe him.
 
-He was at least six feet and upon his wild eyed face sat a pair of black rimmed Buddy Holly coke bottle glasses covered in duct tape. The man was making high pitched unintelligible noises. That went on for a few interminably long and painful seconds.
+He was at least six feet and upon his wild eyed face sat a pair of black rimmed Buddy Holly coke bottle glasses held together by duct tape. The man was making high pitched unintelligible noises. That went on for a few interminably long and painful seconds.
 
 I kept my eyes open but held my breath. I finally surmised the fat man was wanting to be fed as the noises seemed to coalesce into real words. Words that spoke of his homelessness and hunger. The three GenZs behind the counter seemed fascinated by the espresso machine in the back behind the bar.
 
@@ -15,25 +15,29 @@ A woman with a double baby stroller deftly maneuvered around the man and jingle 
 1. My mouth started uttering obscenities about the smell and;
 2. My hands extracted a twenty dollar bill from my wallet
 
-I put it on the counter near the coffee lids and syrup bottles and said, "For the f$W(#%&\* love of God just @#$(&#@$)\*Q@#)$\*Q@#)$\*#Q)$\*)#Q$\*)QW#$\* and GO!"
+I put it on the counter near the coffee lids and syrup bottles and said, "For the f$W(#%&\* love of God just @#$(take the #@ MONEY$) \*Q@#) F$\*)#Q$\*)QW#$\* and GO!"
 
-The man said, "I'm OSWALDO!"
+The man said, "I'm OSWALDO! You said a bad word! Yes. You. DID."
 
-I felt the room start to spin and felt myself grow lightheaded. I summoned up a righteous indignation and heard myself bellow, "TAKETHE()@$)@#$\*)@#)\*$\*#@MONEYANDGET@$)(\*@#)$)\_@#)@#$ OUT!"
+I felt the room start to spin and felt myself grow lightheaded. I summoned up a righteous indignation and heard myself bellow, "I said, 'TAKE THE F)@#)\*$\*#@ MONEY$$ AND GET THE F@#)$)\_@#!$ AWAY FROM ME! PLEASE BROTHER! PLEASE!! YOU'RE KILLING ME!!!"
 
-Our eyes met. Oswaldo Buddy Holly seemed to hear something in the distance I did not. He did a fast double take that showed signs of intelligence. Then he nodded as if to confirm something to himself, took the twenty and left the cafe.
+Our eyes met. Oswaldo Buddy Holly seemed to hear something in the distance that I could not. He did a fast double take that showed marked signs of intelligence. Then, Oswaldo Buddy Holly nodded, as if to confirm something to himself. He then took the twenty and left the cafe.
 
 The bell jingled and I breathed into my fedora like an N95.
 
-"Here's your Mocha Oat Latte," the blonde girl said, offering me a white paper cup with a grumpy face on it and an oatmilk leaf slowly discorporating upon the surface.
+"Here's your Mocha Oat Latte," the blonde girl said sardonically, offering me a white paper cup with a grumpy face on it, There was an oatmilk leaf slowly discorporating upon its surface and the girl seemed not to notice the now fading funk.
 
-I thanked her and when I went to put a lid on the cup two men wearing navy blue banker suits jingle belled in to Cafe Grumpy like they were somebody. They walked in and kept walking right up towards me. As I watched this, I turned from the lids to greet them with a smile. While they didn't look none too friendly they did let in some fresh air with them and they did not smell like dumpster juice; so there was that.
+I thanked her. I went to put a lid on the cup. The door bell jingle belled and two men wearing navy blue banker suits strode in purposefully like they were somebody.
 
-"Why'd you say *that*?" one of them asked me referring to me by name.
+They appeared intent on walking right up to me. As I watched this unsettling scene unfold, I turned from the lids to greet them with a forced smile. And while the bankers looked particularly unfriendly, to their credit they did let in some fresh air with them, and they did not smell like dumpster juice; so there was that.
 
-I felt a chill mosey down my spine. They were both in their late 30s I imagine. One guy on the left had curly hair and mirrored aviator sunglasses. His face looked expressive as a Buckingham palace guard and there seemed to be a bulge under his sport coat by his left armpit.
+"Why'd you say *that*?" one of the bankers asked, referring to me by name.
 
-There were three things that immediately bothered me.
+I felt a chill scramble down my spine. My smile slowly went Grumpy sour.
+
+I took a step back and studied the bankers. They both appeared to be in their late 30s. The banker on the left had curly hair and wore mirrored aviator sunglasses. His face looked expressive as a Buckingham palace guard and there seemed to be a bulge under his sport coat near his left armpit.
+
+There were three things that immediately bothered me about these guys besides the dude trying to roll up on me sporting a bulge.
 
 Things that immediately bothered me:
 
@@ -41,33 +45,43 @@ Things that immediately bothered me:
 2. How did they know I said anything? and;
 3. And how the F$#(% did they know my name?
 
-The other man softened his features in to what I supposed was to be taken for compassion. Good cop, bad cop? It's best in times like these to take matters into your own hands. Looking down at my hand I raised it to my face. Cup to my lips. Eyes on the men in bankers' suits.
+The other banker had a buzz cut like he was military. He softened his features into an expression I supposed was intended to exude compassion. Good banker, bad banker?
+
+It's best in times like these to take matters into your own hands. Looking down at my hand I raised it to my face. Cup to my lips. Eyes on the men in bankers' suits.
 
 I took a long slurp/gulp then rinsed and repeated until we all stood there a cool half minute while I caffeinated. The sugary chocolate caffeine beverage talked to me like spinach to *Popeye the Sailor Man.*
 
 It said, "F$#(% these men in blue. Let's roll."
 
-The silent banker began to flinch as if he was going to move his arm and I drank quick and readjusted so my elbow was triangled between myself and them. The GenZs seemed busy on their phones.
+The silent banker began to flinch as if he was going to move his arm. I drew my Cafe Grumpy coffee cup quick back to my mouth. I readjusted so my elbow was triangulated between myself and the blue bankers. The GenZs seemed busy on their phones.
 
-Some people walked by on 7th avenue. I saw the filthy, fat man in the burlap blanket come towards them. Once again his stench preceded him and their spring gamine like expressions of hope immediately changed to fright.
+Two women in their 20s walked by Grumpy down 7th avenue. They were having an animated conversation, moving their hands and one was apparently acting out a happy story while the other reacted positively.
 
-Putting their heads down, the pair gave him a wide berth as he ambled off, blanket wrapped tight, in the opposite direction, south. Toward my part of town. Swell. I thought I'd follow. Full of caffeine I walked around the bankers. One said, "Hey," and put his hand out as if to touch me.
+Then, once again, I saw the filthy, fat man in the burlap blanket come lumbering towards them. He had a large baguette in his left hand and a wedge of what looked like brie in his other filthy paw. He still wore the crazy look on his face. Once again his stench preceded him and the two women's expressions of pasta primavera optimism for humanity immediately and audaciously turned to fright night.
+
+Putting their heads down, the pair gave the fat man a wide berth as he ambled off, blanket wrapped tight, in the opposite direction, south. Toward my part of town. Swell. I thought I'd follow. Full of caffeine I walked around the bankers. One said, "Hey," and put his hand out as if to touch me.
 
 I stepped back and gave them the malochi.
 
-"Follow me and I'll put you in Methodist hospital," I heard myself growl. A voice in my head said, in an admiring, almost fawning voice, 'F$#(% Grumpy latte don't play!'.
+"Follow me and I'll put you in Methodist hospital," I heard myself growl. A voice in my head said, in an admiring, almost fawning voice say, 'F$#(% Grumpy mocha latte don't play!'.
 
-The talking banker started to move his mouth, his eyes did a double take at his partner, his partner seemed to have some kind of tremor. Coffee in hand I jingle belled out and kept an eye over my shoulder to make sure I wasn't followed.
+The banker who asked me, "Why I said, 'that'?", started to move his mouth. His dead, black eyes feinted a double take at his partner. His apparently mute partner seemed to be experiencing some kind of body tremors.
 
-Back on the street I went north, in the opposite direction of the Blob and figured I would get some supplies for the crib before going back to work. As I walked down 7th Avenue listening to Sam Cooke's, That's It. I Quit. I'm Moving On. and thought of the dubious circumstances of his death I began to feel the eyes of Laura Mars upon me.
+Coffee in hand I jingle belled out of Cafe Grumpy, keeping an eye over my shoulder to make sure I wasn't followed.
+
+Back on the street I went north, in the opposite direction of the Blob and figured I would get some supplies for the crib before going back to work.
+
+As I walked down 7th Avenue listening to Sam Cooke's, That's It. I Quit. I'm Moving On. I found myself pondering the dubious circumstances of his death. Three pigeons dive bombed my head and then pulled crazy pigeon maneuvers to perch above the air conditioner wedged beneath the awning and over the front door of The Community Bookstore. I felt the eyes of Laura Mars upon me.
 
 Mothers with strollers gave me a wide birth. I took a quick sniff of my person. Nothing but Tom's natural and Aqua Gio. I was sweet smelling, my teeth clean, freshly shaved and full of caffeine, fat and sugar; the three food groups best to start one's day.
 
-Then a mother and her school age daughter came out of the community bookshop walking quickly.
+Then a mother and her school age daughter came out of the community bookshop walking quickly. I watched the pigeons droppings land on the Mom's brunette coiffe.
 
-I slowed my roll to give them space to pass when the daughter and my eyes met. Her eyes shone worried with compassion.
+I slowed my roll to give them space to pass when the daughter's eyes met my own. Her brown eyes shone with worried compassion. My blue eyes puzzled out a look of truth. Was someone was going off-script?
 
-"They're coming for you," she said and referred to me by name. I stood straighter as if I had stepped on an electrified manhole cover. And then her mother slapped her so fast and hard across the face I gasped. Her mother grabbed her arm hard and pulled her away down the street without another word.
+"They're coming for you," she said and referred to me by name. I stood straighter as if I had stepped on an electrified manhole cover. And then her mother slapped her so fast and hard across her face it made the pigeon shit fly.
+
+I involuntarily let out a gasp. Then the girl's mother grabbed her arm angry-hard, pulling her away and down the street without another word to be heard from either.
 
 As I regained my composure, a middle-aged woman coming down the street with a golden retriever caught my eye. At first my own eyes did a double take as she appeared to be naked from the waist down; only wearing a denim jacket and some kind of wife beater.
 
@@ -89,7 +103,7 @@ I was going to say something but his eyes were like two lasers boring down on me
 
 I was lighting the pre-roll and our eyes met. She said, "Is that the man who said the bad word?" to the man pushing her. He put his head down, then shot a quick sideways glance like a swimmer coming up for air, then pushed her past like I smelled bad as a big & tall man's burlap homeless blanket.
 
-I felt my stomach grumble. It had been a while since something had been in it. I found myself in front of the register of Starbucks at the Barnes & Noble on 6th Street across the street from Methodist Hospital. 
+I felt my stomach grumble. It had been a while since something had been in it. I found myself in front of the register of Starbucks at the Barnes & Noble on 6th Street across the street from Methodist Hospital.
 
 I was planning to get a coffee but there was this young boy, maybe ten or eleven with his mother. He was touching everything on the display case like he had OCD or something. His mother kept saying, "James! James!! When we get home I will make you a smoothie. Mom will make you a smoothie! James! Are you listening to me?!!?!?"
 
@@ -99,7 +113,9 @@ Then, as if the needle had stretched across the vinyl everything stopped. The mo
 
 She said, "You shouldn't ever say that word again."
 
-She, too, knew my name. I was not famous. In fact, you could best describe my lifestyle as that of the poor and relatively unknown. How the F$#(% did she know my name. What word did I say.
+She, too, knew my name. I was not famous. In fact, you could best describe my lifestyle as that of the poor and relatively unknown. How the F$#(% did she know my name? What word did I say? What the hell kind of day was I having.
+
+*Beware the ides of March*
 
 The fat middle aged lady in the green Starbucks shirt who was the manager and always anticipated my order acted as if I were a total stranger.
 
@@ -111,13 +127,13 @@ Our eyes met. I looked down and spied chocolate covered espresso beans. I wanted
 
 "Thanks. Keep the change."
 
-She looked at me with no expression and said, "Thank you and watch your mouth," before turning her back on me to some Starbucks related things by some large boxes of liquid I couldn't see well. For a second I thought the box read, "Prop Coffee," but then a lady behind on her phone said, "Some people just don't know when the F$#(% to shut their mouth, Hector?!?!!?" Our eyes met, and she said to Hector, "Some people should stop saying bad words and go home and think about whether they value the above ground life..."
+She looked at me with no expression and said, "Thank you and watch your mouth," before turning her back on me to some Starbucks related things by some large boxes of liquid I couldn't see well. For a second I thought the box read, "Prop Coffee," but then a lady standing behind me and talking on her phone said, "Some people just don't know when the F$#(% to shut their mouth, Hector?!?!!?" Our eyes met, and she said to Hector, "Some people should stop saying bad words and go home and think about whether they value the above ground life..."
 
-A baby cried and I walked away from the lady to the napkin station. Out on Seventh Avenue everything seemed normal. But wherever I went it was not normal at all. Perhaps I should go home. I grabbed some napkins and left Barnes & Noble.
+A baby cried from a stroller by the tables and as I walked away from the lady talking to Hector towards the napkin station I felt the eyes of Laura Mars on me again. Through the window, out on Seventh Avenue everything seemed normal. But wherever I went it was not normal. Not at all. Perhaps, I *should* go home. I grabbed some recycled napkins and left Barnes & Noble.
 
-At the convenience shop I bought and paid for a Powerball ticket and the man acted also as if he did not know me. As I thanked him and turned to walk away he said, "You are not lucky, sir. Go home today. Take the day off."
+At the convenience shop I bought and paid for a Powerball ticket. There too, the man behind the counter acted as if he did not know me. As I thanked him and turned to walk away he said, "You are not lucky, sir. Go home today. Take the day off."
 
-I spun around and he acted as if he said nothing. The door opened and some kids from John Jay high school blew past me blathering about instagram. One girl in pajama bottoms gave me a quick look and said, "Go home," and used my first name.
+I spun around and he acted as if he said nothing, examining his cuticles. The door of the shop opened and some kids from John Jay high school blew past me blathering loudly about instagram. One girl in pajama bottoms gave me a quick look and said, "Go home," using my first name.
 
 Back on the street it was sunny. The air was fresh. The birds chirped. Delivery trucks, buses, cop cars, meter maids, pedestrians, hospital people in scrubs, teens in their spring training uniforms; but something was off. I apparently had said a bad word. Apparently, everyone knew my name.
 
@@ -157,7 +173,7 @@ That was Friday.
 
 It's Sunday now and I am nervous about work tomorrow. I haven't slept right. The lights are out. The blinds are drawn and every hit of weed from this Lush pen is making me paranoid.
 
-Just. What. The. F@#($&\*. Did. I. Say?
+Just. What. The. F@#($&\*. Did. I. Say??
 
 &#x200B;
 
