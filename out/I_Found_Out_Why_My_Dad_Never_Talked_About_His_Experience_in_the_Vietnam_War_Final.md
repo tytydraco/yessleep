@@ -98,7 +98,7 @@ Catching up with Ash brought a brief respite from the gloom that had settled ove
 
 I took a deep breath before I spoke. “Actually, I called to ask you for a favor, Ash. It’s… I need you to find someone. it’s important,” I began, my voice faltering as I tried to find the words to explain the magnitude of the task.
 
-Ash paused, the silence on the line stretching between us. "You know, Reine and I have actually stepped back from detective life since the twins were born. Family first, you know?" he said with a hint of regret.
+Ash paused, the silence on the line stretching between us. "You know, Reine and I have actually stepped back from the detective life since the twins were born. Family first, you know?" he said with a hint of regret.
 
 I nodded, even though he couldn't see me. "I completely understand. I normally wouldn't ask but… It's just... it's about my old man. He... he passed away recently," I admitted, the words heavy on my tongue.
 
@@ -320,7 +320,7 @@ Among the photos displayed on the altar, I spotted the old torn photograph of my
 
 Tuyet sighed. "I couldn't let Nhân grow up bearing the stigma of being the son of an enemy soldier."
 
-"I told everyone his father was a soldier from the North, one who had died fighting the Americans. It was easier, safer for him," she said. “So, in a way, I’ve been mourning for your father all these years.”
+"I told everyone his father was a soldier from the North, one who had died fighting the Americans. It was easier, safer for him," she said. “So, in a way, I’ve been mourning your father all these years.”
 
 Tuyết returned to her seat next to me. "May I ask… How did your father pass?" she asked after a moment.
 
@@ -368,7 +368,7 @@ Duyên stepped beside me, her presence a small comfort. "He has his moments of c
 
 That night, after a subdued dinner, Duyên showed me to a small bedroom on the ground floor they had set aside for me, its windows offering a view of the garden under the moonlight.
 
-I settled into the bedroom, the weight of the day pressing down on me. The moonlight spilled across the floor, casting shadows that seemed to dance with my tumultuous thoughts. My phone buzzed with an incoming video call, a welcome distraction. It was Mira.
+I settled into the bed, the weight of the day pressing down on me. The moonlight spilled across the floor, casting shadows that seemed to dance with my tumultuous thoughts. My phone buzzed with an incoming video call, a welcome distraction. It was Mira.
 
 "Hey, what’s up?” I greeted her.
 
