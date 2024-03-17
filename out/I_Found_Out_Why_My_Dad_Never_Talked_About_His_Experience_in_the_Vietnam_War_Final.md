@@ -308,7 +308,7 @@ With a soft chuckle, she shook her head. "These English names are too complicate
 
 As Duyên came in with the tea, the aroma filled the room, a subtle invitation to relax and share more freely. Tuyet poured the tea with practiced ease, her hands steady despite their age.
 
-The conversation flowed easily, despite the weight of the reason for my visit. We chatted about my flight over, the discomforts of long-haul travel, and the vibrant chaos of Vietnamese traffic that had greeted me upon arrival. Tuyet told me about her frequent backaches. "Age spares no one," she said with a wistful smile, sipping her tea.
+The conversation flowed easily, despite the weight of the reason for my visit. As I shared about my career as an engineer and my excitement and fears about becoming a parent soon, Tuyet listened intently. She spoke of her own experiences, touching on the challenges and joys of motherhood.
 
 As the initial pleasantries gave way to a comfortable silence, I took the opportunity to present the items I had brought with me—the checkered scarf and the photograph of a young Tuyet. She studied them for a moment, her fingers tracing the fabric of the scarf, then shifting to the edges of the photograph. A myriad of emotions seemed to pass over her face, a silent conversation with memories long held.
 
