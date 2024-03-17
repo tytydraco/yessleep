@@ -90,7 +90,7 @@ He looks at me, his eyes reflecting the flickering flames, a mix of emotions pla
 
 I rush in, the words tumbling out in a torrent. "I can't stand him! Mark, he's a fucking arsehole!" I struggle to find the right words to express how much I loathe my future step-father, but they all fall short. "He's just... He's not you," I finish lamely, feeling a profound sadness.
 
-"You know, Wren," he says, using his special nickname for me, "sometimes people come into our lives, and we don't get to choose. What matters is how we respond to them."
+"You know, Wren," he says, "sometimes people come into our lives, and we don't get to choose. What matters is how we respond to them."
 
 I feel a surge of frustration, mixed with a desperate longing for an escape. "I could run away. It’ll be just you and me. We can live out here, away from everything."
 

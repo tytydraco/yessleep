@@ -211,6 +211,8 @@ I wasn’t listening though, I was looking at the blood that was smeared on our 
 
 It’s message haunted and puzzled me because it told me that this place had a hold on me I didn’t understand. 
 
-[OAK PEAK WELCOMES YOU BACK](https://www.reddit.com/r/OakPeak/?rdt=56527)
+OAK PEAK WELCOMES YOU BACK
 
-And I knew it meant the worst was yet to come.
+And I knew it meant the worst was yet to come
+
+[330](https://www.reddit.com/r/OakPeak/?rdt=56527)

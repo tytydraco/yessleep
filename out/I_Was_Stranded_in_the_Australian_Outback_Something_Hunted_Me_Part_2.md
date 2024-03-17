@@ -82,7 +82,7 @@ Shaking off my hesitation, I start to follow him. My injuries protest with each 
 
 "Wait!" I call out, my voice echoing slightly in the open space.
 
-Catching up to him, I try to keep pace, my breathing heavy from the exertion and pain. "We should stick together," I say, more to myself than to him. "Especially with that thing out there."
+Catching up to him, I try to keep pace, my breathing heavy from the exertion and pain. "We should stick together," I say, more to myself than to him. 
 
 He doesn't stop, but I notice he's not moving as fast as he could. It seems like he's consciously slowing down his pace, allowing me to follow close behind despite my injured state.
 

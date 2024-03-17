@@ -1,10 +1,10 @@
-The past two years have been incredibly challenging. After my mom died, I moved back home to become the primary caretaker for my father, Thành, who is in the final stages of colon cancer. The responsibility has been incredibly taxing, both emotionally and physically, on me and my wife, Quinn. Watching someone you love slowly fade away is a heart-wrenching experience that words can hardly describe.
+The past two years have been incredibly challenging. After my mom died, I moved back home to become the primary caretaker for my father, Thành, who is in the final stages of colon cancer. The responsibility has been incredibly taxing, both emotionally and physically, on me and my wife, Mira. Watching someone you love slowly fade away is a heart-wrenching experience that words can hardly describe.
 
 Every day brings a new challenge, a fresh reminder of the inevitable. Yet, in this twilight of his life, I've found a strange comfort in our one-on-one conversations, these rare moments of tranquility amidst the storm.
 
 Dad grew up in a small village in Central Vietnam, and his stories often whisk me away to those simpler times. He speaks of his childhood with a sparkle in his eyes, narrating tales of mischievous adventures and youthful dreams. I hear about his journey to America, a leap into the unknown, fueled by hope and resilience. These stories, lighthearted and warm, have been my solace, a gentle reminder of the man he once was.
 
-As I prepared his chemo, meticulously adjusting the doses and equipment, Dad's gaze fixed on me with a seriousness that halted my movements.
+As I prepared his chemo, meticulously adjusting the doses and equipment, careful not to disturb is trick shoulder, Dad's gaze fixed on me with a seriousness that halted my movements.
 
 "Spencer," he said in a voice barely above a whisper, "I have to tell you something." His eyes, usually filled with warmth, held a flicker of something unrecognizable - was it fear? Or perhaps regret?
 
@@ -58,7 +58,7 @@ As he moves on, I find a secluded spot near a towering tree, its roots offering 
 
 Time seems to stretch and compress in these waiting hours. Every shadow becomes a potential threat, every rustle a possible enemy.
 
-In the enveloping silence, as the jungle's heart beats in sync with ours, I catch myself humming softly. It's a nervous tick, a habit I've picked up somewhere along the way, a means to steady my jittering nerves.
+In the enveloping silence, as the jungle's heart beats in sync with ours, I catch myself whistling softly. It's a nervous tick, a habit I've picked up somewhere along the way, a means to steady my jittering nerves.
 
 Late into the night, as the moon casts its silver glow over the jungle canopy, we lie in wait, each man a coiled spring, ready to unleash hell at a moment's notice.
 
@@ -255,6 +255,10 @@ As the figures surround us, the sniper and I are inexorably pushed back to back,
 [Part 5](https://www.reddit.com/r/nosleep/comments/1ameo4t/i_found_out_why_my_dad_never_talked_about_his/)
 
 [Part 6](https://www.reddit.com/r/nosleep/comments/1axj5s5/i_found_out_why_my_dad_never_talked_about_his/)
+
+[Part 7](https://www.reddit.com/r/nosleep/comments/1bboyvp/i_found_out_why_my_dad_never_talked_about_his/)
+
+[Part 8](https://www.reddit.com/r/nosleep/comments/1bg5b5b/i_found_out_why_my_dad_never_talked_about_his/)
 
 [X](https://www.reddit.com/r/PageTurner627Horror)
 
