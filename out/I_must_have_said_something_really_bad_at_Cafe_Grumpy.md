@@ -1,8 +1,12 @@
 The tall blonde girl explained to me that hot chocolate with espresso and steamed oat milk was actually called a Mocha Oat Latte. I thanked her for hepping me to the vernacular and waited to become ungrumpy.
 
+The morning thus far, while uneventful, had been chock full of texts from psychotic computer programmers at the non profit where I consulted. That and massive amounts of *no-caffeine,* as I had neglected to purchase coffee for the crib for the umpteenth time. So, high as a kite, yo, it was off to Cafe Grumpy I go; my bout of no-caffeine triaged for a remedy; stat.
+
+*Real knows real & Grumpy knows grumpy.*
+
 It was a record high in Brooklyn for the ides of March and I was dressed accordingly. Cargo shorts, Brooklyn vs. Everybody tee, Nike slip on sneakers topped off with a Humphrey Bogart fedora. I was everything the aging software consultant who worked from home should be. And I was high as a helicopter on the Lush sativa pen and didn't care who knew it.
 
-I heard the door jingle bell open and in lumbered a very, very large man who appeared to be of indeterminate origin. He had a shock of wild black curly hair and a sparse beard and moustache that only partially concealed a deeply tanned set of missing teeth.
+I heard the door jingle bell open and in lumbered a very, very large man who appeared to be of indeterminate origin. He had a shock of wild black curly hair and a sparse beard and moustache that only partially concealed a deeply tanned set of mostly missing teeth. His feet were in duct taped sneakers whose fronts had been removed. His feet and toes were filthy and blackish green. His toenails were in an unspeakable condition.
 
 The man's stench preceded him, and except for a large burlap blanket swaddling his amazing girth, which I imagined to be somewhere in the neighborhood of close to 400lbs, there was nothing else to clothe him.
 
@@ -10,7 +14,9 @@ He was at least six feet and upon his wild eyed face sat a pair of black rimmed 
 
 I kept my eyes open but held my breath. I finally surmised the fat man was wanting to be fed as the noises seemed to coalesce into real words. Words that spoke of his homelessness and hunger. The three GenZs behind the counter seemed fascinated by the espresso machine in the back behind the bar.
 
-A woman with a double baby stroller deftly maneuvered around the man and jingle belled out of Cafe Grumpy. I took a step back as a smell so hideous confronted my olfactory glands. Then two things happened I had no control over.
+A woman with a double baby stroller deftly maneuvered around the man and jingle belled out of Cafe Grumpy. I took a step back as a smell so hideous as to be straight from the devil's rectum strained my olfactory glands to the point of incredulity.
+
+Then two things happened I had less control over then an old alcoholic man's bladder.
 
 1. My mouth started uttering obscenities about the smell and;
 2. My hands extracted a twenty dollar bill from my wallet
@@ -25,11 +31,11 @@ Our eyes met. Oswaldo Buddy Holly seemed to hear something in the distance that 
 
 The bell jingled and I breathed into my fedora like an N95.
 
-"Here's your Mocha Oat Latte," the blonde girl said sardonically, offering me a white paper cup with a grumpy face on it, There was an oatmilk leaf slowly discorporating upon its surface and the girl seemed not to notice the now fading funk.
+"Here's your Mocha Oat Latte," the blonde girl said sardonically, offering me a white paper cup with a grumpy face on it, There was an oatmilk leaf slowly discorporating upon its surface and the girl seemed not to notice the now fading funk. Maybe she should switch to oat milk.
 
-I thanked her. I went to put a lid on the cup. The door bell jingle belled and two men wearing navy blue banker suits strode in purposefully like they were somebody.
+I thanked her. Cup in hand I went to the syrup station to put a lid on it. The door bell jingle belled and two men dressed in identical, navy blue banker suits, strode in purposefully, like they were somebody.
 
-They appeared intent on walking right up to me. As I watched this unsettling scene unfold, I turned from the lids to greet them with a forced smile. And while the bankers looked particularly unfriendly, to their credit they did let in some fresh air with them, and they did not smell like dumpster juice; so there was that.
+They appeared intent on walking right up to me. As I watched this unsettling scene unfold in real-time, I turned from the lids to greet them with a forced smile. And while the bankers looked particularly unfriendly, to their credit they did let in some fresh air with them, and they did not smell like dumpster juice; so there was that.
 
 "Why'd you say *that*?" one of the bankers asked, referring to me by name.
 
@@ -51,7 +57,7 @@ It's best in times like these to take matters into your own hands. Looking down 
 
 I took a long slurp/gulp then rinsed and repeated until we all stood there a cool half minute while I caffeinated. The sugary chocolate caffeine beverage talked to me like spinach to *Popeye the Sailor Man.*
 
-It said, "F$#(% these men in blue. Let's roll."
+It said, "I'd rather be a hammer than a nail. Let's bail."
 
 The silent banker began to flinch as if he was going to move his arm. I drew my Cafe Grumpy coffee cup quick back to my mouth. I readjusted so my elbow was triangulated between myself and the blue bankers. The GenZs seemed busy on their phones.
 
@@ -87,9 +93,13 @@ As I regained my composure, a middle-aged woman coming down the street with a go
 
 She held a rolled-up yoga mat and then I realized they were flesh toned workout bottoms. I shook my head slightly and smiled softly as our eyes met.
 
-"Ask them no questions. For they can tell no lies." And then, as if a spell had been broken, she gave me an arrogant look, as if, 'how dare you gaze upon my attractive self you inferior prole," before she disappeared south.
+She spoke. To me. By name.
 
-"What the F$#(%?" I thought to myself and contemplated the wisdom of another coffee and a pre-roll. I did have to go to the ATM machine and might as well go with the flow.
+"Ask them no questions. For they can tell no lies."
+
+And then, as if a spell had been broken, she gave me a seriously arrogant look, as if, 'how dare you gaze upon my attractive self, you inferior bald, aging prole," before she disappeared in the direction of the fat man; south.
+
+"What the actual F#@($&ing F$#(%ity F@#$&@\~!!?" I thought to myself before contemplating the wisdom of another coffee and a pre-roll. I did, after all, have to go to the ATM machine and might as well go with the flow. Happy Friday and all that good shite.
 
 In front of the Chase bank the man who always greeted me and asked for money simply said, "You said a bad word, son. Don't do it again."
 
@@ -135,11 +145,19 @@ At the convenience shop I bought and paid for a Powerball ticket. There too, the
 
 I spun around and he acted as if he said nothing, examining his cuticles. The door of the shop opened and some kids from John Jay high school blew past me blathering loudly about instagram. One girl in pajama bottoms gave me a quick look and said, "Go home," using my first name.
 
-Back on the street it was sunny. The air was fresh. The birds chirped. Delivery trucks, buses, cop cars, meter maids, pedestrians, hospital people in scrubs, teens in their spring training uniforms; but something was off. I apparently had said a bad word. Apparently, everyone knew my name.
+Back on the street it was sunny. The air was fresh. The birds chirped. Delivery trucks, buses, cop cars, meter maids, pedestrians, hospital people in scrubs, teens in their spring training uniforms; everyone and everything invigorated by the unseasonably record warm day. But something was off. I apparently had said a bad word. And apparently, everyone knew my name.
 
-I tore the plastic wrapper of my espresso beans to make a hole. I shook about six in my mouth and began to jaw them. They were bitter and sweet. I thought about taking a walk in Prospect Park to clear my head. I thought about going to the Union Market for produce and spaghetti and hummus.
+My phone buzzed with a text from my 7 year-old grandson, Howard.
 
-I swallowed the espresso beans and watched a jet fly across the sky. Probably headed to JFK. Some more high schoolers went by and one in min-dreadlocks said to me, "If you blow it here one more time you don't want to know what the next simulation gets like." He then quickly walked on by. He too, knew my name.
+*You said a bad word, grandpa. Don't do it again.*
+
+I tore the plastic wrapper of my espresso beans to make a hole. I shook about six in my mouth and began to jaw them wondering just what the f$%(&\* was up. They espresso beans bitter sweetness distracted me from my weird morning. I thought about taking a walk in Prospect Park to clear my head. I thought about going to the Union Market for produce and spaghetti and hummus. Maybe it was the weed pen? Maybe I was imagining all this meshuggeneh.
+
+I swallowed the mostly chewed up espresso beans while I watched a jet fly across the sky. I noticed the moon was still out; a faint crescent in a sky so blue it looked like someone had just painted it.
+
+Plane was probably headed to JFK. I wondered if they knew my name too. If they knew I had said a bad fucking word. What am I? F#$(@&ing six years old?
+
+Some more high schoolers went by and one who was sporting min-dreadlocks said to me, "If you blow it here one more time you don't want to know what the next level has waiting for your hairy ass." He then quickly walked on by as if he had said nothing. He too, addressed me by my first name.
 
 I felt a bead of sweat slide down my butt crack. Someone came out of the juice shop, passed me and said, "Fucker." and kept walking. Three people coming out of Pino's pizza looked at me as I walked by and said, "Keep saying bad words. Watch. Watch what happens."
 
