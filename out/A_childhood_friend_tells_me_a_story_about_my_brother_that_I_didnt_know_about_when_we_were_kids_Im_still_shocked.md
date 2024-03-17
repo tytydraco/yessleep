@@ -105,10 +105,3 @@ Seeing that my face still reflected confusion and surprise for the story, he tol
 I scribbled my number on a piece of paper and handed it to him, he looked at the paper and said goodbye. He walked a few steps and stopped, turned around and said to me.
 
 * I don't think it was grilled pork.
-
-  
-
-
-Original spanish version [Here](https://www.reddit.com/r/Burises/comments/1bemfl5/un_amigo_de_la_infancia_me_cuenta_una_anecdota_de/).
-
-Version original en español [aca](https://www.reddit.com/r/Burises/comments/1bemfl5/un_amigo_de_la_infancia_me_cuenta_una_anecdota_de/).
