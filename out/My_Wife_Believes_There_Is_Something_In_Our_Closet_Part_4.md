@@ -1,4 +1,4 @@
-[I stepped](https://www.reddit.com/r/nosleep/duplicates/1bdkaxr/my_wife_believes_there_is_something_in_our_closet/) past the old woman, intent on shutting the door before whoever or whatever could enter. As soon as I moved, I could feel her grip tighten, bony fingers digging like claws into my shoulder.  
+[I stepped](https://www.reddit.com/r/nosleep/s/AvLlxqnzSt) past the old woman, intent on shutting the door before whoever or whatever could enter. As soon as I moved, I could feel her grip tighten, bony fingers digging like claws into my shoulder.  
   
 Turning to face her, I met a wild-eyed sort of desperation. She hurried to stand in front of me again, and immediately I knew I'd made a mistake entering.   
   
@@ -142,4 +142,4 @@ And Janice, if you’re reading this - I love you, I love you now and past the m
   
 *Be wary, Be wise, and look to the unknown with an Open Eye…*  
   
-*Darcy Whitmore.*  
+*Darcy Whitmore.*

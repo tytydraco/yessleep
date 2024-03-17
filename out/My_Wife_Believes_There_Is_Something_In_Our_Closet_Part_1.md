@@ -438,4 +438,4 @@ Her words came, breathed quickly, and hardly above a whisper, as though worried 
 
 “It’s not me Calvin, I know what it will look like but it's NOT me. I’m so sorry, but you can’t trust her.”
 
-At that, the line went dead.
+At that, the line went [dead](https://www.reddit.com/r/nosleep/s/rIxHdfQWFF).

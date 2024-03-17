@@ -346,4 +346,4 @@ I hadn’t checked the closet door when I’d entered. I wasn’t sure if the lo
 
 As if in confirmation of my most awful fears, from somewhere beyond the threshold of the doorway, within the darkness that hung like a blindfold, there was the faint, but unmistakable creak of movement against ancient floorboards.
 
-Someone…something else was in the house with us.
+Someone…something else was in the house with [us. ](https://www.reddit.com/r/nosleep/s/5Kkaw0MfMC)

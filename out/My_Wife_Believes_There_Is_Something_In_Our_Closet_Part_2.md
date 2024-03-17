@@ -372,4 +372,4 @@ And beyond that, there was a hope, faint though it was that I’d be able to sha
 
 I still didn’t feel any better by the time I’d finished, nearly an hour had passed and several uneasy glances from the cashier shot at me through the window. I sat alone in my car, freezing, feet crunched into shoes two sizes too small, and with an impossible story to which I had no conclusion, no hint of what to do next.
 
-It was then that an idea occurred to me, and before I could consider whether it was a good one, I’d pulled the car forward and out of the parking lot the hint of some perceived progress pushing me forth.
+It was then that an idea occurred to me, and before I could consider whether it was a good one, I’d pulled the car forward and out of the parking lot the hint of some perceived progress pushing me [forth](https://www.reddit.com/r/nosleep/s/XxvAoUzeTX).
