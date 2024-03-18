@@ -346,7 +346,7 @@ Tuyet and Duyen led me upstairs, the wooden steps creaking softly under our feet
 
 Reaching the top of the stairs, we paused at a door at the end of a short hallway. Tuyet lingered at the doorway as she continued. "It wasn't until he was in his forties that we noticed changes. It started small—forgetfulness, mood swings—but it got worse quickly."
 
-Tuyet's eyes started misting over. "Duyên's mother... Nhân's wife... she passed away in a tragic accident a few years before that. I had to step in to help raise Duyên and put her through school.”
+Tuyet's eyes started misting over. "I believe the change was triggered by the death of Duyên's mother... Nhân's wife... in a tragic accident. I had to step in to help raise Duyên and put her through school.”
 
 Duyên braced herself as she opened the door, her expression turning grave. The strong, unsettling stench of decay washed over me the moment the door creaked open. It was a smell that spoke of something deeply wrong.
 

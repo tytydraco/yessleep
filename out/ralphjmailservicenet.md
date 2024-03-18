@@ -11,7 +11,7 @@ But then, *he* entered my life. A nice guy who ever so innocently commented on w
 >**Post: \[iPsycho\]** 08/13/2010  
 *i will honestly kill myself if my stepfather doesn't stop screaming like someone just stabbed him*  
 >  
->**Comment: \[Ralphie73\]** 08/13/2010  
+>**Comment: \[RalphieJ\]** 08/13/2010  
 *I feel like you need someone to talk to.*
 
 Eventually, we exchanged emails. Honestly, I was just so desperate at this point. I needed someone to talk to, someone who would actually listen to me and not just act like they cared about my worthless existence. He was the light at the end of a never ending tunnel.
