@@ -32,13 +32,32 @@ I had a nightmare; I stood in darkness, in a void so dark I couldn't see where i
 
 In the void, in the catatonic sound of Toby's voice repeating to stop taking the meds. In the distance, I saw a lots, lots of bright silhouettes, all of them started approaching me at a tremendous speed until I was surrounded by all of them, all repeating one thing to me... "Stop taking the meds."
 
-I woke up, jerking up and falling off the couch onto the hard floor, hitting my head.
+During the cacophony of a thousand voices, resembling an orchestra coaxing me towards wrongdoing, Toby advanced step by step, his gaze locked deeply into my eyes. It felt as if he were piercing through my body with his stare, delving into my mind. I couldn't move, though I desperately wanted to. I wanted to run in the opposite direction, to escape, but my body refused to obey. Toby reached out, clasping his hand around my throat and squeezing tightly.
+
+"What the... Fuck... are you doing?" I struggled to articulate.
+
+"I'll make you believe, trust me," he said convincingly. "When you wake up, say that you understand what you hear."
+
+The chorus of white silhouettes chanting "Stop taking the meds" remained audible in the distance.
+
+"Oh... Fuck... It... Hurts," I uttered, drifting away from the dream with those final words.
+
+I opened my eyes, finding myself in my living room. I could move my body, but something was pressing down on me, compressing my throat. I struggled to draw in air, finding it more difficult than I had anticipated. As my brain fully awakened, I recalled the words from the dream.
+
+"I... I... I understand," I managed to wheeze.
+
+Instantly, the pressure lifted from my throat, and I jerked up, falling off the couch onto the hard floor, hitting my head hard. 
 
 "Fuuuck..." I cursed at the fall.
 
-I sat up on the couch, pondering the dream. I considered it just a nightmare, but... I will never forgive myself for not thinking to call Toby.
+My throat burned like hell and continued to ache from the amount of force used; I was fully awake, yet I still felt as if something thight was constricting my throat.
 
-The next day, while preparing food for work, I received a call. It was a friend from the circle, the name doesn't matter; what matters is what I heard.
+After 30 minutes of panicking, I sat up on the couch, thinking about the dream and what happened. "There is no way it was just a nightmare. What the fuck was that?!" I said out loud. 
+
+I got up and went to the bathroom to wash my face with cold water. After washing my face, I looked into the mirror. Shocked, I examined my neck. It was all red and blue. "What the fuck" - I said out loud. After about two hours, the marks disappeared without the trace.
+
+
+The next day, while preparing food for work, still shocked from what i experienced yesterday (I couldn't sleep the whole night), I received a call. It was a friend from the circle, the name doesn't matter; what matters is what I heard.
 
 "Toby is dead; they say it was a suicide."
 
@@ -46,7 +65,7 @@ The pan, along with what was on it, slipped from my hands, crashing loudly onto 
 
 "He... He what?" I asked, still stunned.
 
-"What you heard, see you around," he replied.
+"What you heard, he hang himself, see you around," he replied.
 
 His voice contained not an ounce of emotion; I know he also had a good relationship with Toby, most likely he was also going through this.
 
