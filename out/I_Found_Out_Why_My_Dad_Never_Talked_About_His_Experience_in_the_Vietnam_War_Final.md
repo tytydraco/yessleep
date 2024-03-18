@@ -214,7 +214,7 @@ Upon landing at Tân Sơn Nhất International Airport, the wave of tropical hea
 
 Reluctantly, I slipped a few crisp bills into my passport as I handed it over for inspection. The official's demeanor shifted subtly, a nod of understanding passing between us before he waved me through with a barely perceptible smile.
 
-The connecting flight to Đà Nẵng was shorter, the plane cutting through skies that transitioned from the deep blue of dusk to the inky black of night.
+The connecting flight to Đà Nẵng was shorter, the plane cutting through deep blue sky of dusk.
 
 As soon as I disembarked from the plane at Đà Nẵng, I navigated through the modest but bustling airport to find a somewhat quieter corner. Taking out my phone, I dialed the number of the contact Ash and Reine had given me. It belonged to Duyên, Tuyet's granddaughter and Nhân's daughter.
 
@@ -250,7 +250,7 @@ Duyên giggled, sensing my apprehension. "Don't worry. We make it work here." Wi
 
 I put on the helmet and climbed onto the back of the Wave, my hands tentatively finding a hold as Duyên kick-started the engine to life.
 
-The ride was an experience unlike any I'd ever had. Duyên navigated through the chaotic traffic with the skill of a seasoned rider, weaving between cars and trucks with what seemed like mere inches to spare. Every honk and near-miss had me gripping the sides of the bike tighter, but Duyên seemed unfazed, occasionally throwing curses at particularly errant drivers.
+The ride was an experience unlike any I'd ever had. Duyên navigated through the chaotic traffic with the skill of a seasoned rider, weaving between cars and trucks with what seemed like mere inches to spare. Every honk and near-miss had me holding onto her tighter than I intended. But Duyên seemed unfazed, occasionally throwing curses at particularly errant drivers.
 
 Trying to distract myself from the fear of imminent death, I struck up a conversation with Duyên, raising my voice to be heard over the roar of the engine and the cacophony of the traffic.
 
@@ -264,7 +264,7 @@ Trying to distract myself from the fear of imminent death, I struck up a convers
 
 Her words did little to calm the storm of emotions brewing inside me. The anticipation of meeting them was a tangled knot of excitement, apprehension, and a deep-seated longing for a connection I hadn't known I was missing.
 
-I found myself holding onto Duyên tighter than I intended. "You're good at this," I shouted over the noise, trying to make conversation and perhaps distract myself from the precariousness of our mode of transport.
+"You're good at this," I shouted over the noise, trying to make conversation and perhaps distract myself from the precariousness of our mode of transport.
 
 Duyên laughed, the sound barely reaching me over the din. "You get used to it!" she shouted back. "Besides, this is nothing. Wait till you see Hội An during the tourist season."
 
@@ -346,7 +346,7 @@ Tuyet and Duyen led me upstairs, the wooden steps creaking softly under our feet
 
 Reaching the top of the stairs, we paused at a door at the end of a short hallway. Tuyet lingered at the doorway as she continued. "It wasn't until he was in his forties that we noticed changes. It started small—forgetfulness, mood swings—but it got worse quickly."
 
-Tuyet's eyes started misting over. "I believe the change was triggered by the death of Duyên's mother... Nhân's wife... in a tragic accident. I had to step in to help raise Duyên and put her through school.”
+Tuyet's eyes started misting over. "We believe the change was triggered by the death of Duyên's mother... Nhân's wife... in a tragic accident. I had to step in to help raise Duyên and put her through school.”
 
 Duyên braced herself as she opened the door, her expression turning grave. The strong, unsettling stench of decay washed over me the moment the door creaked open. It was a smell that spoke of something deeply wrong.
 
