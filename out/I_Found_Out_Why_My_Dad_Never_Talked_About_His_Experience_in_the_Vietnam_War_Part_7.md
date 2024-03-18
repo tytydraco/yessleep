@@ -362,7 +362,7 @@ Without a word, we begin to strip away the layers of clothing that separate us, 
 
 We stumble back towards the small cot in the corner, our bodies entwined as we lose ourselves in each other. Neither of us really knows what we’re doing. We just do what feels right.
 
-We both know that what we're doing is reckless. But in the moment, we don't really care. Our world is literally on fire, and neither of us knows if we'll live to see tomorrow. What do we have to lose?
+We move as if guided by some primal instinct, our actions born out of a mutual desire to feel something, anything, beyond the fear and pain that have consumed us for so long.
 
 —
 
