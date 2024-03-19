@@ -12,7 +12,7 @@ I thought Jules had come in for more kitty food. It was my stupid fucking fault 
 
 Harvey didn't see the little boy point a gun at his head, tiny index teasing the trigger. 
 
-He chose the wrong time to lean over the table, swiping oatmeal from my lips. Harvey's lips parted in a smirk, as if he was going to say something like, “You've got a little something there.*. 
+He chose the wrong time to lean over the table, swiping oatmeal from my lips. Harvey's lips parted in a smirk, as if he was going to say something like, *“You've got a little something there.*. 
 
 But he didn't. 
 
@@ -42,7 +42,9 @@ Emily and Eli, the twins who lived next door.
 
 Starry Eyes Syndrome was a disease in our town that had twisted our younger generation into psychotic murderers. 
 
-It started with an episode of a local TV show. Something inside the footage did something to the kids watching, filling their eyes with stars. The effect wasn't immediate. Initially, they were isolated incidents. Kids were suddenly ripping into their stuffed animals. Then they were quietly killing their pets, hanging the collars like trophies. I was home sick from school one day, and my parents were downstairs eating dinner. 
+It started with an episode of a local TV show. 
+
+Something inside the footage did something to the kids watching, filling their eyes with stars. The effect wasn't immediate. Initially, they were isolated incidents. Kids were suddenly ripping into their stuffed animals. Then they were quietly killing their pets, hanging the collars like trophies. I was home sick from school one day, and my parents were downstairs eating dinner. 
 
 Eli and Emily were like my own siblings. I had known them since they were babies. So, it's common for them to walk into our house, usually with chicken pot pie. 
 
@@ -78,7 +80,9 @@ No response, only Emily giggling downstairs.
 
 The hallway light was off, which was odd. Mom reiterated that she had left it on so I could run to the bathroom if I needed to barf.
 
-I was half conscious and delirious when she said this, so maybe I misheard her. When I clicked it on, Eli was standing directly in front of me, a shadow lurking in the dark. Initially, I thought it was a reflection of the light. But looking closer, I was staring, baffled, at tiny twinkling stars in my neighbour’s pupils. They didn't make sense to me. 
+I was half conscious and delirious when she said this, so maybe I misheard her. 
+
+When I clicked it on, Eli was standing directly in front of me, a shadow lurking in the dark. Initially, I thought it was a reflection of the light. But looking closer, I was staring, baffled, at tiny twinkling stars in my neighbour’s pupils. They didn't make sense to me. 
 
 As if his pupils were filled with star dust. 
 
@@ -436,7 +440,7 @@ Leaning against the wall, my mind was already spinning. “But you're their favo
 
 Luke lifted his head, his eyes puffy. I didn't blame him for crying. The last performer who went looking for a lost kid ended up as set decor we didn't find until we could smell him. Luke was terrified, his expression twisting, pleading with me. His gaze found Mr Panda standing with his arms folded. 
 
-Unlike the rest of the performers, Panda wasn't wearing his head, dark eyes glued to the kids. A makeup artist had attempted to take his sandy hair, only for him to politely tell her to fuck off. 
+Unlike the rest of the performers, Panda wasn't wearing his head, dark eyes glued to the kids. A makeup artist had attempted to tame his sandy hair, only for him to politely tell her to fuck off. 
 
 “What about Freddie?” Luke whispered. 
 

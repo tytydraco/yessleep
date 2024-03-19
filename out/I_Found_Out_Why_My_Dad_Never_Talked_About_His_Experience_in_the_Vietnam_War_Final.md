@@ -292,7 +292,9 @@ Despite the passage of time, her resemblance to the young woman in the photograp
 
 “Chào cô. I’m Spencer, Thành’s son. We talked over the phone…” I said to her in Vietnamese.
 
-Tuyết's eyes lingered on me, searching, as if trying to find traces of my father in my features. A multitude of emotions flickered across her face, settling into a tender smile. "Of course I know who you are," she reassured me. Extending her hand, she clasped mine, her grip firm, grounding.
+Tuyết's eyes lingered on me, searching, as if trying to find traces of my father in my features. "Of course I know who you are," she reassured me. Extending her hand, she clasped mine, her grip firm, grounding.
+
+She reached out, her fingers lightly touching the side of my face. "You have your father's eyes," she said softly. "And his smile." Her own smile deepened.
 
 As we settled into the living room, a cozy space filled with the light of the setting sun, Tuyet turned to Duyên and instructed her to prepare a pot of tea. The air inside was cool, a respite from the day's warmth, filled with the scent of jasmine and incense.
 

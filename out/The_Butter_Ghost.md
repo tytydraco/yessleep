@@ -443,7 +443,7 @@ That was preaching to the choir. I was amazed I hadn’t shat myself yet.
   
 “We all are,” I said. “I say we get the fuck out of here and get to a neighbor’s place.”  
   
-“Good idea,” Lucia replied, “come on, we can leave through here.”  
+“Good idea,” Juna replied, “come on, we can leave through here.”  
   
   
 She placed her hand on the knob, then stopped.  
