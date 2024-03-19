@@ -1,5 +1,3 @@
-My husband wears other people’s faces.
-
 I don’t think he would’ve told me. I don’t think I would’ve believed him, even if he did. But fate intervened, and when I swung by the grocery store Tuesday after work, it happened.
 
 As I loaded my stuff onto the conveyor belt, I heard a wet *splat* behind me.
