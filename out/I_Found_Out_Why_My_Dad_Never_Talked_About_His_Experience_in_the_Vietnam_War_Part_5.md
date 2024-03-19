@@ -158,7 +158,7 @@ Tuyết swallows hard, her eyes glistening with unshed tears. She begins, her vo
 
 "Here are Lê Gia Bảo and his little sister Quỳnh Đào. Bao was teaching Quynh how to read when your helicopters first appeared. They never had a chance to run."
 
-Bùi Hòa Bình, he survived wars and famines. He died standing up for my niece."
+Bùi Hòa Bình, he survived wars and famines. He died standing up for my sister."
 
 Ending with Mrs. Thao, Tuyết's voice is a whisper, laden with grief. "And Trần Thảo Vy. She made the best bánh xèo in the village. Now, look at her."
 

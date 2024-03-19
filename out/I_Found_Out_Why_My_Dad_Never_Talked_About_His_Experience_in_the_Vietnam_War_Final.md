@@ -374,7 +374,7 @@ I settled into the bed, the weight of the day pressing down on me. The moonlight
 
 "Hey, what’s up?” I greeted her.
 
-“Nothing much,” she replied, her smile brightening the screen. “I just missed seeing your face.”
+“Nothing much,” she replied, her smile brightening the screen. “I just miss seeing your face.”
 
 “Aww, I miss you too, babe,” I say, longing for her comforting embrace.
 
