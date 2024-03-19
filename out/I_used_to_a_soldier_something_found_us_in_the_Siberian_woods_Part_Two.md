@@ -7,7 +7,7 @@ I kicked myself again for not taking a flashlight. This was supposed to be a pun
    
 The eerie silence returned. No sound could be heard. Just us, our uneven steps, and the gentle cracking of the torches. However, we already knew that this was a lie. Those things… We had never seen anything like this. They moved so fast and inhumanly agile – jumping from tree to tree, flanking and fooling us. I tried not to think what would happen if they managed to surround us…   
 The wound on Batu’s leg was not pretty – deep and clean as if made by a scalpel. He lost plenty of blood before I was able to stabilize him. Not hard to imagine, what it would look like if it were his neck and not just a leg.   
-But the worst part – unlike us, those creatures could navigate in the dark. I didn’t know how: maybe they used echolocation like bats, or straight-up had infrared vision like Predator.   
+Unlike us, those creatures could navigate in the dark. I didn’t know how: maybe they used echolocation like bats, or straight-up had infrared vision like Predator.   
    
 It unnerved me – the fact that we were blind, bumping like a bunch of drunkards in the dark. They could watch us and wait and savor our fear. Hell, one of them could sit on a tree 10 meters away, deciding what body parts they wanted to eat first.   
    
@@ -17,11 +17,11 @@ I kept my AKM on Full Auto, ready to fire any moment. We knew we could hurt them
    
 We walked and walked again and walked a little bit more. Several hours of painfully slow march. Not sure how far we went in this darkness. Maybe a few kilometers? Pretty soon, I could hear Kiril huffing and slowing down. Batu was not exactly a feather.   
    
-“We need to rest,” Batu protested. “If they attack, we must be in full strength”.  
+“We need to rest,” Batu said. “If they attack, we must be in full strength”.  
    
 Kiril just shrugged and fell to the ground exhausted. I stood guard. The dim light of torches was painfully small – we could barely see a few meters around, surrounded by the dense forest. In this darkness, the feeling was surprisingly claustrophobic.   
    
-Ten minutes later we prepared to go until Batu spoke:  
+Ten minutes later we prepared to continue our march until Batu spoke:  
    
 “Am I dying, or there is a light out there?” he pointed his finger somewhere.   
    
@@ -31,7 +31,7 @@ I saw a barely noticeable flicker in the distance. Like a tiny candlelight.
    
 We moved silently, not knowing what to expect.  
    
-My eyes were darting from one tree to another. It would be really easy to ambush us if we rushed towards like moths to a flame. I felt blood beating in my ears, my palms got sweaty and my breathing was hard and heavy.   
+My eyes were darting from one tree to another. It was hard not to feel like moths rushing to a flame. I felt blood beating in my ears, my palms got sweaty and my breathing was hard and heavy.   
 I almost growled when a light in the distance disappeared suddenly. We all frowned and prepared for an attack. Ambush after all.   
    
 We stood back-to-back, ready to fight back. Kiril was shaking, Batu was praying, and my heart was ready to jump out of my chest. My eyes were tearing up, knowing that the end was near. But to my surprise, nothing had happened. No attack followed, the silence didn’t break with screeches or growls.   
@@ -52,7 +52,7 @@ I barged in, guns blazing, preparing to shoot on sight. But there was no one ins
    
 “Nothing! All clear! Get inside.”   
    
-We’ve put Batu on a bed. Kiril closed the door and we barricaded it with the table and the chest. If we wished to survive, we had to hold this hut till the sunrise. For now, we could rest. Kiril moved the skull somewhere in the corner facing toward the wall.   
+We’ve put Batu on a bed. Kiril closed the door, and we barricaded it with the table and the chest. If we wished to survive, we had to hold this hut till the sunrise. For now, we could rest. Kiril moved the skull somewhere in the corner facing toward the wall.   
    
 “It looks creepy” he confessed, red with embarrassment.    
    
@@ -98,7 +98,7 @@ The gunshot snapped us out of our stupor. Kiril and I raised our AKs and pointed
    
 “Quite” I replied. “Hear that?”   
    
-We did. The movement outside. The rustling and crutching outside – all around us. The roof was trembling under heavy steps as if someone was deliberately trying to make themselves heard. Maybe they were. Or maybe it was just an animal instinct like those raptor things from Jurassic Park. I dearly hoped so.   
+We did. The movement outside. The rustling and crunching all around us. The roof was trembling under the heavy steps as if someone was deliberately trying to make themselves heard. Maybe they were. Or maybe it was just an animal instinct like those raptor things from Jurassic Park. I dearly hoped so.   
 They were making as much noise as possible… The snarls, the rustling, the giggles – the giggles were the worst. Did they try to intimidate us? Sent us to panic? I could tell there were at least four of the creatures lurking around the hut. Could it be more?  
 My heart started pounding again, blood drumming in my ears, and my hands started shaking again but this time it was not fear. Something just snapped inside of me.  
    
@@ -112,6 +112,7 @@ Batu and Kiril joined me howling and cussing. Kiril was shaking from fear and an
 Something rammed the door – the makeshift barricade shook and moved. The dust fell from the ceiling, and the entire hut shook as if warning us that it might not survive another hit. The door cracked a bit, and Kiril suddenly ran toward the chest.  
    
 “The knife!” he screamed. “We need this knife! Where is it… Hold the door! Hold the door dammit!”  
+
 Something hit the entrance again, widening the opening. Without thinking I throw myself at the barricade, closing the door again. I did not know why Kiril needed some old flint knife, but there was no time to ask.   
    
 Batu raised his gun. I saw a flicker of movement in the window – the dark creatures were jumping back and forth like excited apes. I heard hushing whispers outside:  
@@ -125,10 +126,11 @@ The window was not big enough for a man to get through… but I was not so sure 
 Batu shot again and the gaunt hand disappeared, and we heard an insulted cry.   
    
 Another hit made the hut reel. Some wood planks fell off. I stubbornly kept the door shut. Another hit. And another! Slowly, they were pushing me back. The opening grew larger and larger until I saw five long fingers slowly appearing in the opening. It playfully tapped on the door almost as if saying “Really? Are you sure?”  
+
 The long claws didn’t fill me with optimism. The giggling and maniacal screeching outside grew louder and more excited. Batu opened fire at the door barely missing me. A small bullet hole appeared on the finger but it didn’t jerk away… Batu shot again and again, showering me with splinters like they were shrapnel. Cursing his name, I desperately pushed the door.   
 Swearing like a sailor, I looked at Kiril. He was still looking for the blasted knife, kneeling on the ground. Where the hell did we put it?  
    
-The creatures outside pushed again – gently, slowly, widening the opening. I saw a thin head appeared from the gap. The bastard was huge… unlike the previous “kid” this one looked more like a horse – the long face with long jaws, but I could still see the distinct human features: a small nose, tinny eyes with black dots instead of pupils, and the smile… The mouth of this one was even wider given its extended animal-like jaw, but it had the same unsettling grin – ear to ear, like a nightmarish toad. The thing looked at me with hunger and glee and then made a gesture with its index finger, like a parent who was playfully scolding a child. I raised my gun with one hand and pulled the trigger. The loud roar of the gun almost made me deaf, but even after the long burst, I still managed to hear a quiet click. The mag was empty. 30 rounds spent in less than a minute, yet still this creature stood unharmed – just a few scratches and wet gashes, that leaked some dark liquid. The bastard didn’t even flinch. In fact, its grin became even wider, and it pushed the door harder pushing me back. Its eyes were staring at my very soul.  
+The creatures outside pushed again – almost gently, slowly, widening the opening. I saw a thin head appeared from the gap. The bastard was huge… unlike the previous “kid” this one looked more like a horse – the long face with elongated jaws. I could still see some human features: a small nose, tinny eyes with black dots instead of pupils, and the smile… The mouth of this one was even wider given its extended animal-like jaw, but it had the same unsettling grin – ear to ear, like a nightmarish toad. The thing looked at me with hunger and glee and then made a gesture with its index finger, like a parent playfully scolding a child. I raised my gun with one hand and pulled the trigger. The loud roar almost made me deaf, but even after the long burst, I managed to hear a quiet click. The mag was empty. 30 rounds spent in less than a minute, yet still this creature stood unharmed – just a few scratches and wet gashes, that leaked some dark liquid. The bastard didn’t even flinch. In fact, its grin became even wider, and it pushed the door harder pushing me back. Its eyes were staring at my very soul.  
 I growled and spat at it, then gripped my bayonet tightly. Suddenly, Kiril jumped forward – the stupid flint knife in his hands. The thing lazily moved its face toward him, and I saw its features change – the glee and happiness turned into concern.   
    
 Kiril stabbed it in the eye. We heard the loud screams of panic and pain. We hurt it. We bloody hurt it! The smelly ooze pored through its severed eye socket. The thing immediately disappeared into the night, howling and crying like a puppy.   
@@ -183,7 +185,7 @@ Batu and I were sent to the hospital. The nurse was not pleased when she saw me 
 She shuddered as if Frolov slapped her face and decided not to press the issue.    
 Batu’s wound got infected, so he had to stay in the hospital for another 2 weeks. My own body was covered in bruises and scratches. A couple of cracked ribs were the peak of my injuries, so the doctors decided to clear me after 3 days.   
    
-During that time, a lot happened. Frolov visited and told us everything that happened while we were lost in the woods.   
+Frolov visited us once and told everything that happened while we were lost in the woods.   
    
 Turned out, they found Morozov almost immediately. The idiot was hiding on a tree, scared witless. Once he saw Lieutenant Frolov approaching, he ran toward him crying like a little girl. Everyone was so relieved and pissed at Morozov, that Frolov didn’t notice our team was missing. He only realized that once the platoon gathered on the meadow where we buried the cigarette butt. Frolov could not send another search party into the woods at night. We already knew why.   
    
@@ -199,7 +201,7 @@ Lieutenant Frolov was found guilty of negligence for losing 2 soldiers and was r
    
 “Are you alright, comrade lieutenant?” I asked him when he told me about the tribunal.   
    
-“It's junior lieutenant, now,” he replied smiling sadly. “Don’t worry about me, soldier. You’ve got just 6 months left before the discharge. Try to stay low and don’t get into trouble, verstehen?   
+“It's junior lieutenant,” he replied smiling sadly. “Don’t worry about me, soldier. You’ve got just 6 months left before the discharge. Try to stay low and don’t get into trouble, verstehen?   
    
 “Yes, comrade lieutenant”  
    
@@ -221,7 +223,7 @@ He looked at me again and asked:
    
 He fell silent.   
    
-“And a hut we found?” I asked after some time.   
+“And the hut we found?” I asked after some time.   
    
 “The hell if I know” Frolov shrugged. “Never seen this one before. We don’t patrol those woods. I was as surprised as you were to find it.”  
    
@@ -229,11 +231,11 @@ He fell silent.
    
 Frolov looked at me intently and then shook his head.  
    
-“No, I didn’t see any diary nor any knives. Soldier, it would be better for everyone, if you forget this business. I sent everything we found to the colonel. Let them figure out. This shit is definitely above my and your pay grade.”   
+“Soldier, it would be better for everyone, if you forget this business. I've sent everything we found to the colonel. Let them figure out. This shit is definitely above your pay grade.”   
    
 Then he left.   
    
-We rarely spoke with Batu about that night. Only once did he ask me something:  
+We rarely spoke with Batu about that night. Only once he asked me:  
    
 “Did you see something… strange in the woods?” he asked uncertainly.   
    
@@ -247,7 +249,7 @@ Batu nodded and muttered:
    
 “Maybe it’s nothing… When we were leaving, I think I saw someone. Near the hut. Some old man. Then I turned and he disappeared”.  
    
-“Lemmy guess, black robe, long beard, and a fancy hat?”  
+“Lemmy guess, a black robe, a long beard, and a fancy hat?”  
    
 “Maybe?” he looked at me worryingly. “Do you know who that was?”   
    
@@ -255,9 +257,9 @@ Batu nodded and muttered:
    
 So, the life went on. Both Batu and I were released from the hospital and our service continued as if nothing had happened.   
    
-One morning we saw a UAZ and a truck arriving at our base. The driver was just another conscript, but the passengers were definitely not. A lean captain in the old field uniform walked into HQ. This was odd. By that time, we already knew all the officers on the base, but this guy… He didn’t look like a typical paper pusher from the Division HQ. Firstly, he wasn’t cleanly shaved and had a slight bristle on the face – that was a severe misconduct in our colonel's eyes. Secondly, his chevrons were unknown to me, and Frolov had mercilessly drilled us to recognize all the chevrons from our Siberian Military District.   
+One morning we saw a UAZ and a truck arriving at our base. The driver was just another conscript, but the passenger was definitely not. A lean captain in the old field uniform walked into HQ. This was odd. By that time, we already knew all the officers on the base, but this guy… He didn’t look like a typical paper pusher from the Division HQ. Firstly, he wasn’t cleanly shaved and had a slight bristle on the face – that was a severe misconduct in our colonel's eyes. Secondly, I did not recognize his chevrons, and Frolov had mercilessly drilled us to know all chevrons from our Siberian Military District.   
    
-Soon we learned why. A fat praporshik arrived in the barracks and ordered the company to move out.   
+Soon we learned why. A fat praporshik arrived to our barracks and ordered the company to move out.   
    
 Our platoon was shepherded to HQ building where we found Frolov waiting for us near the entrance. He came to each of us, saying very quietly: “Play dumb. And don’t sign anything”. Well, now I was officially in a panicking mode. One by one we were invited into the colonel's office. There I learned the newcomer’s name: Major Vladimir Volkov of the 135th Motor Rifle Regiment, 58th Army.   
    
@@ -273,7 +275,7 @@ Nothing specific really, so I replied honestly not knowing what to expect.
    
 He laughed drily at the last one and then asked:  
    
-“Got yourself into a bit of trouble, heh? Got yourself shot, then got lost in the woods, attacked by a bear” Volkov smirked drily.  “How are you holding up?”  
+“Got yourself into a bit of trouble, heh? Managed to get shot, then lost in the woods, attacked by a bear” Volkov smirked drily.  “How are you holding up?”  
    
 “I’m fine… according to the nurse”.  
    
@@ -281,17 +283,17 @@ He laughed drily at the last one and then asked:
    
 “Hurt like hell, but I’m alright”.  
    
-He nodded and looked at the documents: my psychological profile, my physical records, and my training results. He didn’t say anything just nodded putting my file away.  
+He nodded and looked at the documents: my psychological profile, physical records, and training results. He didn’t say anything just nodded putting my file away.  
 The others in my company went through the same procedure  
    
 Two weeks later, Batu, me, and 122 other lucky winners from our regiment were packing our stuff again. We were transferred to our new unit – Major Volkov’s 1st battalion of the 135th Motor Rifle Regiment. Our train was heading to a fun little town named Prokhladny. The worst part? It was right next to Chechnya where the war raged for the last 20 years. The whole Caucasus region was a giant thorn in the Russian backside since the 18th century, and the recent war was just another escalation. I watched the news about the Chechen Wars when I was a child and those were some horror stories that kept me awake at night. 
    
 Before we left for our old base, Lieutenant Frolov talked to me and Batu:   
    
-“Listen closely, soldiers, don’t play heroes. Look after each other. Trust your commander – but don’t expect any help from the higher-ups. You die there and no one will even bother to bury you, except your mates. And for the love of God don’t tell your parents – a heart stroke is not fun, trust me. Oh, and the last thing: grab every single piece of ammo you can get your dirty little hands on. I don’t care how: beg, threaten, or steal. You’ll need it.”   
+“Listen closely, soldiers, don’t play heroes. Look after each other. Trust your commander – but don’t expect any help from the higher-ups. If you die there, no one will even bother to bury you, except your mates. And for the love of God don’t tell your parents – a heart stroke is not fun, trust me. Oh, and the last thing: grab every single piece of ammo you can get your dirty little hands on. I don’t care how: beg, threaten, or steal. You’ll need it.”   
    
-The whole trip was like another dream. I was sure, that we’d get ourselves killed on the first patrol. The entire train was like a silent funeral procession – everyone was grim as if they already prepared their last testament.   
+The whole trip was like another dream. I was sure, that we’d get ourselves killed on the first patrol. The entire train was like a silent funeral procession – everyone was grim as if they had already prepared their last testament.   
    
-We were riding to the place thousands of kilometers from home. Probably to die in some convoy ambush, or to be shot in the back by a 10-year-old bin Laden wannabe, or to be eaten alive by some flesh-eating flies. No wonder Major Volkov watched us like a hawk.   
+We were riding to the place thousands of kilometers from home. Probably to die in a convoy ambush, or to get shot in the back by a 10-year-old bin Laden wannabe, or catch some exotic local disease. No wonder Major Volkov watched us like a hawk.   
    
 When we arrived at a station, I was fully prepared to be greeted by a suicide bomber. Well, things didn’t go exactly this way. It was July of 2008, and we did not know that we were walking straight into the active warzone.
