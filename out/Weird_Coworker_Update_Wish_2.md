@@ -181,3 +181,5 @@ As I passed the long woman's table, she held her hand up to me, her face blank. 
 There was a bright blue shot of something waiting for me. Ramy had the same thing. As I was about to take it, he stopped me, turning to the long woman. She held a blue shot in her hand as well. She gave us a small smile and raised her glass. Ramy did the same. Not knowing what this was about and afraid not to comply, I followed suit, but I think my smile looked more like a grimace. 
 
 I don't know what was in that shot, but it was delicious. It reminded me of summer. 
+
+Update: [I figured out what all of that was about. ](https://www.reddit.com/r/nosleep/s/IOFEEScDlK)

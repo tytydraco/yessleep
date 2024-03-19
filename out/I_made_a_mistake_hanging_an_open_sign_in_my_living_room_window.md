@@ -80,7 +80,8 @@ I heard the elderly couple howling outside and I peeked out from behind the livi
 
 "Let us in!!! Open the gates! Let us in!!! Open the gates!!!" They chanted.
 
-This has been going on for a few hours now, I even ripped the damned open sign down and chucked it out my second floor window into the ever growing crowd that now stretched down the block, it's like my house was turning into Woodstock for the dead or something.
+This has been going on for a few hours now, I even ripped the damned sign down and chucked it out my second floor window into the ever growing crowd that now stretched down the block. 
+It was starting to look like Woodstock for the dead out there or something.
 
 I tried calling the police, but I was only met with the operator telling me to "*OPEN THE FUCKING GATES!!!*"
 
