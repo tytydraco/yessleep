@@ -1,6 +1,6 @@
 “Because of the *implication*.”
 
-I smiled and ran my fingers through Glenn’s hair. “So… what, exactly, are you implying?”
+I smiled and ran my fingers through Bert's hair. “So… what, exactly, are you implying?”
 
 He looked away from me, up at the star-speckled sky, and smiled wider. “The implication that things might go wrong for you if you tell anyone my little secret.” 
 
@@ -38,11 +38,11 @@ I reached down and fumbled with numb fingertips until I found it.
 
 *crack*
 
-The tip of my stiletto hit his temple and Glenn immediately slackened his grip. I dropped the shoe and snatched my phone from my purse, tumbling out the door just as his fingertips grazed the hem of my dress.
+The tip of my stiletto hit his temple and Bert immediately slackened his grip. I dropped the shoe and snatched my phone from my purse, tumbling out the door just as his fingertips grazed the hem of my dress.
 
 I ran. 
 
-He had the car, so I sprinted away from the road and into the woody forest. My brain was still oxygen starved and I had no idea where I was. The worst was the paranoia: every creak, every snapping twig, every sound that I *imagined* to be real convinced me that Glenn was just behind, waiting to add me to his list. I periodically checked my phone, but had absolutely no service. I ran like that for so long that there seemed to be no differentiating dreams, reality, and the dark trees that had become my horrifying nightmare. I had never been so afraid.
+He had the car, so I sprinted away from the road and into the woody forest. My brain was still oxygen starved and I had no idea where I was. The worst was the paranoia: every creak, every snapping twig, every sound that I *imagined* to be real convinced me that Bert was just behind, waiting to add me to his list. I periodically checked my phone, but had absolutely no service. I ran like that for so long that there seemed to be no differentiating dreams, reality, and the dark trees that had become my horrifying nightmare. I had never been so afraid.
 
 And then I found the road again. I ran onto it and almost burst onto the other side before slamming myself to a halt. I looked to the right and saw nothing. Then I turned left.
 
@@ -50,7 +50,7 @@ Headlights. *Headlights!* I jumped and waved until a big rig pulled to the side 
 
 “This is a long way to be out by yourself, little lady,” the driver offered in a kind voice.
 
-“Yes,” I sobbed, focusing on getting my story out. “Glenn… my date… he tried to kill me. Can you please help me?”
+“Yes,” I sobbed, focusing on getting my story out. “Bert… my date… he tried to kill me. Can you please help me?”
 
 He stared at me to shocked horror. “My God… of course. I’ll radio that in for you.” He shook his head. “Wild night. Denny over here flagged me down as well, says his car got stuck in the woods after he tried to follow where his girlfriend had disappeared.”
 
@@ -60,12 +60,12 @@ No.
 
 It couldn’t be.
 
-Ice-blue eyes stared back at me, hovering over a malicious grin. “If I include you *and* Byron the trucker, I’ll be ahead by one with thirty-four.” He licked his upper lip and grabbed my neck. 
+Ice-blue eyes stared back at me, hovering over a malicious grin. “If I include you *and* Dirk the trucker, I’ll be ahead by one with thirty-four.” He licked his upper lip and grabbed my neck. 
 
 He seemed to have forgotten that I always carry two shoes.
 
 Hopefully the second blow to his temple slowed him even more than the first, but I don’t know. I dropped the other shoe and was running through the woods again as soon as I hit the ground. 
 
-I have no idea what happened to Byron. 
+I have no idea what happened to Dirk. 
 
-I can’t make outgoing calls or texts, but for some reason, I have enough service to post online. If I disappear, that means Glenn found me a third time. I’ll update if [I’m alive](https://www.reddit.com/r/ByfelsDisciple/).
+I can’t make outgoing calls or texts, but for some reason, I have enough service to post online. If I disappear, that means Bert found me a third time. I’ll update if [I’m alive](https://www.reddit.com/r/ByfelsDisciple/).
