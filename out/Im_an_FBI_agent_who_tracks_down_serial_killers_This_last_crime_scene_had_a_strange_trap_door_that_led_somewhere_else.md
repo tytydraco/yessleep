@@ -76,7 +76,7 @@ A hissing like many snakes exploded through the speaker. Behind the white noise,
   
 “Jesus, it’s stiff as all hell,” he groaned, his large muscles bulging. Small beads of perspiration popped out on his pale forehead as he continued struggling with the rusted wheel.  
   
-After a few turns, the mechanism unlatched with a click. The trap door began to pop open on its own with a whirring of gears. At the same time, a cacophonous wail like a tornado siren started all around us. It sounded like the trees themselves were screaming in low, descending waves. I covered my ears, trying to scream something to Agent Stone, but I couldn’t hear my own voice over the screaming of the siren.  
+After a few turns, the mechanism unlatched with a click. The trap door began to pop open on its own with a whirring of gears. At the same time, a cacophonous wail like a tornado siren started all around us. It sounded like the trees themselves were screaming in low, descending waves. I covered my ears, trying to say something to Agent Stone, but I couldn’t hear my own voice over the shrieking of the siren.  
   
 Then the door finished opening. The siren cut off in mid-note. Agent Stone and I looked down at the trap door, now completely spooked. I continuously checked my back, looking for any movement. I also looked for hidden speakers in the trees, but I couldn’t see any.  
   
@@ -108,7 +108,7 @@ Ahead of us, a creaking sound traveled down the hallway, as faint as a whisper. 
   
 \*\*\*  
   
-A decapitated human head flew out the open doorway ten feet in front of us, smashing against the sickly, yellowing wallpaper with a cracking of bones and an explosion of bones and hair. A moment later, the rest of the body followed, still clad in a police officer uniform. The body soared through the air, hit the wall and then fell through one of the craters in the floor, slipping slowly away over the ledge. It instantly disappeared from view in the abyssal shadows that ate the light like a hungry mouth.  
+A decapitated human head flew out the open doorway ten feet in front of us, smashing against the sickly, yellowing wallpaper with a cracking of bones and an explosion of blood and hair. A moment later, the rest of the body followed, still clad in a police officer uniform. The body soared through the air, hit the wall and then fell through one of the craters in the floor, slipping slowly away over the ledge. It instantly disappeared from view in the abyssal shadows that ate the light like a hungry mouth.  
   
 The wailing of an insane, hurt infant came from in front of us as another one of those things slithered out of the door. Its face ratcheted towards us, its pale eyes the color of dying moonlight staring straight through me. Then it charged.  
   
