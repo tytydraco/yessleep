@@ -88,7 +88,7 @@ Against my better judgment, I decided to walk it. The path was long and winding.
   
 It hit me like a punch in the face almost, my eyes started to water as I inched deeper into the woods, I happened to have an N95 mask from when the pandemic first occurred still in my pack. I broke it out and continued forward. When I finally got to a clearing. I saw what looked to be like buildings. They looked to be covered in a moss-like substance. Said substance was now covering the path I was walking on. I couldn’t believe my eyes, I had made it.   
   
-This town so elusive people speak of it like it was the state's own personal Atlantas, I had finally found.   
+This town so elusive people speak of it like it was the state's own personal Atlantis, I had finally found.   
   
 It was almost like a time capsule, the buildings looked straight out of a holiday greeting card. Old-town architecture that had long since been replaced by modern businesses in comparable areas. I walked forward, old dirt-covered American flags hung from the rafters, murals of old grocery stores and logos still could be seen from the alleyways, each one filled with old wood and brick and mortar. Although I didn’t see any trucks, I did see what looked to be tire marks as some might have visited there. I sat down on the grass near the square of the town snapping photos. It was dusk out, so I had to turn on my flash. I took a few shots and then sat and took a breath.   
   
