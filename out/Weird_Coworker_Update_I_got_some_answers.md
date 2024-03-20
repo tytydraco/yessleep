@@ -214,11 +214,11 @@ Still trying to catch my breath, I eloquently explained what happened, "Animals.
 
 Ramy's hand was on the small of my back, calming me as he studied the chemical burn. "It doesn't look that bad."
 
-Since this wasn't ny first caustic burn, I ready knew that I had to rinse it for twenty minutes. In the meantime, Ramy asked his coworker to stay with me with the excuse that he was going to get the first aid kit. I sensed that he was in the animal facility shortly afterwards. 
+Since this wasn't my first caustic burn, I already knew that I had to rinse it for twenty minutes. In the meantime, Ramy asked his coworker to stay with me with the excuse that he was going to get the first aid kit. I sensed that he was in the animal facility shortly afterwards. 
 
 Once we were alone again and my hand was taken care of, Ramy informed me that he didn't find the hoofed creature. It must've known he'd be coming for it. 
 
-As of right now, I'm safe at home, all gauzed up. It hurts to move, but again, this isn't my first caustic burn. And as far as injuries go, it could be worse. 
+As of right now, I'm safe at home, all gauzed up. It hurts to move, but again, this isn't my first chemical burn. And as far as injuries go, it could be worse. 
 
 I've only just started looking into it, but so far, I think the hoofed creature is another type of jinn. 
 
