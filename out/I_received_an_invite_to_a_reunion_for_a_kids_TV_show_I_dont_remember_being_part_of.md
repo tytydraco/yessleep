@@ -8,11 +8,15 @@ It's weird. I remember our exact conversation and the song playing on the Amazon
 
 Well, I didn't. Harvey was dead before I could open my mouth. I was looking directly at him when there was movement at the corner of my eye.
 
-I thought Jules had come in for more kitty food. It was my stupid fucking fault for mistaking a psychotic ten year old boy for a long haired tabby. Harvey came over to me, coffee in one hand, toast in the other. He didn't see the kid. 
+I thought Jules had come in for more kitty food. 
 
-Harvey didn't see the little boy point a gun at his head, tiny index teasing the trigger. 
+It was my stupid fucking fault for mistaking a psychotic ten year old boy for a long haired tabby.
 
-He chose the wrong time to lean over the table, swiping oatmeal from my lips. Harvey's lips parted in a smirk, as if he was going to say something like, *“You've got a little something there.*. 
+Harvey came over to me, coffee in one hand, toast in the other. He didn't see the kid. 
+
+He didn't see the little boy point a gun at his head, tiny index teasing the trigger. 
+
+Harvey chose the wrong time to lean over the table, swiping oatmeal from my lips. Harvey's lips parted in a smirk, as if he was going to say something like, *“You've got a little something there.*. 
 
 But he didn't. 
 
@@ -44,7 +48,11 @@ Starry Eyes Syndrome was a disease in our town that had twisted our younger gene
 
 It started with an episode of a local TV show. 
 
-Something inside the footage did something to the kids watching, filling their eyes with stars. The effect wasn't immediate. Initially, they were isolated incidents. Kids were suddenly ripping into their stuffed animals. Then they were quietly killing their pets, hanging the collars like trophies. I was home sick from school one day, and my parents were downstairs eating dinner. 
+Something inside the footage changed the kids watching, filling their eyes with stars. 
+
+The effect wasn't immediate. Initially, they were isolated incidents. Kids were suddenly ripping into their stuffed animals.
+
+Then they were quietly killing their pets, hanging the collars like trophies. I was home sick from school one day, and my parents were downstairs eating dinner. 
 
 Eli and Emily were like my own siblings. I had known them since they were babies. So, it's common for them to walk into our house, usually with chicken pot pie. 
 
@@ -82,7 +90,9 @@ The hallway light was off, which was odd. Mom reiterated that she had left it on
 
 I was half conscious and delirious when she said this, so maybe I misheard her. 
 
-When I clicked it on, Eli was standing directly in front of me, a shadow lurking in the dark. Initially, I thought it was a reflection of the light. But looking closer, I was staring, baffled, at tiny twinkling stars in my neighbour’s pupils. They didn't make sense to me. 
+When I clicked it on, Eli was standing directly in front of me, a shadow lurking in the dark. Initially, I thought it was a reflection of the light. But looking closer, I was staring, baffled, at tiny twinkling stars in my neighbour’s pupils. 
+
+They didn't make sense to me. 
 
 As if his pupils were filled with star dust. 
 
@@ -98,7 +108,7 @@ Eli swung back and forth, his hands planted on the walls. He was definitely fill
 
 “Did you get ketchup everywhere? Eli, what have you been eating?”
 
-Eli giggled. Maybe it was the dim light, or my raging fever, but the boy wasn't blinking. I wasn't even sure he was looking at me, his gaze enveloped in oblivion. Something ice cold crept its way down my spine. I grabbed his face gently, forcing him to look at me. 
+He giggled. Maybe it was the dim light, or my raging fever, but the boy wasn't blinking. I wasn't even sure he was looking at me, his gaze enveloped in oblivion. Something ice cold crept its way down my spine. I grabbed his face gently. 
 
 “Eli, look at me,” I said, “Hey. What's going on?”
 
@@ -106,7 +116,9 @@ Eli didn't react, his smile growing wider.
 
 “It's blood!” He pressed a finger to his lips. 
 
-Eli was grinning dazedly at something over my shoulder. I thought Emily was hiding behind me. 
+Eli was grinning dazedly at something over my shoulder. 
+
+I thought Emily was hiding behind me. 
 
 When I twisted around, there was nobody there.
 
@@ -184,13 +196,13 @@ One of my high school classmates was the sheriff's son, and he told us that the 
 
 The stars in their eyes were like a marking, whatever they had seen still alive, still sparkling in their pupils. 
 
-I had questions, because nothing about this added Up. I googled kids shows that had caused violence in children, but I was just directed to the infamous Lavender Town creepypasta. I didn't know the name of the show, so it was like searching for a needle in a haystack. 
+I had questions, because nothing about this added up. I googled kids shows that had caused violence in children, but I was just directed to the infamous Lavender Town creepypasta. I didn't know the name of the show, so it was like searching for a needle in a haystack. 
 
-If a disturbing kids show had aired in 2005, why was it kept quiet, and furthermore, why wasn't it destroyed? 
+If a disturbing local kids show had aired in 2005, why was it kept quiet, and furthermore, why wasn't it destroyed? 
 
 Did the same thing happen back then? 
 
-Why did it only affect the kids years later? 
+Why did it only affect the kids in my town years later? 
 
 This thing had crawled into my neighbour’s head. It was the direct influence of Eli killing my parents, so why didn't I believe it? 
 
@@ -200,21 +212,25 @@ That's what the Mayor said.
 
 He told the victims to choose forgiveness over anger, to remember the *good* times with our loved ones, instead of dwelling on their deaths. 
 
-Yet I had found myself standing in my neighbour’s yard, a carving knife in my hand. Eli and Emily had been taken away for tests, but in my dazed, muddled mind, I could still see my mother’s face being used as a mask. 
+Yet I had found myself standing in my neighbour’s yard, a carving knife in my hand. 
+
+Eli and Emily had been taken away for tests, but in my dazed, muddled mind, I could still see my mother’s face being used as a mask. 
 
 Part of me wanted to hurt them, like they had hurt me. 
 
 They took away my parents and laughed in my face. 
 
-I wanted to scoop their fucking eyes out.l
+I wanted to scoop their fucking eyes out.
 
 The stars in their eyes were the mark of the devil, according to townspeople. 
 
-But I just saw TV static, like the kids’ eyes were still broadcasting what they had seen. 
+But I just saw TV static, like the kids’ eyes were still broadcasting what they saw. 
 
 In the time it took for me to heal from my parents death, I finished my sophomore year of high school and moved in with my aunt. The kids affected were brought back into town, declared *fixed*. 
 
-That was until the next day, when a three year old hacked her own mother’s eyes out. Then a seven year old pushed her father down the stairs and cut off his legs to stick to her stuffed teddy bear. 
+That was until the next day, when a three year old hacked her own mother’s eyes out.
+
+Then a seven year old pushed her father down the stairs and cut off his legs to stick to her stuffed teddy bear. 
 
 The town was in denial that our children's minds had been altered forever and there was no saving them. 
 
@@ -238,15 +254,13 @@ We were technically kids too, and with their logic, we could have been affected,
 
 They were obsessed with keeping the outside world oblivious. 
 
+Nobody outside our town knew about starry eyed Syndrome, and they wanted to keep it that way. 
+
 According to the Mayor, this was our problem. 
-
-100 townspeople died. 
-
-Countess injured. 
 
 If we went to college and had this thing in our eyes without knowing, we were risking the lives of other children.
 
-So, the law was, either get a 9 to 5, or become a kid's presenter. 
+So, the town law was, either get a 9 to 5, or become a kid's presenter. 
 
 Presently, I wondered if the little fuck pointing his gun at my head recognised me from local TV. 
 
@@ -254,7 +268,11 @@ The boy inclined his head. Judging from the smile on his mouth, his index restin
 
 I picked up my spoon, and continued spooning oatmeal in my mouth. It was the only thing that felt normal, that felt real, at that moment. I lost my soul a long time ago, lying in my parents blood. I lost my emotions too, though I think that was related to my job. You might not think a kid's presenter is considered a dangerous job, but in this town, it's practically a death sentence. 
 
-The show was an attempt to fix the kids, a comedy involving a group of animals in suits. It was a test at first to see if anything would help these kids, and surprisingly, it had worked. I was Mrs Bunny, and had been since I was eighteen. I got the job pretty much on the spot because nobody else was stupid enough to pursue a job training mini serial killers to be children again. 
+The show was an attempt to fix the kids, a comedy involving a group of animals in suits. It was a test at first to see if anything would help these kids, and surprisingly, it had worked. 
+
+I was Mrs Bunny, and had been since I was eighteen. 
+
+I got the job pretty much on the spot because nobody else was stupid enough to pursue a job training mini serial killers to be children again. 
 
 I hated my job. I auditioned because part of me wanted to forgive my parents' killers by helping the younger generation find their innocence. Two weeks in, I watched a six year old strangle Mr Lion with a lighting cord.
 
@@ -294,9 +312,13 @@ Their mother’s biggest weakness was *being* a mother. She still wanted to beli
 
 Eli and Emily sliced her up and buried her six feet under. 
 
-The authorities only found her body when a neighbourhood dog was found chewing on a human arm. I thought the twins were going to face real consequences this time, but I saw them several days later, the two of them roaming the streets with baseball bats. 
+The authorities only found her body when a neighbourhood dog was found chewing on a human arm.
 
-The sheriff's son was right. Whatever those kids watched didn't just damage their minds, it rewired their thought process to believe killing was fun. If our Mayor really thought he could save our younger generation with a kids show, he was either stupid or delusional. 
+I thought the twins were going to face real consequences this time, but I saw them several days later, the two of them roaming the streets with baseball bats. 
+
+The sheriff's son was right. Whatever those kids watched didn't just damage their minds, it rewired their thought process to believe killing was fun. 
+
+If our Mayor really thought he could save our younger generation with a kids show, he was either stupid or delusional. 
 
 Or both. 
 
@@ -310,7 +332,9 @@ Harvey had been a proverbial light, one that would pull me out of the dark, lead
 
 And now I was covered in him.
 
-My oatmeal was crunchy, but I couldn't stop eating, stuffing myself and swallowing large bouts of barf when my stomach tried to reject it. It was part of my normal morning routine, and my therapist did say when I was feeling overwhelmed, I should return to my routine.  There was blood splattered on the table and Harvey was dead, but my glass of orange juice was normal. The birds singing outside, and the low hum of the refrigerator, was what I knew.
+My oatmeal was crunchy, but I couldn't stop eating, stuffing myself and swallowing large bouts of barf when my stomach tried to reject it. 
+
+It was part of my normal morning routine, and my therapist did say when I was feeling overwhelmed, I should return to my routine.  There was blood splattered on the table and Harvey was dead, but my glass of orange juice was normal. The birds singing outside, and the low hum of the refrigerator, was what I knew.
 
 I grabbed my glass and took a long drink, revelling in the refreshing flush of orange quenching my scratchy throat. 
 
@@ -352,7 +376,9 @@ Footsteps. The boy was hovering over me while I screamed for mercy, burying my h
 
 “Ruby?”
 
-Blinking rapidly, I found myself no longer in my kitchen. Time had passed, and I wasn't even aware of it. I didn't remember calling the cops about Harvey or even getting in my car, but according to my phone, the cops were asking for a statement, and Harvey's Mom was sending me capitalised death threats. Like it was my fucking fault. I was at work, standing outside the girl’s bathroom, my hands still pressed to my ears, a screech clawing in my throat. 
+Blinking rapidly, I found myself no longer in my kitchen. Time had passed, and I wasn't even aware of it. 
+
+I didn't remember calling the cops about Harvey or even getting in my car, but according to my phone, the cops were asking for a statement, and Harvey's Mom was sending me capitalised death threats. Like it was my fucking fault. I was at work, standing outside the girls bathroom, my hands still pressed to my ears, a screech clawing in my throat. 
 
 Mr Snake, also Luke, was standing in front of me, his head inclined like a…
 
@@ -370,7 +396,13 @@ Mr Snake was a favorite among the children, his soft-spoken voice a highlight of
 
 He was the least likely of us to be viciously murdered. 
 
-Freshly out of the makeup artist's grasp, already in his Mr Snake costume, my colleague was frowning at me. The costumes got way too hot, so I wasn't surprised sweat was pouring down his face, glueing thick strands of dark hair to his forehead. His freckles were his best attribute. I couldn't tell if he was smiling, or forcing himself to smile. 
+Freshly out of the makeup artist's grasp, already in his Mr Snake costume, my colleague was frowning at me.
+
+The costumes got way too hot, so I wasn't surprised sweat was pouring down his face, glueing thick strands of dark hair to his forehead.
+
+His freckles were his best attribute. 
+
+I couldn't tell if he was smiling, or forcing himself to smile. 
 
 Like all of us, Luke was a liar. 
 
@@ -396,7 +428,7 @@ Something ice cold slithered down my spine.
 
 Nina was the newest addition to the group of kids on our show. 
 
-Nima was infamous as the nine year old who had a rapidly climbing attack streak over the years. 
+She was infamous as the nine year old who had a rapidly climbing attack streak over the years. 
 
 Luke was terrified of her.
 
@@ -410,11 +442,13 @@ The set itself was bright and colorful in a desperate attempt to remind kids *no
 
 But blood had been spilled far too many times for me to think of it as innocent. 
 
-The bright yellow floor had been replaced six times. Luke slumped into his chair, head in his hands. They were already playing the intro song, crew members ushering key performers onstage. 
+The bright yellow floor had been replaced six times. Luke slumped into his chair, head in his hands.
 
-Luke was already in panic mode. 
+He was already in panic mode. 
 
 “We’re so fucked, we’re so fucked, we’re so fucked…”
+
+They were already playing the intro song, crew members ushering key performers onstage. 
 
 I hated the intro. I could never get the choreography right, and I still had PTSD from finally perfecting it, tipping my head back to find our newest cameraman’s head taped to the ceiling. 
 
@@ -436,7 +470,7 @@ Which could only be bad.
 
 “I'm not looking for her,” Luke mumbled into his knees. “That psycho brat will gut me.”
 
-Leaning against the wall, my mind was already spinning. “But you're their favourite,” I said, a sour edge to my tone. “Why would they kill Mr Snake?”
+Leaning against the wall, my mind was already spinning. “But you're their favorite,” I said, a sour edge to my tone. “Why would they kill Mr Snake?”
 
 Luke lifted his head, his eyes puffy. I didn't blame him for crying. The last performer who went looking for a lost kid ended up as set decor we didn't find until we could smell him. Luke was terrified, his expression twisting, pleading with me. His gaze found Mr Panda standing with his arms folded. 
 
@@ -466,7 +500,9 @@ Freddie smiled a lot, almost like he was trying to embody Mr Panda. All of his s
 
 His mood could go from zero to one hundred in a matter of seconds. 
 
-When we went out as a group, he would be fine, and then he would be describing his parents' deaths in vivid detail, like he could never escape it, reliving it over and over again, eyes manic, almost unseeing. The last time we went bowling, Freddie talked about Starry Eyed Syndrome all night, so much so that Luke told him to shut up. 
+When we went out as a group, he would be fine, and then he would be describing his parents' deaths in vivid detail, like he could never escape it, reliving it over and over again, eyes manic, almost unseeing. 
+
+The last time we went bowling, Freddie talked about Starry Eyed Syndrome all night, so much so that Luke told him to shut up. 
 
 You would think there would be a protocol for this kind of thing, since there were murderous children everywhere. 
 
@@ -486,7 +522,7 @@ I shoved him before he could.
 
 “That Nima girl,” Freddie’s voice was trance-like, a smile pricking on his lips. 
 
-“Are you… looking for her?”
+“Are you… *looking* for her?”
 
 Luke shot me a look. Both of us knew the consequences if Freddie successfully avenged his parents. 
 
@@ -496,15 +532,21 @@ Over the years, I had developed the ability to read my colleague's mind from the
 
 In his case, Luke looked nauseous, which was definitely telling me to keep my mouth shut. 
 
-“No, it's another kid,” he said coolly, maintaining a smile. “But Ruby’s going to look for her.” 
+“Nope! Relax, Guts, it's another kid,” he said coolly, maintaining a smile. “But Ruby’s going to look for her.” 
 
-My colleague shot me a grin with way too many teeth. Anything to save himself. 
+My colleague shot me a grin with way too many teeth.
+
+*Anything to save himself.*
 
 “Right, Ruby?”
 
 I was trapped under his smile,  well aware of the others staring at me. 
 
-Freddie was considered a danger to the kids, and Luke was being a stubborn bastard. Elena was too scared, and I could see Robbie intentionally hiding behind a tree prop, like he could read my mind. The others were being ushered to the stage, and for a moment, I was paralysed. I didn't want to go either. In fact, I wanted to cry, scream, and protest that my life was just as sacred as theirs. I hadn't felt true panic for a long time, even at the mercy of the boy who killed my boyfriend. 
+Freddie was considered a danger to the kids, and Luke was being a stubborn bastard. Elena was too scared, and I could see Robbie intentionally hiding behind a tree prop, like he could read my mind. 
+
+The others were being ushered to the stage, and for a moment, I was paralysed. I didn't want to go either.
+
+I hadn't felt true panic for a long time, even at the mercy of the boy who killed my boyfriend. 
 
 The feeling of my chest tightening, my breath thinning, was almost relieving. 
 
@@ -532,7 +574,7 @@ Unfortunately, it was survival of the selfish.
 
 I didn't have a fucking choice. 
 
-“Sure, I’d *love* to go,” I spat, glancing at the stage. The intro song was playing, the kids singing along to it. They looked so innocent sitting, giggling at the dancing animals. I could almost pretend they were normal. 
+“Sure,” I deadpanned, “I’d *love* to go.”
 
 I turned my attention back to Luke. “Mrs Bunny is at the back, anyway, so they won't notice I'm gone. I'll be back in five hours. Probably missing my head.”
 
@@ -548,7 +590,9 @@ Luke knew I was shaking.
 
 He knew I was struggling to breathe. 
 
-But he also wanted to stay alive. I couldn't blame him for that. With a two fingered salute and a guilty smile I couldn't see, he grabbed Freddie, dragging Panda Boy away before I could lose all my composure and volunteer the selfish *snake* as tribute. 
+But he also wanted to stay alive. I couldn't blame him for that. 
+
+With a two fingered salute and a guilty smile I couldn't see, he grabbed Freddie, dragging Panda Boy away before I could lose all my composure and volunteer the selfish *snake* as tribute. 
 
 The studio was a labyrinth I was yet to explore. 
 
@@ -568,17 +612,25 @@ I took another step, biting down on my tongue.
 
 Nima didn't turn around, her starry eyed gaze glued to the screen. “Watching TV.”
 
-I turned my attention to the screen. It was an old broadcast, way before our show started. Looking closer, though, the broadcast was on air. The TV show was vibrant red, streaks of colour bleeding through. There were four little kids waving at the camera, their smiles wide. There was something looming over them. I didn't know what it was until the camera panned upwards, revealing what looked like a body hanging upside down. It was a man, his eyes wide, terrified. There were two girls and two boys. 
+I turned my attention to the screen. It was an old broadcast, way before our show started. Looking closer, though, the broadcast was on air. The TV show was vibrant red, streaks of colour bleeding through. There were four little kids waving at the camera, their smiles wide. There was something looming over them. 
+
+I didn't know what it was until the camera panned upwards, revealing a body hanging upside down. It was a man, his eyes wide, terrified.
+
+There were two girls and two boys. 
 
 One girl, a ponytailed brunette, jumped forward with a giggle. “Who wants to learn about the human body?”
 
-“Me!” a brunette boy with freckles followed suit. I took a shaky step closer, my stomach twisting. I recognised those same stars, sparkling static that was so much brighter than any I had seen. In the boy’s hand was a kitchen knife. He held it up with a giggle. “Safety first!” his voice was mocking, the other three mimicking him. I knew what was next. I had seen it, almost like a copycat. Eli stringing my mother up and gutting her. 
+“Me!” a brunette boy with freckles followed suit. I took a shaky step closer, my stomach twisting.
+
+I recognised those same stars, sparkling static that was so much brighter than any I had seen. In the boy’s hand was a kitchen knife. 
+
+He held it up with a giggle. “Safety first!” his voice was mocking, the other three mimicking him. I knew what was next. I had seen it, almost like a copycat. Eli stringing my mother up and gutting her. 
 
 I didn't move when the boy plunged the knife through the man's stomach, dragging the blade straight down. 
 
 “Yay!” The second boy jumped up and down. “Now, to name all of the organs!”
 
-He reached into the gaping cavernous, flaps of flesh, pulling out stringy intestines. 
+He reached into the gaping cavernous flaps of flesh, pulling out stringy intestines. 
 
 “What are these called?”
 
@@ -616,7 +668,9 @@ I found myself entranced, frozen. The picture fixed itself, the freckled boy inc
 
 “I do!” Nima said, waving her knife excitedly. 
 
-It wasn't the man's brutal death that twisted the minds of a whole generation of children which held me in a trance, bugs filling my mouth, skittering across my skin. Panic. I was suffocating in it, drowning in a feral fear I thought I had lost. I didn't watch the man brutally skinned and opened up for education. 
+It wasn't the man's brutal death that twisted the minds of a whole generation of children which held me in a trance, bugs filling my mouth, skittering across my skin. Panic. 
+
+I was suffocating in it, drowning in a feral fear I thought I had lost. I didn't watch the man brutally skinned and opened up for education. 
 
 I didn't watch the very first kids with starry eyes paint themselves in his blood. 
 
@@ -632,7 +686,7 @@ I could move again, released from whatever held me in an iron grip.
 
 When I hit the ground, I was aware my hands were wet, slick with blood. 
 
-But I couldn't move. The room was too small, the walls closing in on me. 
+But I couldn't move. The room was too small, the walls closing in. 
 
 The little girl on screen was me. 
 
@@ -642,27 +696,33 @@ Luke’s voice came from behind me, his breath on my neck.
 
 His gaze was stuck to the screen, and, just like the little boy on the show, Luke’s eyes were filled with stars.
 
-He inclined his head, mimicking his younger self. 
+He inclined his head, mimicking his younger self, lips splitting into a grin. 
 
 “Weren't we *cute*?”
 
-I opened my mouth to respond, when Nima let out a cry. Turning my attention to the screen, it flickered to a blue screen, and my colleague’s body jolted 
+His eyes found the screen, like he worshipped those stars. 
 
-Luke blinked, the stars going out. 
+I opened my mouth to respond, when Nima let out a cry.
 
-“Ruby?” he shook his head, eyes widening. “What are you doing in here?”
+Luke’s body jolted, his eyes rolling back, before he seemed to get a hold of himself. 
+
+My colleague blinked, the stars going out. 
+
+“Ruby?” Luke shook his head, confusion clouding his expression. I could have sworn there was static in his voice, like those stars were creeping down his throat. 
+
+“What are you…” He shook his head, “doing in here?”
 
 Luke’s dazed gaze found Nima, and then the dead cameraman hanging above us. 
 
 He staggered back, planting a hand over his mouth. 
 
-“Oh, fuck, what did she do?!” he whisper-shrieked. 
+“Oh, fuck, what did she do?!” he whisper-shrieked. “Is that AJ?”
 
 Luke approached Nima slowly, talking to her in hushed murmurs, but the girl was still smiling widely at the blue screen. 
 
 Which was still on air, I thought dizzily. 
 
-If that thing was still on air, then kids were still watching it.
+If that thing was still on air, then kids were still locally watching it.
 
 “Ruby!”
 
@@ -670,35 +730,41 @@ Luke was hissing my name, but I was taking slow steps toward a pile of DVD’s.
 
 The top one caught my eye. 
 
-ELENA (T. C. S AUD).
+ELENA (T. C. S AUDITION).
 
-LUKE (T. C. S AUD). 
+LUKE (T. C. S AUDITION). 
 
 I flipped through them, my hands trembling, until I landed on my name. 
 
-RUBY (TCS AUD). 
+RUBY (T. C. S AUDITION). 
 
 “Bad dog!”
 
 Nima’s sudden shriek rattled my skull, and I impulsively slammed my hands over my ears. 
 
-When I twisted around, stuffing the DVD down my shirt, the little girl was pointing at Luke. There was something in her hand. The whistle, I thought. The exact same whistle the kid had earlier. 
+When I twisted around, stuffing the DVD down my shirt, the little girl was pointing at Luke.
 
-Luke held his hands up, his cheeks paling. “Ruby, what the fuck did she do?”
+There was something in her hand. 
+
+The whistle, I thought. The exact same whistle the kid had earlier. 
+
+Luke held his hands up, his cheeks paling. He shot me glare. “What the fuck did she do?”
 
 I couldn't move my lips. 
 
-“Nima.” he said softly. “We just want you to come back with us, all right?”
+“Nima.” Luke spoke softly, though his voice was shaking. “We just want you to come back with us, all right?”
 
 The little girl shook her head. “Bad dog!” 
 
 I was barely aware of Nima sticking the whistle in her mouth. 
 
-Luke dropped to the floor, a raw screech escaping his mouth. Whatever this thing was, his reaction was worse,  turning him into an animal begging for death, his body jerking violently, hands slammed over his ears. When the girl blew the whistle again, he stopped moving, whimpering into his knees. 
+Luke dropped to the floor, a raw screech escaping his mouth. 
+
+Whatever this thing was, his reaction was worse,  turning him into an animal begging for death, his body jerking violently, hands slammed over his ears. When the girl blew the whistle again, he stopped moving, whimpering into his knees. 
 
 Nima stepped on his hand, and he let out a shriek. 
 
-“Bad dog!” she squeaked. 
+“Bad dog!” 
 
 Luke stayed still, curled into himself. 
 
@@ -706,7 +772,9 @@ The third time she blew the whistle, I did hear it.
 
 I was suddenly bleeding from my nose, toppling onto my stomach. 
 
-The sound didn't hit me until the pain did, electroshocks running through my skull. I could hear it, a static screech getting closer, a sentient parasite creeping into the meat of my brain. Luke’s cries sounded feral, almost animalistic, like he was close to jumping up and wrapping his hands around her neck. I felt it too. It was like a primal urge to attack my attacker. 
+The sound didn't hit me until the pain did, electroshocks running through my skull. I could hear it, a static screech getting closer, a sentient parasite creeping into the meat of my brain. Luke’s cries sounded feral, almost animalistic, like he was close to jumping up and wrapping his hands around her neck.
+
+I felt it too. It was like a primal urge to attack my attacker. 
 
 Nima loomed over me, a shadow with sparkling eyes. 
 
@@ -714,7 +782,7 @@ She stamped on my head, my nose bursting on impact.
 
 Her voice rang in my head, drowning Luke’s screams into a dull murmur. 
 
-“Down.”
+*“Play dead.”*
 
 Just like that morning, my body entered autopilot. 
 
@@ -736,7 +804,11 @@ The invite was in front of me, crumpled and stained with old red.
 
 The DVD with my name on is right here in my hand.
 
-There's a single piece of footage. Me at 6 or 7 years old chasing after a white rabbit which lured me from my parent's yard. The movie stopped when a stranger's arms dragged me into a van. 
+There's a single piece of footage. 
+
+Me at 6 or 7 years old chasing after a white rabbit which lured me from my parent's yard. 
+
+The movie stopped when a stranger's arms dragged me into a van. 
 
 Fuck. 
 
