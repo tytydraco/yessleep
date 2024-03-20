@@ -108,7 +108,7 @@ Two small, crimson suns revolved slowly around each other in the slate-gray sky.
   
 “What the fuck?” I whispered, looking at the door behind me. It stood in the middle of the black soil without any wall around it. It had no thickness. I walked around it, examining it, but it looked like a random door had just been stuck into the soil. I felt a pulsing energy from it, though, a power that felt almost like the white light of the alpha-UBIK drug trip.  
   
-“I think we have a problem,” Aria whispered, watching the elevators closely. That same, spidery black face was peeking around the edge at the bottom of one, its rictus grin still plastered across its obsidian flesh. As it met my gaze, it skittered out on its many legs at a tremendous speed, gnashing its curving, twisting teeth together with a rhythmic cracking like snapping bones.  
+“I think we have a problem,” Aria whispered, watching the escalators closely. That same, spidery black face was peeking around the edge at the bottom of one, its rictus grin still plastered across its obsidian flesh. As it met my gaze, it skittered out on its many legs at a tremendous speed, gnashing its curving, twisting teeth together with a rhythmic cracking like snapping bones.  
   
 At that moment, something in my chest seemed to give. The white waves of translucent light I had seen when the agents had injected me with alpha-UBIK started again. Before I knew what was happening, I felt myself rising off the ground as a burning pain like fire spread throughout my arms. I raised my hands in the air, feeling sick and weak as the waves of translucent light pounded against my eyes like a drumbeat. A high-pitched ringing started in my ears.  
   
