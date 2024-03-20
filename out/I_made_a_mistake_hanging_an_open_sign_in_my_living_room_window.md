@@ -2,7 +2,7 @@ I'm what you might call an eccentric.
 
 I collect odds and ends from things of supernatural and paranormal nature. Haunted movie props, abandoned animatronics, hell, I even sleep next to the supposed cursed ashes of a 15th century witch! (I keep her urn on my nightstand.)
 
-So this mundane, everyday, run of the mill sign should not have caused me as much trouble as it has been.
+So this mundane, everyday, run of the mill sign should not have caused me as much trouble as it did.
 
 Last week, I found out a small café by my house that I frequent, was closing due to lack of business. I asked if I could keep their "open" sign as a sort of memorabilia and the owner agreed. 
 
@@ -14,7 +14,7 @@ He looked to be in his early twenties, but dressed like he had just raided his g
 
 "Hi, can I help you?" I asked
 
-"What's for sale?" He spoke in a quiet, calm voice with slight mischievous looking smile on his face.
+"What's for sale?" He spoke in a quiet, calm voice with  a slight mischievous looking smile on his face.
 
 I could feel a smirk creeping up on my own face at his question.
 
