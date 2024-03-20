@@ -203,3 +203,10 @@ Finally, we managed to infiltrate the throng of people, and what I saw before me
 "In one of the excavations," the Doctor said solemnly, "But there's a problem... It's a fresh corpse."
 
 The revelation cut through the air like a sharp blade, leaving us all in silence. A "fresh corpse"? Murmurs began to spread through the crowd, worried and scared looks reflected on the faces of my colleagues. As Ibin performed his prayers silently, I knew that something sinister was happening in Al-Nagah, the sun now punishing the flesh beneath it, and as the dry wind blew the tiny grains stuck on the corpse, I think we finally smelled the sands with the scent of blood coming for us.
+
+.
+
+.
+
+.  
+[\[Part 2\]](https://www.reddit.com/r/nosleep/comments/1bjl8yq/sand_smelling_of_ashes_part_2/)
