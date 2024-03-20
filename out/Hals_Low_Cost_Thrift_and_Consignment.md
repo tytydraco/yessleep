@@ -292,3 +292,5 @@ I nodded, and followed as he led to another door behind the cash register.  He s
 I looked at him.  I thought about the banshee, and the monkey’s paw, and the werewolf, and the demon.  Then I thought about the long series of dead-end, boring jobs I’d had up until this point.  
 
 “Do you have a dental plan?”
+
+[Part 2](https://www.reddit.com/r/nosleep/s/tsQigHyRZr)

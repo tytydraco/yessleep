@@ -1,4 +1,4 @@
-https://www.reddit.com/r/nosleep/s/tsQigHyRZr
+[Part 1](https://www.reddit.com/r/nosleep/s/tsQigHyRZr)
 
 My third week working at Hal’s found me shoveling harpy shit. The filthy birds used their horrifically scarred, twisted, and just generally unattractive human heads to hurl insults at me as the sweat dripped down my face.   Cleaning this particular cage was always rough, as the dirty hybrids took a great deal of joy in trying to add to the mess faster than I could clean it.  
 
