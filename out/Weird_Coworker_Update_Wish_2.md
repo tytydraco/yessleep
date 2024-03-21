@@ -114,7 +114,7 @@ Roughly five minutes after I heard the shower start, something crashed to the gr
 
 One of the things that I found while researching this creature is that it isn't taken all that seriously, at least not online. Considering that the chupacabra has been memed on so much, I understand if you can't find the concept of one being outside your home frightening. Just know that the 'funny goat sucker' monster becomes significantly less funny when it's hunched over in your yard, its forked tongue tasting the air as it actively seeks the blood of your precious little pygmy goat.  
 
-It stalked closer to the side of my house, its tongue guiding it along Connie's earlier path through the sliding glass door. It raised its sharp claws towards the glass. As soon as its right paw touched the door, it abruptly yelped and flinched. It bared its teeth at the door and growled, nursing its right paw as it scurried away. I could hear it continuing to yowl in the woods, the sound an eerily blend between the howls of a coyote and a baby crying.  
+It stalked closer to the side of my house, its tongue guiding it along Connie's earlier path through the sliding glass door. It raised its sharp claws towards the glass. As soon as its right paw touched the door, it abruptly yelped and flinched. It bared its teeth at the door and growled, nursing its right paw as it scurried away. I could hear it continuing to yowl in the woods, the sound an eerie blend between the howls of a coyote and a baby crying.  
 
 I *had* wished for my home to be untouchable. Ramy clearly had interpreted that as literally as possible. 
 
@@ -172,7 +172,7 @@ Reflexively, I glanced up, seeing nothing. Something told me to look out of the 
 
 Her fingers flexed individually as the hand slithered towards me. Slowly, it raised itself up, reminding me of a king cobra as it rose higher off of the ground. 
 
-In the back of my head, I knew that the wish would protect me, but my panicked brain wasn't convinced. I watched, breath quickening as the hand rose ever higher. The fingers spread out wide, which was all the warning I had before it grabbed for me. I let put some sort of whimper and reflexively covered my head with my arms. Rubbery fingers grazed my arm, followed by a hot sizzle. The hand quivered violently, the arm it was attached to thrashing as it retreated back through the door, slamming it shut. 
+In the back of my head, I knew that the wish would protect me, but my panicked brain wasn't convinced. I watched, breath quickening as the hand rose ever higher. The fingers spread out wide, which was all the warning I had before it grabbed for me. I let out some sort of whimper and reflexively covered my head with my arms. Rubbery fingers grazed my arm, followed by a hot sizzle. The hand quivered violently, the arm it was attached to thrashing as it retreated back through the door, slamming it shut. 
 
 Trembling, I slowly put my arms down as I realized that the wish had worked. I was safe. Carefully, shakily, I lowered myself back to the ground, trying to get my heart rate back to a normal tempo. Once I'd calmed down a bit, I went back into the bar. 
 
