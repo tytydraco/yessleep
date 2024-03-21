@@ -1,0 +1,17 @@
+For context, I (28F) am from Malaysia, which is a country in Southeast Asia. I was around 15 or 16 and I attended a boarding school that was practically in the middle of nowhere: in the middle of the countryside surrounded by a dense jungle area. During this time, it was around 1.30am and I was watching movies on my laptop, which was typical of people my age during this time.
+
+Suddenly, I saw my roommate sitting on the edge of the bed slightly tilting her head so that her long black hair fell covering her face (my roommate did actually have very long straight hair during this time). I was obviously very weirded out and told her “stop doing that, it’s creepy” or something along those lines.
+
+No matter how much I told her, she wouldn’t stop and it got worse to a point where she was even calling my name in a very creepy way: think of stereotypical horror movie dolls that speak in a high-pitched sing-song kind of voice. I even grabbed her head and shook her by the head to basically stop her from being in “character” or stop her doing whatever prank she was doing. I remember this cause it clearly felt like I was touching a head full of hair.
+
+At some point I couldn’t handle it anymore and I threatened to turn on her desk light (her study desk was basically in between hers and my bed). Suddenly, she shouted “NO” and slapped my hand away from the light switch as if it turning on the light was the worst thing in the world. And then she was gone from sitting on the edge of the bed.
+
+After that, I stood up and looked over my roommate’s bed to see what she was doing, and you can imagine my horror when I saw her tightly wrapped up in her blanket like a burrito, or basically how you would sleep in a hotel bed. Because there’s no way she would’ve been able to quickly sit on the edge of the bed and quickly wrap herself up in her blanket again.
+
+So whose head did I touch? Who called my name? Who touched my arm? Needless to say I was creeped out and just decided to go to bed immediately.
+
+The next day, I confronted my roommate about the “prank” she played on me and she swore that she didn’t do anything like that. Both of us were immediately creeped out and scared and one of us played a video of someone reciting Ayat al-Kursi, which is a verse from the Quran that is supposed to aid in deterring evil.
+
+I’ve been told by other Malaysians that I most likely experienced an encounter with a “Hantu Raya”, which roughly translates to “Great Spirit” in the Malay language. In Javanese culture, Hantu Raya is also known as the Genderuwo. Hantu Raya is also heavily associated with black magic or shamanism in Malay culture, and they’re known to take forms of humans or animals, but usually they take the form of their masters: witch doctors/shamans or “bomoh” as they’re known in Malay.
+
+I’m not sure why the Hantu Raya chose to disturb me, but the area around my school is high in supernatural activity, and a lot of people also had various encounters with other kinds of spirits during the time I was studying there. Furthermore, the jungle is known to be a hangout spot for spirits and entities, and that jungle in particular has a lake and according to superstitious folklore, bodies of water are said to be exceptionally high in supernatural activity because rivers or lakes are usually where people dispose of items associated with black magic in Malay culture.

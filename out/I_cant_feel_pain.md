@@ -268,7 +268,7 @@ I splashed my face and took a large drink from the running water, my mouth softe
 
 No cuts or bruises. No indication that anything was wrong.
 
-I forced a smile, bearing my teeth. My implants were still intact.
+I forced a smile, baring my teeth. My implants were still intact.
 
 Grabbing my razor from the edge of the sink, I gently swiped it horizontally over the back of my hand. A thin little line appeared, and several drops of blood oozed out.
 
