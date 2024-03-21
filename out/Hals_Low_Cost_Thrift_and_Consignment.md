@@ -293,4 +293,4 @@ I looked at him.  I thought about the banshee, and the monkey’s paw, and the w
 
 “Do you have a dental plan?”
 
-[Part 2](https://www.reddit.com/r/nosleep/s/tsQigHyRZr)
+[Part 2, with a repaired link](https://www.reddit.com/r/nosleep/s/9TJEcY2oRa)
