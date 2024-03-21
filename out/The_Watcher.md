@@ -1,23 +1,76 @@
-There once was a small town in the middle of nowhere, where the locals whispered about a dark secret hidden in the woods. It was said that a mysterious figure, known only as "The Watcher," roamed the forest at night, keeping a watchful eye on the unsuspecting inhabitants of the town.
+The sun is setting now and it still watches me from the edge of the tree line. I pretend not to notice as I go about my routine. I do last night's dishes, I take a drink of cheap booze, I ease myself into a comfy chair and wait. 
 
-Despite the rumors, no one had ever seen The Watcher, and many believed it to be nothing more than a local legend. That was until the day a group of teenagers decided to venture into the woods to explore and see if they could catch a glimpse of the infamous figure.
+As I hobble through the glorified cabin, it does not move. It stands by the wych elm tree, silent in the snow. It should be frozen solid, between the whipping winds and the highs floating around 0 degrees, but it only stands and watches. 
 
-As they made their way deeper into the forest, the trees grew thicker, and the air grew colder. The group of teenagers began to feel uneasy as they stumbled upon an abandoned cabin deep in the woods. It was clear that no one had lived in the cabin for years, and the place was in a state of disrepair.
+Dale came by yesterday. He was a big man with a bushy dark beard tinged at the end with bits of red. He had hands the size of bear claws and shared a nose color with Rudolph, a symbol of his favorite last time. 
 
-As the group explored the cabin, they noticed strange markings etched into the walls and floor. The symbols were unfamiliar to them, but they gave off an eerie and ominous vibe that sent shivers down their spines.
+The sun was already hanging low in the west when he rolled up in his rusted Ford pickup truck. He brought me some cans of soup and fresh bread. He must have felt bad that I broke my leg carrying his drunk ass up the stairs a few weeks back. 
 
-It was then that they heard a noise coming from outside. It was a faint whisper, almost like someone was trying to communicate with them. The teenagers cautiously stepped outside to investigate, but the woods were eerily silent.
+“Storms coming.” He had said as he stamped his boots out at the door. “Thought I’d stop by with some essentials.” He slid a bottle of cheap whiskey from a brown paper bag with a wink.
 
-As they made their way back to town, strange things began to happen. The group began to experience bizarre nightmares, all featuring The Watcher. They would wake up in a cold sweat, feeling like something was watching them.
+ I’ve been stuck in my uncle’s cabin since my fall about two weeks ago. I was too broke to afford a plane ticket home and too proud to let cousin Dale put me up while I healed. The cabin has heat and water and not much else. No landline, no TV, and it was way out in the middle of the woods. But what else did I really need while I healed?  It made for a boring recovery, but Dale’s hag of a wife didn’t make it a hard choice.
 
-Days turned into weeks, and the group of teenagers grew increasingly paranoid. They began to see The Watcher everywhere, lurking in the shadows, watching their every move. The whispers they had heard in the woods were now a constant presence in their minds, haunting them day and night.
+I pulled out two rocks glasses and Dale plopped down in a chair, leaving me to limp over and seat myself. 
 
-It was then that they realized the true horror of what they had uncovered in the woods. The symbols etched in the cabin were a warning, a message left behind by someone who had encountered The Watcher before. It was a warning that they had ignored, and now they were paying the price.
+After a few burning glasses of the bottom shelf bourbon, a frenzy of texts summoned Dale home. “Best not keep the she-wolf waiting.” I said with a laugh. I looked out the window. It was dark now, a full red moon the only source of light outside. 
 
-The group of teenagers soon realized that they were not alone. The Watcher was now watching them, and there was no escape. They were trapped in their own nightmare, and there was no one to help them.
+“No. Best not.” Dale fired back his glass, poured out another drink that was a finger short of a fist, and slammed that back too. He must have sensed I was looking at him like he was nuts.  “I’m gonna need that for this fight. She’s always going on about ‘weaponized incompetence this’ and ‘mental load that.’ Just because I have to listen to it doesn’t mean I need to understand it, eh?”
 
-It's been years since that fateful day, and the town has never been the same. The locals whisper about The Watcher, warning their children never to venture too deep into the woods. The cabin still stands, a dark reminder of the horrors that lurk in the shadows.
+“Good luck to you.” I laughed, raising my glass in a mock salute. 
 
-Some say that The Watcher is still out there, waiting for his next victims. Others say that he's already claimed them, and that they're now trapped in their own nightmare, just like the group of teenagers all those years ago.
+“Yeah yeah yeah.” Dale sneered as he slid the wooden chair back, grunting with the effort. “I’ll come back after the storm passes, whenever that is. Need anything special?”
 
-No one knows for sure what happened to the group, but some say that their souls are now trapped in the woods, forever tormented by The Watcher. And if you listen closely, you can still hear their screams echoing through the trees at night.
+“Can you invent a more comfortable pair of crutches while you’re in the doghouse? My pits are killing me.”
+
+“You’re the egghead, I’m the looks, obviously. Take care, dweeb.” He gave me a playful punch in the arm, pulled on his boots, and went out the way he came in. 
+
+I had just put the glasses in the sink and turned on the water when I heard Dale yelp. Moron must have gone to take a leak and fallen in again. I thought as I hoped towards the door. I turned the knob and stared out into the blackness. 
+
+“Dale? You fall cock first in the snow again? I can’t exactly pull you out this time!” I shouted with a laugh. Silence was my answer. 
+
+“Dale!”
+
+Still no answer. 
+
+“If you don’t answer me I’m gonna tell Suzie how much of that rotgut you downed before you drove home to her!” I glanced over to Dale’s truck. There was something off about it, but from my doorway I couldn’t quite see. I grabbed a flashlight from a nearby drawer and shined the light towards the driver side door. 
+
+Deep, wide scratches were carved down the length of the vehicle. It was like someone had taken a chalkboard liner full of knives to the side and dug in with all they were worth. Still no sign of Dale. 
+
+“Oh fuck.” I whispered. 
+
+“Dale! Where are you, man?” I scanned the flashlight around my icy driveway with one shaking hand, the other just barely holding me up on a crutch. There was no sign of him. I started to panic, my rapid breath coming out of me like the steam blasts of a locomotive. 
+
+“Dweeb.” Dale's voice came, almost whisper-quiet. 
+
+I almost pissed my pants. I was so relieved. I let out a nervous laugh. “Are you so drunk you got lost on the way to your own car?” I moved the flashlight over towards him. He was behind the truck, near the passenger side door. I didn’t want to blind him, so I just put the light on the scratches along the driver's side. 
+
+“Suzie key your car or something? When the hell did that happen I thought a bear or-“
+
+“Best not to keep the she-wolf waiting.” Came an answer in a twisted, croaking parody of my voice. 
+
+That wasn’t Dale. I looked towards where the figure was standing, and slowly brought the flashlight up. 
+
+It was gone before I could flick my wrist upwards. I heard footfalls crunching through the snow towards the woods. Whatever it was, it was fast. 
+
+“Dale!” I screamed again. Nothing but the wind answered. I looked up towards the woods. A pair of great big yellow eyes returned my gaze without blinking. 
+
+I try to tell myself now that if only it hadn’t been for my busted leg, I would have gone out looking for my cousin. But I know that isn’t true. I locked all the doors, turned on all the lights, and slumped down in the kitchen with my back to the fridge and a knife in my hand. 
+
+I don’t remember falling asleep or even feeling all that tired, but the booze must have snuck up on me. I woke up in a sweat, knife still tight in my fist. I scrambled to the window and looked outside. 
+
+No creature, no Dale, just blood. Spread in a large pool from behind the truck, the red smear was pulled straight back into the darkness of the barren tree branches a few yards away.
+
+Even with my broken leg, I scrambled down the steps to the truck, the clouded daylight giving me some mild courage. Dale’s truck was trashed, tires flattened, windows smashed, even the seats shredded. 
+
+I limped to my Buick. It was no better, the engine torn to bits under the hood and the tires shredded. 
+
+I rushed back to the cabin. As I reached for the door knob, I saw thick grooves gouged out up and down the wood. I looked back to the woods and there it was, hiding behind the wych elm, one clawed hand resting on the bark as it watched me with those horrible yellow eyes. 
+
+I slammed the door behind me and pressed all my weight into it. In between panting breaths, I managed to hear a faint tap tap tap. Kitchen knife still firm in my hand, I hopped over to the sound. 
+
+The back door had been forced open, almost completely off its hinges. It swung limply in the breeze, knocking gently into the wall with each gust of wind. 
+
+It can take me whenever it wants. 
+
+I try not to think about it as I go about my business. I just hope whatever is watching me from the wych elm makes it quick. 
+
