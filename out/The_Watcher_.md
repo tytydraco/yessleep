@@ -8,7 +8,7 @@ The sun was already hanging low in the west when he rolled up in his rusted Ford
 
 “Storms coming.” He had said as he stamped his boots out at the door. “Thought I’d stop by with some essentials.” He slid a bottle of cheap whiskey from a brown paper bag with a wink.
 
- I’ve been stuck in my uncle’s cabin since my fall about two weeks ago. I was too broke to afford a plane ticket home and too proud to let cousin Dale put me up while I healed. The cabin has heat and water and not much else. No landline, no TV, no cell service and it was way out in the middle of the woods. But what else did I really need while I healed?  It made for a boring recovery, but Dale’s hag of a wife didn’t make it a hard choice.
+ I’ve been stuck in my uncle’s cabin since my fall about two weeks ago. I was too broke to afford a plane ticket home and too proud to let cousin Dale put me up while I healed. The cabin has heat and water and not much else. No landline, no TV, and it was way out in the middle of the woods. But what else did I really need while I healed?  It made for a boring recovery, but Dale’s hag of a wife didn’t make it a hard choice.
 
 I pulled out two rocks glasses and Dale plopped down in a chair, leaving me to limp over and seat myself. 
 
