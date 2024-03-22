@@ -58,8 +58,4 @@ The cut looks like it could have been made by a sharp fingernail. I’m not surp
 
 Number two: I take my wedding ring off when I sleep. I went to put it on this morning and discovered that I couldn’t. There’s a thin, ragged cut encircling my ring finger, just as if something dragged its sharp nails possessively around it while I slept.
 
-Of course we should leave. I’m just afraid of what will happen if it escalates.
-
-***
-
-[X](https://www.reddit.com/r/micahwrites/)
+Of course we should leave. I’m just afraid of what will happen if it [escalates](https://www.reddit.com/r/micahwrites/).
