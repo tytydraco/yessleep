@@ -285,7 +285,7 @@
 ***Notes:*** *Passing this one along to Justice along with the relevant police reports. This seems like it’s up her alley, so her people can deal with it.*  
 
 
-*Judging by the coroners report and my own examination of the body, the wounds that killed Gareth Lovina are consistent with the ones described by Sebastian Johnson. Lovina’s remains had been partially eaten upon discovery, although it’s unclear what exactly it was that attacked him. The bites didn’t match any known animal and clearly weren’t human.*  
+*Judging by the coroners report and my own examination of the body, the wounds that killed Gareth Lovisa are consistent with the ones described by Sebastian Johnson. Lovina’s remains had been partially eaten upon discovery, although it’s unclear what exactly it was that attacked him. The bites didn’t match any known animal and clearly weren’t human.*  
 
 &#x200B;
 
