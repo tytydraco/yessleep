@@ -1,6 +1,6 @@
 I have always lived in poverty and discomfort. My family used to have a house, land and enough money to live comfortably, but that was many years ago. That was before Israel bulldozed our homes and forced us into a ghetto. Now we are treated worse than animals, murdered, bombed and tortured at will by the invading army. I know this from personal experience- from the experiences of myself and my family.  
   
-My grandmother’s sister had been one of the victims of the Safsaf Massacre back in 1948, when the Israeli Army had gathered up all the people in a small town. They started by taking the young girls and women aside, ripping them out of the arms of their family. When the girls came back crying and pleading for help, their clothes ripped to shreds, the Israelis had only laughed.   
+My grandmother’s sister had been one of the victims of the Safsaf Massacre back in 1948, when the Israeli Army had gathered up all the people in a small town. They started by taking the young girls and women aside, ripping them out of the arms of their family. When the girls came back crying and pleading for help, their clothes ripped to shreds, the Israelis had only laughed.  
   
 That was when they started shooting the townspeople, massacring them and throwing them alive down wells. My grandmother’s sister was one of the girls that was raped and then murdered by the Israeli military in the Safsaf Massacre.  
   
@@ -14,7 +14,7 @@ The day that it started, I remember my mother running in the house, saying, “J
   
 \*\*\*  
   
-Within days, Israel stopped everything from going into Gaza: food, electricity, medicine, even water. I saw many people die, especially the elderly, the sick and the very young. The constant strikes from Israel on our town shattered homes into piles of crushed rubble. Within months, tens of thousands of innocent people had died.   
+Within days, Israel stopped everything from going into Gaza: food, electricity, medicine, even water. I saw many people die, especially the elderly, the sick and the very young. The constant strikes from Israel on our town shattered homes into piles of crushed rubble. Within months, tens of thousands of innocent people had died.  
   
 I stood on the roof, watching as thick clouds of black smoke snaked their way up into the clouds. Jets flew overhead, shaking the ground with sonic booms. I cringed every time one came low, not knowing if it would bomb my home as well. My friend, Wahib, stood by my side.  
   
@@ -24,7 +24,7 @@ I stood on the roof, watching as thick clouds of black smoke snaked their way up
   
 “Yes, but we’re going to die if we stay here,” I whispered, my heart sinking. He nodded.  
   
-“We need to get out of Gaza before the bombs truly start falling,” Wahib responded, shaking his head. “They’re probably going to kill hundreds of thousands of us this time. Just wipe us out like dogs.” He spat, disgusted. “I only hope there’s some justice in this world.”   
+“We need to get out of Gaza before the bombs truly start falling,” Wahib responded, shaking his head. “They’re probably going to kill hundreds of thousands of us this time. Just wipe us out like dogs.” He spat, disgusted. “I only hope there’s some justice in this world.”  
   
 I didn’t know what to say to that. My grandmother’s sister had never gotten justice, after all, unless she was going to receive it on the Day of Judgment. And yet, as a reward for its war crimes, Israel simply got more funding from the US. No one seemed to care about the piles of bodies they were leaving behind in every Palestinian town.  
   
@@ -36,7 +36,7 @@ I didn’t know what to say to that. My grandmother’s sister had never gotten 
   
 But the blur landed at the next house over, falling through the air so fast that I didn’t even have time to react. A flash and a sense of blinding heat consumed everything. I felt myself falling. I tried yelling, but I couldn’t hear my own screams over the cacophony of the blast. The smell of smoke and jet fuel and charred wood hung thick in the air like a cloud.  
   
-I don’t know how long I lay on the roof like that, just breathing, stunned and shell-shocked. But I came back quickly, blinking my eyes to clear the smoke and dust filling the air. I looked over at my neighbor’s house and saw an inferno of dancing flames. In the center, an enormous eye of fire swirled like a hurricane.   
+I don’t know how long I lay on the roof like that, just breathing, stunned and shell-shocked. But I came back quickly, blinking my eyes to clear the smoke and dust filling the air. I looked over at my neighbor’s house and saw an inferno of dancing flames. In the center, an enormous eye of fire swirled like a hurricane.  
   
 Screams echoed through the street. Then the front door opened and a young girl ran out, her body aflame, her hair lit up like a torch. Her skin blackened and melted as the fire consumed her. I could see drops of liquified fat and sizzling blood dripping off her nose. Her screams seemed to go on forever. Even now, when I close my eyes, I still hear it: the horror, the agony and the terror in that young girl’s voice as she died.  
   
@@ -60,7 +60,7 @@ I didn’t know it then, but that would be the last time I ever saw my mother.
   
 \*\*\*  
   
-Wahib and I set out down the road as the Sun faded behind the horizon, sending crimson streaks like drops of fresh blood dancing across the sky.   
+Wahib and I set out down the road as the Sun faded behind the horizon, sending crimson streaks like drops of fresh blood dancing across the sky.  
   
 “I have a friend,” Wahib said, his dark eyes flashing, “but it will take money.”  
   
@@ -74,7 +74,7 @@ I noticed how empty the street was at that moment. It was highly unusual. There 
   
 “Do you… feel something?” I asked Wahib, trying to keep my voice as low as possible. I didn’t know why, but I didn’t want to shatter that silence. Wahib only nodded.  
   
-“Maybe we should turn around,” Wahib said, leaning over close to my ear and whispering. A cold spear of dread had sunken into my chest. A freezing wind blew down the desert street, carrying swirling clouds of sand as it passed.   
+“Maybe we should turn around,” Wahib said, leaning over close to my ear and whispering. A cold spear of dread had sunken into my chest. A freezing wind blew down the desert street, carrying swirling clouds of sand as it passed.  
   
 “Where are we meeting this man?” I asked, nervous. I looked down at my hands and saw they were trembling. All the hairs on my body stood on end, as if lightning were about to strike.  
   
@@ -84,9 +84,9 @@ I looked up at the sky, realizing I didn’t see any more Israeli planes, missil
   
 I heard the slightest rustle of sand behind me, as if a foot had just barely grazed it. I turned my head and saw something that still gives me chills.  
   
-Only about ten paces behind us loomed a ten foot tall creature with gray, stone-like skin. It moved like a mannequin, and it truly looked like the thing had been carved from granite. Only its joints were able to twist and bend, with all other parts of its body staying as stiff as a statue.   
+Only about ten paces behind us loomed a ten foot tall creature with gray, stone-like skin. It moved like a mannequin, and it truly looked like the thing had been carved from granite. Only its joints were able to twist and bend, with all other parts of its body staying as stiff as a statue.  
   
-It had long, narrow arms that ended in sharp fingers, each of them gleaming and as long as garden shears. Its legs were inhumanly long and thin and ended in something almost like webbed feet. It had a single, bloody eye in the center of its face that rolled with insanity, its sclera yellowed and sickly-looking.   
+It had long, narrow arms that ended in sharp fingers, each of them gleaming and as long as garden shears. Its legs were inhumanly long and thin and ended in something almost like webbed feet. It had a single, bloody eye in the center of its face that rolled with insanity, its sclera yellowed and sickly-looking.  
   
 It opened an enormous mouth, its jaw ratcheting down as if it had whirring gears built into its head. Inside that unhinged jaw, I saw row after row of baby teeth. Thousands of children’s milk teeth gleamed, six or seven rows growing side by side with each other like tumors. Many of the teeth stuck out at odd angles, and some even had tiny versions of themselves growing out of the sides.  
   
@@ -110,7 +110,7 @@ A creature made of smokeless fire appeared in front of the charging Golem. The c
   
 The Golem roared in fury, its deep, inhuman voice thundering across the empty streets. It brought its sharp fingers up in a swiping motion, aiming at the Jinn’s fiery eyes, but the Jinn pulled back. Its right arm stretched out like a boa constrictor, growing thinner and wispier as it wrapped around the Golem’s neck. The Golem’s giant, rolling eye bulged in its socket as its wind was cut off. It threw itself forward, tackling the Jinn to the ground. They started rolling, clawing and biting. Deep gashes appeared in the Golem’s stone skin, and the Jinn’s shadow flesh shot out small, dying blue flames when injured.  
   
-“Come on, we have to go,” Wahib whispered. I jumped, not even realizing he had snuck over to me. He wrapped an arm around my shoulders and pulled me up. I groaned softly as I looked down at my mangled, twisted arm. I felt like I had cracked a few ribs as well. Every breath hurt like fire. The sounds of the two creatures fighting followed us far down the empty, labyrinthine streets.   
+“Come on, we have to go,” Wahib whispered. I jumped, not even realizing he had snuck over to me. He wrapped an arm around my shoulders and pulled me up. I groaned softly as I looked down at my mangled, twisted arm. I felt like I had cracked a few ribs as well. Every breath hurt like fire. The sounds of the two creatures fighting followed us far down the empty, labyrinthine streets.  
   
 “Did the Golem pull us into this alternate shadow reality, do you think?” I said.  
   
@@ -122,8 +122,24 @@ The Golem roared in fury, its deep, inhuman voice thundering across the empty st
   
 “And what if they continue to fight forever, the Jinn and the Golem?” I asked. Wahib just shook his head.  
   
-I noticed I still had internet on my phone, however. I decided to write down what happened with one hand. I can’t use my other hand, and my arm is extremely swollen. A piece of the bone is poking out through the skin. I really hope I can find medical attention somehow.   
+I noticed I still had internet on my phone, however. I decided to write down what happened with one hand. I can’t use my other hand, and my arm is extremely swollen. A piece of the bone is poking out through the skin. I really hope I can find medical attention somehow.  
   
 All I know now is that we somehow got trapped in this empty shadow world when the Golem chose us as its victims.  
   
-And I don’t know if I’ll ever get out.
+And I don’t know if I’ll ever get out.  
+  
+\*\*\*  
+  
+As the night progressed, we kept wandering through the empty, dark streets. Hours and hours passed, but the Sun never seemed to come up. We wandered for days, but couldn’t find any sign of the Jinn or the Golem.  
+  
+We started going into houses and looking for weapons. One house had automatic rifles, grenades and ammo. Wahib and I both took some.  
+  
+On the third day, we heard hissing like the sizzling of electricity from far away. We went forward and found the Jinn, half-dead and covered in deep gashes. The fire in his eyes had faded to almost nothing.  
+  
+“The Golem has won,” it said, pointing down the road. There, I saw it standing, one arm ripped off but its eyes triumphant. It rushed at us, and Wahib and I opened fire.  
+  
+It came like a runaway train pounding the street and smashed into Wahib, clawing him with its one remaining hand. He died, but as he died, he pulled the pin on a grenade.  
+  
+A fiery explosion rocked the street as the Golem disappeared in the blast. With a popping sound, the world came back, the streets filled with scared and starving people.  
+  
+I was home.
