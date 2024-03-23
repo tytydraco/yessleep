@@ -1,41 +1,21 @@
-Chapter 1
-
-This isn't a story you have heard before, this one…this one is different. My name is Caroline, but I liked to go by Care.  I grew up in a very small town called Hallow Lane, Ohio. I have two best friends, Ty and Keisha. We have been friends ever since we were kids. I am a Junior in high school, so I have plenty of time, as my mama would say, to party and lollygag. My friend Keisha, who is in a sorority, at Hardaway University loves to try to get me out of my comfort zone and tells me I need to relax and have some fun. This weekend I finally gave in to one of her crazy stunts to get me out the house, which was perfect timing since my parents were out of town, and her sorority was throwing a big Halloween party. She says this is going to be the biggest one yet.
-
-Keshia told me I could bring one friend since they didn't want too many outsiders with me so I invited my best friend Ty. We're not big party people, but let me give you a quick run down about my two best friends. Keisha and I have been best friends since I was born. Her mother Tammy and my mama go way back, so we grew up together and we are practically sisters; she is only two years older than me and she loves to remind me that she is three days, one week, and fifteen seconds older than me, but it makes no difference to me. She aspires to be a lawyer like her mother. I've always admired her because she's so charismatic and outgoing. Now, Ty, I met him in third-grade when he was a transfer student from Alaska and we have always been thick as thieves. His face is like a sword, chiseled and sharp. He smiles so bright it's like looking at a flashlight: delicate but fierce, he sniffs with sharp and private focus through his long, pointed nose and has low curly hair that looks like beach waves. 
-
-Ty has a very athletic build, but he isn't involved in any school activities. 
-
-“It’s for the people who want superficial friends who don't know the real meaning of life”, he says. Keisha came to see us for the first day of school. She's the mom of the group, “Come on you guys squeeze in together, or you're going to be late, get ready to take the picture,” says Keisha.
-
+Chapter 1  
+This isn't a story you have heard before, this one…this one is different. My name is Caroline, but I liked to go by Care.  I grew up in a very small town called Hallow Lane, Ohio. I have two best friends, Ty and Keisha. We have been friends ever since we were kids. I am a Junior in high school, so I have plenty of time, as my mama would say, to party and lollygag. My friend Keisha, who is in a sorority, at Hardaway University loves to try to get me out of my comfort zone and tells me I need to relax and have some fun. This weekend I finally gave in to one of her crazy stunts to get me out the house, which was perfect timing since my parents were out of town, and her sorority was throwing a big Halloween party. She says this is going to be the biggest one yet.  
+Keshia told me I could bring one friend since they didn't want too many outsiders with me so I invited my best friend Ty. We're not big party people, but let me give you a quick run down about my two best friends. Keisha and I have been best friends since I was born. Her mother Tammy and my mama go way back, so we grew up together and we are practically sisters; she is only two years older than me and she loves to remind me that she is three days, one week, and fifteen seconds older than me, but it makes no difference to me. She aspires to be a lawyer like her mother. I've always admired her because she's so charismatic and outgoing. Now, Ty, I met him in third-grade when he was a transfer student from Alaska and we have always been thick as thieves. His face is like a sword, chiseled and sharp. He smiles so bright it's like looking at a flashlight: delicate but fierce, he sniffs with sharp and private focus through his long, pointed nose and has low curly hair that looks like beach waves.  
+Ty has a very athletic build, but he isn't involved in any school activities.  
+“It’s for the people who want superficial friends who don't know the real meaning of life”, he says. Keisha came to see us for the first day of school. She's the mom of the group, “Come on you guys squeeze in together, or you're going to be late, get ready to take the picture,” says Keisha.  
 “I'm nearly 17 and a half and you're still treating me like I'm a child.  I am a man now,” Ty said.  
-
-“Yeah, right you wish to keep dreaming,” Keisha replied jokes
-
-I just laughed.
-
-Our first encounter is something I will never forget. Ty doesn’t like bullies and when booger nose Kenny Osborne took my candy and wouldn’t give it back, Ty came along and chunked a rock right at Kenny’s fathead. Boy did he cry afterwards and since then, Ty and I have been inseparable.
-
-Keisha took our photograph outside, with Ty pretending to have a fake cigarette in his mouth and me self-consciously with my left wrist clasped in my right hand as if I was afraid my wrist was going to get away from me. Keisha used a professional camera, and kept lots of different films. As she chatted and switched cameras, Ty and I were ready to go to class. 
-
-“Come on Keish, I didn't go all day. The ladies are calling.” 
-
-“Okay, okay, last one, and I’m done,”
-
+“Yeah, right you wish to keep dreaming,” Keisha replied jokes  
+I just laughed.  
+Our first encounter is something I will never forget. Ty doesn’t like bullies and when booger nose Kenny Osborne took my candy and wouldn’t give it back, Ty came along and chunked a rock right at Kenny’s fathead. Boy did he cry afterwards and since then, Ty and I have been inseparable.  
+Keisha took our photograph outside, with Ty pretending to have a fake cigarette in his mouth and me self-consciously with my left wrist clasped in my right hand as if I was afraid my wrist was going to get away from me. Keisha used a professional camera, and kept lots of different films. As she chatted and switched cameras, Ty and I were ready to go to class.  
+“Come on Keish, I didn't go all day. The ladies are calling.”  
+“Okay, okay, last one, and I’m done,”  
 Keisha talked about how high school is an experience we need to enjoy and make long-lasting memories and how time flies by and how we should enjoy the moments that we make every day.  
-
 "You only live once so why not enjoy it while you can before you hit adulthood?”  
-
 After her parting words of wisdom, Keisha got in her car and said her goodbyes. While her skin glistened, her jet-black eyebrows arched up the sky, her serious amber eyes seemed more hollow than ever in the fluorescent light streaming through the slits of her bangs. She had wide eyes that were bright and a lot of hair that was not ‘groomed.' I loved her despite all her curly strands of hair that stick out above her head. I felt excited to know that I’m one step close to my milestone — after I graduate Hallow Ln High, I’m finally free. I got it all planned out on going to school in New York to be an artist. I always had a thing for drawing, how it speaks to you and makes you feel emotions all by looking at a picture. Soon, the day was almost over and the first day of school was complete.  
-
 “I made some new friends,” Ty said.  
-
 He held up his hand to acknowledge Francis and Melissa. They’re twins, two of the most popular people at Barnesville High. Francis took a bottle of soda pop out of his book bag and opened it on the lunch table.  
-
-“Come and sit with us”, Francis said.
-
-“Yeah, I love to, but, I should try and get some of this homework done while the night’s still young.”
-
-“See ya,” Care bear. 
-
+“Come and sit with us”, Francis said.  
+“Yeah, I love to, but, I should try and get some of this homework done while the night’s still young.”  
+“See ya,” Care bear.  
 Ty has never had a problem with making friends but me on the other hand, I'm more of an introvert. I really don't talk much to people. They must talk to me first because I always end up saying the wrong things, which makes the conversation really weird. My mama always tells me to “just breathe and take a breath and say one sentence at a time,” but that never works. I always screw it up.
