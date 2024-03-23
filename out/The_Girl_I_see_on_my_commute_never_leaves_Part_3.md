@@ -213,7 +213,7 @@ It was as if a flashlight was turned on inside of my jacket, but inspecting clos
 
 “My…my toy.”
 
-“Yeah. I think this is supposed to help you now. You ready.”
+“Yeah. I think this is supposed to help you now. You ready?”
 
 She nodded as she placed her hand on the toy, both resting on my hand. Suddenly, the toy began to began to shine brighter and brighter until we couldn’t see anything around us for a few seconds, it was like being hit with a flashbang grenade. When our sight came back, we saw the train had reached the next stop, except when the doors opened, everything was a white void. 
 
