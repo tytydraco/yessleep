@@ -1,4 +1,9 @@
- 
+ [I](https://www.reddit.com/r/nosleep/comments/1bl3grk/i_might_be_recording_my_own_death_part_1/) - [II](https://www.reddit.com/r/nosleep/comments/1blzrlm/i_might_be_recording_my_own_death_part_2/)
+
+
+***
+
+
 
 My watch said it was 10:00 am, but it felt like dusk. The pine trees were so numerous and thick that I could barely see the sky. 
 
