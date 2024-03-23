@@ -21,7 +21,7 @@ sudden realization sets in. He's been looking at me whole time. Because of my li
 I quickly put out my cigarette and turned 180 degrees straight to the house. I tried to walk as quietly as possible but the dry crunching leafs were making it impossible to be sneaky. "Fuck it I'm running"
 
 I barely took 2 steps and faceplanted right into a tree. I felt warmth running on my lips and chin. Tasted hint of iron. I was bleeding from my nose. 
-"Yep bad idea running in dark forest like a moron, let's take it easy" I thought
+"Yep bad idea running in dark forest like a moron, let's take it easy" I thought.
 I went around the tree slowly walked towards the house with my 2 arms stretched forward.
 "Huh? wierd I didn't walk that far, I should be able to see the house light... Don't tell me they turned off the light." I started to panic. 
 
