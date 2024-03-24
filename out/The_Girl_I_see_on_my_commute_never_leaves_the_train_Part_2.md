@@ -23,7 +23,7 @@ I gulped, trying not to sound as anxious as I felt. I was too afraid to even loo
 
 “And what’s stopping you from doing that to me?”
 
-He let out a roaring laugh, it was almost human but it was spliced with what sounded like metal scratching and ripping fabric. Following his expression of amusement, I saw him reach out his finger, and it grew until it grazed my adam’s apple. 
+He let out a roaring laugh, it was almost human but it was spliced with what sounded like metal scratching and ripping fabric. Following his expression of amusement, I saw him reach out his finger, and it grew longer and longer until it grazed my adam’s apple. 
 
 “I’m bored. I’ve grown tired of simply devouring. I want to watch you wiggle and squirm in my presence. I want to see you barely get away. I want you to fear me.”
 
@@ -189,3 +189,8 @@ The speakers blast as we’ve made the round trip back near my house. I step out
 
 I took it *outside* of the train. 
 
+_________
+
+
+
+[Part 3](https://www.reddit.com/r/nosleep/s/dBQMR3bfhO)
