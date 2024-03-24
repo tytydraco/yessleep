@@ -1,0 +1,19 @@
+So this isn't really a terrifying encounter or experience, and likely is as simple as what my Dad's explanation was, but it's caused me to lay awake thinking every now and then. You'll all likely find it boring, but just keep in mind this did happen and I was a kid at the time.
+
+I was around 11 years old in 2009, and my dad and I had been driving up to do bushwalks around Mount Tamborine in Queensland on the weekends. We were trying to do a few more father/son bonding activities, and we both really enjoyed spending the time together and being out in the fresh air amidst the rainforests. 
+
+Anyway, we had returned to the truck and I jumped in the back while my Dad drove. I have this super power/curse where I can fall asleep within minutes if I'm in a moving car. So I'm laying down across the seats in the back and my Dad and I are having a nice chat, talking about jazz, I think (my Dad had picked up a lot of hobbies, including playing guitar, lately. I'd piece together as I grew up this was his midlife crisis going on). Eventually, I doze off to sleep after my dad puts on a John Mayer CD he'd play every time we drove anywhere. It was about 3 pm when we left and the drive down the mountain to home takes about 45 minutes to an hour. 
+
+I wake up later and I feel the car still rumbling, and see the silhouette of trees moving by against the deep purple twilight sky fading into darkness of night. I sit up and I look around, seeing we're still on the mountain road, what shouldve been like 30 minutes away from where we had started, but it was around 5.20 according to the cars clock. 
+
+When I looked at my Dad, he was just...off. It wasn't something really horrific, like he was covered in blood or manically looking around, he was just kinda rigid. My Dad was usually a confident, casual driver - on the way there, he would have his window down, hand tapping the side of the truck in time with the music. But the windows were all wound up shut, and he wasn't slouched or one hand on the wheel, but was up right and had both hands clasping the wheel. And he was just staring forward at the road, either concentrating or lost in thought. His eyes were pretty wide, alert, and it looked like he was gritting his teeth for some reason. I think I took notice of all these small things mostly cause it was quiet aside from the hum of the engine, the CD had, I'm guessing, finished a while ago.
+
+I eventually asked my Dad where we were and why it was so late, and he just said he had taken a wrong turn and had driven to the end before realising and turning back, that we were on the right road now. He then told me to just go back to sleep, we still had a bit of a drive to go. He just repeated that again when I went to ask if he was ok. He wasn't ordering me to or anything like he did normally if I ever questioned him, but was kinda gently asking me to. So I laid down, but I didn't go to sleep. I just lay there, quiet. 
+
+Eventually, we got back home, and when my mum asked why we got back at around 6, my dad just told her what he told me, before going to my parents room, showered, and went to bed. 
+
+It's most likely what happened was just that. My dad seemed knackered after the whole thing, and was probably just tired, that's why he seemed weird while driving. Maybe he was trying to stay awake. But, after that, we never went on a bush walk again, and my dad never mentioned anything about that day. 
+
+I'm 25 now, and I haven't seen my dad for a few years, and don't want to. If I ever do, there's a lot more I wanna say to him before asking a question regarding some drive from over a decade ago.
+
+But still, that question does keep me thinking. What did he see when driving down that mountain?
