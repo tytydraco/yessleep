@@ -1,10 +1,14 @@
-Three detectives just left my apartment. Betty Lou busted out last night.
+Three detectives just left my apartment. Betty Lou busted out of the looney bin last night.
 
-That explains the deceased and eviscerated rat in the day-glow orange, knit wool hat I found on my pillow this morning. Good thing I was out of town in Madison, on my first vacation since Covid, for not just one, but two conventions; comic books(1) & cheddar cheese(2).
+That explains the deceased and eviscerated rat in the day-glow orange, knit wool hat I found on my pillow this morning. The rat came with a gift card. It read, "Gary Kraft? That's the kind of name look good on a tombstone."
+
+Good thing I was out of town in Madison, on my first vacation since Covid, for not just one, but two conventions; comic books(1) & cheddar cheese(2).
 
 Sometimes it's better to be lucky than extra-sharp.
 
-Now, my thought first and foremost is that this would be a good time for leaving town. I haven't even unpacked from Wisconsin; it's like kismet. I can go expat. Betty Lou won't be able to find me, not even if she manages to get out of the country with everybody manhunting her. Especially, if I keep moving. Maybe they'll catch her. Except this time, they'll have to do it without me. Shit. Who am I kidding? Dead man typing. I going to get **DOA**\*'d\*. That girl *is* poison and I was born under a bad sign.
+Now, my thought first and foremost is that this would be a good time for leaving town. My second thought as a desperate man would have been to request lawyers, guns and money as the shit had hit the fan.
+
+I haven't even unpacked from Wisconsin; it's like kismet. I can go expat. Betty Lou won't be able to find me, not even if she manages to get out of the country with everybody manhunting her. Especially, if I keep moving. Maybe they'll catch her. Except this time, they'll have to do it without me. Shit. Who am I kidding? Dead man typing. I going to get **DOA**\*'d\*. That girl *is* poison and I was born under a bad sign.
 
 Yeah, you see; I dropped a dime on Betty Lou. She did not take it well.
 
@@ -12,7 +16,7 @@ Yeah, you see; I dropped a dime on Betty Lou. She did not take it well.
 
 ***"I'll get you if it's the last thing I do!"***
 
-Snot and spittle had erupted from her nose and mouth to tango furiously as she wished me dead. Her mucous membrane sonata continued unabated, even as two burly cops led her away forcibly. Betty Lou strained against the cuffs all the way to a waiting SUV, her short muscular legs kicking. The SUV's lights flashing red as the eyes of the betrayed; white doors swung open wide, like a shark's maw at supper time.
+Snot and spittle had erupted from her nose and mouth to tango furiously as she wished me dead. Her mucous membrane sonata continued unabated, even as two burly cops led her away forcibly. Betty Lou strained against the cuffs all the way to a waiting SUV, her short muscular legs, honed over years playing rugby in the Ivy League, furiously kicking. The SUV's lights flashing red as the eyes of the betrayed; white doors swung open wide, like a shark's maw at supper time.
 
 And then? Then Betty Lou was gone.
 
@@ -64,7 +68,7 @@ Things that happened in a blur:
 1. Campaign of sex bombing by Betty Lou, and;
 2. Learned over pillow talk Betty Lou took Lexapro, left a dysfunctional home very young, and divorced her husband for withholding oral sex from her, and;
 3. Betty Lou had been in therapy since junior high and according to her, "was very well adjusted." and;
-4. Betty Lou like playing poker. She often disappeared to go gamble. Legal & illegal games.
+4. Betty Lou like playing poker. She often disappeared to go gamble. As Betty Lou spoke fluent Mandarin this included not just legal but illegal backroom games as well.
 5. Couldn't stop knitting scarves and shit even right after sex and;
 6. Gulping hard liquor. Like the man wrote, Betty Lou was the kind of woman who would take a drink. Even if she had to knock you over to get the bottle, and;
 7. Unbeknownst to me: *Men in Brooklyn began to go* ***missing***
@@ -233,7 +237,7 @@ I was drinking Asahi beer. I took a pull.
 
 And then I heard a voice say, in my left ear, "She got the devil in Mrs. Jones, dude." I looked around but it was only my imagination just running away with me.
 
-Betty Lou paused and drank some J-Pop. 
+Betty Lou paused and drank some J-Pop.
 
 ***"I can't be with just one person for the rest of my life," she said in a somewhat irritated voice.***
 
@@ -343,7 +347,7 @@ That night I walked home doing my crying in the rain. I was done. Let it be.
 
 I got an email from Betty Lou. It was a forwarded mass email from her neighborhood's community garden group. Betty Lou had FWD'd it to me just before midnight. It read:
 
-<Generic Community Garden Stuff>                    
+<Generic Community Garden Stuff>                                          
 
 
 ***FYI. Hope you're well.***
@@ -372,7 +376,7 @@ I never responded to these emails. But they kept coming.
 
 Last July there was a Community Garden Contest and you would not believe who won? Betty Lou.
 
-How does her garden grow? I will admit I was curious. Before too many day of curiosity passed I got another email. This one was different.
+How does her garden grow? I will admit I was curious. Before too many days of curiosity could pass I got another email. This one was different.
 
 Subject: The fucking cat bit me
 
@@ -438,13 +442,29 @@ I felt a bead of sweat run down my back. I caught it with the back of my hand an
 
 I noticed there was an odd antiseptic and rotten smell. It was her bandaged thumb.
 
-Betty Lou seemed to notice that I notice and I felt the room get a little hotter. She smiled.
+Betty Lou seemed to notice that I noticed and I felt the room grow a little hotter. She smiled with no warmth.
 
 "First look at this!" she said and then showed me a picture of a grave with a desecrated, eviscerated and otherwise fucked up corpse in it. It looked like something out of the Zombie Apocalypse. Betty Lou flipped. It was another corpse. It looked like a mutilated hipster with a patchy beard.
 
 My head flinched and Betty Lou said, "Yeah. That patchy beard shit is gross, right?"
 
-More pictures. It was like Lizzie Borden and Charles Manson made a baby named Betty Lou. And she was showing me her mud pies. Only they were dead people.
+"Erm," I uttered.
+
+"Okay! This is getting exasperating. You really want to see it, don't you."
+
+I began to shake my head but it was too late. A fetid putrescence immediately mugged the air. I instinctively dry heaved but I noticed my eyes hold steady.
+
+And there it was. The most disgusting thumb I have ever seen. You can't really even call it a thumb. It was more like a pus canvas of pus flowers each spurting a septic dew that seemed to crystallize into little bubbles that turned green in real time. 
+
+I felt my eyebrows stretch. I covered my face.
+
+"OKAY!? You've seen my green thumb. You know now but you still need to see. You're fucked up. You know that?"
+
+I tried to point and not faint. Betty Lou looked at the big bandage that was shaped like a thumb. It was green, red, black and every fetidious color Satan's interior decorator could envision. 
+
+"Oh. You want me to put the bandage back on, now?! This is getting exasperating, Gary."
+
+Betty Lou pushed the bandage back down over her green thumb and pus and shit oozed down her hand. Then my walk through the valley of the shadow of death with Betty Lou continued. More pictures. It was like Lizzie Borden and Charles Manson made a baby named Betty Lou. And she was showing me her mud pies. Only they were dead people.
 
 "Soooo...," Betty Lou finally said. "The secret is dead fucking people who can't get it up or give me a free pass but give me a free pass and then get all needy after wanting to be cucked; well.
 
@@ -454,7 +474,7 @@ After that there was Bruce for the Begonias, Ted for the roses. I tried to find 
 
 I tried not to breathe too deep.
 
-"Oh, anyway," Betty Lou continued. "Once I saw murder by numbers was as easy to learn as my ABCs well then I figured you'd understand."
+"Oh, anyway," Betty Lou continued. "Once I saw murder by numbers was as easy to learn as my ABCs well then I figured even you'd understand."
 
 "Understand?"
 
@@ -468,7 +488,7 @@ I nodded as if to say, ah, now it all makes sense.
 
 Betty Lou's eyes lit up like Christmas Trees.
 
-"Tomo? 8pm?"
+"Tomo? 8pm? I can show you pictures of Daisy pushing up daisies. That's on my burner phone, lover boy."
 
 "Sure," I said.
 
@@ -478,7 +498,9 @@ And that's how it went down horror fans. Just the next night. Right in the Ramen
 
 Of course, I immediately had dropped a dime on Betty Lou. Turned out Betty Lou had been doing this since college. When all was said and done they put Betty Lou away in an institution for the criminally insane where she could knit as much as she wants and eat as much Lexapro as she wants.
 
-The city was grateful to me for helping them crack what they referred to as, "The Knitting Needle Killer," case. I asked them to keep my name out of it all and they told me that they would do their best as one of Betty Lou's victims had been the son of a prominent Afghani heroin trafficker. I didn't know what that had to do with me but when me looked like they've never smiled in their lives you just sort of go with the flow.
+The city was grateful to me for helping them crack what they referred to as, "The Knitting Needle Killer," case. I asked them to keep my name out of it all and they told me that they would do their best as one of Betty Lou's victims had been the son of a prominent Afghani heroin trafficker.
+
+I didn't know what that had to do with me but when men who looked like they've never cracked a smile in their entire lives give you a free pass you take it and say thanks.
 
 So, there you have it. Everything was swell again. I survived the horrors of 2023, Betty Lou was somewhere she could get the help she so desperately needed and well, there was plenty of sharp cheddar and comics in Madison, Wisconsin.
 
@@ -500,7 +522,7 @@ Which brings us full circle.
 
 ...
 
-***Three detectives just left my apartment. Betty Lou busted out last night.***
+***Three detectives just left my apartment. Betty Lou busted out of the looney bin last night.***
 
 What would you do?
 
