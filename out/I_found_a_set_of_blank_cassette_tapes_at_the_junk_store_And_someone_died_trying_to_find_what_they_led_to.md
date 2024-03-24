@@ -58,13 +58,13 @@ CLICK.
 
 —
 
-We'd been trudging through the marsh, navigating the fog with just a single flashlight, for what must have been another twenty minutes or so, when my Jess and Mike's banter began to wear on me.
+We'd been trudging through the marsh, navigating the fog with just a single flashlight, for what must have been another twenty minutes or so, when Jess and Mike's banter began to wear on me.
 
 "You know, with the election coming up in just a few days, I really wish I could vote." Jess said to Mike.
 
-"Why?" He asked."
+"Why?" He asked.
 
-'Cause then I could help change the world."
+"'Cause then I could help change the world."
 
 "That's not how it works. You'd vote for Clinton in an already blue state, so it would basically mean nothing."
 
@@ -74,19 +74,19 @@ But before I could continue, Jess interjected, calling back to Mike and I from u
 
 "Hey guys..."
 
-We both looked over, to find her pointing to, of all things, a thick mist that was enveloping everything ahead of us, and rapidly closing in."
+We both looked over, to find her pointing to, of all things, a thick mist that was enveloping everything ahead of us, and rapidly closing in.
 
-Maybe we should head back after all." Jess backtracked.
+"Maybe we should head back after all." Jess backtracked.
 
 "Yeah, you already found a second body, Mike. Now can we just go home?" I insisted.
 
 But Mike wasn't having it.
 
-"Sorry losers. We gotta keep going. A vote's a vote. But we're almost there. And don't worry, a little fog's not gonna hurt nobody.
+"Sorry losers. We gotta keep going. A vote's a vote. But we're almost there. And don't worry, a little fog's not gonna hurt nobody."
 
-"That's when it hit me."
+That's when it hit me.
 
-Mike, back at the last couple we found. You had asked me if the tape had said their names?"
+"Mike, back at the last couple we found. You had asked me if the tape had said their names?"
 
 "Yeah. So what?" He replied.
 
@@ -114,7 +114,7 @@ But Jess jumped between us. "Hey, stop!"
 
 "Keep it! I don't need it!" He called back to us, without looking back, as he disappeared into the fog.
 
-**—**
+—
 
 Jess and I must have been walking in circles for a good thirty minutes, disoriented by the mist, before we finally got our bearings, and continued on our way back home.
 
@@ -134,15 +134,15 @@ I paused for a moment.
 
 "Cute?" Jess asked.
 
-"Oh, I mean uh... totally not cute at all, I swear.
+"Oh, I mean uh... totally not cute at all, I swear."
 
-"She stopped and gave me a cheeky smile.
+She stopped and gave me a cheeky smile.
 
 "Tyler, are you flirting with me?"
 
-"No..."She took a step closer."
+"No..." I said, as she took a step closer.
 
-'Cause you know, out here in the marsh, surrounded by a sinister fog and all these dead corpses, might be..."
+"'Cause you know, out here in the marsh, surrounded by a sinister fog and all these dead corpses, might be..."
 
 "An inappropriate time?" I interjected, my face beginning to blush.
 
@@ -170,7 +170,7 @@ But just when the mud reached our necks, as we each shot each other one last loo
 
 He was an old man with a white beard, wearing a pair of rubber wading pants, that were completely covered in mud.
 
-*The serial killer!* I thought to myself, before realizing that his voice sounded nothing like the tape's narrator, and that he could have easily killed us when we were stuck in the marsh, but didn't.
+The serial killer! I thought to myself, before realizing that his voice sounded nothing like the tape's narrator, and that he could have easily killed us when we were stuck in the marsh, but didn't.
 
 "We got lost." I replied, careful not to offer up too much information.
 
@@ -192,11 +192,11 @@ He was an old man with a white beard, wearing a pair of rubber wading pants, tha
 
 "Who's... that?" Jess added.
 
-"Us clammers and fishermen see him all the time, out there in the marsh. Always at night. And always digging away in the mud. Legend has it, he's the captain of that submerged boat out there, forever trying to free it.
+"Us clammers and fishermen see him all the time, out there in the marsh. Always at night. And always digging away in the mud. Legend has it, he's the captain of that submerged boat out there, forever trying to free it."
 
-"Jess and I both looked at each other, our eyes wide with fear.
+Jess and I both looked at each other, our eyes wide with fear.
 
-"Anyways, I'd better be getting back. Low tide's open us and there's clams to be clammed. You kids get home safe now."
+"Anyways, I'd better be getting back. Low tide's upon us and there's clams to be clammed. You kids get home safe now."
 
 And like that, he was gone, disappearing into the fog like a ghost in the night.
 
@@ -222,13 +222,13 @@ And not far away, just lying there in the grass...
 
 ...Was Mike. Half alive, his body caught in an old bear trap, its rusty jaws clamping down into his torso, blood pouring out everywhere.
 
-"I found the body." He mumbled to Jess and I as he noticed us approaching, blood dripping from his mouth.
+"I found the body." He mumbled to Jess and I, as he noticed us approaching, blood dripping from his mouth.
 
 "Mike!" Jess screamed, as she started to run towards him, before I stopped her and crouched down to help him.
 
 But no matter how hard I tried and tried... no matter how much force I put into it... the trap wouldn't release Mike from its grip.
 
-Eventually, I stood up and took a few steps back, knowing that my friend would soon die from his wounds, as my own blood as now pouring from my arm.
+Eventually, I stood up and took a few steps back, knowing that my friend would soon die from his wounds, as my own blood was now pouring from my arm.
 
 Jess and I both knelt down by his side.
 
@@ -248,11 +248,11 @@ Jess and I both knelt down by his side.
 
 "Tell me something, Tyler." Mike began, gesturing to the body. "Is it him? Is it my dad?"
 
-I sat there for a minute, not sure what to say, then moved the headphones from around my neck, switched tape "3" for tape "4" and pressed play.
+I sat there for a minute, not sure what to say, then moved the headphones from around my neck to my head, switched tape "3" for tape "4" and pressed play.
 
 CLICK.
 
-"If you're listening to this, you've found the third body. A widow, guilty of investing her entire life in that of another. Her husband, who, after sharing her life, her time, and her memories with, simply passed away one day.  She should have known, as we've learned from the first two bodies, that love is not forever. And investing it, a fool's errand. When you're ready for the directions to the next bodies, switch to the fifth tape."
+"If you're listening to this, you've found the third body. A widow, guilty of investing her entire life in that of another. Her husband, who, after sharing her life, her time, and her memories with, simply passed away one day.  She should have known, as we've learned from the first two bodies, that love is not forever. And investing in it, a fool's errand. When you're ready for the directions to the next bodies, switch to the fifth tape."
 
 CLICK.
 
