@@ -241,7 +241,7 @@ I looked back to see the train still in view, and I rushed back, as I didn’t w
 
 “It’s possible. It’s actually possible to be free. How’d you do it?”
 
-“Apparently I can take whatever item to have on the train, whatever means a lot to you I guess, and I can take it in the physical world. It’s all powered through memories.”
+“Apparently I can take whatever item you have on the train, whatever means a lot to you I guess, and I can take it in the physical world. It’s all powered through memories.”
 
 “That makes sense, none of us can remember our lives. Here, take my coin. I can never put this thing down, so it must be important.”
 
