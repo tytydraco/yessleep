@@ -1,6 +1,6 @@
 Three detectives just left my apartment. Betty Lou busted out of the looney bin last night.
 
-That explains the deceased and eviscerated rat in the day-glow orange, knit wool hat I found on my pillow this morning. The rat came with a gift card. It read, "Gary Kraft? That's the kind of name look good on a tombstone."
+That explains the deceased and eviscerated rat in the day-glow orange, knit wool hat I found on my pillow this morning. The rat came with a gift card. It read, "Gary Kraft? That's the kind of name look real good on a tombstone."
 
 Good thing I was out of town in Madison, on my first vacation since Covid, for not just one, but two conventions; comic books(1) & cheddar cheese(2).
 
@@ -16,13 +16,19 @@ Yeah, you see; I dropped a dime on Betty Lou. She did not take it well.
 
 ***"I'll get you if it's the last thing I do!"***
 
-Snot and spittle had erupted from her nose and mouth to tango furiously as she wished me dead. Her mucous membrane sonata continued unabated, even as two burly cops led her away forcibly. Betty Lou strained against the cuffs all the way to a waiting SUV, her short muscular legs, honed over years playing rugby in the Ivy League, furiously kicking. The SUV's lights flashing red as the eyes of the betrayed; white doors swung open wide, like a shark's maw at supper time.
+Snot and spittle had erupted from her nose and mouth to tango furiously as she wished me dead. Her mucous membrane sonata continued unabated, even as two burly cops led her away forcibly. Betty Lou strained against the cuffs all the way to a waiting SUV, her short muscular legs, honed over years playing rugby in the Ivy League, furiously kicking. 
 
-And then? Then Betty Lou was gone.
+"The fucking stench!?! What the fuck!?!?!" bellowed one of the cops.
+
+"Maybe it's your fuckin' upper lip, pig? Ever think of that," Betty Lou bellowed back redoubling her efforts to bust loose.
+
+The SUV's lights steadily flashed red, red as the eyes of the betrayed; white doors suddenly swung open wider than a shark's maw at supper time.
+
+And then? Then Betty Lou was gone along with the stench of corruption and gardening.
 
 That was last June.
 
-Last June under the Flower Moon she told me of ruin.
+Last June under the Flower Moon she warned me of ruin.
 
 I met her on a dating app in the fall of '22. She was divorced. A good looking brunette in her 40s. Nice picture of her singing karaoke. She looked bubbly and attractive.
 
@@ -68,12 +74,14 @@ Things that happened in a blur:
 1. Campaign of sex bombing by Betty Lou, and;
 2. Learned over pillow talk Betty Lou took Lexapro, left a dysfunctional home very young, and divorced her husband for withholding oral sex from her, and;
 3. Betty Lou had been in therapy since junior high and according to her, "was very well adjusted." and;
-4. Betty Lou like playing poker. She often disappeared to go gamble. As Betty Lou spoke fluent Mandarin this included not just legal but illegal backroom games as well.
+4. Betty Lou liked playing poker. She often disappeared to go gamble. As Betty Lou spoke fluent Mandarin this included not just legal but illegal backroom games as well.
 5. Couldn't stop knitting scarves and shit even right after sex and;
 6. Gulping hard liquor. Like the man wrote, Betty Lou was the kind of woman who would take a drink. Even if she had to knock you over to get the bottle, and;
-7. Unbeknownst to me: *Men in Brooklyn began to go* ***missing***
+7. Unbeknownst to me: Heteroflexible, Ethically Non Monogamous and Polyamorous d*ating app users in Brooklyn began to go* ***missing***
 
-Betty Lou shared custody of her two kids with her ex. I mostly saw her every other weekend and during the week when her kids were at her ex's.
+Betty Lou shared custody of her two kids with her ex. I mostly saw her every other weekend and during the week when her kids were at her ex's. She worked for the city and often joked that if she could only find a way to get fucked up without getting *too* fucked up she could get disability and live the life.
+
+I mostly ignored these remarks. I mean I knew they were red flags. It's not like I fell off a turnip truck last Thursday. But the sex was fire.
 
 Then something changed after Thanksgiving and before Christmas. Betty Lou grew increasingly distant and secretive. So, I did what I always did. I gave her space and made a joke about her being like Jennifer Garner in Alias. She never saw Alias so I had to explain it to her. Her silence made me uneasy but I let that sleeping dog lie.
 
@@ -145,9 +153,17 @@ Then Betty Lou hopped off her barstool and ran off down the bar to demonstrate h
 
 Suddenly I felt a gorilla paw clench my forearm.
 
-I swiveled around to survey the situation. There was a hand and it belonged to a woman. A woman who looked exactly like Large Marge. You know Large Marge, right? The trucker lady who picked up hitchhiking Pee Wee Herman. The one with the koogly eyes that says, "Tell 'em Large Marge sent ya!?!"
+I swiveled around to survey the situation. There was a hand and it belonged to a woman. A woman who looked exactly like Large Marge.
 
-I moved my arm gently away from her gorilla hand. Unhand me you ape I thought. I said, "I need to watch my friend perform."
+"What's your name?" she asked/demanded. I suppose it was what passed for flirtation in these parts.
+
+Say. You do know Large Marge, right? The trucker lady who picked up hitchhiking Pee Wee Herman. The one with the koogly eyes that says, "Tell 'em Large Marge sent ya!?!"
+
+I moved my arm gently away from her gorilla hand.
+
+*Unhand me you ape I thought.*
+
+I said, "I need to watch my friend perform."
 
 Large Marge said, "I understand. Sorry."
 
@@ -347,7 +363,7 @@ That night I walked home doing my crying in the rain. I was done. Let it be.
 
 I got an email from Betty Lou. It was a forwarded mass email from her neighborhood's community garden group. Betty Lou had FWD'd it to me just before midnight. It read:
 
-<Generic Community Garden Stuff>                                          
+<Generic Community Garden Stuff>                                                    
 
 
 ***FYI. Hope you're well.***
@@ -384,7 +400,11 @@ In it was a picture of Betty Lou's thumb. It was angry with infection and had vi
 
 The body of the message read: My fucking stupid friend's cat bit me! #Neosporin
 
-I winced and went about my day. It was hard not to think of Betty Lou, I'll confess. A few days later another email came to me.
+PS
+
+***I'm planting geraniums tomo night and thought maybe you want to help me? ;D***
+
+I winced and went about my day. It was hard not to think of Betty Lou, I'll confess. No way I was going to garden with her. A few days later another email came to me.
 
 Subject: Nothing more Lexapro can't fix
 
@@ -454,13 +474,13 @@ My head flinched and Betty Lou said, "Yeah. That patchy beard shit is gross, rig
 
 I began to shake my head but it was too late. A fetid putrescence immediately mugged the air. I instinctively dry heaved but I noticed my eyes hold steady.
 
-And there it was. The most disgusting thumb I have ever seen. You can't really even call it a thumb. It was more like a pus canvas of pus flowers each spurting a septic dew that seemed to crystallize into little bubbles that turned green in real time. 
+And there it was. The most disgusting thumb I have ever seen. You can't really even call it a thumb. It was more like a pus canvas of pus flowers each spurting a septic dew that seemed to crystallize into little bubbles that turned green in real time.
 
 I felt my eyebrows stretch. I covered my face.
 
 "OKAY!? You've seen my green thumb. You know now but you still need to see. You're fucked up. You know that?"
 
-I tried to point and not faint. Betty Lou looked at the big bandage that was shaped like a thumb. It was green, red, black and every fetidious color Satan's interior decorator could envision. 
+I tried to point and not faint. Betty Lou looked at the big bandage that was shaped like a thumb. It was green, red, black and every fetidious color Satan's interior decorator could envision.
 
 "Oh. You want me to put the bandage back on, now?! This is getting exasperating, Gary."
 
@@ -496,7 +516,7 @@ And that's how it went down horror fans. Just the next night. Right in the Ramen
 
 ***"I'll get you Gary Kraft." Betty Lou seethed through clenched teeth and snotted nose."I'll get you if it's the last thing I do!"***
 
-Of course, I immediately had dropped a dime on Betty Lou. Turned out Betty Lou had been doing this since college. When all was said and done they put Betty Lou away in an institution for the criminally insane where she could knit as much as she wants and eat as much Lexapro as she wants.
+Of course, I immediately had dropped a dime on Betty Lou. Turned out Betty Lou had been doing this since college. When all was said and done they put Betty Lou away in an institution for the criminally insane.
 
 The city was grateful to me for helping them crack what they referred to as, "The Knitting Needle Killer," case. I asked them to keep my name out of it all and they told me that they would do their best as one of Betty Lou's victims had been the son of a prominent Afghani heroin trafficker.
 
@@ -514,13 +534,17 @@ There was a picture of a hand missing a thumb.
 
 The caption read,
 
-"Roses are Red. Free passes are due. Under a bed of orchids, you'll make all my dreams come true."
+"Roses are Red. Free passes are due. Under a bed of geraniums, you'll make all my dreams come true."
 
-I got home and saw the dead rat in the beanie on my pillow.
+At the bottom, there was a postscript.
 
-Which brings us full circle.
+**PS**
 
-...
+**The geraniums never really came in right, Gary. You owe me.**
+
+That's when I got home from the cheese convention and saw the dead rat in the beanie on my pillow. You remember? The one that came with a gift card that read, "Gary Kraft? That's the kind of name look real good on a tombstone."
+
+So now you know my story and we've come full circle.
 
 ***Three detectives just left my apartment. Betty Lou busted out of the looney bin last night.***
 
