@@ -1,3 +1,5 @@
+Triggered Warning: Animal abuse 
+
 I was sitting in my garden sipping a cup of coffee when I saw a flash of light in the dark sky and heard a loud noise. I went to check what happened since nobody seemed to notice the noise.
 
 I reached the area and a large chunk of forest was cleansed. There was nothing to be found but then I heard a noise from somewhere. I looked around and saw a baby in a basket behind the bushes.
@@ -21,7 +23,7 @@ I went to the kitchen to prepare my breakfast and when I came out I saw my cat d
 
 When police arrived they saw the home empty with a dead cat lying on the floor. They called me and asked where I was and where the baby was. I replied to them that the baby is not normal to be aware and stay safe. When I returned home I saw two ambulances and other police officers in front of my house. Apparently, two police officers were found dead in my home and there was no baby.
 
-They suspected me for the death of two police officers. After they checked the CCTV, they found that there was nobody in the home except a police officer and both policemen were running and hiding from something not visible on camera and shot each other dead at the same time.
+They suspected me for the death of two police officers. After they checked the CCTV, they found that there was nobody in the home except police officers and both policemen were running and hiding from something not visible on camera and shot each other dead at the same time.
 
 I asked them to check the footage of last night when I brought the baby home.
 In the footage, there was no baby. I seem to be pretending to hold something in the air and my cat was scared of something but there was no kid in the picture.
