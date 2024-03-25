@@ -1,22 +1,30 @@
 Three detectives just left my apartment. Betty Lou busted out of the looney bin last night.
 
-That explains the deceased and eviscerated rat in the day-glow orange, knit wool hat I found on my pillow this morning. The rat came with a gift card. It read, "Gary Kraft? That's the kind of name look real good on a tombstone."
+That explains the eviscerated rat in the day-glow orange, knit wool hat I found on my pillow this morning. The rat came with a gift card. It read, "Gary Kraft? That's the kind of name look real good on a tombstone."
 
-Good thing I was out of town in Madison, on my first vacation since Covid, for not just one, but two conventions; comic books(1) & cheddar cheese(2).
+Good thing I had been in Madison, enjoying my first vacation since Covid, attending not just one, but two conventions; comic books & cheddar cheese.
 
 Sometimes it's better to be lucky than extra-sharp.
 
-Now, my thought first and foremost is that this would be a good time for leaving town. My second thought as a desperate man would have been to request lawyers, guns and money as the shit had hit the fan.
+Now, my first, and foremost thought is that this would be a good time for leaving town. My 2nd thought as a desperate man would be to request lawyers, guns and money as the shit had hit the fan.
 
-I haven't even unpacked from Wisconsin; it's like kismet. I can go expat. Betty Lou won't be able to find me, not even if she manages to get out of the country with everybody manhunting her. Especially, if I keep moving. Maybe they'll catch her. Except this time, they'll have to do it without me. Shit. Who am I kidding? Dead man typing. I going to get **DOA**\*'d\*. That girl *is* poison and I was born under a bad sign.
+I hadn't even unpacked from Wisconsin. I could go right back to the airport.
 
-Yeah, you see; I dropped a dime on Betty Lou. She did not take it well.
+Betty Lou won't be able to find me, not even if she manages to flee the country with everybody Tommy Lee Jonesing her.
+
+Anyway, they'll probably catch her. Except this time, they'll have to do it without me.
+
+Shit! Who am I kidding? Dead man typing. I'm going to get **Crystal in the Lake'd.**
+
+Why? Fair question.
+
+You see; I dropped a dime on Betty Lou. She did not take it well.
 
 "I'll get you Gary Kraft." Betty Lou seethed through clenched teeth and snotted nose.
 
 ***"I'll get you if it's the last thing I do!"***
 
-Snot and spittle had erupted from her nose and mouth to tango furiously as she wished me dead. Her mucous membrane sonata continued unabated, even as two burly cops led her away forcibly. Betty Lou strained against the cuffs all the way to a waiting SUV, her short muscular legs, honed over years playing rugby in the Ivy League, furiously kicking. 
+Snot and spittle had erupted from her nose and mouth to tango furiously as she wished me dead. Her mucous membrane sonata continued unabated, even as two burly cops led her away forcibly. Betty Lou strained against the cuffs all the way to a waiting SUV, her short muscular legs, honed over years playing rugby in the Ivy League, furiously kicking.
 
 "The fucking stench!?! What the fuck!?!?!" bellowed one of the cops.
 
@@ -223,7 +231,7 @@ Betty Lou arrived looking around for me. Our eyes met and we were soon seated by
 
 Betty Lou put up her hand and shook her head as if to say, no. I said, "Okay."
 
-Dinner was not fun. As we ate Betty Lou behaved oddly, asked me if I had considered Lasik surgery. Then she asked me if I ever thought about getting a hobby. Then she babbled something about the Zombie Apocalypse. Her hands made spastic gestures and I feared for the lady sitting to her right.
+Dinner was not fun. As we ate Betty Lou behaved oddly, asked me if I had considered Lasik surgery. Then she asked me if I ever thought about getting a hobby. Then she babbled something about the Zombie Apocalypse. Her hands made spastic gestures. I feared for the lady sitting to her right.
 
 As we neared the end of our absolutely unlovely dinner Betty Lou said, “There’s something that’s really bothering me. Are we still having a, ‘casual and low key’…,” her hand made a vague Italian gesture that came a little too close to the lady to her right's face. I winced.
 
@@ -279,7 +287,11 @@ I watched Betty Lou knit for a moment then said, “No, I don’t want to see yo
 
 “Even if I still want to see you?”
 
-“If you’re seeing other, erm, *people*, then you aren't really very attracted to me, are you? And if you’re seeing other, erm, people, and thinking of me then that's above my pay grade.”
+"That's right," I said.
+
+"But why?" she asked.
+
+“Well, if you’re seeing other, erm, *people*, then you aren't really very attracted to me, are you? And if you’re seeing other, erm, people, and thinking of me then that's above my pay grade.”
 
 Betty Lou was quiet. Finally, she said, “I respect that.”
 
@@ -349,7 +361,7 @@ The woman who had half-smiled looked at me again. I smiled.
 
 “Really good,” she said and smiled.
 
-The waitress returned and the I tapped for dinner. The waitress thanked me and disappeared again.
+The waitress returned and then I tapped for dinner. The waitress thanked me and disappeared again.
 
 I put on my raincoat and buttoned it up to my neck then turned up the collar. I adjusted my fedora and said, “Have a good night,” to the nice lady.
 
@@ -363,7 +375,7 @@ That night I walked home doing my crying in the rain. I was done. Let it be.
 
 I got an email from Betty Lou. It was a forwarded mass email from her neighborhood's community garden group. Betty Lou had FWD'd it to me just before midnight. It read:
 
-<Generic Community Garden Stuff>                                                    
+<Generic Community Garden Stuff>                                                                  
 
 
 ***FYI. Hope you're well.***
@@ -478,17 +490,17 @@ And there it was. The most disgusting thumb I have ever seen. You can't really e
 
 I felt my eyebrows stretch. I covered my face.
 
-"OKAY!? You've seen my green thumb. You know now but you still need to see. You're fucked up. You know that?"
+"OKAY!? One green thumb before your eyes. You must be some kind of real narcissist, you know that, Gary?"
 
-I tried to point and not faint. Betty Lou looked at the big bandage that was shaped like a thumb. It was green, red, black and every fetidious color Satan's interior decorator could envision.
+I tried to point before I lost consciousness. Betty Lou looked at the big thumb shaped bandage. It was green, red, purple, brown, yellow, every fetid color in Satan's swatches.
 
-"Oh. You want me to put the bandage back on, now?! This is getting exasperating, Gary."
+"Oh. You want me to put it back on, now?! Jesus Fuckin' Christ, Gary."
 
 Betty Lou pushed the bandage back down over her green thumb and pus and shit oozed down her hand. Then my walk through the valley of the shadow of death with Betty Lou continued. More pictures. It was like Lizzie Borden and Charles Manson made a baby named Betty Lou. And she was showing me her mud pies. Only they were dead people.
 
 "Soooo...," Betty Lou finally said. "The secret is dead fucking people who can't get it up or give me a free pass but give me a free pass and then get all needy after wanting to be cucked; well.
 
-When I saw how the tulips responded to Paolo, well Gary, for the first time I realized it wasn't me all this time. It's the world. It was waiting for me to show it what's wrong with it.
+When I saw how the tulips responded to Tommy, well, for the first time I realized it wasn't me at all. It's the world. It's the world that's fucked up.
 
 After that there was Bruce for the Begonias, Ted for the roses. I tried to find a Rose or Rosario but Ted was such a simp. I just, well, I'm well adjusted and put a knitting needle in his eye in the garden late one night after sex."
 
@@ -516,13 +528,13 @@ And that's how it went down horror fans. Just the next night. Right in the Ramen
 
 ***"I'll get you Gary Kraft." Betty Lou seethed through clenched teeth and snotted nose."I'll get you if it's the last thing I do!"***
 
-Of course, I immediately had dropped a dime on Betty Lou. Turned out Betty Lou had been doing this since college. When all was said and done they put Betty Lou away in an institution for the criminally insane.
+Of course, I immediately had dropped a dime on Betty Lou. Turned out Betty Lou had been doing this since college. It did not take long before Betty Lou was placed in an institution for the criminally insane.
 
-The city was grateful to me for helping them crack what they referred to as, "The Knitting Needle Killer," case. I asked them to keep my name out of it all and they told me that they would do their best as one of Betty Lou's victims had been the son of a prominent Afghani heroin trafficker.
+The city was grateful to me for helping them crack what they referred to as, "The Knitting Needle Killer," case. They told me it was all strictly hush hush and I should never speak of this again; to *anyone*.
 
 I didn't know what that had to do with me but when men who looked like they've never cracked a smile in their entire lives give you a free pass you take it and say thanks.
 
-So, there you have it. Everything was swell again. I survived the horrors of 2023, Betty Lou was somewhere she could get the help she so desperately needed and well, there was plenty of sharp cheddar and comics in Madison, Wisconsin.
+So, there you have it. Everything was swell again. I survived the horrors of 2023, Betty Lou was somewhere she could get the help she desperately needed and well, I was eating cheddar and reading golden age comics.
 
 ...
 
@@ -530,7 +542,7 @@ So, there you have it. Everything was swell again. I survived the horrors of 202
 
 Subject:  Free Pass
 
-There was a picture of a hand missing a thumb.
+There was a picture of a hand sans thumb.
 
 The caption read,
 
@@ -544,7 +556,7 @@ At the bottom, there was a postscript.
 
 That's when I got home from the cheese convention and saw the dead rat in the beanie on my pillow. You remember? The one that came with a gift card that read, "Gary Kraft? That's the kind of name look real good on a tombstone."
 
-So now you know my story and we've come full circle.
+So now we've come full circle.
 
 ***Three detectives just left my apartment. Betty Lou busted out of the looney bin last night.***
 
