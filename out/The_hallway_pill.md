@@ -23,7 +23,7 @@ The waves of guilt rolled off me as I stepped into the building. Well, it looked
 
 I plucked the card from his hand to squint at the thick text: 
 
-"Apologies, I have Bronco's Aphasia, a rare malfunction of the language processing cortex of the..." 
+"Apologies, I have Broca's Aphasia, a rare malfunction of the language processing cortex of the..." 
 
 it went on.
 

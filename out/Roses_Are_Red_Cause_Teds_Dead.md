@@ -219,7 +219,7 @@ That night a cold rain fell steady on the Brooklyn streets casting a muted glow 
 
 I took a look.
 
-"Heads up. I'm gonna get into my feelings."
+"Fair warning. I'm gonna get into my feelings."
 
 "Duly noted," I texted back and thought the night was showing signs of not working out well for me.
 
@@ -375,7 +375,7 @@ That night I walked home doing my crying in the rain. I was done. Let it be.
 
 I got an email from Betty Lou. It was a forwarded mass email from her neighborhood's community garden group. Betty Lou had FWD'd it to me just before midnight. It read:
 
-<Generic Community Garden Stuff>                                                                  
+<Generic Community Garden Stuff>                                                                      
 
 
 ***FYI. Hope you're well.***
@@ -512,7 +512,7 @@ I tried not to breathe too deep.
 
 "Yeah," she said, giving me a look that wondered if I was stupid. I knew that look. I got it a lot. Sometimes even in the mirror.
 
-"Now that you see I can do everything and I'm younger you should just give me a free pass because I am well-adjusted and you know you're hot for me."
+"Now that you see I know everything and I'm ten years younger, you should just give me a free pass already. You know you're hot for me."
 
 I nodded as if to say, ah, now it all makes sense.
 
