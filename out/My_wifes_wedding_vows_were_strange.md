@@ -1,4 +1,4 @@
-“I will be there for you, day or night, and the times between,” She said.
+“I will be there for you, day or night,” She said. "And the time between times."
 
 That raised an eyebrow, but not my suspicions.
 
