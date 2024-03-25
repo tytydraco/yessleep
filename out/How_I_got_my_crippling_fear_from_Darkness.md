@@ -11,7 +11,7 @@ I grabbed my lighter and tried to lit my smoke. In a split second from the spark
 My smoke wasn't lit. I was hesitant to light my cigarette. But I wanted to make sure I wasn't seeing things. I lit my smoke.
 That thing is very real, no hallucinations. For a brief moment I saw a man or woman, not sure, but slim and tall figure around 6ft, looked slightly taller than me. I couldn't make out the facial feature.
 
-Thanks to my lit cigarette whenever I inhale, the tip of my cigarette would brighten little bit. I could barely see the figure. I tried my best to look at it's face. But it was too dim to see any facial feature all I could make out was it was bald and naked. It was motionless. Standing approximately 2-3 meters in front of me.
+Thanks to my lit cigarette whenever I inhale, the tip of my cigarette would brighten little bit. It would illuminate barely enough to reveal orange humanoid figure standing in front of me. I could barely see the figure. I tried my best to look at it's face. But it was too dim to see any facial feature all I could make out was it was bald and naked. It was motionless. Standing approximately 2-3 meters in front of me.
 
 "Should I talk to him? No it's too dangerous I should turn back now and get my phone and call police. Alone, naked in a forest? He definitely has mental issues. Who knows what he would do if I try to interact with him. Let's play it safe" I thought
 
@@ -47,7 +47,7 @@ I turned around started walking slowly then the wind behind me stopped blowing. 
 
 Suddenly that thing tugged my hair, I let out a loudest scream I have never imagined I could make. Took a full swing in every direction just punching empty air, I darted to  random direction face planted into a tree. I tried to climb that tree but the branches kept snapping off. I held the branch as hard as I can and started flailing wildly in every direction. Not sure how much time passed but it felt like forever, my adrenaline ran out, I grew tired. I realized that whole stick was broken off and I was just holding piece of it. My fist started hurting real bad it seemed like I punched some trees while flailing like crazy. I burst into tears crying, hoping sun would come soon. I started crawling on all four eventually I stopped crawling and just lied in fetal position.
 
-I woke up to sharp stinging pain. I was back in the house, my grandparents were looking at me worried sick. And there was a doctor and police surrounding me. I said "Thank god you found me!" They asked me if someone attacked me and what happened last night? etc I told them everything. They were very dumbfounded by my story. They asked me if I used drugs or perhaps alcohol. I was mad I told them I drank 2 small cans of beer last night and I wouldn't get drunk from that no one would! I was sober whole time. Then they said something that shook me to my core. They said.
+I woke up to sharp stinging pain. I was back in the house, my grandparents were looking at me worried sick. And there was a doctor and police surrounding me. I said "Thank god you found me!" They asked me if someone attacked me and what happened last night? etc I told them everything. They were very dumbfounded by my story. They asked me if I used any medications or perhaps alcohol. I was mad I told them I drank 2 small cans of beer last night and I wouldn't get drunk from that no one would! I was sober whole time. Then they said something that shook me to my core. They said.
 
 "sir... there is no forest around here not a single tree"
 
