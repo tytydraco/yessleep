@@ -208,4 +208,4 @@ And I, I took it the worst of all, immediately turning to the ravine and gagging
 
 A few minutes later, Mike and Jess were digging through the mud, searching for the clue, as I watched on in horror, switched  tape "1" for tape "2", and pressed play.
 
-CLICK.
+[CLICK](https://www.reddit.com/r/nosleep/s/G1w8AmUz0L).
