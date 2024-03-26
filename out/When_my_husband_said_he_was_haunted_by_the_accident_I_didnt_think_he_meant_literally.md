@@ -1,6 +1,6 @@
 My husband, Howard, had been working away for a few days. On his way home, he lost control of his car during a downpour and crashed into another car. He got lucky. The other vehicle wasn't so fortunate, crashing into a transmission tower. The driver was a single mom, her 5 year old son in the back. Neither survived.
 
-As the months went by, Howard was plagued with guilt. I suggested therapy but he refused. I had to remind him daily that it wasn’t his fault. That he was a good man, a wonderful husband, and a great father to our 7 year old son, Oscar.
+As the months went by, Howard was plagued with guilt. I suggested therapy, but he refused. I had to remind him daily that it wasn’t his fault. He was a good man, a wonderful husband, and a great father to our 7 year old son, Oscar.
 
 “They haunt me, Sasha,” he’d say, his hands shaking. I can only imagine what that kind of experience will do to a person's mind. One of the hardest things was trying to explain to Oscar why daddy was always sad and didn’t want to play games anymore.
 
@@ -10,7 +10,7 @@ One night, I was jolted awake by screaming.
 
 “It was just a bad dream,” I said, trying to console him.
 
-“No,” he screamed, pointing to the corner of the room. “She’s here, she won’t leave me alone!”
+“No,” he screamed, pointing to the corner of the room. “She’s here. She won’t leave me alone!”
 
 Our bedroom was empty, but I jumped as Oscar made a sudden appearance.
 
@@ -52,7 +52,7 @@ We visited Howard that weekend. Oscar’s grandparents took him out for ice crea
 
 Howard shifted uncomfortably. “Are you serious?”
 
-“I don’t think it’s anything to worry about. I did a bit of research, it’s completely normal for a lot of kids.”
+“I don’t think it’s anything to worry about. I did a bit of research. It’s completely normal for a lot of kids.”
 
 He let out a long breath. “You’re probably right, Sasha. The poor kid’s been through a lot, what with having a crazy dad and all.”
 
@@ -66,7 +66,7 @@ I squeezed his hand. “I think that would be good for you. We want you back hom
 
 “He’s such a good boy,” I said. “No trouble at all. But he’d love a weekend with dad.”
 
-Sure enough, Oscar was excited about spending the whole weekend with Howard. I heard him talking to his new “friend” about it as they played. But one evening as I was making dinner, I was startled by several bangs coming from Oscar’s bedroom.
+Sure enough, Oscar was excited about spending the whole weekend with Howard. I heard him talking to his new “friend” about it as they played. But one evening, as I was making dinner, I was startled by several bangs coming from Oscar’s bedroom.
 
 “Stop it!” I heard him cry.
 
@@ -84,7 +84,7 @@ He held up one of his toy cars. The front of it was mangled, like it had been sm
 
 “Lucas hit it on the floor,” he said, pointing to a spot. There was a mark on the wooden floorboards. It was hard to believe that my 7 year old son could cause such damage. It was harder to believe that his imaginary friend had done it.
 
-“Oscar, if you don't want to stay with daddy you don't have to.”
+“Oscar, if you don't want to stay with daddy, you don't have to.”
 
 “I do!” he said. “But Lucas said daddy scares him.”
 
@@ -92,9 +92,9 @@ It felt like something walked over my grave. “Be honest with me, sweetheart. D
 
 He started crying. “I want dad to come home.”
 
-“Me too,” I said, hugging him as I looked around the room. I kissed the top of his head. “Go wash your hands, sweetheart. Dinner’s almost ready.”
+“Me too,” I said, hugging him as I looked around the room. I kissed the top of his head. “Go wash your hands. Dinner’s almost ready.”
 
-Oscar had never done anything like that before. He was having a harder time with the situation than I thought. That night I searched Google for advice. It appeared that once again, such behaviors were normal in some children. He potentially had repressed anger as a result of Howard leaving us.
+Oscar had never done anything like that before. He was having a harder time with the situation than I thought. That night, I searched Google for advice. It appeared that once again, such behaviors were normal in some children. He potentially had repressed anger as a result of Howard leaving us.
 
 The following Friday, I helped Oscar pack a weekend bag.
 
@@ -114,11 +114,11 @@ Howard came to pick Oscar up in the afternoon. It was so cute seeing our little 
 
 “I’ll drop him back Sunday,” said Howard, giving me a kiss. “Love you, Sasha.”
 
-“Love you,” I smiled. “Have fun boys!”
+“Love you,” I smiled. “Have fun, boys!”
 
 I waved them goodbye, trying not to worry too much. They both needed this. I was hopeful that it would be the catalyst for Howard coming home. In the meantime, I had a free weekend. Since Oscar was born, I hadn’t spent a single night away from him. Some girlfriends were coming over for takeout pizza and wine. For the first time in years, I didn’t have to be a responsible mom.
 
-That evening I got the inevitable topic of Howard’s departure out of the way so I could let my hair down. We drank, danced, and played rummy. I even smoked a few cigarettes. It was just like my college days, albeit with good wine rather than cheap vodka.
+That evening, I got the inevitable topic of Howard’s departure out of the way so I could let my hair down. We drank, danced, and played rummy. I even smoked a few cigarettes. It was just like my college days, albeit with good wine rather than cheap vodka.
 
 As the evening wound down, it was just one friend remaining. She called an Uber, then used the upstairs bathroom.
 
@@ -134,9 +134,9 @@ My blood ran cold. “What?”
 
 I’ll admit it took me some time to go upstairs when she left. My heart raced as I pushed Oscar’s bedroom door open. There were some toy cars on the floor. I asked myself, had they been left there? Oscar was usually pretty good at keeping his room tidy.
 
-The next morning I cleared the empty wine bottles and pizza boxes with a slight headache. I lit one of my scented candles to mask the hint of tobacco that lingered. When Oscar started pre-school, Howard converted our garden shed into a mini workshop. I made and sold scented candles on Etsy. It didn’t break the bank, but it covered our streaming subscriptions and kept me sane when daytime boredom struck.
+The next morning, I cleared the empty wine bottles and pizza boxes with a slight headache. I lit one of my scented candles to mask the hint of tobacco that lingered. When Oscar started pre-school, Howard converted our garden shed into a mini workshop. I made and sold scented candles on Etsy. It didn’t break the bank, but it covered our streaming subscriptions and kept me sane when daytime boredom struck.
 
-After breakfast, I went to the shed to work on more candles. I have an electric powered melting pot made specifically for wax. I began the process of melting small beads of soy wax, adding a pine scented oil. I found it very relaxing. After a while, I saw the shape of someone walk past the shed window.
+After breakfast, I went to the shed to work on more candles. I have an electric powered melting pot made specifically for wax. I began the process of melting small beads of soy wax, adding a pine scented oil. I find it very relaxing. After a while, I saw the shape of someone walk past the shed window.
 
 “Hello?” I said, looking around the garden. I couldn’t see anyone.
 
@@ -150,7 +150,7 @@ I shook my head. “You’re the first person I’ve seen today. Is he a friend 
 
 “He is.”
 
-“Sorry, I thought I knew all of his friend’s parents. Oscar isn’t here at the moment, he’s with his dad.”
+“Sorry, I thought I knew all of his friend’s parents. Oscar isn’t here at the moment. He’s with his dad.”
 
 “I see,” she said, looking disappointed.
 
@@ -176,11 +176,11 @@ I felt gooseflesh on my arms. “Excuse me?”
 
 “No, tell me who you are!”
 
-I felt so uncomfortable as I was left alone in the garden, heading back to the house. A little later, I drove to the grocery store. I triple checked that I had locked all doors and windows before leaving, paranoid that the woman would come back. I walked down the aisles on autopilot, my head elsewhere. I couldn’t stop thinking about her. There was a part of me that felt like I knew her from somewhere too.
+I felt so uncomfortable as I was left alone in the garden, heading back to the house. A little later, I drove to the grocery store. I triple checked that I had locked all doors and windows before leaving, paranoid that the woman would come back. I walked down the aisles on autopilot, my head elsewhere. I couldn’t stop thinking about her. There was a part of me that felt like I knew her from somewhere, too.
 
-That evening I sat in front of the TV, but paid no attention to it. I wanted nothing more than my family back. I didn’t want to be alone. As I contemplated calling a friend for company, I heard a noise coming from upstairs. My heart rate increased but I chose to ignore it. Instead, I called a friend after all. A loud bang came from upstairs, making me freeze. I hung up as voicemail kicked in.
+That evening, I sat in front of the TV but paid no attention to it. I wanted nothing more than my family back. I didn’t want to be alone. As I contemplated calling a friend for company, I heard a noise coming from upstairs. My heart rate increased, but I chose to ignore it. Instead, I called a friend after all. A loud bang came from upstairs, making me freeze. I hung up as voicemail kicked in.
 
-“I’m going to call the police!” I called out. My hands shook as I climbed the stairs, clinging to the steel mallet that came with our kitchen knives. I’d never used the damn thing before but it was a good weapon should I need to protect myself. The closer I got to Oscar’s room, the sound of a child crying became more clear. I’d never been so scared as I pushed the door open to find a little boy on the floor, sniveling as he pushed toy cars around. I dropped the mallet.
+“I’m going to call the police!” I called out. My hands shook as I climbed the stairs, clinging to the steel mallet that came with our kitchen knives. I’d never used the damn thing before, but it was a good weapon should I need to protect myself. The sound of a child crying became clearer as I got closer to Oscar's room. I’d never been so scared as I pushed the door open to find a little boy on the floor, sniveling as he pushed toy cars around. I dropped the mallet.
 
 “Lucas?” I stuttered.
 
@@ -208,7 +208,7 @@ I almost fell down as the woman from earlier passed by me, helping Lucas up.
 
 “I… I don’t. Get out of my house!”
 
-“We’ll be waiting,” she said. With that, the closet door slammed shut. I ran back downstairs, grabbing my phone and keys. I got in my car, struggling to get the keys in the ignition. I drove out of our neighborhood, pulling over after several minutes. It took a while, but eventually I opened my phone and began a Google search.
+“We’ll be waiting,” she said. With that, the closet door slammed shut. I ran back downstairs, grabbing my phone and keys. I got in my car, struggling to get the keys in the ignition. I drove out of our neighborhood, pulling over after several minutes. It took a while, but eventually, I opened my phone and began a Google search.
 
 Imogen and Lucas, mother and son. They tragically died as a result of the car accident. Their faces and names should have stayed with me, but I’d pushed them aside in order to be stronger for my husband. He wasn’t losing his mind. They were haunting us.
 
@@ -238,7 +238,7 @@ I was in a bar with some young women. We were laughing about something.
 
 “I don’t usually do this kind of thing,” he said, “but can I buy you a drink?”
 
-“The thing is,” I said, “I’m with the girls and it’s my round.”
+“The thing is,” I said, “I’m with the girls, and it’s my round.”
 
 “How about this round's on me,” he said. “In exchange for your number.”
 
