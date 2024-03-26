@@ -211,3 +211,11 @@ Cook was fighting with a Stalker that had wrapped its rotted tentacle around his
 Brother’s plan didn’t work, however. Too many corpses kept flooding into the room, pushing us back further and further. We were surrounded on all sides. I saw the black, rippling silhouette of the Necromancer as he walked in triumphantly.
 
 “You will all die for your insolence,” he cried in a voice like shadows. “Kill them! Do not stop until they are all ripped to pieces.”
+
+&#x200B;
+
+Part 3
+
+[https://www.reddit.com/r/nosleep/comments/1bo92wi/i\_found\_a\_living\_train\_that\_slinks\_through\_the/](https://www.reddit.com/r/nosleep/comments/1bo92wi/i_found_a_living_train_that_slinks_through_the/)
+
+&#x200B;
