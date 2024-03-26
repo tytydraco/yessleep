@@ -326,7 +326,7 @@ I could see the haunted glint of *something* alive, something writhing and aware
 
 In the days following, even that began to dissipate, before I found him staring standing with his hands on the glass. 
 
-Blossom's crown was tighter on his head, blood coating clenched teeth. 
+Freckles' crown was tighter on his head, blood coating clenched teeth. 
 
 Blood. 
 
