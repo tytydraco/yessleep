@@ -220,7 +220,7 @@ Once we were alone again and my hand was taken care of, Ramy informed me that he
 
 As of right now, I'm safe at home, all gauzed up. It hurts to move, but again, this isn't my first chemical burn. And as far as injuries go, it could be worse. 
 
-I've only just started looking into it, but so far, I think the hoofed creature is another type of jinn. 
+I've only just started looking into it, but so far, I think the hoofed creature is [another type of jinn. ](https://www.reddit.com/r/nosleep/s/gowxKXdx9E). 
 
 
 
