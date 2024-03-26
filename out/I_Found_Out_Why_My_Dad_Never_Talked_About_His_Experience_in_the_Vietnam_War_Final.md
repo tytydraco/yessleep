@@ -102,7 +102,7 @@ Ash paused, the silence on the line stretching between us. "You know, Reine and 
 
 I nodded, even though he couldn't see me. "I completely understand. I normally wouldn't ask but… It's just... it's about my old man. He... he passed away recently," I admitted, the words heavy on my tongue.
 
-"Shit, dude. I'm sorry to hear that," Ash's voice softened. "Your dad was a great man. Tell me what you need."
+"Shit, dude. I'm sorry to hear that," Ash's voice softened. "Your dad was a great man... Alright, tell me what you need."
 
 I explained everything to him then—the story my dad had entrusted to me, his final wish to find Tuyet, and the very little I had to go on. I could hear Ash listening intently, the occasional "uh-huh" signaling his engagement.
 

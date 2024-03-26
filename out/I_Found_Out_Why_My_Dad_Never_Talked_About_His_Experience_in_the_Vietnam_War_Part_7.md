@@ -118,7 +118,11 @@ As we move cautiously through the aisles, the sounds of frantic activity reach u
 
 At the end of one aisle, a maintenance ladder is bolted to the wall, leading up to a narrow catwalk that runs the length of the storage area, crisscrossing overhead.
 
-We make a beeline for that ladder, moving as quietly as a group of heavily armed, slightly banged-up commandos possibly can. It's like some twisted game of hide and seek, with stakes much higher than any of us would like. Tuyet, with Luc clinging to his back like a little monkey, goes first. The kid's got a tight grip, but I can't help but admire her silence through all this. Kid's got guts.
+We make a beeline for that ladder, moving as quietly as a group of heavily armed, slightly banged-up commandos possibly can. It's like some twisted game of hide and seek, with stakes much higher than any of us would like. 
+
+Hùng scales the ladder first. At the top, he pauses, scanning the expanse of the cold storage facility from his elevated vantage point. 
+
+He gestures for us to follow. Tuyết hoists Lực up to Hùng, who carefully lifts the boy onto the catwalk. One by one, we follow.
 
 As we navigate the precarious catwalks above, the cold air bites at our exposed skin. The metal underfoot groans with every step. From this vantage point, we have a clear view of the facility's interior workings, a hive of activity.
 

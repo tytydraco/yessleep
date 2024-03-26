@@ -34,7 +34,7 @@ Tuyết heads to the far corner of the hut. She kneels, brushing away layers of 
 
 We follow her down, the air growing cooler as we descend. The staircase ends in a cavernous space, the walls lined with shelves that groan under the weight of their cargo. Our flashlight beams dance across crates stamped with Cyrillic and Chinese characters.
 
-Tuyết doesn't hesitate, prying open the nearest crate with her machete, revealing an arsenal of neatly arranged AK-47s.
+Tuyết doesn't hesitate, prying open the nearest crate with a crowbar she brought along, revealing an arsenal of neatly arranged AK-47s.
 
 The other crates are filled with a guerrilla's treasure trove. RPD light machine guns, RPG-7s, and crates of ammunition sit alongside boxes of grenades and satchels of explosives.
 
@@ -74,7 +74,7 @@ As we draw closer to the drainage system, I signal for a halt, crouching low beh
 
 A lone guard tower stands sentinel over the entrance, its silhouette stark against the starlit sky. The solitary figure of a sentry, manning a .50 caliber machine gun is visible. His posture is relaxed, unaware of the eyes trained on him from the shadows.
 
-Tuyết slips forward with her scoped SKS in hand. She finds her position, a natural hollow that offers both a clear line of sight and camouflage. She settles in, her breathing controlled, waiting for the right moment.
+Tuyết slips forward, finding her position, a natural hollow that offers both a clear line of sight and camouflage. She settles in, her breathing controlled, waiting for the right moment. She carefully shoulders her SKS, her fingers making precise adjustments to the scope.
 
 The distant thrum of a CH-47 Chinook approaches, its heavy blades cutting through the air with a sound like rolling thunder. Tuyết's eyes narrow, her focus absolute as she aligns her sight with the oblivious sentry.
 
