@@ -1,0 +1,26 @@
+   When I was around 7, I had a friend named Elijah. We lived in Detroit, and for his birthday that year we drove out to Taylor to go to a restaurant. It was a small building in a strip mall, and had a broken light up sign that read, "Goober's Hotdogs and Games". There was a unfittingly small cutout of a penguin character above the sign, almost indistinguishable from wear and tear. 
+
+   My mom and I met up with Elijah and his parents outside the building. I remember our parents talking about having came here when they were young, but neither me or Elijah had ever heard of it. When we walked in, it seemed significantly bigger on the inside. But it was in a strip mall, so it was probably just larger than the surrounding buildings. There were a few booths attached to the left wall, and a dozen or so arcade cabinets to the right. There was a small prize booth attached to a bar in the corner, and in the center was a stage. 
+
+   The stage was empty. The only thing on it was a small sign that read, "Out of order", stuffed into one of the stage's four holes. However, next to it was a mascot suit of a Hotdog. Rather than dancing or waving however, he just stood there. If it weren't for the loud breathing, I don't think any of us would've been able to tell it wasn't a statue. 
+
+   But we didn't stay in that room for long. An employee quickly lead us to a door in-between the booths and bar labeled, "Party room." Walking inside, there were two party tables and around 5 games. There was a large stage at the back of the room, covered up by curtains. Me and Elijah played arcade games, waiting for more children to show up. But when none did after an hour, his mom enthusiastically urged us to get ready for the show. 
+
+   Our moms ordered us "Gooberdogs", which were just normal chili dogs with a pinkish orange sauce on them. And then, the curtains pulled back. On the stage were two animatronics, in surprisingly good condition. One was a penguin wearing a green bow tie. A sign hanging from the ceiling labeled it as being Goober. Next to him was a much taller lion animatronic labeled Sphinx. Suddenly, he Hotdog mascot walked in the party room and onto the stage, in between the two animatronics. 
+
+   
+ "Happy birthday, Elijah! We wish you a very Goober-day! And remember to come to me after the show for your super special birthday surprise!" The Hotdog stepped off the stage, walking over to a door to the right of the stage. After that, the animatronics suddenly rose to life, singing happy birthday. I had been to Chuck-E-Cheese before, so I knew what animatronics were meant to do. These didn't do thar. Goober simply looked back and forth, its bowtie spinning around every few seconds. Sphinx's head, not its mouth, but its head, would lift up and down while its arms moved, far too fast. Halfway through the third version of happy birthday, they suddenly went still and silent. 
+
+   The Hotdog clapped weakly before calling out, "Elijah, please come to the Hotdog for your birthday suprise!" Me and Elijah walked over to the mascot, but I was stopped by him. "Sorry kid, but this is a birthday boy only zone! You can go redeem your Goober-Tickets at the prize counter!" 
+
+  I shrugged and walked into the main room with my mom. I bought a whoopee cushion and a plastic slinky, ready to go check on Elijah when his dad burst through the front door. Him and my mom started talking, and she seemed very worried. When I asked what was going on, I was grabbed by someone behind me. It was my friend Collin's mom, looking worried. I was led outside into her car, and talked to Collin. He told me kids had gone missing there, and it just recently reopened after a year of being closed. Said all of the suspects had been fired, and they even sold the company. I got so caught up in the story, I hardly noticed when the cops arrived.
+
+   In fact, Collin only stopped talking when Elijah's parents came out, crying. Followed by a man in handcuffs. I didn't understand when my mom hurriedly rushed me home, or why I didn't see Elijah at school the next week. Or the week after that. 
+
+   It was never officially told to me what happened until I was 15. I had figured it out for myself at the age of 12. I never went back in that area after that, but when I came back to Detroit to visit my parents years later, I drove past that strip mall. There was no more Goober's. It had been replaced with a nail salon. 
+
+   I asked my mom about it all when I saw her. But she said she had no memory of a place called Goober's. After doing some research online, I found no mention of a place called Goober's. The few mentions of Elijah's death I could find online claimed he went missing at a playground. Both Collin and Elijah's families had moved away to who knows where shortly after Elijah's dissapearance. 
+
+   This has all made me feel like I'm going insane. So, I looked in my childhood room. Digging through my room, and eventually the basement, I found it. A small, plastic slinky with a penguin mascot and the word, "Goober's", on it. 
+
+   I don't know what exactly is going on, but I know it was real. I figure maybe other kids around at the time might have heard of this place, so I have to ask, has anyone else ever heard of a place called Goober's?
