@@ -304,8 +304,4 @@ So, if you, or your child, should ever happen to see her—just remember this rh
 
 *And if she takes you from your bed*
 
-*Beg Edith let you go instead*
-
-&#x200B;
-
-[X](https://www.reddit.com/r/DukeOfDepravity/)
+*Beg Edith let you go* [*instead*](https://www.reddit.com/r/DukeOfDepravity/)
