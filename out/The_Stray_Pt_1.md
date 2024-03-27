@@ -1,3 +1,6 @@
+[All Stray Stories](https://www.reddit.com/u/BlackPepper445/s/gJMtVramtx)
+
+
 “Click…” 
 “Sounds of a tape whirring, chairs being pulled out and sat in”
 
@@ -11,7 +14,7 @@
 
 “I remember her being more joyful then usual holding her hands behind her back, when I asked how her day was she smiled and stepped aside to revealed the dog she was hiding behind her”
 
-She said “I saw her just wondering around downtown on my way from work, he looked so tired and lost I couldn’t just leave her” with joy in her voice
+She said “I saw her just wondering around downtown on my way from work, she looked so tired and lost I couldn’t just leave her” with joy in her voice
 
 “You see Doc?, that’s just the type of person she is… was” I corrected myself trying to hide the dread in my voice
 
