@@ -31,7 +31,7 @@ We're being experimented on, and I can only hope it can save the rest of you. I 
 
 I'm fucking scared. Real fucking scared.
 
-This phones about to die, so please. Remember.
+This phones dying soon, so please. Remember.
 
 If you have these holes, just kill yourself. It's the only way to stop it.
 
