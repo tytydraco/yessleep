@@ -208,7 +208,7 @@ Among my own anguish, I could sense something else: Ramy. His ferocity, his prid
 
 The blaze within my limbs continued to rage as Ramy used my mouth to grin at the distraut, masked man across the room, "You want to be a hero, magician?"
 
-When Ramy spoke with my voice, it sounded far too confident and deep to have possibly been mine. He stood slowly, his movements calculated, watching for any slip-ups from the PPE guy. Any signs of weakness for him to exploit. 
+When Ramy spoke with my voice, it sounded far too confident and deep to have possibly been mine, his accent the biggest giveaway that I wasn't the one in control anymore. He stood slowly, his movements calculated, watching for any slip-ups from the PPE guy. Any signs of weakness for him to exploit. 
 
 Thinking of another human being as prey... it *wasn't* a good feeling. 
 
@@ -222,7 +222,7 @@ He wasn't specific enough. There was a lot that Ramy could do to him without kil
 
 But I can't control him. He'd already made up his mind. 
 
-"Of course!" My lips said with an earnest smile. "Just remove that talisman and we'll call tonight a stalemate. Sound good?"
+"Of course." My lips said with an earnest smile. "Just remove that talisman and we'll call tonight a stalemate. Sound good?"
 
 The PPE guy cautiously, nervously picked the talisman off of the dead man's torso. Ramy observed every moment, looking for some opening where he could get the talisman out of this man's hand. He intended to leave the PPE man a vegetable, trapped in his own body, unable to move or communicate. 
 
