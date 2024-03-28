@@ -128,4 +128,4 @@ Till next time.
 
 &#x200B;
 
-Pt 2- https://www.reddit.com/r/nosleep/comments/1bn9wjb/beyond\_dollar\_general\_beyond\_pt\_2/?utm\_source=share&utm\_medium=web3x&utm\_name=web3xcss&utm\_term=1&utm\_content=share\_button
+Pt 2- https://www.reddit.com/r/nosleep/comments/1bo634z/beyond\_dollar\_general\_beyond\_pt\_2/?utm\_source=share&utm\_medium=web3x&utm\_name=web3xcss&utm\_term=1&utm\_content=share\_button
