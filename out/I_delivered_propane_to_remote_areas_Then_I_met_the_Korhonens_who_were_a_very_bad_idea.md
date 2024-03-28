@@ -12,7 +12,7 @@ On that August day, I would have easily made it to their place by noon if not fo
 
 The Korhonens lived quite deep in the bush, in an area I wasn't used to delivering to, and the way was longer than it had looked on the map.
 
-When I arrived at their property gate it was already evening, and further darkness seemed to be drifting in on the unseasonably cold breeze. I tried their phone again (no answer), then called out into the wild: no response. I had the code to the gate and could see a building down the gravel driveway, so I opened it and drove through. Nothing caught my eye except for a line of small white stones encircling the homestead —including across the driveway—but my truck had no issue getting over it.
+When I arrived at their property gate it was already evening, and further darkness seemed to be drifting in on the unseasonably cold breeze. I tried their phone again (no answer), then called out into the wild: no response. I had the code to the gate and could see a building down the gravel driveway, so I opened it and drove through. Nothing caught my eye except for a line of small white stones encircling the homestead—including across the driveway—but my truck had no issue getting over it.
 
 The building looked like it was in the midst of repairs (again, not unusual) and had a clearly defined older section, a newer add-on and an attached metal shed. I parked the truck, got out and knocked on the front door. No one responded.
 
@@ -68,10 +68,10 @@ I eventually got back to the homestead and into my truck. I drove away. The minu
 
 They investigated but found no one imprisoned there, no signs of wrongdoing and no evidence the Korhonens had ever had a child, named Ahti or otherwise.
 
-But in the weeks, months and years followung the day on which I'd met Ahti Korhonen, some of the evil things I saw—I can confirm that they’ve come true. I do not doubt that everything I saw has or will soon come to pass. *All that suffering…*
+But in the weeks, months and years following the day on which I'd met Ahti Korhonen, some of the evil things I saw—I can confirm that they’ve come true. I do not doubt that everything I saw has or will soon come to pass. *All that suffering…*
 
 I no longer deliver propane.
 
 I still live in the area.
 
-To the best of my knowledge, the Korhonens are no longer resident on their property. But I went by once, a few months ago, and the place was still kept and clean, and the repairs were in a more advanced state than before. Just before I left, *I swear to you I heard* [*a banging.*](https://www.reddit.com/r/normancrane)
+To the best of my knowledge, the Korhonens are no longer resident on their property. But I went by once, a few months ago, and the place was still kept and clean, and the repairs were in a more advanced state than before. Just before I left, *I swear to you I heard a banging.*
