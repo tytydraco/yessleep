@@ -242,7 +242,7 @@ Duyên led me through the parking lot. As we walked, she glanced over at me.
 
 "Just call me Spencer," I replied, smiling.
 
-Alright, Spencer it is," she said with a nod.
+"Alright, Spencer it is," she said with a nod.
 
 As we stepped outside, the humidity enveloping me like a thick blanket, Duyen led me to our ride. My expectation of a car vanished when I saw a Honda Wave parked by the curb. My eyes widened in disbelief. "We're taking that?" I asked, gesturing to the small motorcycle, then to my suitcase.
 
@@ -316,7 +316,9 @@ As the initial pleasantries gave way to a comfortable silence, I took the opport
 
 Without a word, she stood and walked over to a corner of the room where a small altar had been set up. It was dedicated to honoring the dead, filled with incense, small offerings, and photographs of loved ones.
 
-Among the photos displayed on the altar, I spotted the old torn photograph of my father. Next to it, almost protectively, was a patch bearing the tiger insignia of the Rangers. With reverence, Tuyet placed the photograph of her younger self next to my dad's. The torn edges of the two photos aligned almost perfectly, as if they were matching pieces of a jigsaw puzzle that had been separated for far too long.
+Among the photos displayed on the altar, I spotted the old torn photograph of my father. In the photo, dad looked to be in his late teens or early twenties. He was wearing a simple, button-up shirt. There was a warmth to him, a youthful optimism that seemed to leap out at me.
+
+Next to it, almost protectively, was a patch bearing the tiger insignia of the Rangers. With reverence, Tuyet placed the photograph of her younger self next to my dad's. The torn edges of the two photos aligned almost perfectly, as if they were matching pieces of a jigsaw puzzle that had been separated for far too long.
 
 "It's hard to believe we were ever that young," she murmured, her stare lingering on the altar. "Life was simpler, in some ways, and so much harder in others."
 

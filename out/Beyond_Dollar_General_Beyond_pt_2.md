@@ -147,3 +147,5 @@ I have a meeting with Agent Cash tomorrow at noon.
 I will get to the bottom of this, and I will get Celene back.
 
 Even if it means I have to plunge right back into the Beyond to do it.
+
+Pt 3- https://www.reddit.com/r/nosleep/comments/1bps3zi/beyond_dollar_general_beyond_pt_3/?utm_source=share&utm_medium=web2x&context=3
