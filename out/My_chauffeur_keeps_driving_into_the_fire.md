@@ -192,8 +192,4 @@ Mr. Mooney’s eyes were bright and wide with a shimmer of that woeful, impendin
 
 The grin slowly came back to his face.
 
- “Nice nap, Mr. Mooney?” 
-
-&#x200B;
-
-[A.P.R.](https://www.reddit.com/r/aproyal/)
+ “Nice nap, Mr. [Mooney](https://www.reddit.com/r/aproyal/)?"
