@@ -1,29 +1,27 @@
-It’s been a long time since i’ve thought about home. I haven’t talked to my family in about a decade, and I honestly didn’t have any desire to — until I got a letter. 
+It had been a lifetime since I last set foot in my childhood home, a place brimming with memories both cherished and forgotten. Estranged from my family for over a decade, the mere thought of reconnecting felt like delving into a long-buried past, until a letter arrived, bearing the weight of unanswered questions.
 
-The letter was from my dad. It read all about what they had been doing in the past few years, and that he was “just reaching out to say hello” But of course, I turned the page and it was a plea for money. My mother had just passed away, and well, took all of her money with her. I’m not going into detail, but my father is essentially in a lot of debt. But then, he said something I most definitely wasn’t expecting. 
+The letter, penned by my father, served as a bittersweet reunion with the past. Amidst mundane updates and financial pleas, an unexpected apology lurked between the lines, cryptic and unsettling. His words stirred a dormant curiosity within me, triggering a flood of memories I had long suppressed.
 
-He apologized. He said he couldn’t say what for just yet, but that he would explain it all soon. Although I have no clue what that entails, it made me realize something. Not only had I not talked with my family, but I hadn’t thought about my childhood at all. I could barely even recall what happened throughout any of my life before I left. Luckily, I kept a journal that i wrote in all the time as a kid, so I just read through it and learned some disturbing information that I’ll share with you all now. 
+Rummaging through dusty boxes in the attic, I unearthed my childhood journal, its pages yellowed with age, yet brimming with secrets waiting to be unraveled. As I pored over each entry, the veil of forgetfulness lifted, revealing fragments of a past shrouded in mystery and darkness.
 
-Growing up, my family lived in a quaint old house with a rich history. It was the kind of place that felt warm and inviting during the day, but as night fell, an eerie atmosphere settled over the rooms like a thick fog. But there was one room in particular that stood out from the rest—a room that had been locked away for as long as anyone could remember. My parents always told me to stay away from it, warning that it was off-limits and not to be disturbed.
+Our old house, with its creaking floorboards and whispering walls, held secrets far deeper than I had ever imagined. There was talk of a forbidden room, its door sealed shut with warnings to keep at bay, a relic of a bygone era steeped in superstition and fear.
 
-Of course, being the curious kid that I was, I couldn't resist the allure of the forbidden room. I spent countless hours staring at its ornate door, wondering what secrets lay hidden behind it. But no matter how hard I tried, I could never shake the feeling that something dark and sinister lurked within.
+But curiosity, that relentless companion of youth, led me down forbidden paths. On the eve of my thirteenth birthday, fueled by a reckless desire to uncover the truth, I defied my parents' warnings and ventured into the heart of darkness.
 
-Then, on the eve of my thirteenth birthday, I decided to take matters into my own hands. While my parents were out for the evening, I crept down the hallway and fumbled with the lock until it finally gave way with a satisfying click.
+The room, cloaked in shadows, exuded an eerie aura that sent shivers down my spine. Strange symbols adorned the walls, their meanings lost to time, while dusty furniture lay scattered like forgotten relics of the past. And at the far end of the room stood a mirror, its surface tarnished and warped, a gateway to a realm beyond comprehension.
 
-With bated breath, I pushed open the door and stepped inside, my heart pounding in my chest. The room was bathed in darkness, the air heavy with the scent of dust and decay. I hesitated for a moment, the hairs on the back of my neck standing on end, but curiosity got the better of me, and I pressed on.
+With trembling hands, I reached out to touch the mirror's surface, only to be met with a chilling sensation that seeped into my bones. As if in response to my touch, the mirror shimmered and rippled, revealing a distorted reflection that bore no resemblance to my own.
 
-As I explored the room, I noticed strange symbols etched into the walls, their meaning lost to time. Old furniture lay scattered about, covered in cobwebs and draped in faded sheets. But it was the mirror at the far end of the room that caught my attention—a mirror so tarnished and warped that it barely reflected my own image.
+A sense of dread washed over me as I stared into the abyss, the darkness within the mirror beckoning me closer with each passing moment. And then, with a suddenness that stole my breath away, the reflection moved, its movements mirroring my own with uncanny precision.
 
-Mesmerized by its strange allure, I reached out to touch the surface, but as my fingertips grazed the glass, a cold chill swept through the room, sending a shiver down my spine. I recoiled in horror, but it was too late.
+Panic seized hold of me as I realized the gravity of my mistake. I was not alone in the room; I was trapped in a twisted reflection of my own making, a prisoner of my curiosity and folly.
 
-The mirror began to shimmer and warp, its surface rippling like the surface of a pond disturbed by a stone. And then, in an instant, the reflection changed, revealing a dark and twisted version of myself staring back at me with empty eyes.
+Just as despair threatened to consume me, the sound of footsteps echoed down the hallway, a beacon of hope amidst the encroaching darkness. My parents burst into the room, their faces a mask of horror as they beheld the nightmarish scene before them.
 
-I tried to scream, to run, but I was rooted to the spot, paralyzed with fear. The dark version of myself stepped out of the mirror, its movements mirroring my own with uncanny precision. And as it drew closer, I could feel its malevolent presence enveloping me like a suffocating cloak.
+In a frenzy of desperation, they pulled me away from the mirror, their voices a cacophony of fear and urgency. With trembling hands, they sealed the door shut, imprisoning the darkness that threatened to engulf us all.
 
-Just when all hope seemed lost, I heard the sound of footsteps echoing down the hallway. My parents burst into the room, their faces pale with shock as they took in the scene before them. Without hesitation, they dragged me away from the mirror and slammed the door shut, sealing away the darkness that threatened to consume me.
- 
-But after that… the journal was empty. That was the last thing I wrote about. At least, so it seemed. As I was putting the book back into a box in my attic, a small sheet of paper fell out. It read: 
- 
-“None of this is real. This is not you. You are me. You trapped me here forever. Soon you will pay” 
+But the nightmare did not end there. In the years that followed, the memory of that fateful night haunted my dreams, a specter of guilt and regret that refused to be forgotten.
 
-So now I’m sitting on my bedroom floor, shakily trying to write this out. If anyone has any ideas of something I should do, please let me know. Should I reach back out to my dad?
+Now, as I sit alone in my bedroom, surrounded by the relics of my past, I am confronted once again with the unsettling truth of my childhood. The letter from my father serves as a grim reminder of the secrets we buried long ago, and the darkness that still lurks within the depths of our family history.
+
+Should I confront my father about the horrors of our past, or bury the truth once and for all? The answer eludes me, lost in the shadows of uncertainty that cloud my mind. But one thing is certain: the echoes of the past will not remain silent forever, and the truth will eventually come to light, no matter how deeply it may be buried.
