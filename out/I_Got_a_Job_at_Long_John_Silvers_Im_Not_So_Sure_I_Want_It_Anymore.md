@@ -230,6 +230,8 @@ Right as we were about to make it through the entryway, Ahmad sidestepped me and
 
 What terrified me the most wasn’t the small, dark room or the sinister being sitting in the rocking chair in the corner. No, what shook me to my core was the devilish grin plastered across Ahmad’s face as he abandoned me to [my fate.](https://www.reddit.com/r/HorrorJunkie123/)
 
-[Part 3](https://www.reddit.com/r/nosleep/comments/1bq80tx/i_got_a_job_at_long_john_silvers_something_went/?utm_source=share&utm_medium=web2x&context=3) 
+[Part 3](https://www.reddit.com/r/nosleep/comments/1bq80tx/i_got_a_job_at_long_john_silvers_something_went/?utm_source=share&utm_medium=web2x&context=3)
+
+[Final](https://www.reddit.com/r/nosleep/comments/1brq3sj/i_got_a_job_at_long_john_silvers_i_regret_ever/?utm_source=share&utm_medium=web2x&context=3) 
 
 &#x200B;

@@ -220,4 +220,6 @@ Suddenly, a short brunette girl burst through the door. Her hair was disheveled,
 
 [Part 2](https://www.reddit.com/r/nosleep/comments/1bntba6/i_got_a_job_at_long_john_silvers_im_not_so_sure_i/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
-[Part 3](https://www.reddit.com/r/nosleep/comments/1bq80tx/i_got_a_job_at_long_john_silvers_something_went/?utm_source=share&utm_medium=web2x&context=3) 
+[Part 3](https://www.reddit.com/r/nosleep/comments/1bq80tx/i_got_a_job_at_long_john_silvers_something_went/?utm_source=share&utm_medium=web2x&context=3)
+
+[Final](https://www.reddit.com/r/nosleep/comments/1brq3sj/i_got_a_job_at_long_john_silvers_i_regret_ever/?utm_source=share&utm_medium=web2x&context=3) 

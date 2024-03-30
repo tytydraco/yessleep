@@ -200,6 +200,6 @@ The ice jolts me awake. I see someone shoveling snow across the street. My neigh
 
 He shakes his head like I’m crazy.
 
-[(Part 2)](https://www.reddit.com/r/nosleep/comments/1bqq41j/knock_knock_once_you_hear_it_you_have_only_one/?utm_source=share&utm_medium=web2x&context=3)
+[Part 2](https://www.reddit.com/r/nosleep/comments/1bqxisv/knock_knock_once_you_hear_it_you_have_only_one/)
 
-&#x200B;
+[Part 3 - FINAL](https://www.reddit.com/r/nosleep/comments/1brq8z7/knock_knock_once_you_hear_it_you_have_only_one/)
