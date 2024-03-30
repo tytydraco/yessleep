@@ -106,7 +106,7 @@ If underground thugs wanted his mercy, then they had to bring him a Delacroix he
 
 I rode with Mom on the way to the kid’s house.
 
-“Back in a moment, honey,” Mom, calmly climbing out of the car. 
+“Back in a moment, honey,” Mom, calmly climbed out of the car. 
 
 She was gone for maybe a minute. 
 
@@ -310,15 +310,17 @@ He didn't want cash, though.
 
 I would regularly overhear him asking the housemother if he could meet them. 
 
-It was also a stern sounding *no*. 
+It was always a stern sounding *no*. 
 
 When he asked why, Rowan got the same answer. 
 
 “Because they don't want you.” 
 
-To an eight year old, that's like telling them the world is ending. 
+To an five year old, that's like telling them the world is ending. 
 
-Ophelia was the troublemaker who regularly ended up in the housemother’s office after scribbling on the walls and filling the bathtub with frogs. Mom said she fell in love with the two of them when she first walked in, witnessing them play fighting in the main hallway. 
+Ophelia was the troublemaker who regularly ended up in the housemother’s office after scribbling on the walls and filling the bathtub with frogs. 
+
+Mom said she fell in love with the two of them when she first walked in, witnessing them play fighting in the main hallway. 
 
 Unbeknownst to our mother, they were *actually* fighting, trying to rip each other's hair out. 
 
@@ -386,7 +388,9 @@ I found my voice, pulling at my restraints. No wonder this particular kidnapping
 
 “Wait, you were the one who paid our teacher?” 
 
-The boy nodded, taking a step towards us. He was waving the knife around too much. If he wasn't careful, he was going to stab himself in the eye. 
+The boy nodded, taking a step towards us. 
+
+He was waving the knife around too much. If he wasn't careful, he was going to stab himself in the eye. 
 
 “Yep. I had a little help from my Dad’s friend!” he flashed me a smile, his eyes shining. Liam was trying way too hard to be his father, it was painful to watch. 
 
@@ -444,7 +448,7 @@ Liam stroked the blade just like his father, copying Uncle Wes’s unnerving gri
 
 I could only nod, spluttering out a sob my mother would be ashamed of. 
 
-Liam pressed the blade to my throat, teasing the blade. 
+Liam pressed the blade to my throat, teasing the teeth. 
 
 “..........?”
 
@@ -558,7 +562,7 @@ Mom said the date as if it was concrete, like it was going to happen.
 
 03/05/2024. 
 
-Rowan and Ophelia were scheduled to die at **4:13** and **4:17pm.** 
+Rowan and Ophelia were scheduled to die at **4:13pm** and **4:17pm.** 
 
 While I would die forty minutes later at **4:50pm**.
 
@@ -594,7 +598,7 @@ So, dad tried a different tactic.
 
 “Call her the B word!” Rowan shouted with a laugh. 
 
-“No, there is no reason for using bad words,” he said. “I want you to get used to fighting back. Start with using words.”
+“No, there is no reason for using bad words,” our father said. “I want you to get used to fighting back. Start with using words.”
 
 “You always use your toothbrush with your gross mouth.” Ophelia spoke up with a squeak. “And you use my toothpaste.”
 
@@ -680,7 +684,11 @@ I stopped crying when the bullet made an impact.
 
 I stopped slamming my hands over my mouth, my gun trembling in my grasp.
 
-Targets would bleed, and I ignored them. The only thing that mattered was the magnum moulded into my palm, my index inching towards the trigger. I remembered holding my first gun at the age of eight. My hands were clammy and clumsy, struggling to get a proper grip. 
+Targets would bleed, and I ignored them. The only thing that mattered was the magnum moulded into my palm, my index inching towards the trigger. 
+
+I remembered holding my first gun at the age of eight. 
+
+My hands were clammy and clumsy, struggling to get a proper grip. 
 
 Mom told me that person could have been my killer. 
 
@@ -704,7 +712,7 @@ Fee was our second best fighter. I enjoyed watching her whooping our brother’s
 
 I was more comfortable with a knife. 
 
-I could still fight, easily defending myself. But I felt better with a blade or knife in my hands. 
+I could still fight, easily defending myself. But I felt better with a blade or gun in my hands. 
 
 As I grew up, I stopped feeling emotion completely.
 

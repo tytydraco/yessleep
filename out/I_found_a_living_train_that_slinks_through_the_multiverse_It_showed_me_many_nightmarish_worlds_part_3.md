@@ -6,8 +6,6 @@ Part 2
 
 [https://www.reddit.com/r/nosleep/comments/1azte0t/i\_found\_a\_living\_train\_that\_slinks\_through\_the/](https://www.reddit.com/r/nosleep/comments/1azte0t/i_found_a_living_train_that_slinks_through_the/)
 
-
-
 The Necromancer loomed in the background as his undead puppets rushed us by the dozens. His dark abyss of a face revealed nothing, but his diseased, gurgling laughter did.
 
 Just as all hope seemed lost, orange light like a supernova exploded from the hallway. Far off down the corridor, I saw the creatures Brother had called the Maia floating toward us, their translucent, glowing bodies shimmering and spiraling in an eerie synchronization. The Necromancer’s laughter continued. In the heat of the battle, he didn’t immediately notice the new threat approaching silently from behind him. The three of us continued fighting for our lives.
@@ -127,3 +125,8 @@ Brother looked at Cook writhing on the ground. The fire had gone out. Cook had r
 “It was calling for help,” he answered. “And help is on its way. But not for us.”
 
 As if to emphasize his words, doors far away from us on both sides slid open, the sound faint and distant. I peered through the glass, seeing more of those monsters from the Collective Mind slithering through the living train, their many pale, lidless eyes searching and wide.
+
+  
+Part 4
+
+[I found a living train that slinks through the multiverse. It showed me many nightmarish worlds \[part 4\] : r/nosleep (reddit.com)](https://www.reddit.com/r/nosleep/comments/1br82pu/i_found_a_living_train_that_slinks_through_the/)
