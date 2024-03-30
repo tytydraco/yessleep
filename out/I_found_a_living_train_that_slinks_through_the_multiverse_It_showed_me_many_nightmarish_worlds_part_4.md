@@ -194,7 +194,7 @@ I saw into the deepest hells opening like worlds of lava far below me and found 
   
 And then we were through, and I was falling and gasping, looking over at Brother. He lay on the floor, sweating heavily, his eyes wide.  
   
-“Yeah, it’s the same every time,” he said, wiping his pale face and standing up. “Same goddamn thing every time. But it fades rapidly once you’re through. In a few hours, you’ll barely remember what happened there.” I could only stutter, confused as to who I was or why I had a body at all. The glimpses of ULTIMATE REALITY rapidly faded, however, and within a few minutes, I could barely remember what I had seen.  
+“Yeah, it’s the same every time,” he said, wiping his pale face and standing up. “Same goddamn thing every time. But it fades rapidly once you’re through. In a few hours, you’ll barely remember what happened there.” I could only stutter, confused as to who I was or why I had a body at all. The glimpse of ULTIMATE REALITY rapidly faded, however, and within a few minutes, I could barely remember what I had seen.  
   
 \*\*\*  
   
