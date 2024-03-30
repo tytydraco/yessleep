@@ -64,7 +64,7 @@ We went back to playing video games and soon enough, the girls knocked on the do
 
 Josh went back to his paper bag and pulled out an actual bottle of wine, "Don't worry, we saved the good stuff for you." He grabbed two red Solo cups and poured a generous amount for Aimee and Emily and then filled them in on the night's plans.
 
-After the bottle of wine and a few more beers were gone, Josh made sure we each had a flashlight and we put on our coats and headed outside. It was a mild night for April with the temperature in the 40s. Aimee huddled close to me as we walked through the grass toward the student center, all of us with a nice buzz anticipating the fun adventure we were about to embark on.  
+After the bottle of wine and a few more beers were gone, Josh made sure we each had a flashlight and we put on our coats and headed outside. It was a mild night for March with the temperature in the 40s. Aimee huddled close to me as we walked through the grass toward the student center, all of us with a nice buzz anticipating the fun adventure we were about to embark on.  
 
 "The entrance is over there," Josh said, pointing to a small section of pine trees and bushes.
 
