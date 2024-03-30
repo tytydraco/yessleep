@@ -1,0 +1,17 @@
+&#x200B;
+
+Throwaway because my brother follows me on my main, and since this is technically an open investigation and I shouldn't really be divulging any specific details to the public and I don't want any cop to see and get me in trouble with my mom.
+
+For some context - My aunt Lincoln was a little bit of a free spirit. And by that, I mean she was rarely in one place at one time for very long. She and my mom were two years apart, Auntie Lin being older than her, and although I've never met her, my mom talks about her enough that I feel like I have. She had a cat named Moonpie and owned the trailer park that she lived in. She mostly did maintenances for the lot and was a part time mechanic, but mostly just came and went as she pleased. So, nobody was too terribly shocked when a week or so went by and nobody heard from her.
+
+But then two weeks turned into a month, a month turned into three, and so on and so forth. Eventually, it got to the point where even for Auntie Lin, the silence was starting to border on insane.
+
+The last time anyone in my family spoke to my aunt was in 1998. My mom put in a missing person's report for her, but they said she probably just left on her own accord. She was 23 and her paperwork, wallet, car, and cat were missing, but everything else was perfectly fine, so it didn't really seem like there was reason to believe it was anything else. It wasn't until about six months ago (so, a little over 25 years from her disappearance) when the sheriff's office called my mom and told her that they had some friends in Monterey County that wanted to talk to her.
+
+Turns out, they found the remains of a woman with my aunt's boating license on her in a random valley about a mile away from a really popular trail path. We put in some DNA testing, and it came back that those remains WERE my aunt's. But here's where it gets strange. Apparently, they were found in the Santa Lucia Range? We live in Georgia. I google maps'd it---it's literally a 38 hour drive on a good day.
+
+What's even WEIRDER is that the cops said that they were just...out in the open, and show signs of thousands of years' worth of decomposition? They carbon dated them because of the weird circumstances that surrounded them. We haven't really been able to read all of the reports because of that 'open investigation' bullshit, even though they have zero fucking leads. But from what we've been glazingly told is that there weren't any insects around her body, nor was there any evidence of that, which typically indicates how the decomposition process went; however, there is evidence to suggest that she's been there for the twelve years she's been missing. Like, down to the DAY that she went missing. However, the texture of her remains indicated that she'd been there much, much older than that.
+
+We still don't know exactly how old the test said they were. In fact, we still haven't really been spoken to about my aunt's case since then, and that was around a month or so ago. Just that it's been shuffled up to the FBI's jurisdiction, and it's out of both Towns and Monterey county's hands. So, while I don't want to go, like, FULL 'tinfoil-hat-Hillary-Clinton-abortion-Pizzahut', I do think there are some question marks to be raised here. Like, what the fuck? We're her family, how is any of this legal?
+
+I doubt anyone else has dealt with this before, but if you have, or know ANY WAYS I can help give information on my aunt's case short of literally committing a B&E, let me know. Thanks.
