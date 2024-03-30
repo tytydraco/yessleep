@@ -412,7 +412,7 @@ She let out a startled breath, her head knocking against mine.
 
 I was next. 
 
-Mom told me how to disguise pain and pretend it didn't exist. But she was yet to train my mind to think like hers. I felt weak, pathetic, as a Delacroux daughter. I was too young to learn how to fight back. That's what Dad said. So, I had to take it.  The first kick wasn't that bad. I sucked in my tummy and took a deep breath. The second kick knocked it all out of me, and I understood what *pain* really was. 
+Mom told me how to disguise pain and pretend it didn't exist. But she was yet to train my mind to think like hers. I felt weak, pathetic, as a Delacroix daughter. I was too young to learn how to fight back. That's what Dad said. So, I had to take it.  The first kick wasn't that bad. I sucked in my tummy and took a deep breath. The second kick knocked it all out of me, and I understood what *pain* really was. 
 
 Stubbing my toe was not *pain*. 
 
@@ -506,7 +506,7 @@ Teasing a death I knew wouldn't come for a while.
 
 Because I already knew when I was going to die, and it wasn't inside a grotty storage container at eight years old at the mercy of my psycho cousin. 
 
-I don't know if my mother was a psychic, or maybe it was mother’s intuition. 
+I don't know if my Mom was a psychic, or maybe it was mother’s intuition. 
 
 Halfway through an episode of Spongebob Squarepants, just a few weeks prior, she ruined our lives with four words. *You're. Going. To. Die.*
 

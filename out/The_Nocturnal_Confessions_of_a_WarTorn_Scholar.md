@@ -1,0 +1,15 @@
+*March 3rd, France*: The bloody baptism of battle has begun. Imagine a world where the skies scream with artillery, and the earth bleeds beneath your feet. I, a former professor, once a believer in the pen over the sword, find myself gripping a rifle instead of a chalk. Each bullet I fire carries a piece of my soul with it. I yearn for the lecture halls but am trapped in a never-ending nightmare of mud and blood. Our unit is a mangled corpse, limping through the charred remains of a once serene French countryside. I don't write to remember; I write to forget.
+
+*April 1st, The Belgian Hell*: We've arrived at the 'Trench of Death.' It's an open grave, where hope comes to die. The air is a cocktail of decay and fear, and the walls of the trench whisper tales of untold horrors. Shadows dance in the corner of my eyes, never revealing their true form. I've seen men's minds unravel here, their sanity torn apart by the unseen monsters that roam these cursed grounds. 
+
+*April 11th*: They say fog is just a cloud that's lost its way. This fog, though, it's alive, pulsing with a malevolent intent. Men venture into it and vanish, their screams a haunting lullaby at night. I've seen things within that mist, figures twisted and grotesque, a parade of the damned. This is not war; it's a descent into madness.
+
+*April 17th*: Last night, it visited me. Not a ghost, but something far more ancient and terrifying. It stood there, shrouded in shadow, its presence suffocating. Every time I blinked, it crept closer, a silent predator. I could feel its icy breath, smell the stench of death on its breath. It's not just in the fog; it's here, with us, feeding on our fear.
+
+*April 20th*: Today, the trench turned on itself. Men, maddened by fear and despair, became beasts. The fog crept closer, like a predator encircling its prey. I ran, not for glory, but for sheer survival. As I fled, I heard the trench collapse behind me, a symphony of screams and crumbling earth.
+
+*April, The Endless Wasteland*: I am lost in No Man's Land, a purgatory of corpses and fog. The bodies... they move, whispering secrets in a tongue not meant for mortal ears. The fog is thicker here, suffocating, alive. I feel it probing my mind, tearing down the walls I've built. 
+
+*The Final Entry*: I've found something, a temple of bones and shadows beneath the earth. The walls are covered in runes that bleed. I hear them calling my name, voices from my past, twisted and distorted. I know this is where it ends, in the belly of this ancient horror. I can feel it behind me, breathing down my neck, urging me forward into the darkness.
+
+I write these final words not as a farewell, but as a warning. This war is a mask, hiding something far more sinister. If you find this, turn back. Flee this cursed land and never look back. For here, in the flayed fields, death is only the beginning.
