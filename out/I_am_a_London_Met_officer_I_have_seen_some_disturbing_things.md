@@ -1,4 +1,4 @@
-I am a sergeant in the London Metropolitan police (Met for short). What i tell people i've seen shocks people, the things i chose to not tell them are scarier still. I won't tell you my name as I want to stay anonymous. 
+I am a sergeant in the London Metropolitan police (Met for short). What i tell people i've seen shocks them, the things i chose to not tell them are scarier still. I won't tell you my name as I want to stay anonymous. 
 
 I have 12 years of experience working in the Met, for the most part, these have been some of the best years of my life. I have worked with some great colleagues over the years, and they had my back. Once or twice, I even saw my colleagues outside of work and had a few drinks and a curry or two.
 
