@@ -62,7 +62,7 @@ Brother glanced backward and forward with a grim expression in his colorless eye
   
 \*\*\*  
   
-As we fell through what felt like eternal space, I felt a blind animal panic take over, exterminating all rational thought. I saw there was a city thrumming and vibrating thousands of feet beneath us, the place the train had called Sugguroth. Great towers shaped like spiraling blades made of glossy black and red volcanic glass loomed thousands of stories, their many circling windows giving off a pale, white glow. My mind wouldn’t register what I saw until later, however, when I looked back with a more dispassionate and less terrified eye.  
+As we fell through what felt like eternal space, I felt a blind animal panic take over, exterminating all rational thought. I saw there was a city thrumming and vibrating thousands of feet beneath us, the place the train had called Sugguroth. Great towers shaped like spiraling blades made of glossy black and red volcanic glass loomed hundreds of stories, their many circling windows giving off a pale, white glow. My mind wouldn’t register what I saw until later, however, when I looked back with a more dispassionate and less terrified eye.  
   
 Clusters of hunters from the Collective Mind were gathered in circles. Hundreds of the black, writhing creatures huddled tightly together in groups, screaming up at the dark stone sky in harmonizing shrieks. Artificial lights gave off a white radiance that shone across the seemingly endless cavern.  
   
@@ -146,7 +146,7 @@ Brother was suddenly standing over, pulling me up. Blood streamed from a gash on
   
 We sprinted down the bloody glow of the smooth alien road. The train in the distance still had its doors opened. I realized with some slight amusement that we had returned to almost the same exact spot we had left from. As we got closer, I could even see the burnt, blackened body of Jeremiah laying still and cold on the blood-strewn floor.  
   
-“Next stop: St. Joseph’s Stand, England. We will reach our destination in approximately seven hours,” the train gurgled in its low hiss of a voice. The words echoed through the cold, dry air of the Shadow Plains all around us.  
+“Next stop: St. Joseph’s Stand. We will reach our destination in approximately seven hours,” the train gurgled in its low hiss of a voice. The words echoed through the cold, dry air of the Shadow Plains all around us.  
   
 To my horror, I saw Cook missing from the carriage. Where he had been sitting, I saw a puddle of gore and a warhammer covered in blood and pieces of skin. Ruby-red drops led out the door like breadcrumbs, smeared across the floor of the train as if something had dragged him away. Bloody handprints covered the wall and door.  
   
@@ -156,7 +156,7 @@ I could almost see what had happened in my mind’s eye: Cook trying frantically
   
 \*\*\*  
   
-Finally, mercifully, the doors of the train closed. The living train slowly gained speed, heading towards it next destination in its never-ending circuit across the multiverse.   
+Finally, mercifully, the doors of the train closed. The living train slowly gained speed, heading towards its next destination in its never-ending circuit across the multiverse.   
   
 We took off across the dark wasteland of the Shadow Plains with the screaming of the dull, jet-black Katcha grass surrounding us like the shrieking of an erupting volcano. Brother turned to me, his eyes cold and distant, his lips tightly pressed together. Sighing deeply, he slung his rifle around his body and patted me on the shoulder.  
   
@@ -200,7 +200,7 @@ And then we were through, and I was falling and gasping, looking over at Brother
   
 It wasn’t long after that the living train pulled up to Market Street substation with a deep exhalation, as if the train itself were sighing in relief after a long journey completed. The brakes squealed with a high-pitched cacophony.  
   
-Floating on clouds of bliss, I glanced back at Brother one last time, seeing his lined face and ancient eyes. He was a true survivor, a killer, a kind of man I’d never before encountered and likely never would again. He raised his hands, his face still stony and grim. I gave him a faint half-smile as I turned away.  
+Floating on clouds of bliss, I glanced back at Brother one last time, seeing his lined face and ancient eyes. He was a true survivor, a killer, a kind of man I’d never before encountered and likely never would again. He raised his hand, his face still stony and grim. I gave him a faint half-smile as I turned away.  
   
 At 3:33 AM, I stepped off the X77, the sole survivor of all those who wished to return. But I still carry all their stories in my heart as I go forward.  
   
