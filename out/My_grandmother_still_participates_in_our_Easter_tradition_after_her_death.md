@@ -76,7 +76,7 @@ I looked at the table. The flame of the candle, now burned down to about two inc
 
 She only smiled in response. I reached out to the wooden tabletop. 
 
-Knock knock … knock. 
+*Knock knock … knock.* 
 
 She hesitated. For the briefest moment, her smile fell away, and a very different face stared at me from the edge of the candlelight—something sharp, unfamiliar, and angry. She reached out an arm. 
 
@@ -92,6 +92,4 @@ I returned the next day, in the daylight, to retrieve my possessions and the las
 
 After all, whatever I saw isn't after the house. 
 
-It's after *me*. 
-
-  
+It's after *me*.
