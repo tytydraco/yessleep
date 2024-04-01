@@ -58,7 +58,7 @@ I promise you I tried to keep her interested as long as I possibly could.
 
 If someone is next… I truly wish I had some good advice to give you. Try to be detailed, dress up the story if you have to, try to keep her drawn in for as long as you have even a drip of energy left – and even then push it some more. Never go down easy, try to fight as if you don't have the certainty the days that follow.
 
-If no one is, if Death finds no more pleasure in her duties, we can only hope humanity can find a way to function without her.
+*If no one is, if Death finds no more pleasure in her duties, we can only hope humanity can find a way to function without her.*
 
 I can only hope I won’t wake up tomorrow.
 
