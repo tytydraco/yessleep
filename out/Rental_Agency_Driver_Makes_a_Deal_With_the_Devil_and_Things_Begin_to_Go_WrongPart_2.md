@@ -1,5 +1,3 @@
-
-
 [**Part 1**](https://www.reddit.com/r/nosleep/comments/1brehxa/rental_agency_driver_makes_a_deal_with_the_devil/)
 
 Upon reaching the venue, my attention was immediately drawn to a man dressed in a clown outfit with a duffle bag slung across his shoulder. When our eyes met, I realized that he was my fare for the night, the designated passenger I was meant to pick up.
@@ -77,8 +75,6 @@ At the same time, I could also sense an overwhelming cacophony of contradictory 
 *‘These are extreme examples Matt, and are being dished out to screw with your head. Don’t overthink this. The world isn’t a fair place. We all know that. Sometimes we got to make the best use of the opportunities that come our way. Remember, you have a kid you need to take care of. You have seen how smart Luke is. He could be a doctor  or an engineer someday. How else are you going to arrange the money for his college tuition? You swore to yourself the day you held Luke in your arms for the first time, you would be present in his life and not abandon him, like your father did to you.’*
 
 *‘Wooow. This is low even for you ,Matt, to drag your father and kid in a mess of your own making. Did you ever stop to consider that you can land in prison over this? If day 1 could be this dramatic, what do you think will follow in the days to come? Are you planning on becoming the best father of the year from behind bars, while your kid grows up in foster care? Do you think the little bookworm can survive the bullying from kids twice his size? Why don’t you just admit it Matt, that you liked what you saw back there, and that somewhere deep within you, there is a flaw in your moral character…’*
-
-
 
 I shut down the car and closed my eyes, resting my forehead on the steering wheel, trying to desperately filter out all the noise. I took deep long breaths as I tried to steady my mind.  
 A little while later, I leaned back in my seat, and attempted to think things through again from scratch.  
@@ -209,3 +205,5 @@ So I simply closed the letter and proceeded to get along with my daily chores. I
 Once I was dressed, I simply sat in the living room, looking at the phone placed on the table, waiting for it to go off. And at 7:00 PM sharp I got the coordinates for my next pick up.
 
 I got off the couch, headed to my liquor cabinet, and pulled out a full bottle of bourbon. After taking a big swig from it, I sat in the car and tossed the bottle onto the adjacent seat. As the engine purred to life, I hit the streets and got ready to pick up my new passenger for the night.
+
+[**Part 3**](https://www.reddit.com/r/nosleep/comments/1bt3zp2/rental_agency_driver_makes_a_deal_with_the_devil/)
