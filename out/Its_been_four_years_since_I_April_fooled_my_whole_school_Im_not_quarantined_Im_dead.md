@@ -84,9 +84,11 @@ Initially, he was just a shadow bent over himself kicking his legs.
 
 Closer. 
 
-I started to see him shift, reality taking over. I am a firm believer of the afterlife editing away your injuries, your scars, what killed you. I'm still too scared to look into a mirror in fear of what  I look like. I want to. I know what I used to look like. I had dark blonde hair and pale skin. My eyes were a little too far apart, and I hated my nose. I see his eyes first, hollow sockets carved into him, dark and empty and wrong. 
+I started to see him shift, reality taking over. I am a firm believer of the afterlife editing away your injuries, your scars, what killed you. I'm still too scared to look into a mirror in fear of what  I look like. I want to. I know what I used to look like. I had dark blonde hair and pale skin. My eyes were a little too far apart, and I hated my nose. 
 
-Luke turned to me, and I glimpse thick black tendrils still streaked across his face where the virus polluted his bloodstream. 
+I saw Luke's eyes first, hollow sockets carved into him, dark and empty and wrong. 
+
+Luke turned to me, and I glimpsed thick black tendrils still streaked across his face where the virus polluted his bloodstream. 
 
 I know it's dead. I know the virus is no longer hurting him, but I can see what it has done to him, poisoning his veins and blood, a vicious streak snaking around his skull. His mouth split into a scowl, and I glimpsed stringy pieces of flesh hanging from his teeth. There were chunks taken out of his cheeks where he had ripped at his own skin,  tearing flesh from bone, a cavern at the back of his head where his brain burst from his skull. The virus was gone. 
 
@@ -106,7 +108,11 @@ I mean, I did kill him.
 
 So, he had every right to be pissed. 
 
-I remember Luke’s death in too much detail. I remember *every* death. Every infection. Every student who lost their minds, and gave into my influence. Even post life, this thing still won't let go of my mind. When we were kids, our town doctor diagnosed a group of us with the exact same brain condition, successfully gaslighting our parents into believing we would need weekly check ups. Luke was one of those kids. I've tried to talk to him about it, but he's not interested. I ask him if he remembers the experiments and headaches, the pills that tasted like barf, and the memory loss. 
+I remember Luke’s death in too much detail. I remember *every* death. Every infection. Every student who lost their minds, and gave into my influence. 
+
+Even post life, this thing still won't let go of my mind. When we were kids, our town doctor diagnosed a group of us with the exact same brain condition, successfully gaslighting our parents into believing we would need weekly check ups. Luke was one of those kids. 
+
+I've tried to talk to him about it, but he's not interested. I ask him if he remembers the experiments and headaches, the pills that tasted like barf, and the memory loss. 
 
 I just got a weird look in return. 
 
@@ -132,7 +138,9 @@ I swallowed down a petty retort, holding my tongue. “I'm just bored, I guess?�
 
 “You killed me, Aurora,” he said, for maybe the thousandth time that week. 
 
-He had eternity to forgive me, and I had a feeling Luke Aisling wasn't planning on offering a truce for at least a hundred years. “Why does it matter?” Luke scoffed. “You keep talking to me about experiments and mind control and evil doctor's, but that doesn't change the fact that you fucking killed me, dude. Your shitty prank destroyed our school.”
+He had eternity to forgive me, and I had a feeling Luke Aisling wasn't planning on offering a truce for at least a hundred years. “Why does it matter?” 
+
+Luke scoffed. “You keep talking to me about experiments and mind control and evil doctor's, but that doesn't change the fact that you fucking killed me, dude. Your shitty prank destroyed our school.”
 
 He laughed, and it felt like knives sticking into my spine. 
 
@@ -142,7 +150,9 @@ Something sour squirmed up my throat.
 
 Luke pulled down his sleeve violently, his eyes searching mine, frantic, terrified of me. 
 
-“Do you even *care*?” he leaned forward, icy breath in my face. “Because I'm yet to hear a fucking apology.”
+“Do you even *care*?” he leaned forward, icy breath in my face. 
+
+“Because I'm yet to hear a fucking apology.”
 
 I jumped when he stood up. I could see it in his eyes. He had been talking to others, who called me a psychopath. 
 
@@ -150,7 +160,7 @@ They probably got off on telling him I enjoyed what I did. Hannah, who haunts th
 
 They were the usual suspects. Luke was getting emotional, his voice breaking. He was trying to speak, tripping over his words. The poor guy was getting red in the cheeks, eyes filling with tears. 
 
-“You don't care.” Luke said, his voice breaking into a sob. The lights in the cafeteria bathed him in a sickly golden glow, and once again, I could see his infected self bleeding through. I saw his skeletal grin, bright red oozing down his chin. The lights flickered above him. 
+“You don't care.” Luke said, his voice breaking into a sob. The lights in the cafeteria bathed him in a sickly golden glow, and once again, I could see his infected self bleeding through. I saw his skeletal grin, bright red oozing down his chin. The bulbs flickered above him. 
 
 “You're a fucking psycho.”
 
@@ -450,7 +460,9 @@ Slimy and tangled, a leech clinging on for dear life.
 
 I blinked, and Jasper had pulled the phone out of my hand, stamping on the screen. It was still there, dancing between splinters, on every single screen, and it was getting harder to think straight. Words were tangled on my tongue, some of them mine, but most of them were garbled nothing, a string of letters and numbers jumbled together. Mycroft’s son was standing in front of me, except the boy didn't feel real. “Hey, what's going on? Dude, you're blanking!” 
 
-He was shaking me, and yet I couldn't move. I couldn't breathe. I could still feel it, a sentient thing twisting itself around me, bleeding into my skull. It was testing me, burrowing its way inside my brain to learn who I was. I screamed, barely aware of being on my knees, my fingers clawing at my eyes, blood already running down my face. 
+He was shaking me, and yet I couldn't move. I couldn't breathe. I could still feel it, a sentient thing twisting itself around me, bleeding into my skull.
+
+It was testing me, burrowing its way inside my brain to learn who I was. I screamed, barely aware of being on my knees, my fingers clawing at my eyes, blood already running down my face. 
 
 I touched my cheeks gingerly. Did I do that? Did I scratch and claw at my own face? 
 
@@ -580,7 +592,11 @@ Explosions.
 
 Well, controlled ones. 
 
-Luna was destroyed when the school was blown to pieces.
+Luna was destroyed when the school was blown to pieces. Thankfully, no many casualties. 
+
+Just a lot of infected kids quietly being shoved into a white building.
+
+Our town is out of the way, so it's not like anyones noticed. 
 
 And the remnants of her, of *me* burned.
 

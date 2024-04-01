@@ -84,3 +84,5 @@ We searched high a low for him, called in support and went over the area several
 My God were we chewed out by our superiors for leaving the John Doe in the car, but we thought we were alone. 
 
 I still think to this day what could have happened to our missing person. There were no footprints, just drag marks from the car. I'm glad it wasn't me that was taken that day, but also scared of what's out there.
+
+Second chapter can be found here: https://www.reddit.com/r/nosleep/s/h6zS8RzNNi
