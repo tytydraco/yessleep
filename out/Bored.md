@@ -60,6 +60,6 @@ If someone is next… I truly wish I had some good advice to give you. Try to be
 
 *If no one is, if Death finds no more pleasure in her duties, we can only hope humanity can find a way to function without her.*
 
-I can only hope I won’t wake up tomorrow.
+I wish to be so lucky I won’t wake up tomorrow. 
 
 Good luck.
