@@ -171,10 +171,9 @@ In a blink, Ramy was gone, reappearing in front of the PPE guy, tail lashing out
 As he doubled back, the PPE guy body checked me, sending me sprawling painfully onto the ground as he cried out as his shoulder began to smoke. He bent towards the body Ramy had been inhabiting, fumbling with the talisman. 
 
 *No!* Clumsily trying to get my limbs to work, I reached for him, not able to get there in time as the PPE guy placed the talisman on the dead man's chest. 
-Ramy blocked the doorway, eyes blazing as he saw the talisman barrinf him from his host. 
+Ramy blocked the doorway, eyes blazing as he saw the talisman barring him from his host. 
 
-What made me pale is that I noticed that Ramy quaked slightly. I recalled then that Matthew had been weakened after Ramy forced his spector out of me. 
-Ramy was hiding it, but the exorcism had taken a toll on him. My thoughts began to spiral as I wondered what would happen to him if he got too weak.  
+What made me pale is that I noticed that Ramy quaked slightly. I recalled then that Matthew had been weakened after Ramy forced his spector out of me. Ramy was hiding it, but the exorcism had taken a toll on him. My thoughts began to spiral as I wondered what would happen to him if he got too weak.  
 
 Would he *die*?
 
