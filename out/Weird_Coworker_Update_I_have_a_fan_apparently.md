@@ -261,4 +261,4 @@ It took a lot of storytelling and arguing, but eventually, we got them to let us
 
 Since we were both exhausted, we agreed that it would be best to get some sleep and discuss everything in the morning. 
 
-I'll let you all know how that goes. 
+I'll let you all know how that [goes](https://www.reddit.com/r/nosleep/s/jng3jRfr74). 

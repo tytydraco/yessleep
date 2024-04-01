@@ -56,7 +56,7 @@ Quickly, I pulled over, shoved the talismans into my trunk, then got back on the
 
 I forgot to mention that I did get my front door fixed after last update. I also had an additional deadbolt installed as well as a sliding lock, just to be safe.  
 
-I carried the baby goat up my driveway to my house, feeling that weird sixth sense for Ramy getting stronger as I got further and further away from the talismans. I knew that'd he'd be inside, waiting for me, before I opened the door. 
+I carried the baby goat up my driveway to my house, feeling that weird sixth sense for Ramy getting stronger as I got further and further away from the talismans. I knew that he'd be inside, waiting for me, before I opened the door. 
 
 Ramy was reclined on my couch, raising a beer bottle to me in greeting, his eyes reflecting green in the low light like a cat's. This was my first time seeing him dressed in regular jeans and a black hoodie, which threw me for a loop. I didn't think he owned anything other than collared shirts and trousers. I guess even ancient tricksters like to grunge down every once in a while. 
 

@@ -6,7 +6,7 @@ There was even a jackass from the chemistry lab that thought he could get me to 
 
 It was an excellent picture, by the way. Some people just have no culture. 
 
-Between that, the constant questions about my hurting neck, and if the injury was in any way related to my newfound mutness, I was beginning to miss when my coworkers avoided me. 
+Between that, the constant questions about my hurting neck, and if the injury was in any way related to my newfound muteness, I was beginning to miss when my coworkers avoided me. 
 
 Unsurprisingly, my 'bestie' was waiting for me when I took my break. Ramy was leaning back in his chair, arms behind his head, eyes hidden by his sunglasses once again. 
 
