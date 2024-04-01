@@ -451,3 +451,5 @@ I looked around and I was in Aimee's room. Greg was holding an empty cup of wate
 “Man, where the hell were you?” he asked. “You zoned out again and we couldn't get your attention at all.”
 
 That night, Greg went back to his room and Aimee and I slept in her bed. She fell asleep quickly but I couldn't get the images of my friends burning out of my mind.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1bst1bo/call_of_the_tunnels_part_2/)
