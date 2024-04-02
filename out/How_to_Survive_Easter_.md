@@ -432,3 +432,6 @@ I got out of there, and of course, got patched up.
 It was a few years more of Pocket’s lessons before I ever got to talk to ‘ The bosses’, but that night was the first step on my journey, my first step to understanding what is out there, and how to survive it. 
 
 
+Thought I'd update all of you, think of it as a Part 2
+
+https://www.reddit.com/r/nosleep/s/l7zW2qNHoL
