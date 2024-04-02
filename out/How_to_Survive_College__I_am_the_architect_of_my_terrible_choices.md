@@ -179,3 +179,5 @@ I went straight back to my apartment.  I haven’t talked to Grayson yet.  I hav
 “You’re not going to like hearing this,” Cassie said quietly at the end of our conversation, “But you might want to take a break from this relationship until you can figure out *what the hell is going on.*”
 
 I think [she’s](https://alderrayne.com/) [right](https://www.reddit.com/r/goatvalleycampgrounds/).
+
+[Next post](https://www.reddit.com/r/nosleep/comments/1btpex6/how_to_survive_college_oh_look_more_problems_to/)
