@@ -202,4 +202,4 @@ He wasn’t a dead man, not like the others. He didn’t seem evil, but he didn�
 
 I spoke about this experience with only one person - a priest. I don’t think he believed a word I said, not truly. I think he thought I was talking about a dream, or more accurately, a nightmare. Yet, he showed enough concern to say something wise and biblical about sacrifice. It wasn’t his words that convinced me to refind my faith.
 
-It was the thought of believing in nothing when something like that happened to me. It didn’t sit right. That’s what I gained for the price that someone else paid. I pray that it is enough.
+It was the thought of believing in nothing when something like that happened to me. It didn’t sit right. That’s what I gained for the price that someone else paid. I pray that it is [enough.](https://www.reddit.com/user/theAURORAfiles/)

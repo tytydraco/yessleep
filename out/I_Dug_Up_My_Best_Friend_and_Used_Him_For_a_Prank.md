@@ -46,13 +46,13 @@ That’s why this prank was so important, I knew it would put a smile on Tom’s
 
 “I hope it’s not Darrel, he annoys the shit out of me.”
 
-So I motioned him to the living room as I quickly skipped off into the kitchen. I tried to make as little noise as possible since I wanted to hear what Jim said. But I still hadn’t heard anything when I reached the fridge.
+So I motioned him to the living room as I quickly skipped off into the kitchen. I tried to make as little noise as possible since I wanted to hear what Tom said. But I still hadn’t heard anything when I reached the fridge.
 
 He was probably stunned, I thought to myself. Not the reaction I wanted but I’ll take it. However when I reached inside to grab the beers I stopped when I heard the sound of a low humming. Frozen, I turned to my right and saw…my oven was on.
 
 Odd, I didn’t remember turning it on.
 
-I walked slowly over to the oven and turned it off. As I stood there I realised that the house was eerily silent and I still haven’t heard Jim say anything.
+I walked slowly over to the oven and turned it off. As I stood there I realised that the house was eerily silent and I still hadn’t heard Tom say anything.
 
 Must be scared shitless.
 
@@ -60,7 +60,7 @@ Eager to scare him again, I tiptoed back to the living room and waited outside t
 
 Again, no sound.
 
-Undeterred, I jumped out from behind the wall and pointed a beer at Jim sitting on the couch and said, “Hah! Got ya! April Fool’s!”
+Undeterred, I jumped out from behind the wall and pointed a beer at Tom sitting on the couch and said, “Hah! Got ya! April Fool’s!”
 
 But he just stared at me confused and raised his eyebrows.
 

@@ -174,4 +174,4 @@ It didn’t matter in the end. We got out, mostly intact. We think maybe we got 
 
 And maybe we would have never stuck around long enough for our captors to offer us a way out. I think they did that because they wanted us to make a decision, a decision to stay or to leave. I guess there is a lesson in that.
 
-If there is a way out of hell, take it without hesitation.
+If there is a way out of hell, take it without [hesitation.](https://www.reddit.com/user/theAURORAfiles/)
