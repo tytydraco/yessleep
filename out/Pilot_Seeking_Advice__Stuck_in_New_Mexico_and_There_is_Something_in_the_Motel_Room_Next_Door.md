@@ -46,3 +46,5 @@ Now, I don’t know what to do. He is in the room right next to me at this dirty
 Edit (2032-2112 local time): I took some modified advice to text Kyle “Hey man, how was your day? You doing good?” to see if he would open up. I am officially scared now. I got a response, “Not bad brotha, not bad. Tidied up the hangar after I got there. Topped off the de-icing fluid drum and Prist bottles. Lacey and I are watching a movie.” [note- it’s a cleaner we use for our windscreens and de-bugger for crushed bugs]. This… thing is officially not Kyle.
 
 I went out to get “ice” and took the opportunity to kinda look/listen at his room. It’s pitch black, so it is either asleep or just… in there? In the dark. I don’t know, it’s a scary thought.
+
+Edit 2 (2208 local time): The thing is out of its room. It’s in the parking lot, still wearing the same clothes from today. I can see it through my motel window in the front of my room by the door, and it’s out facing the street just… standing there.

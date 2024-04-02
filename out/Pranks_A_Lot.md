@@ -290,7 +290,7 @@ ParnksAot cleared his throat. Aliens can become ghosts too apparently so there�
 It shrugged.  
   
   
-“My species reincarnates after a century. Anyway, I’m going to haunt a DMV, Later bitches!”  
+“My species reincarnates after a century. Anyway, I’m going to haunt a DMV. Later, bitches!”  
   
   
 PranksALot flipped us off and floated away.  
