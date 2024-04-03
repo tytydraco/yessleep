@@ -186,8 +186,6 @@ A look of surprise flashed in his eyes, his demeanour swiftly softening as he re
 
 As I climbed the stairs, I removed my jacket and cap from the bag and put it on. I could hear the devil utter those final words again and again, it was continuously ringing in my ear and had already formed a permanent imprint on my mind.
 
-
-
 *“Ok Mathew, maybe there is an alternative to this impasse.”\**  
 *“But I am afraid you are not going to like it.”\**  
 *“Mr Devlin. I am prepared to do whatever it takes to ensure my child has a shot at a normal life, even if it means giving up my own”\**  
@@ -196,7 +194,6 @@ As I climbed the stairs, I removed my jacket and cap from the bag and put it on.
 *“The more heinous the crime, the better protected your family will be from coming under my employment,” the devil finally spoke\**  
 *.*
 
-  
 I reached the office of my boss Gary Mehicus, and opened the door to find him busy on the phone.
 
 His face immediately lit up when he saw me dressed in the autographed baseball jersey and cap he had gifted me for my birthday as a youngster. I waited for him to finish speaking.
@@ -209,10 +206,6 @@ His face immediately lit up when he saw me dressed in the autographed baseball j
 I repeated the exact words the devil had told me during our meeting.
 
 While he still didn’t understand, I saw my godfather’s face turn pale when he noticed me removing a kitchen knife from my jacket and locking the door behind me.
-
-
-
-
 
 **\*\*A Few Years Later\*\***  
 Luke Pritchard entered the hospital with his ten year old son Sam. He was holding a bouquet of flowers he wanted to give to a patient. When he reached the patient's room, he knocked on the door a couple of times before entering.  
@@ -252,4 +245,4 @@ They eventually changed the subject and went on to talk about other things for t
 
 When Luke finally got up to leave, he asked “Mr Devlin, would it be ok for you if the three of us took a picture together? I would like to send a copy to my dad. I think he would love to see the picture of the man who saved his grandkid.”
 
-“Of course Luke, I would absolutely love that,” Thomas Devlin, replied breaking into a smile revealing a couple of gold teeth.
+“Of course Luke, I would absolutely love that,” Thomas Devlin, replied breaking into a [smile](https://www.reddit.com/user/Federal_Machine692/) revealing a couple of gold teeth.
