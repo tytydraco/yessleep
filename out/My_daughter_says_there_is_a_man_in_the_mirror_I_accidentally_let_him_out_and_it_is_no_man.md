@@ -8,7 +8,7 @@ I was about to walk away to continue cooking dinner when I saw a strange marking
 
 “I am sorry Daddy my friend told me to write it, I am not sure what it is, but I think it's pretty.” She smiled once again disarming my frustration, but I was still confused by what I was looking at.
 
-*Did one of her friends speak a different language?* 
+*Did one of her friends speak a different language?*
 
 I looked again at the odd mark on the fancy-hand mirror. My wife and I had bought the mirror for Cassie’s 7th birthday from an estate sale. It was a very old antique beauty mirror with real silver and sapphires studded into it. We were surprised it was so cheap considering the valuable Materiels, but we weren't complaining.
 
@@ -22,7 +22,7 @@ The marking she left on the hand mirror edge, written just on the corner where t
 
 “I knew you wouldn't believe me; he said you wouldn't.” I seemed to have upset her so I decided to play along, or at least in a way that did not seem like it was condescending or poking fun at her “friend”.
 
-“Ok honey, I am sorry. Did the mirror man say what the number was for?” 
+“Ok honey, I am sorry. Did the mirror man say what the number was for?”
 
 She smiled again and said. “Yes, he said it had to do with his visit and that the numbers and the mirror will let him visit soon.”
 
@@ -60,7 +60,7 @@ The next morning Cassie did not come downstairs for breakfast and I went up to c
 
 “But Gallas said not to tell anyone about the countdown.” She stopped herself and looked scared at what she had just said and stopped talking.
 
-“Who is Gallas? Is he the mirror man? I asked her but she had resolved to stop talking. I asked again and she looked down at the flood but nodded her head. I gave up and handed her back the mirror. Whatever this game was really, I couldn't figure it out.
+“Who is Gallas? Is he the mirror man?" I asked her but she had resolved to stop talking. I asked again and she looked down at the floor but nodded her head. I gave up and handed her back the mirror. Whatever this game was really, I couldn't figure it out.
 
 That evening I stayed up after putting Cassie to bed and like clockwork I heard her leave her room and creep down the stairs.  I saw her take the marker and she seemed to move in an odd almost hypnotic trance. She scrawled the markings on the hand mirror and then the wall mirror and when I stepped closer to see her and get her attention, I noticed to my horror her eyes were glazed over and she looked barely conscious. The marking looked like 2 narrow Y’s and I knew I had to do something. I grabbed Cassie's shoulders and gently shook her and she snapped out of the trance with a scream like she had just had a night terror. I hugged her and told her it was ok. She kept asking if it was time and if Gallas, the mirror man was there yet. After some fitful mumbling, she calmed down and I took her back upstairs and she even fell asleep in my arms on the way up the stairs.
 
