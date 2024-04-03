@@ -2,7 +2,7 @@ I wasn’t the one that found Matty. It was his wife, Elizabeth, back from a nig
 
 I would have preferred not to hear any further details about my brother’s body, but when Elizabeth called me on the phone, hysterical, she couldn’t help but overshare. Dark bruises covering his arms and legs. There was blood everywhere, soaking through his white t-shirt and striped pajama pants, pooling all around the wicker chair where he sat. The skin of his neck was frayed where it had been ripped apart, almost like a popped balloon. The muscle, too, was stretched and torn, and the vertebrae stuck from the top of his neckhole like a white sleeping worm.
 
-Though we hadn’t spoken much in the last few years, I was the only family Matty had left. I caught the next flight to Boston and met up with Elizabeth at her parents’ house. She started screaming as soon as she saw me. Or maybe she’d been screaming all day. Maybe I looked too much like my brother for her to handle. 
+Though we hadn’t spoken much in the last few years, I was the only family Matty had left. I caught the next flight to Boston and met up with Elizabeth at her parents’ house. She started screaming as soon as she saw me. Or maybe she’d been screaming all day. Maybe I looked too much like my brother for her to handle.
 
 After a few hours, she calmed down enough to start saying a few words. I asked her if Matty had been in any kind of trouble. He’d been reckless in his late teens and early twenties, selling drugs on campus. It was small-time stuff, but he’d made a few bad enemies, guys that put a real scare into him one night that made him get out of the game altogether.
 
@@ -16,9 +16,9 @@ She shook her head.
 
 The cops investigated, of course. But there were no leads. No evidence of a break-in. No one with a grudge. It was like Matty had twisted his own head off and set it in his lap. One of the detectives mentioned that more than half of murders go unsolved. It seemed this would be one of them.
 
-Weeks passed, and I stuck around, trying to help Elizbeth put her life back together. 
+Weeks passed, and I stuck around, trying to help Elizbeth put her life back together.
 
-Even after the police were done scouring her place, she refused to go back in. We hired some people to clean up the blood, but they told me there was only so much they could do. The hardwood in the bedroom would never give up that stain. 
+Even after the police were done scouring her place, she refused to go back in. We hired some people to clean up the blood, but they told me there was only so much they could do. The hardwood in the bedroom would never give up that stain.
 
 Finally, it fell on me to go into the place and gather a few of Elizabeth’s things. They were going to put it up for sale. She was still in pieces, planning to move back in with her parents, probably permanently.
 
@@ -30,7 +30,7 @@ Up until that point, I’d been staying in a cheap AirB&B nearby, but with Matty
 
 “Why not?” I asked, but she couldn’t come up with a good reason.
 
-Of course, the day I got into the place, the first thing I did was head to the bedroom. I guess I just had to see it. The cleaners had clearly scrubbed the hell out of the place, but there was still a nasty stain in the center of the room. The mark was roughly circular and maybe three feet across, mostly gray but grew darker at the edges, almost black. Before she sold the house, Elizabeth would have to have the boards replaced, maybe put in carpeting. Something. 
+Of course, the day I got into the place, the first thing I did was head to the bedroom. I guess I just had to see it. The cleaners had clearly scrubbed the hell out of the place, but there was still a nasty stain in the center of the room. The mark was roughly circular and maybe three feet across, mostly gray but grew darker at the edges, almost black. Before she sold the house, Elizabeth would have to have the boards replaced, maybe put in carpeting. Something.
 
 For a few seconds, I just stood there, looking at the black circle, imagining my brother inside it, permanently.
 
@@ -44,27 +44,27 @@ All afternoon as I packed boxes of Elizabeth’s clothes and shoes, the eye foll
 
 A few hours went by, a bunch of boxes got packed, and it started to get dark. My first instinct was to sleep in the living room, away from the stain. And, honestly, away from the owl. I turned off the lights and stretched out on the couch, but it was old and lumpy, impossible to get comfortable. Matty’s mattress, practically brand-new, lay untouched in the other room.
 
-Finally, after maybe an hour of rolling around, my back aching from the day of hard labor, I grabbed the blanket and headed for Matty’s old room, carefully walking around the black circle. 
+Finally, after maybe an hour of rolling around, my back aching from the day of hard labor, I grabbed the blanket and headed for Matty’s old room, carefully walking around the black circle.
 
-As I tossed the blanket on the bed, I looked in the corner of the room at the owl carving. The towel I’d tossed over its head lay on the ground now. I wondered how it had fallen off. Maybe I’d been careless when I covered the statue in the first place. 
+As I tossed the blanket on the bed, I looked in the corner of the room at the owl carving. The towel I’d tossed over its head lay on the ground now. I wondered how it had fallen off. Maybe I’d been careless when I covered the statue in the first place.
 
-The eye caught the moonlight, watching. As stupid as it made me feel, I got up and walked over, picking the towel off the floor. As I did, I heard a distinct sound, something like rat’s feet skittering inside the owl. 
+The eye caught the moonlight, watching. As stupid as it made me feel, I got up and walked over, picking the towel off the floor. As I did, I heard a distinct sound, something like rat’s feet skittering inside the owl.
 
 I jumped back halfway to the bed, still holding the towel in my hand. For a moment, I stared at the carving, daring it to move, waiting for another sound. Nothing. The whole time, though, even as I was watching it, the amber eye watched me.
 
 Slowly, I walked back to the carving and threw the towel over it. Then, I backed across the room to the bed, not quite realizing I was stepping through the black circle on the floor. Finally, I collapsed onto the mattress, curled under the blanket and fell asleep.
 
-I woke to a cracking sound. 
+I woke to a cracking sound.
 
 At first, everything was still. Then, through the moonlit near-dark of the room, I watched as the owl statue began to move. First, its left wing pushed out from inside. Then its right. The wood pushed out perhaps five inches, revealing something black and skeletal inside. It looked almost like the transformers Matty and I had played with as kids, unseen robots pushing out through the plastic panels of a vehicle to reveal their hidden, shiny bones.
 
 I lay transfixed as two thin, black legs pushed out hidden panels near the owl’s base. The black legs–at least, they seemed like legs–couldn’t have been much wider than a curtain rod. They pushed all the way down to the floor.
 
-Then, the whole carving began to move toward me. The wood swayed on some unseen thing inside it, some too-thin creature wearing the wooden owl like armor. 
+Then, the whole carving began to move toward me. The wood swayed on some unseen thing inside it, some too-thin creature wearing the wooden owl like armor.
 
 I looked for a way out. I could have jumped through the window, but I was on the second floor. And the thing was moving too fast now anyway. As it reached the bed, it reached out, its thin, black arms growing impossibly long, its hands flattening and growing wide like dinner plates. Then it placed them over my ears and everything went black.
 
-I woke to find myself sitting on a wooden chair from the kitchen. The owl must have brought it in while I was passed out. It had placed me inside the black circle. I thought of Matty, sitting here just like me, not that long ago. 
+I woke to find myself sitting on a wooden chair from the kitchen. The owl must have brought it in while I was passed out. It had placed me inside the black circle. I thought of Matty, sitting here just like me, not that long ago.
 
 I tried to move, but the long black rods that I’d assumed were the owl’s legs bound my ankles to the chair. Its hands still gripped my head, their grip only slightly more relaxed than when it had first grasped me. The carving itself stood only a few inches in front of me. Though it fixed me with its amber eye, I could see now that the other eye hole was now open, revealing something black and moving inside.
 
@@ -144,7 +144,7 @@ It twisted my head again. I felt a wetness on my skin and wondered if I had begu
 
 As I said the words, the first rays of sun cut through the drawn shades. Where the rays struck the things hands, there was a smokey smell.
 
-“Mercy, quick, or it’ll only hurt worse!” shouted the thing, but there was a note of fear in its tone now. 
+“Mercy, quick, or it’ll only hurt worse!” shouted the thing, but there was a note of fear in its tone now.
 
 “Go ahead then,” I said. But it didn’t. The sun shone more brightly. Slowly, the pressure on my temples began to ease. The black limbs withdrew. The owl began to back away into its corner. By the time dawn had fully flooded the room, the carving was back in place.
 
@@ -156,7 +156,7 @@ She nodded, understanding.
 
 “I’ve been thinking about it,” she said. “And I think I can handle the rest. I’ve been leaning on you too hard.”
 
-Suddenly, a wave of panic flooded through me. 
+Suddenly, a wave of panic flooded through me.
 
 “Promise you won’t stay there,” I said. “Promise.”
 
@@ -182,11 +182,11 @@ She shrugged.
 
 I said goodbye and got in the truck. And then I drove.
 
-I headed out in the city, out where the urban sprawl gave way to some kind of forest, marked with a few sunny meadows. When I was satisfied that I’d reached the middle of nowhere, I stopped. 
+I headed out in the city, out where the urban sprawl gave way to some kind of forest, marked with a few sunny meadows. When I was satisfied that I’d reached the middle of nowhere, I stopped.
 
-I took the statue from the bed of the truck and dragged it out into a sunny field. All the while, I heard the skittering sound inside. It was getting hot, toward afternoon, and I would tell the heat and light was affecting the thing inside. I knew the wood was full of little cracks. Some of them must have been big enough to let the light through.
+I took the statue from the bed of the truck and dragged it out into a sunny field. All the while, I heard the skittering sound inside. It was getting hot, toward afternoon, and I could tell the heat and light was affecting the thing inside. I knew the wood was full of little cracks. Some of them must have been big enough to let the light through.
 
-“It’s still only noon,” I said. “Not quite the hottest part of the day. That’ll be hours from now, maybe at three or four. I wonder if you’ll make it that far.” 
+“It’s still only noon,” I said. “Not quite the hottest part of the day. That’ll be hours from now, maybe at three or four. I wonder if you’ll make it that far.”
 
 A small shriek emerged from inside the owl. I ignored it.
 
