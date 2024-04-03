@@ -114,4 +114,4 @@ Like him, I began to keep all lights on during the day and can’t fall asleep w
 
 The hugging boulders haunt my dreams, pointing to a certain location within the British Isles. But what will I do if I find them? I don’t know. The urge to go is strong. But I have a good feeling. A feeling that I’ll be able to break this curse. The whispers grow louder by the day, and even though I fear what might happen, I can’t ignore their call any longer.
 
-[PART 2](https://www.reddit.com/r/nosleep/comments/1b1bavv/last_year_i_received_henris_final_email_from_20/)
+[PART 2](https://www.reddit.com/r/nosleep/comments/1buqqra/last_year_i_received_henris_final_email_from_20/)
