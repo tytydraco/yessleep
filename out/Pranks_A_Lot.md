@@ -29,7 +29,7 @@ When I did, for a split second I could have sworn I saw the logo change to some 
   
 “Hey,” I typed.  
   
-“You, what's good?” PranksALot typed back.  
+“Yo, what's good?” PranksALot typed back.  
   
   
 Cutting straight to the chase, I explained my situation and asked if he had any ideas for me.  
