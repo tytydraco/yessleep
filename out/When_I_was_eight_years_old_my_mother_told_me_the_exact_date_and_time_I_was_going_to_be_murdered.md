@@ -10,7 +10,13 @@ I preferred *psycho.*
 
 It wasn't unusual for me to spend my Friday night tied to my siblings inside my uncle’s storage container. 
 
-I was eight years old, I should have been at home watching cartoons or in bed. But I won't say my family was normal. Even if Uncle Wes didn't take us, the three of us would be accompanying our parents in their  shady activities, as long as we stayed in the truck. However, Uncle Wes’s monthly kidnappings had become an event.  
+I was eight years old, I should have been at home watching cartoons or in bed.
+
+I won't say my family was normal. 
+
+Even if Uncle Wes didn't take us, the three of us would be accompanying our parents in their  shady activities, as long as we stayed in the truck. 
+
+However, Uncle Wes’s monthly kidnappings had become an event.  
 
 Get up. 
 
@@ -44,7 +50,9 @@ There was chocolate milk in my lap, my brother curled up next to our psycho cous
 
 Immediately, my parents’ training kicked in. Resisting the urge to groan, I inclined my head left and then right. 
 
-I didn't even have to open my eyes to know where I was. The ice cold temperature and unearthly silence was enough. When I was younger, the storage container was terrifying, a nightmare that haunted the back of my mind. At eight years old however, I had been through this far too many times to be scared. My mouth felt thick and strange, and my memories were fuzzy. 
+I didn't even have to open my eyes to know where I was. 
+
+The ice cold temperature and unearthly silence was enough. When I was younger, the storage container was terrifying, a nightmare that haunted the back of my mind. At eight years old however, I had been through this far too many times to be scared. My mouth felt thick and strange, and my memories were fuzzy. 
 
 Head.
 
@@ -70,15 +78,7 @@ He answered by knocking his head into mine.
 
 “Ow.” 
 
-“What did I say?!” Rowan exploded in a hiss. I could tell he had been waiting every agonising second to say that. 
-
-From the sound of his voice, he was awake. Like *awake* awake. 
-
-Rowan was a light sleeper. 
-
-Even when our chocolate milk was drugged, or we were dosed with sedatives, he was the one who was awake first. Which meant the stupid head had been sitting there for who knew how long perfectly rehearsing the best way to say–
-
-“I told you so!”
+“What did I say?!” Rowan exploded in a hiss. “I *told* you so!”
 
 I had to bite back a petty retort. 
 
@@ -106,11 +106,15 @@ If underground thugs wanted his mercy, then they had to bring him a Delacroix he
 
 I rode with Mom on the way to the kid’s house.
 
-“Back in a moment, honey,” Mom, calmly climbed out of the car. 
+“Back in a moment, honey,” Mom calmly climbed out of the car. 
 
 She was gone for maybe a minute. 
 
-I heard one singular gunshot before she was yanking open the car door, my brother in her arms. Mom wasn't scared or in a rush to get away. She  reprimanded Rowan for breaking her number one rule, and then cranked up the radio. After that incident, he trusted no-one. Not even the lunch ladies. 
+I heard one singular gunshot before she was yanking open the car door, my brother in her arms. 
+
+Mom wasn't scared or in a rush to get away. 
+
+She  reprimanded Rowan for breaking her number one rule and then cranked up the radio. After that incident, he trusted no-one. Not even the lunch ladies. 
 
 Rowan shot me a glare, but I was already trembling, my teacher’s words sending my stomach twisting into knots. “Don't fall for it, idiot.”
 
@@ -140,7 +144,9 @@ According to our principal, a *family friend* would be waiting for us.
 
 I didn't want to follow him. 
 
-Part of me already knew what would be waiting for us, and there was nowhere to run. The police were under the Mayor’s control, and the Mayor wanted our family's heads on pikes. Rowan skulked behind me, keeping his distance. 
+Part of me already knew what would be waiting for us, and there was nowhere to run. 
+
+The police were under the Mayor’s control, and the Mayor wanted our family's heads on pikes. Rowan skulked behind me, keeping his distance. 
 
 “Look.” my brother shoved me, pointing to Principal Carver’s bulging back pocket. “I bet that's hush money.”
 
@@ -152,9 +158,11 @@ This time however, my brother was infuriatingly right.
 
 Our cousin greeted us, waving three cartons of chocolate milk.
 
-Rowan grumbled a bad word. When we twisted around to make a run for it back into school, a scary amount of adults surrounded us, all of whom worked for our uncle. 
+Rowan grumbled a bad word, and I stiffened up. His hand reached out for mine, but I was frozen. 
 
-“Hey, guys!” his son patted the truck, an evil smile plastered on his lips. There was a strange man next to him. 
+When we twisted around to run back into school, a scary amount of adults surrounded us, all of whom worked for our uncle. 
+
+“Hey, guys!” His son patted the truck, an evil smile plastered on his lips. There was a strange man next to him. 
 
 I guessed he was the owner of the car, unless our eight year old cousin was an underage driver. I didn't think Uncle Wes would send his son to capture us. 
 
@@ -186,7 +194,11 @@ This felt too real.
 
 Like the kidnappings our parents warned us about. 
 
-When I screamed, slamming my fists into the window, something collided with the back of my head, and my face hit the window, pain exploding in a supernova. Leaning over the seat, my cousin snatched the chocolate milk, pierced it with the straw, and handed it over. 
+When I screamed, slamming my fists into the window, something collided with the back of my head, and my face hit the window, pain exploding in a supernova. 
+
+When the truck flew forwards, my body slammed into the pane with a *thunk*.
+
+Leaning over the seat grinning, my cousin snatched the chocolate milk, pierced it with the straw, and handed it over. 
 
 “Drink.” he giggled with a tone that told me I didn't have a choice. 
 
@@ -200,7 +212,7 @@ It *did* taste good.
 
 But then the world started to spin off kilter. 
 
-Rowan slowly tipped into the window, his milkshake pooling off his seat. 
+Rowan slowly tipped into the window, eyes flickering, chocolate milk pooling from his seat. 
 
 Presently, I could still feel the impact, gritting my teeth.
 
@@ -210,7 +222,11 @@ I had grown used to the freezing cold temperatures, the scratchy rope wrapped ar
 
 The Delacroix’s were known as the infamous crime family in our town. 
 
-Mom and Dad were ex CIA gone rogue, the two of them deciding to take over our town’s underground. Those words had been drilled into me since I was a little kid. They made sure to reiterate that they were *not* good people, and sometimes they did very bad things, but they still loved us. Which made us targets. 
+Mom and Dad were ex CIA gone rogue, the two of them deciding to take over our town’s underground. Those words had been drilled into me since I was a little kid. 
+
+They made sure to reiterate that they were *not* good people, and sometimes they did very bad things, but they still loved us. 
+
+Which made us targets. 
 
 The closest we came to being compromised was Elena Mara, a dangerous name, and an old flame of our mother’s. 
 
@@ -220,17 +236,17 @@ Luckily, I was sick that day.
 
 You would be surprised how corrupt our town is, where it's normal to hand kids over for a decent chunk of cash. 
 
-Especially when everyone wanted the Delacroux family dead. 
+Especially when everyone wanted the Delacroix family dead. 
 
 Rowan and Ophelia were snatched on their way home from school. Elena and her cronies manipulated the bus driver to hand them over in broad daylight. 
 
 The two described being shown a *scary* video which made their head hurt. 
 
-Mom said it made sense for Elena to have the technology, since she too was a rogue CIA, though it didn't work great. All it did was cause headaches. 
-
 After multiple tests and isolating the two of them for two days, Mom came to the conclusion that Elena was trying to scare her. The videos were just that. 
 
-Videos. Nothing shady, but our parents definitely kept an eagle eye on my siblings for weeks after that. Mom didn't like people fucking with her family, however. Even if they were old flames trying to attract her attention. 
+Videos. 
+
+Nothing shady, but our parents definitely kept an eagle eye on my siblings for weeks after that. Mom didn't like people fucking with her family, however. Even if they were old flames trying to attract her attention. 
 
 She left after dinner one night with a smile, tucking her knife into her jeans. 
 
@@ -240,7 +256,9 @@ However, it was our *own* blood who was out for ours.
 
 Uncle Wes was Dad’s ex partner in crime until he met Mom. 
 
-Dad tried to kill his own brother, and Wes built his own business, with his prime goals to take over the business, and destroy our father’s life. We were part of that, so of course, his three children were caught in the crossfire. 
+Dad tried to kill his own brother, and Wes built his own business, with his prime goals to take over the business, and destroy our father’s life. 
+
+We were part of that, so of course, his three children were caught in the crossfire. 
 
 Which meant every month or so, we would find ourselves once again at the mercy of Uncle Wes. 
 
@@ -260,7 +278,7 @@ Wes was fully mute, so he let his scar speak for him. I found myself wondering i
 
 Uncle Wes wore his scar like a trophy, and he was right to. That thing was grotesque. I had witnessed some of his executions, the victims begging for their lives. Unlike my parents’ way of *taking care of people*, his tactics were a lot more brutal.
 
-Uncle Wes didn't say  a word, which was scarier, choosing  a baseball bat wrapped in spikes, or an axe. He always made a mess. 
+Uncle Wes didn't say  a word, which was scarier, choosing a baseball bat wrapped in spikes, or an axe. He always made a mess. 
 
 My eyes were blindfolded before I could see the real grisly stuff, though all I really needed to hear was the *crunch* of the thick blade slicing through the skull, the screaming and begging coming to an abrupt halt. 
 
@@ -270,7 +288,9 @@ The body hitting the ground, always stomach first.
 
 If I really concentrated, I could hear the wet splash of blood seeping out of them. 
 
-When the blindfold was removed from my eyes, one of his cronies would be cleaning up blood and bits of skull with a scarlet mop. I think I was desensitised to blood at this point, or the color red in general. I just pretended it was a whole lot of cherry juice, but sometimes I would crack, especially hearing the crack of a gunshot, or the sickening *squish* of a knife penetrating flesh. 
+When the blindfold was removed from my eyes, one of his cronies would be cleaning up blood and bits of skull with a scarlet mop. I think I was desensitised to blood at this point, or the color red in general. 
+
+I just pretended it was a whole lot of cherry juice, but sometimes I would crack, especially hearing the crack of a gunshot, or the sickening *squish* of a knife penetrating flesh. 
 
 Fee stayed very still and didn't speak, and Rowan cried. He was getting better at tolerating it, but my brother really hated blood. Uncle Wes used that to his advantage, so we always had a front row seat at every execution, the three of us awkwardly tied back to back. We didn't have to *see* to get traumatised. 
 
@@ -302,7 +322,9 @@ I’ll start by saying neither I nor my siblings were born into the Delacroix fa
 
 We were adopted together from the same children's home at the age of five years old. I  remember being transfixed by the woman who would become my mother, a beautiful redhead appearing in front of me with a smile I trusted. 
 
-She was already hand in hand with Rowan and Ophelia. Rowan was a celebrity at Bolivia House. At least, his parents were. The other kids were obsessed with finding out who his real parents were, trying to match his mop of dark curls to any famous movie stars. 
+She was already hand in hand with Rowan and Ophelia. 
+
+Rowan was a celebrity at Bolivia House. At least, his parents were. The other kids were obsessed with finding out who his real parents were, trying to match his mop of dark curls to any famous movie stars. 
 
 Despite choosing to stay anonymous, Rowan’s bio parents sent him cash and toy's every month, which skyrocketed him up the orphanage popularity ladder. 
 
@@ -316,7 +338,7 @@ When he asked why, Rowan got the same answer.
 
 “Because they don't want you.” 
 
-To an five year old, that's like telling them the world is ending. 
+To a five year old, that's like telling them the world is ending. 
 
 Ophelia was the troublemaker who regularly ended up in the housemother’s office after scribbling on the walls and filling the bathtub with frogs. 
 
@@ -334,12 +356,6 @@ Rowan and Ophelia were known to get on each other's nerves, so adopting them tog
 
 I tried to break up their fight, getting shoved over in the process. 
 
-So, I threw a book at Rowan’s head. 
-
-Ophelia found it funny, so she too hit him with a book. 
-
-Rowan retaliated by throwing the entire toy box at us. 
-
 Mom appeared in the doorway and asked if the three of us wanted to go home with her. In our mother’s words, *“That was it. From the moment I saw you, I knew you were my children.”*
 
 The rest was history. 
@@ -352,7 +368,9 @@ We weren't technically Delacroix blood.
 
 When the storage container opened with a loud groan, I knew it was Liam. 
 
-My cousin always announced his presence by whistling. His footsteps unnerved me, dancing towards us. Light seeped inside the storage container, illuminating his face. Liam was eight years old, skinny, and did not resemble his father or little sister in the slightest. 
+My cousin always announced his presence by whistling. His footsteps unnerved me, dancing towards us. Light seeped inside the storage container, illuminating his face. 
+
+Liam was eight years old, skinny, and did not resemble his father or little sister in the slightest. 
 
 He was a sandy blonde, while the two of them were freckled redheads. 
 
@@ -380,7 +398,9 @@ My brother laughed, and to my surprise, Ophelia joined in nervously.
 
 When Rowan leaned forward, I was thrown back. I could hear the smirk in my brother’s voice. “Shouldn't you be watching  adult TV shows by now?”
 
-Liam’s mouth stretched into a terrifying grin. Instead of responding, he pulled something from his pocket, and I felt Rowan stiffen. Playtime was over, and now we were playing like our criminal parents. An unwelcome shiver skittered down my spine. I saw the flash of silver, and then the curve of the blade. 
+Liam’s mouth stretched into a terrifying grin. Instead of responding, he pulled something from his pocket, and I felt Rowan stiffen. Playtime was over, and now we were playing like our criminal parents. 
+
+An unwelcome shiver skittered down my spine. I saw the flash of silver, and then the curve of the blade. 
 
 “My father is out on business,” Liam announced, casually spinning the handle between his fingers, “So, I figured why not play with my favorite cousins?”
 
@@ -392,17 +412,19 @@ The boy nodded, taking a step towards us.
 
 He was waving the knife around too much. If he wasn't careful, he was going to stab himself in the eye. 
 
-“Yep. I had a little help from my Dad’s friend!” he flashed me a smile, his eyes shining. Liam was trying way too hard to be his father, it was painful to watch. 
+“I had a little help from my Dad’s friend,” he said casually, flashing me a smile, his eyes shining with glee. 
 
-Still though, his annoying laugh made me nervous. Mom was yet to teach us how to untie knots around our wrists. 
+Liam was trying way too hard to be his father, it was painful to watch.
+
+The asshole definitely *wanted* a matching scar. 
 
 “Do you want to guess what I'm going to do to my *favorite* cousins?”
 
 “Force us to watch a kids cartoon?” Rowan mumbled.
 
-I wasn't expecting Liam to kick my brother in the gut, hard enough to knock the breath from his lungs.
+When my brother let out a sharp hiss, I realized our cousin had kicked him hard enough to knock the breath from his lungs. 
 
-Twisting my head, I saw my cousin's shadow lunging forwards. He kicked him again and again and again, until Rowan was wheezing, spitting blood. Liam didn't stop until my brother was silent. I could still hear his breaths, but they were labored, his clammy hands trembling. 
+Twisting my head, I glimpsed my cousin's shadow lunging forwards. He kicked him again and again and again, until Rowan was wheezing, spitting blood. Liam didn't stop until my brother was silent. I could still hear his breaths, but they were labored, his clammy hands trembling. 
 
 “Nope!” Liam laughed. “Try again!”
 
@@ -428,7 +450,7 @@ I started to scream, my cry choking into sobs. But I didn't have enough breath t
 
 The sudden prick of his knife grazing the curve of my throat sent my mind into overdrive. 
 
-“Your parents took something special from my uncle,” Liam murmured, jerking my head left and right, his fingernails digging into my chin. The boy was studying me, sticking his fingers into my mouth and prying it open. When I bit him, he cocked his head,  confused. “Wow. That's weird.”
+“Your parents took something special from my uncle,” Liam murmured, jerking my head left and right, his fingernails digging into my chin. The boy was studying me, sticking his fingers into my mouth and prying it open. When I bit him, he cocked his head,  confused. “Huh. That's weird.”
 
 Liam shuffled back, tightening his grip on the knife. 
 
@@ -472,19 +494,19 @@ My psycho cousin was never scared.
 
 Before I knew what was happening, my mother was wrenching the knife from my cousin, and screaming at him. 
 
-When he cried out, she wrenched his hands behind his back and shoved him to the ground. Maddy floated behind her, a wicked smile on her freckly face. 
+When he cried out, she pulled his hands behind his back and shoved him to the ground. Maddy floated behind her, a wicked smile on her freckly face. 
 
-The world made sense again. Tipping my head back, I watched my mother calmly and politely restrain my cousin. 
+The world made sense again. Tipping my head back, I watched my mother calmly restrain Liam. 
 
 Meanwhile, my younger cousin was laughing in the corner. 
 
-If there was anything Maddy loved more than terrorising her cousins, it was seeing her brother get his ass kicked.
+If there was anything Maddy loved more than terrorising us, it was seeing her brother get his ass kicked.
 
 Dad was in front of me, cradling my face. 
 
 His fingers tiptoed across my bruises, soothing them. 
 
-“It's okay, sweetie. I'm here. Daddy’s here.”
+“It's okay, sweetie. I'm here."
 
 He moved to untie Rowan, gently lifting my knocked out brother onto his back. 
 
@@ -516,6 +538,8 @@ I snapped to attention, and Rowan, who was sitting next to me frowning at his Po
 
 “Listen to me very carefully,” she said, her expression softening, “The three of you are going to die.”
 
+She said it so casually, I almost giggled. 
+
 Ophelia, knelt on the floor with a book on her lap, looked up, a pen in her mouth. 
 
 Rowan laughed, before disguising it with a cough. 
@@ -534,13 +558,13 @@ I was going to die at 18 years old.
 
 Ten years away, and yet I suddenly felt like every minute and second mattered. 
 
-The world looks different when you're told your death is inevitable. 
-
-Murder.
+The world looks different when you're told your death is close. 
 
 The word felt tangled and knotted. 
 
-We were going to be murdered in what she guessed was a planned attack, but She didn't know who our killer was. 
+Murder. 
+
+We were going to be murdered in what she guessed was a planned attack, but she didn't know who our killer was. 
 
 Mom broke down, pleading with us to understand that she and our father were hunting down our future killers, and she promised nothing was going to happen. 
 
@@ -590,7 +614,7 @@ Then dad paired me up with Ophelia.
 
 Whoever pinned their opponent first was awarded extra ice-cream for supper. 
 
-Initially, neither of us wanted to fight each other. I felt awkward, my feet sinking into the mat. Ophelia tried to kick me, and tripped over her own leg. 
+Initially, neither of us wanted to fight each other. I felt awkward, my feet sinking into the mat. Ophelia tried to kick me and tripped over her own leg. 
 
 So, dad tried a different tactic. 
 
@@ -610,7 +634,7 @@ At first, I barely felt the sharp impact of her hand slapping my face. I think i
 
 Before our father clapped his hands. 
 
-“That's right, Poppy! Now, I want you to use your hands.”
+“That's right, Fee! Now, I want you to use your hands.”
 
 I  could barely control myself when I hit back, this time shoving her to the ground.
 
@@ -658,7 +682,9 @@ I was already struggling to grab my own.
 
 “You can't kill me three times,” I said, struggling to find the right trajectory. 
 
-Mom lowered her weapon when I mimed shooting her in the face. “That's how fast it is, sweetie. Bad people do not hesitate.” She shot a round into the window, and I had to stop myself from flinching. “Why are *you* hesitating?
+Mom lowered her weapon when I mimed shooting her in the face. “That's how fast it is, sweetie. Bad people do not hesitate.”
+
+She shot a round into the window, and I had to stop myself from flinching. “Why are *you* hesitating?
 
 “Because you're my mother.”
 
@@ -700,15 +726,19 @@ By the age of sixteen, I used every waking minute to train.
 
 Rowan took me down in a self defence exercise, only for me to leap onto his back and rip out his hair. Dad called it fighting with emotion. He told me to take a walk around the yard and come back when I was less agitated. I knew my brother and sister’s weak spots at this point, but they knew mine too. 
 
-I threw a punch, aiming for his neck to destabilise him, but he was already tracking my moves, narrowed eyes drinking all of me in. With a single kick to the groin area, I was lying on my back staring at the ceiling, and Dad was shouting at me to try again. I did, this time pinning him. But he was fiercely competitive, knocking me back onto my ass. We all had our respective talents.
+I threw a punch, aiming for his neck to destabilise him, but he was already tracking my moves, narrowed eyes drinking all of me in. With a single kick to the groin area, I was lying on my back staring at the ceiling, and Dad was shouting at me to try again. I did, this time pinning him. But he was fiercely competitive, knocking me back onto my ass. 
 
-Rowan was our best fighter, accompanying Dad on assignments as the brawn. There were a surprising number of teen gang members, and even as a fourteen year old, Rowan easily brought them to their knees, cementing himself as a Delacroix. 
+The only thing that destabilised him was making him laugh. 
 
-I'm pretty sure his obsession to be the best  came from our cousin's beatings when we were kids. Dad taught him how to channel his anger into fighting. 
+We all had our respective talents.
 
-Liam had permanently scarred him both mentally and physically. He had a scar just below his left eye. Rowan was overly obsessed with bringing down Uncle Wes (because it meant killing our cousin) but Dad told us to bide our time. 
+Rowan was our best fighter, accompanying Dad on assignments as the brawn. 
 
-Fee was our second best fighter. I enjoyed watching her whooping our brother’s ass. Ophelia had dark brown hair to her butt, and refused to get it cut, wearing it in a ponytail. When she was fighting, her hair was a tripping hazard. 
+There were a surprising number of teen gang members, and as a fourteen year old, Rowan easily brought them to their knees, cementing himself as a Delacroix. 
+
+I'm pretty sure his obsession to be the best  came from our cousin's beatings when we were kids. Dad taught him how to channel his anger into fighting. Liam had permanently scarred him both mentally and physically. He had a scar just below his left eye. Rowan was overly obsessed with bringing down Uncle Wes (because it meant killing our cousin) but Dad told us to bide our time. 
+
+Fee was our second best fighter. I enjoyed watching her whooping our brother’s ass. 
 
 I was more comfortable with a knife. 
 
@@ -846,7 +876,9 @@ I woke up, hanging off my father’s shoulder.
 
 Bleeding out, my breaths strangled, my words nonsensical. 
 
-Around us, there was nothing. We were no longer inside our house. There was only a single bright light illuminating a giant pit in the ground. Dad spoke to me while hauling my brother’s body into the chasm. He waited a moment, before letting out a disappointed sigh. 
+Around us, there was nothing. We were no longer inside our house. There was only a single bright light illuminating a giant pit in the ground. Dad spoke to me while hauling my brother’s body into the chasm. 
+
+He waited a moment, before letting out a disappointed sigh. 
 
 “Your mother and I found something a long time ago when we were working as field agents,” he hummed, “It promised us money and power. As long as we allowed it to consume.”
 
@@ -868,27 +900,31 @@ But after five minutes of using all of my upper body strength to hang on, I risk
 
 I could still feel the wound, but it didn't feel like it was gaping anymore.
 
+Somehow, the pit that had swallowed my siblings had *healed* me. 
+
 Mom and Dad left after a while of waiting. 
 
-By that time, I had enough strength to haul myself onto solid ground. For a moment, I stared at the ceiling, panting for breath. I rolled into my stomach and grasped for my knife, but it was gone. 
+By that time, I had enough strength to haul myself onto solid ground. For a moment, I stared at the ceiling, panting for breath. 
+
+I rolled into my stomach and grasped for my knife, but it was gone. 
 
 Fuck. 
 
-When I turned to leave, the pit grumbled. 
-
-The ground trembled beneath me. 
+When I turned to run, the pit grumbled, the ground trembling underneath my feet. 
 
 Twisting around, I instinctively reached for a weapon. 
 
-I lost my breath when a single hand appeared, grasping onto the ground for dear life. 
+But I was losing my breath all over again, when a single hand appeared, grasping onto the ground for dear life. 
+
+A second hand, and I was stumbling back. 
+
+Someone, or *something* was crawling out. 
 
 I started toward the pit, before running footsteps sent me stumbling back. 
 
-“Fuck. It can't be!” 
-
 Mom appeared, Dad following behind her. 
 
-“We’ve been feeding potential Delacroix heirs to this thing for fifty  years, and *now* it responds?!”
+“We’ve been feeding potential Delacroix heirs to this thing for fifty years, and *now* it responds?!”
 
 I didn't stay behind to let them test their luck with me again. 
 
@@ -909,3 +945,11 @@ I'm terrified of being captured again. I can't stop shaking. I'm fucking alone.
 Last night, I heard the Delacroix children killed my parent’s main rivals. 
 
 I guess Rowan and Ophelia really are officially part of the family business.
+
+I wanted to be a Delacroix. But I'm so glad I ran. 
+
+I can't help but wonder. If I was eaten by that thing, would it accept me too? 
+
+Would it spit me out as a pure Delacroix heir? 
+
+I guess I'll never know.
