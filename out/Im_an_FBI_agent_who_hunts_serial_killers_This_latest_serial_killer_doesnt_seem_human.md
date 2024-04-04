@@ -1,6 +1,6 @@
 As an FBI agent in the elite homicide unit, I was often tasked with tracking down the worst of humankind. But one case in particular really stays with me, and to this day, still haunts my nightmares.  
   
-The media called him the Vampire of Sacramento, and the name was certainly a fitting one. We found the victims with bite marks all over their bodies. They also showed signs of extensive torture, as well as mutilation both before and after death.   
+Within the agency, we called him the Vampire of Frost Hollow, and the name was certainly a fitting one. We found the victims with bite marks all over their bodies. They also showed signs of extensive torture, as well as mutilation both before and after death.  
   
 In some cases, glasses from their kitchens had been used to collect warm blood from the dying, struggling bodies of the victims. Others had organs removed. We would eventually find out why, and the reason was horrifying beyond anything I could have imagined.  
   
@@ -22,9 +22,9 @@ A few cops unstrung spools of yellow crime scene tape warning people to stay off
   
 “What do you think about this guy?” I asked, always curious to know what the local cops thought. Officer Paisley shrugged his rounded shoulders, reminding me of Humpty Dumpty in his general body shape.  
   
-“I think he’s one sick SOB,” Officer Paisley said blandly, looking away. “I saw what he did to that family over on Turtleback Lane. You know what the media calls him? The Vampire of Sacramento. Quite a nickname, huh?” I remembered looking through crime scene reports of the first murder scene. It had indeed been a horrifying experience just reading through the sterile police descriptions of the homicides and looking at the photographs.  
+“I think he’s one sick SOB,” Officer Paisley said blandly, looking away. “I saw what he did to that family over on Turtleback Lane. You know what the cops call him? The Vampire of Frost Hollow. Quite a nickname, huh?” I remembered looking through crime scene reports of the first murder scene. It had indeed been a horrifying experience just reading through the sterile police descriptions of the homicides and looking at the photographs.  
   
-In the first crime scene, there had been a husband and a wife murdered in the kitchen, their hearts taken out of their bodies, the blood drained from them. In the living room, they found an infant in a crib. His entire chest cavity had been ripped open, as if with claws. Everything once inside his small, fragile body was strewn about the room like garbage. The tiny intestines hung from the walls of the crib, unspooled like a bloody snake.   
+In the first crime scene, there had been a husband and a wife murdered in the kitchen, their hearts taken out of their bodies, the blood drained from them. In the living room, they found an infant in a crib. His entire chest cavity had been ripped open, as if with claws. Everything once inside his small, fragile body was strewn about the room like garbage. The tiny intestines hung from the walls of the crib, unspooled like a bloody snake.  
   
 They found the seven-year-old daughter hanging from a tree in the backyard, her eyes removed, her chest cut open down the middle. The black sockets stared sightlessly ahead. Her pale skin showed that her blood, too, had been drained.  
   
@@ -52,11 +52,11 @@ Next to her stood a blender filled with a slurry of organs and Coca-cola. The ha
   
 “I think we’re probably dealing with a paranoid schizophrenic, but it’s odd,” I said, looking at the crime scene with a sick feeling of revulsion rising in my chest. I pressed it back down, focusing on the job. “From what I read of the last crime scene and from what I’m seeing here, it looks like a combination of both organized and disorganized features. There is clear evidence of planning. He picked the locks at both residences and covered the cameras with paint.”  
   
-“Whoever he is, he’s drinking the victims’ blood and organs,” Agent Stone said, a quick flash of disgust crossing his face before it reverted back into a stony mask. “I’m thinking a white male, between the ages of 20 and 40.” I nodded. Serial killers almost always targeted victims within their own race, after all, and all the victims so far had been white. It was a comfort thing for many, I believe, though there were always exceptions like Richard Ramirez who would kill a variety of victim types of any race or gender.   
+“Whoever he is, he’s drinking the victims’ blood and organs,” Agent Stone said, a quick flash of disgust crossing his face before it reverted back into a stony mask. “I’m thinking a white male, between the ages of 20 and 40.” I nodded. Serial killers almost always targeted victims within their own race, after all, and all the victims so far had been white. It was a comfort thing for many, I believe, though there were always exceptions like Richard Ramirez who would kill a variety of victim types of any race or gender.  
   
 The age was just pure probability, as most serial killers began their sprees around the ages of 15 to 30. There could be dozens more victims stretching back a period of years connected to this unsub for all we knew. Agents at the FBI were looking through cold case files, trying to look for any connections to the blood-drinker we now hunted.  
   
-“Where’s the rest of the family?” I asked, looking forward past the threshold leading into the kitchen where a smeared trail of blood curved down the hallway. Agent Stone just shook his head, careful not to walk on any of the blood spattering the floor and walls. In front of us, the hallway opened onto doors on both sides.   
+“Where’s the rest of the family?” I asked, looking forward past the threshold leading into the kitchen where a smeared trail of blood curved down the hallway. Agent Stone just shook his head, careful not to walk on any of the blood spattering the floor and walls. In front of us, the hallway opened onto doors on both sides.  
   
 I looked into the first one, seeing a little boy’s room decorated with posters of cartoon characters. It was empty, however. The bed was still neatly made. It looked like the boy had just stepped out and would be back at any moment. The truth made my heart ache. I felt a rising sense of sickness as I thought about the fact that he would never see this room again.  
   
@@ -64,7 +64,7 @@ The next one was the master bedroom. A large bed stood in the center of the room
   
 He looked like Jesus on the cross, his arms spread out on both sides of him, his legs tightly coiled together. The unsub had wrapped razor-wire around his wrists and ankles. This victim was naked from the waist up and had deep slash marks on his chest and neck. The slashes seemed to form some occult symbol, though I didn’t recognize it immediately. The symbol looked like three upside-down triangles of ascending sizes contained with each other at the center, followed by a circle with an eight-pointed decoration like a lotus flower around it.  
   
-His eyes and eyelids were both gone, giving him a look of horror and surprise. The black sockets dribbled dark, clotted blood as they stared sightlessly up at oblivion. His mouth had been slashed from ear to ear, giving his mutilated face an insane, manic grin.   
+His eyes and eyelids were both gone, giving him a look of horror and surprise. The black sockets dribbled dark, clotted blood as they stared sightlessly up at oblivion. His mouth had been slashed from ear to ear, giving his mutilated face an insane, manic grin.  
   
 “What’s that symbol?” Agent Stone asked, sounding mesmerized. He took a step forward toward the body, but I put a steadying hand out to stop him.  
   
@@ -112,7 +112,7 @@ Sounds were muted and eerie. Each one of footsteps echoed up on the empty street
   
 As Agent Stone’s cry echoed off into the distance, I heard a new sound: heavy footsteps, like the pounding hooves of a running deer. Someone screamed nearby, on the other side of the street. I saw one of the gawkers stumble out, the girl with the pink hair. She was covered in slashes, her black clothes sliced up and wet with blood. Her eyes had rolled back in her head, the whites gleaming pale in their sockets. Her body shook, her fingers clenching and unclenching as if a seizure were ripping its way through her muscles. I realized with horror that she was floating above the sidewalk a few inches, her feet angled down. With her wide, white eyes, she looked straight at me and spoke.  
   
-“The Melted Man is coming for you,” she whispered in a voice like a shadow. “He’s going to make you scream for death before the end. He can smell your blood, like sweet flowers in the springtime… He’s coming with the power and might of the screaming goddess. Her dance will come tonight, and destroy this place with her poisoned breath. The sacrifices have opened the door, for worthy are the lambs.” Then the girl fell hard to the ground like a puppet with its strings cut.   
+“The Melted Man is coming for you,” she whispered in a voice like a shadow. “He’s going to make you scream for death before the end. He can smell your blood, like sweet flowers in the springtime… He’s coming with the power and might of the screaming goddess. Her dance will come tonight, and destroy this place with her poisoned breath. The sacrifices have opened the door, for worthy are the lambs.” Then the girl fell hard to the ground like a puppet with its strings cut.  
   
 A gunshot pierced the night from behind us, then a high-pitched, bellowing scream followed in its wake. I spun, my heart thudding. I now knew that we weren’t dealing with a regular serial killer.  
   
@@ -120,19 +120,19 @@ Officer Paisley came running up from the backyard, his fat body heaving. Rivers 
   
 “It’s after me!” he shrieked. As he got closer, I saw spatters of blood covering his face like raindrops. The deep thumping of pounding feet increased in speed and intensity. From behind the house came the creature with the dripping flesh, the one the girl had called the Melted Man.  
   
-Wrapped around his body, I saw ancient, rusted chains that dug deeply into his chest. They spiraled up his torso and fused into the skin. The flesh dripped over them like putrefying drops of pus. His eyes seemed to glow with a cold white light that reminded me of winter starlight.   
+Wrapped around his body, I saw ancient, rusted chains that dug deeply into his chest. They spiraled up his torso and fused into the skin. The flesh dripped over them like putrefying drops of pus. His eyes seemed to glow with a cold white light that reminded me of winter starlight.  
   
 The Melted Man loomed over Officer Paisley, his body nine or ten feet tall. His legs crackled with the snapping of bones and the strange twisting of his many joints. Though thin and emaciated as a death camp victim, he moved with an inhuman speed. His arms looked skeletal and long, lunging out towards Officer Paisley like the branches of a tree.  
   
-“Holy shit,” Agent Stone whispered. I saw his hand tremble, the pistol gripped tightly in his clenched fist, the knuckles white. He blinked fast, inhaled deeply and raised the gun. With a booming shout like thunder, the gun went off, hitting the Melted Man in the torso.   
+“Holy shit,” Agent Stone whispered. I saw his hand tremble, the pistol gripped tightly in his clenched fist, the knuckles white. He blinked fast, inhaled deeply and raised the gun. With a booming shout like thunder, the gun went off, hitting the Melted Man in the torso.  
   
 Black blood bubbled out from the wound. The chains slithered around his body like snakes. They unwound, loosening and tightening in rhythmic peristaltic waves. WIthin a few moments, the rusted spiral of chains had wrapped around the bullet wound and, almost caressingly, they covered the deep crater in his torso.  
   
 The sound of the gunshot gave me a shot of adrenaline that sent me into action. As the Melted Man drew within a few feet of Officer Paisley, I aimed at his head and fired.  
   
-The bullet smashed into his white, bony skull with a splash of black blood and a spattering of liquified flesh and bone splinters. The Melted Man gave a wail like some ancient dinosaur, a cacophony of furious roaring.   
+The bullet smashed into his white, bony skull with a splash of black blood and a spattering of liquified flesh and bone splinters. The Melted Man gave a wail like some ancient dinosaur, a cacophony of furious roaring.  
   
-“Get back!” Agent Stone cried to me, his eyes wild with fear, but I was already quickly backpedaling away from the abomination. Officer Paisley was only a few paces from us when the chains on the Melted Man’s body shot out like a spear.   
+“Get back!” Agent Stone cried to me, his eyes wild with fear, but I was already quickly backpedaling away from the abomination. Officer Paisley was only a few paces from us when the chains on the Melted Man’s body shot out like a spear.  
   
 Officer Paisley gave a cry like a strangled rabbit as the sharp point at the end of the chains burst through his chest, a blossoming flower of blood spurting from his ruptured heart. Officer Paisley looked down, surprised, the blood bubbling and frothing over his lips. Then he fell slowly forward, and the Melted Man pulled his chain back. He looked over at us with his glowing eyes and grinned.  
   
