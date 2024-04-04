@@ -52,4 +52,4 @@ As though she knew this, she told me, "Well, you can make it right," she looked 
 
 She made it clear that night that she expected me to find those who would exact crimes just like the villain of her story and make them pay. She proved her intention of ensuring I complied through showing me exactly the physical pain she can inflict upon my body. She can summon all the pain I inflicted upon her and, in turn, make me feel it in real time. 
 
-I'm scared, and I don't know who else to ask. I need to make her go away, and I've never dealt with an entity like this. Does anyone have any idea about how to help her find peace? I'm a writer, not a vigilante. I can't fulfill her wish.
+I'm scared, and I don't know who else to ask. I need to make her go away, and I've never dealt with an entity like this. Does anyone have any idea about how to help her find peace? I'm a writer, not a vigilante. I can't fulfill her [wish.](https://www.reddit.com/r/cmpaizspooks/s/v2xJeBdZBA)
