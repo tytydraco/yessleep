@@ -1,6 +1,6 @@
 Part 2: Mirror
 
-I’m sorry for the delay on this update, although I’m not sure how many people are even reading this, let alone taking it seriously. I got back this Monday morning and slept all day. I wasn’t even going to post here, but something about the feedback from this community made me feel like I was actually being listened to and believed. Maybe I’m just naïve. Maybe I’m just this alone and pathetic.
+I’m sorry for the delay on this update, although I’m not sure how many people are even reading this, let alone taking it seriously. I wasn’t even going to post here, but something about the feedback from this community made me feel like I was actually being listened to and believed. Maybe I’m just naïve. Maybe I’m just this alone and pathetic.
 
 I wish I had better news to report, mostly for my own sake. I feel more disturbed and confused than ever. But, at the same time I feel like I’m edging closer to something. It’s like I’m walking down a long black hallway, sliding my shoulder against the wall to stay upright and on the other side I can feel the warm pulse of something sliding along with me. I’m nearing an answer but feeling all the more blind. 
 
