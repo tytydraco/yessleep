@@ -102,4 +102,4 @@ Poor woman.
 
 I think of her often.
 
-I hope she died in terror, ruing having heeded a cry for help. I hope the dark form stayed beside her as she drew her last breaths, a threat to any rescuer. I hope she was hunted and haunted. If she wasn't, why did I leave her there?
+I hope she heeded a cry for help and died in terror. I hope the dark form stayed beside her as she drew her last breaths, a threat to any rescuer. I hope she was hunted and haunted. If she wasn't, why did I leave her there?
