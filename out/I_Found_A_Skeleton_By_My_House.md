@@ -1,3 +1,6 @@
+UPDATE: https://www.reddit.com/u/OperatorDunbar/s/DafdAXgAiC 
+
+
 
 So, hi. I’m not really sure how I should start this. I’m not even really sure why I’m writing this in the first place. I guess I just need somewhere to put everything going on in my mind down. There’s a lot rattling around in there right now. My brain has been a jumbled mess the last couple of days, though, I can’t really remember a time when it wasn’t, to be fair. I’m gonna need to give a lot of context, but I promise, it’s necessary.
 
