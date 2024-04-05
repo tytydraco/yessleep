@@ -1,6 +1,6 @@
 “You become responsible, forever, for what you have tamed…”, said the fox.
 
-My grandma, on the other hand, always said my imagination was something else.  So far she never really specified what that ”something else” was, but, right now I did my best to keep it from running amok by focusing on my favorite book about taming things. Things you wouldn’t normally think needed taming. Things ”Little Prince” told you how to tame.
+My Granny, on the other hand, always said my imagination was something else.  So far she never really specified what that ”something else” was, but, right now I did my best to keep it from running amok by focusing on my favorite book about taming things. Things you wouldn’t normally think needed taming. Things ”Little Prince” told you how to tame.
 
 But it couldn’t work on my imagination…not today.
 
@@ -16,9 +16,9 @@ On this cold, cold February day the Russians were coming. They were coming for m
 
 But it was expected. It was inevitable. It was almost a relief, the worst kind, true, but the anticipation was somehow way worse. And this awful, awful waiting part had been in the air ever since I remembered - one of the very first memories of my 12 years - mixed with the smell of granny’s apple pie and the sea in Mariupol in the last days of summer…
 
-And now they wanted our home. So my mom and dad sent me here, to some village on the Polish coast for Ukrainian refugee  kids…with my 80 year old granny to watch over me - until mom joins us.
+And now they wanted our home. So my mom and dad sent me here, to some village on the Polish coast for Ukrainian refugee  kids…with my 80 year old Granny to watch over me - until mom joins us.
 
-I saw granny open her huge blue eyes in the seat next to me. And before they focused - I briefly glanced at two other kids from my district: Masha and Dima. The former was either reading Harry Potter or trying to get reception on her cell…the latter hasn’t said a single word from the border, looking somewhere ahead with his eyes glazed over since the battery in his phone died.
+I saw granny open her huge blue eyes in the seat next to me. And before they focused - I briefly glanced behind me at two other kids from my district: Masha and Dima. The former was either reading Harry Potter or trying to get reception on her cell…the latter hasn’t said a single word from the border, looking somewhere ahead with his eyes glazed over since the battery in his phone died.
 
 "Victoria" -  Granny smiled - "You can’t sleep, eh? You should sleep whenever you can. See, I learned to do it even during…"
 
@@ -40,7 +40,7 @@ The zoom session with my parents was to be at 8 pm. I spent most of the remainin
 
 Miss Ann gave us her laptop so that we ”could see them on a bigger screen” . Said she didn’t need it. It only stole her time with silly diversions. She was a good woman, if not a very smart one. Come on, what normal person gives away laptops?
 
-The parents appeared 5 minutes late, something with the connection or electricity issues. And most of what they said was white noise. Dad was in his military uniform which made him look really alien and me - uneasy. He joked about it being too tight and how he could use some exercise on the battlefield.
+The parents appeared five minutes late, something with the connection or electricity issues. And most of what they said was white noise. Dad was in his military uniform which made him look really alien and me - uneasy. He joked about it being too tight and how he could use some exercise on the battlefield.
 
 It was a below average daddy joke. But it had to do for now and we all shared a forced laugh. Mom asked about the journey, the rooms and the food: lots of quick questions to fill in all the pregnant silences that invited different questions. The rest of the exchange, though, was almost inaudible. That is, apart from a bomb which suddenly exploded somewhere very, very close and all too loud.
 
@@ -72,7 +72,7 @@ And sure enough, The Angry Man appeared from nowhere again and joined them in lo
 
 Then the Angry Man nodded at the Empty Man to stay and came inside the hotel and, after ten seconds or so, sounds of an argument filled the winter air.
 
-My mom spent lots of time teaching me Polish, so I could understand almost all of the words the man shouted and they were of anger. They were of the fire that Ukrainian partisans from UPA set to Polish barns and churches before the Second World War.
+My mom spent lots of time teaching me Polish, so I could understand almost all of the words the man shouted and they were of anger. They were of the fire that Ukrainian partisans from UPA set to Polish barns and churches during the Second World War.
 
 And of their descendants stealing Polish jobs now, flooding Poland and Europe with immigrants and cheap grain, wanting to put honest farmers like himself out of business.
 
@@ -182,7 +182,7 @@ He looked at one of the hesitant man next to him.
 
 "And you, Janek…you don’t care what they did to Ivan? I’ll fucking make it easier you sanctimonious prick…try to look at me again like that and don’t bother coming to work tomorrow. And your wife? I’ll stop giving her a discount for my products at her shop…that what you want?"
 
-Paralyzed, I saw my grandma stepping outside (and I swear, I never saw her leaving my side), separating him from all those people.
+Paralyzed, I saw Granny stepping outside (and I swear, I never saw her leaving my side), separating him from all those people.
 
 "What do you want?" - she asked in perfect Polish - "To make this poor world even more divided? We’re not your enemies, friend…"
 
@@ -192,7 +192,7 @@ Paralyzed, I saw my grandma stepping outside (and I swear, I never saw her leavi
 
 "A bit. But it’s all getting out of hand now" -  he shook his head sadly - "So let’s get it back there. And you - back to your country, before you attract more of your kind."
 
-"My kind?" - grandma said it calmly, but I saw her eyes narrowing.
+"My kind?" - Granny said it calmly, but I saw her eyes narrowing.
 
 "Let’s just send the right signal, shall we? We don’t want anyone hurt, do we now? Like your little ones…"
 
@@ -200,15 +200,15 @@ I saw my grandma freezing. And the Angry Man smiling. And the people around terr
 
 "What? You thought your actions have no consequences on the ones you raise?" - said the Angry Man looking up at me - "You think your granddaughter is just some poor witness of historical event? Well, my grandma was burned alive in some barn in Bieszczady by your lot…friend."
 
-"Are you threatening…" - my grandma stumbled, clutching her heart - "Are you…Are you…please…don't…"
+"Are you threatening…" - Granny stumbled, clutching her heart - "Are you…Are you…please…don't…"
 
 I saw my grandma looking at me, pleadingly. Asking me to be calm. As if she was more scared of me than him.
 
-And then she just collapsed.
+And then...then she simply collapsed.
 
 \*\*\*
 
-Those few days after granny’s death felt like floating just beneath the surface of reality. And that sea, like with air bubbles, was filled with weird snapshots and most of the time I couldn’t really tell if I was dreaming them or not.
+Those few days after Granny’s death felt like floating just beneath the surface of reality. And that sea, like with air bubbles, was filled with weird snapshots and most of the time I couldn’t really tell if I was dreaming them or not.
 
 I saw granny scratching her heart, willing it to go on.
 
@@ -230,7 +230,7 @@ And my shadow saw and drank all of that. Oh, it didn’t miss a single beat.
 
 I felt it buzzing around like electricity discharges…and soon the smell of ozone was almost too much, making me dizzy…as if strikes of lightening were hitting spots around me all the time.
 
-Again, I really couldn’t tell how much of that was a dream, so I tried sleeping all the time.
+Again, I really couldn’t tell how much of that was a dream, so if that didn't matter, I tried sleeping all the time.
 
 \*\*\*
 
@@ -250,11 +250,11 @@ Yet again, I felt ozone in the air, the electricity was like a dark cloud follow
 
 And then it only grew stronger: for I saw Miss Ann bound to the chair, terrified and with blood on her face. The Angry Man was gesticulating with a huge syringe filled with some greenish liquid.
 
-"Poor drugged up, manic lady drowning in a middle-life crisis after her second divorce…set on fire by her careless Ukrainian guests…That's one terrific story, isn't it? if that doesn’t keep them away, God help me, I don’t know what will…
+"Poor drugged up, manic lady drowning in a middle-life crisis after her second divorce…set on fire by her careless Ukrainian guests…That's one terrific story, isn't it? History repeating itself. Hell, if that doesn’t keep them away, God help me, I don’t know what will…"
 
-His sons stood beside him, trembling and confused and hesitant. The Angry Man looked at them with contempt.
+His sons stood beside him, trembling and confused and hesitant. The Angry Man looked at them with utter contempt.
 
-"Stop shivering like some spineless asses. I’m giving you the lesson of your lives here, can’t you see? You’ll be grateful one day - and strong. God knows this land doesn’t need any more weakness..."
+"Stop shivering like some spineless asses, you two. I’m giving you the lesson of your lives here, can’t you see? You’ll be grateful one day - and strong. God knows this land doesn’t need any more weakness..."
 
 I felt the burning rage spreading over every particle of my being. And he felt it, too - rage, after all, was all he knew - turning to me.
 
