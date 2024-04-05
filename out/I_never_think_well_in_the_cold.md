@@ -1,4 +1,4 @@
-These days, I’m good at refilling my water tank before it runs dry. That night, I didn’t.  I should have realised sooner, but I never think well in the cold, and when the final drops tut-tutted from the tap to plink in the hollow of my kettle, the evening was dark and unsocial.
+These days, I always refill my water tank before it runs dry. That night, I didn’t. I should have realised sooner, but I never think well in the cold, and when the final drops tut-tutted from the tap to plink in the hollow of my kettle, the evening was dark and unsocial.
 
 It was too late to move the narrowboat. Refilling the tank would wait for day, but I needed tea to warm the small hours, and so out into the frigid night I stumbled, a container thumping my side.
 
@@ -64,7 +64,8 @@ Their pale lips opened to darkness, slurring, "Help," with a grey slug tongue. "
 
 I was caught in horror. Paralysed. They pleaded for rescue, and I could scarcely breathe.
 
-At last, I came to myself. Whatever wretched fate had befallen this creature, I owed them assistance.  
+At last, I came to myself. Whatever wretched fate had befallen this creature, I owed them assistance.
+
 I placed the container of water at my feet and reached, wishing further numbness to my fingers.
 
 The figure gave a lurch.
@@ -101,5 +102,4 @@ Poor woman.
 
 I think of her often.
 
-I hope she died in terror, ruing having heeded a cry for help. I hope the dark form stayed beside her as she drew her last breaths, a threat to any rescuer. I hope she was hunted and haunted. If she wasn't, why did I leave her there?  
-
+I hope she died in terror, ruing having heeded a cry for help. I hope the dark form stayed beside her as she drew her last breaths, a threat to any rescuer. I hope she was hunted and haunted. If she wasn't, why did I leave her there?
