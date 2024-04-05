@@ -1,0 +1,21 @@
+I was hoping there was anyone who might be able to explain this situation or maybe has been through a similar sick joke?  
+  
+The cold halls, bustling nurses, and dying people have always made me uneasy so the heaviness in my chest was nothing new. I enthusiastically walked to the bakery they have in the hospital, I swear they have the most immeasurable hot chocolate and muffins on earth. I ordered my chocolate chip muffin haphazardly handing the lady my money. As I waited for my muffin I felt a tingle at the base of my neck.  
+  
+The cold halls, bustling nurses, and dying people have always made me uneasy so the heaviness in my chest was nothing new. I enthusiastically walked to the bakery they have in the hospital, I swear they have the most immeasurable hot chocolate and muffins on earth. I ordered my chocolate chip muffin haphazardly handing the lady my money. As I waited for my muffin I felt a tingle at the base of my neck.  
+  
+Someone was watching me. My headshot around scanning the area around me. His eyes were bloodshot red and glossed over like he was in some sort of haze. He had a smirk stretched from ear to ear, it was terrifying. I sucked in a harsh breath looking away, I’m in a hospital, after all, there are all types of people here. ‘I’m just being paranoid’ I tried to convince myself.  
+  
+“Here’s your muffin hun” the nice woman spoke pulling me out of my mind. The anxious thoughts were quickly pushed to the side as I eagerly grabbed my muffin giving a bright “thank you!”.  
+  
+It was already 8 which would normally be early for me but everything seemed to slow down here in the hospital around 7:30, so I decided to take one of the many empty tables in the cafeteria. There were a couple of people scattered about, mostly nurses or doctors silently eating. I had sat there for about 5 minutes just eating my muffin and scrolling through my phone.  
+  
+Abruptly one of the chairs around my table let out a harsh screech as someone clumsily sat opposite from me. I looked up confusion eating away at me. As his eyes met mine the same eerie smile spread across his face, my blood ran cold.  
+  
+“Um hello?” the words left my mouth frail and quiet. He simply continued to smile at me. I took a moment to take his appearance in. His hair was ragged and greasy parts sticking in all sorts of directions, his skin was pale and bruised along his cheekbone. Despite his battered face, he was wearing a clean pressed suit. All black. “Can I help you?” I continued questioning if he was possibly a patient.  
+  
+Unexpectedly he shot up from his chair slamming a sleek black book on the table. I nearly jumped out of my skin as a loud bang echoed out. His heavy stare never wavered though.  
+  
+“Consider it a gift, Mrs. Graves” he croaked out tilting his head to the side with wide eyes. I froze what does he mean “Mrs.”? Anxious thoughts flooded my brain, I was too busy hyperventilating to even realize he had disappeared. with trembling hands, I reached out for the book. Curiosity and fear eating away at me. My heart dropped as I saw what the first page held. A polaroid of me; when I was 10. It was from a distance, I was sitting on my front porch balling my eyes out. My knees were all scraped up and covered in dirt. I remember I had fallen off my new bike and was mortified, I've never really liked bikes since then.  
+  
+"What the hell?" I took a breath continuing to flip through the pages. Each page held a polaroid of me, each one was of me whenever I had gotten hurt throughout my life emotionally and physically. When I got stitches at age 12 when my cat died at age 13, even when I broke my arm at age 14. They were all here, every injury or moment that’s ever brought a tear to my eye is here. As I reached closer and closer to now I expected the pages to just be blank after that, I mean what else would they have? But then I saw something I don’t recall. It was a picture of me, sitting in a dark room. My eyes are swollen with tears, and my hands are bound behind my back. The polaroid's date is what scares me though, my 18th birthday. I slammed the book closed, and now here I am. Some people will think I'm stupid for running to strangers for help, but who else will believe me? Does anyone know what kind of sick joke or threat, maybe even warning this is?
