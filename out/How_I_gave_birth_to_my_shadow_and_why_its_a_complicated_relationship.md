@@ -6,7 +6,7 @@ But it couldn’t work on my imagination…not today.
 
 And shadows seemed to be everywhere. I suddenly thought they’re like huge wiggling lizard tongues reaching for us, helpless flies, trying to stop us from moving further and further away from our Ukrainian home over this poorly lit Polish country road. Then I started seeing all kinds of animals: staring at us with reproach.
 
-So that’s how, whenever I was awake, I started to measure the distance: 40000 thousand reproachful animal shadows from home…40001 angry shadows from home.
+So that’s how, whenever I was awake, I started to measure the distance: 40000 reproachful animal shadows from home…40001 angry shadows from home.
 
 And yet it all started with the shadow of my mother falling over me. I woke up to see her standing next to my bed at 5 in the morning: her face an organic part of that shadow…saying nothing.
 
@@ -138,7 +138,7 @@ Then I heard giggling. I turned and saw the two boys laughing…and pointing the
 
 I looked at him and the indifference he was emanating made me shudder again.
 
-"You’re…Russian?" - my lips barely moved: suddenly stiff. As if they weren'r a part of my body anymore.
+"You’re…Russian?" - my lips barely moved: suddenly stiff. As if they weren't a part of my body anymore.
 
 He just shrugged.
 
