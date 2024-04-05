@@ -78,7 +78,7 @@ And in those spaces was clutter. Boxes and papers. I could see the edges in dim 
 
 I took a step closer and noticed a box full of crumpled paper. In the gloomy light I thought I could make out something there. I couldn't tell if it was more clutter in the box or some fingers sticking up. Whatever they were, they were solidly still.
 
-I took another step towards it to make sure. Just more clutter, I thought. Then it lifted up and rotated over as if a hand connected to an arm somewhere in the black.
+I took another step towards it to make sure. Just more clutter, I thought. Then it lifted up and rotated over as if it were a hand connected to an arm somewhere in the black.
 
 My heart felt a punch and I flailed backwards reeling in terror. I stumbled down the stair calling out for my father.
 
