@@ -78,4 +78,4 @@ Do you remember Emilia, my night shift colleague who was not present that night 
 
 Jack continued to visit us almost every night in his skeleton or in different people's bodies to chat and buy something. I kept asking him what he meant by that bad thing that's coming but he didn't want to tell me yet.
 
-I'll leave the post here, guys. I hope you liked it. Thank you for your support, I will keep you posted. Greetings and good night.
+I'll leave the post here, guys. I hope you liked it. Thank you for your support, [I will keep you posted.](https://www.reddit.com/r/nosleep/s/SrDxucdBGD) Greetings and good night.
