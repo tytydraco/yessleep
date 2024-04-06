@@ -271,3 +271,5 @@ After I was done, he pulled back a bit, still holding me. He looked less dead th
 "Sounds like I've missed quite a bit." He commented, gently tilting my chin up with his fingertips to examine the marks on my neck closer. 
 
 I shrugged. Just another day in the life of someone who can't mind his own business. At least this time, it was for something good. At least that girl Aanya and I found is free.  
+
+Update: [a deal is a deal. ](https://www.reddit.com/r/nosleep/s/rSqWh3AbnK)
