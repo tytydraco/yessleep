@@ -214,7 +214,7 @@ Ramy rolled his eyes, "Of course it is."
 
 He stared down at the hoofed jinn. I couldn't tell what he was thinking. 
 
-After a sigh, he said, "Well, I can't get in, and this guy can't leave. There's nothing left for us to do here. At least for now."
+After a sigh, he said, "Well, I can't get in, and this guy can't leave. There's nothing left for us to do here."
 
 The marker hadn't been enough. The scripture would either have to be completely covered or destroyed to lift the house's protection. 
 
