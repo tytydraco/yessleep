@@ -110,7 +110,8 @@ Ben.
 
 Three more Chisholms gone. I found no cameras.
 
-After all my efforts, I was no closer to answers. I decided instead of looking outward for clues, realizing now maybe mom was correct. I focused on the remaining Chisholms, observing their behavior closely.  
+After all my efforts, I was no closer to answers. I decided instead of looking outward for clues, realizing now maybe mom was correct. I focused on the remaining Chisholms, observing their behavior closely.
+
 The sun was closing in on the horizon. The breeze picking up. We all headed inside the community center. Sitting in the metal folding chairs, realizing none of us had eaten any of the food left outside. Robert’s ribs. Valerie’s cheesecakes. I brought chicken fried rice. All the food still on the tables, completely untouched.
 
 We ate together. Perhaps for our last time as one family. We thought about those that had gone first. Their funny idiosyncrasies and family stories that made them who they were and what defined their Chisholm identity. Amidst the conversation, I scrutinized the room, searching for any anomaly or impostor among us. Was there someone out of place? A doppelganger? A fraud?
@@ -119,7 +120,8 @@ Everyone was acting tense but no one in particular didn’t act like themselves.
 
 I was still no closer to learning why.
 
-After enjoying what more very well be our final meal together, we decided to not play anymore. To not let whoever is watching see us squirm, infight, and break the bond we had as a family. As Chisholms.  
+After enjoying what more very well be our final meal together, we decided to not play anymore. To not let whoever is watching see us squirm, infight, and break the bond we had as a family. As Chisholms.
+
 Robert went around and gathered our phones and electronics. We found all the center’s devices that had displays and put them in trash bags as well. We left them outside as we sat close together as a family. Some in prayer. And some comforting others. The sun set and it turned night.
 
 We found candles in a supply room to light the main room. Larry, the chain smoker, still had his lighter thankfully. We also packed up the rest of the food and took the trash out. Then we put the tables away and swept up. We cleaned everything else we had a part in at the community center, leaving only the chairs we occupied.
