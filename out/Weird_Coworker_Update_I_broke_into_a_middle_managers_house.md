@@ -222,7 +222,7 @@ It took two laundry cycles to get the smell of burnt jinn out of my clothes. I t
 
 In the meantime... I haven't been able to stop thinking about the condition that the hoofed jinn was in. How empty it was. Was that what Omar wanted to do with Ramy?
 
-As confident as ever, Ramy assured me that we'd figure something out. He joked thay we could simply burn Omar's house down. At least, I think he was joking. When that happens (not arson, an actual solution,) I'll let you all know. 
+As confident as ever, Ramy assured me that we'd figure something out. He joked thay we could simply burn Omar's house down. At least, I think he was joking. When that happens (not arson, an actual solution), I'll let you all know. 
 
  
 
