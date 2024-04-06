@@ -4,7 +4,7 @@ To whoever is reading this , There's some stuff I've found that maybe I should'v
 My name is Jason and I'm 24 years old . I cannot reveal my full name as it'll be easy to track my family , Just because I've gotten myself into a mess doesn't mean I'll foolishly ignore internet safety tips!
 
 
-I like technology stuff, I wouldn't go as far as saying I'm a nerd though. I was doing a part-time job, They've probably fired me considering how long I haven't shown up yet though. 
+I like technology stuff, I wouldn't go as far as saying I'm a nerd though. I was doing a part-time job, They've probably fired me considering how long I haven't shown up though. 
 
 
 It started when I didn't wanna buy a video game. One of my friends had the game so I asked him to load a copy on a pendrive.
