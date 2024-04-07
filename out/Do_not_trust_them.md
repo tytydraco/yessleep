@@ -13,7 +13,7 @@ It started when I didn't wanna buy a video game. One of my friends had the game 
 "At least get your ass here to get it loaded smh" was his response, Not exactly unexpected though. So I took an empty pendrive and left my house.
 
 
-The road to my friend's house was 15 minutes by walking , I didn't have a vehicle if that wasn't obviously. It was only a 10 min walk if I took the short-cut through the Central park , So that's what I did.
+The road to my friend's house was 15 minutes by walking , I didn't have a vehicle if that wasn't obvious. It was only a 10 min walk if I took the short-cut through the Central park , So that's what I did.
 
 
 When I was going through the park , Some weirdo in dark clothes wearing a U-shaped necklace approached me. He started babbling about some supernatural creatures and some "new world"
@@ -74,7 +74,7 @@ It took me to another floor , The floor was different from all others. It had lo
 When I entered , The door behind me closed. It was dark so I couldn't see anything , Hence I started walking forward. It smelled weird but I didn't mind , That was until my leg hit something.
 
 
-When my eyes adjusted to the dark , I realised it was a bone. The room I was in had a lot of bones and blood , With just one figure in a corner.
+When my eyes adjusted to the dark , I realised it was a bone. The room I was in was filled with bones and blood  , With just one figure in a corner.
 
 
 It was made of flesh , It didn't have any skin or arms. Its face had 2 empty eye sockets and one huge circular mouth big enough to eat me whole with teeth on all sides. But it's most noticeable feature was the huge black and red eye on its stomach.
