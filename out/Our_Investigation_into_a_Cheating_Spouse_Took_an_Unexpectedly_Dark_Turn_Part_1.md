@@ -188,7 +188,7 @@ But it's Zane that captures our immediate attention. His back is turned to us, a
 
 Reine and I edge forward, our weapons drawn and aimed squarely at what remains of him.
 
-"Zane Everly, turn around slowly," I call out. The words feel surreal, as if spoken by someone else.
+"Zane Everly, turn around slowly with your hands up," I call out. The words feel surreal, as if spoken by someone else.
 
 He responds, but not in the way we expect. The movement is unnatural, a series of jerks and spasms that suggest the thing wearing Zane like a suit is unfamiliar with the body it’s inhabiting.
 
