@@ -66,3 +66,5 @@ Then the pumpkin man took the head and exclaimed, "Thank you!" And he left whist
 Later, during that night, we could not be calm. Nothing strange happened after that. The next day, it was said that a pumpkin man was walking through the streets of the town asking for sweets and murdering those who did not give him any. He killed four children and an adult (John).
 
 That's it for the post, I hope you liked it. Things also happened on Christmas that year and on Halloween and Christmas the next. I hope to be able to tell that later. Good night friends.
+
+[Part IV.](https://www.reddit.com/r/nosleep/s/jINjQooeST)

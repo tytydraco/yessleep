@@ -72,7 +72,7 @@ I couldn't speak, I was very terrified, however, without realizing it, I made a 
 
 "Well... Where do I start? You're here, right? It's because you're dead friend, that's right, weeeeeen dead! Hahaha."
 
-"Wait to?". I asked, very confused. "No no no no, this must be a mistake, I must be dreaming or something, of course I'm not dead! I-" And before finishing my sentence, I felt a very strong blow on my arm.
+"Wait what?". I asked, very confused. "No no no no, this must be a mistake, I must be dreaming or something, of course I'm not dead! I-" And before finishing my sentence, I felt a very strong blow on my arm.
 
 "Take it easy". Leo said, annoyed.
 

@@ -73,3 +73,5 @@ And it is these types of stories that happen and are told around here.
 I will continue with my posts, but I tell you that that same night at two in the morning, a skeleton visited the atore...
 
 [Part II.](https://www.reddit.com/r/nosleep/s/BYBx3sWwGf)
+[Part III.](https://www.reddit.com/r/nosleep/s/IsdNj02Kl2)
+[Part IV.](https://www.reddit.com/r/nosleep/s/OhMwDy8njM)
