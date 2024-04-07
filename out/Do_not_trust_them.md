@@ -77,7 +77,7 @@ When I entered , The door behind me closed. It was dark so I couldn't see anythi
 When my eyes adjusted to the dark , I realised it was a bone. The room I was in was filled with bones and blood  , With just one figure in a corner.
 
 
-It was made of flesh , It didn't have any skin or arms. Its face had 2 empty eye sockets and one huge circular mouth big enough to eat me whole with teeth on all sides. But it's most noticeable feature was the huge black and red eye on its stomach.
+It was made of flesh , It didn't have any skin or arms. it was about 7 ft tall , Its face had 2 empty eye sockets and one huge circular mouth big enough to eat me whole with teeth on all sides. But it's most noticeable feature was the huge black and red eye on its stomach.
 
 
 It saw me as I saw it and wasted no time to scream and charge at me. I barely dodged its attack. It looked like it was ready for round 2 , That's when the door opened and 2 armed men entered. It went after them instead of me , I took the opportunity to use the bones to get up on the open air vent. 
