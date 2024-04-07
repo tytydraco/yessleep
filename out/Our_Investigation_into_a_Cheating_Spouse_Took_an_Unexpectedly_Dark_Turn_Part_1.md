@@ -118,7 +118,9 @@ Yet, our focus isn't just on Zane's whereabouts. We are equally attentive to his
 
 As the day wears on, the mundane nature of Zane's activities begin to paint a picture of a man ensnared in the trappings of a double life. The evidence is subtle, hidden in the nuances of his behavior, yet unmistakable to the trained eye. He’s cautious, perhaps too cautious, with his movements and communications, suggesting an awareness of being watched or, at least, the possibility of it.
 
-Zane's path leads him into a quaint flower shop nestled between a bookstore and a bakery. During a momentary lull in our surveillance, the hum of the city around us blending into a kind of white noise, Reine turned to me, a mischievous glint in her gray eyes. "Hey," she said, her tone light but carrying an undercurrent of seriousness, "you'd never cheat on me, right? I mean, with all this infidelity we see, you haven't gotten any ideas, have you?"
+Zane's path leads him into a quaint flower shop nestled between a bookstore and a bakery. During a momentary lull in our surveillance, I pull out a container of Chinese takeout—cold sesame noodles and spicy orange chicken, our stakeout meal.
+
+As we eat, Reine turned to me, a mischievous glint in her gray eyes. "Hey," she said, her tone light but carrying an undercurrent of seriousness, "you'd never cheat on me, right? I mean, with all this infidelity we see, you haven't gotten any ideas, have you?"
 
 I can’t help but chuckle at her question, the absurdity of the thought mingling with the gravity of our current case. "Cheat on you, em?" I start, leaning closer to her, our knees touching in the cramped space, “And miss out on Friday night stakeouts and takeout with my incredibly sexy and talented partner?”
 
