@@ -38,7 +38,7 @@ Again, I make sure to listen intently as I work. This one struck a chord with me
 
 "...its face scared me to death. Now I'm a present. Your present." 
 
-I felt my blood freeze. The silence in the air suffocated me. An impending sense of doom shot through me as I scanned the dark corners of the room. Nothing. I took the rest of the day off - I felt sick. When I got home to my apartment, locked the door, drew the curtains and poured myself a drink to ease my nerves. The same words kept repeating in my mind over and over again. Your present.
+I felt my blood freeze. The silence in the air suffocated me. An impending sense of doom shot through me as I scanned the dark corners of the room. Nothing. I took the rest of the day off - I felt sick. When I got home to my apartment, I locked the door, drew the curtains and poured myself a drink to ease my nerves. The same words kept repeating in my mind over and over again. Your present.
 
 A couple of weeks pass and things go back to "normal" again. Until last week. 
 

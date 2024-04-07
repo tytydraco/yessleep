@@ -190,7 +190,7 @@ Thomas and I met all the way back in grade school—on the day he saved my life.
 
 “No!” He grabbed my shoulders firmly and stared directly into my eyes—willing me to believe him. “You are Kara Watson. We have been married for five years. We had a pact that if neither of us was married by the time we were twenty-five, we would marry each other. By some miracle, you were still single on your twenty-fifth birthday, and I finally asked you out. You said yes and we dated for two years before I built up the courage to pop the question. It was two of the best years of my life! Please try to remember!”
 
-I did remember at least part of what he’d said. As a complete joke, sometime around when we were eleven or twelve years old, I had made that “pact” with him—but I didn't realize he’d taken it literally. 
+I did remember at least part of what he’d said. As a complete joke, sometime around when we were eleven or twelve years old, I had made that “pact” with him—but I didn't realize he’d taken it literally.
 
 As he continued to hold on to my shoulders, his fingers dug into me and I pushed him back, wincing in pain—the sensation providing a final confirmation that I was definitively awake.
 
@@ -326,16 +326,16 @@ It’s been six months since I read that letter.
 
 Thomas and I “divorced,” and he moved out—it was too painful for him to stay in that house after he read the other Kara’s words.
 
-I stayed behind, and every night I go to sleep in my bed hoping that I’ll wake up next to John—hoping that she does tire of my family and returns me to them. 
+I stayed behind, and every night I go to sleep in my bed hoping that I’ll wake up next to John—hoping that she does tire of my family and returns me to them.
 
 But for now, I’m trapped. Trapped in your world waiting for a day that may never come.
 
-I hope this never happens to anyone else, but I share my story in case it does. If one day, you wake up in a world not your own, with a different family and a different name, you may have fallen victim to a version of yourself looking to poach a different life. There's little comfort in that knowledge, I know, but at least it might help you know that you're not crazy. It's hard to maintain sanity in a situation such as this. 
+I hope this never happens to anyone else, but I share my story in case it does. If one day, you wake up in a world not your own, with a different family and a different name, you may have fallen victim to a version of yourself looking to poach a different life. There's little comfort in that knowledge, I know, but at least it might help you know that you're not crazy. It's hard to maintain sanity in a situation such as this.
 
 It's why I run through the memories of my family every day, why I relive our last night together every evening when I lay down for bed, and why I repeat the following words just before I close my eyes.
 
 "My name is Kara Logan. My husband is Jonathan Logan. My children and Noah and Liam Logan.
 
-My life was taken from me.
+"My life was taken from me.
 
-And I just want to go [home](https://www.reddit.com/r/DukeOfDepravity/)."
+"And I just want to go [home](https://www.reddit.com/r/DukeOfDepravity/)."
