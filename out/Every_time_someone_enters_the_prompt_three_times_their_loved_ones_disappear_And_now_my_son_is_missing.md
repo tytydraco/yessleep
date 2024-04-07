@@ -180,7 +180,7 @@ We were relieved to find him and astonished to see him walking around on his own
 
 "No, I don't feel well. Like something is wrong. I feel… different." She continued.
 
-But I was too busy staring at my laptop to think anything of it,
+But I was too busy staring at my laptop to think anything of it.
 
 "I think I found something." I said.
 
@@ -204,9 +204,9 @@ But I was too busy staring at my laptop to think anything of it,
 
 KNOCK. KNOCK. KNOCK.
 
-I had been knocking at the engineer's door for what must have been twenty minutes, in hopes that some sort of partner or relative would be there to answer my questions, but I should have known better. From what I know about the prompt, it made all loved ones go away.
+I had been knocking at the engineer's door for what must have been twenty minutes, in hopes that some sort of partner or relative would be there to answer my questions, but I should have known better. But from what I knew about the prompt, it made all loved ones go away.
 
-And when I finally gave up, resolving to head back, his neighbor popped out of the next apartment.
+And when I finally gave up, resolving to head home, his neighbor popped out of the next apartment.
 
 "Hey, what are you knocking for?" An old man said, "Tenant died a little while back."
 
@@ -256,7 +256,7 @@ Despite the fact that it was now evening, I felt obliged to accept the coffee th
 
 "Oh, that's right. You don't know. Ryan killed himself a couple weeks later."
 
-I didn't know how to react, so I simply hung my head in.
+I didn't know how to react, so I simply hung my head i disappointment.
 
 "Sorry for your loss," The man replied, before standing up, "Anyways, if you'll excuse me, I gotta use the bathroom. Feel free to help yourself to more coffee."
 
@@ -266,7 +266,7 @@ But after he left the room, rather than accept his offer, I instead seized the o
 
 A couple minutes later, I was crawling into Ryan's apartment from the fire escape and, once again, closing the window behind me.
 
-His place was quite dark, but rather than switch on a light, I opted to find my way around by the light of my cell phone, its brightness turned all the way up, so as to not draw any unwanted attention.
+His place was quite dark, but rather than switch on a light, I opted to find my way around by the flashlighy on my cell phone instead, its brightness turned all the way up, so as to not draw any unwanted attention.
 
 And when I illuminated Ryan's apartment, I immediately recognized something I was all too familiar with...
 
@@ -302,7 +302,7 @@ I threw my car in reverse, backed out of the parking lot behind Ryan's apartment
 
 —
 
-Not long after, I spotted Tiffany's car parked at the base of anearby bridge and pulled up beside her, my own car's tires screeching to a halt.
+Not long after, I spotted Tiffany's car parked at the base of a nearby bridge and pulled up beside her, my own car's tires screeching to a halt.
 
 But when I hopped out and looked inside it...
 
@@ -310,7 +310,7 @@ But when I hopped out and looked inside it...
 
 I looked out into the distance, squinting, trying to find them in the darkness.
 
-And sure enough, under the moonlight, I saw two figures, illuminated by the moonlight, heading straight for the water at the foot of the bridge.
+And sure enough, under the moonlight, I saw two figures heading straight for the water at the foot of the bridge.
 
 I sprinted in their direction as fast as I could, but quickly realized that I was too far behind. I then saw them enter in the water and slowly wade in, as their silhouettes submerged deeper and deeper into it.
 
@@ -330,17 +330,17 @@ Enter.
 
 Enter.
 
-Unsure of whether it had worked, I ran over to the water, still out of breath. I dove in, and swam over to my wife, who was looking back at me, confused, as if she had woken up from a nightmare.
+Unsure of whether it had worked, I ran over to the water, still out of breath. I dove in, and swam over to my ex wife, who was looking back at me, confused, as if she had woken up from a nightmare.
 
-"Connor?" She said.
+"Connor?" Tiffany asked.
 
 "Tiffany." I replied.
 
-But before I could even begin to tell to her what had happened, I heard the sound of my son, struggling to keep his head above the water, and swamp over to help...
+But before I could even begin to tell to her what had happened, I heard the sound of my son, struggling to keep his head above the water, and swam over to help...
 
 ...Just barely catching him before he completely sunk into the bay.
 
-"Dad?" He coughed, his dazed state, almost identical to that of my ex wife's.
+"Dad?" He coughed, his dazed state almost identical to that of Tiffany's.
 
 "Hey, bud." I replied, leading him over to more shallow water and setting him back on his feet.
 
@@ -356,7 +356,7 @@ I paused for a moment, unsure of how to explain everything to my son, before I r
 
 —
 
-Just a week later, we were a family again, all three of us living together at my house, under one roof, reunited again after years of divorce and a tragic event that we were still working to put behind us.
+Just a week later, we were a family again, all three of us living together at my house, under one roof, reunited after years of divorce and a tragic event that we were still working to put behind us.
 
 "Hey, bud?" I said, knocking at the door to Bobby's bedroom.
 
@@ -368,7 +368,7 @@ I opened the door and stepped in, gesturing for my wife to enter first.
 
 "Just playing on my phone." He said, without looking up.
 
-Tiffany and I both looked at each other, wide eyed, before we both ran over, and I snatched his phone out of his hand.
+Tiffany and I both shot each other a concerned look, before we both ran over, and I snatched his phone out of his hand.
 
 Together, my wife and I both looked down at it, fearing we'd see the chatbot, but when we looked at his screen...
 
