@@ -1,4 +1,7 @@
-Thank you all for the support, [that helps me continue. ](https://www.reddit.com/r/nosleep/s/mFJxl10Pgn)Today, I will tell you about Halloween night 2022, one of the strangest and most screwed up nights I had in the store and in life.
+[Part I.](https://www.reddit.com/r/nosleep/s/FXQc8q3BOQ)
+[Part II.](https://www.reddit.com/r/nosleep/s/U3a0RDao07)
+
+Thank you all for the support, that helps me continue. Today, I will tell you about Halloween night 2022, one of the strangest and most screwed up nights I had in the store and in life.
 
 It all started with the start of the shift, at eight at night. During the twelve hours I worked, it was raining and there was a thick fog in the surroundings, so I was a little nervous, since the power might go out or whatever.
 
