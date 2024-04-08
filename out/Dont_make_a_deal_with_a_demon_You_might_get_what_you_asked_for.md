@@ -1,6 +1,6 @@
 Hello!
 
-I am a man of interests, mainly history and anthropology, but recently I was drawn to the darker stuff, you know? 
+I am a man of many interests, mainly history and anthropology, but recently I was drawn to the darker stuff, you know? 
 
 So I went into the rabbithole of demonology, cultts etc. I didn't really believe in it, still don't know if I do, but when I told a pal of mine he contacted an old friend of his, who claimed to have had a real and vivid experience witth a demon.
 
