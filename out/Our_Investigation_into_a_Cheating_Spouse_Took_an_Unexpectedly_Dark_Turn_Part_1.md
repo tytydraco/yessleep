@@ -216,6 +216,6 @@ We rush to the balcony, just in time to see the creature disappearing into the d
 
 [X](https://www.reddit.com/r/PageTurner627Horror/comments/1bg4l0g/i_found_out_why_my_dad_never_talked_about_his/)
 
-[Y](https://www.reddit.com/r/shortscarystories/comments/1bj865w/beyond_the_dying_light/)
+[Y](https://www.reddit.com/r/shortscarystories/comments/1byifhk/the_eclipse_child/)
 
 [Z](https://www.youtube.com/watch?v=MGd1F6Ay8ho)
