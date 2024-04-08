@@ -48,7 +48,7 @@ I questioned, "Will this truce just be at work or... does that also extend to ou
 
 "Both, preferably." She replied curtly. "I want nothing to do with this jinn."
 
-I nodded, "I'm think that would be best for all of us. We just... show up, do what we need to do, and leave each other alone."
+I nodded, "I'm thinking that would be best for all of us. We just... show up, do what we need to do, and leave each other alone."
 
 Aanya hesitated, gathering herself before she said, "For the record, it was nothing personal, jinn. I am being tested, same as you."
 
@@ -196,7 +196,7 @@ Its face changed in front of my eyes. At first, it looked like a young woman, bu
 
 I shoved past it on my way out the door. Blinded, it grabbed for me, missed, and stumbled into the shelves. 
 
-"*I can hear every breath you take, you piece of shit!*" It roared, it's voice now unnervingly deep as its hooves pounded on the tile after me. 
+"*I can hear every breath you take, you piece of shit!*" It roared, its voice now unnervingly deep as its hooves pounded on the tile after me. 
 
 I ran for my life. The hoofed creature continued to berate me, insisting that it could find me wherever I went. Thankfully, with it being blinded and disoriented, it had a hard time navigating the hallways, but even so, it was *fast.* Distantly, I noted that the back of my right hand was stinging. Some of the sodium hydroxide must've splashed on me. 
 
