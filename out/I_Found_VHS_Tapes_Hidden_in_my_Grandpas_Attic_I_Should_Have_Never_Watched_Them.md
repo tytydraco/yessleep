@@ -47,7 +47,7 @@ I stared at the trapdoor. I'd been living here for a while, and it felt a bit li
 
 After all, there was only one room downstairs he'd strongly forbidden me to enter, since that was where he butchered animals and didn't want me to set foot in it.
 
-I climbed down the ladder to the attic.
+I climbed up the ladder to the attic.
 
 Immediately, dust fell on me and made me sneeze. I climbed the rickety wooden stairs.
 
