@@ -1,4 +1,4 @@
-My daughter and I moved into the third-floor unit of the Angel Trace apartment complex a few months ago. The seven-story building jutted up into the smog-filled, dreary sky like a tumor. This town of Frost Hollow seemed like it constantly rained, and no matter how high I turned up the heat in the apartment, I always felt cold.
+My daughter and I moved into the fourth-floor unit of the Angel Trace apartment complex a few months ago. The seven-story building jutted up into the smog-filled, dreary sky like a tumor. This town of Frost Hollow seemed like it constantly rained, and no matter how high I turned up the heat in the apartment, I always felt cold.
 
 Surrounded by condemned factories and dead, leafless trees, the area around Angel Trace looked depressing enough to suck the life out of even the most optimistic person. The streets always stayed dreary and empty. My neighbors around the apartment complex would walk around, hunched over and glassy-eyed, looking as depressed and hopeless as an inmate heading to the gas chamber.
 
