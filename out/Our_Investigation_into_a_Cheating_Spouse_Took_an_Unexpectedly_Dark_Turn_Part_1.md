@@ -22,9 +22,7 @@ Just as we're wrapping up our impromptu tutorial with Abbey, there's a sudden, s
 
 I stride over and pull it open to reveal a woman in her early forties, her poise teetering on the edge of despair. She introduces herself in a voice that carries a weight far beyond her years. "Hello, Detectives Asher and Reine Tran? I'm Astrid Everly. I believe I have an appointment for a consultation."
 
-I nod, remembering a conversation over the phone last week, though the specifics elude me. "Of course, Mrs. Everly, please come in. Abbey, could you pull up the Everly file on the desktop, please?"
-
-As she enters, I turn to Abbey, who's already half-buried in our chaotic filing system. "Can you find Mrs. Everly's file on the desktop? Should be under 'E'."
+I nod, remembering a conversation over the phone last week, though the specifics elude me. "Of course, Mrs. Everly, please come in. Abbey, could you pull up the Everly file on the desktop, please? Should be under 'E'."
 
 Before Abbey can even turn to the computer, Astrid interjects, "There's no need for that. I'm here because I suspect my husband, Zane, of... infidelity." Her voice falters for a moment, the facade of calmness cracking.
 
