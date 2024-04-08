@@ -1,3 +1,4 @@
+Part 1 [Part 2](https://www.reddit.com/r/nosleep/s/G3OVIy4F9n)
 
 If you turn on the lights late at night, when there are no street lights, the windows become mirrors, reflecting the interior of the room.  In the reflection, I see myself, clothes scattered, unfinished drawings pinned to the wall, and a figure standing in the center of the room.  Its silhouette seems blurred compared to the rest of the reflection.  It never moves, does not disappear when you look at it, it is impossible to touch.  It is always there and you feel it staring.
 
@@ -24,3 +25,5 @@ I jumped in my chair coffee spilling on the floor and my knees. I automatically 
 As I stood looking at the trail of paint I froze up. I felt the presence behind. I couldn't bare a second of it. I just sprinted out of the room and shut the door not looking back. I went to my bedroom turning on all the lights on the way and locked it. I took off the jeans and shirt throwing them and putting on pajamas. I breathed in trying to calm myself. And then i saw paint. Paint on the back of my shirt. Barely visible 5 little spots. 
 
 I felt a familiar moving of my hair. I backed into the corner of the brightlit room. And then i saw the reflection.
+
+[Part 2](https://www.reddit.com/r/nosleep/s/G3OVIy4F9n)
