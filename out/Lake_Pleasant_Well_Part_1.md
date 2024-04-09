@@ -62,18 +62,18 @@ Sarah seeing me march over to something, goes to meet me at whatever I'm about t
 
 At that exact moment, she proves her point by stepping on the rock and as she predicted, the bucket starts to rise. I don't know why my brain at the time couldn't figure out such a simple pully system. Especially when I was the first one to see the rock. Anyway, Sarah took her foot off and the bucket began to go back down and the rock began to come back up. Not long after that, our relief soon became excitement once again as we explored and took pictures of this strange find. We did this for about ten minutes before sitting down and actually resting. We sat for quite a bit while Sarah was going through her probably dozens of pictures. I took three. As she did that I sat there in silence thinking about how neat of a find this was. But in that moment I couldn't help but wonder, who could have made this? And how long has it been here? My questions quickly fade to the back of my mind as the sun beams my eyes. blinding me temporarily before they adjusted. And Looking out I saw that it was nearing the evening. For a second I'm distracted by the beautiful sunset. The sky turning into a pink and orange colorful horizon. But then it hits me.
 
-We have not been here long enough for it to be the evening! Or was I going crazy? We got to the base of the mountain by like 2:30 PM. We hadn't been there for more than an hour. Right!? At the time I brushed it off. My rationality being that I was bad at keeping track of time. In hindsight... I wasn't crazy. We left and set off back to the house though I couldn't help but look back over and over. I was paranoid! And I didn't know why. The mountain now seems more like a looming figure. Something about its jagged shape and dark caves gave me a chill. Compared to the rest of the desert the mountain seemed untouched by life. Animals and cacti alike. Sarah didn't seem fazed however. And in fact, seemed pumped to have found it checking her schedule to see when she could come back out next. About halfway back she noticed my lack of excitement.  
-  
-**Sarah- Hey what's up?**  
-  
-**Maxus- Nothing, why do ask?**  
-  
-**Sarah- You just seem...**  
-  
-**Maxus- did you get that feeling?**  
-  
-**Sarah- (A look of confusion)**  
-  
+We have not been here long enough for it to be the evening! Or was I going crazy? We got to the base of the mountain by like 2:30 PM. We hadn't been there for more than an hour. Right!? At the time I brushed it off. My rationality being that I was bad at keeping track of time. In hindsight... I wasn't crazy. We left and set off back to the house though I couldn't help but look back over and over. I was paranoid! And I didn't know why. The mountain now seems more like a looming figure. Something about its jagged shape and dark caves gave me a chill. Compared to the rest of the desert the mountain seemed untouched by life. Animals and cacti alike. Sarah didn't seem fazed however. And in fact, seemed pumped to have found it checking her schedule to see when she could come back out next. About halfway back she noticed my lack of excitement.
+
+**Sarah- Hey what's up?**
+
+**Maxus- Nothing, why do ask?**
+
+**Sarah- You just seem...**
+
+**Maxus- did you get that feeling?**
+
+**Sarah- (A look of confusion)**
+
 **Maxus- Like- like the mountain is hiding something. Something it doesn't want to show.**
 
 **Sarah- (Giggles) Uhh no, can't say I felt that. Do you have something against poor old Mr. Mtn? (Giggles)**
@@ -90,7 +90,6 @@ We have not been here long enough for it to be the evening! Or was I going crazy
 
 **Sarah- Agreed.**
 
-  
-Little did I know, I wouldn't be going back. The next two years were uneventful. Though I noticeably left the house less often. And I felt the comfort of the Ranch starting to fade away. Which is why I moved out about one year after the trip. The mountain was too close. And for some unknown reason, I couldn't bear it! Every night since that trip I felt like it was watching me. Like it knew something I didn't. I'm sounding crazy I know. I was self-aware enough at the time to know that I thought I was being irrational. To put it simply. I was afraid of nothing. however recently, I found something to be afraid of. Sarah was reported missing four nights ago. She was reported by her boyfriend. saying she had told him that she was "going to a lake with some friends" and was only supposed to be gone for most of that day. But I know where she had really gone. They have a search crew out there as we speak but any additional info would be appreciated.  
-  
-Why did you have to go... 
+Little did I know, I wouldn't be going back. The next two years were uneventful. Though I noticeably left the house less often. And I felt the comfort of the Ranch starting to fade away. Which is why I moved out about one year after the trip. The mountain was too close. And for some unknown reason, I couldn't bear it! Every night since that trip I felt like it was watching me. Like it knew something I didn't. I'm sounding crazy I know. I was self-aware enough at the time to know that I thought I was being irrational. To put it simply. I was afraid of nothing. however recently, I found something to be afraid of. Sarah was reported missing four nights ago. She was reported by her boyfriend. saying she had told him that she was "going to a lake with some friends" and was only supposed to be gone for most of that day. But I know where she had really gone. They have a search crew out there as we speak but any additional info would be appreciated.
+
+Why did you have to go...
