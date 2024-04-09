@@ -211,9 +211,3 @@ In the chaos of the moment, as Reine helps me to my feet, the entity undergoes y
 With a powerful flap, the creature launches itself towards the balcony, shattering the glass doors in its haste to escape. The night air rushes in, mixing with the stench of decay and the iron tang of blood, creating a maelstrom of senses that leaves us momentarily disoriented.
 
 We rush to the balcony, just in time to see the creature disappearing into the dark sky. Its flight is erratic, a sign of its newfound form, but it quickly gains altitude and vanishes into the night, leaving behind a trail of questions and a palpable sense of dread.
-
-[X](https://www.reddit.com/r/PageTurner627Horror/comments/1bg4l0g/i_found_out_why_my_dad_never_talked_about_his/)
-
-[Y](https://www.reddit.com/r/shortscarystories/comments/1byifhk/the_eclipse_child/)
-
-[Z](https://www.youtube.com/watch?v=MGd1F6Ay8ho)
