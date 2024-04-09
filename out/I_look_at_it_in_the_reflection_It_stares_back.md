@@ -1,4 +1,4 @@
-Part 1 [Part 2](https://www.reddit.com/r/nosleep/s/G3OVIy4F9n)
+Part 1 [Part 2](https://www.reddit.com/r/nosleep/s/G3OVIy4F9n) [Part 3](https://www.reddit.com/r/nosleep/s/zGn1eERV6O)
 
 If you turn on the lights late at night, when there are no street lights, the windows become mirrors, reflecting the interior of the room.  In the reflection, I see myself, clothes scattered, unfinished drawings pinned to the wall, and a figure standing in the center of the room.  Its silhouette seems blurred compared to the rest of the reflection.  It never moves, does not disappear when you look at it, it is impossible to touch.  It is always there and you feel it staring.
 
@@ -26,4 +26,4 @@ As I stood looking at the trail of paint I froze up. I felt the presence behind.
 
 I felt a familiar moving of my hair. I backed into the corner of the brightlit room. And then i saw the reflection.
 
-[Part 2](https://www.reddit.com/r/nosleep/s/G3OVIy4F9n)
+[Part 2](https://www.reddit.com/r/nosleep/s/G3OVIy4F9n) [Part 3](https://www.reddit.com/r/nosleep/s/zGn1eERV6O)

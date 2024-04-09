@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/s/c59Wrzeglt) Part 2
+[Part 1](https://www.reddit.com/r/nosleep/s/c59Wrzeglt) Part 2 [Part 3](https://www.reddit.com/r/nosleep/s/zGn1eERV6O)
 
 I don't remember how I went to sleep that night. But I woke up screaming. The sun was already up and the lights were turned off. I felt exhausted. My parents were already at work as was my sister in school. I didn't want to stay in the house alone with that thing. So I drank some coffee and headed to university.
 
@@ -55,4 +55,4 @@ I felt claws press into my back. Sharp pain coursed into my brain. I turned to f
 
 I heard the knock on the door. Alex disappeared. I felt my T-shirt getting wet. I touched my back. And felt blood on my fingertips .
 
-[Part 1 ](https://www.reddit.com/r/nosleep/s/c59Wrzeglt) Part 2
+[Part 1 ](https://www.reddit.com/r/nosleep/s/c59Wrzeglt) Part 2 [Part 3](https://www.reddit.com/r/nosleep/s/zGn1eERV6O)
