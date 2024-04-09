@@ -75,3 +75,7 @@ It took a lot of debate, and much fear and reservation on both our ends, but we 
 I debated on whether or not to continue updating anyone who read my story, or if it was better kept to myself, but I ultimately decided that I would see this through to the end, and share any answers I find with anyone that is willing to listen.
 
 You'll hear more from me in a few days, so long as the worst doesn't happen.
+
+Part 3
+
+https://new.reddit.com/r/nosleep/comments/1bzxk7d/dont\_look\_part\_3/

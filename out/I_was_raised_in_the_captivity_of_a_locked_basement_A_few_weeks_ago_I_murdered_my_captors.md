@@ -1,4 +1,4 @@
-The first 20 years of my life were spent in a dingy basement underneath the house my grandparents owned on the top of the hill in our little town. My earliest memory is from my 5th birthday, I was given a single slice of red velvet cake and an old television was wheeled in and I was allowed to watch cartoons for an hour. I suppose it's a good thing that my first memory is a rarely-found happy needle in the haystack of that hellish existence. 
+The first 20 years of my life were spent in a dingy basement underneath the house my grandparents owned on the top of the hill in our little town. My earliest memory is from my 5th birthday, I was given a single slice of red velvet cake, an old television was wheeled in and I was allowed to watch cartoons for an hour. I suppose it's a good thing that my first memory is a rarely-found happy needle in the haystack of that hellish existence. 
 
 &#x200B;
 
