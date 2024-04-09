@@ -326,16 +326,116 @@ It’s been six months since I read that letter.
 
 Thomas and I “divorced,” and he moved out—it was too painful for him to stay in that house after he read the other Kara’s words.
 
-I stayed behind, and every night I go to sleep in my bed hoping that I’ll wake up next to John—hoping that she does tire of my family and returns me to them.
+I stayed behind, and every night I went to sleep in my bed hoping that I’d wake up next to John—hoping that she would eventually tire of my family, and would one day return me to them.
 
-But for now, I’m trapped. Trapped in your world waiting for a day that may never come.
+And I thought that that would be how I’d live out the remainder of my days—slowly trickling through the money she left me—doing nothing more than surviving. Surviving and waiting.
 
-I hope this never happens to anyone else, but I share my story in case it does. If one day, you wake up in a world not your own, with a different family and a different name, you may have fallen victim to a version of yourself looking to poach a different life. There's little comfort in that knowledge, I know, but at least it might help you know that you're not crazy. It's hard to maintain sanity in a situation such as this.
+Waiting on a day that might never come.
 
-It's why I run through the memories of my family every day, why I relive our last night together every evening when I lay down for bed, and why I repeat the following words just before I close my eyes.
+Waiting alone.
 
-"My name is Kara Logan. My husband is Jonathan Logan. My children and Noah and Liam Logan.
+It seems that Kara Watson did not have any close friends or family. No one has tried to contact her in her absence from public life. Even “my” mother has never called or texted, and I talked to “my” mother nearly every day back home. I considered reaching out to her once or twice, but I thought it would either be too difficult to pretend to be someone I’m not with her or impossible to explain the reality of the situation to her without causing her immense distress. Also, I had a feeling that it was best that no one other than myself and Thomas knew the details of my situation. Something told me it was not a good idea for that information to get out.
 
-"My life was taken from me.
+And then this morning, I received a message on my, or rather Kara’s, phone that proved I had been right.
 
-"And I just want to go [home](https://www.reddit.com/r/DukeOfDepravity/)."
+It was from a private number and read…
+
+“Check her computer.”
+
+Not “check your computer” but “check her computer.” Like the sender knew they weren’t reaching out to Kara Watson. Of course, it could have been spam, or a typo, but for some reason I sensed that it was deliberate—that they were trying to get in touch with me.
+
+In any case, I had nothing to lose by checking the computer, so I walked from my bedroom to the office. I hadn’t been in there since the day I read the letter—it hurt too much to enter either of the rooms that should have belonged to my boys—and I flashed back horribly on the night I discovered I was never going home as I sat down in the desk chair and booted up the machine.
+
+When the login screen appeared, I thought, for a moment, that there might be an issue in that I did not know Kara’s password, but rather than there being a box to enter one into, the screen said, “Biometric Authentication Required.”
+
+And next to the keyboard, I saw there was a small pad that looked to me like it could be used to scan a fingerprint. So, I took a chance and placed my left index finger on it.
+
+The computer unlocked.
+
+Now that I had it open, I was not sure what to do. The message had given me no instructions on what to “check” when I got this far. But suddenly, the cursor on the screen moved on its own—a blank text file opened and words starting appearing in it without me typing them.
+
+&#x200B;
+
+&#x200B;
+
+*Kara,*
+
+*I work in IT at the agency that used to employ the other Kara—the one that’s from here.*
+
+*Yes, I know you’re not her.*
+
+*She had to have this computer connected to our network to allow her to work from home, so I can still log into it—it was the most secure way I could think of to send you a message. They have access to her phone and emails—they likely already flagged that text I sent you and are investigating.*
+
+*But I needed to warn you.*
+
+*You are in danger.*
+
+*Completely by accident, when we were doing some data cleanup a few days ago, one of my coworkers stumbled across a folder that Kara had buried in our servers. One containing files on hundreds of other Karas—we think she must have been using it to transfer the information back and forth from here to her house. And there was one tagged, “Winner.”*
+
+*When Kara resigned her position, she sent a note to her managers saying she no longer felt multi-versal travel was possible and that she did not want to dedicate any more of her life to trying to solve it for them. She was going to take a break from work in general and focus on starting a family. I read it when they tasked me with closing out all of her accounts—it was the last thing in her outbox.*
+
+*The discovery of the folder told our management that she had lied—that she had solved the secrets of the multiverse, had kept it a secret, and had been researching different versions of herself. They wondered if maybe she’d quit her job for another purpose.*
+
+*We were asked to pull everything we could on Kara from around the time she left the agency including her phone records…*
+
+*They heard your call to Thomas.*
+
+*They know you’re not from here.*
+
+*They know you’re Kara Logan.*
+
+*And they want to study you.*
+
+*You’re the first being to travel here from another dimension—they’ll want to poke, prod, and test you down to the cellular level. The rest of your life will be spent in a lab—you’ll never be free again. Beyond being academically fascinating, you’re a liability—they won’t want any other nation knowing that it’s possible to crack into the multiverse.*
+
+*There’s likely a van parked on your street right now—it’ll be for a florist or pest control—something nondescript.*
+
+*They plan to take you the next time you leave the house.*
+
+*You need to run, Kara.*
+
+*I would not say I was friends with the other Kara—she was rude and condescending—but you’re innocent in all of this. From the looks of your file, you had a good life and a beautiful family. I’m sorry this has happened to you.*
+
+*I have some friends that might be able to get you out of the country. Quickly, pack a bag and grab as much cash as you can. In about a half an hour, I’ll kill their surveillance for two minutes. I’m sorry, but we can’t wait longer, they may be wary of someone trying to tip you off because of my text. This is likely our only chance.*
+
+*So, at exactly 10:30am, leave through the backdoor and try to get to the (Name of Motel) on (Name of Street). If you make it there, book a room under a fake name and use cash. DO NOT LEAVE for any reason. My friends will meet you in the lobby tomorrow morning at 9am—one will be wearing a blue hat so you can identify them.*
+
+*Good Luck Kara.*
+
+&#x200B;
+
+&#x200B;
+
+The document closed itself out before I could respond and then the entire computer shut off.
+
+I was terrified.
+
+If I was to believe everything they said, I only had twenty-five minutes before I needed to flee and go into hiding—and there was no way to know how long I would need to be on the run.
+
+Looking for some verification, I left the office and walked to a window that faced the street. At first, I didn’t see anything out of the ordinary, and felt a tiny hint of relief. But then I saw it. Parked on the street three houses down. A work van for a plumbing company.
+
+Maybe it was nothing—maybe it really was just a plumber servicing a neighbor’s home.
+
+Or maybe it was there to take me away.
+
+Fear rose in my chest stronger than I’d ever felt in my life before.
+
+And so, I ran.
+
+I followed the mysterious instructions—I packed a bag and sprinted as quickly as I could out the backdoor at exactly 10:30am. No one stopped me or followed that I could tell, and I made it to the motel where I booked a room under a false name.
+
+There’s a computer in the lobby available for public use and I’m writing this from it—I just... I don’t know what I should do next...
+
+Can I trust the stranger that sent the warning? Can I trust their friends that are coming to pick me up tomorrow?
+
+What if it’s a trap?
+
+Should I run and go into hiding on my own? Is the government even really after me? What if Kara Watson returns for me and I’m not at the house? Will she be able to find me?
+
+Please, if anyone can help me…
+
+My name is Kara Logan. My husband is Jonathan Logan. My children and Noah and Liam Logan.
+
+My life was taken from me.
+
+And I just want to go [home](https://www.reddit.com/r/DukeOfDepravity/).
