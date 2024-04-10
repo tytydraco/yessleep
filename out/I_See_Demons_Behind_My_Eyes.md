@@ -22,7 +22,7 @@ A dead little girl in a soaked sun dress, her flesh green-hued with rot, standin
 
 A laughing and hairless man with skin as dark as coal and clawed fingers standing inside my closet with pale-blue eyes that seemed to glow in the dark, centered by the pupils of a snake, his hysterical laughter and surprise flinging open of my closet door threatening to drive me mad. Though I supposed at the time that I probably was going mad.
 
-An impossibly tall man in a fancy top hat and trench coat with blood red eyes staring into my soul while he flips a coin in one hand and holds an elegant cane in the other, his calm demeanor and unnaturally large grin filling me with the worst sense of dread I could imagine at the time.
+An impossibly tall man in a fancy top hat and trench coat with blood red eyes staring into my soul while he flips an unfamiliar coin in one hand and holds an elegant cane in the other, his calm demeanor and unnaturally large grin filling me with the worst sense of dread I could imagine at the time.
 
 I thought it possible I was going insane due to the loss of my daughter or some inherent mental illness I had just never known about before, even though I had never shown any signs of having a mental illness before in my life. I requested antipsychotics from my psychologist, and began taking them, starting intense therapy as well. Nothing seemed to help as time continued to pass. In fact, it got drastically worse and more frequent, my life becoming a living nightmare.
 
@@ -40,7 +40,7 @@ She landed gracefully on all fours like a cat, and skittered backward out my ope
 
 I had to go get stitches for my wounds, the doctors asking me repeatedly if I had done this to myself, as the wound on my arm was inflicted with a razor blade in a self harm manner.
 
-I swore up and down that I had not, and made up a story but an accident with a box cutter, in order to avoid being 5150ed.
+I swore up and down that I had not, and made up a story about an accident with a box cutter, in order to avoid being 5150ed.
 
 The worst part was, I didn't even own a single razor blade in my house. I would occasionally trim with an electric razor, though even that felt like why bother nowadays, but I never clean shaved and hadn't in probably close to two decades.
 
@@ -60,7 +60,7 @@ I then settled upon audio recordings, and even managed to get the gremlin's scre
 
 I took these to my therapist, convinced she would see the truth, but she rebutted every one, saying it could be my laugh, that the little girl could be a neighbor girl, that the screech sounded like something from a horror movie she had seen before.
 
-I felt so defeated after this, it felt as though even if I did manage to acquire enough concrete proof, it would never be enough, no one would ever believe me. 
+I felt so defeated after this, it felt as though even if I did manage to acquire enough concrete proof, it would never be enough, no one would ever believe me.
 
 It was then, in my time of defeat and hopelessness, that the demon in the hat decided to speak to me for the very first time. "I am the Reaper," Is all he said the first time, but when I turned in surprise to face him, he just stood there staring at me with his piercing eyes and haunting smile. "You're going to be one of my children," He said weeks later. "I'm here to collect your soul," Days after that.
 

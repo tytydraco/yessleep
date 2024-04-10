@@ -68,6 +68,8 @@ Months then passed of sleepless nights gulping down straight bourbon, constantly
 
 This time, the package contained a picture of three tied up girls, coordinates, and a police report detailing the events of when I had no choice but to discharge my firearm upon a convicted pedophile while working a case who had abducted a poor little girl to save her life, killing him, and how no charges were being filed against me for the lawful use of my firearm. Also written under the note with the coordinates this time, were the words, 'Three kills makes a serial killer'.
 
+Again, upon arriving at the coordinates, we were too late.
+
 I have moved several times over the course of the last year and a half, but always, every few months, he manages to find me, and sends me a new package. Though now, I never go to the coordinates, instead just reporting them to the police like always and giving them my statement when they show up to collect the evidence that was sent to me.
 
 I am very much descending into madness, and have no idea what to do or how to move forward with my life. What remains of my tongue can't even taste the bourbon I force down anymore. I must arch my head in an uncomfortable manner to see the screen properly with my one remaining eye. My two stumped fingers ache and move as ghosts while I type this. And when I shut off the laptop after use, my own reflection that stares back at me from the dark screen of my disfigured and scarred face haunts me. I feel like he's won, will never face justice, and like my life is over. I don't know how much longer I can take this...
