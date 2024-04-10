@@ -1,4 +1,4 @@
-So, some of you may remember my post a little over week ago talking about my aunt's remains and the strange circumstances surrounding them. If you didn’t, you can find that post [here](https://www.reddit.com/r/nosleep/s/C2FPp6N3O6). 
+So, some of you may remember my post a little over week ago talking about my aunt's remains and the strange circumstances surrounding them. If you didn’t, you can find that post [here](https://www.reddit.com/u/throwaway_74180/s/pYMfnSsV64).
 
 
 While there's still no real development on that front, my mom did manage to get a key to Auntie Lin's trailer from her former assistant, who's some small, kind of beady-eyed guy with glasses bigger than his face named Shawn. I guess he's the new manager, but he's left Lin's trailer alone.

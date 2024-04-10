@@ -1,9 +1,8 @@
 I used to love the outdoors. Camping, hiking, hunting, fishing, you name it I was taking an opportunity to participate in it. My girlfriend was the same. We had bonded over our mutual love of nature and the peace that it brought. Now, I'm terrified to spend any time in the woods. That thing I heard there...its voice still haunts my dreams.
 
-&#x200B;
 
   
-We decided on a weekend trip to the Mogollon Rim of Northern Arizona. It was going to me, my girlfriend Allison, my friend Amanda and her Husband Dave, and my sister Maria with her boyfriend Gabe. The last two didn't like the idea of "roughing it" in a tent so we all went in on a nice cabin in a secluded part of the forest near a lake. The day of the drive, we all packed into my SUV and began the hours-long journey up into the mountains. After what felt like days, we came upon the turn-off given to us by the man who had rented us the cabin. It was at least another hour along uneven dirt-road into the depths of the forest before we found ourselves pulling up to our rather luxurious cabin. I couldn't hide my disappointment, I was hoping for something a little less modernized. Maybe without natural plumbing or electricity. Maria and Gabe were thrilled, and the others seemed excited, too. So, I told myself I'd enjoy this little slice of heaven out in the middle of nowhere. After all, how would I get to stay in a place like this?
+We decided on a weekend trip to the Mogollon Rim of Northern Arizona. It was going to me, my girlfriend Allison, my friend Amanda and her Husband Dave, and my sister Maria with her boyfriend Gabe. The last two didn't like the idea of "roughing it" in a tent so we all went in on a nice cabin in a secluded part of the forest near a lake. The day of the drive, we all packed into my SUV and began the hours-long journey up into the mountains. After what felt like days, we came upon the turn-off given to us by the man who had rented us the cabin. It was at least another hour along uneven dirt-road into the depths of the forest before we found ourselves pulling up to our rather luxurious cabin. I couldn't hide my disappointment, I was hoping for something a little less modernized. Maybe without natural plumbing or electricity. Maria and Gabe were thrilled, and the others seemed excited, too. So, I told myself I'd enjoy this little slice of heaven out in the middle of nowhere. After all, how often would I get to stay in a place like this?
 
   
 We unpacked our things, found the key where the text said it would be, and went inside to find another note.  
@@ -55,7 +54,7 @@ I opened my mouth to speak, but Allison covered it, whispering. "We don't talk t
 
 &#x200B;
 
-Untiil we heard the sound of something gently tapping the window of our bedroom. As I turned my head to look, Allison seized it and kissed me passionately. The tapping continued for several long minutes, during which she held that kiss and my face so that it remained away from the window. When the tapping stopped, she let me go. Her face was ghostly white. "I knows we're here now, it won't stop. It's going to come back..."  
+Untiil we heard the sound of something gently tapping the window of our bedroom. As I turned my head to look, Allison seized it and kissed me passionately. The tapping continued for several long minutes, during which she held that kiss and my face so that it remained away from the window. When the tapping stopped, she let me go. Her face was ghostly white. "It knows we're here now, it won't stop. It's going to come back..."  
 
 
   
@@ -240,5 +239,3 @@ I woke at the hospital, evidently I had been unconscious for a little over a day
 
   
 It has been two years. I haven't gone into the woods, or camping, or fishing since then. Allison and I are married now, I guess a shared trauma like that brought us together. We stay in the desert now, away from the trees, but there have been some nights where I swear I could hear Dave calling for me. Allie assured me that it was just bad dreams, that it didn't come down from the woods, but it didn't help to ease my fears. If this doesn't convince anyone to avoid the woods, then I have only one piece of advice. We don't talk to the Thing in the Woods.
-
-&#x200B;
