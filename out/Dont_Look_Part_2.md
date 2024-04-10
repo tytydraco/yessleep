@@ -1,18 +1,18 @@
 Part 1
 
-[https://www.reddit.com/r/nosleep/comments/1btz9xc/dont\_look/](https://www.reddit.com/r/nosleep/comments/1btz9xc/dont_look/)
+https://new.reddit.com/r/nosleep/comments/1btz9xc/dont\_look/
 
 I worked up the courage to return to the house yesterday. I'm not ashamed to admit that I had to take 3 shots from a bottle of whiskey my grandfather had left behind to do so, not enough to get me drunk or lose my wits, but just enough to help with the fear.
 
 I stood outside, staring at the house, and trying to will myself to go in, but the intense feeling of almost supernatural dread, combined with all the memories flooding back, locked me in place, all the good before that night, and terrors of the nights that followed.
 
-I eventually decided I couldn't go back in and turned to leave, noticing a man standing several yards away with tears in his eyes also staring at the house.
+I eventually decided I couldn't go back in, and turned to leave, noticing a man standing several yards away with tears in his eyes also staring at the house.
 
-He must be a few years older than me, a naturally handsome and tall man with short blonde hair and stubble covering his face, though he looked a bit thin and ragged, with dark bags under his eyes, like he hadn't slept or eaten in days.
+He must be a few years older than me, a naturally handsome and tall man, with short blonde hair and stubble covering his face, though he looked a bit thin and ragged, with dark bags under his eyes, like he hadn't slept or eaten in days.
 
-I froze, and stared at him for a time, feeling an intense sense of familiarity, even though I know I've never met him before. I thought it might just be my PTSD driven delusions and my current environment stirring up false assumptions, but I swear he reminded me of the shadow boy, like the grown up version I imagined of him when we were kids and thinking about what he'd be like when we got married one day. Except this man appeared greatly sadder than the happy husband I had imagined.
+I froze, and stared at him for a time, feeling an intense sense of familiarity, even though I know I've never met him before. I thought it might just be my PTSD driven delusions, and my current environment stirring up false assumptions, but I swear he reminded me of the shadow boy, like the grown up version I imagined of him when we were kids and thinking about what he'd be like when we got married one day. Except this man appeared greatly sadder than the happy husband I had imagined.
 
-After a minute or two of staring at the house, he noticed me from the corner of his eye and turned to face me, immediately beginning to panic as he wiped the tears from his eyes with the back of his hand and turned to leave.
+After a minute or two of staring at the house, he noticed me from the corner of his eye, and turned to face me, immediately beginning to panic as he wiped the tears from his eyes with the back of his hand and turned to leave.
 
 "Hey, wait!" I called out as I started following after him.
 
@@ -58,13 +58,13 @@ Since then, he has struggled with intense survivor's guilt his entire life, and 
 
 After his brother's disappearance, his parents ended up selling their home and moving out of state to my city (which I will also keep private to avoid anyone attempting to find the house).
 
-Months after the incident, he'd began seeing his little brother as a shadow coming to visit him, but no others arrived with him like they had that night. At first, this terrified him and drove him mad. But over time, he began to believe that it really was his brother, and that he wasn't there to take him like the others had been.
+Months after the incident, he'd began seeing his little brother as a shadow coming to visit him, but no others arrived with him like they had that night. At first, this terrified him, and drove him mad. But over time, he began to believe that it really was his brother, and that he wasn't there to take him like the others had been.
 
-They would begin talking in the dark at night, as he had horrible sleep issues ever since the event. His little brother would tell him about a friend he made, and ask him to follow him to my house to meet her. At first, he would refuse, scared that it could be a trick. But eventually, he gave in, following his brother to my home at night and watching as he phased through the door to go inside, his little brother apparently excitedly laughing the whole way there. He came to the conclusion that these were grief hallucinations he was having after his little brother went inside and would leave, never coming to the door.
+They would begin talking in the dark at night, as he had horrible sleep issues ever since the event. His little brother would tell him about a friend he made, and ask him to follow him to my house to meet her. At first, he would refuse, scared that it could be a trick. But eventually, he gave in, following his brother to my home at night and watching as he phased through the door to go inside, his little brother apparently excitedly laughing the whole way there. He came to the conclusion that these were grief hallucinations he was having after his little brother went inside, and would leave, never coming to the door.
 
 The last time he saw his little brother's shadow, he came to him crying, saying that it happened again to his friend's family, that it was all his fault for leading them there. He said that it was dangerous to be around him, and that he must stay alone in the dark forever to protect people.
 
-After that, he'd begin to miss his brother, and wish he had interacted with him more while he was still around, even as a shadow. He often finds himself wandering back to my house, but he could never bring himself to knock on the door or try and go inside, even though sometimes, he could swear he'd hear his little brother's crying coming from within.
+After that, he'd begin to miss his brother, and wish he had interacted with him more while he was still around, even as a shadow. He often finds himself wandering back to my house, but he could never bring himself to knock on the door or try and go inside, even though sometimes, at night, he could swear he'd hear his little brother's crying coming from within.
 
 During our conversation, where I also shared my experience with him, I debated on telling him about the shadow boy, or whether I should leave him out to protect this grief stricken man, ultimately deciding he deserved to know the full truth. And I was glad I did, learning that his brother had also recently begun playing with an imaginary friend at night, before all of this had happened to the both us. He would come out at night and see or hear him, and just laugh it off as his brother's powerful imagination, leaving him be to play.
 
