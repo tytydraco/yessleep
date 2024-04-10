@@ -20,17 +20,17 @@ Upon unlocking the front door, both I and we'll call him Jacob for the sake of t
 
 A sense of eerie dread washed over me and I couldn't tell if it was just my own fear, or some supernatural darkness that still lingered there. Even though the house was completely well lit by the sunlight of day, it took us both turning on our headlamps and fully illuminating the area just to begin to feel comfortable stepping inside.
 
-I had made triple sure that the power bills for the house had been paid and even paid a handyman the day before to go inside and replace every light bulb and check that every light in the house was in working order. 
+I had made triple sure that the power bills for the house had been paid and even paid a handyman the day before to go inside and replace every light bulb and check that every light in the house was in working order.
 
-We immediately got to work as the first thing we did by moving together and turning on every light in the house to make sure it was as illuminated as possible. 
+We immediately got to work as the first thing we did by moving together and turning on every light in the house to make sure it was as illuminated as possible. We noticed a few pairs of clothing as we moved, assuming that people had been squatting in the house, and that we needed to be on the lookout for intruders, but after discussing it some, came to the unfortunate conclusion that whoever had stayed the night there over these past years, had been taken as well.
 
-Next, we went about placing the LED lanterns in strategic spots around the house to make sure our positions would have emergency lighting for if and when the power went out. We had managed to program them to one remote so that we should be able to activate them all at once in case of an emergency. But that was what was so tricky about our mission, is that if we intended to find answers, we couldn't fully illuminate the house tonight, or else the shadows either wouldn't appear or would vanish before any information had been gleamed. 
+Next, we went about placing the LED lanterns in strategic spots around the house to make sure our positions would have emergency lighting for if and when the power went out. We had managed to program them to one remote so that we should be able to activate them all at once in case of an emergency. But that was what was so tricky about our mission, is that if we intended to find answers, we couldn't fully illuminate the house tonight, or else the shadows either wouldn't appear or would vanish before any information had been gleamed.
 
-Our hopeful goal was to find Jacob's brother, let's call him Nathan, and then rid ourselves of any other shadows, if possible, to only communicate with him, as we knew he would not take us. 
+Our hopeful goal was to find Jacob's brother, let's call him Nathan, and then rid ourselves of any other shadows, if possible, to only communicate with him, as we knew he would not take us.
 
-After the lights were set up, and tested to success, we began hanging up the black out curtains in such a manner so that if and when we had to run, we could use them as sight barriers on the way out, to cut off the shadows from our gaze. 
+After the lights were set up, and tested to success, we began hanging up the black out curtains in such a manner so that if and when we had to run, we could use them as sight barriers on the way out, to cut off the shadows from our gaze.
 
-The black painted goggles were sort of a last resort, to cover our eyes, and move blindly if we were surrounded and had no other choice. 
+The black painted goggles were sort of a last resort, to cover our eyes, and move blindly if we were surrounded and had no other choice.
 
 Once everything was fully set up, and quadruple checked for battery life and functionality, we waited. We decided to set up in the hallway where Nathan and I would play at night, as we figured it would be the most likely place for him to appear, if he showed himself at all.
 
@@ -38,27 +38,27 @@ It was equal parts heartbreaking and terrifying being back there, hundreds of go
 
 Jacob and I, however, barely communicated while we waited, due to our fear and grief, both lost in our own memories.
 
-At around 4 p.m., we decided to eat the sandwiches we bought from the store for dinner, not wanting to be distracted by literally anything once it was getting too close to dark. 
+At around 4 p.m., we decided to eat the sandwiches we bought from the store for dinner, not wanting to be distracted by literally anything once it was getting too close to dark.
 
-Then we really had nothing left to do but wait until it all began, each of us sitting with our back to one side of the hallway, facing each other with our headlamps on and pointed to the wall next to each other, to avoid blinding one another, but making sure we were covered for when it started. 
+Then we really had nothing left to do but wait until it all began, each of us sitting with our back to one side of the hallway, facing each other with our headlamps on and pointed to the wall next to each other, to avoid blinding one another, but making sure we were covered for when it started.
 
-As night came, the sunlight fading away completely, the true terror took hold of us as we knew it could happen at any moment. 
+As night came, the sunlight fading away completely, the true terror took hold of us as we knew it could happen at any moment.
 
-Hours passed, and as the night grew late, I almost started to believe that nothing was going to happen, that the shadows were long gone and not here anymore, or perhaps even that it really was just all in mine and Jacob's heads, and we were suffering from some level of psychosis that was now being fed from each other's individually broken minds. 
+Hours passed, and as the night grew late, I almost started to believe that nothing was going to happen, that the shadows were long gone and not here anymore, or perhaps even that it really was just all in mine and Jacob's heads, and we were suffering from some level of psychosis that was now being fed from each other's individually broken minds.
 
-Right before midnight, the power went out, all the lights in the house, besides our headlamps, shutting off in an instant. Both of us jumped, my heart feeling like it burst, and I could tell Jacob felt the same, as he brought a hand to his chest and began to hyperventilate, his eyes going wide. 
+Right before midnight, the power went out, all the lights in the house, besides our headlamps, shutting off in an instant. Both of us jumped, my heart feeling like it burst, and I could tell Jacob felt the same, as he brought a hand to his chest and began to hyperventilate, his eyes going wide.
 
-I quickly pulled up my back up flashlight and turned it on for extra protection. "Turn on your other light," I instructed Jacob. "It's okay, stay calm." Those words were more for my sake than his, but I could tell they helped snap his scared mind back into the moment. 
+I quickly pulled up my back up flashlight and turned it on for extra protection. "Turn on your other light," I instructed Jacob. "It's okay, stay calm." Those words were more for my sake than his, but I could tell they helped snap his scared mind back into the moment.
 
-He nodded rapidly, illuminating the beam of his back up light, and beginning to calm himself with deep breaths. 
+He nodded rapidly, illuminating the beam of his back up light, and beginning to calm himself with deep breaths.
 
 Then, we waited. We had discussed beforehand just what exactly to do once it began, but we couldn't come up with anything more than this. Survival is our first priority, protect your gaze at all times and bail immediately if things get too overwhelming. Second, wait for Nathan, and attempt to get him to talk with us. Third, if the others come, and Nathan doesn't show up within minutes, we get the hell out. Anything more than that, was just too up in the air.
 
-For several long minutes, nothing happened, and again I began to wonder if nothing would, but at this point, I knew better. 
+For several long minutes, nothing happened, and again I began to wonder if nothing would, but at this point, I knew better.
 
-Suddenly, a little boy's voice called out to my right, down the hall towards my parent's bedroom, in the opposite direction of the kitchen and living room. "Go-" He started, our heads both spinning in his direction on a swivel, cutting off his words as our headlamps illuminated the area he had just been standing. 
+Suddenly, a little boy's voice called out to my right, down the hall towards my parent's bedroom, in the opposite direction of the kitchen and living room. "Go-" He started, our heads both spinning in his direction on a swivel, cutting off his words as our headlamps illuminated the area he had just been standing.
 
-We both immediately realized, moving the beams of our headlamps down to the ground to uncover him again, while also covering our eyes to be careful of tricks awaiting us from the other shadows. 
+We both immediately realized, moving the beams of our headlamps down to the ground to uncover him again, while also covering our eyes to be careful of tricks awaiting us from the other shadows.
 
 "Nathan!" Jacob couldn't help but call out.
 
@@ -84,7 +84,7 @@ Amongst the incoherent whispering, unlike before, I could hear multiple voices s
 
 I couldn't control my own body, either from my mind's overpowering desire, some supernatural force pulling me, or both. I turned, slowly stepping down the hall in the direction of the kitchen.
 
-As I exited the hall, keeping my eyes trained to the ground at my pointed beams of light, I listened. 
+As I exited the hall, keeping my eyes trained to the ground at my pointed beams of light, I listened.
 
 "Don't look at the shadows."
 
