@@ -83,7 +83,7 @@ Its eyes narrowed in disbelief, "*What?!"*
 
 "Yes! *You!*" It snapped. 
 
-It growled, snatched a pair of scissors, hurled them at me. I managed to duck away, heart racing as I blades slammed into the wall mere inches away where my head had just been. As the hoofed jinn reached for a scalpel, I took cover in the refrigerator. The wish protects against anything that has intent to harm me, though I'm not certain if sharp, inanimate projectiles fall under that category. They don't have intent; they're just weapons. Knowing Ramy, I'm sure he accounted for that, but I wasn't about to find that out the hard way. 
+It growled, snatched a pair of scissors, hurled them at me. I managed to duck away, heart racing as the blades slammed into the wall mere inches away where my head had just been. As the hoofed jinn reached for a scalpel, I took cover in the refrigerator. The wish protects against anything that has intent to harm me, though I'm not certain if sharp, inanimate projectiles fall under that category. They don't have intent; they're just weapons. Knowing Ramy, I'm sure he accounted for that, but I wasn't about to find that out the hard way. 
 
 My hiding place was not ideal as the metallic odor of gore invaded my nostrils. If you weren't aware, exposed brains have their own smell, like warm mucous. Now, you know. Enjoy. Suffer as I have. 
 
