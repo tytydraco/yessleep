@@ -60,6 +60,6 @@ After a few minutes the footsteps stopped. The entire time they had been getting
 
 I sat there, afraid to move for about an hour in the darkness. I knew as soon as I moved they would hear me. Why they were standing still in the darkness I didn't know. Eventually I decided that it had to either be a ghost or the security guard. If the latter I was going to get arrested for trespass. If a ghost, I might get a fright but I probably wouldn't die.
 
-I wasn't going to sit there all night so I turned the flashlight on and shone it right at the opening to the corridor where I held it as I walked down the stairs. I wanted the guard to know I was there so as not to startle him. I got to the halfway and shone the light down it. No one was there.
+I wasn't going to sit there all night so I turned the flashlight on and shone it right at the opening to the corridor where I held it as I walked down the stairs. I wanted the guard to know I was there so as not to startle him. I got to the hallway and shone the light down it. No one was there.
 
 As I walked back to the door I noticed the floor was covered with dust. I could see my own footprints in it from when I had come in. There was another set of prints which started part way down the hall and ended abruptly before it had reached the end of the [corridor.](https://www.reddit.com/r/DentonQuick/)
