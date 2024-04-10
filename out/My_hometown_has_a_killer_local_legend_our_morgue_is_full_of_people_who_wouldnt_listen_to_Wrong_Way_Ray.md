@@ -105,4 +105,4 @@ I understand what would've happened had I taken the next step, too. At least I t
 
 What if Ray doesn't actually advise you on your best course of action, like the legends promise? What if instead, he helps you make peace with settling for the easier option?
 
-Forget the bodies -- I wonder how many dreams died on that [mountain, too.](https://www.coleschapters.com/p/story-archive-by-collection?r=nzp2a&utm_campaign=post&utm_medium=web)
+Forget the bodies -- I wonder how many dreams died on that [mountain, too.](https://www.coleschapters.com)
