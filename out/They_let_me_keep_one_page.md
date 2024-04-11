@@ -1,0 +1,47 @@
+Six months ago my twenty-six year old son came to visit me to inform me that he was planning to embark on a trip. Six days ago, a post man delivered to my house a shoe-box sized package with no return address. In it there were a number of things. My son's favourite watch, a small amount of cash, a toothbrush, a worn down pair of trainers which I immediately recognised as the same pair he had been wearing the day he had come to see me, and finally, two sealed envelopes. One was labelled 'Read first', the other was blank.
+
+I emptied the contents of the box onto the dining table in the kitchen, picked up the aforementioned 'Read first' envelope, and then, well... I just held it for a while. I flipped it over in my hands, ran my fingers along the edges, held it up to the light; pretty much everything except open it.  I'm not sure how long it was before I finally did, but I'm sure any of you cynical bunch who may be reading this right now can deduce just why exactly it was that I was so reluctant to read what was inside. There was a creeping dread building within my heart which had started the moment my gaze fell upon my son's watch. He went nowhere without it. All that said, of course I did eventually open it. Inside there was a single sheet of faded white-yellow paper. And as I am typing right now, it is sitting on my desk beside me. I'll spare you my theories on whom I think it might be that wrote it. In short I have no idea.   But what is important to note, is the distinct lack of any, and I mean *any* distinguishing lines of text that may hint at where this letter was sent from, who it was written by or anything of the like. It is a typed block of black text located square in the middle of the page, almost as if it had been stamped on. It has a standard font; probably the default selected by whichever software it was that the author had used to write the small paragraph. And finally there is no address, no signature and no date.
+
+I don't want to bore anyone anymore than necessary with my prelude before relaying the contents of the letter, and subsequently the contents of the second envelope. But I would just like to quickly address some questions a few of you may already be thinking.
+
+'Why share this?' - I am desperate for an outside opinion, and other than my son, I don't have anyone I would consider close enough to share this with. There's a long story behind my ostracism from the rest of my family, but not one that is relevant.  So an anonymous post online will have to do.
+
+'Why not just upload pictures of the letters?'
+
+To put it simply, I have been forbade by the author of the letter. There is no threat of action if I do, but in my opinion the confidence required to have *not* included a threat is one in and of itself. As you will see, it is explicitly stated that I am not to show the contents of the package to anyone. So I've typed it up. Whether or not that counts as showing it to others I'm not sure.  Guess I'll find out sooner or later.
+
+Anyways, I'm sure there are others that I am forgetting, but my head has been a little fuzzy lately. I'll titillate no further. The first letter, in its entirety, is as below. Forgive me but I've omitted any names mentioned for anonymity, they are only either my own or my sons.
+
+"*Mr \_\_\_,*
+
+*With my deepest sympathies, it is my duty to inform you of the death of Mr \_\_\_ \_\_\_. He gave his life in service of a greater cause, and thus, you may consider him a hero. Unfortunately, due to the nature of our mission, his sacrifice will be known to few. Perhaps one day the heroism of your son and countless others will be celebrated on a more appropriate scale, but that day it seems, is a long way over the horizon.* 
+
+*Ordinarily, these letters would be written up by an administrator, who in all likelihood would have never met the subject of their print. But I knew \_\_\_ well, and felt it necessary to take this duty upon myself. He spoke fondly of you. He was popular amongst his comrades. For some of the younger members of our organisation, he was a lighthouse in stormy seas. And above all, he showed courage to the very end, unlike many had shown before him, and any who will be yet to come - I am sure.* 
+
+*He kept a journal. He was quite the writer, and I wish I could have included it in this package. Alas, I cannot. It contains sensitive information which the higher ups deem too dangerous to leave the facility. However, I did manage to convince them to allow me to send just one page. His last entry. Oddly enough, there was no direct mention of any of the aforementioned sensitive material, which had been included in every entry beforehand. It's not much, I know, and for that I am sorry. But its something.* 
+
+*Perhaps one day we will cross paths, Mr \_\_\_. I hope so. It would be an honour to meet the man who so heavily influenced one of the bravest men I ever knew.* 
+
+*One last thing, it is of paramount importance that you do not speak of this to anyone. Your son knew what he was doing, and accepted the risks. You will not show the contents of this package to anyone.* 
+
+*Until we meet, Mr \_\_\_.*
+
+*L"*
+
+There we have it. Not what you were expecting I imagine. At least, it is far from what I was expecting. That leads us to the second letter. The one written by my son in the final hours of his life.  I'll not waste your time with my own speculations. Here it is. 
+
+"*March, 25th. 2024.*
+
+*A Monday like any other. How I wish that were true. In truth, I haven't glimpsed normality in months. It is amazing just how quickly the human brain will adapt to accept what is presented before it. Sure, there is confusion in the beginning. Denial, Disbelief. All of those things. But the haze of enchantment which claimed myself and many others the first time we went down is shockingly fleeting. When your life hangs in the balance, you are not afforded precious seconds to sit in awe of what is is your eyes are seeing and what is is your mind is struggling to comprehend.*
+
+*Recently I have found myself reminiscing the days of my childhood. If there is a moment of the day where my mind is unoccupied, then it is entirely elsewhere. I figure when a man knows the days of his immediate future are determinedly limited, the mind abandons the notion of looking forward. If nothing else, there is more time to escape to behind me.* 
+
+*I remember particularly vividly the day my father presented me with my sixteenth birthday present. I don't remember what I was hoping it would be, only that it was not that. A St. Christophers pendant, looped upon a silver chained necklace. A strange present, given that he was very well aware of my atheism. But I loved it. He explained to me how his father had given him the same present on his own birthday, and his father before that. The pendants kept us safe, he explained. I brought it with me down here, and so far it has done its job. But when I see it now, dangling from the roof of my pod, the sentimentality of the gift is corrupted by a bitter resentment growing within my soul. If there is a god, Christian or otherwise, he is blind to this place. I look into the eyes of my brothers and see the same growing despair with each day that passes. The men call me brave, courageous even. The youngsters look to me for guidance, as if a stoic demeanour in the face of peril equates to omniscience. But I have no guidance to give, no wisdom to bestow. When they ask me how it is I have come to return from over fifteen expeditions, I tell them it is all about keeping your wits about you.*
+
+*A lie. I could not bring myself to tell them the truth. That it is dumb luck that has carried me through the last six months. There is a wistfulness in the eyes of the younger men; the ones that are still being carried through every expedition by the notion that they are making a difference and that the work we are carrying out down here is meaningful. That's not to say I do not believe I am making a difference, I do. But I am also aware that it is a difference that was being made before my arrival, and a difference that will be made after my departure. We are cogs in a machine that will be replaced just as soon as we stop serving our function. Still, I carry on. With every successful expedition I carry out, it is one less expedition that needs to be carried out by some kid who doesn't know what he is getting himself into. Perhaps the difference between the missions I have completed and the total required to put all this hell to rest will be enough to earn that kid a ticket home. That's good enough for me.*
+
+*No amount of training or video presentations can prepare that kid for what he will go through each night. They will not warn him of the capabilities of those things down there. They will not warn him of the crippling claustrophobia that welcomes him back from each successful expedition, waiting for him in his provided quarters. They will not tell him that just hours previous, his skin will have been warmed by the sun for likely the last time in his life. He will not know that the last time he saw his family, was in fact the last time. He will not know that he signed his death warrant the day he came down here. He will have to figure that out on his own.*
+
+*As I did."*
+
+&#x200B;
