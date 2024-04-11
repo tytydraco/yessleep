@@ -24,7 +24,7 @@ I abandoned college a month later.
 
 "Where's it at?" Luke asked.
 
-"Somewhere outside Hibbing."
+"Somewhere outside the city."
 
 "Oh, nice, not too far. What company is it through?"
 
@@ -46,7 +46,7 @@ After submitting my headshot and address, I woke to another email yesterday wait
 
 **Welcome to the ANTI Spring 2024 EMT Basic initial education course! We are so excited to spend the next 7 days with you, teaching you to become skilled EMS providers.**
 
-**I have attached the syllabus to this email, take a moment to look at the schedule to see what we have planned. The first day of class will be tomorrow, Monday, February 9th. All classroom sessions will be from 1800 to 2400 and will be held in our very own ANTI classroom located at 065 S Inanis Dr, Hibbing, MN 55746.**
+**I have attached the syllabus to this email, take a moment to look at the schedule to see what we have planned. The first day of class will be tomorrow, Monday, February 9th. All classroom sessions will be from 1800 to 2400 and will be held in our very own ANTI classroom. The address is listed in the syllabus.**
 
 **Just a reminder, this class is a hybrid educational experience requiring much self-guided learning as well as in-class participation. Extraordinary self-discipline and perseverance are imperative. Each day you will have assignments to be completed at home that will be due by the start of the following class. In-class there will be group activities to complete.**
 
@@ -240,7 +240,7 @@ He nodded and cleared his throat.
 
 Big Les' giant hands seized his shoulders with ferocious speed and slammed him onto the desk. The back of his head smacked the wood with a sick cracking sound, the violence of it rendering him unconscious.
 
-"What the fuck?" 
+"What the fuck?"
 
 "What are you doing? Stop!"
 
