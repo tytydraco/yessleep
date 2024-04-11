@@ -8,7 +8,7 @@ While Ramy was passed out in my bed, I examined myself, trying to figure out wha
 
 Before being burnt out, my heart used to swell with adoration any time the two animals did absolutely anything. I still felt that love warming my chest, but it was reduced to a muted flicker. Like a bud trying desperately to bloom only to stagnate as nothing more than a partially formed flower. 
 
-I 'rescued' Connie by picking her up, much to Ciri's disappointment. I kissed the goat's head as I wondered if I'd ever feel like a whole person ever again. I should've been grieving, but even that was cut down to a mere ache in my throat. I focused on it, trying to scratch the surface, yet the edge of this anguish stayed dull. Even feeling terrible would be better than than being a husk.
+I 'rescued' Connie by picking her up, much to Ciri's disappointment. I kissed the goat's head as I wondered if I'd ever feel like a whole person ever again. I should've been grieving, but even that was cut down to a mere ache in my throat. I focused on it, trying to scratch the surface, yet the edge of this anguish stayed dull. Even feeling terrible would be better than being a husk.
 
 Was that all that I was now? A shell? I hugged my little goat closer.
 
@@ -240,7 +240,7 @@ She sounded like she was crying.
 
 My voice hoarse from being choked, I simply said. "Yeah."
 
-Wait. The thudding I'd heard in the house earlier. 'Just the cat,' he'd said. I... don't think he out these bear traps out in case a *cat* escaped. 
+Wait. The thudding I'd heard in the house earlier. 'Just the cat,' he'd said. I... don't think he put these bear traps out in case a *cat* escaped. 
 
 Eyes on the ground, I ambled back to the cabin. I heard Aanya crunching through the overgrowth behind me, sniffling lightly. Once back inside, I retraced the path he'd taken earlier, finding that one of the doors had a padlock on the outside. 
 
@@ -248,7 +248,7 @@ Aanya seized it, breaking the metal effortlessly in her fist. She wiped her eyes
 
 The smell... 
 
-The girl whose mouth and wrists were wrapped in duct had to have been in that room for weeks, possibly even months. A filthy bucket sat in the corner of the room. She couldn't have been older than fifteen. The girl was unconscious, her swollen, bruised eyes shut while her cheek was buried in the stained mattress. I quickly looked away from her, shaking as I took in the unreal, hellish nature of her situation. 
+The girl whose mouth and wrists were wrapped in duct tape had to have been in that room for weeks, possibly even months. A filthy bucket sat in the corner of the room. She couldn't have been older than fifteen. The girl was unconscious, her swollen, bruised eyes shut while her cheek was buried in the stained mattress. I quickly looked away from her, shaking as I took in the unreal, hellish nature of her situation. 
 
 Aanya didn't look at me as she spoke, "Lab Rat, I swear to you that I'll help you find who you're looking for. Just... please, let me take care of her first."
 
