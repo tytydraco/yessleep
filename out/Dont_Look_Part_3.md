@@ -1,6 +1,6 @@
 Part 1
 
-https://new.reddit.com/r/nosleep/comments/1btz9xc/dont\_look/
+[https://new.reddit.com/r/nosleep/comments/1btz9xc/dont\_look/](https://new.reddit.com/r/nosleep/comments/1btz9xc/dont_look/)
 
 Part 2
 
@@ -175,3 +175,9 @@ I released him and pulled back to look him in the eyes. "'Til the end."
 "Let's rest up then," He said. "Tonight, we finish this."
 
 We're going to sleep now, but I had to type my experience and thoughts out before my mind would stop racing about what happened last night, and about what's to come tonight, and let me rest. I figured I would share this with anyone still listening while I have the chance. I will post again tomorrow to let you know how this all ends. Thank you for anyone that has read my story, I appreciate you all. It sucks to be alone in the dark for so long. But now, I have hope that I will never have to be again.
+
+&#x200B;
+
+Part 4, Finale
+
+https://new.reddit.com/r/nosleep/comments/1c18kt4/dont\_look\_part\_4\_finale/

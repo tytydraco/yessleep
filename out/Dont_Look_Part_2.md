@@ -1,6 +1,6 @@
 Part 1
 
-https://new.reddit.com/r/nosleep/comments/1btz9xc/dont\_look/
+[https://new.reddit.com/r/nosleep/comments/1btz9xc/dont\_look/](https://new.reddit.com/r/nosleep/comments/1btz9xc/dont_look/)
 
 I worked up the courage to return to the house yesterday. I'm not ashamed to admit that I had to take 3 shots from a bottle of whiskey my grandfather had left behind to do so, not enough to get me drunk or lose my wits, but just enough to help with the fear.
 
@@ -78,4 +78,10 @@ You'll hear more from me in a few days, so long as the worst doesn't happen.
 
 Part 3
 
-https://new.reddit.com/r/nosleep/comments/1bzxk7d/dont\_look\_part\_3/
+[https://new.reddit.com/r/nosleep/comments/1bzxk7d/dont\_look\_part\_3/](https://new.reddit.com/r/nosleep/comments/1bzxk7d/dont_look_part_3/)
+
+&#x200B;
+
+Part 4
+
+https://new.reddit.com/r/nosleep/comments/1c18kt4/dont\_look\_part\_4\_finale/
