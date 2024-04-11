@@ -1,0 +1,29 @@
+I believe I'm cursed.   
+  
+In short, everyone I've ever loved or even shown the slightest bit of interest in has left me. Be it friends, family, even one night stands. They all seem to leave after I invite them to my home.   
+  
+I grew up in a small ranch house in the middle of the Ohio Styx, the house was nothing special. 3 bedrooms, a kitchen and living room all jammed together on one floor and about 1,000 square feet. The real magic was the property. 2 huge barns and a wine cellar that rivals the size of the actual home. All sitting on about 20 acres of land. When I was younger the barns would wake me up with the familiar cry of a rooster crowing, a cow's proud yells or the pigs screaming. Waiting for their morning feed.   
+  
+Now I sit in this overgrown wasteland with no farm animals, just the pets I've accumulated over the years to help with my loneliness. The two barns are run down and the vibrant red paint I used to touch up with my dad every summer chips and peels with every gust of wind. The cellar, covered in dust and broken glass. Shows none of the memories of my mother bottling wines and mead with the fresh fruits she'd picked from her little garden that spring.   
+  
+Three years ago I dropped out of college and came to move back in. I told my family it was because I missed them too much and chose to take over our small farm. Instead of becoming a teacher like I've always hoped. I knew my parents were disappointed. I was the first person in our whole family tree to try the whole college thing and they'd hoped I would set a good example for my younger brother and sister by becoming an educated man. Though I knew they were happy to have their oldest son back.   
+  
+The truth wasn't that I wanted to suddenly become a farmer, I was depressed. Or at least. That's what I assume depression felt like, I've changed completely. My mind was cynical, I found joy in nothing. The chemicals in my brain changed from a boy who wanted the most out of a new and fast life, to a moppy and hateful young man that couldn't get behind the constant parties, and strict schedules placed upon him from the moment I went out for freedom.   
+  
+Two years ago my family left. I'm not sure where they went, but my new perspective on life made me believe that they could no longer be around a misanthropic and gloomy son. Instead of looking for them my new form of coping would be getting pets, and naming them after my long gone family. Two mutts, Jo and Ricky (Joanne and Richard, my mother and fathers names). I keep them in the cellar locked in cages most of the time. They soil themselves far too often and like to try to run if i don't keep them locked up. And two barn cats Em and Dee (Emily and David, my siblings names). They spend their days in the dusty cellar as well, though i don't need to tie them up, they are small and won't try to run when i open up the cellar doors.   
+  
+They started talking to me. That's why I really left them down there. I don't know if I finally broke mentally or if I was cursed, but they've been begging and pleading to come out from under the cellar. I no longer wake up to the chickens, cows or pigs. Just to the low and guttural moans of my pets, directly under me in my cellar.  
+  
+Unable to handle the cries from my pets alone, I began bringing girls over for one night stands about 8 months ago, though some I thought could bloom into love. Others were just to distract myself from the voices. Only after the 7th girl did I realize no matter how much my delusional mind thought they were into me, they’d disappear after one night. And I'd revive new pets, be it a new dog, a small garter snake, even a ferret or two. The pets would appear just as fast as the women disappeared, the same as the dogs and cats that replaced my family. And so the creatures received the names of their predecessors.   
+  
+I moved all the girls into the barns, I couldn't handle that much talking. Even for an ill man it was too much to handle. Though I could not abandon the ones with my family's names. So in the cellar they stayed.   
+  
+The barn pets are all chained up and are the reason I can't leave the house during the day anymore. Unlike the cellar pets, sometimes they scream. The blood curdling screams scare me to be completely honest. It's why I haven't attempted to mow the grass or pull any weeds. Going outside was awful, I'd only do it if I needed to feed the pets and sometimes i didn't even like doing that. They'd cry when they would see me. As if I was treating them unfairly, even though they stayed fed and sometimes I'd even spray them down with the hose if they covered themselves with filth.   
+  
+My mind has been completely cursed.   
+  
+It took me until two weeks ago to realize what I've done.   
+  
+I was feeding my cellar family when I looked at the cats, and their faces were off. They crawled on all fours like cats, winced and jolted at my sudden movements like cats, but they were not cats. It was my brother and sister. The dogs slowly formed into my parents, locked in those small cages. My mind had snapped after returning home. I rushed to the barns to find the horror of 7 young and once beautiful women, dirtied and malnourished. Covered in mud and feces. Some still screamed at me, though most looked tired and worn, I think Jenifer in the corner tucked under a pile of rotten hay was dead.   
+  
+The world's gloom has lifted and the state I've been in for the past few years has gone away, i feel clear and happy. I'm back with my family. I even have a couple of pretty girls to keep me company. I know now what I'm doing is wrong. There's just no way I'm going back to being lonely with just a bunch of animals, even though I still have to treat them like pets. I've finally gotten my family back.   
