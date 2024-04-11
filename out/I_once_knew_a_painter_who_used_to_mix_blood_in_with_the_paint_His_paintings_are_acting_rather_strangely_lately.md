@@ -2,7 +2,7 @@ I had always liked collecting rare books and paintings with the extra money I ma
 
 I also tried to find ascending painters in the local art scene and buy up some of their works for very low prices before they got discovered. Sometimes it worked out, and sometimes it didn’t, but as a whole, I had made far more money than I had lost over the decades. All of the works I liked most, though, I refused to sell at any price.
 
-And these included the paintings of HG Bittaker. After his mysterious death a few years ago, they had gotten the same kind of reputation as paintings done by serial killers like John Wayne Gacy that were sold openly, sometimes for tens of thousands of dollars, on the internet. And like Gacy’s strange and eerie portraits of Snow White or the Seven Dwarves or grinning clowns, Bittaker’s paintings all had a strange and otherworldly pull.
+And these included the paintings of HG Bittaker. After his mysterious death a few years ago, they had gotten the same kind of reputation as paintings done by serial killers like John Wayne Gacy that were sold openly, sometimes for tens of thousands of dollars, on the internet. And like Gacy’s strange portraits of Snow White or the Seven Dwarves or grinning clowns, Bittaker’s paintings all had a sinister and otherworldly pull.
 
 I had kept them locked up in a storage unit, but when the storage company told me they would be doubling their rates, I decided to close the unit and take everything in it back to my house. I set up the macabre paintings around my room and the hallways, remembering the strange conversation I had with the artist just days before his untimely death.
 
