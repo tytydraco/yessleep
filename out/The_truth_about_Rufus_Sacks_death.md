@@ -1,4 +1,4 @@
-They say that "The internet never forgets". That's why I'm writing this here. The first thing that comes to mind is sending a letter, or calling anonymously. Or maybe being a man and meeting his family face to face, telling them the truth as they look me in the eyes. But that's not an option. Even if it was, I can't stand it. I can't stand myself. I know that deep down I'm happy that I absolutely cannot contact his family, it makes me feel like I don't have a choice and it releases me of my burden. Makes me feel less guilty. So here's what I'm gonna do, I'm gonna write this post and the internet will do it's thing. Even if it's removed it will pop up in some web archive. This way they can never hide it and even if takes a long time, someday someone who knew him will read this and show it his family and they will finally know what really happened to their son.
+They say that "The internet never forgets". That's why I'm writing this here. The first thing that comes to mind is sending a letter, or calling anonymously. Or maybe being a man and meeting his family face to face, telling them the truth as they look me in the eyes. But that's not an option. Even if it was, I can't stand it. I can't stand myself. I know that deep down I'm happy that I absolutely cannot contact his family, it makes me feel like I don't have a choice and it releases me of my burden. Makes me feel less guilty. So here's what I'm gonna do, I'm gonna write this post and the internet will do its thing. Even if it's removed it will pop up in some web archive. This way they can never hide it and even if takes a long time, someday someone who knew him will read this and show it his family and they will finally know what really happened to their son.
 
 I first met Rufus in college. He was the brightest student in every class. It gave him a reputation, by the end of the first semester almost everyone had heard of him. He wasn't a stereotypical nerdy guy, he was charming and incredibly well-spoken. I think anyone who met him instantly fell in love with him. But I wasn't impressed. Not because he wasn't impressive but because deep down I always hated two groups of people: people who reminded me of myself and people who lived better than me. And he reminded of what I could have been. And he did live a better life. It's jealousy and being bitter but I always hide it with a superiority complex. I always kept my head down, never wanted any attention but he seemed to like it. This was all before I actually got to know him. One Saturday when I was waiting for my coffee I saw him staring at a clock. It was bizarre. You'd see shit like this with the loner types not the most popular person you know. Well, I wouldn't say popular. He wasn't popular he just had a reputation. Having a reputation can mean a lot of things. He was just, well-known? Not "popular".
 
@@ -22,28 +22,20 @@ I tried to sleep less and less. Short chunks of sleep, instead of sleeping for h
 
 "You are chosen."
 
-  
 I was too smart to ask them to let me go.  
 "Chosen to do what?"
 
-  
 "Chosen to make a sacrifice"
 
-  
 "And why would I do that? I don't care about the photos. Not anymore."
 
-  
 "The photos weren't for you."
 
-  
 I knew the photos made Rufus doubt me, but I didn't suspect that it was by design.  
 "So how are you going to make me do what you want?"
 
-
-
 "A servant killed himself just so you and your friend Rufus could get rid of him. You doubted him didn't you? He told you the truth and you doubted him."
 
-  
 Rufus... didn't... lie...
 
 "  "
@@ -58,10 +50,8 @@ Rufus... didn't... lie...
 
 "We planted the seeds. Now we sow."
 
-  
 "what do you want?"
 
-  
 "You doubted him but saved his life. He doubts you but will he save yours?"
 
 "  "
@@ -80,10 +70,6 @@ Rufus... didn't... lie...
 
 "It is ten."  
 "Now it's nine..."
-
-
-
-
 
 They opened my hands. I texted him.  
 He, Rufus, even though he believed I was one of them, in the slight chance that he was wrong and I was in danger, suppressed his doubts and came to save me. He came to save me. He walked right in to save me. He walked in his own funeral willingly, believing he was saving a "friend". I exchanged his life, for mine. I wanted to believe that I exchanged his life for mine. I was suicidal. This looked like one of those situations where I happily tell myself that I don't have a choice and can take the burden off myself. Maybe I hated him. Maybe I hated a person that was nothing but good to me. He walked right in, and they tied him to an alter. With his jaw broken and his mouth shot. They kept chanting and I put the knife in his chest when he was staring at me. When he was looking me in the eyes. Seeing the face of someone he came to save. Someone who he assumed a friend. Someone who sold him out because he was afraid to die alone. I know they wouldn't just let me go. It was too dangerous. But I was wrong. After I killed my friend, seeing the light of life leave his eyes with a single tear.
