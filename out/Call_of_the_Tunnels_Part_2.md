@@ -162,3 +162,5 @@ I helped her there and found some Neosporin in the medicine cabinet behind the m
 I hadn't realized how tired I was until a climbed in her bed. She rested her head on my chest and my eyes kept closing. After a few minutes, I was fast asleep.
 
 Morning came and I found myself alone in the room. “Aimee?” I called. I got up and checked the bathroom but she wasn't there. Her phone was on her desk and her backpack was on the floor. 
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/1c1344v/call_of_the_tunnels/?utm_source=share&utm_medium=mweb3x&utm_name=mweb3xcss&utm_term=1&utm_content=share_button)
