@@ -106,16 +106,12 @@ I wonder if he looked.
 
 &#x200B;
 
-Part 2
+Parts 2 and 3
 
-[https://new.reddit.com/r/nosleep/comments/1bxa03l/dont\_look\_part\_2/](https://new.reddit.com/r/nosleep/comments/1bxa03l/dont_look_part_2/)
-
-Part 3
-
-[https://new.reddit.com/r/nosleep/comments/1bzxk7d/dont\_look\_part\_3/](https://new.reddit.com/r/nosleep/comments/1bzxk7d/dont_look_part_3/)
+https://www.reddit.com/r/nosleep/comments/1bzxk7d/dont\_look\_part\_3/
 
 Part 4
 
-https://new.reddit.com/r/nosleep/comments/1c18kt4/dont\_look\_part\_4\_finale/
+[https://new.reddit.com/r/nosleep/comments/1c18kt4/dont\_look\_part\_4\_finale/](https://new.reddit.com/r/nosleep/comments/1c18kt4/dont_look_part_4_finale/)
 
 &#x200B;
