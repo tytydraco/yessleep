@@ -1,0 +1,15 @@
+Day 4 of the never-ending eclipse, and honestly, it's starting to freak me out a bit. Seriously, how is the sun still hiding? It’s like the universe hit pause, and nobody’s bothered to hit play again. I’ve been sharing pics and jokes about it online, but deep down, I'm not laughing. Something feels off.
+
+Walking through town, it’s like everyone's running on empty. Saw Mike at the corner store earlier, and the dude looked like he hasn’t slept in a week. Barely glanced up from the counter to give me a nod. “Just tired,” he says. But man, it’s not just the regular ‘I stayed up too late watching Netflix’ kind of tired. It’s like everyone’s had their batteries drained. I bought him an energy drink, but he seemed too tired to even enjoy it.
+
+I tried to talk about it with Sarah, she's been cool with me for years. She gave me this tired smile and tossed out some line about stress. "It's nothing, just the weird sky getting to us," she said. But the way she said it... I don’t buy it. There's something she’s not telling me. I know working at the hospital as a nurse is stressful, but she shouldn't look so incredibly run down.
+
+It's weird, right? The streetlights are on all day, and our little town feels more like we’re stuck in a dimly lit, never-ending evening. I can't remember the last time I heard dogs barking or kids playing outside after what should be school time. It’s too quiet, like everyone’s too zapped to bother with normal life.
+
+And here’s the kicker: I'm lying awake every night...or day, I can barely tell anymore, scrolling through my phone, looking for someone, anyone online who might be seeing the same things I am. But it's just echoes of the same day over and over. The night doesn’t come; it doesn’t get fully dark or fully light, we’re just stuck right in between. Everyone online tells me to stop trying to be spooky, as though they don't have eyes, they can't look up and see the same thing I am seeing.
+
+So, what’s the deal? Is this some weird weather thing? Or, I dunno, something out of a sci-fi movie? Feels like we’re part of some big experiment, and no one’s let us in on the purpose.
+
+Honestly, it’s getting to me more than I want to admit. As I walk through the streets with that weird, eternal sunset, I can’t shake this feeling of being watched. It’s like something’s out there, lurking, waiting. And whatever it is, it doesn’t care that we’re freaking out. Just how long are we supposed to live like this? Does anyone else feel like things are, I dunno, changing us? Or am I just losing it here?
+
+Whatever, I guess, the sun should come out sooner or later, and everything will go back to normal. Hell, I still have to pay for gas and my rent is due, I don't think cash cares about the eclipse. I think I'll hit up the police department later, see what they say.
