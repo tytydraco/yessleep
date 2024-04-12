@@ -264,4 +264,4 @@ Oh, and did I mention Greg quit? Yeah. He just never came back to work. I tried 
 
 But judging by the look I saw on his face that night, I know that in those twenty minutes he was by himself a certain someone gave him a call. Or perhaps paid him a visit. Something spooked him so bad that he never came back to GravelSlodge. 
 
-And honestly? I don’t fucking blame him. Not one bit. 
+And honestly? I don’t fucking blame him. Not one [bit.](https://knightmarefuel.blogspot.com/?m=1)
