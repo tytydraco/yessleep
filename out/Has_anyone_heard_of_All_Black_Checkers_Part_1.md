@@ -1,0 +1,19 @@
+Content Warning: >!Mentions of sexual violence.!<
+
+Hey Reddit,
+
+A few days ago, a friend of mine Sarah told me about this game she’d heard of online. Basically the gist of the game was you play a regular game of checkers but both players use black pieces. Apparently, if you’re able to play the game correctly (only using your pieces and playing until there is a winner) some spooky stuff is supposed to happen. My friend read about the game on one of those urban legend message boards.
+
+I’ve always been a fan of paranormal stuff. I don’t particularly believe in any of it but I’ve always been curious about it and thought it would be fun to just mess around with some spooky urban legend.
+
+Anyways, we decided we’d play the game at my house. We’re both in high school and my parents were out of town for the weekend. She also has a lot of issues at home so her place is generally a no go. She came over around 9 pm. We played in my room on the floor. We decided to have some fun with it turning off all the lights in the house, lighting some candles, and playing some spooky music in the background. Sarah had stopped at Target beforehand and bought 2 checkers boards. I had to venmo her for both lol and checker boards are surprisingly expensive.
+
+We start playing. She insists on going first. I played checkers a few times before when I was really young but don’t know much about strategy or anything. It was a bit hard to keep track of the pieces on the board, but my friend really seemed to keeping track of it well and would correct me if I ever went to move one of her pieces. The game doesn’t go on too long, Sarah beats me pretty easily in about 10 minutes or so. I’m not super competitive so I didn’t put up much of a fight. In the moment, it was a bit underwhelming. No ghosts or poltergeists to speak of. Afterwards, we decided to watch a scary movie to get our thrills in for the night. Sarah slept over since it was a Saturday and when I woke up she had already left.
+
+Where things get weird though is Sarah didn’t answer any of my texts the rest of the weekend and when I showed up to school Monday she would barely talk to me. We’re not best friends or anything but she was a new student and I was basically her only friend at school. We’d gotten pretty close the last couple months and we always had lunch together so it was pretty strange to see her avoiding me all of a sudden.
+
+At the same time, I’ve been having these really weird dreams at night. I tried asking Sarah if she was having any dreams over text but like I said she was ignoring me. The dream always starts the same. I feel a very painful burning sensation on my arm and then my eyes suddenly open. I’m in a bed, in a room that’s not mine but strangely familiar. There’s a man above me, middle aged and completely naked. He holds a cigarette pressed against my shoulder in one hand and his other is clasped over my wrist. He’s breathing heavily. The first night that was the whole dream. But every night the dream gets just a tiny bit longer. Last night, it got to the point where the man’s face was hovering just above mine. I could smell the alcohol on his breath.
+
+The dream is really starting to get to me. It feels so lifelike and I can’t get the image and feeling out of my head. I dread going to sleep at night knowing I’m going to have to feel that cigarette on my arm again and see that man pinning me down. And every night it gets a little longer, a little worse. I really just want it to end.
+
+And for some reason, I can’t shake the feeling that this dream has something to do with the game me and Sarah played the other day. I’ve tried searching everywhere on the internet for it but I can’t find anything at all. Has anyone here heard of or played the All Black Checkers game?
