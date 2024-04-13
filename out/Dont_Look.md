@@ -4,8 +4,6 @@ It all started when I was a 10 year old girl and I met an imaginary friend in my
 
 As I grew closer with him, I'd often tell him that he should live with us, since he didn't have parents of his own anymore, and he'd grow sad, saying that he can't come into the light. I began telling my parents and older siblings about him anyway, and still asking on his behalf if he could live with us, thinking that my parents might know something he or I didn't about how to help him back into the light, where he could live as a normal boy, go to school with me, and maybe even be my boyfriend, and husband one day. They would just tell me that he was an imaginary friend, that I'd grow out of it and find real friends at school eventually, but I would always just spend my days giddily waiting for late at night, when I could play with him instead. He was my best friend.
 
-&#x200B;
-
 Then one night, as I was watching an old VHS movie, I don't remember which one, in my older brother's room along with my older sister, Chris 15, Lilly 14, I fell asleep. When Chris woke me up to take me to bed, the TV was just playing static now as the VHS had finished, and it was pretty late, with it being dark outside, and all the lights being off. As he was helping my sleepy young self up off the bad and Lilly stood to leave too, the TV went out. Lilly screamed instinctively, I admit it scared me too, but Chris just laughed and told us to hold on while he tried the lights, but they wouldn't come on, the power was out in the house.
 
 Chris then went over to his nightstand, opened the drawer, pulled out a few small flashlights from a recent pack he had inside, took one for himself, and then handed two others to me and my sister. Chris was very protective like my dad, and fancied himself the prepared type, always having flashlights and pocket knives and things of that nature, as well as warning me not to talk to strangers that talk to me while I'm walking home from school, etc.
@@ -16,15 +14,11 @@ Now, with the flashlights turned on, and the beams lighting up the room, we all 
 
 As we followed him out, I heard my friend's voice whisper from somewhere behind us. "Don't look at the shadows," He said, though this time, his voice sounded scared and sad for some reason, and somehow, Chris and Lilly could hear him too.
 
-&#x200B;
-
 Both of them jumped.
 
 Chris immediately knew the voice wasn't one of ours. "Who said that!?" He called out, turning every which way.
 
 With no reply, and seeing no one,  Chris continued down the hall towards the kitchen.
-
-&#x200B;
 
 We followed closely behind while he called out for our mom and dad.
 
@@ -34,13 +28,9 @@ I turned my head around his body to get a look at what he saw, as I was too shor
 
 I began hearing incoherent whispering sounding out in a cacophony.
 
-&#x200B;
-
 "Who's there!? What are you doing in my house!?" Chris yelled, then a moment later, he was gone. He disappeared from right in front of me, his clothes and the flashlight he help dropping to the ground in a pile like he had never been there to begin with.
 
 My sister and I both screamed.
-
-&#x200B;
 
 She grabbed my hand, pulling me along as she ran back into Chris' room, where she slammed the door shut and jumped onto the bed, pulling me up with her as we both began to cry.
 
@@ -104,14 +94,7 @@ I also want answers, though. To know what happened to my family and me. And I of
 
 I wonder if he looked.
 
-&#x200B;
+  
+Finale 
 
-Parts 2 and 3
-
-https://www.reddit.com/r/nosleep/comments/1bzxk7d/dont\_look\_part\_3/
-
-Part 4
-
-[https://new.reddit.com/r/nosleep/comments/1c18kt4/dont\_look\_part\_4\_finale/](https://new.reddit.com/r/nosleep/comments/1c18kt4/dont_look_part_4_finale/)
-
-&#x200B;
+[https://www.reddit.com/r/nosleep/comments/1c2r19x/dont\_look\_finale/](https://www.reddit.com/r/nosleep/comments/1c2r19x/dont_look_finale/)
