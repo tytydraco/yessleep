@@ -1,3 +1,5 @@
+**Part I** - [Part II](https://www.reddit.com/r/nosleep/comments/1c2s4c2/in_2023_we_found_a_hidden_wwii_bunker_people/)
+
 Well, they *used* to be people.
 
 My name is Danica Craven, and I’ve been an archaeologist for the past decade. Tantalising opportunities often fall into my lap. Some drenched relic washes up on an Egyptian beach, or a lonesome fossil is uncovered. But I’m often beaten to the punch. That’s the nature of the game. And, as the years go by, fewer ancient gems remain undiscovered.
@@ -553,3 +555,5 @@ My heart raced as I thought about the dark shape I’d seen outside the tent. Th
 One or more of the Tollerberg residents had survived.
 
 “Amir…” I whispered [fearfully](https://www.reddit.com/r/dominiceagle).
+
+[Part II](https://www.reddit.com/r/nosleep/comments/1c2s4c2/in_2023_we_found_a_hidden_wwii_bunker_people/)
