@@ -718,4 +718,4 @@ The Faceless
 
 “He… he had a… a tattoo, that man… On his wrist.” She explained, struggling to speak through heavy gasps. Her face was putrid with tears and destroyed makeup. “He was… he was one of them… my brother-he knew… he-”
 
-She curled up and began to uncontrollably sob as sirens began in the distance.
+She curled up and began to uncontrollably sob as sirens blared in the distance.
