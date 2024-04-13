@@ -6,8 +6,6 @@ His metallic, ringing voice would incessantly scream through my brain every time
 
 I don’t know what kind of dog my neighbor found, but I think it may have come straight from Hell itself. I’ll update this diary soon once I figure out what to do.
 
-
-
 November 10th, 2023
 
 I saw the sacrifices in the news tonight. A young man and a young woman. They were young and healthy, beautiful and strong. They had their whole lives ahead of them. I never wanted to do it again, but Friend said we must.
@@ -28,8 +26,6 @@ The bullets smashed through the car with a shattering of glass. The smell of gun
 
 I followed the voice of Friend back home, leaving the dead with their frozen, terrified faces and the panicked animal sweat that clung to their still bodies.
 
-
-
 November 11th, 2023
 
 I haven’t been sleeping much. That dog keeps barking all day and night. His voice rings through my head like an eternal scream. In the barking, I hear the rhythms of something deep and demonic. It gurgles through the night and never leaves me alone.
@@ -47,9 +43,6 @@ Friend looked like a large black dog, reminding me of the Grim from European myt
 “I have to do it,” I whispered grimly, staring into the face of Hell. The dog seemed to find this funny. His wide, canine lips rose into a curving grin.
 
 “Do what you have to do, and I’ll do what I have to do,” he hissed as I pulled the trigger. The dog’s head exploded, spraying black fur and slabs of gore onto the side of my neighbor’s house. I saw Friend’s legs buckle as he stumbled and fell slowly to the ground, still staring up at me with his dead eyes.
-
-
-
 
 November 12th, 2023
 
@@ -71,9 +64,6 @@ Up ahead, something black with long, twisting limbs writhed in the middle of the
 
 I woke suddenly in my bed, the sky outside still black and lifeless, just like in my dream. From my neighbor’s house, I heard the frantic barking of Friend.
 
-
-
-
 November 13th, 2023
 
 I looked up cases similar to mine on the Internet, wondering if I was going insane. Immediately, the famous case of the “Son of Sam” came up, the man who claimed his neighbor’s dog had forced him to kill. I wondered if it had been Friend, or something like Friend. I kept going over his case, looking for clues.
@@ -92,10 +82,7 @@ I pulled up his note to the police on the Internet, reading it again and again a
 
 “Mr Borelli, sir, I don’t want to kill anymore. No sir, no more. But I must- Honour thy Father! I want to make love to the world. I love people. I don’t belong on earth. Return me to Yahoos. To the people of Queens, I love you and I want to wish all of you a Happy Easter. May god bless you in this life and in the next and for now I say goodbye and goodnight.
 
-“Police let me haunt you with these words: I’ll be back! I’ll be back! To be interrogated as bang bang bang bang bang – ugh!! Yours in murder, Mr Monster.”
-
-
-
+“Police let me haunt you with these words: I’ll be back! I’ll be back! To be interpreted as bang bang bang bang bang – ugh!! Yours in murder, Mr Monster.”
 
 November 14th, 2023
 
