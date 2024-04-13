@@ -54,9 +54,9 @@ We also know their name - The Faceless.
 
 Autumn promises she knows where we can learn more and get some concrete answers. I don’t like where her head is at. How she has the enthusiasm for this astounds and scares me.
 
-I’d like to think we’re wrong. That what we’ve seen can be explained and rationalised. And no offence Autumn, but for once, I want you to be wrong too. Just once in your life. That, like my Uncle, you’re just paranoid and that, in your pursuit of a headline story, you’re chasing a damn fantasy, an obsession, and dragging us all with you.
+I’d like to think we’re wrong. That the disturbed things I struggle to unsee can be explained and rationalised. And no offence Autumn, but for once, I want you to be wrong too - wrong the most, in fact. That, like my Uncle, you’re just paranoid and that, in your pursuit of a headline story, you’re chasing a damn fantasy, an obsession, and dragging us all with you.
 
-Yet as bitter as it is to think about, I know you’re not. You’re not crazy and neither was he, or any of us. 
+Yet as bitter as it is to think about, I know you’re not. You’re not crazy and neither was he, or any of us; we can’t be.
 
 The only difference is that, unlike him, we haven’t been caught. 
 
@@ -80,7 +80,7 @@ It was suffocating. The only way in and out of town now was a bridge, over a lon
 
 Chuck always explained it best.
 
-“Despite some unexpected rain, construction on Maple Croak’s very own shopping mall develops nicely-“ Chuck said over some static as I slithered out of bed and into the bathroom. The man is a broken record. “I can speak for myself, and a few of y’all, at how exciting it was to see a News Crew on our clean streets a week back. Not too long now until our fair, honest commune gets a whole lot livelier. Just remember to be kind to strangers when they come on through.”
+“Despite some unexpected rain, construction on Maple Croak’s very own shopping mall develops nicely.“ Chuck said over some static as I slithered out of bed and into the bathroom. The man is a broken record. “I can speak for myself, and a few of y’all, at how exciting it was to see a News Crew on our clean streets a week back. Not too long now until our fair, honest commune gets a whole lot livelier. Just remember to be kind to strangers when they come on through.”
 
 He leaned closer to his microphone.
 
