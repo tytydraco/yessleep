@@ -151,7 +151,3 @@ The moment I awoke, I realized that the form of Max no longer rested underneath 
 "If it's wood, you could break through it! It's old, s-so maybe you could-"
 
 "No, John, you don't get it," The sound of the revolver clicking shut caused my throat to go dry. "I don't want this thing to get me." No words dared escape my mouth, and I could do nothing but listen as the thunderous percussion rang out.
-
-&#x200B;
-
-[Part 2](https://www.reddit.com/r/nosleep/comments/1c2sn14/i_wish_i_starved_part_2/?utm_source=share&utm_medium=web2x&context=3)
