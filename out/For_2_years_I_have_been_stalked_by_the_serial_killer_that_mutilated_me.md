@@ -1,6 +1,6 @@
 For 2 years I have been stalked by the serial killer that mutilated me, and I don't know if I can take this anymore.
 
-Back when I still worked as a PI, and was hired by a family to find their missing daughter, all the clues led me to find a reclusive male in his forties that seemed just a bit too cautious and paranoid. Anytime he would leave his home, he would always be looking around in a suspicious manner to make extra sure he wasn't being watched. Though, he didn't know I had been from the front seat of my car parked several houses down the street, or so I thought.
+Back when I still worked as a PI, and was hired by a family to find their missing daughter, all the clues led me to find a reclusive male in his forties that seemed just a bit too cautious and paranoid. Anytime he would leave his home, he would always be looking around in a suspicious manner to make extra sure he wasn't being watched or followed. Though, he didn't know I had been watching him from the front seat of my car parked several houses down the street, or so I thought.
 
 I watched him for weeks, growing more and more sure in my mind that he was the man I was looking for, but having no actual evidence to provide the police with something to obtain a warrant, just my gut feeling and instincts screaming at me that he was the man.
 
