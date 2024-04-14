@@ -14,7 +14,7 @@ We are ready to forgive you.
 
 \--
 
-First Words:
+Entry 0 - First Words:
 
 \[Hello to whoever this winds up in front of. Sorry for the impending rant, but I feel this context will be important moving forward\]
 

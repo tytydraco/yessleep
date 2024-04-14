@@ -73,3 +73,8 @@ Again, upon arriving at the coordinates, we were too late.
 I have moved several times over the course of the last year and a half, but always, every few months, he manages to find me, and sends me a new package. Though now, I never go to the coordinates, instead just reporting them to the police like always and giving them my statement when they show up to collect the evidence that was sent to me.
 
 I am very much descending into madness, and have no idea what to do or how to move forward with my life. What remains of my tongue can't even taste the bourbon I force down anymore. I must arch my head in an uncomfortable manner to see the screen properly with my one remaining eye. My two stumped fingers ache and move as ghosts while I type this. And when I shut off the laptop after use, my own reflection that stares back at me from the dark screen of my disfigured and scarred face haunts me. I feel like he's won, will never face justice, and like my life is over. I don't know how much longer I can take this...
+
+  
+Finale
+
+[https://www.reddit.com/r/nosleep/comments/1c45dgd/for\_2\_years\_i\_have\_been\_stalked\_by\_the\_serial/](https://www.reddit.com/r/nosleep/comments/1c45dgd/for_2_years_i_have_been_stalked_by_the_serial/)
