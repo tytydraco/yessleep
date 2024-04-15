@@ -452,7 +452,7 @@ Shuddering at the German soldier’s last entry, I turned the page to find somet
 
 *Mother passed. She caught the White Death.*
 
-*Doctor Klein said that the old ones don’t have what it takes to beat the sickness. Not like the young blood. “The post-war babies.” I don’t think he should have revealed that to me. Commander Meyer still tells the obvious lie that the war rages onwards.*
+*Doctor Klein said that the old ones don’t have what it takes to beat the sickness. Not like the young blood. “The post-war babies.”*
 
 *I’ve asked the commander to assign me to a different department. It took all of my willpower not to thump the doctor in the face for his callous comment about my mother.*
 
