@@ -1,3 +1,7 @@
+Content Warning: Self Harm and Child Abuse.
+
+&#x200B;
+
 For 2 years I have been stalked by the serial killer that mutilated me, and I don't know if I can take this anymore.
 
 Back when I still worked as a PI, and was hired by a family to find their missing daughter, all the clues led me to find a reclusive male in his forties that seemed just a bit too cautious and paranoid. Anytime he would leave his home, he would always be looking around in a suspicious manner to make extra sure he wasn't being watched or followed. Though, he didn't know I had been watching him from the front seat of my car parked several houses down the street, or so I thought.
@@ -74,7 +78,6 @@ I have moved several times over the course of the last year and a half, but alwa
 
 I am very much descending into madness, and have no idea what to do or how to move forward with my life. What remains of my tongue can't even taste the bourbon I force down anymore. I must arch my head in an uncomfortable manner to see the screen properly with my one remaining eye. My two stumped fingers ache and move as ghosts while I type this. And when I shut off the laptop after use, my own reflection that stares back at me from the dark screen of my disfigured and scarred face haunts me. I feel like he's won, will never face justice, and like my life is over. I don't know how much longer I can take this...
 
-  
 Finale
 
 [https://www.reddit.com/r/nosleep/comments/1c45dgd/for\_2\_years\_i\_have\_been\_stalked\_by\_the\_serial/](https://www.reddit.com/r/nosleep/comments/1c45dgd/for_2_years_i_have_been_stalked_by_the_serial/)
