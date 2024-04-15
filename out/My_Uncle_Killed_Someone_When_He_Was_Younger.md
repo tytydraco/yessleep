@@ -62,9 +62,9 @@ My uncle only nodded, breaking his gaze from the stars to look at his feet. “Y
 
 My uncle’s blood ran cold as he heard Susan explain the exact dream he had. It was the same, except he had led the two. My Uncle looked back at the tents, at Fred’s tent that he shared with his girlfriend, Amy. He could still hear Fred’s gentle snoring. The boy was fast asleep, oblivious to everything. 
 
-“Hey, what if we went to that cave?” Fred interjected.
+“Hey, what if we went to that cave?” Dan interjected.
 
-Susan and my uncle stared at him as if he were crazy. Fred only laughed as he urged the two to consider it at least: “I know where it is; we could go there in the morning.” With a mischievous smile, he said, “Or we could go right now?”
+Susan and my uncle stared at him as if he were crazy. Dan only laughed as he urged the two to consider it at least: “I know where it is; we could go there in the morning.” With a mischievous smile, he said, “Or we could go right now?”
 
 My uncle swallowed and bounced his leg, not wanting to chicken out. He wanted to impress Susan. He’d had feelings for her all summer. Her auburn hair and light freckles that danced across her caramel skin. Her brown eyes with hints of gold always looked at him with humor whenever she would prompt adventure. It was her idea to go camping.
 
