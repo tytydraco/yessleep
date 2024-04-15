@@ -1,3 +1,5 @@
+Content Warning: Child abuse and Animal abuse
+
 Part 1
 
 https://www.reddit.com/r/nosleep/comments/1bwevzq/for\_2\_years\_i\_have\_been\_stalked\_by\_the\_serial/
