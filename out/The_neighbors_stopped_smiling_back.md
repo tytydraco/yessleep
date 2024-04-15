@@ -1,0 +1,29 @@
+I loved that neighborhood.  It was a small house that I bought in my late twenties, it seems unbelievable now to own a house on your own in your late twenties but not so long ago it was even common – still I had to move a little into the suburbs, and away from the city, but it was my house.  My mother was worried, she said a women living on her own in the suburbs can be very lonely.  I brushed it off, I loved my new house and wouldn’t feel lonely!  My backyard was small, but I spent that first summer tidying up the backyard and installing several bird feeders.  I am a bit of a birder myself, I even had a few birds fly into my open window in this house, it was a mess trying to get them out!
+
+  
+Eventually, I got to know several of my neighbors very well.  I never thought I would be one of those people, but I would stand next to my front window, just looking at the street, waving to my neighbors, and they waved back.  That is until last month.  It started off subtle at first; they just stopped waving back, no matter how I smiled or waved to them.  Then they started making faces at me, even as I smiled back at them.  It didn’t matter who it was, even Mrs. Finch stopped waving and smiling at me.  Soon the friendliness of the neighborhood was gone.  I tried to not let it dishearten me, I still tried to smile and wave as people walked past, but I did not get any more warm responses.  Then one day, Mrs. Finch, who had always been friendly with me, knocked and my door and said, “I don’t care what you do in your home, but I don’t appreciate the looks that I get when I walk down the street!”  I tried to explain that I was just being friendly, but she cut me off, “that is not being friendly!”  
+
+  
+When I first moved in, all the neighbors were so welcoming, it seems that has now changed.  I tried to not let it get to me.  I had planned on being here for a while after all.  Then the letters started coming in.  Some were short, they would say “LEAVE!”.  Other letters would go into details that I was a creep, staring at children as they walk by, making threatening gestures.  Those letters saddened me so much – I love children, and have only ever smiled at them.  I then stopped standing in front of the windows as often, but I was determined to not let my neighbors push me around.  
+
+  
+Last Friday I got another letter in the mail, this one was much longer.  With the front door still open, I  kept rereading the same paragraph over:
+
+  
+“What happens in your home is your business, but your husband should not be making threatening gestures to me and my children when I am walking them to school!  If this continues, I’ll be forced to call the police!”
+
+  
+“I am not married, what is she talking about?”  I said aloud, still holding the letter.  I was shaken out of my confusion by very sudden and loud creaks above me.  They were footsteps, and I could hear them get closer.  Then I saw him.  It was a man, he was rushing down MY stairs holding a knife.  He was almost at the landing of the stairs when I finally snapped out of my confused stated and ran out the open front door.  I remember screaming and running, but I don’t remember much else.
+
+  
+Mrs. Fields saw me screaming and running.  I thought she hated me, but she opened her door for me, hugged me and rushed me in.  She called the police, and then asked me if my husband had attacked me.  
+
+  
+When the police came, I explained to them that I lived on my own and that a knife-welding man came down my stairs to hurt me.  The police said they searched my entire house and said they were confident the man was no longer in the house.  They said he likely came in my house through one of the open windows.  The police also found a manifesto of sorts.  The man who was after me apparently did not want to hurt me at first, he just wanted me to leave the neighborhood.    
+“I am so sick of you city scum, ruining our beautiful neighborhood.”  
+For an entire month, this man had lived in my house, but I don’t know how.  Whenever I was waving to my neighbors downstairs, he was upstairs making throat slitting motion with his hands to the same people I was waving at.  The letter the man wrote stated that he realized that I wasn’t going to leave, and that it was now up to him.  
+“If you city people wouldn’t be here, I wouldn’t have to do this!”  
+The police searched and searched my house.  The assured me that there was no one in my house.  I tried to believe them, I tried to sleep in that house.  But that first night after the police left, every sound filled me with terror.  I couldn’t even make it through the night, at 3am, I left and drove to my mothers.  
+
+  
+So that man got what he wanted.  I no longer live in that neighborhood, and my house is now being put up for sale.  I also no longer wave to my neighbors as they walk by, I am too afraid they won’t wave back.    
