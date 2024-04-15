@@ -1,0 +1,20 @@
+This is insane. I'm currently sitting smack dab in the beginning of a horror story and I've chosen to stay. I don't have much choice, I'm exhausted from driving 11 hours and in the middle of nowhere. I'm going to try to stay awake while my kid sleeps. On the off chance I'm just spinning crazy paranoid on the stuff I picked up at the dispensary on the way, I'll just post here.
+
+It seemed like a dream come true, a real hobbit hole surrounded by a dairy farm. When looking for the coolest thing ever to make my kiddo's first road trip memorable, it fit the bill perfectly. The Burrowdale Inn was going to be just the ticket. I wanted to splurge a little and make it special for him. I even bought the "shire-cuterie" board, a massive charcuterie board filled with high-end meats and cheeses, nuts,  fruits,  olives,  homemade dip, and much more.  We had planned to drive the 31 hours in three days and spend two days resting and enjoying our time before heading to assist my ailing father. 
+
+We booked our trip, reading every inch of the website to ensure that we would be able to bring our dog and cat. The house rules only stated "pets welcome!" We were so excited,  we spent the last three days talking about how excited we were to rest at the hobbit hole.  After all the work of moving,  packing up the car,  and traveling with two animals,  we needed the rest. 
+
+We need the rest. 
+
+We arrived a few minutes before 7pm, which was the time I had texted the host that we would be arriving. He met us outside and was immediately upset to find me smoking a cigarette, wearing my beetlejuice sweatshirt. He stammered that they only allow smoking in the parking area, made an effort to pet my dog, but then moved as far away from me as possible as he nervously explained some weird thing about the structures of the hobbit holes being delicate to smells. 
+
+He followed us into our hole,  starting the fire and chattering weirdly about Tolkien things,  the fact that he speaks German so well that he fooled a German into not knowing he was American,  and the wifi password, which he said was usually on the "information sheet" he keeps on the counter,  but the previous guest must have taken. He wanted me to have it, so he said it must be in the email. The only email I received was a generic receipt for payment and agreement for two nights lodging with breakfast and pets, which I pulled up and confirmed for him.  He ran over to the other hole to get the "information sheet," but after he brought it to me, he made eye contact and stated that he just realized that the wifi password isn't on there. He said we'd find their router labeled "Roman's" something and "Roman's" something else and the wifi password is Hebrews1314. He said they liked it because it meant something that sounded nice,  but I'm impossibly tired. Upon seeing us exiting the vehicle with the cat, he nearly came out of his skin and stammered that pets aren't allowed on the furniture and she needed to stay in her carrier. 
+
+The "information sheet" was just the house rules. Rules that I should have been let in on before paying these people all this money and driving 31 hours to get here. If pets are on the furniture, a $75 charge should be expected for replacing the sheets and duvet cover. There is absolutely no smoking on the property. They are on- call to start a fire in the wood burning stove or take out the trash and please don't wash their dishes. They are also really particular about anything that smells-- good or bad.
+
+After looking up Hebrews 13:14, I'm even more unsettled. "This passage has compared the place of Jesus' execution to the way sacrificial animals were disposed of under the old covenant. Leftover animal flesh was burned outside the camp of Israel (Exodus 29:14). Jesus' crucifixion was performed outside the city walls of Jerusalem," according to Google anyway. I don't know much about the Bible. 
+
+I'm scared,  but I'm exhausted and so very tee'd off that I spent so much money to be at the very least so thoroughly disrespected. And now instead of rest,  I'm afraid I'm about to get murdered. 
+
+But I'm so tired. 
+
