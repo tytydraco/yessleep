@@ -182,6 +182,18 @@ Few things work in this place except the toilets and the internet. I tried calli
 
 I swore at her and hung up.
 
+Searching the internet for news proved futile. Nothing seems to be amiss. For the rest of the world, the eclipse has concluded as expected: Darkness for some minutes and then nothing but a few jokes about those expecting the rapture. 
+
+People post pictures of their pets and children on reddit. Donald Trump's criminal trial has begun. The sun and the moon went on their merry ways.
+
+Why is it eternally dark where I am? 
+
+Even the local news in Bridal Veil Lake hasn't mentioned anything about the eclipse again, except that some fool lit a fire in the gorge during it and burnt down an old tree.
+
+I'm not in my hometown anymore. I get it. I'm somewhere else. I can't get over this claustrophobic feeling. Worse, I can't be certain the family that attacked me, that I attacked, aren't horrible copies. 
+
+I'm afraid they are. I'm afraid they aren't.
+
 There are bags of kettle cooked chips with the wine. I sleep on a couch in a break room. In an office the size of a closet, I found a charger for my phone. My blanket is made of reusable bags. As for the booze, there's more than anyone could drink in an unhealthy lifetime.
 
 Just now, as I finish typing this up, I understand at last: 
