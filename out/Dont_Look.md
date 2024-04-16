@@ -1,10 +1,10 @@
 I wanted to post this in case anyone has had a similar experience and could offer me any advice. I also wanted anyone willing to listen to hear the truth of my story in case something happens to me in the coming days or weeks. And above all else, I wanted to warn anyone that if this happens to them and their family, Don't Look.
 
-It all started when I was a 10 year old girl and I met an imaginary friend in my house. I could only ever make him out as a shadow, but judging by his size, build, and voice, I'd guess he was of a similar age to me. I tried to ask him his name several times, but every time I did, he would just say that he can't remember, that he forgets sometimes, and then grow sad, so I stopped asking. We'd play games like hide and seek and tag (although I could never actually feel him when I'd touch him), or just sit and talk for hours. He'd tell me stories about the world he existed in, how it was apparently different from our own but layered right on top of it, how it was dark and cold there, but that I made him feel warm when he was around me. I could only ever see or hear him in the dark when I was alone, which often led me to sneaking around the house at night, and us trying to keep our laughter down so that my parents wouldn't wake up and scold me for being out of bed.
+It all started when I was a 10 year old girl and I met an imaginary friend in my house. I could only ever make him out as a shadow, but judging by his size, build, and voice, I'd guess he was of a similar age to me. I tried to ask him his name several times, but every time I did, he would just say that he can't remember, that he forgets sometimes, and then grow sad, so I stopped asking. We'd play games like hide and seek and tag (although I could never actually feel him when I'd touch him), or just sit and talk for hours. He'd tell me stories about the world he existed in, how it was apparently different from our own but layered right on top of it, how it was dark and cold there, but that I made him feel warm when he was around me. I could only ever see or hear him in the dark when I was alone, which often led to me sneaking around the house at night, and us trying to keep our laughter down so that my parents wouldn't wake up and scold me for being out of bed.
 
 As I grew closer with him, I'd often tell him that he should live with us, since he didn't have parents of his own anymore, and he'd grow sad, saying that he can't come into the light. I began telling my parents and older siblings about him anyway, and still asking on his behalf if he could live with us, thinking that my parents might know something he or I didn't about how to help him back into the light, where he could live as a normal boy, go to school with me, and maybe even be my boyfriend, and husband one day. They would just tell me that he was an imaginary friend, that I'd grow out of it and find real friends at school eventually, but I would always just spend my days giddily waiting for late at night, when I could play with him instead. He was my best friend.
 
-Then one night, as I was watching an old VHS movie, I don't remember which one, in my older brother's room along with my older sister, Chris 15, Lilly 14, I fell asleep. When Chris woke me up to take me to bed, the TV was just playing static now as the VHS had finished, and it was pretty late, with it being dark outside, and all the lights being off. As he was helping my sleepy young self up off the bad and Lilly stood to leave too, the TV went out. Lilly screamed instinctively, I admit it scared me too, but Chris just laughed and told us to hold on while he tried the lights, but they wouldn't come on, the power was out in the house.
+Then, one night, as I was watching an old VHS movie, (I don't remember which one), in my older brother's room along with my older sister, Chris 15, Lilly 14, I fell asleep. When Chris woke me up to take me to bed, the TV was just playing static now as the VHS had finished, and it was pretty late, with it being dark outside, and all the lights being off. As he was helping my sleepy young self up off the bad and Lilly stood to leave too, the TV went out. Lilly screamed instinctively, (I admit it scared me too), but Chris just laughed and told us to hold on while he tried the lights, but they wouldn't come on, the power was out in the house.
 
 Chris then went over to his nightstand, opened the drawer, pulled out a few small flashlights from a recent pack he had inside, took one for himself, and then handed two others to me and my sister. Chris was very protective like my dad, and fancied himself the prepared type, always having flashlights and pocket knives and things of that nature, as well as warning me not to talk to strangers that talk to me while I'm walking home from school, etc.
 
@@ -28,11 +28,11 @@ I turned my head around his body to get a look at what he saw, as I was too shor
 
 I began hearing incoherent whispering sounding out in a cacophony.
 
-"Who's there!? What are you doing in my house!?" Chris yelled, then a moment later, he was gone. He disappeared from right in front of me, his clothes and the flashlight he help dropping to the ground in a pile like he had never been there to begin with.
+"Who's there!? What are you doing in my house!?" Chris yelled, then a moment later, he was gone. He disappeared from right in front of me, his clothes and the flashlight he held dropping to the ground in a pile like he had never been there to begin with.
 
 My sister and I both screamed.
 
-She grabbed my hand, pulling me along as she ran back into Chris' room, where she slammed the door shut and jumped onto the bed, pulling me up with her as we both began to cry.
+She grabbed my hand, pulling me along as she ran back into Chris' room, where she slammed the door shut, and jumped onto the bed, pulling me up with her as we both began to cry.
 
 That's when I heard the little shadow boy again. "Don't look under the bed," He whispered from somewhere in the dark.
 
@@ -84,7 +84,7 @@ I am now 25, and have just graduated college with a master's in Child Psychology
 
 My grandparents have both passed away over the last year. My grandmother from early onset Alzheimer's. My grandfather from various health complications due to the alcoholism he picked up after losing practically his entire family over night.
 
-The house has now passed to me, but I've stayed away this whole time, though now I'm planning on going back one final time, and spending the night there in an attempt to get answers, and see if I can't solve what happened to my family in the next coming days or weeks. I believe if the shadow boy is still there, he may be able to give me some answers as to what really happened.
+The house has now passed to me, but I've stayed away this whole time, though now I'm planning on going back one final time, and spending the night there in an attempt to get answers, and see if I can't solve what happened to my family in these upcoming days. I believe if the shadow boy is still there, he may be able to give me some answers as to what really happened.
 
 I plan to make plenty of survival precautions, like my brother and dad would have, and I don't plan to look.
 
@@ -94,7 +94,6 @@ I also want answers, though. To know what happened to my family and me. And I of
 
 I wonder if he looked.
 
-  
-Finale 
+Finale
 
 [https://www.reddit.com/r/nosleep/comments/1c2r19x/dont\_look\_finale/](https://www.reddit.com/r/nosleep/comments/1c2r19x/dont_look_finale/)
