@@ -4,11 +4,11 @@ Part 1
 
 Part 2
 
-I worked up the courage to return to the house yesterday. I'm not ashamed to admit that I had to take 3 shots from a bottle of whiskey my grandfather had left behind to do so, not enough to get me drunk or lose my wits, but just enough to help with the fear.
+It's been four days since my first post, and yesterday I finally worked up the courage to return to the house. I'm not ashamed to admit that I had to take 3 shots from a bottle of whiskey my grandfather had left behind to do so, not enough to get me drunk or lose my wits, but just enough to help with the fear.
 
 I stood outside, staring at the house, and trying to will myself to go in, but the intense feeling of almost supernatural dread, combined with all the memories flooding back, locked me in place, all the good before that night, and terrors of the nights that followed.
 
-I eventually decided I couldn't go back in, and turned to leave, noticing a man standing several yards away with tears in his eyes also staring at the house.
+I eventually decided I couldn't go back in, and turned to leave, noticing a man standing several yards away with tears in his eyes, also staring at the house.
 
 He must be a few years older than me, a naturally handsome and tall man, with short blonde hair and stubble covering his face, though he looked a bit thin and ragged, with dark bags under his eyes, like he hadn't slept or eaten in days.
 
@@ -62,11 +62,11 @@ After his brother's disappearance, his parents ended up selling their home and m
 
 Months after the incident, he'd began seeing his little brother as a shadow coming to visit him, but no others arrived with him like they had that night. At first, this terrified him, and drove him mad. But over time, he began to believe that it really was his brother, and that he wasn't there to take him like the others had been.
 
-They would begin talking in the dark at night, as he had horrible sleep issues ever since the event. His little brother would tell him about a friend he made, and ask him to follow him to my house to meet her. At first, he would refuse, scared that it could be a trick. But eventually, he gave in, following his brother to my home at night and watching as he phased through the door to go inside, his little brother apparently excitedly laughing the whole way there. He came to the conclusion that these were grief hallucinations he was having after his little brother went inside, and would leave, never coming to the door.
+They would begin talking in the dark at night, as he had horrible sleep issues ever since the event. His little brother would tell him about a friend he made, and ask him to follow him to my house to meet her. At first, he would refuse, scared that it could be a trick. But eventually, he gave in, following his brother to my home at night and watching as he phased through the door to go inside, his little brother apparently excitedly laughing the whole way there. He came to the conclusion that these were grief hallucinations he was having after his little brother went inside, and left, never coming to the door.
 
 The last time he saw his little brother's shadow, he came to him crying, saying that it happened again to his friend's family, that it was all his fault for leading them there. He said that it was dangerous to be around him, and that he must stay alone in the dark forever to protect people.
 
-After that, he'd begin to miss his brother, and wish he had interacted with him more while he was still around, even as a shadow. He often finds himself wandering back to my house, but he could never bring himself to knock on the door or try and go inside, even though sometimes, at night, he could swear he'd hear his little brother's crying coming from within.
+After that, he'd begin to miss his brother, and wish he had interacted with him more while he was still around, even as a shadow. He often finds himself wandering back to my house, but he can never bring himself to knock on the door or try and go inside, even though sometimes, at night, he could swear he'd hear his little brother's crying coming from within.
 
 During our conversation, where I also shared my experience with him, I debated on telling him about the shadow boy, or whether I should leave him out to protect this grief stricken man, ultimately deciding he deserved to know the full truth. And I was glad I did, learning that his brother had also recently begun playing with an imaginary friend at night, before all of this had happened to the both us. He would come out at night and see or hear him, and just laugh it off as his brother's powerful imagination, leaving him be to play.
 
@@ -102,7 +102,7 @@ A sense of eerie dread washed over me, and I couldn't tell if it was just my own
 
 I had made triple sure that the power bills for the house had been paid and even paid a handyman the day before to go inside and replace every light bulb and check that every light in the house was in working order.
 
-We immediately got to work as the first thing we did by moving together and turning on every light in the house, to make sure it was as illuminated as possible. We noticed a few pairs of clothing as we moved, assuming that people had been squatting in the house, and that we needed to be on the lookout for intruders, but after discussing it some, came to the unfortunate conclusion that whoever had stayed the night there over these past years, had been taken as well.
+We immediately got to work as the first thing we did by moving together and turning on every light in the house, to make sure it was as illuminated as possible. We noticed a few pairs of clothing as we moved, assuming that people had been squatting in the house, and that we needed to be on the lookout for intruders, but after discussing it some, we came to the unfortunate conclusion that whoever had stayed the night there over these past years, had been taken as well.
 
 Next, we went about placing the LED lanterns in strategic spots around the house to make sure our positions would have emergency lighting for if and when the power went out. We had managed to program them to one remote so that we should be able to activate them all at once in case of an emergency. But that was what was so tricky about our mission, is that if we intended to find answers, we couldn't fully illuminate the house tonight, or else the shadows either wouldn't appear, or would vanish before any information had been gleamed.
 
@@ -350,7 +350,7 @@ I could hear the incoherent whispering gathering around outside the door too, bu
 
 "Set us free," The voice of a teenage girl, her sister.
 
-"What will happen to all of you?" I asked."You'll all be alone? Don't you want to be together, even if it is in the dark?"
+"What will happen to all of you?" I asked. "You'll all be alone? Don't you want to be together, even if it is in the dark?"
 
 "We'll find each other," Anna said happily. "We'll stick together, keep moving, make sure a nest never builds, that the outsiders don't try to join us. They can be alone in the dark, attempting to selfishly take people to feed their own rage at being all alone, and failing, but we'll be together."
 
@@ -370,7 +370,7 @@ I sniffed, rubbing the back of my hand across my nose and my eyes, wiping the te
 
 I spent the night locked in that room, talking with Nathan and the other new members of our extended family, all of us finding comfort in each other, and saying our goodbyes, as I knew I'd probably never see any of them again.
 
-They planned out where they would meet after they were freed from the nest that was this house, (though I won't share that location here to make sure nobody attempts to go see their shadow forms). Knowing that the others could hear them, and that they'd have to move again immediately upon reconnecting, but that they'd do so together, as a family.
+They planned out where they would meet after they were freed from the nest that was this house, (though I won't share that location here to make sure nobody attempts to go see their shadow forms), knowing that the others could hear them, and that they'd have to move again immediately upon reconnecting, but that they'd do so together, as a family.
 
 Once the light of day had fully shone itself, I made my way out of the house and back to my apartment. I took care of some personal matters, left some messages for my parents, and then headed out once again.
 
@@ -382,7 +382,7 @@ As I did so, I could hear voices breaking out of the usually incoherent cacophon
 
 "No," One whispered.
 
-"Don't do this," Another added. "Please,"
+"Don't do this," Another added. "Please."
 
 "We don't want to be all alone again," Another begged my compassion.
 
@@ -392,7 +392,7 @@ This caused me to freeze for a moment, until another voice sounded out behind me
 
 I made my way outside and drenched the front door and front walls of the house before throwing the cans and what remained of the fuel inside to add a little explosion to the fire, to help make sure it thoroughly burnt down everything.
 
-"Hey! What are you doing!?" A man called out from across the street.
+"Hey! What are you doing!?" A homeless man called out from across the street.
 
 I turned to face him, looking him in the eyes, and then I turned back, lighting up a pack of matches with my lighter, and then flinging it inside.
 
@@ -402,7 +402,7 @@ The floor and gaseous air above it erupted into flames, trails of fire quickly s
 
 I then walked to the outside walls, igniting one side with my lighter, then the other, then the front door, making sure the house would completely burn before anything could be done to put it out.
 
-I moved to the front doors of both neighboring houses after, as Anna's childhood home burst into flames, hearing the eruptions of the jerry cans exploding within. "Fire! Fire! Get out of the house!" I screamed, banging on each neighbors door until they answered, making sure neither family would be hurt or trapped inside when the fire almost surely and innevitably spread to their homes as well, though I hoped, by some miracle, it would not.
+I moved to the front doors of both neighboring houses after, as Anna's childhood home burst into flames, hearing the eruptions of the jerry cans exploding within. "Fire! Fire! Get out of the house!" I screamed, banging on each neighbor's door until they answered, making sure neither family would be hurt or trapped inside when the fire almost surely and inevitably spread to their homes as well, though I hoped, by some miracle, it would not.
 
 People began streaming out of their homes, calling 911, and watching as Anna's home burned in a crazed inferno.
 
@@ -412,7 +412,7 @@ I paused before the house for a few moments, not daring to look inside, but watc
 
 "I love you, big brother," Nathan whispered.
 
-"I love you too," I whispered back, hoping somehow he could hear me over all the noise, and I chose to believe that he could.
+"I love you, too," I whispered back, hoping somehow he could hear me over all the noise, and I chose to believe that he could.
 
 The man who saw me burning down the house was moving around telling people it was me, and before a mob could form to take me into custody, I took off running back in the direction of my apartment.
 
