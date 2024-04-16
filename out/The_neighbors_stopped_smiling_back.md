@@ -4,7 +4,7 @@ Eventually, I got to know several of my neighbors very well.  I never thought I 
 
 When I first moved in, all the neighbors were so welcoming, it seems that has now changed.  I tried to not let it get to me.  I had planned on being here for a while after all.  Then the letters started coming in.  Some were short, they would say “LEAVE!”.  Other letters would go into details that I was a creep, staring at children as they walk by, making threatening gestures.  Those letters saddened me so much – I love children, and have only ever smiled at them.  I then stopped standing in front of the windows as often, but I was determined to not let my neighbors push me around.
 
-Last Friday I got another letter in the mail, this one was much longer.  With the front door still open, I  kept rereading the same paragraph over:
+Then I got another letter in the mail, this one was much longer.  With the front door still open, I kept rereading the same paragraph over:
 
 “What happens in your home is your business, but your husband should not be making threatening gestures to me and my children when I am walking them to school!  If this continues, I’ll be forced to call the police!”
 
