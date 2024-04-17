@@ -4,7 +4,7 @@ It started years ago. I was a normal young woman, a job waiting for me on the ho
 
 "Ralex?" I whispered, confused but curious, and kept reading. 
 
-"Our community noticed you, yes you Danielle." My eyebrow rose, "how do they know my name?" I thought to myself. My eyes widen as land on the next sentence. 
+"Our community noticed you, yes you Danielle." My eyebrow rose, "how do they know my name?" I thought to myself. My eyes widen as they land on the next sentence. 
 
 "This was a distraction, welcome to the cult of Ralex" 
 
@@ -41,7 +41,7 @@ Are white.
 
 No pupils, no irises, just white. And whatever is in me, gives me an out of body view of myself, to show that my eyes are also pure white. Then, I hear a voice in my head. A creaky, deep, demonic sounding voice, it laughs. "Hmm what a beautiful group my followers brought me" it rasps. My soul itself wants to run at this point. The voice feels wrong and evil. But, something about what it says next, causes me to break from my trance. "This is only the beginning." It creaks. "My darling girls we will rule the world" my trance breaks and I drop to the ground. I notice I'm the only one who broke the trance. The other women still in the air, eyes still pure white. I heard that godawful voice cackling in my head as i run. I run as fast as I can. 
 
-It feels like hours before I finally find a road, a car coming. I start waving frantically to get the drivers attention. Which works. The female behind the well worries over me, asking if I need the cops or the hospital. But all I want to do is go home. So I tell her my address. And we head there. 
+It feels like hours before I finally find a road, a car coming. I start waving frantically to get the drivers attention. Which works. The female behind the wheel worries over me, asking if I need the cops or the hospital. But all I want to do is go home. So I tell her my address. And we head there. 
 
 Over the next few years, I repressed the memories, I just want things to go back to normal. And I thought it did. 
 
