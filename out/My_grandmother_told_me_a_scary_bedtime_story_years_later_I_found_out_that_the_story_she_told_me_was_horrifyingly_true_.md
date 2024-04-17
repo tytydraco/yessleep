@@ -189,7 +189,7 @@ The creature recoiled slightly, its multiple eyes flickering in what might have 
 But the silence that followed was the most unsettling part. No roar of pain, no growl—this thing moved with an unnatural quiet; even as it moved, it made no noise. It descended to the floor, its grotesque form dwarfing the space in my room. As it loomed closer, lowering its body in a predatory crouch, I swung the mangled bat wildly.
  
 
-The bat connected with a sickening thud, splintering wood raining down as the blow landed. The creature recoiled, its grotesque form momentarily faltering. Seizing my chance, I bolted past the thing, flung open the bedroom door, and slammed it shut behind me with a resounding bang.
+The bat connected, with a bone crunching impact, sending more shards of wood flying through the air. The creature recoiled, its grotesque form momentarily faltering. Seizing my chance, I bolted past the thing, flung open the bedroom door, and slammed it shut behind me with a resounding bang.
  
 
 Adrenaline pumping, I raced down the stairs, each step echoing in the sudden silence. Reaching the living room, I fumbled for the light switch, illuminating the space with a warm glow. Panting, I gripped the broken bat like a lifeline; its splintered end pointed towards the top of the stairs, towards the thing in my room.
