@@ -670,7 +670,7 @@ A single, muscular man stepped out of the van after killing its lights. He was c
 
 The masked man seemed at peace with the noises.
 
-“The maples; His trees. They croak our song. Do you hear them?”
+“The Maples; His trees. They croak our song. Do you hear them?”
 
 Bentley used every ounce of his strength to speak.
 
