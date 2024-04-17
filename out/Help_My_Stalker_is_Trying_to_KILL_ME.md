@@ -12,7 +12,7 @@ I did a double-take. “Um,” I gulped. “Whatever yer buying.”
  
 She winked, twirled her lip ring, then slid her icy fingers between my legs. Subtlety was not her strength.
  
-The beer arrived and we cheersed. She said her name was Rosetta. I introduced myself as Dereck the Bass Player, while forcing her hand further north. Then, after some throwaway small talk, I sauntered towards the stage, more-than-ready for the band’s third and final set.
+The beer arrived and we cheersed. She said her name was Rosetta. I introduced myself as Derek the Bass Player, while forcing her hand further north. Then, after some throwaway small talk, I sauntered towards the stage, more-than-ready for the band’s third and final set.
  
 Falling Forward played a raucous set. Mick, the lead singer and harmonica player, worked the audience into a frenzy. Leading the party was Rosetta, dancing sexily, swinging her hips too and fro, fist-pumping and cat-calling.
  
@@ -106,7 +106,7 @@ She squeezed.
  
 Mick, sensing trouble, meandered over, “Time to play, bro,” he said.
  
-The band opened with New Orleans is Sinking, a local bar-band favourite. Everyone was dancing and singing along, including Rosetta, who jumped on stage and started grinding against me, plunking the bass strings. Then she tried pouring a full beer down my throat. Instead, she soaked the stage (and my bass) with suds. Whooping and hollering, she slipped and stumbled off the stage, resulting in a fantastic face-plant, taking a few patrons with her. It was a total debacle. A fight broke out. Soon thereafter, she got ejected, and the band was barred from ever performing there again. 
+The band opened with New Orleans is Sinking, a local bar-band favorite. Everyone was dancing and singing along, including Rosetta, who jumped on stage and started grinding against me, plunking the bass strings. Then she tried pouring a full beer down my throat. Instead, she soaked the stage (and my bass) with suds. Whooping and hollering, she slipped and stumbled off the stage, resulting in a fantastic face-plant, taking a few patrons with her. It was a total debacle. A fight broke out. Soon thereafter, she got ejected, and the band was barred from ever performing there again. 
  
 The following day, I received a long-winded text from Melanie. Apparently, Rosetta threatened to kill her if she ever spoke to me again. YIKES. Then the redhead went on to disparage my reputation. NOT GOOD. Melanie concluded by saying she was busy and that we should just be friends. Oh, bittersweet irony. I was heartbroken. And furious. 
  
@@ -152,7 +152,7 @@ Dexter calmed down after gobbling some tasty treats. Meanwhile, I scanned the ya
   
 The following morning, I went outside to feed the dog. My heart was pounding like a kick drum at a heavy metal concert. Quickly, I panicked. Something was wrong. First off, the gate was open. Again. Plus, Dexter was being quiet. Too quiet. Which is unlike him. As I inched cautiously towards the kennel, the sweet smell of perfume grew stronger.
  
-When I reached the kennel, I gasped. My heart sank into my shoes. Before me was Dexter, stewing in a pool of blood and gore. His eyeballs were gouged and bloodied, his tongue lying limply next to his mutilated body. Stapled to his mangy, bloodsoaked fur, was a Velvet on Fire poster. Stunned and horrified, I seized the poster. On the back, scribbled in crimson-colored blood, was a note:
+When I reached the kennel, I gasped. My heart sank into my shoes. Before me was Dexter, stewing in a pool of blood and gore. His eyeballs were gouged and bloodied, his tongue lying limply next to his mutilated body. Stapled to his mangy, blood soaked fur, was a Velvet on Fire poster. Stunned and horrified, I seized the poster. On the back, scribbled in crimson-colored blood, was a note:
  
 UR MINE!!!
  
