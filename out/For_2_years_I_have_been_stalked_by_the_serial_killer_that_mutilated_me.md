@@ -1,6 +1,6 @@
 Content Warning: Self Harm and Child Abuse.
 
-&#x200B;
+
 
 For 2 years I have been stalked by the serial killer that mutilated me, and I don't know if I can take this anymore.
 
@@ -10,9 +10,9 @@ I watched him for weeks, growing more and more sure in my mind that he was the m
 
 During one stake out, as he left his home for the day, I snuck onto his property and attempted to peek inside the house to find any signs or clues that the girl may be inside, looking into the windows and checking for an unlocked door.
 
-After discovering nothing, and worried that he may return at any moment, I decided to pick the lock to the side yard door leading into his house, and upon making my way cautiously inside, I immediately stepped on a trip wire, and was met with noxious gas being sprayed into my face. Within seconds, I dropped to the floor unconscious.
+After discovering nothing, and worried that he may return at any moment, I decided to pick the lock to the side yard door leading into his house, and upon making my way cautiously inside, I immediately stepped on a trip wire, and was met with noxious gas being sprayed into my face. I gagged, cried, and wheezed, and within seconds, I dropped to the floor unconscious.
 
-When I awoke, I was sitting in the driver's seat of my old beat up sedan parked in an abandoned parking lot in the middle of nowhere, late at night, rain drizzling upon the black pavement all around me. Instinctively reaching up to my head that ached worst then ever before in my life in a dazed confusion, I realized that my pinky finger and ring finger on my left hand had been cut off, leaving behind just small stumps that had been sewn up to prevent me from bleeding out while unconscious.
+When I awoke, I was sitting in the driver's seat of my old beat up sedan parked in an abandoned parking lot in the middle of nowhere, late at night, rain drizzling upon the black pavement all around me. Instinctively reaching up to my head that ached worst than ever before in my life in a dazed confusion, I realized that my pinky finger and ring finger on my left hand had been cut off, leaving behind just small stumps that had been sewn up to prevent me from bleeding out while unconscious.
 
 Then, in a daze, I reflexively checked my genitals, my broken mind immediately beginning to worry that I had been castrated, thankful to find that at least had not been done to me.
 
@@ -28,7 +28,7 @@ I hesitantly picked it up, flipping open the phone as I continued to gag, cry, a
 
 "You should have ate the little treat I left for you in your mouth," The voice said calmly on the other side of the line.
 
-I immediately snapped my head around, looking for the man that was clearly watching me from somewhere hidden in the dark, but finding him nowhere. I was all alone in the abandoned parking lot, with only a single street lamp above to light up my vehicle.
+I wretched at the thought, and then immediately snapped my head around, looking for the man that was clearly watching me from somewhere hidden in the dark, but finding him nowhere. I was all alone in the abandoned parking lot, with only a single street lamp above to light up my vehicle.
 
 I dared not exit the car, sure that a rifle scope was trained upon me at this very moment.
 
@@ -50,7 +50,9 @@ Although I don't remember anything after that until waking up in the hospital a 
 
 After becoming more lucid due to the medical intervention, I had no option but to write down everything I knew onto a notepad to communicate with the police, as I could no longer speak.
 
-I was in the hospital for a few weeks while I recovered from all my wounds the best that I could, and then upon being discharged, refused to go back to my apartment, knowing the probable traps that awaited me there, and instead staying in a motel until I found a new apartment to rent and move into.
+I was in the hospital for a few weeks while I recovered from all my wounds the best that I could, and then upon being discharged, refused to go back to my apartment, knowing the probable traps that awaited me there, and instead staying in a motel until I found a new apartment to rent and move into. 
+
+I even sold my sedan to a scrap yard, to avoid being tracked down through it, and bought a cheap Toyota Camry to replace it.
 
 The police raided the serial killer's home, finding various traps and parts of dead and missing little girls, but he was no where to be found, and no further clues were discovered on his possible current whereabouts.
 
@@ -58,19 +60,19 @@ After about a week of living in my new apartment, I received my first package.
 
 Inside was a picture of a tied up and crying little girl, a piece of paper with coordinates written out upon it, and a copy of an old military action report, detailing when I had no choice but to shoot a 14 year old boy during my military service in Afghanistan, as he had just shot my buddy in the face, and was about to shoot me as well.
 
-I immediately text 911 as I could not speak, grabbed my firearm, and began heading to the coordinates.
+I immediately text 911, as I could not speak, grabbed my firearm, (a black .357 magnum revolver), and began heading to the coordinates.
 
-Upon arriving, the police were already swarming the abandoned compound there, finding a dead little girl but no killer.
+Upon arriving, the police were already swarming the abandoned compound there, finding a dead little girl, but no killer.
 
-Weeks of paranoia and trauma induced hallucinations passed as my tortured mind refused to heal from what had happened before I received my next package.
+Weeks of paranoia and trauma induced hallucinations passed as my tortured mind refused to heal from what had happened, before I received my next package.
 
-This new package included a picture of two tied up crying girls, coordinates, and now a copy of a report from the Kansas city police department I used to work for before leaving to become a PI that detailed a lawful firearm use where I had no choice but to shoot and kill a man high on meth that was attempting to stab his wife to death with a knife.
+This new package included a picture of two tied up crying girls, coordinates, and now a copy of a report from the Kansas city police department I used to work for, before leaving to become a PI, that detailed a lawful firearm use where I had no choice but to shoot and kill a man high on meth that was attempting to stab his wife to death with a knife.
 
 Again, upon arriving at the scene, both I and the police were too late. The girls were dead, and the killer was nowhere to be found.
 
 Months then passed of sleepless nights gulping down straight bourbon, constantly peeking out windows, and placing the barrel of my firearm to the side of my head, attempting to build up the courage to commit suicide, before I received the next package.
 
-This time, the package contained a picture of three tied up girls, coordinates, and a police report detailing the events of when I had no choice but to discharge my firearm upon a convicted pedophile while working a case who had abducted a poor little girl to save her life, killing him, and how no charges were being filed against me for the lawful use of my firearm. Also written under the note with the coordinates this time, were the words, 'Three kills makes a serial killer'.
+This time, the package contained a picture of three tied up girls, coordinates, and a police report detailing the events of when I had no choice but to discharge my firearm upon a convicted pedophile while working a case who had abducted a poor little girl, to save her life, killing him, and how no charges were being filed against me for the lawful use of my firearm. Also written under the note with the coordinates this time, were the words, 'Three kills makes a serial killer'.
 
 Again, upon arriving at the coordinates, we were too late.
 
