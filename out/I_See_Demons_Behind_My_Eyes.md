@@ -54,7 +54,7 @@ Leaving the bathroom several hours later, the door was clawed to shit where the 
 
 I decided I needed to collect proof to show others, but that just taking pictures or video of the damage to myself or the house wouldn't be enough, that it would just be assumed that I had done it myself.
 
-Attempting to video record the demons, however, would lead to them distorting the footage, to make it appear as if it was just me talking to myself, or the footage would be erased all together, or just a pixelated jumbled mess. One time, it was even replaced with a scene from some old 1930's film that depicted hell.
+Attempting to video record the demons, however, would lead to them distorting the footage, to make it appear as if it was just me talking to myself, or the footage would be erased all together, or just a pixelated, jumbled mess. One time, it was even replaced with a scene from some old 1930's film that depicted hell.
 
 I then settled upon audio recordings, and even managed to get the gremlin's screeches, the charcoal skinned demon in the closet's hysterical laughter, and one of the drowned girl asking me if I wanted to swim with her and her friends.
 
@@ -98,7 +98,7 @@ I managed to hold on to my consciousness for a bit after, just long enough to se
 
 When I first regained my consciousness in the hospital, I could see her behind my eyes, now inside with me, and although I tried to avoid her gaze and stop her from taking me over, it feels like I may have failed.
 
-Now bedridden at home, I see flashes of them inside of me while my eyes are open, and see them there in the dark when they're closed. At first, I would just see the demon in the hat, standing far in the distance in the sea of darkness.
+Now bedridden at home, I see flashes of them inside of me while my eyes are open, and see them there in the dark when they're closed. At first, I would just see her, and the demon in the hat, standing far in the distance in the sea of darkness.
 
 "He's coming," She whispered from inside my mind.
 
