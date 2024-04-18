@@ -46,15 +46,15 @@ Twisting around, I scanned the empty school hallway for movement.
 
 Annalise’s brains dripped down my face. 
 
-I was picking pieces of her skull from my hair, tiny pearly splinters stuck to me. Noah’s blood was stuck to me. 
+I was picking pieces of her skull from my hair, tiny pearly splinters stuck to me.
 
 Annalise was sucked down the pool drain, her body mincemeat on my dress. 
 
-Her grisly remains were floating to the surface, painting illuminated water in a striking, almost breathtaking red. 
+Her grisly remains were floating on the surface, painting illuminated water in a striking, almost breathtaking red. 
 
 Noah was sliced apart right in front of me. 
 
-They were all dead. 
+They were dead. 
 
 Slamming my fists into each classroom, my shriek caught between my teeth. 
 
@@ -92,8 +92,6 @@ The voice should have been comforting, but I was already seeing an opportunity t
 
 Swallowing barf, I leapt over glistening red entrails and dropped onto my hands and knees, crawling under a desk, gagging my own panting breaths. 
 
-Shuffling further under, I tried to hide myself, burying myself in obscurity. 
-
 The door swung open, and I buried my head in my arms, risking a peek. 
 
 Isaac Redfield stumbled through the door, immediately falling to his knees, his head buried between his legs. 
@@ -124,7 +122,7 @@ I watched him do a little dance backward in an attempt to distance himself. But 
 
 His hand shot out, blindly grasping for a weapon, a chair leg, but her boots continued, stomping towards him. 
 
-Isaac tried to throw himself past her, but she was so fast, reaching out and grabbing the boy by his neck, her fingers pulverising. His hands flew up to peel her hands from his throat, but she was choking him. When Issac’s arms went limp, she slammed him into the window, and my body coaxed me to move, to run. Isaac was half conscious, spluttering blood, his head hanging. 
+Isaac tried to throw himself past her, but she was so fast, reaching out and grabbing the boy by his neck, her fingers pulverising. His arms flew up to peel her hands from his throat, but she was choking him. When Issac’s arms went limp, she slammed him into the window, and my body coaxed me to move, to run. Isaac was half conscious, spluttering blood, his head hanging. 
 
 *Run*. 
 
@@ -148,7 +146,13 @@ She resembled a shadow with a human face, dark blonde hair pulled into a ponytai
 
 I watched her brutally murder my friends, one by one, no mercy, no *I'm sorry*, or even an explanation. 
 
-She butchered Annalise in the swimming pool, gutting Noah and Mari, and now Isaac. Her expression was vacant. There was no motivation behind her killing them. If there was, she would have worn the face of a psychotic serial killer, thirsty to spill blood. She would have laughed as they ran, revelled in their fear and the startling inevitably of their own demise.
+She butchered Annalise in the swimming pool, gutting Noah and Mari, and now Isaac. 
+
+Her expression was vacant. There was no motivation behind her killing them. 
+
+If there was, she would have worn the face of a psychotic serial killer, thirsty to spill blood. 
+
+She would have laughed as they ran, revelled in their fear and the startling inevitably of their own demise.
 
  But she didn't.
 
@@ -282,7 +286,7 @@ However, I was yet to forget the seventh loop when I broke apart and told her ab
 
 Mom immediately called the doctor, convinced I was having a psychotic break. 
 
-The doctor said there was nothing wrong with me and let me go to school. 
+He said there was nothing wrong with me and let me go to school. 
 
 Where I was murdered. 
 
@@ -366,7 +370,7 @@ Isaac was more infamous, especially for his ‘candy’.
 
 To prove his point, Isaac straightened up, grabbed my phone, and threw it in the microwave. 
 
-Mari threw a banana at his head. 
+Mari chucked a banana at his head. 
 
 “We get it.” she said with an eye roll. 
 
