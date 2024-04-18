@@ -219,6 +219,6 @@ I coughed more and asked: “Where are we, Lúcio? What happened?”
 
 “What’s Morrowind?” Popcorn asked.
 
-“Uh… It’s nothing. Come on, we need to look for Bia. And figure out a way to go back from… Wherever we are.” I said. If only I knew that I would not be going home anytime soon. 
+“Uh… It’s nothing. Come on, we need to look for Bia. And figure out a way to go back from… Wherever we are.” I said. If only I knew that I would not be going home anytime [soon](https://www.reddit.com/r/nosleep/s/qfSzZ0Nmdz). 
 
 [///](https://www.reddit.com/r/Matgamarra/)
