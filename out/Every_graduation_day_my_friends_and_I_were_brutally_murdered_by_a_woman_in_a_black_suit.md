@@ -226,7 +226,7 @@ I fucking hated that notification.
 
 **Unknown number** flashed up on screen. 
 
-“Hello?” I whispered. 
+“Hello?” I mumbled. 
 
 “How'd you die this time?” 
 
@@ -700,7 +700,7 @@ He spat out slime, adjusting his glasses.
 
 *Too much information at once.*
 
-“I don't understand.” I whispered. 
+“I don't understand.” 
 
 Noah tipped his back, groaning. “You don't need to.”
 
@@ -808,7 +808,7 @@ He nodded, and I felt the prick of the blade spike my skin.
 
 Noah stepped back, cocking his head. “What?”
 
-“Why would Mrs Benson do this?” I whispered. “She didn't want us to graduate school, so she did all of this?”
+“Why would Mrs Benson do this?” I demanded. “She didn't want us to graduate school, so she did all of this?”
 
 Noah shrugged, playing with the shard between his fingers. “Why *else* would she do this?”
 
