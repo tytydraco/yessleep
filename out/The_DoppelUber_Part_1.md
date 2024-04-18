@@ -1,3 +1,5 @@
+(Part 1)[(Part 2)](https://www.reddit.com/r/nosleep/comments/1c7g665/the_doppeluber_part_2/)
+
 A ping flashed my radar.
 
 *$8.74 fare.*  

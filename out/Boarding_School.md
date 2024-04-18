@@ -1,41 +1,205 @@
-So let me start by saying that this is all as I remember it, the events of this happened when I was 12, and I am currently 28 so some details might lack coherency I’ll try to maintain some semblance of a timeline but I am just jotting events as I remember them. I’ll try to keep it as short as possible, this is only one event out of dozens but I felt like this is a good starting point, and if people are interested in more I can share some more.  
-  
-My family is weird, boarding school is a generational thing. My parents, grandparents, and older siblings all attended the same boarding school. But when I was coming up to the point where I too could attend the same boarding school, they declared that they would have their final intake a year before I could attend. The boarding school in question was 14-18 whereas most boarding schools in my country are 11-18 so when they made the decision I was 12 and to make sure I didn’t miss out on the same  joyful experience as my family members my parents decided to send me to another boarding school.  
-  
-The boarding school my family all intended was about 8 hours from my family home, but the new one was only an hour so if I wanted to I could go home on weekends and public holidays which was extremely appealing to me so I agreed to check out this new school. The hope was, given I am the 9th child of 11 that I would be the first to test this new school and my siblings would follow.  
-  
-This new boarding school was a lot older, with a lot of old buildings that predated the 20th century, and was predominantly for farmers kids. I am the son of a Fisherman and am of a mixed heritage so surprisingly enough I was discriminated against not only for my family's occupation but also for the fact I was not white. But besides the bullying, this wasn’t even the closest thing that truly sucked about this boarding school.  
-  
-Given the age of the school, it started as more of a place to send troubled boys. There are old photos of the students dressed in clothes similar to the stereotypical olden-day prison fatigues and there were horror stories of mistreatment and escape attempts that coincide with the “campfire” stories that teenage boys would use to scare each other.  
-  
-The craziest fact was that there was very real proof of some of these stories.  
-  
-My first year in the school we heard a lot about the tunnel system that went underneath all the dorms, back before alarm systems, the school invested heavily in making sure that the boys stayed in by barred windows and stuff like that. So the boys would open up the floor boards and dig tunnels to be able to sneak out. Whether to go visit girls, go to parties whatever it was they wanted to do after curfew. These were more popular with the older boys, but what the older boys did the younger boys would copy.  
-  
-So for decades, it was almost tradition for the first years to dig tunnels for no other reason than to dig tunnels. They were rumored to span the entirety of the dorm complex which was easily half a mile in length with several living quarters, common rooms and houses for staff.  
-  
-By the time I attended in the late 2000s the school had invested a lot into discovering the entry points to the tunnels and sealing them off. My first exposure to the reality of the tunnels was when they brought in an excavator to do some work on an old tennis court and the weight of it caused tunnels underneath the tennis court to give way and it fell through. If that doesn’t explain the pure multitude of tunnels I’m not sure what will.  
-  
-During one of the public holidays, I decided to stay behind since my older Sister was about to give birth to her first son home was a bit chaotic so a quiet time in the dorms didn’t sound that bad. During public holidays the dorms virtually shrunk down to only those who lived to far to bother with the journey or were international students. I can’t remember exactly but I’m pretty sure there were only 3 of us who stayed in a dorm that usually housed 50+ boys. This was the first time we were free to just explore the dorm as a whole, and it would be my first time I ever went into the tunnels myself.  
-  
-The dorms were kind of military in their presentation with a few more luxuries then what the movies showed. Each cubicle was divided by partitions and in each cubicle there were four beds on either side of the hallway. There was no partition between you and the cubicle across from you so essentially it was like half an 8 man bedroom. Each bunk was given two lockers at the foot of them and 4 draws under the bottom bunk. I had been told by an older boy that the most common entrances to the tunnels were underneath draws, if I pulled out the draw and there was no carpet all I needed to do was use a fork or knife to pry up a corner and it should lead into an entrance.  
-  
-Me and my two friends decided to take this opportunity to take out every set of draws in the entire dorm until we found an entrance. The clue about there being no carpet seemed to be a red herring, a lot of them did not have carpet underneath but after a lot of false alarms we finally found one that had a small break in the wood. We pried it open and found the entrance to a tunnel.   
-  
-I’m a big boy, at 12 I was 5 ft 5, 140 pounds, the entrance to the tunnel was more suitable for normal sized 12 year old which I was disappointed by. So one of my friends who was more likely to fit took the lead and dived into the tunnel. We communicated through the opening for a while as he climbed in, he eventually called back and said after about a meter it opened up and he felt like I could fit. We made a plan to steal some spoons the next day and open it up a bit more, but for the time being we encouraged him to go further.   
-  
-After about 15 minutes he came back up, with a gallon bottle of what we assumed to be cider. He found it in a small pantry like dug out about 30 metres in. I checked the bottom of the bottle acting like I knew what sediment was because I heard my Dad mention it about wine once and found 1979 on the bottom of it. Not sure why I’m fixating on this bottle, was a cool find as 12 year olds but apart from the date of the bottle there was nothing significant about it.   
-  
-Next day we returned to the tunnel with our spoons and got to digging up the opening a bit more, took about 4 hours for us to open it up enough to where I was happy that I wouldn’t get stuck and down we went. The tunnels themselves were not the best, they definitely were there and they were definitely long. Armed with nothing but 4 candle sticks we bought with our pocket money we ventured deeper into the tunnels. They were about half a meter in diameter so we weren’t really capable of standing, but they were comfortable enough to crawl in.   
-  
-We got to the pantry dug out where he found the cider in, there were old glass jugs and other things showing the remnants of some cider making operation with old sugar bags and some glassware which was probably stolen from a school science lab. But that was the most prominent point for the next few dozen meters. After a few minutes of crawling and half of one of our cheap candles we cam to a point where it forked. One point kept heading further in the direction of the other dorms, while one veered back in the direction of our dorm, we thought it might be a clue to another entrance so we followed it for a minute before we hit a point that was filled with concrete. We instantly assumed that this was an entrance they found and filled in so we went back the way we came and decided to head further into the tunnel.   
-  
-The first open room was probably a ten minute crawl, and from memory was about 4 meters wide and had some old wooden school chairs with the legs snapped off placed around a small plywood table. The table had an ashtray with cigarette butts in it and the room stunk of cigarette smoke. We would find out later that the boys a year a head of us would use this to smoke at night and it was deemed “the Smokers Hut” we sat there for a moment enjoying the discovery, Was actually the first time I ever smoked a cigarette and is quite a fond memory for me.   
-  
-But this was the first point where things started getting weird, we heard as clear as day the words “Quick, they’re coming” I’m not sure where the voice came from, but it definitely sounded like a boy my own age who was calling out to warn us of the teachers coming. So we scurried back through the tunnel as fast as we could, expecting to come face to face with another student. My friend kept asking “Who’s coming” in a yelled whisper. We would end up at the end of the tunnel to find the dorm still empty and the owner of the voice still not present.  
-  
-Perhaps it was one of the older boys who smelt the smoke or heard our 12 year old lungs coughing in the hole. Who knows, but the fact remained we were confused as heck. We closed off the tunnel and decided to call it a day.  
-  
-That night while I was asleep, I woke up feeling like I was sleeping in a fridge. Where I was could get pretty cold in the winter, but I distinctly remember being able to see my own breath in the darkness. That's how cold it was. So I got up, took my sleeping bag out of my locker and looked directly down the hall where I saw a shadow. I thought nothing of it, I knew it was a shadow because on the wall behind it I could still see the fire emergency sign. My tired brain was just like “Oh someone must be standing on the other side of the hall.” given the toilets were just down from where I saw the shadow they must have been needing to go to the toilet. So I went back to bed with my sleeping bag and went back to sleep.  
-  
-The next day out of curiosity I was talking to one of the dorm managers about the tunnels. He had attended the school in the 70s which was their glory days so he knew a lot about them. He warned us to never go in the tunnels because when he was our age, a few boys were digging underneath our dorm and one of them unknowingly dug into a powerline and died. He said that was when the school decided to take the initiative and begin filling in all the entrances, and they even encased any livewires in pipes before filling in entrances with concrete to avoid any curious boys meeting the same fate. Whether that boy was the one who had warned us or had been the shadow I had seen that night I’ll never truly know, but there was one thing that was for certain, the tunnel blocked off by concrete was most definitely the place he met his end.  
+My parents were strict growing up. In particular, my sister and I had a tightly enforced curfew - no going out after 6PM. As a homebody who preferred to read in my room, I didn't mind much.
+
+My older sister Jasmine hated it. She misbehaved frequently, stayed out late and made friends our parents didn't approve of. Dad would lock her in the house when she came back from school, and she would throw ear splitting tantrums that gave everyone headaches. The more they tried to control her, the more she rebelled, until she became an absolute menace. We fought a lot too - she spat in my food at the dinner table, and I pulled her hair in return. My parents would scream at her to stop and stand in the corner for an hour as punishment. They threatened that if her behavior continued, they would send her away to a boarding school for difficult children, where the punishments wouldn't be as kind.
+
+The final straw came when I was ten and Jasmine was fourteen. Mom found a pack of cigarettes in Jasmine's room. She came to us at the dinner table.
+
+"Jasmine," she said calmly, holding up the pack. "What is this?"
+
+I saw the color drain from Jasmine's face. She'd gotten them from an older boy at school. Her expression cycled through fear, dread, denial then rage in a few seconds. A violent argument broke out.
+
+"Fuck you!" She screamed, "They're mine and you *bet* I'm gonna smoke them! You can't fucking tell me what to do!"
+
+My parents decided it was time to play their final card. It was boarding school, or getting disowned and put up for adoption. They had enough, and as she was becoming older, taller and more violent, they were starting to become concerned for the family's safety. She had little choice, and a month later, dad took her on a flight to the boarding school. I don't remember many details about it from listening to their conversations. I just picked up the fact that it was in a hilly area in a far away state, and they took discipline seriously there. No technology, makeup or drugs were allowed, there was a strict daily schedule beginning at 5AM and ending at 9AM sharp, and those who broke the rules were served their just desserts.
+
+"See ya in fifty years," I taunted, "enjoy being a nun."
+
+She stuck her tongue out at me and flipped me the middle finger. She disappeared, and the front door slammed shut.
+
+The home was much quieter thereafter. I liked it at first. No more fighting over stuff and screaming around the house. But over time, it got lonely, especially on the evenings and weekends. I now felt like an only child.
+
+Despite our differences, Jas and I did have a few good laughs over dumb Youtube videos on the odd occasion. Three months had passed since she had left, but the entire time I never heard my parents call Jas or the school for updates. I asked about Jas a couple times after a few months.
+
+"Is she coming back?" I asked.
+
+"Of course, dear. She's there for a year, so she'll be back when the school year ends," she replied.
+
+The year droned on, and half a year passed in a blink. I started taking violin lessons, and my parents even extended the curfew to let me attend late night school events. It helped me make some more friends, and the extension allowed me to stay at their houses, as long as my parents approved of them. Being accustomed to restrictions for my whole life, those allowances were a breath of fresh air. Still, I was alone in my room most of the time, and the house felt empty.
+
+I came home from school one day and both my parents were still at work. As I went to my room and set my things down, I heard the home phone ringing from downstairs.
+
+Taking off my coat as I walked down the stairs, I went to answer it.
+
+"Hello?"
+
+"HELP ME! *HELP*!" A shrill voice shrieked from the other end. All the hairs on the back of my neck stood up instantly as soon as I heard it, and my heart rate began to accelerate. I held the phone a little further from my ear.
+
+"Jas?" I asked.
+
+"Harry," she sobbed, a terrified urgency in her voice, "I need help, please. Where's mom and dad?"
+
+"They're at work," I replied.
+
+"Harry, I'm sorry." Her voice became quieter. "I'm sorry I spat in your vegetables. I'm sorry I called you a dumbass. Tell mom and dad I'm sorry I gave them hell. They didn't deserve all of that. I'm so sorry. I didn't mean to hurt you guys, I swear."
+
+"I know, Jas," I said, concerned, "but what's going on?"
+
+"Oh my God, they're coming," she whimpered, "they're gonna get me, I can't run anymore. Fuck…"
+
+I heard a loud smash and commotion on the other side, and screaming erupted from the other end of the line. Ear piercing screams that could've shattered glass. They became more intense but quieter, as if she was being dragged away from the receiver.
+
+"No, NO! *PLEASE DON'T! HELP*!"
+
+The line hung up.
+
+Shaking, I called mom and dad immediately. When they came home, I explained what happened and thought Jas was in serious danger. Mom hurriedly called the school, and the woman on the other end explained that Jas had a tantrum earlier, but was otherwise fine and didn't want to speak to her. She took that as sufficient, and hung up. I pressed her a little, but that pissed her off.
+
+"It's just one of her tantrums, and she's being dealt with. She's getting the help she needs. I don't want to hear you mention it again, Harry."
+
+I never recalled Jas apologizing during a tantrum. Before then, she had never apologized once in her life. It was very out of character. I knew something wasn't right, but I couldn't do anything about it. I tried calling the unknown number back from the home phone a couple of times when my parents weren't at home, but to no avail. Three months passed. Some nights I would wake up drenched in sweat, screams ringing in my ears.
+
+The end of the school year came, and I thought it was time for Jasmine to return home. I asked dad about her.
+
+"They've said she's making really good progress, so she's going to stay for a few more years," he beamed.
+
+"How do you know she's even alive?" I asked.
+
+"What kind of question is that?" He laughed. "She spoke to us herself, sounded like she'd grown up a lot over the past year."
+
+She didn't come back home.
+
+Over time, I grew accustomed to being alone. Mom and dad never talked about Jas again. They acted as if she never existed, and for some reason, I never dared to ask. Perhaps I would've forgotten I ever had a sister, if it weren't for the periodic nightmares of that phone call which returned to haunt me every few weeks. When I turned eighteen, I moved out and went to college. As soon as I left home, the nightmares returned with a vengeance, revisiting almost every night.
+
+Back when I was ten, after mom had called the boarding school following the horrific phone call, she left her phone on the kitchen table and I saw the number. I didn't note it down, but it was one of those that was easy to remember. I specifically remember thinking it was odd that a number had such a long string of fives.
+
+One night in my dorm, I tried to recall the number, typing several possible combinations into my phone keypad and tapping the call button. After a few invalid attempts, I was surprised to finally get through to someone.
+
+"Hello, this is the boarding school reception," A voice came from the other end. Bingo.
+
+"Hi there, I'd like to ask about a student who once attended your school, her name is Jasmine Collins."
+
+There was a pause.
+
+"What is your relation to this student?"
+
+"I'm her brother. She attended the school about eight or nine years ago, and I haven't seen her since. Just wanted to know if you knew where she graduated to."
+
+"I'll search the records."
+
+"Thank you," I said. After a few minutes, she piped up again.
+
+"Apologies, there are no records matching this name."
+
+"Are you sure?" I frowned, "It's J-a-s-m-i-n-e C-o-l-l-i-n-s." I spelt it out.
+
+"Nope, nothing in our system."
+
+Silence. I grew frustrated.
+
+"Listen," I growled quietly, "I know something happened to my sister while she was at your school. If you don't tell me exactly where she is right now, I'm going to involve the police."
+
+"Sir, we do not appreciate unfounded accusations or threats. if you like, I can do a second search, but if nothing comes up there isn't much I can help with," she said.
+
+"*J-a-s-m-i-n-e C-o-l-l-i-n-s*," I repeated, "do it."
+
+Two minutes passed.
+
+"My sincerest apologies," said the woman on the other end, "I indeed misspelt the name. Miss Collins was a student here until she turned eighteen. She was discharged thereafter. Would you like the address?"
+
+A wave of relief ran through me, and my racing pulse began to ease.
+
+"Yes please, thank you."
+
+She gave me an address in Pennsylvania. The following Friday evening, I took a flight over and made my way to the location. It was a wide two-storey building in the middle of a well kept garden. Colorful, well trimmed rose bushes and plots of tulips lined the perimeter. There was a small fountain on the path that led up to the main entrance of the building. I expected it to be a house or block of apartments, and double-checked that the address was correct, which it was.
+
+I walked into a reception area. Glass panels surrounded by wooden frames made up one of the walls, with a door leading to a corridor. A blonde lady was sitting at a desk, and some elderly people were talking in the corridor. There was a colorful poster on the wall.
+
+*'Celebrating our care home's 40th anniversary. Come join us for cake!'*
+
+*Care home?* I thought to myself, confused.
+
+"Hi there," said the woman at the desk, in a cheery tone.
+
+"Hello, I'm looking for my sister, someone told me she would be here."
+
+"Name?" She asked.
+
+"Jasmine Collins?"
+
+She typed it, and clicked.
+
+"Take a seat, I won't be two seconds."
+
+She descended down the corridor, and returned a few moments later, pushing a wheelchair with someone on it. My eyes widened as she came closer.
+
+The woman in the wheelchair had big bulging eyes, with pupils that pointed away from each other absently, and a crooked neck slanting uncomfortably to the right. Her arms and legs rested limp, feet bent in an uncomfortable position. Her thin, brittle brown hair hung from her scalp, which housed specks of dandruff. Her limbs were stick thin, but her midsection bulged slightly. She sat almost motionless as she was pushed towards me, apart from her chest, which rose as she gasped in breaths of air. A drip of saliva ran down from the side of her open mouth. She wore a pink shirt that said 'Mondays' and a blue flowery dress. There was a cannula and dressing on her left arm, and a yellow feeding tube came out of her right nostril, taped to the side of her face.
+
+The blonde lady brought her in front of me, then flipped the brake on the wheelchair. She crouched down next to it, and stroked the woman's sparse strands of hair.
+
+"Say hello, Jasmine," she said softly.
+
+The woman in the wheelchair let out a long groan. I stared in disbelief, horrified.
+
+"What happened to her?" I choked.
+
+"She was admitted to us a few years ago, before I started working here," explained the blonde lady. "I heard she contracted bacterial meningitis at another residence, and got brain damage as a result."
+
+"No," I said, shaking my head, my voice trembling.
+
+"This isn't right," I continued, "something very bad has happened to her. How did she get here? Can you check the records?"
+
+"Well, before I started working here, this place had paper records. Some of them got lost, hers was one of them, but what the staff at the time could remember was transcribed onto the new electronic system."
+
+She reached over the desk and flipped the computer monitor around.
+
+"Her notes here just say she was admitted at age eighteen having suffered brain damage after contracting meningitis as a teenager, and presented as quadriplegic with greatly reduced cognition and speech. She had a medical exam on admission, which confirmed this. No suspicious circumstances were reported."
+
+"Where was she brought here from?" I asked in a panic, trying to read the text on the screen. "And by who?" The lady looked at the screen and scrolled down.
+
+"Doesn't say," she said.
+
+"Is that all you can find? Everything?"
+
+She nodded. I stared for what seemed like hours, and finally broke out of my trance.
+
+"Thank you," I croaked, rattled.
+
+I took the handles of the wheelchair and unlocked the brake, wheeling it and the woman outside into the garden area, down the path leading to the front doors and past the fountain. I eventually stopped beside a far away bench. I sat down, still light headed.
+
+It was a bright, sunny day. Children walked hand in hand with their elderly and disabled relatives along the green grass, admiring the roses. Some families were having picnics in the distance. A cool breeze swept by, the sound of water flowing like white noise in the background.
+
+I looked in the woman's eyes, trying to find my sister locked inside. Her gaze shifted to meet mine. I could see in her eyes that she desperately wanted to tell me something.
+
+*"What did they do to you?"* I whispered. She just stared at me, unblinking. A single tear ran down her left cheek.
+
+When I returned to my dorm, I was angry. I wanted answers, and picked up the phone to dial mom and dad's house and ask them what they had done. Perhaps I should even call the police first, I thought, pacing up and down my room for hours, thinking about who to call and what I would say. Then I sat down on my bed, as a realization came over me.
+
+Mom and dad had been good to me. Mom had been diagnosed with breast cancer just before I left for college, and seemed to be fighting a losing battle. Dad had lost my grandparents on his side, and was also slowly losing his eyesight. Their marriage wasn't doing too well, but they had somehow stuck it through for the family. Did I really want to do this to them now? I thought back to when I had asked dad if Jas was coming home.
+
+*"She spoke to us herself…"*
+
+I pondered what I should do next for days upon days, and I came to the conclusion of… nothing.
+
+Call me a bad person, call me a coward, call me selfish. Believe me, I badly wanted answers to what the hell happened in that boarding school.
+
+I just didn't want to lose anyone else.
+
+I went to PA to visit Jas every college break, pushing her in her wheelchair down the pathways in the park surrounding the care home. Eventually, I graduated and my fiancée and got our own place. After we had settled in somewhat, we brought Jas back from the care home to live with us. I knew it we were taking on a big commitment, especially as we were planning to have a family in the near future, but somehow I felt like I owed it. My fiancée Marielle is an absolute star. She was an accountant who mostly worked from home and was happy to accommodate, which is more than most would do for a partner. Marielle even helped prepare Jas' nutrition at home, which we fed her through the NG tube, and other aspects of her care.
+
+I came home from work one day.
+
+"Welcome back babe," chirped Marielle. I kissed her and hung my coat up behind the door.
+
+"How was your day?" I asked.
+
+"Decent, same old. Did some work in the morning," she replied, "in the afternoon, I took Jas out on a walk along the river. I think… she tried to say something."
+
+"Jas tried to speak?" I asked, intrigued.
+
+"I think so. I listened closely, and she kept repeating something. It sounded like…" Marielle did an impression.
+
+"*Harry?* Was she trying to say my name?"
+
+She pondered for a second.
+
+"No, I think it sounded more like, '[sorry](https://www.reddit.com/user/latebutstillearly1/)'."
