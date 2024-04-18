@@ -194,19 +194,35 @@ The parasitic mass where his head once was pulsates with a sickening rhythm, ten
 
 "Jésus Christ," Reine mutters under her breath.
 
-Zane suddenly lunges at us with a burst of ungodly speed, a movement that defies everything we know about the physical capabilities of a human being. It's as if the mass has injected him with some sort of primal, monstrous energy.
+My stomach turns, the scene defying logic and sanity. But it’s not just the horror of Zane’s condition that heightens the tension—it’s the realization that the body of the woman, the one we had just seen, is not where it should be. The room, though chaotic, lacks her presence.
 
-Reine reacts instinctively, rolling to the side, firing off a round that echoes through the room like a clap of thunder. The bullet hits its mark, a grotesque splash of... something, dark and viscous, splatters against the wall. But it's like hitting a swamp with a pebble; it absorbs the impact, undeterred.
+“Reine, where’s the—” My question cuts short as a cold grip tightens around my wrist.
 
-I'm not as lucky. The thing that Zane has become crashes into me, a force of pure malevolence. We hit the ground hard, the air knocked from my lungs. The smell is indescribable, a stench of death and perfume that seeps into your pores, a scent you feel will never leave you. His strength is monstrous, his fingers—no, they're not fingers anymore, but rather tendrils, cold and slimy—wrap around my throat, squeezing with an intent to kill.
+Before she can answer, a cold, strong grip encircles my arm. I whirl around, my heart pounding, to face the headless, nude body of the woman. Her grip is iron-clad, her strength unnatural. In disbelief, I see the sinew and muscle of her neck twitch and pulse where her head should be. 
 
-Panic sets in, a primal fear. I'm scrabbling at the mass, but it's like trying to fight water, or smoke; there's nothing solid to hit. I catch a glimpse of Reine as she maneuvers for a clear shot, careful not to hit me.
+I try to level my pistol at the headless torso, aiming to neutralize the threat. But she's too fast, too strong. With an unexpected force, she twists my wrist painfully, causing my shot to go wide. The bullet, meant to stop her, punches a hole into the plush carpeting of the hotel room.
 
-I manage to wedge my knee between us, giving me just enough leverage to push him—or it—off balance. Reine seizes the opportunity, firing another shot, this one hitting the base of the writhing mass that's consuming Zane.
+Reine, quick as ever, tries to make a move to help me, but before she can get close, the amorphous head attached to Zane's body detaches itself and launches in her direction. It's like something out of a nightmare, a living mass with tendrils that act almost with a mind of their own. As it flies through the air, the tendrils extend, reaching for Reine.
 
-The reaction is instantaneous and horrifying. The creature convulses, emitting a sound that's part scream, part roar, a sound no living thing should ever make. It recoils, the tendrils loosening their grip just enough for me to break free, gasping for air.
+As the grotesque head with its snake-like tendrils flies towards Reine, I watch helplessly, my body frozen in a moment of disbelief. It wraps its tendrils around her with a precision that betrays a malicious intent, disarming her in a single, fluid movement. The gun clatters to the floor, a sound harsh against the eerie silence that envelopes the room.
 
-In the chaos of the moment, as Reine helps me to my feet, the entity undergoes yet another grotesque transformation. A pair of dark, leathery wings unfurl from its back with a sinister grace. They're massive, spanning the width of the room, knocking over furniture as if they're mere obstacles in its path.
+Reine struggles against the creature's grip, but the tendrils tighten, constricting like boa constrictors. They wind around her neck, her torso, squeezing with a strength that is both terrifying and otherworldly. Reine's face contorts with pain, her eyes meeting mine, a silent plea for help written in her gaze.
+
+"Reine!" I shout, desperation lacing my voice. My partner, my wife, the person I've faced countless dangers with, is now inches away from death by this unimaginable foe. 
+
+With every fiber of my being shaking, I yell at the creature, my voice firm despite the chaos. "Let her go!”
+
+For a fleeting second, the tension in the room ripples with the uncertainty of the creature's response. Then, in a voice that is eerily calm and chillingly clear despite its formless source, the creature responds. "Stay out of my way. I won’t warn you again."
+
+Then, abruptly, the creature's grip loosens around Reine and drops her. Reine gasps for air, her face flushed from the constriction. 
+
+As the headless woman releases her vice-like grip on my forearm, I rush towards Reine as she stumbles back into my arms. I catch her, my relief palpable.
+We both regain our footing, keeping wary eyes on the creature.
+
+As we watch, stunned, the head slowly drifts back towards the woman’s body, reattaching  itself to her neck. The seams where flesh meets flesh knit together in a spectacle that's both horrifying and mesmerizing. Within moments, the transformation is complete, and the woman stands before us, her appearance as flawless and composed as when Zane first greeted her outside the hotel.
+
+
+In the chaos of the moment, the entity undergoes yet another grotesque transformation. A pair of dark, leathery wings unfurl from its back with a sinister grace. They're massive, spanning the width of the room, knocking over furniture as if they're mere obstacles in its path.
 
 With a powerful flap, the creature launches itself towards the balcony, shattering the glass doors in its haste to escape. The night air rushes in, mixing with the stench of decay and the iron tang of blood, creating a maelstrom of senses that leaves us momentarily disoriented.
 
