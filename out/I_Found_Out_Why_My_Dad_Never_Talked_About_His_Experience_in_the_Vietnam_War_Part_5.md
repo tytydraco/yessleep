@@ -62,7 +62,7 @@ Wright chuckles, a sound devoid of humor. "You think you're in control here? You
 
 "You're playing with fire, boy," he sneers, the corners of his mouth twitching into a disdainful smirk.
 
-Ignoring his threat. "Where did your men take the village boy, Luc?"
+I ignore his threat. "Where did your men take the village boy, Luc?"
 
 "Go fuck yourself," he replies, the words dripping with contempt.
 
@@ -104,7 +104,7 @@ I lock eyes with Hung, my gaze disapproving. "Harder," I instruct, my voice a mi
 
 Hung's eyes flicker to me, a hint of irritation in their depths. He draws back his fist again, this time with a bit more force. The punch lands with a better sound, but still lacks conviction.
 
-I glare at Hung, disappointment sharp in my eyes. "Is that all you've got? You hit like a bitch!”
+I glare at Hung, disappointment sharp in my eyes. "Is that all you've got? You hit like a bitch! Look at him! He's laughing at you!”
 
 Something shifts in Hung's expression, a shadow passing over his features. The next moment, he's a blur of motion, his fist connecting with Wright's face with a force that has the chair rocking back. The sound of impact is sharp, definitive.
 
@@ -228,11 +228,11 @@ He shudders, closing his eyes as if to block out the memories. "Things... not hu
 
 I stand up, processing the information. Around me, my companions exchange grave looks.
 
-"Who is the Smiling Man?" I ask directly, my tone neutral yet firm, aiming to penetrate his initial bewilderment.
+"Who is the Smiling Man?" I ask directly, my tone neutral yet firm.
 
 Wright's confusion is evident as his brow furrows, clearly caught off guard by the question. It takes him a moment, but recognition slowly dawns in his eyes.
 
-"I've only heard the name," he confesses, his voice a low murmur. "Never met the man. But they say... he's the brains behind this whole operation. Obsessed with perfecting something they call Agent Indigo."
+"I've only heard the name," he confesses, his voice a low murmur. "Never met the man. But they say... he's the brains behind this whole operation. Obsessed with perfecting Agent Indigo."
 
 "Agent Indigo?" I echo. "What is that? Some kind of weapon?"
 
