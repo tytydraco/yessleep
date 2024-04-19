@@ -30,7 +30,7 @@ The distant roar of chatter could still be heard as a mumble. The air here was c
 
 "Three,"
 
-This really was silly. My friend hadn't pulled the idea out of nowhere. It was a common rumor that this room was haunted. And that one or two who'd entered had left it screaming. 
+This really was silly. My friend hadn't pulled the idea out of nowhere. It was a common rumor that this room was haunted. And that one or two who'd entered had left it screaming.
 
 "Four,"
 
@@ -44,7 +44,7 @@ I could've sworn I felt the air get colder. And the mumbling of the guests I don
 
 "Seven,"
 
-My skin had startled to prickle. I was getting nearer to that magic number ten.
+My skin had started to prickle. I was drawing nearer to the end.
 
 "Eight,"
 
@@ -52,6 +52,6 @@ There was a soft creak of the floor closest to me. I wanted so desperately to op
 
 "Nine,"
 
-I felt something icy on my arm. A cold sensation, dry and sharp, like a finger sliding along my arm. I could hear a sound like a breath in my right ear, as if someone where whispering into it too quietly for me to hear. And just as I was about to say ten, I felt the part of the mattress beside lower, as if someone were sitting beside me.
+I felt something icy on my arm. A cold sensation, dry and sharp, like a finger sliding along my arm. I could hear a sound like a breath in my right ear, as if someone were whispering into it too quietly for me to hear. And just as I was about to say ten, I felt the part of the mattress beside me lower, as if someone were sitting beside me.
 
 I got up and ran from the room. I kept my eyes shut as I did, afraid of what I might see if I looked. And though I lost the dare, and my friends still tease me about it, I'm still happy I didn't count to ten. It makes me shudder to think of what would've happened to me if I had.
