@@ -1,4 +1,4 @@
-Dark, cold air nipped at my cheeks and ears as I biked the seven-mile trek home to my aunt’s house after work. I was tired and my legs ached, my muscles felt as though they were being branded with hot irons. My manager had dared me to try some of the tequila-pickled peculiarities we had recently gotten in for a few extra bucks before I left for the day. The extra 20 dollars in my pocket didn’t feel worth it in the slightest. My stomach roiled from the brine as it sat like gasoline in my gut. The nausea sent chills up and down my spine like icy waves.
+Dark, cold air nipped at my cheeks and ears as I biked the seven-mile trek home to my aunt’s ¹house after work. I was tired and my legs ached, my muscles felt as though they were being branded with hot irons. My manager had dared me to try some of the tequila-pickled peculiarities we had recently gotten in for a few extra bucks before I left for the day. The extra 20 dollars in my pocket didn’t feel worth it in the slightest. My stomach roiled from the brine as it sat like gasoline in my gut. The nausea sent chills up and down my spine like icy waves.
 
 I couldn’t make it up the driveway before spewing two days worth of half-digested cheap take-out all over Aunt Joyce’s garden and falling head-first into her patch of perennials. She treated those stringy flowers better than her own children. I remembered laying there in the dirt, watching the stems of the flowers bend and sway in the dark. Admittedly feeling a little jealous. The flowers didn’t have to worry about rent or working. Or even having to find food. They didn’t know pain or grief. All they needed was water and sunshine.
 
@@ -20,21 +20,15 @@ The sting came with a rush of strange sounds and sensations that are hard to des
 
 A cold and tingly sensation started up in my toes and crept down my leg, almost like an advanced case of toilet leg. I looked up…or down? I looked wherever the ground was supposed to be and saw a foggy abyss. I used to entertain daydreams of living my own Eldritch adventures, but now that I was staring into it, I think I preferred the slice of life monotony more.
 
-A brush against the back of my arm causing me to yelp. The sudden shout caused both myself and whatever it was that touched me to flinch. It took a few awkward rotations, but I faced the wall of foliage and was met with a small, fluorescent purple Gerbera daisy-looking thing with a bulbous, blue eyeball. It blinked at me from the green curtain it was anchored into, I stared at it pensively and couldn't help but begin to feel a little frustrated at this Wonderland bullshit. The 20 bucks an hour feeling now like chump change, and man was I the chump. I pinched myself, and found that I was definitely still awake, with the added bonus of it hurting like a bitch.
+A brush against the back of my arm causing me to yelp. The sudden shout caused both myself and whatever it was that touched me to flinch. It took a few awkward rotations, but I faced the wall of foliage and was met with a small, fluorescent purple Gerbera daisy-looking thing with a bulbous, blue eyeball. It blinked at me from the green curtain it was anchored into, I stared at iy pensively and couldn't help but begin to feel a little frustrated at this Wonderland bullshit. The 20 bucks an hour feeling now like chump change, and man was I the chump. I pinched myself, and found that I was definitely still awake, with the added bonus of it hurting like a bitch.
 
-Then, of course, I let my intrusive thoughts win.
+Then, of course, I let my intrusive thoughts win. I poked it… right in its  huge eyeball which it, understandably, didn't like. The daisy shrieked like a pissed-off baby summoning a tiny death squad, maybe twelve strong of those things, from the brush. The flowers began to hiss and snap at me with tiny mouths filled with lots of sharp little needle teeth.
 
-I poked it… right in its  huge eyeball which it, understandably, didn't like. The daisy shrieked like a pissed-off baby summoning a tiny death squad, maybe twelve strong of those things, from the brush. The flowers began to hiss and snap at me with tiny mouths filled with lots of sharp little needle teeth.
-
-“Ow!!” One of them managed to nip right through the vine holding me suspended in the air. That's one way to do it. The vine cracked and creaked like old rope. “This is gonna hurt–”
-
-When the vine finally gave, I made an attempt at grabbing for the wall. I missed every goddamn time and was left to plummet downward, but not before taking a handful of the little bastards with me.
+“Ow!!” One of them managed to nip right through the vine holding me suspended in the air. That's one way to do it. The vine cracked and creaked like old rope. “This is gonna hurt–” When the vine finally gave, I made an attempt at grabbing for the wall. I missed every goddamn time and was left to plummet downward, but not before taking a handful of the little bastards with me.
 
 They squeaked and squealed, and for a second I thought they might be enough to hold my weight.
 
-“Yes!” Then followed the snap, snap-snap of their roots ripping and coming free. Their little screeches pierced my damaged ears, but I only let go when I could hear and feel the same snaps, crackles, and pops in my legs.
-
-Then gravity did what it does best.
+“Yes!” Then followed the snap, snap-snap of their roots ripping and coming free. Their little screeches pierced my damaged ears, but I only let go when I could hear and feel the same snaps, crackles, and pops in my legs. Then gravity did what it does best.
 
 The fall wasn’t as far as it looked, but it wasn’t short either. Upon impact,  I felt the knuckles of my left hand touching the outer side of my arm. Either the bones in my hand had been turned into small bags of croutons or it was almost definitely broken.
 
@@ -86,9 +80,7 @@ I had been hit in the face with Fred’s head. The treetops and vines above me s
 
 “You jackass!! I thought you were dead or… or some mannequin equivalent! You freaking crazy hunk of plastic!”
 
-Fred’s head rolled itself to face me. It was in similar condition to his torso; the paint of his titanium white teeth had almost been scraped off completely. But the sly grin plastered across his face didn’t falter despite its damage. He gave a sharp gasp and giggled like a deranged schoolgirl. “Maxy! You think I’m a hunk?” I picked him up and fought the urge to shake the shit out of him. Or maybe, if I was feeling extra spicy, punt him hard enough to disband the entire NFL. It wasn’t until he spoke that I was reminded I was now hard of hearing. Or at least I was supposed to be. Fred’s voice was clear as a bell.
-
-It would have been hard to read the lips of a guy whose lips don’t move.
+Fred’s head rolled itself to face me. It was in similar condition to his torso; the paint of his titanium white teeth had almost been scraped off completely. But the sly grin plastered across his face didn’t falter despite its damage. He gave a sharp gasp and giggled like a deranged schoolgirl. “Maxy! You think I’m a hunk?” I picked him up and fought the urge to shake the shit out of him. Or maybe, if I was feeling extra spicy, punt him hard enough to disband the entire NFL. It wasn’t until he spoke that I was reminded I was now hard of hearing. Or at least I was supposed to be. Fred’s voice was clear as a bell. It would have been hard to read the lips of a guy whose lips don’t move.
 
 “I should get paid just for dealing with you.” I stuck him under my arm and hobbled with the fervor of an old man over to his torso that had somehow moved while I wasn’t watching.
 
@@ -114,7 +106,7 @@ A poorly hidden sigh of relief escaped me “Was he fired or something?” I ask
 
 Is not to.
 
-“This is probably gonna sound stupid but. I took a moment to really consider if I wanted the answer to this question. But the idea of not seeing it coming was just as horrifying. I sat fred up and began trying to push his neck joint back in place with all the strength I could manage one handed. “Is uh…is that what’s going to happen to me?”
+“This is probably gonna sound stupid but. I took a moment to really consider if I wanted the answer to this question. But the idea of not seeing it coming was just as horrifying. I sat Fred up and began trying to push his neck joint back in place with all the strength I could manage one handed. “Is uh…is that what’s going to happen to me?”
 
 “Nah, believe it or not yer’ actually doin’ okay. Not great, but okay. You should probably answer that page, though.”
 
@@ -134,7 +126,7 @@ I could feel Fred peeking over my shoulder. “Worst case you can come live in S
 
 “Thanks, but if I’ve got a choice, I think I’ll pass on that. You’ve probably got a giant, flesh-eating tennis ball running the place over there.”
 
-“Oh boy, do I *wish*.”
+“Oh boy, do I wish.”
 
 Everything looked the same, as if the foliage purposefully covered anything that could be a landmark. “How the hell am I gonna get out of here…”
 
@@ -206,7 +198,7 @@ I woke to Fred lying in my lap, desperately thrashing and throwing his head into
 
 “Max! Max! Wake up!”
 
-My eyes snapped open again. I was expecting there to be some demogorgon things looking to make a not-so-vegan meal out of us, or Ana ready to string me up like a meat marionette. Compared to what happens next, I’d have preferred either. Cause you can’t run from sound.
+My eyes snapped open again. I was expecting there to be some Demogorgon things looking to make a not-so-vegan meal out of us, or Ana ready to string me up like a meat marionette. Compared to what happens next, I’d have preferred either. Cause you can’t run from sound.
 
 A strange sensation filled the air. I lifted my arm and saw that my skin was breaking out in goosebumps. The atmosphere shift made the hairs on the back of my neck and arms stand at attention.
 
@@ -268,7 +260,7 @@ I could feel the monster eyeing me, probably wondering how hard it would have to
 
 The creature leaned in, barring its rows and rows of barbed and serrated teeth. “That only works in movies…” Its low, growling voice bubbled from the recesses of my mind and sent shivers up my back.
 
-I didn’t even have to vocalize my thought. The moment I thought it, Maully already knew what I was going to say. “Can we have a 10-second head start?”
+I didn’t even have to vocalize my thought. The moment I thought it Maully already knew what I was going to say. “Can we have a 10-second head start?”
 
 Maully made an expression somewhere between a grin and a snarl. Its breath smelled like mildew and pondscum.
 
