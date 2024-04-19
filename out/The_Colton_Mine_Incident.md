@@ -52,7 +52,7 @@ The room went cold. The question expressed what everyone was thinking. Why would
   
 This question took people's minds from the troubling detail and was answered promptly.   
   
-“112 miners were on t... today's shift.” The young man who had just spoken was skinny with a nervous completion. Judging by his jeans and outward appearance it seemed clear that he was a miner. This detail wasn't lost on the man at the back of the room who then asked.   
+“Quite a f..few” The young man who had just spoken was skinny with a nervous completion. Judging by his jeans and outward appearance it seemed clear that he was a miner. This detail wasn't lost on the man at the back of the room who then asked.   
   
 “How well do you know these mines. Very?” The miner nodded quickly. “Good then you'll be coming with us. You” He pointed at the man who had suggested that the mine could have been flooded. "What do you do?”   
   
@@ -104,7 +104,7 @@ The transmission had ended abruptly which had taken the room by surprise. After 
   
 “Something terribles happened down here. I can't figure it out though. Nothings objectively wrong with it but...” He trailed off in frustration “I can't describe it. It's just off” It was clear by his voice that he was frustrated at his inability to convey the uneasy feelings that he had.  “Ok right, we’ve just left tunnel 12 and we are in an open bit. In the corner there is a small office that I'm told it used to be the foremen's. The door is intact, the desk inside is neatly organised hell even the football posters on the wall are fine, but it's just deserted. I don't know I think that the emptiness is getting to me. We are going to head to the central lift and head back up. We haven't seen any signs of the miners. They must be deeper in the mine. If we want to find them then we need a plan and proper search equipment. Thatcher out”   
   
-The crowd gathered around the radio looked at each other worryingly. Fantastic thoughts were swirling through their heads as to what could have been the cause of all of these miners' disappearances. By now the team had been in the mine for a few hours and the time was now 4:02 PM and by quarter past the team had risen out of the mine and were back in the stuffy room. They received a hearty welcome when they returned though it was clear by the look on their faces that they were disappointed that they hadn't found any sign of life and somewhat shaken by the experience. Despite this they were committed return tomorrow with better gear and a proper plan. By now the rest of the world had heard word of the vanishing miners and news reporters had begun arriving at the scene despite local police having set up a perimeter around the mines entrance and the outbuilding. The flashes of the reporters' cameras could be seen from the tree line. However, these distractions couldn't break the attention of the people in that room. By now TVs had been set up showing live feeds of the surveillance cameras that were in the mine. Cam 1 showed the central mines elevator. Cam 2 showed the main passageway from which the path split to vein 1 and vein 2 while Cam 3 showed the open area where the Foremans office lay. However, everyone on in the room was huddled around a map of the mine discussing where the miners could be. The live feeds were completely unattended when just for a moment something fast moved from one of the passageways in Cam 3 and into the Foremans office.    
+The crowd gathered around the radio looked at each other worryingly. Fantastic thoughts were swirling through their heads as to what could have been the cause of all of these miners' disappearances. By now the team had been in the mine for a few hours and the time was now 4:02 PM and by quarter past the team had risen out of the mine and were back in the stuffy room. They received a hearty welcome when they returned though it was clear by the look on their faces that they were disappointed that they hadn't found any sign of life and somewhat shaken by the experience. Despite this they were committed return tomorrow with better gear and a proper plan. By now TVs had been set up showing live feeds of the surveillance cameras that were in the mine. Cam 1 showed the central mines elevator. Cam 2 showed the main passageway from which the path split to vein 1 and vein 2 while Cam 3 showed the open area where the Foremans office lay. However, everyone on in the room was huddled around a map of the mine discussing where the miners could be. The live feeds were completely unattended when just for a moment something fast moved from one of the passageways in Cam 3 and into the Foremans office.    
   
 Come the morrow the air was damp. It had rained the night before, but this hadn't deterred anyone, now more than ever the people in that small stuffy brick room were determined to find the miners. The plan that had been made yesterday evening was for the same team to head into the bowels of the mines with proper safety equipment and find the miners. Each of them was given high visibility vests, industrial strength flashlights and radios.    
   
@@ -160,9 +160,9 @@ Following this exchange there were a few minutes of silence as the radio team wa
   
 “I d..don't think we can trust these men. They bought guns with them. Umber pulled them from his bag a few minutes in. Me and Arthur are too scared to protest. Search and rescue missions don't need sub machine guns.”   
   
-In the background the voices of Thatcher and Athur could be heard talking. The transmission ended suddenly.   
+In the background the voices of Thatcher and Arthur could be heard talking. The transmission ended suddenly.   
   
-Smith's back straightened as he readied for the questions that he was going to be asked. The first to break the silence was the man in the grey suit who asked cooly.   
+Smith's back straightened as he readied for the questions that he was going to be asked. The first to break the silence was the man in the grey suit who asked coolly.   
   
 “Who is it exactly that you work for again”   
   
@@ -206,12 +206,10 @@ The voice of Thatcher screaming into the radio filled the small brick room with 
   
 The silence was telling. Smith slumped back in his chair. He held his head in his hands and said nothing.    
   
-For the rest of the day nothing was heard through the radio. Others tried to reach the team but were met with no reply. Since then, nothing has been heard from the Colton mine system. No one has been permitted to enter the mine and the incident was written off as a chemical leak that asphyxiated the miners killing them immediately. The rescue team were never mentioned in the official report, to the families of the five men three different stories were told. The off-duty miner was said to have been in the mine come the chemical leak whilst the three royal marines were said to be KIA. As for the paramedic Arthur he was just another missing person destined to be a forgotten file at the bottom of a dusty, coffee-stained filling cabinet. The mines entrance was blocked off in the months following the incident. The media moved on, and the world forgot about the incident. But I didn't. I was technician working under DSI Clara Barkley. I didn't do much, I helped get the lights on but apart from that I was just an observer but what happened in that mine was far different from what they said happened in the public report. I can't stand by while they lie to the world. This is my account of the true events that happened in Colton mine on September 12th, 2024.   
+For the rest of the day nothing was heard through the radio. Others tried to reach the team but were met with no reply. Since then, nothing has been heard from the Colton mine system. No one has been permitted to enter the mine and the incident was written off as a chemical leak that asphyxiated the miners killing them immediately. The rescue team were never mentioned in the official report, to the families of the five men three different stories were told. The off-duty miner was said to have been in the mine come the chemical leak whilst the three royal marines were said to be KIA. As for the paramedic Arthur he was just another missing person destined to be a forgotten file at the bottom of a dusty, coffee-stained filling cabinet. The mines entrance was blocked off in the months following the incident. Everyone just forgot about the event and went on like it never happened. But I didn't. I was technician working under DSI Clara Barkley. I didn't do much, I helped get the lights on but apart from that I was just an observer but what happened in that mine was far different from what they said happened in the public report. I can't stand by while they lie to the world. This is my account of the true events that happened in Colton mine on September 12th, 2024.   
   
    
   
-Signed John Reed.   
-  
-   
-  
- 
+Signed John Reed. 
+
+(Altered for r/nosleep)
