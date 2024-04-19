@@ -254,7 +254,7 @@ Everything was blurry. I could barely hear the faint sound of people trying to g
 
 After just a few minutes, I was down. They immediately rushed me to the ER, where I stayed for three weeks. I sustained a broken rib, a broken collar bone, severe bruising, and a concussion, just to name a few. Not to mention the mental trauma. 
 
-I’m writing this as I’m feeling ready to finally tell my story. This is the first time I’m digging back into my memories and recollecting the whole experience. I’ve started to work through all this with a therapist, and it’s made me realize I need to get it all out of my system. 
+I’m writing this as I’m feeling ready to finally tell my story. This is the first time I’m digging back into my memories and recollecting the whole experience. I’ve started to work through all this with a therapist, and it’s made me realize I need to get it all out of my system. Don’t bother trying to find anything about this story. The owners of the park have done a suspiciously good job hiding it. That’s another reason I want to get my story out there. They have completely scrubbed the internet of it somehow.
 
 Although talking with a professional has helped, there are still some sounds and images that I can just never completely get out of my head. 
 
