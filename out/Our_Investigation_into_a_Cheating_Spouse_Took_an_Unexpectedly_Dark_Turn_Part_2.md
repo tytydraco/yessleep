@@ -76,7 +76,7 @@ Chantrea's messages to Zane were laced with a mix of professional detachment and
 
 Among the flurry of texts, one conversation, in particular, catches our eye, a discussion that paints a clear picture of Zane's reckless pursuit of thrill at the expense of others' feelings.
 
-In this exchange, Zane suggests introducing another worker from the parlor, Soriya, into their liaisons. His message is cavalier, treating the proposition as nothing more than a novel adventure to spice up their encounters. However, Chantrea's response is anything but enthusiastic. She reacts with a mix of hurt and indignation, her words sharp and cutting. She accuses Zane of diminishing what they had. Her threat to end their relationship over this is clear and unmistakable, leaving no room for misunderstanding.
+In this exchange, Zane suggests introducing another worker from the parlor, Soriya, into their liaisons. His message is cavalier, treating the proposition as nothing more than a novel adventure to spice up their encounters. However, Chantrea's response is anything but enthusiastic. She reacts with a mix of hurt and indignation to a ménage à trois. She accuses Zane of diminishing what they had. Her threat to end their relationship over this is clear and unmistakable, leaving no room for misunderstanding.
 
 The revelation of this discord adds another layer to the already complex narrative. Zane, in an attempt to mend fences and perhaps soothe his guilt, resorts to a classic, albeit clichéd, gesture—a bouquet of roses. His subsequent visit to the quaint flower shop, as captured by our surveillance, now takes on a new significance. It was an attempt at reconciliation, a plea for forgiveness wrapped in the delicate petals of flowers. 
 
@@ -356,7 +356,7 @@ A sickening sound of tearing flesh and snapping bones echoes through my ears. Sh
 
 As Chantrea's rage finds its terrifying crescendo, she tosses the two halves of his body in opposite directions with the indifference of a capricious child discarding a broken toy. 
 
-The right half flies through the air, trailing a ribbon of entrails and blood, before slamming into a large shelving unit near us. The impact is thunderous, reverberating through the vast warehouse. Iit sends the heavy shelving teetering dangerously.
+The right half flies through the air, trailing a ribbon of entrails and blood, before slamming into a large shelving unit near us. The impact is thunderous, reverberating through the vast warehouse. It sends the heavy shelving teetering dangerously.
 
 We barely have time to react. The shelving unit, overloaded with crates and metal tools, groans ominously, threatening to collapse. Reine grabs my arm, pulling me back just as the structure gives way, crashing down where we were crouched moments ago. Dust and debris fill the air, the crash masking our frantic movements as we scramble for new cover.
 
@@ -366,6 +366,6 @@ As the dust settles, we find ourselves barely a dozen yards from her, our positi
 
 Realizing the futility of standing our ground, I grab Reine's hand, squeezing it tightly. "Run!" I shout.
 
-[X](https://www.reddit.com/r/PageTurner627Horror/comments/19aj3pu/i_found_out_why_my_dad_never_talked_about_his/)
+[X](https://www.reddit.com/r/PageTurner627Horror/comments/1bg4l0g/i_found_out_why_my_dad_never_talked_about_his/)
 
 [Y](https://www.youtube.com/watch?v=MGd1F6Ay8ho)
