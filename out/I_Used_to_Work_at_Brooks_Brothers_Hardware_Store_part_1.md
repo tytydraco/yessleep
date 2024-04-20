@@ -1,6 +1,6 @@
 The Brooks Brother’s Hardware store stood alone on its main street block. Chipped layers of white-washed paint contrasted the darkness inside the tall narrow windows. Faded posters advertising Case knives and hand tools hung in the ground level windows, but the only thing in the second story windows, was a thick layer of cobwebs. Tonight, however the faint flicker of candle light betrayed the fact someone was upstairs.  
   
-The autumn breeze carried my breath away in white puffs as I lingered across the street, gripping my Maglite felt in shivering hands. I missed my coat, purposefully forgotten inside a few hours earlier. I took a deep breath of cold air and stepped into the street.  
+The autumn breeze carried my breath away in white puffs as I lingered across the street, gripping my Maglite in shivering hands. I missed my coat, purposefully forgotten inside a few hours earlier. I took a deep breath of cold air and stepped into the street.  
   
    
   
