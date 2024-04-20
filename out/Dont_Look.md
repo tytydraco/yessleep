@@ -93,7 +93,3 @@ But I plan to sell the house for dirt cheap, and use the money to move out of st
 I also want answers, though. To know what happened to my family and me. And I often think of the little shadow boy from back then that would play with me at night and tried to protect me during those nights of terror. I often wonder if he was just a little kid like me, and they came for him too.
 
 I wonder if he looked.
-
-Finale
-
-[https://www.reddit.com/r/nosleep/comments/1c2r19x/dont\_look\_finale/](https://www.reddit.com/r/nosleep/comments/1c2r19x/dont_look_finale/)

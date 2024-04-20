@@ -20,7 +20,7 @@ But I thought the world had returned to a kind-of normal.
 
 The guy was my Dad’s age, a stocky man in his early fifties who *really* liked Taylor Swift. 
 
-When slid onto the backseat, he was blasting a love ballad. I could see her entire physical discography piled on the front seat. Maybe he had a daughter.
+When I slid onto the backseat, he was blasting a love ballad. I could see her entire physical discography piled on the front seat. Maybe he had a daughter.
 
 He didn't elaborate on his words, and I leaned back on comfortable upholstery, wearing my mask as instructed. I tried to open the window to let some air in, except they had been manually sealed. 
 
@@ -180,7 +180,9 @@ I followed his pointer finger.
 
 The gates. 
 
-At first, my body confused *running* with *throwing up*. I was on my knees, heaving up my lunch, and then was running, throwing myself into a sprint, cheered by the two students hanging out the windows. When I risked a look back, Mrs Mayor was standing with her arms folded, lips pursed. She made no move to run after me. This school was psychotic. 
+At first, my body confused *running* with *throwing up*. I was on my knees, heaving up my lunch, and then I was running, throwing myself into a sprint, cheered by the two students hanging out the windows. 
+
+When I risked a look back, Mrs Mayor was standing with her arms folded, lips pursed. She made no move to run after me. This school was psychotic. 
 
 I threw myself into a run, falling over my shoes, my head spinning. 
 
@@ -256,13 +258,17 @@ She told me the devil lived among them, so the teachers were playing a game.
 
 “I’m Thea.” She introduced herself with that exact same empty smile, vacant eyes that barely found mine. Thea was pretty. I focused on her face instead of the rapidly growing cavern in my mind.
 
-I still wasn't sure how I had moved from A to B. I was standing in front of the shdoll gate, and then I was in the girl’s dorm, Mrs Mayor’s words were still clanging in my skull. I had the potential to be great.
+I still wasn't sure how I had moved from A to B. 
+
+I was standing in front of the school gate, and then I was in the girl’s dorm, Mrs Mayor’s words still clanging in my skull. *I had the potential to be great.*
 
 I had the potential to be the best. 
 
 Thea was kneeling in front of me, her head inclined. 
 
-“Hello?” she waved a manicured hand in front of my face, a frown curving on her lips. “The brain fog should wear off after a while,” she murmured. “I smoked weed, though I'd advise against that. Unsurprisingly, weed makes it worse.”
+“Hello?” she waved a manicured hand in front of my face, a frown curving on her lips. 
+
+“The brain fog should wear off after a while,” she murmured. “I smoked weed, though I'd advise against that. Unsurprisingly, weed makes it worse.”
 
 I didn't respond. It was like being high, but at the same time, I was fully aware of my mind being contorted, rewired, which was kinda… ticklish. 
 
@@ -296,7 +302,7 @@ I found my voice, choking on words that were not mine.
 
 Thea laughed, and I caught that same *mania* twitching in her eyes.
 
-“She didn't *do* anything to you,” Thea rolled her eyes, tipping onto her side, burying her head in an impressive collection of plushies. “It's airborne. So, no matter how in denial you are right now, you have it,” she mumbled into a stuffed bear. “Like a virus. We’re all infected with it the second we walk in here.”
+“She didn't *do* anything to you,” Thea rolled her eyes, tipping onto her side, burying her head in an impressive collection of plushies. “It's airborne. So, no matter how in denial you are right now, you have it,” she mumbled into a stuffed bear. “Like a virus, we're all infected with it the second we walk in here.”
 
 *It*?” I managed to whisper.
 
@@ -354,7 +360,9 @@ Once I saw him, I couldn't get him out of my head.
 
 It started subtly, a hollow thought at the back of my mind that wanted to get close to him. But once I was close enough, next to him in class, breathing in his scent and suddenly conscious of every movement he made, I understood what my roommate was talking about. 
 
-The parasite inside my brain planted on my first day began to slowly eat away at my thoughts until there was no-one else but him. Nicholas Cross. Rich brown curls, sculpted in the school’s prestigious uniform, a mind that I was ravenous for, a hierarchy position I *needed* to rip from him. Obsession became infatuation, and then something more. I started to talk to him in class, trying to make conversation. 
+The parasite inside my brain planted on my first day began to slowly eat away at my thoughts until there was no-one else but him. Nicholas Cross. Rich brown curls, sculpted in the school’s prestigious uniform, a mind that I was ravenous for, a hierarchy position I *needed* to rip from him. 
+
+Obsession became infatuation, and then something more. I started to talk to him in class, trying to make conversation. 
 
 But I couldn't fucking think straight. 
 
@@ -364,7 +372,7 @@ His presence was suffocating, twisting infatuation to envy, and envy to *hate*.
 
 Nicholas Cross was a target every day. 
 
-I walked into English to find two boys pushing him out of the window. 
+I walked into English class to find two boys pushing him out of the window. 
 
 He was fine, appearing an hour later, picking strands of grass out of his hair. 
 
@@ -478,7 +486,7 @@ Nick nodded at me, grinning through his sandwich.
 
 He cocked his head, his eyes bright. “Can I call you Luce? Like, Lucy Goosey.”
 
-His eyes, Mrs Mayor whispered in my ear. 
+*His eyes*, Mrs Mayor whispered in my ear. 
 
 *The eyes of the devil.*
 
@@ -548,7 +556,9 @@ I have my own problems, though.
 
 I'm really gassy, and I can't stop throwing up. 
 
-This morning, I knelt on the bathroom floor for three hours, heaving up nothing. But I can already feel him. He's been in my stomach for days, slowly stitching himself back together. His fingers are there, I can feel them. 
+This morning, I knelt on the bathroom floor for three hours, heaving up nothing. But I can already feel him. 
+
+He's been in my stomach for days, slowly stitching himself back together. His fingers are there, I can feel them. 
 
 He's clawing his way back up my throat, expanding in my mouth, phantom fingers protruding through my gnawing lips, trying to force them open.
 
