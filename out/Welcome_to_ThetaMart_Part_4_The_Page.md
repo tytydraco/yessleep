@@ -264,7 +264,7 @@ I didn’t even have to vocalize my thought. The moment I thought it Maully alre
 
 Maully made an expression somewhere between a grin and a snarl. Its breath smelled like mildew and pondscum.
 
-“Run, fruit fly…”
+*“Run, fruit fly…”*
 
 They didn’t have to tell me twice. I took off in a sprint down the nearest aisle with the hoe and gardening tool in hand. The foliage moved and writhed like snakes, making it increasingly harder to figure out where we were going and where we had been. With every stride, Fred would slip a little in my grip. The oily, semi-melted plastic layer on him made it almost impossible to keep ahold of. But I owed him now. I wasn’t gonna leave him behind again.
 
@@ -276,7 +276,7 @@ I could hear the vines of the creature rip and snap like a tree falling in a sto
 
 Maully followed quickly and with a singular purpose, hot on our heels and making a mess of things as they plowed through every solid object that got in their way. It was as like they knew every move I was going to make even before I did.
 
-“You can’t run forever Floater!” It’s voice inside my head hissed like toxic gas let loose from a valve. The chill caused my shoulders to seize up toward my neck.
+*“You can’t run forever Floater!”* It’s voice inside my head hissed like toxic gas let loose from a valve. The chill caused my shoulders to seize up toward my neck.
 
 I wanted to say something equally imposing back to hide the fact I might actually piss my pants, but all I could muster was, “I’m submitting a complaint with HR!”
 
@@ -302,11 +302,11 @@ Maully huffed and hissed waiting for me to make a mistake, to shift just close e
 
 This game they played becoming increasingly harder as an itching and burning sensation began to bloom from every inch of of my body that made contact with Maully slobber, the desire to begin wiggling and shifting with discomfort was nearly unbearable. Between that and the thorns…I’d have paid every cent I had to crawl out of my skin.
 
-“Little fruit fly. Stuck in web. The thorns hurt, don’t they…” When they spoke, it wasn’t like hearing a foreign voice in my head. It was like hearing my own thoughts. My own voice, but I knew I didn’t think them. Sinister messages rising to the top of my mind like bubbles forcing themselves to the surface. And they were loud… so loud. The longer time went on the more impatient and intrusive Maully became. “I can set you free, you know. I can mend your wounds. The thorns won’t hurt you if you become a part of them.” Maully pushed against a cluster of vines cause the part that held me suspended to tighten. The thorns slowly pressing further and further into my neck, chest and arms, dragging along my skin like snakes. It was becoming harder and harder to breathe.
+*“Little fruit fly. Stuck in web. The thorns hurt, don’t they…”* When they spoke, it wasn’t like hearing a foreign voice in my head. It was like hearing my own thoughts. My own voice, but I knew I didn’t think them. Sinister messages rising to the top of my mind like bubbles forcing themselves to the surface. And they were loud… so loud. The longer time went on the more impatient and intrusive Maully became. *“I can set you free, you know. I can mend your wounds. The thorns won’t hurt you if you become a part of them.”* Maully pushed against a cluster of vines cause the part that held me suspended to tighten. The thorns slowly pressing further and further into my neck, chest and arms, dragging along my skin like snakes. It was becoming harder and harder to breathe.
 
-“Little shrub left outside to wither and die…no one to tend to you. Help you grow. You became a weed, waiting to be ripped from the root…” There was something poking around in my head. Tendrils slinking around in the cracks and creases of my mind to anchor themselves. I squeezed my eyes shut and shook my head trying to get them out. “Fuck you! Just eat me if you’re gonna!!”
+*“Little shrub left outside to wither and die…no one to tend to you. Help you grow. You became a weed, waiting to be ripped from the root…”* There was something poking around in my head. Tendrils slinking around in the cracks and creases of my mind to anchor themselves. I squeezed my eyes shut and shook my head trying to get them out. “Fuck you! Just eat me if you’re gonna!!”
 
-“...Wasteful.”
+*“...Wasteful.”*
 
 A sharp pang of pain erupted in my side. My eyes only flicking from Maully just long enough to see the cause. I immediately regretted it the moment my brain untangled what I was seeing. It took everything in me…not to start screaming.
 
@@ -316,4 +316,4 @@ Just sunshine…
 
 The closer Maully got, the more they salivated. It was like having my head under a smelly, hot slime tap now. My eyes began to roll back. Weighted 8-balls in my head feeling impossible to control. With the strength I had left I twitched trying to fight the sensation of the coils snaking around in my insides. Poking past my stomach, brushing against my lungs.
 
-The connection to the plexus now, feeling raw and real. More real than myself or any of my memories. For a moment I questioned if I was ever separate from it to begin with. The sensation of their insatiable desire to integrate everything I was rippled across my nerves. To learn all that I knew, to show me the power of nature and how small I was. I was just a simple cell, a tiny spark in the grand microcosm of the organism that lived within these walls. My life was so small. insignificant in the grand scheme of the plexus… of Maully. Just a little fruit fly.
+The connection to the plexus now, feeling raw and real. More real than myself or any of my memories. For a moment I questioned if I was ever separate from it to begin with. The sensation of their insatiable desire to integrate everything I was rippled across my nerves. To learn all that I knew, to show me the power of nature and how small I was. I was just a simple cell, a tiny spark in the grand microcosm of the organism that lived within these walls. My life was so small. insignificant in the grand scheme of the plexus… of Maully. *Just a little fruit fly*.
