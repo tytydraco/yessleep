@@ -122,7 +122,7 @@ Trails of blood swerved their way down the nave and towards the rectory. From th
 
 There were what looked like three men in black robes facing a pile of naked bodies. The bodies all had those same purplish-black buboes covering their pale flesh. In the middle of them, I saw the boy, the victim who had disappeared from the hostage rescue a week ago. But he looked different now. His eyes were black, and his face had started to drip and change. His nose had stretched out and become almost bird-like, and his flesh had started to harden into something pale and dead.
 
-The other men turned. To my horror, I saw they had the final version of the transformed faces. Their faces had morphed into something bird-like and skeletal, as if their flesh had become living plague doctor masks.
+The other men turned. To my horror, I saw they had the final version of the transformed faces. Their faces had morphed into something bird-like and skeletal, as if their flesh had become living plague doctor masks. A smell like mummified bodies and septic shock radiated off of them.
 
 “You are a victim of the spreading sickness,” one hissed through its pale beak as its black robes fluttered around its body. “I am the cure.” Their eyes, too, were black. Tiny, sharp fangs lined their mouths, like the teeth of some prehistoric dinosaur.
 
