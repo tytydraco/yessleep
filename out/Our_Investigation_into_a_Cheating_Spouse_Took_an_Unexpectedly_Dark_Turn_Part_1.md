@@ -148,7 +148,7 @@ Zane pulls into the parking lot of L'Etoile du Nord, a boutique hotel, a place t
 
 Perched in our vehicle across the street, we watch Zane through binoculars, the lens bringing him into sharp relief against the backdrop of the hotel's understated elegance. He waits by the entrance, the bouquet of roses in hand, the casual stance of a man comfortable in his surroundings.
 
-Moments later, a woman approaches. She's strikingly beautiful, with straight black hair that cascades down her back—hair unmistakably similar to the tangle left on Astrid's doorstep.
+Moments later, a woman approaches. She's strikingly beautiful with high cheekbones and a delicate, structured jawline. Her eyes, a deep brown, are alert yet hold a hint of mystery. Most distinguishing is her straight black hair that cascades down her back—hair unmistakably similar to the tangle left on Astrid's doorstep.
 
 The air between them is charged, their reunion marked by an intimacy that leaves little doubt of their relationship. They embrace, a greeting that quickly deepens into a kiss, a confirmation of suspicions we didn't want to validate. Reine, with a camera in hand, captures this exchange, the shutter clicks a silent witness to the betrayal unfolding before us.
 
@@ -198,7 +198,7 @@ My stomach turns, the scene defying logic and sanity. But it’s not just the ho
 
 “Reine, where’s the—” My question cuts short as a cold grip tightens around my wrist.
 
-Before she can answer, a cold, strong grip encircles my arm. I whirl around, my heart pounding, to face the headless, nude body of the woman. Her grip is iron-clad, her strength unnatural. In disbelief, I see the sinew and muscle of her neck twitch and pulse where her head should be. 
+Before she can answer, a cold, strong grip encircles my arm. I whirl around, my heart pounding, to face the headless, nude body of the woman. Her grip is iron-clad, her strength unnatural. In disbelief, I see the sinew and muscle of her neck twitch and pulse where her head should be.
 
 I try to level my pistol at the headless torso, aiming to neutralize the threat. But she's too fast, too strong. With an unexpected force, she twists my wrist painfully, causing my shot to go wide. The bullet, meant to stop her, punches a hole into the plush carpeting of the hotel room.
 
@@ -208,19 +208,17 @@ As the grotesque head with its snake-like tendrils flies towards Reine, I watch 
 
 Reine struggles against the creature's grip, but the tendrils tighten, constricting like boa constrictors. They wind around her neck, her torso, squeezing with a strength that is both terrifying and otherworldly. Reine's face contorts with pain, her eyes meeting mine, a silent plea for help written in her gaze.
 
-"Reine!" I shout, desperation lacing my voice. My partner, my wife, the person I've faced countless dangers with, is now inches away from death by this unimaginable foe. 
+"Reine!" I shout, desperation lacing my voice. My partner, my wife, the person I've faced countless dangers with, is now inches away from death by this unimaginable foe.
 
 With every fiber of my being shaking, I yell at the creature, my voice firm despite the chaos. "Let her go!”
 
 For a fleeting second, the tension in the room ripples with the uncertainty of the creature's response. Then, in a voice that is eerily calm and chillingly clear despite its formless source, the creature responds. "Stay out of my way. I won’t warn you again."
 
-Then, abruptly, the creature's grip loosens around Reine and drops her. Reine gasps for air, her face flushed from the constriction. 
+Then, abruptly, the creature's grip loosens around Reine and drops her. Reine gasps for air, her face flushed from the constriction.
 
-As the headless woman releases her vice-like grip on my forearm, I rush towards Reine as she stumbles back into my arms. I catch her, my relief palpable.
-We both regain our footing, keeping wary eyes on the creature.
+As the headless woman releases her vice-like grip on my forearm, I rush towards Reine as she stumbles back into my arms. I catch her, my relief palpable. We both regain our footing, keeping wary eyes on the creature.
 
 As we watch, stunned, the head slowly drifts back towards the woman’s body, reattaching  itself to her neck. The seams where flesh meets flesh knit together in a spectacle that's both horrifying and mesmerizing. Within moments, the transformation is complete, and the woman stands before us, her appearance as flawless and composed as when Zane first greeted her outside the hotel.
-
 
 In the chaos of the moment, the entity undergoes yet another grotesque transformation. A pair of dark, leathery wings unfurl from its back with a sinister grace. They're massive, spanning the width of the room, knocking over furniture as if they're mere obstacles in its path.
 
