@@ -102,8 +102,6 @@ Taking a deep breath, I meet Mai's gaze. "Hi, Mai. I'm, uh, sort of new to this 
 
 "Actually, I was thinking of something perhaps more along the lines of a private therapy session," I venture, using the coded language Chantrea and Zane had employed in their texts. “You know, something more... personal?”
 
-"Actually, I was hoping to inquire about something a bit... specialized," I say, leaning in slightly, lowering my voice as though to invite confidentiality.
-
 Mai's expression shifts subtly, her welcoming smile tempering into something more guarded, but still polite. Her eyes scrutinize me for any hint of duplicity. "You say your friend tell you about us?" she asks. “Who your friend?”
 
 ​​Mai's question catches me slightly off guard. I figure that Zane, with his double life, would likely have used a pseudonym during his visits here. I think back to Zane’s texts with Chantrea, remembering seeing him occasionally refer to himself as "Mr. Zen" in their conversations.  
@@ -116,7 +114,7 @@ Mai's expression shifts subtly, her welcoming smile tempering into something mor
 
 Feeling the pressure, I push a bit harder, the story pouring out more desperately now.
 
-"Look, Mai," I start, my voice lowering to a conspiratorial whisper. "I'm gonna be honest with you. My marriage, it's... it's on the rocks. My wife has been my fucking case a lot lately. And to make matters worst, we haven't been... connected, you know, intimately, for months. I'm just looking for something to feel again, to bring back some... spark."
+"Look, Mai," I start, my voice lowering to a conspiratorial whisper. "I'm gonna be honest with you. My marriage, it's... it's on the rocks. My wife has been my fucking case a lot lately. And to make matters worse, we haven't been... connected, you know, intimately, for months. I'm just looking for something to feel again, to bring back some... spark."
 
 Mai looks at me, her face showing a hint of curiosity. "Oh, I see. You have big stress, huh?"
 
@@ -128,13 +126,13 @@ She locks onto me with an intensity that lets me know she’s more afraid of her
 
 "Look, I'm not a cop or anything," I assure her, my tone earnest. "I'm just a guy at the end of his rope, looking for some relief."
 
-“Okay, I understand," Mai relents. She takes a deep breath, glancing once more around the dimly lit lobby before reaching under the counter and pulling out a glossy brochure that she hands over to us with a flourish. "We offer very special session. Make you feel new love. Guarantee very happy ending. You interested?"
+“Okay, I understand," Mai relents. She takes a deep breath, before reaching under the counter and pulling out a glossy brochure that she hands over to us with a flourish. "We offer very special session. Make you feel new love. Guarantee very happy ending. You interested?"
 
 “Yes, very much," I reply, genuinely relieved. “Thank you.”
 
 I follow Mai to a waiting room that is small and tastefully decorated, with a single plush chair and a small table adorned with magazines and a vase of fresh flowers. She gestures to the chair. 
 
-"You take time. No rush," she tells me, handing me a glossy brochure. "Each girl very skilled. You choose, then tell me. I make special arrangement for you."
+"You take time. No rush," she tells me. "Each girl very skilled. You choose, then tell me. I make special arrangement for you."
 
 Opening the brochure, I find myself looking at a series of suggestive yet tasteful photos of masseuses, each accompanied by a name and a brief description of their specialties. 
 
