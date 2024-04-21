@@ -160,7 +160,7 @@ After a short wait that felt longer due to the anticipation, the door curtain ru
 
 I give her one of the aliases I often use in these situations. "Hey, Soriya. My name's Sonny. It's nice to meet you..."
 
-why your clothes still on?" she asks, her expression one of playful admonishment as she pouts seductively. "Massage cannot start until you take off."
+"Sonny, why your clothes still on?" she asks, her expression one of playful admonishment as she pouts seductively. "Massage cannot start until you take off."
 
 "Hey, actually, I was hoping we could just talk for a bit," I say uncomfortably. 
 
@@ -318,7 +318,7 @@ Reine calls in a few favors from contacts who can keep the police off our trail 
 
 We load up on equipment—more than the usual. We're not taking any chances. The arsenal in our trunk would make a small militia envious. We've got AR-15s, tactical vests studded with extra magazines, and a couple of Glock 19s with suppressors. Everything's laid out in the back of our SUV like a dealer's display at a gun show.
 
-We throw in a bit of sage and salt for good measure. Reine says they’re good for warding off evil spirits according to Cajun myth. I’m skeptical, but I’ve seen enough tonight to entertain many possibilities.
+We meticulously rig improvised explosive devices, packing them into little sacks filled with sage and garlic.  Reine says they’re good for warding off evil spirits according to Cajun myth. I’m skeptical, but I’ve seen enough tonight to entertain many possibilities. 
 
 The drive to the warehouse is tense. We go over the plan repeatedly. Infiltrate quietly and get to Chantrea before something regrettable happens. 
 
