@@ -74,9 +74,11 @@ At the same time?
 
 The Pirate King ended with no satisfying conclusion, not even a scene with the kids being real pirates. 
 
-Saturday morning TV became boring. The studio tried to bring in copy-cat replicas, but neither of them were good enough. There *was* a gameshow with a similar concept, but instead of pirates, it was spies. It was for older kids, so there was a lot more drama. But again, it wasn't The Pirate King. We had all grown up with Topper, Jinx, Leia, and Bellamy, so losing them was jarring. 
+Saturday morning TV became boring. The studio tried to bring in copy-cat replicas, but neither of them were good enough. There *was* a gameshow with a similar concept, but instead of pirates, it was spies. It was for older kids, so there was a lot more drama. 
 
-Without their familiar fToppers on our screens every Saturday, the kids in my town slowly started to lose interest. 
+But again, it wasn't The Pirate King. We had all grown up with Topper, Jinx, Leia, and Bellamy, so losing them was jarring. 
+
+Without their familiar faces on our screens every Saturday, the kids in my town slowly started to lose interest. 
 
 I was semi watching the spy show until the main leads *died* in an explosion escaping their evil parents. 
 
@@ -90,7 +92,9 @@ I got bored, and watched Spongebob on cable, instead.
 
 For my twelfth birthday, Mom surprised me with an audition for a brand new production. 
 
-*Cabbage Patch* was Bright Smile Studio's latest attempt at making another Pirate King. This time for older kids, the age range for applicants was 11 to 13. I had seen advertisements and casting calls all over town. Mom didn't tell me, but she had already signed me up and received a call back. So, instead of presents and birthday cake, I was being dragged to the other side of town for an audition I was barely interested in.
+*Cabbage Patch* was Bright Smile Studio's latest attempt at making another Pirate King. This time for older kids, the age range for applicants was 11 to 13. I had seen advertisements and casting calls all over town. 
+
+Mom didn't tell me, but she had already signed me up and received a call back. So, instead of presents and birthday cake, I was being dragged to the other side of town for an audition I was barely interested in.
 
 The whole thing was a full day process. 
 
@@ -202,7 +206,7 @@ I felt my cheeks going scarlet, my eyes filling with tears.
 
 The woman sighed, her gaze glued to her laptop. “Be nice to the kid or you're going back into Q, young man. Your choice.”
  
-Jinx groaned, jumping up and down on his heels. For a seventeen year old, he was acting like a child. Settling me with a patronising smile. The boy was suddenly bursting with energy, as if he'd just inhaled helium, jumping in front of me like a cartoon character. 
+Jinx groaned, jumping up and down on his heels. For a seventeen year old, he was acting like a child. Settling me with a patronising smile, the boy was suddenly bursting with energy, as if he'd just inhaled helium, jumping in front of me like a cartoon character. 
 
 “Aww, I'm *so* glad you like the show!” He said, forcing a painful grin, reminiscent of his pirate self. “That's like, suuuper great! Have a *funtastic* day, all right? Don't do drugs! Drugs bad!”
 
