@@ -1,12 +1,16 @@
  
 
-*Okay. I don’t have much time. I’m writing this because I want people to know what’s happening to me.* 
+*Alright. I’m posting this from a laptop I stole. Probably the only one in this place that can actually access the outside, although I don’t know for certain. Honestly, I don’t know if anybody’s going to see this, but…I have to try. Okay. I don’t have much time. I’m writing this because I want people to know what’s happening to me.* 
 
 ***Nothing ever really stays dead down here.*** *That’s the first rule. The most important rule. The rule you really need to remember.*
 
 *I guess I should start at the beginning–shit, I’m bad at this. I was a college student, before…everything. I mean, before this place. Before the Machine.*
 
 *But I’m getting ahead of myself. Sorry. Ah, well–here goes.*
+
+Not sure how long ago it all started. Maybe two years? One? Three? Time doesn’t really work right here. Anyway—I’ll start at the beginning, like I said. I will try to recall everything as accurately as I can.
+
+
 
 I don’t know how I got here. Nobody does. I can’t explain it. I was on a bus to campus, I fell asleep…and then next thing I know I’m waking up in a dark, empty room with steel walls and no furniture.
 
@@ -149,6 +153,7 @@ She shakes her head. “Look, River—there’s a lot you don’t know about thi
 Before I can say anything, she’s out the door, slamming it shut behind her. I try to follow, but it’s locked. I still have a million questions, and no idea how to process anything Zoe just told me. *Nothing really stays dead down here.* What does that even mean?
 
 The sound of something slamming into the window behind me snaps me out of my reverie. I turn—and immediately stumble backwards, choking on a scream. My breath comes in ragged gasps, and I find myself hyperventilating. Terror grips my chest, freezing me in place. *What the FUCK is that?*
+
 
 *Shit, I think I’m out of time. If I get out of this, I’ll try to update. Otherwise…well, it’s been real, y’all.* 
 
