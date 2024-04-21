@@ -128,9 +128,13 @@ His behaviour, though, was odd.
 
 It was weird, like watching an episode of Animals Do The Funniest Things. 
 
-Jinx acted like a predator closing in on prey. He moved slowly, almost like a Pink Panther skit, taking long strides across the room. When he was caught, the woman shooting him a warning look, the junior pirate held up his hands in mocking surrender. But he didn't give up. After studying her movements and waiting for the exact moment her attention was caught, he tried again.
+Jinx acted like a predator closing in on prey. He moved slowly, almost like a Pink Panther skit, taking long strides across the room. When he was caught, the woman shooting him a warning look, the junior pirate held up his hands in mocking surrender. 
 
-This time, almost like a cartoon, lunging into an abrupt sprint. 
+But he didn't give up. 
+
+After studying her movements and waiting for the exact moment her attention was caught, he tried again.
+
+This time, almost like a cartoon, catapulting into an abrupt sprint. 
 
 He made it halfway towards the automatic doors, before, “Luke!”
 
@@ -180,7 +184,9 @@ I didn't realize I was yelling, until the woman working at the desk told me to h
 
 Jinx lazily dragged his gaze to me like I was a specimen in a jar.
 
-Instead of answering, the kid’s gaze snapped to the candy bars in my hand, his lips curving into a smirk. He scoffed, and something in me snapped in two. The pirate was looking at me like the kids in my school. Jinx cocked his head, mocking his character's smile. 
+Instead of answering, the kid’s gaze snapped to the candy bars in my hand, his lips curving into a smirk. He scoffed, and something in me snapped in two. 
+
+The pirate was looking at me like the kids in my school. Jinx cocked his head, mocking his character's smile. 
 
 “Jeez, don't you have *enough* candy, Chubs?” he laughed loudly, and I felt my entire world crashing down. I had been struggling with my weight for a while. I never thought my favorite pirate would point it out so cruelly too. 
 
@@ -220,7 +226,9 @@ Jinx scrunched his nose up. “No, you idiot! Jeez, you're like, too stupid to f
 
 “Luke, stop being a dick.”
 
-Topper, another member of the Pirate King crew, was standing in the doorway. The last time I saw Topper, he was a prepubescent little kid giggling at the camera. This guy was hunched over in a sweatshirt and jeans, hiding under blondish curls. Like Jinx, he didn't suit modern day clothes. I preferred him in his pirate costume. Unlike Jinx, Topper didn't have starry eyes.  His smile wasn't exactly friendly, more of a quirk of amusement. Still, at least he wasn't being an asshole. 
+Topper, another member of the Pirate King crew, was standing in the doorway. The last time I saw Topper, he was a prepubescent little kid giggling at the camera. This guy was hunched over in a sweatshirt and jeans, hiding under blondish curls. Like Jinx, he didn't suit modern day clothes. I preferred him in his pirate costume. *Unlike* Jinx, Topper didn't have starry eyes.  
+
+His smile wasn't exactly friendly, more of a quirk of amusement. Still, at least he wasn't being an asshole. 
 
 There was something in his face I wasn't sure I was allowed to see.
 
