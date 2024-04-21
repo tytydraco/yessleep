@@ -225,3 +225,5 @@ In the chaos of the moment, the entity undergoes yet another grotesque transform
 With a powerful flap, the woman launches herself towards the balcony, shattering the glass doors in her haste to escape. The night air rushes in, mixing with the stench of decay and the iron tang of blood, creating a maelstrom of senses that leaves us momentarily disoriented.
 
 We rush to the balcony, just in time to see the woman disappearing into the dark sky. Her flight is erratic, a sign of its newfound form, but she quickly gains altitude and vanishes into the night, leaving behind a trail of questions and a palpable sense of dread.
+
+[Part 2](https://www.reddit.com/r/PageTurner627Horror/comments/1c99awm/our_investigation_into_a_cheating_spouse_took_an/)
