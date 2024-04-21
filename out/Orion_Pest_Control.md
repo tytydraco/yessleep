@@ -16,7 +16,7 @@ CWD is essentially deer Alzheimer's, so attacks from affected deer are typically
 
 The distended stomach gave me pause. That wasn't usual for CWD. 
 
-Thankfully, it was a slow day so I was able to get over there as soon as possible. Before I left, I called one of the guys from the department of wildlife, knowing that they'd want to hear about it, especially if this was some sort of deer disease that could be going around. The officer said that he and his partner would take a look, but they was going to arrive a bit after me. No problem there. 
+Thankfully, it was a slow day so I was able to get over there as soon as possible. Before I left, I called one of the guys from the department of wildlife, knowing that they'd want to hear about it, especially if this was some sort of deer disease that could be going around. The officer said that he and his partner would take a look, but they were going to arrive a bit after me. No problem there. 
 
 When possible, we live trap the pests that we are called out for. That being said, some of these unidentified animals can be extremely dangerous, which is why a firearm, a container of salt, and a knife with a silver blade are required to be on us for every call, even if it appears to be something harmless. Appearances can be deceiving. My boss learned that the hard way once. As such, the salt and knife stay on my toolbelt at all times. We do also have a tranquilizer gun for larger animals, which I thought would be useful for the deer. 
 
