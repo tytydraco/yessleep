@@ -126,7 +126,7 @@ She locks onto me with an intensity that lets me know she’s more afraid of her
 
 "Look, I'm not a cop or anything," I assure her, my tone earnest. "I'm just a guy at the end of his rope, looking for some relief."
 
-“Okay, I understand," Mai relents. She takes a deep breath, before reaching under the counter and pulling out a glossy brochure that she hands over to us with a flourish. "We offer very special session. Make you feel new love. Guarantee very happy ending. You interested?"
+“Okay, I understand," Mai relents. She takes a deep breath, before reaching under the counter and pulling out a glossy brochure that she hands over to me with a flourish. "We offer very special session. Make you feel new love. Guarantee very happy ending. You interested?"
 
 “Yes, very much," I reply, genuinely relieved. “Thank you.”
 
@@ -156,7 +156,11 @@ As I nod in understanding, Mai pulls a thick curtain across the doorway, enhanci
 
 After a short wait that felt longer due to the anticipation, the door curtain rustles slightly and Soriya enters the room. Her presence commands immediate attention. She wears a silk robe that clings delicately to her form, leaving very little to the imagination—a sheer, flowing garment that accentuates her slender figure. 
 
-"Hey handsome, why your clothes still on?" she asks, her expression one of playful admonishment as she pouts seductively, her eyes scanning over me. "Massage cannot start until you take off."
+"Hey handsome," she greets me, her eyes scanning over me. "My name Soriya. What your name?"
+
+I give her one of the aliases I often use in these situations. "Hey, Soriya. My name's Sonny. It's nice to meet you..."
+
+why your clothes still on?" she asks, her expression one of playful admonishment as she pouts seductively. "Massage cannot start until you take off."
 
 "Hey, actually, I was hoping we could just talk for a bit," I say uncomfortably. 
 
@@ -168,9 +172,17 @@ Soriya's hand is gentle yet firm as she takes my arm, guiding me towards a glass
 
 She's graceful, almost cat-like as she leads me by the arm toward the shower area at the back of the room. Her touch is gentle, yet firm, a professional maneuver designed to ease clients into relaxation.
 
-"You very tense," she observes, her fingers pressing expertly along my shoulders. "I help you relax first, then we talk."
-
 Her hands move to the buttons of my shirt, intending to help me undress. I gently grasp her wrists, stopping her. "I’d really prefer it if we could start with a chat," I insist, trying to keep the situation under control.
+
+"You look strong, like athlete maybe. You work out, yes?" She taps my arm lightly, her touch light and teasing. "Very big muscle, not just fat. Good."
+
+I chuckle awkwardly, not used to being the focus of such comments. "Thanks. Yeah, I try to keep fit."
+
+"Keeping fit good for stress," she nods.
+
+Soriya’s gaze lingers on me, her eyes sparkling flirtation. "You so handsome. Your wife, she crazy to not see what she have. Why she make you so sad?" Her accent is thick, her words laced with a playful yet sincere tone.
+
+"Yeah, it's been tough," I respond, giving a half-smile as I ease into the role we’ve constructed for this undercover interaction. 
 
 I resist the pull slightly, halting her progress. "Actually, Soriya, I really need to talk now. It's important."
 
@@ -200,7 +212,7 @@ I nod. “I do, but they’re disturbing.”
 
 “I don’t care. I need to see,” she insists, her voice firm despite her obvious anxiety.
 
-I pull out my phone, hesitating for a moment before opening the gallery. I show her the gruesome scene you stumbled upon.
+I pull out my phone, hesitating for a moment before opening the gallery. I show her the gruesome scene we stumbled upon.
 
 Soriya takes the device, her hands slightly shaking as she views the photos of Zane's mangled, headless body. She gasps, her face going pale at the sight of the chaos and carnage. "This... Chantrea do this?"
 
@@ -264,7 +276,7 @@ Soriya hesitates. "My sister, she... she say she find the big boss, the one who 
 
 She nods reluctantly, her eyes darting towards the door as if expecting it to burst open at any moment. "His name Jimmy Inthavong. She say he... he worst one."
 
-"Jimmy Inthavong," I repeat, recognizing the name immediately. He's the head of the White Lotus, a mid-tier criminal organization that's been on the radar for everything from illegal gambling rings to murders for hire. 
+"Jimmy Inthavong," I repeat, recognizing the name immediately. He's the head of the Blue Lotus, a mid-tier criminal organization that's been on the radar for everything from illegal gambling rings to murders for hire. 
 
 On the streets, he’s known as “the Shrike” because much like the bird, he has a penchant for impaling those who cross him on sharp objects as a warning to others.
 
@@ -290,7 +302,7 @@ She nods, giving a small, uncertain smile. "Okay, I trust you. Help Chantrea, pl
 
 Reine and I spend the next several hours piecing together the clues Soriya provided, cross-referencing everything from old case files to city planning records. We work well into the night, our office bathed in the soft glow of computer screens and the occasional flicker of streetlights from the window.
 
-We start by pulling up all known addresses connected to Jimmy Inthavong and the White Lotus. We sift through heaps of digital breadcrumbs, ranging from property records to anonymous tips that had come in over the years. Each piece adds to the mosaic of the Shrike's operations but fails to pinpoint the current location.
+We start by pulling up all known addresses connected to Jimmy Inthavong and the Blue Lotus. We sift through heaps of digital breadcrumbs, ranging from property records to anonymous tips that had come in over the years. Each piece adds to the mosaic of the Shrike's operations but fails to pinpoint the current location.
 
 Feeling a bit stumped, we decide to revisit the basics. We review hours of CCTV footage from cameras around suspected Lotus properties, looking for any unusual activity that might indicate the location of the warehouse Soriya mentioned. It's tedious work, but it pays off.
 
@@ -316,7 +328,7 @@ Using a set of bolt cutters, we cut through a chain-link gate and slip onto the 
 
 Every shadow seems to twitch with the possibility of danger, a reminder that we’re walking into the lair of a monster.
 
-Just before reaching the main entrance, Reine stops short, her hand shooting out to halt me. She points to something in the shadows. My eyes follow her gesture, and my stomach tightens as I discern what’s there. A body lies crumpled against the wall. Tattoos snake up the arms and across the exposed torso—clear gang identifiers that match the White Lotus’s known symbols. It’s one of Ithavong’s thugs. 
+Just before reaching the main entrance, Reine stops short, her hand shooting out to halt me. She points to something in the shadows. My eyes follow her gesture, and my stomach tightens as I discern what’s there. A body lies crumpled against the wall. Tattoos snake up the arms and across the exposed torso—clear gang identifiers that match the Blue Lotus’s known symbols. It’s one of Ithavong’s thugs. 
 
 I approach slowly, my flashlight cutting a beam through the darkness to reveal the man’s neck ending in a bloody stump.
 
