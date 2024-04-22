@@ -169,4 +169,6 @@ The words brought some much-needed reassurance to me, and I felt my confidence b
 “Well, at least it isn’t *Beautiful Dreamer* again. Thank God. Now, time to check out those tapes and grab a cup of coffee” And with that, I walked down the hall to the break room, confident that the worst was behind me.
 
   
-I had no idea it was only a prelude of what was to come.
+I had no idea it was only a prelude of what was to come.
+
+[Part 2](https://www.reddit.com/r/nosleep/s/K3mPawRLLv)
