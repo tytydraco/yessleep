@@ -48,7 +48,7 @@ Jack noticed that I'd stopped. He turned around and walked back over to me, plac
 
 "C'mon now," he said gruffly and started guiding me further from the parking lot. It was then that I realized that, despite all my misgivings about the world, I really *did* still care what happened to me. I didn't want to be hurt. I didn't want to die. I raised an arm and tried to push Jack's hand off my shoulder, but he tightened his grip so hard I thought he was about to break a bone. I thought I was done for before a shout from behind us startled us both.
 
-"Hey! Stop right now!" I turned my head towards the parking lot and saw the barista from earlier running towards up at full speed. "You stop right there!"
+"Hey! Stop right now!" I turned my head towards the parking lot and saw the barista from earlier running towards us at full speed. "You stop right there!"
 
 Now this woman was maybe 4'11, and I'm pretty sure Jack could've picked her up and thrown her like a football if he wanted to, but her voice was loud and strong, and as she yelled out, she attracted a lot of attention. As soon as he realized we'd been spotted, he let go of my shoulder and made a run for it. Lydia came to a stop next to me, taking my hand and gently guiding me back towards the group of witnesses in the parking lot. Once we'd made it to safety, she called the police, who arrived quickly to take our statements. However, after listening to my whole story, they ended up taking me to the station for questioning. Lydia came along with me, which made me feel a lot better.
 
