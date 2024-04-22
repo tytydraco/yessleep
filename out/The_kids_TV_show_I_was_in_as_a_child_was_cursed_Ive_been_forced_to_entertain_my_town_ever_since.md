@@ -408,9 +408,9 @@ I nudged him, and he made a groaning noise.
 
 I was already uncomfortable in a club full of adults. 
 
-“Boys.” The Mayor cleared his throat, sliding over a baggie of white powder.
+“Boys.” The Mayor cleared his throat, dropping a baggie of white powder.
 
-Harry leaned forward, sliding over the baggie with his index. I didn't even know he was conscious. “Thank ya.”
+Harry leaned forward, sliding over the powder with his index. I didn't even know he was conscious. “Thank ya.”
 
 I lost Harry when our director encouraged us to take cocaine to exaggerate the *zaniness* of Cabbage Patch. 
 
