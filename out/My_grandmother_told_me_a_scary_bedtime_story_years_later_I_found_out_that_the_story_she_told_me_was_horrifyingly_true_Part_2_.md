@@ -50,9 +50,7 @@ Now, with a single turn of his hand, the lock yielded, revealing the unknown dep
 
 A single, bare bulb flickered to life as he pulled the light string. The harsh yellow glow illuminated a scene that sent a jolt of fear through me. 
 
-Guns—an arsenal of them—lined the walls. A 
-
-hunting rifle I remembered from childhood hung next to a pump shotgun and a well-worn.22 pistol I vaguely recognized as the one he’d used to teach me to shoot years ago.
+Guns—an arsenal of them—lined the walls. A hunting rifle I remembered from childhood hung next to a pump shotgun and a well-worn.22 pistol I vaguely recognized as the one he’d used to teach me to shoot years ago.
 
 A horrible realization dawned on me. This wasn’t a simple search. My grandpa’s eyes, burning with a desperate resolve, told a different story. This was a mission fueled by vengeance—a descent into the darkness to confront the creature head-on. The reality of what we were about to face washed over me, and a cold dread settled in my stomach. We were going hunting, but the prey was unlike anything I could have ever imagined.
 
