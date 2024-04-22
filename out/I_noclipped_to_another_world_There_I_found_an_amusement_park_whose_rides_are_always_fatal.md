@@ -2,7 +2,7 @@
   
 I headed across the beige carpets and white walls of our living room to the basement stairs. They followed the same decorative scheme of white walls and beige carpet, but the basement door waiting at the bottom was an old, rickety thing with many cracks eaten into its surface.  
   
-I went down the same ten steps to the basement I had many times before and pushed the door open. It groaned like a terrified old man, its rusted hinges looking ready to fall apart at any moment. Behind the door lay a curtain of shadows, an impenetrable black abyss. I reached over to the light switch and tried flicking it up and down a few times, but nothing happened.  
+I went down to the basement on the same ten steps I had traveled many times before. I pushed the door open. It groaned like a terrified old man, its rusted hinges looking ready to fall apart at any moment. Behind the door lay a curtain of shadows, an impenetrable black abyss. I reached over to the light switch and tried flicking it up and down a few times, but nothing happened.  
   
 “Dammit,” I sighed, walking into the basement. I assumed the bulb had burned out. The door closed behind me with a final groan. I pulled out my cell phone and shone it around, heading towards the dryer in the back corner. But the dryer wasn’t there.  
   
@@ -42,7 +42,7 @@ I turned and slammed the door shut, pressing my body weight against it. This doo
   
 “Mom? Where are you?” I yelled as loud as I could. At that moment, the shuddering of the door stopped abruptly. The sudden silence seemed deafening. I didn’t trust it for a moment.  
   
-“Where are you…” the voice whispered, as faintly as rustling leaves in an autumn wind. “Jake…” I gave one mistrustful glance back at the blood-red door and started off down the hallway. I was exhausted and covered in sweat from my frantic trek away up the dozens of stories of steps.  
+“Where are you…” the voice whispered, as faint as rustling leaves in an autumn wind. “Jake…” I gave one mistrustful glance back at the blood-red door and started off down the hallway. I was exhausted and covered in sweat from my frantic trek away up the dozens of stories of steps.  
   
 There was an endless beige carpet here covering the floor of the hallway that squished under my feet. It gave off a subtle, rotten smell as I walked, almost like the faint smell of stink bugs and vomit mixed together. I wondered what kind of fetid liquid had seeped into it.  
   
