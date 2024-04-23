@@ -183,3 +183,34 @@ I unbuckled my seatbelt, looked him in the eyes, and said something I’m proud 
 “You ain’t shit, DoppelFucker.”
 
 I yanked the wheel with all my strength, the CR-V veered off the path and—*WHAMM!*—into a tree, rocketing the Doppelganger and I through the windshield—*CRISHH!* We skidded across the pavement, and the world went dark.
+
+I figured a brush with death would teem with philosophical epiphanies and earth-tilting-off-its-axis revelations. But as I dangled in the in-between, all I heard was a joke Ted told once.
+
+*What do you call a Billie Eilish Doppelganger?...............Billie Eilish-**~ish~**.*  
+Over and over and over and over and over and over and over…
+
+*beep beep. beep beep. beep beep…*
+
+My eyelids cracked. Though I’d tried my best for the alternative, I was alive. I turned my head to the heaving beeps and hisses of machines wired into me. *Turning my head hurt. Noted.* I leaned upright with great effort, dragging IV lines forward. *So did sitting.* I was alone in a hospital bed. I slid to the floor, pleasantly surprised my legs didn’t give out. Each slap of tile against my skin hit like fire. *Walking was excruciating. Super to know!* I peered out the window. As the sun’s flares diminished and my eyesight adjusted, blurred objects came into view. A car…an SUV…a tow truck dragging it away from a tree. *A CR-V. My CR-V! There was an accident, I think? Emma had gone into labor!* It was all coming back. Though seeing my car as an accordion made me wonder about the status of my face, a more important thought overtook me – it was the same day as the accident! Maybe I hadn’t missed my daughters’ birth!
+
+I raced down the hospital hallway like Ebenezer Scrooge on Christmas day, past doctors regarding me with a mixture of pity and horror. I resisted a Brazilian nurse with an off-putting amount of blood on her scrubs trying to physically drag me back to my room. It must’ve been a sight to get a Jerry Maguire line from someone who looked like Frankenstein or Frankenstein’s monster or whatever, but here we were.
+
+“I’m looking for my wife.”
+
+“Emma Wiggins?”
+
+I nodded, and she led me down the hallway. The glares of passersby assured me my face was a Jackson Pollack. The only thing that mattered was Emma and the babies. The nurse stopped in the doorway of a room. “She’s a trooper. Was a close one,” she offered with a dollop of judgement. I noticed a ladybug skittering across the threshold, and marveled at the universe. It gave Emma a guardian when I couldn’t be there.
+
+*squitch!* The nurse’s foot exploded the ladybug.
+
+“In my country, it’s bad luck for a ladybug to visit a pregnant lady,” she declared. Looking upon the firework of green pus, I resisted the urge to tell her in my country ladybugs are considered sweet creatures. As I looked closer, however, I noticed something else. Something unsettling.
+
+The ladybug had two heads.
+
+I edged toward Emma’s bed as if approaching a ghost. Tubes ran into her nose. Her rosy face belied a struggle I wasn’t around for. Her eyes opened with a flutter. I refused to cry. I wasn’t entitled to tears. I searched her face for signs of hatred, or worse, indifference.
+
+“I failed you—failed our babies. I missed their birth. I’m so so—"
+
+Emma’s hand touched mine. She was an angel. “Promise me,” she said in a strained voice more powerful than the sweetest song. “You’ll never—mention—the Doppelganger— again.”
+
+“I promise,” I said, desperately wanting it to be true...

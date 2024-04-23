@@ -24,8 +24,15 @@ The beast mutilated every inch of my body. I didn’t understand how I was possi
 
 The beast stood up on its hind legs. The only way I can describe it is something like an emaciated werewolf. It was missing patches of hair all over its body and it smelled like rotting flesh. He stood over me and it almost seemed like he was admiring his work. 
 
-The beast turned toward the back door to leave, and at that very moment I heard a faint cry from the other room. My one year old. I begged with everything left in me for him to turn around and walk out the door. The beast gave what sounded like a slight chuckle and headed for my baby’s room. That’s when I lost consciousness.
+The beast turned toward the back door to leave, and at that very moment I heard a faint cry from the other room. My one year old. I begged with everything left in me for him to turn around and walk out the door. The beast gave what sounded like a slight chuckle and headed for my baby’s room. That’s when I lost consciousness. 
 
-Lately I’ve found myself wondering what lurks in the woods behind my house, and tonight I found out. 
+The next day I woke up in a hospital room surrounded by doctors who explained to me that I had undergone an extensive surgery to repair my injuries, and my husband had been contacted and was on his way home. 
 
+When my husband arrived at the hospital, the police came in and explained to us that they were still searching for whoever did this to me….and my baby. 
+
+But I knew they would never find my sweet boy. 
+
+My husband and I packed up what was left our lives and moved to a small condo in the middle of town. 
+
+I no longer find myself wondering what was lurking in the woods behind my house. I found out the hard way. 
 

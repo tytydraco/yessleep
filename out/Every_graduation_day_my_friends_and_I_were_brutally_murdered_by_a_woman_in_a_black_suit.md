@@ -74,19 +74,17 @@ The classroom at the end of the hall was open, spilling warm light that coaxed m
 
 Stepping directly into warm entrails squelching between my bare toes, I had to bite back a cry. Mari hung upside down above me, her body swaying back and forth, strung up like meat to the slaughter. The girl had been gutted straight through her designer Diana mini, her glistening remains sparkling under unearthly light. Mari’s eyes were still open, lips parted as if to warn me. 
 
-Her blood was still warm, still wet, pooling across the classroom floor. 
-
 For a dizzying moment, I was paralysed.
 
 A door banged shut, running footsteps, heavy panting breaths.
 
 “Fuck!” a familiar accent cried out. 
 
-“Fuck, fuck, fuck, fuck!”
+“Fuck, fuck, fuck!”
 
 I could hear him slamming his hands into classroom doors. 
 
-“I need… I need help! Is anyone there?”
+“I need… I need help!”
 
 The voice should have been comforting, but I was already seeing an opportunity to hide myself. 
 
@@ -952,7 +950,15 @@ The walls were sickly green, a bunker transformed into a sicko’s dungeon.
 
 My body resembled a pin cushion, or a little girl’s idea of a doll. 
 
-When my eyes found my stomach that was barely being held together by fresh stitches, my mind started to come apart.
+When my eyes found my stomach that was barely being held together by fresh stitches, my mind started to come apart. 
+
+Noah was *wrong*. 
+
+Everything that has happened to me, to us, was *real.*
+
+Being beheaded, ripped apart, sliced into. 
+
+Mrs Benson was just good at putting us back together. 
 
 My arms were skeletal, wires protruding into my veins. 
 
@@ -960,7 +966,7 @@ I could see where I had been cut open, my paper thin hospital gown stained scarl
 
 I couldn't count elephants.  
 
-Across the room, gurney’s lined the walls.
+Across the room, beds lined the walls.
 
 On them was what was left of my classmates, mangled flesh still strapped down. Some of them had been cut into, severed apart, while others were attached to tubes, wires sticking into their spine and the back of their heads.
 
