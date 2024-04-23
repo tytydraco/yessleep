@@ -188,4 +188,4 @@ I chose these two cases for a few reasons, this first being that I want everyone
 
 Just remember, when in doubt, salt. And if you awaken to find that your house is now suddenly spotless, be gracious. Do better than the idiot mentioned above. 
 
-Edit: [Here's more info on the Housekeepers. ](https://www.reddit.com/r/nosleep/s/KGUfH2hO6t)
+Edit: [Here's more info on the Housekeepers and their significantly more frightening cousins. ](https://www.reddit.com/r/nosleep/s/KGUfH2hO6t)
