@@ -1,39 +1,57 @@
-Two nights ago, my small town got hit with one of the biggest snowstorms in recent memory. The main village got nearly four feet of snow, while houses like mine, further up in the hills, got close to five. In spite of our best preparations, my wife and I got hit harder than we expected. I'd bought a small generator, anticipating power outage, but it got buried rather quickly and we lost electricity nonetheless. Luckily, we have a wood stove, or we might've frozen.  
+Two nights ago, my town got hit by one of the worst snowstorms in recent memory. We’re situated in the foothills of the Aleutians, so even though it’s early spring, this kind of freak storm is still largely possible. While the main village got about four feet of snow, the houses further up in the hills, like mine, got almost five.  
   
-I spent all of yesterday trying to dig out our front door. By the time I did, around four in the afternoon, the sun was already setting, and my only shovel was broken. Without power, the plows unlikely to come for at least another day or so, we were essentially on an island.  
+My wife and I, despite our best preparation efforts, lost power. I had a generator prepared but I couldn’t get some kind of housing built for it before the snow started. Luckily, we have a wood stove, or we might’ve frozen.  
   
-Last night wasn't much better. There's a lamp on top of the telephone pole at the bottom of our driveway, but since it wasn't lit, there was nothing keeping the animals at bay from our property. All night long, I tossed and turned, listening to the wailing elk and howling coyotes. A few of them ventured closer to the house, and I could hear their cautious footsteps crunching in the snow. There was one creature that got particularly close, and I could hear its heavy, labored breathing outside my window. If it weren't winter, I'd have assumed it was a bear, but now I'm not so sure.  
+I spent all of yesterday digging out our front porch so I could get out and hike into town for some supplies. By the time I was finished, about five in the evening, my shovel had broken and the sun was beginning to set. We had a small dinner and went to bed early, since we didn’t really have anything to do.  
   
-This morning, I put on some snowshoes and, pulling a ramshackle sled behind me, made the hour-long hike over the snow into the main village to buy some basic survival necessities. When I reached the houses that were near the outskirts, I noticed something was off. The main road that ran through town remained unplowed, almost untouched except for a couple sets of footprints leading out from a few of the houses.  
+Last night was rough. There’s something about the chilling silence of a power outage that’s made worse with the snow. We have a bright porch light, and there’s some lights on some of the telephone poles lining our road, but without these burning, there was nothing to keep the wildlife at bay in the woods lining our house. I could hear them as they made their way through our yard, first some elk, then a pack of young coyotes.  
   
-As I got closer to town, I deduced the problem. A lone snowplow was on its side, lying in the snow to the side of the exit ramp from the interstate. Five or six men were working to dig it out, and another three or so were waiting to the side to relieve them.  
+There was one sound I didn’t recognize. The animal’s movements sounded like a bear, slow, crunching footsteps, but it didn’t make a recognizable sound. The slow, huffing breath of a bear was replaced with a hoarse rasping that almost had a vocal tinge to it. I got up and went to the window, but it had already lumbered off somewhere and I couldn’t see it.  
   
-One of the few buildings in town that was dug out to an extent was the small grocery store a few hundred yards from the exit. Most of the parking lot was still covered in snow, but a small area near the front door was clear and someone had packed down a kind of ramp leading down to it.  
+This morning, I threw on some snowshoes and tied a bit of rope to a palette that was left over from the chicken coop we built last spring. The walk into the main village is usually about twenty minutes, but with the snow it was closer to an hour. However, when I made it to the main road in town, I noticed something was off.  
   
-As to be expected, the grocery store was almost empty except for a few more workers and two or three employees. After grabbing what I needed and checking out, I asked one of the men about the plow.  
+What should have been a clear street filled with people shoveling driveways and sidewalks was instead just as filled with snow as my driveway. There were maybe ten people outside of their houses, and they were all huddled around something I couldn’t quite see. As I got closer, it became more clear.  
   
-"Ran off the road in the dark," he explained. "There's some nasty black ice under the snow. He was driving down the exit about 5 o'clock yesterday morning and just couldn't see it. I myself just got out of my house yesterday afternoon what with all the snow."  
+That something was a snowplow. It was tipped, partially on its side, completely lifeless. The men I’d seen were working in shifts to clear the road it had slid off of so that it might be set right again. Given the progress they’d already made, I didn’t have much hope that our road would be cleared for another couple of days.  
   
-"How bad is it up on the hill?" someone asked me.  
+There were only two buildings cleared enough for entry, and those were the hospital and grocery store. Going into the grocery store, I bought the small list of items I’d compiled that morning as well as a sandwich for lunch, since it was well past noon already and I was unnaturally hungry. There’s a little cafe area off to the side with some tables, so I sat down there to eat.  
   
-"Almost five feet," I replied. "Took me all of yesterday just to dig out the front door."  
+My wife and I had the foresight to charge our phones before the outage, and she called me while I was eating. I answered, but before I could even get a word in, she was shakily blurting out nonsense at a mile a minute.  
   
-There's a small dining area inside the store, just off to the side of the checkout. Seeing as it was about noon at this point, I bought myself a sandwich and sat down to eat. Usually, they didn't taste this good. Maybe I was hungrier than I realized.  
+“Honey, slow down,” I said. “I can’t understand you.”  
   
-As I sat eating and watching the ominous gray sky, my phone buzzed with a text from my wife. Since she usually sends me an exact replica of my grocery list every time I go shopping, I ignored it until more started coming.  
+“There’s something on the porch,” she sobbed. “It’s clawing at the door. I think it got one of the chickens. There’s-” she choked on her words. “There’s blood on the window. I’m scared. It won’t go away. I-”  
   
-"There's something outside the coop," the first one read.  
+“Calm down,” I said in my most reassuring voice. We’ve only been married for about a year, but I can tell when she’s on the verge of a panic attack and when I need to intervene. “What’s on the porch?”  
   
-"The chickens are going crazy I think it got one of them."  
+“I-I thought it was a bear,” she breathed. “It should’ve been a bear. I wish it were a bear.”  
   
-This winter we'd already lost two chickens from our original flock of ten. Selling eggs was part of our livelihood, and if we ran out of chickens, we'd need to buy more and raise those ones as well, which was an expensive process. I kept reading.  
+“What is it?”  
   
-"It's coming toward the house. I can hear it breathing outside the door what should I do?"  
+She choked on a sob again, audibly weeping. “I don’t know,” she admitted shakily. “It’s so tall. Tall and thin. I didn’t see much of it.”  
   
-The creature from last night returned to my mind. If it wasn't a bear, I had no idea what else it would be. If it was a bear, as long as she didn't try to interact with it she would be fine. I sent her a text saying I would be home as soon as possible and to stay upstairs away from the door.  
+It didn’t sound like anything that would be in rural Alaska aside from a sick prankster with too much time on his hands. “Did you hear anything?” I asked her.  
   
-Packing away the rest of my lunch, I loaded up the sled and made the trek back home. Going uphill should've taken longer, but I was anxious to make sure whatever losses we suffered were minimal. However, upon reaching our house, everything was as quiet as I'd left it. Coming from the direction of the coop behind the house, I could hear placid clucking. Everything seemed normal.  
+“Breathing. Terrible, raspy, hoarse breathing.”  
   
-My wife was justifiably shaken, but after some time she calmed down and we had a light dinner. It's getting late as I'm writing this, and I'm running out of data. I'm not sure what I should do tomorrow. We have some elderly neighbors who definitely could use some help, but I don't know if I should leave my wife alone again. I think she's starting to come down with something, maybe the flu.  
+My mind went back to the creature from last night, or whatever I heard. I sat in silence for a couple moments, trying to collect my thoughts while listening to my wife quietly crying on the other end. “Hide upstairs in the bedroom,” I said. “Lock the door. I’ll be home as soon as I can.”  
   
-As I'm writing this I can hear that awful breathing outside the door - slow, labored, raspy, deep. Hopefully it's gone again tomorrow because there's a lot to be done and the snow's starting to come down again. Hopefully they get the plow dug out soon.
+“Where do you think I am?” She managed a weak laugh. That was good, at least she wasn’t paralyzed from fear in harm’s way.  
+  
+After reassuring her some more, I left the grocery store and began my trek back home. It was almost two p.m. at this point, and the sun was beginning to set. Days are significantly shorter in Alaskan winter than they are in other parts of the states, and I only had about an hour of daylight to work with.  
+  
+I retraced my footsteps from earlier that day, but as I ascended the hill to our house, I couldn’t shake this feeling of a presence. Not like I was being watched, which almost made it more frightening. Whatever was in the woods lining the roads, it didn’t find me important enough to give me any attention.  
+  
+A hundred yards from my house, I heard a loud snap, like the break of a branch, coming from somewhere behind me. With the sky rapidly darkening, my nerves already on high alert, I didn’t even bother turning around. Somehow finding a new surge of adrenaline, I clumsily sprinted the final distance.  
+  
+She was right about the blood. The creature had smeared it all over our kitchen window, and I could make out a massive, four-clawed handprint of some sort. What really stood out to me was which chicken had been killed.  
+  
+One of our youngest hens lay on the porch, dead. We own a rooster. He should have sacrificed his life to protect the hens, but he didn’t for some reason. When I ventured over to the coop to check on the rest, I found them all huddled in the furthest possible corner, pressing their bodies as close as possible to the back wall. None of them were making any noise.  
+  
+After some unconvincing reassurance that the creature was gone, I managed to coax my wife out of the bedroom, clinging to me like a scared toddler. She’s always been somewhat timid, but this was a new level of fear I hadn’t seen in her before. Whatever that creature was, it had made a lasting impression on her.  
+  
+It’s dark out now. My phone’s running low on battery, but I need answers. There’s no wildlife matching the description my wife gave anywhere in this state, let alone our small village. I can’t imagine it would be anything other than a twisted prank, but my mind goes back to the horrible, inhuman breathing.  
+  
+The snow’s starting to fall again, and I can hear the animals approaching the house again.  
+  
+The chickens haven’t made a sound.
