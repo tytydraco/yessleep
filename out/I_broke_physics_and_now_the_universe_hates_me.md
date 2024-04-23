@@ -30,4 +30,4 @@ Me and the computer imprisoning my husband were suddenly teleported to space. Hi
 
 I dont know how I can still hear him. I don't know how I can still breathe. I don't know how I can still access the internet. I don't know if its over or if it will find new ways to torture me. All I know is, that as I stare into the void of space,
 
-the void stares back.
+the void stares [back](https://www.reddit.com/u/Sodium1111/s/t3LlFL7nXD).
