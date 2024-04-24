@@ -1,5 +1,5 @@
 
-My name was once Christopher, though my parents regarded me as Chrissy. No nobody knows my name, except you, reader. I’ve lived my whole life in the shadows, biding my time before it returned for me. I believe that time has come.
+My name was once Christopher, though my parents regarded me as Chrissy. Now nobody knows my name, except you, reader. I’ve lived my whole life in the shadows, biding my time before it returned for me. Now that time has come.
 
 It happened on a warm summer night, the kind where the heat clings to your flesh in the form of small beads of salty sweat. My family and I were on a road trip, heading to the annual peach festival in Kentucky. The moon cast an eerie glow upon the empty road, as if warning us of the impending darkness that would consume our lives.
 
