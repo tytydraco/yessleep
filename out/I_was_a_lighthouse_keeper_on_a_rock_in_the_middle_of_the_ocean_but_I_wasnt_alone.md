@@ -276,7 +276,7 @@ I almost mustered a chuckle, and we embraced. Two lonesome souls who healed as m
 
 I stumbled around the shelves, wading through water towards the desk at the far side of the room, and the satellite phone was sitting there. As she’d promised. But no book.
 
-The emergency call was swift. Captain Thompson was horrified by my story, but he didn’t question it. I assume he has heard stories It makes me wonder what tales he heard from the other lightkeepers. In any Whatever the case, the man set sail, and we waited for his arrival. Leaning against the balcony’s barrier, we watched the sun rise from the top floor.
+The emergency call was swift. Captain Thompson was horrified by my story, but he didn’t question it. The man set sail, and we waited for his arrival. Leaning against the balcony’s barrier, we watched the sun rise from the top floor.
 
 “I lied,” Elsie eventually said.
 
