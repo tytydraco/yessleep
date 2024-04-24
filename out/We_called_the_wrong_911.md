@@ -84,13 +84,13 @@ Like he said, the living room lights were on and through the opaque glass of the
 
 I glanced at my reflection in the mirror and walked nervously toward the front.
 
-That moment with the knob in my hand, I could've made a decision that saved me from the paranoia I've suffered since then.
+That moment with the knob in my hand, I could've made a decision that saved me from the paranoia I've suffered since.
 
 Instead, I let them in.
 
 The porch lights were off. The glow from the living room birthed uncanny shadows through the screen door onto the faces of the two outside.
 
-I waited for them to speak. Soundless and motionless, they seemingly refusing to breathe. From each of their shadow-masked faces I could only make out a wide smile with teeth dimly illuminated behind the screen.
+I waited for them to speak. Soundless and motionless, seemingly refusing to breathe. From each of their shadow-masked faces I could only make out a wide smile with teeth dimly illuminated behind the screen.
 
 That silence was far too uncomfortable.
 
@@ -104,11 +104,11 @@ Alarm bells started ringing.
 
 "You might have the wrong house. Sorry, sirs."
 
-I moved to close the door. There was no way we mentioned our real names on a prank call.
+I moved to close the door. We had never mentioned our real names on the call.
 
 "Jeremy!"
 
-That voice sounded familiar. It was enough for me to flinch. I jumped away from the door as if electrocuted. One of the silhouettes outside pressed its face into the screen.
+That voice sounded familiar. It was enough for me to jump away from the door as if electrocuted. One of the silhouettes outside pressed its face into the screen.
 
 "Jeremy, come here right now!"
 
@@ -156,15 +156,13 @@ I heard footsteps start before the sounds of a scuffle.
 
 "he-, HEY! WHAT THE HELL!"
 
-"After our assessment, of course."
-
 There was banging and the the sounds of glass shattering.
 
 "Quiet him. Good."
 
 A frantic grunting followed.
 
-The initial fear was beginning to dissolve. The urge to save my friend powered my legs. I crept down the stairs, painfully slow, one step at a time, listening to the voices - the silhouettes from the dark - speak over Jerry's feeble cries.
+The initial fear was beginning to dissolve. The urge to save my friend powered my legs. I crept down the stairs painfully, one step at a time, listening to the voices - the silhouettes from the dark - speak over Jerry's feeble cries.
 
 "I have a rookie here with me today, so please be patient."
 
@@ -222,7 +220,7 @@ Then he turned towards me. He looked into my eye. He smiled. When he spoke he us
 
 "Does your tummy hurt too?"
 
-I could barely move, but shook my head enough.
+I could barely move, but shook my head.
 
 "Goodbye."
 
