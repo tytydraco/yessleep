@@ -174,25 +174,25 @@ One of the paramedics with long hair knelt. He ran a hand over Jerry's face who 
 
 "Give him some monoxide."
 
-Jerry's eyes widened and he began thrashing even harder. The long haired paramedic reached into his bag and began attaching tubes to a gas cannister with the big red letters *CO* scrawled across it. He attached the other end to a mask and turned a valve on the cannister.
+The long haired paramedic reached into his bag and began attaching tubes to a gas cannister with the big red letters *CO* scrawled across it. Jerry's eyes widened and he began thrashing even harder.
 
-A hissing sound filled the room and the gas mask was forced over Jerry's mouth and nose.
+He attached the other end to a mask and turned a valve on the cannister. A hissing sound filled the room and the gas mask was forced over Jerry's mouth and nose.
 
 "Hold him."
 
 After 30 seconds Jerry's attempts to free himself noticeably weakened. Within a minute he was unconscious.
 
-During all of this I tried to think of someone who could help us. I didn't want to call anyone, I was afraid they'd hear me from where I was. My parents were asleep. Even if someone was awake they'd probably call 911. That's what brought them here.
+During all of this I tried to think of someone who could help us. I didn't want to call anyone, afraid they'd hear me from where I was. My parents were asleep. Even if someone was awake they'd probably call 911. That's what brought them here.
 
 "Go ahead. Do the assessment."
 
 The paramedic directing the long haired one was short and stocky. He turned the valve and the hissing quieted. He pointed at Jerry signaling Long Hair to continue.
 
-Once again, he ran his hands over Jerry's face, then through his hair reaching behind his ears down to his neck. Long Hair went over Jerry's entire body, prodding, pushing, and groping every inch of him. When he reached his toes he turned towards his partner.
+Once again, he ran his hands over Jerry's face, then through his hair reaching behind his ears down to his neck. Long Hair went over Jerry's entire body, prodding, pushing, and groping every inch of him. When he reached his toes he turned towards his partner flashing a grin.
 
 "Nothing wrong with him."
 
-"Well, that's terrible news. What was the chief complaint?"
+"That's terrible news. What was the chief complaint?"
 
 "Abdominal pain."
 
@@ -206,17 +206,17 @@ Long Hair nodded and exited the house. The stocky one rummaged through another b
 
 I flinched. Somehow, I knew he was talking to me.
 
-"But I know you're there. I want you to know this isn't any fault of yours. Or his. This, us. You can call it coincidence. Or fate. Whichever you believe in. But believe in it."
+"But I know you're there. I want you to know this isn't any fault of yours. Or his. This, us. You can call it coincidence. Or fate. Whichever you believe. But, believe in it."
 
-He capped the sharpie. The dotted line had turned into a dotted oval, stretching across Jerry's abdomen and encircling his belly button.
+He capped the sharpie. The dotted line had become a dotted oval, stretching across Jerry's abdomen and encircling his belly button.
 
 "We're here to help."
 
 Long Hair walked back in with a stretcher. They quickly loaded Jerry up. He was still unconscious with the mask on him. Long Hair wheeled him out the door and the other called after him.
 
-"I marked where you're going to cut. Get the tools ready."
+"That's where you're going to cut. Get the tools ready."
 
-Then he turned towards me. He looked into my eye. He smiled. When he spoke he used Jerry's voice.
+Then he looked into my eye. He smiled. When he spoke he used Jerry's voice.
 
 "Does your tummy hurt too?"
 
@@ -226,16 +226,16 @@ I could barely move, but shook my head.
 
 When the house was empty, I cried so hard I passed out. In the morning when I woke, I searched the entire house for Jerry - for proof that it was all a nightmare. There was no evidence; of Jerry or the paramedics.
 
-Haven't seen him since.
+Haven't seen them since.
 
 I called the police, the real ones. The story that stuck was I woke up, and he was gone. I got a ticket for the weed. That's really it. There was nothing to prove my involvement. Nothing that could prove anything really.
 
-Didn't just lose Jerry that day. No one talks to me, can't even ask for homework answers anymore. All the adults try to hide their conversations about me. Not that I care much.
+Didn't just lose Jerry that day. No one talks to me. Can't even ask for homework answers anymore. All the adults try to hide their conversations about me. Not that I care much.
 
 To be honest, I'm still looking for my bestfriend.
 
-A week ago it was late and I was driving home from work. An ambulance pulled up beside me at a stop. It's lights weren't on but I kept my foot on the brake when the traffic light turned green.
+A week ago it was late driving home from work. An ambulance pulled up beside me at a stop. It's lights weren't on but I kept my foot on the brake when the traffic light turned green.
 
-As it drove off, I tried to get a look inside from the back window but it was too dark to see.
+I tried to get a look inside from the back window but it was too dark to see.
 
 Just make sure, that it's really an emergency when you dial that number. And if you do, make sure that it's really them.
