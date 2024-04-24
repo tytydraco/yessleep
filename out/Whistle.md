@@ -150,4 +150,4 @@ He left before I could say anything. I looked at the collar he had left in my ha
 
 A shiver ran down my spine instantly. I looked around, feeling watched, even inside the building's lobby. Vincent had moved away, and the other residents seemed too busy to notice me. I went up to my room, grabbed the most basic things I could think of, wrote a note to Mr. Vincent saying I was leaving, and left an advance payment for the next month to cover any issues. I passed by the doorman and handed him the sealed package, bidding him farewell. I loaded my things into my car and sped away without looking back. That collar I had received was Todd's.
 
-To this day, the innocent whistles meant for a dog alone make my stomach churn, while that cursed smile still burns on my eyelids.
+We never found out what happened to the shepherd dog, and to this day, innocent whistles meant for a dog are enough to make my stomach turn, while that damned smile still burns behind my eyelids.
