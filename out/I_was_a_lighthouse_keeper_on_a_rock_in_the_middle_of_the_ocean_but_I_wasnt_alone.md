@@ -84,7 +84,7 @@ And after an hour without luck, I chose to believe that I had imagined the voice
 
 For the first few weeks, all seemed well. I carried out my duties — maintaining the building and submitting weather data via satellite phone. I forgot all about the strangeness of the first night. And I would’ve likely never thought of it again, but the sound returned. On a night just as ferocious as the first, a voice called outside my window. It woke me from my sleep.
 
-Not this again, I told myself angrily. It’s all in my head. I’m just lonely.
+*Not this again*, I told myself angrily. *It’s all in my head. I’m just lonely.*
 
 “PLEASE!” A voice shrieked.
 
@@ -92,7 +92,7 @@ A tone that set my hairs ablaze and automatically jolted my body from bed. Dress
 
 If the woman had always been real, where had she been hiding for three weeks?
 
-As I turned on the light in the darkened entryway, my busy mind distracted me from the slight movement in the ajar door to the basement. The door I was certain I had closed. And when I snapped my attention to it, two yellow lights rapidly extinguished. My entire body twitched fearfully. I raced to the door, every organ tensed in fright, but there was nothing to be found. Only ancient steps leading down to the lighthouse’s storage space.
+As I turned on the light in the darkened entryway, my busy mind distracted me from the slight movement in the ajar door to the basement. The door I was certain I had closed. And when I snapped my attention to it, two yellow lights rapidly extinguished. My entire body twitched fearfully. I raced to the door, every organ tensing in fright, but there was nothing to be found. Only ancient steps leading down to the lighthouse’s storage space.
 
 I closed the basement door and returned my attention to the matter at hand. I doubted my imaginative eyes, but I was struggling to doubt my ears. I had clearly heard a voice outside.
 
