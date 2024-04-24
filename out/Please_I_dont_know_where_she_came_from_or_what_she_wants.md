@@ -8,11 +8,11 @@ I had been idling, allowing the car to heat up before I started my commute and t
 
 Thank goodness the doors were locked, even though she didn't try the handle. She just stood there facing the car and I could still only see her torso. She started to move towards the front of my car and I don't know what came over me. I didn't want to see her face, so I slammed the car in reverse and sped off.
 
-If she had been someone in need of help, she would have said something the moment she saw me in my car, right? Like tried to get my attention, not just slowly walk around my car, staring at... Me? Over my car? Whoever she was, it didn't matter.
+The further away I got, the calmer I felt and the sillier I seemed. Maybe she just needed help? But if she had been someone in need of help, wouldn't she have said something the moment she saw me in my car? Like tried to get my attention, not just slowly walk around my car, staring at... Me? Over my car? Whoever she was, it didn't matter because I had work to do and life moves on - even after encounters with weirdos.
 
 I probably should have called the police, but I'll be honest and admit it didn't even occur to me. By the time I hit the main road to work, of nearly forgotten all about her. People are weird, especially in my town. She was just a drunk lady peering around cars probably looking for someplace to pee off the road.
 
-But then I saw her again.
+But then I saw her again. And again. And again.
 
 My bedroom has a huge bay window right next to my bed. I have an excellent view of the mountains in the distance (and of the night sky, ever watched a meteor shower from bed? It's awesome) as well as a direct view of the road about 40 feet away.
 
