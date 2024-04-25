@@ -50,7 +50,7 @@ Asher raced to open the door, letting Jacob and Trevor inside. They were the two
 
 “We found an abandoned tree house!” Jacob followed after.
 
-Trevor elbowed Jacob, and they both looked at me, ready to run back outside. My interest peaked as I sat up on the couch.
+Trevor elbowed Jacob, and they both looked at me, ready to run back outside. My interest piqued as I sat up on the couch.
 
 “Where at?” I curiously asked.
 
@@ -201,7 +201,7 @@ I got to the top and looked around, but saw nothing.
 
 “Asher?” I said allowed, assuming he was behind the other side of the tree. 
 
-I crawled inside, the smell of vomit and bile assaulted my nostrils causing me to tear up. I made my way all the way around but he was nowhere to be seen. My stomach dropped. Where could he have gone? I looked at the floor and saw the army knife lying there in a puddle of what looked like greasy yellow slime. I took a good look at it and then turned my attention towards the 
+I crawled inside, the smell of vomit and bile assaulted my nostrils, causing me to tear up. I made my way all the way around but he was nowhere to be seen. My stomach dropped. Where could he have gone? I looked at the floor and saw the army knife lying there in a puddle of what looked like greasy yellow slime. I took a good look at it and then turned my attention towards the 
 tree.
 
 The same mark I saw before had slime dripping down from the tight crevice with a new small mark above it, looking like a little scab. The sight reminded me of the closed mouth of a toothless old person, saliva running down their lips. It looked like Asher started carving but didn't finish. I just sat there, trying to process what I was looking at. Jacob and Trevor were calling out to me but it didn't register with me. A thousand thoughts raced through my head. I wanted to throw up. 
@@ -224,7 +224,7 @@ My Mom and Dad were heartbroken. They never believed my story though. They rarel
 
 I feel so stupid. It's my fault I didn't stop him. I want to blame Jacob for giving him that stupid army knife, but deep down I'm still drenched with the guilt of thinking that I could have prevented everything, all by not having him answer the door. Maybe then Jacob or Trevor would be missing. Perhaps both. But at least my brother would still be here as selfish as that sounds…
 
-17 years later and I have a child of my own now, turning 9 next week, and a beautiful wife. I rarely speak to my parents. These events linger in the back of my mind like a parasite. I live about 7 hours away from where my old childhood home was, since my wife didn't feel comfortable leaving her hometown. 
+17 years later, I have a child of my own now, turning 9 next week and a beautiful wife. I rarely speak to my parents. These events linger in the back of my mind like a parasite. I live about 7 hours away from where my old childhood home was since my wife didn't feel comfortable leaving her hometown. 
 
 I've decided to write all of this down the best I could remember, because when I got up this morning to complete my daily ritual of making my coffee to stare out the backyard window, I saw something that took me back in time. Far out in the treeline, past the family of deer eating the grass, stood something unnatural that did not belong there.
 

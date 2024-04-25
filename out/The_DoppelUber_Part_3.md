@@ -1,4 +1,4 @@
-[(Part 1)](https://www.reddit.com/r/nosleep/comments/1c5vvf9/the_doppeluber_part_1/) [(Part 2)](https://www.reddit.com/r/nosleep/comments/1c7g665/the_doppeluber_part_2/) (Part 3)
+[(Part 1)](https://www.reddit.com/r/nosleep/comments/1c5vvf9/the_doppeluber_part_1/) [(Part 2)](https://www.reddit.com/r/nosleep/comments/1c7g665/the_doppeluber_part_2/) (Part 3) [(Part 4)](https://www.reddit.com/r/nosleep/comments/1cd33l9/the_doppeluber_conclusion_part_4/)
 
 The magic ultrasound wand slopped through the jelly on Emma’s stomach. “The hell d’you put in the bean dip??” Emma flung at me from the exam table.
 
@@ -186,7 +186,7 @@ I yanked the wheel with all my strength, the CR-V veered off the path and—*WHA
 
 I figured a brush with death would teem with philosophical epiphanies and earth-tilting-off-its-axis revelations. But as I dangled in the in-between, all I heard was a joke Ted told once.
 
-*What do you call a Billie Eilish Doppelganger?...............Billie Eilish-**~ish~**.*  
+*What do you call a Billie Eilish Doppelganger?...............Billie Eilish-****\~ish\~****.*  
 Over and over and over and over and over and over and over…
 
 *beep beep. beep beep. beep beep…*
