@@ -86,7 +86,7 @@ God. Oh God.
 
 The whole bottom half of his face was a bloody gaping hole, and the top half of his face looked like if someone took a humans face on blender and played with the smudge button.
 
-He had different assortments of limbs and heads attaching to his body and sticking out, all moving slowly and deliberately, like a predatory toying with its food. Arms jutting out of his legs, feet extending from His abdomen, all clawing at himself, as if trying to escape from the purgatory they've been put in. A few heads were exiting different parts of his body as well, some from the hands and feet and some from his form itself. They all looked deformed, as if melted in a microwave.
+He had different assortments of limbs and heads attaching to his body and sticking out, all moving slowly and deliberately, like a predator toying with its food. Arms jutting out of his legs, feet extending from His abdomen, all clawing at himself, as if trying to escape from the purgatory they've been put in. A few heads were exiting different parts of his body as well, some from the hands and feet and some from his form itself. They all looked deformed, as if melted in a microwave.
 
 *Help*, one of them mouthed. They were alive.
 "Aya." He said. I don't know where the sound even came from. He had no mouth. "How I have missed you."
