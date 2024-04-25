@@ -94,7 +94,7 @@ I shot out of bed, falling to the ground as my legs tangled with the sheets of m
 Curre made a *tsk* noise and slowly walked over to me.
 I froze for a singular moment before my fight or flight response kicked in and I stumbled to my feet, crashing out the room and down the stairs. I heard the sounds of manic laughter behind me.
 
-I grabbed my car keys off the counter as I sprinted out of my home, and smashed my thumb into the unlock button. I still had the compass in my hand, and for some reason, felt some relief in having it. I scrambled into my car and shoved my key into the hole before slamming on the gas pedal, reversing out of my driveway. That was one of my mistakes. Don't run. He enjoys when you do. He relishes in the hunt. 
+I grabbed my car keys off the counter as I sprinted out of my home, smashing my thumb into the unlock button. I still had the compass in my hand, and for some reason, felt some relief in having it. I scrambled into my car and shoved my key into the hole before slamming on the gas pedal, reversing out of my driveway. That was one of my mistakes. Don't run. He enjoys when you do. He relishes in the hunt. 
 
 As I maneuvered down empty roads, panick a vice grip on my neck, I felt a small rumbling. I looked down at the compass in my lap. The glass was shattered but it was still working. My heart might as well had given up at that point. It would've been for the better too. The compass was pointing in front of me- at the windshield. I looked up and- **THUMP**
 A bloodied arm landed on my windshield, scraping across. I didn't even scream. I was too scared for that. I swerved off the road, crashing straight into a tree. Then all was black.
@@ -111,7 +111,7 @@ He placed my dismembered arm into His mouth (or the gaping hole I assumed was hi
 
 That was 6 months ago. The score is now 4-2. I have won 2, He has won 4. I have come to find out every time He wins, He takes one of your limbs. My arms first. Then my legs. I can't run anymore. I can't hide anymore. I am as good as dead.
 
- I still feel my body parts attached to that *thing*, and I desperately try and claw myself out, but it's no use. My body is but a stump. He enjoys playing with His victims. Toying with them and leaving them alive for as long as possible. I know for a fact He let me win those 2 rounds just so the game could continue on. I don't know whether I'll still be alive and conscious when He takes my last body part, stuck in a never ending horror, but it doesn't matter anymore. My story is over, and I it's time for me to go. My times up.
+ I still feel my body parts attached to that *thing*, and I desperately try and claw myself out, but it's no use. My body is but a stump. He enjoys playing with His victims. Toying with them and leaving them alive for as long as possible. I know for a fact He let me win those 2 rounds just so the game could continue on. I don't know whether I'll still be alive and conscious when He takes my last body part, stuck in a never ending horror, but it doesn't matter anymore. My story is over, and it's time for me to go. My times up.
 
 **The compass is pointing straight behind me, and all He has left to collect is my head.**
 
