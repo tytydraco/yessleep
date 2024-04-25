@@ -19,3 +19,15 @@ The police eventually showed up, and I waited outside with my friends, my pulse 
 As much as I didn't want to go in there again, I asked to see proof that it was a dummy to ease my mind. The staff said they would be more than happy to accommodate after the last ride goes through. That's in forty-five minutes, so I'm waiting. My friends are waiting with me, and I appreciate their support because I'm honestly still very unsettled. I haven't stopped shaking, and I don't know when my pulse will settle down. Hopefully after I see that the body is indeed just the work of very skilled people. I'm curious as to how they made it that realistic.
 
 I'll update after the tour if anyone else is curious too.
+
+Edit: 
+Oh my God you guys were right I should have left when I had te chance. I don't know how I made it out my friends didn't. It's all my fault. The cops they're in on it. I don't know whoto turn to.
+
+The staff took us inside and the cops were tere and said we were going to join the prisonrrs, the zombies are prisoners! They're real, all ofthem! I saw them! Their eyes staring for help but I couldn't, the screams, they had no tongues that's why they couldn't talk and the smell oh God.
+
+ I can't even type I'm shaking so much. The news was talking how our jails are overflowing. This is the cops idea?:the mayors? I don't know! I'm small I managed to squirm away and escpe .  I'm hiding in a dumpster I can't go home they have my bag my ids everything. I'm crying I'm terrified whatt do I do?
+
+
+
+
+
