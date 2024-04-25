@@ -8,7 +8,7 @@ We pulled up to a ‘70s split level bordered by tall hedges. Brady drove into t
 
 “I don’t want to talk to you,” Casey snapped back.
 
-I’d never seen this side of Casey. Sure, I’d seen her angry—but not like this. Her usually excited, chipper tone had been replaced by a low and hollow voice. Her blue eyes flashed with anger. 
+I’d never seen this side of Casey. Sure, I’d seen her angry—but not like this. Her usually excited, chipper tone had been replaced by a low and hollow voice. Her blue eyes flashed with anger.
 
 Brady brushed past her and opened the door into the kitchen, raising his finger to his lips. “My mom's asleep, so be quiet, okay?”
 
@@ -236,7 +236,7 @@ The conversation fizzled out, and we sat there in awkward silence, listening to 
 
 And then, suddenly, my phone rang. I jumped and flipped it over.
 
-“It’s Brady.” I picked it up. “Hello?” 
+“It’s Brady.” I picked it up. “Hello?”
 
 But from the instant I heard his voice, I knew something was terribly wrong.
 
@@ -282,4 +282,6 @@ But we both knew.
 
 Brady was gone.
 
-[+](http://www.Reddit.com/r/blairdaniels)
+---
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/1ccaejo/my_friend_has_a_camera_that_will_show_you_your/)
