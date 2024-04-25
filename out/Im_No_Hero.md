@@ -38,7 +38,7 @@ I hovered closer to the one of the eye windows, I watched as Dr.Nefario’s eyes
 
 “MUHAHAHAHAHAHAHA” He chortled. “That’s DOCTOR Nefario to you, Foolish Girl! 
 
-“Right…Dr.Nefario, could you just give it a rest, just for today?” I pleaded earnestly.
+“Right…Dr.Nefario. Could you give it a rest, just for today?” I pleaded earnestly.
 
 “MUHAHAHA! Dr.Nefario never bends to the will of lesser advanced beings! I’m more smarter than all of you! My ultimate plan is nearly complete, and soon the world shall know that I, the illustrious Dr.Nefario, have- blah blah blah blah….
 
@@ -88,11 +88,11 @@ The next second was a blur. A flash of light, and then, warmth
 
 Mr.Indestructible watched from the street below as the giant Robot head exploded in a flash of dazzling green light, nearly blinding him as he shielded his eyes.
 
-A wall of heat and pressure assailed him, he slid across the ground as the shockwave pushed him from the blast, he fought to stay upright.
+A wall of heat and pressure assailed him, his feet slid across the ground as the shockwave pushed him from the blast - it took every ounce of strength to stay upright.
 
-Opening his eyes, his face was a mask of horror as flaming debris and chunks of metal rained down onto the street below.
+Opening his eyes, his face was a mask of horror as flaming debris and chunks of metal rained down onto the street around him.
 
-“CASSIDY!” He screamed as the robot’s decapitated body toppled to the ground enveloped in a plume of dark, indigo smoke.
+“CASSIDY!” He screamed as the robot’s decapitated body toppled to the ground, enveloped in a plume of dark, indigo smoke.
 
 I rose gingerly into the air from the burning wreckage, gently landing in front of my Dad.
 
@@ -106,15 +106,15 @@ I rose gingerly into the air from the burning wreckage, gently landing in front 
 
 I put on my best innocent girl voice.
 
-“Dad it was terrible! Dr.Nefario was showing me his latest invention, some kind of electric laser suit or something when it started short circuiting.
+“Dad it was terrible! Dr.Nefario was showing me his latest invention, some kind of electric laser suit or something. But then it started short circuiting.”
 
-I flew inside to try and stop him but it was too late.” I said, looking at the ground in faux sadness.
+“I flew inside to try and stop him but it was too late.” I said, looking at the ground in faux sadness.
 
 Dad embraced me again, somehow this time even tighter. 
 
 “It’s OK kiddo. Don’t beat yourself up about it. You tried to save him, that’s what matters.”
 
-I looked at him with teary eyes.
+I looked at him with teary, doe-like eyes.
 
  “I know Dad, I really did.”
 
