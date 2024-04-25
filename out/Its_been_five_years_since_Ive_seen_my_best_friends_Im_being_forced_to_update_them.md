@@ -12,11 +12,17 @@ I met Alex Locke in the fifth grade.
 
 I suffered from chronic headaches as a kid, and Alex lost time a lot, sometimes blanking out whole days. According to Alex, it was like being switched off. 
 
-Due to his condition, the boy fell asleep a lot, sometimes tumbling down the stairs during his episodes, which meant he was always in the nurse’s office with either a head injury, or curled into a ball, snoozing. I wasn't as sick as Alex, but I liked to sleep off my headaches in the nurse’s office and would wake to Alex playing Pokémon on the bed next to mine, other times sitting on the observation bed with his knees drawn to his chest. Alex wasn't a fan of shots. 
+Due to his condition, the boy fell asleep a lot, sometimes tumbling down the stairs during his episodes, which meant he was always in the nurse’s office with  a head injury, or curled into a ball snoozing. I wasn't as sick as Alex, but I liked to sleep off my headaches in the nurse’s office and would wake to Alex playing Pokémon on the bed next to mine. 
 
-I discovered that when I was torn from a headache induced sleep to his blood curdling wails. I thought for *sure* he was dying, until I glimpsed the shot in Nurse Golding’s hand. Initially, I wasn't surprised the kid was screaming, she was trying to stab the thing into the back of his head.
+Other times, he would be sitting on the observation bed with his knees drawn to his chest. Alex wasn't a fan of shots. 
 
-Though, after reassuring me it was part of Alex’s treatment, she calmly told me to distract the boy while she administered his daily shot. I panicked, and attempted a puppet show with my hands. Alex was so confused by whatever I was trying to do, he stopped screaming, frowning at me like I had grown a second limb. 
+I discovered that when I was torn from a headache induced sleep to his blood curdling wails. 
+
+I thought for *sure* he was dying, until I glimpsed the shot in Nurse Golding’s hand. Initially, I wasn't surprised the kid was screaming, she was trying to stab the thing into the back of his head.
+
+Though, after reassuring me it was part of Alex’s treatment, she calmly told me to distract the boy while she administered his daily shot. 
+
+I panicked and attempted a puppet show with my hands. Alex was so confused by whatever I was trying to do, he stopped screaming, frowning at me like I had grown a second limb. 
 
 It worked! Kind of. Nurse Golding was ruffling his hair and calling him brave, when Alex’s eyes widened, his hand going to the back of his head. He started wailing again, but this time I was pretty sure it was for attention. 
 
@@ -26,11 +32,13 @@ Alex made me feel better about my headaches. I found his company comforting, and
 
 Growing up, we both got progressively better. Alex’s episodes decreased to one a month, and my headaches were easier to tolerate. The two of us still ended up in the nurse’s office, but for different reasons. I accidentally shoved a needle through my finger during arts and crafts, and was too shocked to cry. 
 
-Alex had fallen over during gym, and had the *tiniest* scratch on his leg, which set off the waterworks. When Nurse Golding was trying to rip the needle out of my finger with tweezers, Alex was *demanding* she replaced his bandaid. 
+Alex had fallen over during gym, and had the *tiniest* scratch on his leg, which set off the waterworks. 
+
+When Nurse Golding was trying to rip the needle out of my finger with tweezers, Alex was *demanding* she replaced his bandaid. 
 
 Starting middle school, the two of us came face to face with Nurse Jane. 
 
-She was terrifying, as well as completely incompetent. There was no candy in her office, and her solution to a girl in my class breaking her arm, was “Put a wet piece of tissue paper on it”*
+She was terrifying, as well as completely incompetent. There was no candy in her office, and her solution to a girl in my class breaking her arm, was *“Put a wet piece of tissue paper on it”*
 
 Alex tried the, *I'm sooo sick!* thing, and Nurse Jane spent half an hour lecturing him about healthy food. 
 
@@ -58,13 +66,17 @@ I told him I'd think about it, so he came straight to my house himself.
 
 I didn't even know he knew my address. 
 
-“Why don't you want to play?” Alex asked through a mouthful of chocolate chip cookies. Mom had given him a plate to take up to my room. Hiding behind him were his two friends, Lucy Conrad, a curly haired brunette with ribbons in her pigtails, and Ki Jacobs, the foreign exchange kid from Australia. The three of them already seemed like a tight knit group in class, sending each other notes and giggling. 
+“Why don't you want to play?” Alex asked through a mouthful of chocolate chip cookies. Mom had given him a plate to take up to my room. 
+
+Hiding behind him were his two friends, Lucy Conrad, a curly haired brunette with ribbons in her pigtails, and Ki Jacobs, the foreign exchange kid from Australia. The three of them already seemed like a tight knit group in class, sending each other notes and giggling. 
 
 I wasn't sure I wanted to be the odd one out in their little gang. 
 
 Still though, Alex was insistent that I join them. 
 
-So, I did. The three invited me to the town’s summer festival, and I had so much fun I forgot why I was scared of ruining their friendship. Ki choked on his Coke float, which shouldn't have been funny, but it was his over-reaction that sold me. The rest was history. Initially, I was kind of hesitant, only hanging out with them on select days, making sure not to be *too* invasive. 
+So, I did. The three invited me to the town’s summer festival, and I had so much fun I forgot why I was scared of ruining their friendship. Ki choked on his Coke float, which shouldn't have been funny, but it was his over-reaction that sold me. The rest was history. 
+
+Initially, I was kind of hesitant, only hanging out with them on select days, making sure not to be *too* invasive. 
 
 Mom warned me that joining an already established friendship group was dangerous, on account of me potentially being left out. She had horror stories from her own teenagehood, where she was the fourth member in a group of girls, who turned on her for their own entertainment, inviting her to slumber parties for the sole purpose of bullying her. 
 
@@ -114,25 +126,33 @@ Halfway through my senior year, I lost my parents to a seventeen year old drunk 
 
 Jason Chatham, who already went to juvie for intentionally running over a cat, was the mayor’s son, so Jason got a reduced sentence and four weeks of community service. He gave me a bullshit ‘apology’ and was forced to beg for forgiveness, despite the fucker smirking through the whole court trial. 
 
-Jason was sent abroad to college, and my parents’ funeral wasn't even an open casket. Apparently, there wasn't much left to bury. I couldn't even afford the fucking funeral, it was the *town* that paid. 
+Jason was sent abroad to college, and my parents’ funeral wasn't even an open casket. 
+
+Apparently, there wasn't much left to bury. I couldn't even afford the fucking funeral, it was the *town* that paid. 
 
 I had no other relatives. There was just me, Mom, and Dad. 
 
 Alex, Lucy, and Ki stayed by my side the whole time, but I barely talked to them. I was numb, my body felt detached and wrong, like it didn't exist. 
 
-Time moved far too slowly. I was burying my parents, a shovel stuck in my clammy hands, and then it was pitch black, and I was sitting in a random alleyway, my head spinning, halfway through a bottle of whisky. It tasted like poison, but it also stopped me thinking for a while. 
+Time moved far too slowly. I was burying my parents, a shovel stuck in my clammy hands, and then it was pitch black, and I was sitting in a random alleyway, my head spinning, halfway through a bottle of whisky. 
 
-Alex found me, still in his funeral attire. I wasn't sure why he had his tie wrapped around his head, though. He didn't hug me or tell me it was going to be okay. Alex snatched the booze, took a long swig, and then threw it over his shoulder. 
+It tasted like poison, but it also stopped me thinking for a while. 
 
-I don't know why I found the sound of the bottle splintering on the ground so funny, but I burst into hysterical giggles that felt *real* and a relief. I didn't cry like I expected. 
+Alex found me, still in his funeral attire. I wasn't sure why he had his tie wrapped around his head, though. He didn't hug me or tell me it was going to be okay.
+
+Alex snatched the booze, took a long swig, and then threw it over his shoulder. I don't know why I found the sound of the bottle splintering on the ground so funny, but I burst into hysterical giggles that felt *real* and a relief. I didn't cry like I expected. 
 
 I stood up, throwing out my arms to keep my balance.
 
 “You're a loser.” I told him, trying not to slur my words.
 
-Alex nodded at my dress. Lit up in the glow of a nearby streetlight, I realized my best friend’s eyes were red from crying, his lip wobbling. The idiot was trying so fucking hard to pretend we were okay, and failing miserably. His blondish brown curls were sticking up everywhere. 
+Alex nodded at my dress. Lit up in the glow of a nearby streetlight, I realized my best friend’s eyes were red from crying, his lip wobbling. The idiot was trying so fucking hard to pretend we were okay, and failing miserably. 
 
-I could tell he had been running his hands through it. Alex was far too empathetic, sucking up my emotions. 
+His blondish brown curls were sticking up everywhere. 
+
+I could tell he had been running his hands through it. 
+
+Alex was far too empathetic, sucking up my emotions. 
 
 “And you're covered in barf.” 
 
@@ -170,9 +190,19 @@ And protected their killer.
 
 But it's hard to say a real goodbye. 
 
-When I left for college, Alex and the others promised they would text and call every day. Lucy expected daily updates, and Ki was obsessed with my roommate's secret hamster she was hiding under her bed. We stayed in touch, initially. I couldn't just let them go. I was planning on inviting them for drinks, and having one last memory. 
+When I left for college, Alex and the others promised they would text and call every day. Lucy expected daily updates, and Ki was obsessed with my roommate's secret hamster she was hiding under her bed. 
 
-I facetimed them during the campus tour, showing them my room and exploring the city. I was waiting to declare some kind of friendship ending speech, but, I guess moving away was a natural killer. I started ignoring calls, responding in one word answers to their texts. Two months into  college, I had new friends, new experiences, and I wasn't the girl who's parents died. 
+We stayed in touch, initially. 
+
+I couldn't just let them go. I was planning on inviting them for drinks, and having one last memory. 
+
+I facetimed them during the campus tour, showing them my room and exploring the city. 
+
+I was waiting to declare some kind of friendship ending speech, but, I guess moving away was a natural killer. 
+
+I started ignoring calls, responding in one word answers to their texts. 
+
+Two months into  college, I had new friends, new experiences, and I wasn't the girl who's parents died. 
 
 Alex proposed in a long paragraph text that they come visit and stay in my room, and I had to keep making excuses as to why it was a bad idea. 
 
@@ -200,9 +230,7 @@ I trailed off, clenching my phone tighter.
 
 Alex was surely ignoring me. 
 
-Again, I didn't blame him. We were adults with our own lives. The problem was, I had zero idea what Alex had been doing the last five years because he was MIA. 
-
-Alex’s social media hadn't been updated in years, and I was pretty sure he'd just made new ones. 
+Again, I didn't blame him. We were adults with our own lives. The problem was, I had zero idea what Alex had been doing the last five years because he was MIA. Alex’s social media hadn't been updated in years, and I was pretty sure he'd just made new ones. 
 
 The same went for Ki and Lucy. 
 
@@ -212,7 +240,9 @@ I was aware of my colleague yelling my name, dropping my cigarette and stomping 
 
 Sometimes, life doesn't always work out the way you planned it. 
 
-“I know it's been a while since you uh, stopped texting me or whatever…” I let out a choked laugh. “Which is my fault, by the way,” my chest was aching, “But I've actually come home!” I tried to laugh, but it was more of a sob. “Yeah, it turns out NY wasn't really my scene.”
+“I know it's been a while since you uh, stopped texting me or whatever…” I let out a choked cough. “Which is my fault, by the way,” my chest was aching, 
+
+“But I've actually come home!” I tried to laugh, but it was more of a sob. “Yeah, it turns out NY wasn't really my scene.”
 
 That was a lie, though Alex was probably used to me lying. 
 
@@ -304,7 +334,8 @@ Unless Alex had taken up calligraphy in his five year absence.
 
 *Eleanor,*
 
-*I'm so happy to see you again in town! I hope you like the flowers. I know they were your sweet late mother’s favorite. I have left a surprise for you inside your parents house. It's not a lot, of course, but I want you to know you are never alone, sweetheart. I will always be here.*
+*I'm so happy to see you again in town! I hope you like the flowers. I know they were your sweet late mother’s favorite. 
+I have left a surprise for you inside your parents house. It's not a lot, of course, but I want you to know you are never alone, sweetheart. I will always be here.*
 
 *Enjoy your surprise. You will never be alone again.*
 
@@ -320,7 +351,11 @@ My colleague shrugged. “I dunno. Someone left it on one of the tables.”
 
 He shrugged. “I don't know what they looked like, I didn't even see someone coming in.”
 
-That night, following the note’s instructions, I returned home to an empty house, letters for repossession piled on the floor. I broke down somewhere between walking into the kitchen and seeing five year old milk sitting on the counter, and exploring my childhood room, the marks I scratched into the wall to track my height progress. It was so cold. So *empty*.
+That night, following the note’s instructions, I returned home to an empty house, letters for repossession piled on the floor. 
+
+I broke down somewhere between walking into the kitchen and seeing five year old milk sitting on the counter, and exploring my childhood room, the marks I scratched into the wall to track my height progress. It was so cold. 
+
+So *empty*.
 
 Without Mom and Dad, there was no light. 
 
@@ -354,7 +389,9 @@ I froze.
 
 The voice was coming from the basement. 
 
-It was when I was slowly making my way down the stairs, my phone vibrated with a text. I was reaching for it, when it vibrated again, and again, and again, buzzing in my pocket. Pulling it out, I found myself staring at a multitude of text messages.
+It was when I was slowly making my way down the stairs, my phone vibrated with a text. I was reaching for it, when it vibrated again, and again, and again, buzzing in my pocket. 
+
+Pulling it out, I found myself staring at a multitude of text messages.
 
 **05/07/2019: We need to talk, Ella. Did you get my last text?**
 
@@ -428,7 +465,7 @@ I *knew* his voice that had been cruelly stitched and knitted together.
 
 He greeted me when I came back from summer camp with the exact words. 
 
-*“Finally!”* Alex had cried, wrapping his arms around me. *“You're home!”*
+*“Finally!”* Alex had cried, wrapping his arms around me. *“You're hOme!”*
 
 I could hear where his words had been cut and sliced, glued to each other to sound like a coherent fucking sentence.
 
@@ -460,7 +497,7 @@ There were three folders.
 
 There was another separate folder.
 
-**2007** 
+**2007.** 
 
 I clicked into it, a list of names coming up.  
 
@@ -468,7 +505,7 @@ I was loading into Alex’s name, when Lucy spoke.
 
 “What… are… you… waiting… for?” 
 
-Her giggle was half human, and half not, a static crackle of laughter and static. 
+Her giggle was half human, and half not, a crackle of laughter and static. 
 
 I knew her voice, and it fucking hurt. 
 
@@ -476,7 +513,9 @@ My 12th birthday, Lucy stood at the table in front of a giant chocolate cake. *�
 
 When she *did* lift her head, my best friend’s face was bruised and battered. 
 
-Ki’s grinning lips were skeletal, his head split in two, held together with duct tape. The way he was slumped, swaying back and forth, his head of thick curls glued to his head, made me sick to my stomach. “UPDATE…us.”
+Ki’s grinning lips were skeletal, his head split in two, held together with duct tape. The way he was slumped, swaying back and forth, his head of thick curls glued to his head, made me sick to my stomach. 
+
+“UPDATE…us.”
 
 Ki’s words had been ripped straight from years ago, when he yelled at me for annoying him to play Minecraft. 
 
@@ -494,7 +533,7 @@ He responded with a smile.
 
 *”I'm not telling you!”* I remembered his tone from back in school. I begged him for answers to the chemistry test. 
 
-It was like talking to not just a corpse, but the corpse of memory too. 
+It was like talking to not just a corpse, but the corpse of a memory too. 
 
 I pulled out my phone to call the cops, when my phone flashed again. 
 
