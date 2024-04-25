@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/s/Uqk19nY5tr)
+
 My great-grandfather was not a good person, by any means. In the 30s, my country was under the iron grip of a violent dictatorship, and it’s with great shame that I have to say he was deeply involved in it. My great-grandfather was a torturer and murderer working for a state that violated human rights and massacred its own population on a daily basis. Ironically, he was a very religious, catholic man, and seemed to think there was no contradiction in going to the mass in the morning, and then going on and killing people in the afternoon. 
 
 In the 40s, when the dictatorship was being toppled, my great-grandfather felt the cold breath of justice on his neck. And being a devout catholic man, he had been telling all his dirty deeds to his priest. He then did what he did best. He kidnapped the priest, executed him, and dumped his body in the same woods he had dumped all his other victims.  
