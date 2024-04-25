@@ -214,7 +214,7 @@ I could only imagine the fear Asher had been experiencing at that moment. Scream
 
 He had gone up there excited thinking that he was finally part of the friend group. Instead he had been eaten alive by a treehouse, or at least, something pretending to be a treehouse.
 
-The bark of the tree was squirming like there was muscle twitching and contracting underneath it. The branches started moving in an alien-like way, something I'm unable to describe further than that. The sounds of a deep monstrous, wet gurgling noise echoed through the forest as I followed behind Jacob and Trevor. We made it back to the quarry where we hopped on our bikes and drove to the nearest police station about 5 miles away. 
+The bark of the tree was squirming like there was muscle twitching and contracting underneath it. The branches started moving in an alien-like way, something I'm unable to describe further than that. The sounds of a deep monstrous, wet gurgling noise echoed through the forest as I followed behind Jacob and Trevor. We made it back to the quarry where we hopped on our bikes and road to the nearest police station about 5 miles away. 
 
 What happened after that was a blur. I don't remember much, but what I do remember is that we told the cops that my brother got eaten by something through incoherent cries. We came back to the same spot with the police, but the treehouse was now gone. Not without leaving a giant crater in the ground. Although they were presented with a strange hole in the ground, that didn't explain why my brother was missing. We were taken to the police station for questioning where we were separated into different rooms to explain ourselves.
 
