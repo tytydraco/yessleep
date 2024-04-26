@@ -227,3 +227,5 @@ With a powerful flap, the woman launches herself towards the balcony, shattering
 We rush to the balcony, just in time to see the woman disappearing into the dark sky. Her flight is erratic, a sign of its newfound form, but she quickly gains altitude and vanishes into the night, leaving behind a trail of questions and a palpable sense of dread.
 
 [Part 2](https://www.reddit.com/r/PageTurner627Horror/comments/1c99awm/our_investigation_into_a_cheating_spouse_took_an/)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/1bxyz41/our_investigation_into_a_cheating_spouse_took_an/)
