@@ -68,7 +68,7 @@ With the courage he gave me, I made my way out of my room and into the lit-up li
 
 "Oh, thank God. I was so worried when we found Scout. I thought the worst happened," my father said, slightly muffled as he hugged me tighter.
 
-"Found Scout? What do you mean? He's upstairs under my bed. I just pet him before I came down," I said, confused.
+"Found Scout? What do you mean? He's upstairs under my bed. He was just licking my hand before I came down," I said, confused.
 
 My father glanced at me, fear deep in his eyes, as he led me to the couch in our living room.
 
