@@ -68,7 +68,9 @@ I frantically clawed at the hole until I could squeeze my body out of it. When I
 
 I can't tell you how great the relief felt when I saw the light from the outside. I started sobbing as I realized what could have been down there. I decided to clean myself up and go back to my bed. I immediately fell asleep, and when I woke up, the sun was already gone. The darkness makes me feel uneasy as if that creature were still watching me. This continued every night for the next few weeks until I heard the growl one night. I recognized it immediately, and my heart dropped. It was here watching me this whole time; it had to be taunting me.
 
-Now, I barely sleep as I try to stay in the light every night. I can't take it anymore; I will give myself to him tonight. I can't take the uncertainty, so I will willingly give myself up. Death has to be better than this.
+The other night I decided to go into the shadows to prove to myself that it wasn’t just my mind playing tricks on me. That’s when it reached out and gripped my arm like I was a bug in the hands of a curious child. When I got free, I lunged back onto the floor and assessed my injury. My arm was broken along with my ability to keep going.
+
+I can't take it anymore; I will give myself to him tonight. I can't take the uncertainty, so I will willingly give myself up. Death has to be better than this.
 
 ----------------------------------------------------------------------------------------------------------------------------
 
@@ -112,6 +114,10 @@ This fucking thing is watching me. I can't deny it anymore. I think I saw it ear
 What a nightmare that was. Now that I'm away, reading that last entry made me laugh for a second, then I laid down in my bed and couldn't bring myself to turn off the light. The dread was there still, and it was still watching me in my own fucking bedroom.
 
 There's no doubt about it anymore, it followed me home just like Valerius. But why me? Did this creature really hold me to the same regard as that villainous grave robber? My work was different, it was about the history not money or fame or recognition. 
+
+Suddenly, it pops out of the shadows, reaching as it roared, trying to grab me but slicing my forearm as I put my hands up to defend myself.
+
+It stung so bad as it gushed with blood. I couldn’t help but feel like Valerius, how he’d gone through the same thing. I’d felt so superior to him and his people, now here I am, in the same predicament.
 
 I have no choice but to accept my fate. Tonight, I shall walk into the shadows for the last time. I can't take this anticipation, waiting for it to strike. So, this is my last entry on this earth.
 
