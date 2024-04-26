@@ -33,8 +33,5 @@ The staff took us inside and the cops were there and said we were going to join 
 
 I can't even type I'm shaking so much. The news was talking how our jails are overflowing. This is the cops idea?:the mayors? I don't know! I'm small I managed to squirm away and escpe .  I'm hiding in a dumpster I can't go home, they have my bag my address my ids. I can't go to family , I can't go to uni.
 
-I don't know what to do, they've started threatening me. Police are mssaging saying if I don't go to them theyll take my younger brother insead. I can’t lose him after I lost my friends. This is all my fault. I'm crying so much . I can't get the image the smell out of my head, the zombies. Knowing my friends are like that now. Not knowibg if it too late to save them. The police are removing all my posts talking abut this but I hope they sont remove this one.  Please help, Im terrified I don't know what to do .
+I don't know what to do, they've started threatening me. Police are mssaging saying if I don't go to them theyll take my younger brother insead. I can’t lose him after I lost my friends. This is all my fault. I'm crying so much . I can't get the image the smell out of my head, the zombies. Knowing my friends are like that now. Not knowibg if it too late to save them. The police are removing all my posts talking abut this but I hope they sont remove this one.  Please help, Im terrified I don't know what to [do](https://www.reddit.com/r/Skittishreflections) .
 
-\-----
-
-[SR](www.reddit.com/r/Skittishreflections)
