@@ -40,7 +40,7 @@ With leaden legs, I finally reached my doorway, heaving a heavy sigh as I fumble
 
 The stark absence hit me with a force that sliced through my exhaustion. No farewell note, no boxes stacked in the hallway, not even the customary hum of activity that preceded a move. It felt as if Mrs. Henderson had been erased, as if her existence had been wiped clean off the face of the earth. 
 
-In the intricate web of an apartment building, a cacophony of sounds - the groan of overburdened trolleys, the dull thuds of boxes descending the stairs, typically announced when someone when moving out. Yet, in the case of Mrs. Henderson, there had been no such sounds. She simply vanished, as insubstantial as a wisp of smoke, leaving behind a disquieting silence and a nagging sense of unease.
+In the intricate web of an apartment building, a cacophony of sounds - the groan of overburdened trolleys, the dull thuds of boxes descending the stairs, typically announced when someone was moving out. Yet, in the case of Mrs. Henderson, there had been no such sounds. She simply vanished, as insubstantial as a wisp of smoke, leaving behind a disquieting silence and a nagging sense of unease.
 
 As I entered my apartment, I took off my uniform, peeling away the day’s exhaustion like a layer of worn skin. An impenetrable fog of fatigue loomed over me, calling me towards the oblivion of sleep. Yet, the thought of Mrs. Henderson’s sudden decision to move out of the apartment hovered at the periphery of my consciousness, a nagging reminder of the unanswered question about the clicking. Despite the intrigue, the irresistible lure of slumber proved too strong to resist, and I succumbed to its pull. 
 
