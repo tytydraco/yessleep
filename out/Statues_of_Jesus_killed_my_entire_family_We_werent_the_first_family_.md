@@ -1,7 +1,7 @@
 
 
 [Part 1](https://www.reddit.com/r/Matgamarra/s/iEY11iMTDZ)
-[Part 2](https://www.reddit.com/r/nosleep/s/zItsnsqrNk)
+[Part 3](https://www.reddit.com/r/nosleep/s/zItsnsqrNk)
 
 
 The wooden boards covering the windows of my apartment were easily broken by the Jesus statue, as it effortlessly made its way into my apartment. I quickly got out of bed and grabbed my shotgun, that was already loaded and laying next to me. The statue advanced towards me, the hooks it had used to climb to my apartment on its hands. I pointed at it and shot. The statue flew back towards the wall, and I shot it again and again and again, until only pieces of it remained. I immediately had to change my pants afterwards. There is something in the absolute fear of facing death that throws your dignity out of the window. 

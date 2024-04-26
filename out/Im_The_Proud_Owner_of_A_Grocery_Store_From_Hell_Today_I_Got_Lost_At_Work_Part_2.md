@@ -4,6 +4,8 @@
 
 [(Part 3)](https://www.reddit.com/r/nosleep/comments/1cahyqf/im_the_proud_owner_of_a_grocery_store_from_hell/)
 
+([Part 4](https://www.reddit.com/r/nosleep/comments/1cdlmea/im_the_proud_owner_of_a_grocery_store_from/))
+
 I began remodeling Pop’s Grocery the very next day. Maybe it was foolish to hope that whatever haunted the store I’d bought could be exorcized by a few coats of fresh paint, but I had to start somewhere. Besides, in the back of my mind, I still secretly hoped that there might be a logical explanation for what I’d experienced. My wife theorized that what had happened to me was a hallucination caused by stress–and there was definitely enough of that to go around. 
 
 Steve Kelch had claimed that nothing in Pop’s Grocery had been updated since Reagan was president–and he hadn’t been exaggerating.
@@ -13,8 +15,6 @@ The first thing I wanted to replace were the ancient fluorescent lights, which (
 I’d already had two electricians take a look at it, but neither could explain the unnerving, metallic groans that sometimes emanated from the speakers, or the way they seemed to pick up other frequencies…like the screaming man.
 
 “Russell Hughes, 315-45-17!” the frantic voice would boom, warbled and chopped with static. “This is Russell Hughes, 315-45-17! If anyone can hear this, send help! Russell Hugh…” Sooner or later, the man’s plea disappeared, swallowed up by shopping muzak. 
-
-
 
 At first, I thought it was just the staff playing a strange prank. The third time it happened, I called a meeting in the break room and told the seven employees on duty that we needed to talk about the noises coming from the PA system. When I did, every face went pale. Erica Hawkins, a skinny redheaded teenager who’d only been at Pop’s Grocery for two months, immediately raised her hand to speak. 
 
@@ -78,5 +78,4 @@ I didn’t think twice. I fled through the door the dead man was pointing to–
 
 And found myself back in the version of the Manager’s Office I recognized. 
 
-Here the only door was the one I’d just walked through, and when I opened it for a second time, I was back in Pop’s Grocery. The mutilated corpse and infinite rooms were gone…but the weird list was still in my hand. I asked Irene to cover for me and headed for the sheriff’s office. 
-
+Here the only door was the one I’d just walked through, and when I opened it for a second time, I was back in Pop’s Grocery. The mutilated corpse and infinite rooms were gone…but the weird list was still in my hand. I asked Irene to cover for me and headed for the sheriff’s office.

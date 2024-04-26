@@ -1,4 +1,5 @@
 [Part 2](https://www.reddit.com/r/nosleep/s/Uqk19nY5tr)
+[Part 3](https://www.reddit.com/r/nosleep/s/28WH7q6YV6)
 
 My great-grandfather was not a good person, by any means. In the 30s, my country was under the iron grip of a violent dictatorship, and it’s with great shame that I have to say he was deeply involved in it. My great-grandfather was a torturer and murderer working for a state that violated human rights and massacred its own population on a daily basis. Ironically, he was a very religious, catholic man, and seemed to think there was no contradiction in going to the mass in the morning, and then going on and killing people in the afternoon. 
 
