@@ -201,7 +201,7 @@ I got to the top and looked around, but saw nothing.
 
 “Asher?” I said allowed, assuming he was behind the other side of the tree. 
 
-I crawled inside, and the now stronger smell of vomit and bile assaulted my nostrils, causing me to tear up. I made my way all the way around, but he was nowhere to be seen. My stomach dropped. Where could he have gone? I looked at the floor and saw the army knife lying there in a puddle of what looked like greasy yellow slime. I took a good look at it and then turned my attention towards the 
+I crawled inside, and the now stronger smell of vomit and bile assaulted my nostrils, causing me to tear up. I crawled all the way around, but he was nowhere to be seen. My stomach dropped. Where could he have gone? I looked at the floor and saw the army knife lying there in a puddle of what looked like greasy yellow slime. I took a good look at it and then turned my attention towards the 
 tree.
 
 The same mark I saw before had slime dripping down from the tight crevice with a new small mark above it, looking like a little scab. The sight reminded me of the closed mouth of a toothless old person, saliva running down their lips. It looked like Asher started carving but didn't finish. I just sat there, trying to process what I was looking at. Jacob and Trevor were calling out to me, but it didn't register with me. A thousand thoughts raced through my head. I wanted to throw up. 

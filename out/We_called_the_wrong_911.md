@@ -138,9 +138,7 @@ I sent a burst of texts to Jerry.
 
 **GET OUT.**
 
-"Yea, I'm not sure, he was supposed to answer the door. Uhm... uh..."
-
-He must have read the messages.
+"Yea, I'm not sure, he was supposed to answer the door. Uhm... uh...
 
 "Is everything alright, Jerry?"
 
