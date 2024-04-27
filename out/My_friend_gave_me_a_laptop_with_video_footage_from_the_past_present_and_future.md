@@ -61,13 +61,13 @@ The 2016 footage began with a young boy, probably around the age of 10, red-face
 A ball was held up to the kid's nose. Then, a long thin insect with long legs began to crawl out of the boy's left nostril. Chills ran all over me. They got worse as the insect seemed to have no end. More of it kept crawling out of the boy's nose as the boy shut his eyes and continued to scream. Even when the insect reached the floor, it still hadn't left the boy's nose. I wanted to look away. I was terrified of insects and what they could do to the inside of one's body… and this was most definitely not an exception… but my curiosity got the best of me. The ball was placed on the floor, then the insect wrapped itself around it. Even when it had covered the ball, it still hadn't left the boy's nose. If I saw that thing myself, I wouldn't know what to do with it. An image popped up, showing a similar long insect on a kitchen floor. It managed to cover half of the floor. I gagged. The video ended without showing the insect completely leaving the boy. Not that I wanted to see any more of it.
 
 
-There was a loud banging on my front door. When I answered it, a middle aged male police officer stood at my doorstep. He asked me if I had received a new laptop. I told him yes. He then asked me if the laptop had a file containing inexplicably weird videos. I told him yes. He then asked if he could see them. I offered to show him, then ran downstairs, grabbed the laptop, and carried it up to him. Hopefully this man had answers about Jessica. Watching one of the videos, the officer's eyes widened. He took out a phone and started texting. Some seconds later, he slid his phone back into his pocket and looked me in the eyes.
+There was a loud banging on my front door. When I answered it, a middle aged male police officer stood at my doorstep. He asked me if I had received a new laptop. I told him yes. He then asked me if the laptop had a file containing inexplicably weird videos. I told him yes. He then asked if he could see them. I offered to show him, then ran downstairs, grabbed the laptop, and carried it up to him. Hopefully this man had answers about Jessica. Watching one of the videos, the officer's eyes widened. He took out a phone and started texting. Some seconds later, he slid his phone back into his pocket. He grabbed his radio, then held it up to his face.
 
 
-“You are about to be searched. Don't move.”
+"This is the one. Move in."
 
 
-He walked away. I leaned out of my door and watched as he walked off down my gravel driveway. Before I could utter a single word, men and women in dark tactical gear marched around the corner. Once they reached me, three of them grabbed me by the shoulders. I was gripped by the arms as well. A woman’s voice ordered the agents to search for any reproduction or notes taken of the footage, and so a dozen of the agents stormed inside. I was padded down, even scanned, then I was held tight with rifles aimed straight at my face. My legs were trembling. What in the hell was going on? Who were these agents? What did they want with the videos?
+I leaned out of my door and watched as he walked off down my gravel driveway. Before I could utter a single word, a team of people in dark tactical gear marched around the corner. Once they reached me, three of them grabbed me by the shoulders. I was gripped by the arms as well. A woman’s voice ordered the agents to search for any reproduction or notes taken of the footage, and so a dozen of the agents stormed inside. I was padded down, even scanned, then I was held tight with rifles aimed straight at my face. My legs were trembling. What in the hell was going on? Who were these agents? What did they want with the videos?
 
 
 Out of the corner of my left eye, I saw a woman with dark hair wearing a suit. She walked up to me, then gave me a deep stare before speaking.
@@ -85,16 +85,13 @@ Out of the corner of my left eye, I saw a woman with dark hair wearing a suit. S
 “It was given to me by my friend, Jessica Rowan. We've known each other since high school.”
 
 
-“We're going to have you sign an NDA. Do not resist or you may face jail time.”
-
-
-“I understand.”
-
-
-After about an hour, the agents left. I looked for labels and agency logos, but there were none. These guys were unmarked. I shut my door, then locked it. I was almost limping as I walked back to my living room, wondering why the hell that happened. I removed the rug, lifted the carpet, grabbed the box, then opened it up. To my relief, the USB stick was still sitting there.
+The agent pressed on until giving me an NDA to sign. An hour later, the team left. I had looked for labels and agency logos, but there were none. These guys were unmarked. I shut my door, then locked it. I was almost limping as I walked back to my living room, wondering what the hell just happened. I removed the rug, lifted the carpet, grabbed the box, then opened it up. To my relief, the USB stick was still sitting there.
 
 
 What was there that I wasn't allowed to see? I plugged the USB into my laptop and the files loaded up. As I scrolled through the files, I noticed the file names had dates post-dating April 2024. The last file had 2026 in its title. I dread finding out something terrifying I cannot prevent will happen to me. Although, maybe it will be something I can prevent. Or maybe my friend got a hold of some test videos she wasn't supposed to see.
 
 
 (Nevermind. As I wrote that sentence, I saw what I thought was a centipede crawling out from under my couch. My heart sank, but what made it worse was that the thing was too long. It kept crawling out from under the couch, then, at one point, it turned to me, then sped at me. My guts sank, then I sprinted around then away from it. That thing isn't crawling inside me and causing a mess with my organs. I hid in the bathroom, and eventually fell asleep. Then I woke up to the fucking thing digging into my nose. My head was tingling too. The pit in my stomach was like an electric shock. I grabbed the insect, then I pulled it, attempting to yank it out. Big mistake. I went lightheaded, then woke up on the bathroom floor with a tingling all over my head and the constant feeling I'm about to vomit. I called my doctor. I have no idea what this insect is or what it's going to do to me. Honest to god, I hope this won't have any long lasting effects. I need to watch those videos. Fuck, I wish Jessica would answer my messages again.)
+
+
+[Update](https://old.reddit.com/r/nosleep/comments/1ceot3b/update_my_friend_gave_me_a_laptop_with_video/?)
