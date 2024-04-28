@@ -4,7 +4,7 @@ Over the last few years or so I haven't been out much, at all really. My social 
 
 Last week something different happened, I got invited to a dinner.
 
-Freida, she said her name was, a friend of an acquaintance, Jung. Last week while I was at the market downtown I ran into them. Both of them had like some kind of weird 'aura' about them. Hard to describe but it was  like everything in this world was going well for them. Almost like these people were living in a whole different set of rules or society... I know it sounds crazy.
+Freida, she said her name was, a friend of an acquaintance, Jung. I was at the market downtown when I ran into them. Both of them had like some kind of weird 'aura' about them. Hard to describe but it was like everything in this world was going well for them. Almost like these people were living in a whole different set of rules or society... I know it sounds crazy.
 
 But anyways, at the market, this girl Frieda invited us over for dinner. I thought why not just do something out of the ordinary. It's not like she was a complete stranger, friend of a 'friend', why not have a dinner at her place?
 
@@ -80,7 +80,7 @@ A bust... 'Freidrich Heimer II' I said confused. 'You have a bust of Freidrich H
 
 "Like I said... I try to keep, *my self*... inspired" she said reiterating.
 
-Keep herself inspired... *what*? I looked at the bust and back at here. Was I losing my mind or did she look like him in some bizarre way. I pinched my eyes, my forehead now damp. I had to get going, it was definitely awkward now, at least for me at that point.
+Keep herself inspired... *what*? I looked at the bust and back at her. Was I losing my mind or did she look like him in some bizarre way. I pinched my eyes, my forehead now damp. I had to get going, it was definitely awkward now, at least for me at that point.
 
 I looked around some more. A shelf filled with memorabilia from some vlogger I had never heard of "Fred-ay!". A platinum plaque congratulating 'Fred-ay!' on his accomplishments.
 

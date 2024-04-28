@@ -228,4 +228,4 @@ We rush to the balcony, just in time to see the woman disappearing into the dark
 
 [Part 2](https://www.reddit.com/r/PageTurner627Horror/comments/1c99awm/our_investigation_into_a_cheating_spouse_took_an/)
 
-[Part 3](https://www.reddit.com/r/nosleep/comments/1bxyz41/our_investigation_into_a_cheating_spouse_took_an/)
+[Part 3](https://www.reddit.com/r/nosleep/comments/1cf432h/our_investigation_into_a_cheating_spouse_took_an/)
