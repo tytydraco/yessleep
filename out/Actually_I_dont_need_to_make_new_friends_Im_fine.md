@@ -2,11 +2,11 @@ Over the last few years or so I haven't been out much, at all really. My social 
 
 *'Hows the family?', 'Are you still working there?', 'Good to see you'.* Just pointless banter and small talk.
 
-Last week something different happened, I got invited to a diner.
+Last week something different happened, I got invited to a dinner.
 
 Freida, she said her name was, a friend of an acquaintance, Jung. Last week while I was at the market downtown I ran into them. Both of them had like some kind of weird 'aura' about them. Hard to describe but it was  like everything in this world was going well for them. Almost like these people were living in a whole different set of rules or society... I know it sounds crazy.
 
-But anyways, at the market, this girl Frieda invited us over for diner. I thought why not just do something out of the ordinary. It's not like she was a complete stranger, friend of a 'friend', why not have a diner at her place?
+But anyways, at the market, this girl Frieda invited us over for dinner. I thought why not just do something out of the ordinary. It's not like she was a complete stranger, friend of a 'friend', why not have a dinner at her place?
 
 So I got to her apartment around six and she buzzed me in. This was the nice part of town, marble fountain outside, metallic trim, expensive cars everywhere. Another 'successful' person I thought, really trying not to be jealous.
 
@@ -20,7 +20,7 @@ So she put on this jazz record and offered something to drink. We were talking f
 
 So after a while she showed me around a little and started to prep the food. Clearly she did have money, the apartment was *nice*, designer furniture, classy artwork, the works. I sort of felt out of place to be honest.
 
-She started cooking and I went to washroom and that's when things started to go, uh, awry. Now look, I know this is going to sound absolutely batshit insane but I'm serious about this.
+She started cooking and I went to the washroom and that's when things started to go, uh, awry. Now look, I know this is going to sound absolutely batshit insane but I'm serious about this.
 
 When I got into the washroom I saw this beautiful painting. It was mesmerizing. Now the subject was nothing out of the ordinary, just some village but the technique was incredible. I looked closely at the name of the painter and it was signed with nothing other than a large 'F'.
 
@@ -42,7 +42,7 @@ I tried to make conversation.
 
 'Y-you painted it?' I said stunned, the work was exceptional, surely she was joking. It was clearly a print of one of the European 'masters'. *Great*... another bullshitter, I thought.
 
-'No word of I lie, that is my painting.' she said still deadpan. I could swear her focus was intensified as she was cutting. The chop sound echoing rhythmically.
+'No word of a lie, that is my painting.' she said still deadpan. I could swear her focus was intensified as she was cutting. The chop sound echoing rhythmically.
 
 "You must but joking. That has to be a print. You paint? No one who paints like that would be working as a chef! Come on, it looks like it was painted a hundred years ago...' I was saying the words but really, I almost didn't believe it myself, because I got no sense she was lying at all.
 
@@ -72,9 +72,9 @@ My mouth fell open. The dish looked incredible, but the taste was... *it was hor
 
 As if the pungent taste of the dish had almost woken me up. I started to notice how bizarre some of the decor really was. I brazenly began to walk around inspecting the items in her apartment closely.
 
-A bust... 'Freidrich Heimer II' I said confused. 'You have a bust of Freidrich Heimer II the second?' my tone almost weary. Some part of my brain was working in overdrive; an irrational paranoia after the encounter with the bitter dish. *'It must have been poison...'* a voice said in the back of my head.
+A bust... 'Freidrich Heimer II' I said confused. 'You have a bust of Freidrich Heimer the second?' my tone almost weary. Some part of my brain was working in overdrive; an irrational paranoia after the encounter with the bitter dish. *'It must have been poison...'* a voice said in the back of my head.
 
-"I try to keep myself inspired" she said almost deadpan.
+"I try to keep myself inspired" she said emotionless
 
 "Freidrich Heimer II keeps you inspired... but why?" I said confused
 
@@ -94,11 +94,11 @@ I looked around some more. A shelf filled with memorabilia from some vlogger I h
 
 "You could say that" she said coldly as she danced her fingers along the chefs blade.
 
-I looked a book on the coffee table. 'Fredrickton...' I said a lump forming in my throat.
+I looked at a book on the coffee table. 'Fredrickton...' I said a lump forming in my throat.
 
 'Oh yes, one of my favourites. Rough start we had there..." she was now carving into the counter top with the tip of the blade ever so gently...
 
-I felt like I was in the Twilight Zone, I was starting to feel like maybe I was geting dizzy. Maybe I wasn't paranoid after all? Was my temperature rising? I had to sit down. I looked at the table beside me.
+I felt like I was in the Twilight Zone, Was I was getting dizzy? Maybe I wasn't paranoid after all? Was my temperature rising? I had to sit down. I looked at the table beside me.
 
 Another book that looked ancient 'Classical Poems of *Friedrick Durrple*'... everything in this room was connected to either a 'Fred' or 'Freida'. I was bewildered, it was incredibly strange. Why did she have all of this?
 
@@ -106,7 +106,7 @@ Another book that looked ancient 'Classical Poems of *Friedrick Durrple*'... eve
 
 "Oh those were the days... people were more trusting back then. In general at least" it sounded like she was recounting personal experience and not giving her opinion on a bygone age.
 
-"Some of my best work" she gripped the blade, now in her hand, she had walked around the island in the kitchen and had was slowly walking into the living room.
+"Some of my best work" she gripped the blade, now in her hand, she had walked around the island in the kitchen and was slowly walking toward the living room.
 
 "Your work..." I said in a daze almost
 
@@ -120,7 +120,7 @@ I fell to the floor, sweating profusely. I was losing consciousness.
 
 "Die?" she said as she slowly lifted the blade.
 
-'No...' was all I could muster, my throat dry. Slowly her face began to contort grotesquely, round and pale, her eyes large and beady, pitch black. He mouth formed into an impossible Cheshire grin, donning pointed teeth. I tried to scream but it was like I couldn't make a sound. I was starting to pass out.
+'No...' was all I could muster, my throat dry. Slowly her face began to contort grotesquely, round and pale, her eyes large and beady, pitch black. Her mouth formed into an impossible Cheshire grin, donning pointed teeth. I tried to scream but it was like I couldn't make a sound. I was starting to pass out.
 
 Then I just, woke up.
 
@@ -136,7 +136,7 @@ I knew where I was, a few blocks from home. I would walk, it wasn't far. I could
 
 I haven't seen him since.
 
-I slowly dragged myself home, I was only a few blocks away when I heard a voice, rough and old.
+I slowly dragged myself home, I was only a few buildings away when I heard a voice, rough and old.
 
 "You dropped something" he said spitting through his broken teeth and stained beard.
 
@@ -152,7 +152,7 @@ I felt my self go limp, I almost threw up. Suddenly the man disappeared behind t
 
 When I turned the corner there was no one.
 
-I got in and sat down, completely defeated at the events that just occurred. I opened my wallet, everything was in it's place, but there, in one of the card slots was a plain white bushiness card sticking out slightly.
+I got in and sat down, completely defeated at the events that just occurred. I opened my wallet, everything was in it's place, but there, in one of the card slots was a plain white business card sticking out slightly.
 
 I slowly pulled it from the slot, written in blood were just two words.
 
