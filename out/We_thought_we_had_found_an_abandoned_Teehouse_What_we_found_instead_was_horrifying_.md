@@ -26,7 +26,7 @@ I shoved him off the couch, and he got up, looking out onto the porch.
 
 “You're always tired.” He said as he walked over to the glass sliding door.
 
-I watched him looking out the window, feeling too weak to move. It was so hot it felt like I was melting into the couch. Mom and Dad had all this time to go on dinners, trips, and visits, yet they didn't have time to get someone to fix the damn air conditioning. 
+I watched him look out the window, feeling too weak to move. It was so hot it felt like I was melting into the couch. Mom and Dad had all this time to go on dinners, trips, and visits, yet they didn't have time to get someone to fix the damn air conditioning. 
 
 A knock from the front door echoed through the house, catching Asher's attention. He stood up and went to answer it. 
 
@@ -66,7 +66,7 @@ I sighed, getting up off the couch. I looked at the time, as though I had someth
 
 Trevor ran out of the house, followed by Jacob and Asher. I jogged towards them and exited the house. They all hopped on their bikes that were hastily thrown on the messy toy covered lawn. Mom and Dad had told us that we needed to clean the front and backyard, but our logic was to wait until the last second before touching anything. We were two geniuses competing with Tesla's IQ.
 
-Our house was completely surrounded by miles of woods on a small quiet road. The nearest neighbor was a half mile away, so if anything were to happen at home, then we were on our own. I honestly don't know what our parents were thinking during that point of time, always going out. 
+Our house was completely surrounded by miles of woods on a small quiet road. The nearest neighbor was a mile and a half away, so if anything were to happen at home, then we were on our own. I honestly don't know what our parents were thinking during that point of time, always going out. 
 
 We drove about a mile and a quarter down the road on our bikes, the wind feeling amazing against my sweaty face. Afterward, we drove onto a trail off to the side of the road and continued through the forest. The sun was beaming through the trees, most of which were just barely growing their leaves back.
 
@@ -106,7 +106,7 @@ It was an amazing sight for sure. The wood of the treehouse was a light color, a
 
 We didn't question it. I wish we would've, but we were young, stupid, and naive. At least, that's what I keep telling myself. 
 
-I went up next to the ladder and rested my hand on the tree. However, I instantly pulled it back. The bark of the tree felt off. In fact, it didn't feel like bark at all. It was somewhat warm with a soft nubuck leathery feel. I slowly went to feel again. It definitely was not bark. I couldn't even keep my hand on it longer than 2 seconds without feeling disgusted. I honestly thought the tree was rotten, which made me hesitant to climb up the ladder.
+I went up next to the ladder and rested my hand on the tree. However, I instantly pulled it back. The bark of the tree felt off. In fact, it didn't feel like bark at all. It was somewhat warm with a soft nubuck leathery feel. I slowly went to feel again. It was definitely not bark. I couldn't even keep my hand on it longer than 2 seconds without feeling disgusted. I honestly thought the tree was rotten, which made me hesitant to climb up the ladder.
 
 I didn't say anything so as to not spoil the mood, so I stood back to look back up at the treehouse again. Trevor, Jacob, and Asher blabbed about their ideas of what they could do with the treehouse. Trevor and Jacob always tried to include Asher in stuff, which was nice, but I still always felt annoyed with his presence most of the time.
 
