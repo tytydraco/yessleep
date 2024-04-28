@@ -1,4 +1,4 @@
-I need to tell you all about about something that happened to me, something I did, and what likely going to happen in a few minutes from now.
+I need to tell you all about something that happened to me, something I did, and whats likely going to happen in a few minutes from now.
 
 So there I was. I've been driving for hours, my mind numb from the long shift at the hospital. The clock on my dashboard reads 2:37 AM, and I can barely keep my eyes open. All I want is to get home, crawl into bed, and forget about the stress of the day.
 
@@ -217,7 +217,6 @@ And then, I sink to the floor, my back against the door, my knees pulled up to m
 
 The reality of what I've done crashes over me, the enormity of my mistake. I've killed an innocent man, a victim of my own delusions and paranoia. Unless that woman was lying too. Unless she was in on it.
 
-  
 I don't know how long I sit there, lost in my own despair. Minutes? Hours? Time loses all meaning in a situation like this. But eventually, I pull myself to my feet. I make my way to my computer, my fingers trembling as I open a new document.
 
 And I begin to write this story.

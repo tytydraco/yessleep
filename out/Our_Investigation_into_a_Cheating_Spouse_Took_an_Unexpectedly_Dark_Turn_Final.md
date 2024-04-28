@@ -174,7 +174,7 @@ As I walk down the dimly lit hallway, the echo of my footsteps blends with the m
 
 —
 
-Life has a way of rolling on, even after the shadows creep in and show you things that can't be unseen. Reine and I, well, we're still doing our thing—chasing leads, cracking cases, and trying to keep it all together.
+The outcome of this case doesn't sit well with me. Sure, those traffickers got a dose of harsh justice, which might feel deserved. But what about Zane? His mistakes were real, yet the brutality he faced raises tough questions. And his family—they didn’t deserve the fallout. Then there’s Chantrea and Soriya, caught in an endless cycle of suffering. Chantrea’s transformation into something fearsome, a response to her deep wounds, and Soriya, left to rebuild alone. It's all shades of gray, and none of it feels quite right.
 
 I still keep a casual eye out for any news on Chantrea. You could say it's part professional habit, part genuine concern for what became of her. Every so often, stories pop up on true crime forums that catch my attention—unsavory characters found dismembered in the darker corners of the city, always accompanied by accounts of a flying demon woman with a detachable head.
 
