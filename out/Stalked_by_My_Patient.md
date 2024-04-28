@@ -34,7 +34,7 @@ Finally, the engine roars to life. I slam my foot on the gas, the tires screechi
 
 I don't stop driving until I'm miles away, my body shaking with a mixture of fear and relief. I can hardly believe what just happened. I was so close to becoming another horror story, another statistic.
 
-It's had been a week since that night, and I'm still struggling to come to terms with what happened. I reported the incident to the police, but they seem skeptical of my story. They keep asking me if I'm sure it was a real officer, if I might have misinterpreted the situation. I can tell they don't believe me, and it's just adding to the trauma I'm already dealing with.
+It had been a week since that night, and I'm still struggling to come to terms with what happened. I reported the incident to the police, but they seem skeptical of my story. They keep asking me if I'm sure it was a real officer, if I might have misinterpreted the situation. I can tell they don't believe me, and it's just adding to the trauma I'm already dealing with.
 
 The days blur together in a haze of exhaustion and paranoia. Sleep eludes me, and when it does come, it's filled with nightmares that jolt me awake in a cold sweat. Every time I close my eyes, I'm back on that dimly lit off-ramp, trapped and helpless. I can feel the phantom sensation of his breath on my skin, the rough grip of his hands. The memories loop endlessly, inescapable.
 
@@ -167,7 +167,7 @@ And so, in the darkest hours of the night, I start to plan.
 
 I research weapons, studying the mechanics of guns and knives with a morbid fascination. I practice self-defense moves until my muscles ache and my knuckles bleed, imagining Ethan's face on every punching bag, every sparring partner.
 
-I track his find out everything about his habits from his case files. I search endlessly looking for any clue as to the exact halfway house and room he is staying in.
+I find out everything about his habits from his case files. I search endlessly looking for any clue as to the exact halfway house and room he is staying in.
 
 And finally, after weeks of preparation, I find it. A location, an opportunity. A chance to end this nightmare once and for all.
 
