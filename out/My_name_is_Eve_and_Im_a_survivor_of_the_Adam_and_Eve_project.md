@@ -84,7 +84,7 @@ A text to speech voice drew my attention to the ceiling, and next to me, Adam le
 
 “Two hundred years ago, on April 5th 2023, NASA announced the discovery of BlueSky, a potentially hazardous NEO (Near Earth Object) was estimated to miss our planet, flying by at just 19,000 miles (32,000 kilometers).” 
 
-*Two hundred two years ago.*
+*Two hundred years ago.*
 
 The robot’s voice wasn't fully registering in my brain. 
 
