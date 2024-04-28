@@ -156,7 +156,7 @@ I felt my butt lift off the seat I had become so familiar with. I tried to wrap 
 
 After the longest five seconds of my life, I managed to pull it back down over my chest. I wasn’t sure who else got theirs down, but I assumed, from how scared a few of them sounded, it wasn’t good. 
 
-All I could think about and look at was the big loop coming up. As we got closer, I could hear swearing from multiple passengers. Including someone in front of me. She was violently pulling at the restraint, but it just wasn’t budging. I was hoping and praying that the centripetal force would keep her in her seat. 
+All I could think about and look at was the big loop coming up. As we got closer, I could hear swearing from multiple passengers. Including someone in front of me. She was violently pulling at the restraint, but it just wasn’t budging. I was hoping and praying that the centrifugal force would keep her in her seat. 
 
 As we went around the big loop, I closed my eyes. I knew I didn’t want to see what was about to happen. I heard multiple people screaming and making horrendous cracking sounds. 
 
