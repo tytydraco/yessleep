@@ -6,6 +6,8 @@
 
 ([Part 4](https://www.reddit.com/r/nosleep/comments/1cdlmea/im_the_proud_owner_of_a_grocery_store_from/))
 
+([Part 5](https://www.reddit.com/r/nosleep/comments/1cfwplr/im_the_proud_owner_of_a_grocery_store_from_hell/))
+
 I was lucky that Sheriff Benjamin Lloyd was in his office and not in a squad car waiting to pull me over.I was so disturbed by what I’d seen that I made the twenty-minute drive across town in less than ten. The office was quiet, and Sheriff Lloyd called me into his office right away.
 
 “Yeah, I recognize some of these names.” he grunted, twirling his mustache as he read through the list I’d presented to him. He seemed nervous, but I wasn’t sure why. “Linda Newsome, for instance. She tried to chew the postman’s face off, back in ‘07…”

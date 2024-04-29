@@ -6,6 +6,8 @@
 
 ([Part 4](https://www.reddit.com/r/nosleep/comments/1cdlmea/im_the_proud_owner_of_a_grocery_store_from/))
 
+([Part 5](https://www.reddit.com/r/nosleep/comments/1cfwplr/im_the_proud_owner_of_a_grocery_store_from_hell/))
+
 I began remodeling Pop’s Grocery the very next day. Maybe it was foolish to hope that whatever haunted the store I’d bought could be exorcized by a few coats of fresh paint, but I had to start somewhere. Besides, in the back of my mind, I still secretly hoped that there might be a logical explanation for what I’d experienced. My wife theorized that what had happened to me was a hallucination caused by stress–and there was definitely enough of that to go around. 
 
 Steve Kelch had claimed that nothing in Pop’s Grocery had been updated since Reagan was president–and he hadn’t been exaggerating.
