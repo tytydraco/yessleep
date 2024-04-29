@@ -57,6 +57,3 @@ So I kneeled before the memorial, and apologized for my great-grandfather’s ac
 
 
 I had doubts that it would work. But it did. When I looked back again, the Jesus statues were gone, and only the truck remained. I saw father Abraham Hudson, walking back towards me. His arm was bleeding, and he had tied his cassock around it as a tourniquet. No doubt he had been shot. I thanked him, with my last remaining strength. On the horizon, the sun was finally rising. I was finally free. I lay on the ground and looked at the clear sky. For the first time in years, I could rest without fear. 
-
-
-[///](https://www.reddit.com/r/Matgamarra/)
