@@ -24,12 +24,10 @@ I suddenly heard something behind me. I quickly turned around in my chair. I saw
 
 I thought I was going insane because of no human contact. I tried a few times and saw the shadow every time. I turned back again and didn’t see it. I turned around again and suddenly had a shadow humanoid in my face. I jumped out of my chair and ran down the stairs.
 
-I tried shouting for help, because in that moment I forgot I was alone, with the shadow. This is really scaring me, who are these shadow creatures? I booted up Wikipedia and tried to look for answers there. I just found \[this site\]( [https://en.wikipedia.org/wiki/Shadow\_person](https://en.wikipedia.org/wiki/Shadow_person)) which is not really helpful.
+I tried shouting for help, because in that moment I forgot I was alone, with the shadow. This is really scaring me, who are these shadow creatures? I booted up Wikipedia and tried to look for answers there. I just found [this page](https://en.m.wikipedia.org/wiki/Shadow_person) which is not really helpful.
 
 I went out again, but the screeching was there again. And suddenly multiple screeching sounds. And after that multiple shadow people.
 
 This is just too much, I ran inside and went to bed because I was really tired of running all day. I woke up to knocking on my door. I don’t have much time left so I want to say something before they come in here.
 
-Please tell my family and my dog I love them, if you see this report it to the police. Someone needs to rescue me, please! Oh no they’re he-.
-
-\--... ...-- / .---- ----- ..--- / ...-- ..--- / .---- ..--- .---- / .---- .---- .---- / .---- .---- --... / ...-- ..--- / .---- .---- ....- / .---- ----- .---- / ----. --... / .---- ----- ----- / ...-- ..--- / .---- .---- -.... / .---- ----- ....- / .---- ----- ..... / .---- .---- ..... / ....- ....- / ...-- ..--- / .---- ..--- .---- / .---- .---- .---- / .---- .---- --... / ...-- ..--- / ----. --... / .---- .---- ....- / .---- ----- .---- / ...-- ..--- / .---- .---- ----- / .---- ----- .---- / .---- ..--- ----- / .---- .---- -.... / ....- -....
+Please tell my family and my dog I love them, if you see this report it to the police. Someone needs to rescue me, please! I'm not sure when they'll get me.
