@@ -32,7 +32,7 @@ They disappeared into the forest like hunting dogs let loose upon the scent of p
 
 And then the screaming began.
 
-It started as a rumbling murder, one I couldn’t place. Then it acquired peaks and troughs, reaching pitches that managed to strain my ears. At its height, it almost seemed louder than the gunshots had been. It was a man’s voice, at least at first — but then it devolved into something that didn’t sound human at all. Like his vocal chords had been ripped into, and the only sounds he could still produce was to bay like a dying animal.
+It started as a rumbling murmer, one I couldn’t place. Then it acquired peaks and troughs, reaching pitches that managed to strain my ears. At its height, it almost seemed louder than the gunshots had been. It was a man’s voice, at least at first — but then it devolved into something that didn’t sound human at all. Like his vocal chords had been ripped into, and the only sounds he could still produce was to bay like a dying animal.
 
 Yet somehow, even that didn’t horrify me as much as my student’s reactions. They seemed… relieved. Even laughing amongst themselves, as if this proved we were out of danger. The screams dulled, the sirens disappeared, and my students returned to their seats, staring at me as if expecting me to continue the lesson.
 
