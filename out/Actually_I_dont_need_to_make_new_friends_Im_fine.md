@@ -36,7 +36,7 @@ I tried to make conversation.
 
 "Oh? Do you like it?' she said inquisitively.
 
-"Yeah, it's so mundane but somehow brilliant at the same time. Who is it by? There was only an 'F' in the corner"
+"Yeah, it's so simple but somehow brilliant at the same time. Who is it by? There was only an 'F' in the corner"
 
 *'It's my work, I painted it'* she said deadpan while chopping away.
 
