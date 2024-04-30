@@ -2,7 +2,7 @@ I know this sounds crazy, but I think I just witnessed my own death. I’m still
 
 &#x200B;
 
-Before I begin, I want to make it quite clear that I am quite sane and prone to hallucinations or other irrational behaviour. That said, I have been known to lose my temper from time to time, even with my wife. These bouts of rage started when I was put into foster care as a teenager, and my tantrums may even have been justified at that time. But now I’m approaching middle-age, I find I’m being triggered by more trivial issues, such as inefficient processes at the firm, or my daughters playing music too loudly on their phones. Anyway, on with the story…
+Before I begin, I want to make it clear that I am quite sane and not prone to hallucinations or other irrational behaviour. That said, I have been known to lose my temper from time to time, even with my wife. These bouts of rage started when I was put into foster care as a teenager, and my tantrums may even have been justified at that time. But now I’m approaching middle-age, I find I’m being triggered by more trivial issues, such as inefficient processes at the firm, or my daughters playing music too loudly on their phones. Anyway, on with the story…
 
 &#x200B;
 
