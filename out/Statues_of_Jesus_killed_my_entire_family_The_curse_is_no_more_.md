@@ -1,6 +1,6 @@
 
-///[PART1](https://www.reddit.com/r/Matgamarra/s/EF2Ur511Te)
-///[PART2](https://www.reddit.com/r/Matgamarra/s/Q39Vlj2gZ0)
+[PART1](https://www.reddit.com/r/Matgamarra/s/EF2Ur511Te)
+[PART2](https://www.reddit.com/r/Matgamarra/s/Q39Vlj2gZ0)
 
 The diaries of Delacroix said that when the Desólé family went to apologize in the Loire River, the curse struck like never before. I knew it could happen to me, but I did not imagine the extent.
 

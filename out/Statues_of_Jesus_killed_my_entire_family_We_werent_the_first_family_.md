@@ -102,6 +102,3 @@ But I must say, that I made a grave mistake, and utterly failed in assisting Phi
 
 
 As I finished reading the report, I looked at father Abraham Hudson, and thanked him. I now knew what I had to do, and where I had to go. I just needed to wait two more days now, and I would be free to do it. 
-
-
-[///](https://www.reddit.com/r/Matgamarra/s/7SMiGDcA9M)
