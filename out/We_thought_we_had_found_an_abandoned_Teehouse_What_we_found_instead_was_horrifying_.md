@@ -195,7 +195,7 @@ We were all waiting for a response, but nothing came. I wanted to assume that he
 
 “Asher, stop messing around, man!” Trevor yelled out.
 
-I then grabbed a hold of the ladder, making my way up, anticipating Asher jumping out at me at the entrance. As I made my way up, I could have sworn I saw movement underneath the bark, like there was something trying to escape from it. It reminded me of when a snake swallowed a rat or something of that size, and you see that lump moving down its throat. However, I only saw it for about a second, so I assumed it was the tree swaying in the wind or something like that.
+I then grabbed a hold of the ladder, making my way up, anticipating Asher jumping out at me at the entrance. As I made my way up, I could have sworn I saw movement underneath the bark, like there was something trying to escape from it. It reminded me of when a snake swallows a rat or something of that size, and you see that lump moving down its throat. However, I only saw it for about a second, so I assumed it was the tree swaying in the wind or something like that.
 
 I got to the top and looked around, but saw nothing. 
 
