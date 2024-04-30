@@ -4,7 +4,7 @@ It’s just that when he started sleepwalking at the age of seven, it rattled me
 
 No matter how peacefully he fell asleep, he would always find his way into these silent escapades. More often than not, I would find him there, sitting at the kitchen table or standing in the living room, hidden in the stillness of the night.
 
-One time, I found James sitting at the kitchen table, apparently engrossed in a meal. Only there was no food on his plate—yet he ate with an earnestness that belied the absence of food.
+One time, I found James sitting at the kitchen table, apparently engrossed in a meal. Only there was no food on his plate. Yet he ate with an intensity that contradicted the lack of any actual food.
 
 Somehow, he had managed to get a plate and fork while sleepwalking, and now he was sitting there, picking up the fork, scooping at the empty plate, and putting it in his mouth to take bites of air.
 
