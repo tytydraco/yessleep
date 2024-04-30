@@ -103,3 +103,5 @@ But I can’t get it out of my mind. I still check the news and Google obsessive
 Someone local was asking whether anybody had seen her brother, William. A heavyset man with a big, bushy beard, who’d gone missing without even his PLB being able to report any location. The post had been made the day after the incident I’d witnessed.
 
 Apparently, the last time they’d spoken, William said that he was going out on a hunting trip.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1cgwv8j/i_dont_think_that_my_students_are_actually_human/)
