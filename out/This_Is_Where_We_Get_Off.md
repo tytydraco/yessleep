@@ -1,8 +1,8 @@
-Dear reader, I am a broken man. Please help me make sense of the following events, before I lose my mind. Sleep is impossible right now, and with three hours of my train journey still remaining, the ability to share my experience with the online community is the only thing  keeping me sane. I shall do my upmost to recall today’s events as accurately as possible for you, and to report my frame of mind as things happened, as I’m aware there may be a psychological aspect to all this.
+I know this sounds crazy, but I think I just witnessed my own death. I’m still nauseous and trembling with fear after my ordeal, and with three hours of my train journey still remaining, the ability to share my experience with the online community is the only thing keeping me from throwing up. I shall do my upmost to recall today’s events as accurately as possible for you, and to report my frame of mind as things happened, as I’m aware there may be a psychological aspect to all this.
 
 &#x200B;
 
-Before I begin, I want to make it quite clear that I am not a bad person. That said, I have been known to lose my temper from time to time, even with my wife. These bouts of rage started when I was put into foster care as a teenager, and my tantrums may even have been justified at that time. But now I’m approaching middle-age, I find I’m being triggered by more trivial issues, such as inefficient processes at the firm, or my daughters playing music too loudly on their phones. Anyway, on with the story…
+Before I begin, I want to make it quite clear that I am quite sane and prone to hallucinations or other irrational behaviour. That said, I have been known to lose my temper from time to time, even with my wife. These bouts of rage started when I was put into foster care as a teenager, and my tantrums may even have been justified at that time. But now I’m approaching middle-age, I find I’m being triggered by more trivial issues, such as inefficient processes at the firm, or my daughters playing music too loudly on their phones. Anyway, on with the story…
 
 &#x200B;
 
