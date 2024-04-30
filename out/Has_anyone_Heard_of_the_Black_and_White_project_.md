@@ -1,0 +1,17 @@
+  So let me start this off by saying I’m pretty new to the whole internet/ Reddit space. 
+I’ve been reading around, looking for anyone talking about the black and white project. But most communities don’t seem to know what I’m talking about. With most calling me a troll, or saying they caught me in the act of trying to start up and Arg. 
+   
+  Let me reiterate, I am not telling a story, and I’m definitely not making things up. The Black and White project is made up from four separate entities, two of which I’m aware of. 
+The basic premise of the project is that these four groups, or as I call them entities, these entities work independent from one another. 
+
+  But all share one common goal, “to suppress the widespread belief of supernatural phenomena and the unexplained.” This is the collective goal all entities in this line of work 
+Strive to achieve, make the unnatural, natural. 
+   
+  Im writing this hoping the right people will find it at some point. I don’t know how much time I have before the wrong people end up finding this instead. But any information regarding the black and white project would, and will be very useful. I need to find out where they took my friend, he was the one who originally told me what I know now but a couple weeks back he texted me telling me he was close to finding something big. And then, nothing… for weeks he had been sending me links to old community message boards, all accounts of people reporting unnatural phenomenon and then disappearing without a trace.
+
+  My intention isn’t to make anyone go out of their way, but my friend found something, something the entities didn’t want found.  
+I don’t know what, but when I called a welfare check for my friend, they told me “no one had lived at that address for months.” This didn’t make any more sense than it did when they told me. But at the time I didn’t know what else to make of it. Dylan had lived in that house with his family our whole lives, and now I’m being told I’m a liar again. 
+
+  
+  It became alarming when I couldn’t get in touch with any of his family, I decided to file a missing persons report, and the events that took place prior to his disappearance. And that’s when things got weird. The cop had asked me “Your friend’s name isn’t popping up  in our system, are you sure this is all the correct information?”   Standing there I try to unravel her question in my brain a mess, I can feel the gears in my head begin to turn. Look I know my friend is out there, the cops won’t help, and I’m running out of ideas on what to do next. I’m gonna need some serious help if I’m going to find my missing friend. I’m going to do my best to compile what I have from him so far into a text document, but a lot of these things don’t make much sense at the moment. it’s like he gave me half a puzzle, there has to be more information out there and I’m asking anyone willing to get in contact with me however you can, ask around see if anyone has heard of the project.
+  I don’t know where this leaves us, either way I can’t let my friend down. I have to know what happened to him, or at least what he found out. I’m counting on anyone who reads this, in the meantime I’ve been documenting people’s  reports of phenomena, and their strange disappearances that follow shortly after. There’s a pattern and I’m getting close, but I just need time, time for people to see this message, and time for word to spread. 
