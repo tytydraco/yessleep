@@ -26,20 +26,24 @@ The game presented three options: scissors, hair dye, and a shaving razor. Custo
 
 Unease settled in as I muttered under my breath, "What the fuck is happening?" Suddenly, Barb's expression twisted grotesquely, her face melting before my eyes accompanied by the unsettling sound of a blender, nearly making me shit my pants.
 
-As the screen descended into darkness following the unsettling encounter with Barb, Biltin the barber unexpectedly materialized on screen, reminiscent of the animation intro. However, his appearance had drastically changed; his pupils stretched vertically, his unnaturally wide closed-mouth smile, and his limbs where elongated.
+As the screen suddenly switched into darkness following the unsettling encounter with Barb, Biltin the barber unexpectedly popped on screen, reminiscent of the animation in the intro. However, his appearance had drastically changed; his pupils stretched vertically, his unnaturally wide closed-mouth smile, and his limbs where elongated.
 
 My heart pounding in my chest, I felt the blood drain from my face as the chilling message, "I can see you Lucas," ominously materialized on the screen. Fear spread through me, and without thinking, I screamed, "WHAT DO YOU WANT!"
 
 Biltin the barber remained silent, his gaze piercing through the screen, his unnerving appearance sending shivers down my spine. Slowly, he extended a long, slender finger and pointed downwards. Trembling, I followed his gaze and saw my dad's gun lying at my feet.
 
-In a haze of panic and despair, tears streaming down my face, I snatched up the gun and pressed it against my computer monitor. "IS THIS WHAT YOU FUCKING WANT!" I screamed, my voice cracking with emotion. Biltin's expression remained unchanged as he silently nodded in response, his eerie demeanor casting dread over the room.
+In a haze of panic and despair, tears streaming down my face, I snatched up the gun and pressed it against my head. "IS THIS WHAT YOU FUCKING WANT!" I screamed, my voice cracking with emotion. Biltin's expression remained unchanged as he silently shooked his head in response, his eerie demeanor casting dread over the room.
 
-I then fired multiple shots at my computer monitor, shattering the screen. Collapsing to the floor, I sobbed uncontrollably, burying my face in my hands. But when I looked up, Biltin was there, his presence casting a dreadful shadow over me. Before I could react, he lunged, his hands closing around my throat, cutting off my air supply. Gasping for breath, I struggled against his relentless grip, darkness closing in around me.
+I then pointed the gun at the computer monitor, and Biltin just nodded. With trembling hands, I fired multiple shots, shattering the screen into a pile of glass. Collapsing to the floor, I sobbed uncontrollably, burying my face in my hands. The room spun around me, a vortex of fear and despair swallowing me whole.
 
-I was then rushed to the ER, my mind reeling from the surreal encounter. Doctors worked frantically to stabilize me, their urgent voices muffled against the cacophony of fear and confusion in my mind.  
-  
+But when I looked up, Biltin was there, his presence casting a dreadful shadow over me. Before I could react, he lunged, his hands closing around my throat, cutting off my air supply. Gasping for breath, I struggled against his relentless grip, darkness closing in around me. I was then rushed to the ER, where doctors worked frantically to stabilize me. It took two agonizing days for me to regain consciousness. 
+
 As I lay on the hospital bed, hooked up to monitors and IV drips, I couldn't shake the feeling of Biltin's icy grip around my throat. Despite the medical attention, a sense of unease lingered, a nagging doubt that what had transpired was more than just a figment of my imagination.
 
-After I shared the contents of my notebook and what I remembered with the doctors, who suggested that my experience might be due to a likely be robbery and PTSD episode mixing. However, it all seemed so real, so tangible—as if it were a nightmare that lingered. What could have happened, Reddit?
+After I shared the contents of my notebook and what I remembered with the doctors, who suggested that my experience might be due to a likely be robbery and PTSD episode mixing in some way. But when the police searched my fathers house, nothing was found missing.
 
-**UPDATE:** Today, I received a package in the mail containing a new computer monitor and a golden pair of scissors.
+Despite what everyone has been saying, it all seemed so real, so tangible—as if it were a nightmare that lingered. What could have happened, Reddit?
+
+**UPDATE:** Today, I received a package in the mail containing a new computer monitor and a golden pair of scissors. I don't know if my friends are messing with me, but I'm scared that he's still out there.
+
+**UPDATE:** Multiple homicides have been reported in my city all with the same description of the murderer; a tall lanky male Caucasian who has a brown mustache, vertical pupils and a large horrifying smile.
