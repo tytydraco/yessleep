@@ -14,7 +14,7 @@ But I got lucky — or maybe he had mercy.
 
 The only way to reach the headmistress’ personal phone was an old-school red telephone sat on my desk, with a bit of tape reading ‘FOR EMERGENCIES ONLY’. She’d always been very particular that she be called instead of the police in times like these. All I had to do was punch in *66, and she picked up in an instant.
 
-I’m embarrassed to imagine what I must’ve sounded like. The incomprehensible verbal diarrhea of a man who’d never dealt with a situation more deadly that a bicycle crash or a high fever. But luckily, she seemed to parce together exactly what I was getting at. And her stoic, commanding tone silenced my babbling in an instant.
+I’m embarrassed to imagine what I must’ve sounded like. The incomprehensible verbal diarrhea of a man who’d never dealt with a situation more deadly than a bicycle crash or a high fever. But luckily, she seemed to parce together exactly what I was getting at. And her stoic, commanding tone silenced my babbling in an instant.
 
 “It will be dealt with.”
 
