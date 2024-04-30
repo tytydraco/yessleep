@@ -1,6 +1,6 @@
 But I did not win.
 
-I will never forget him. The man in the bronze, suede jacket, sitting on a grey wedge in St. John’s Square at midnight. Revealed by the murky glow of a Victorian lamppost, the solitary figure leaned against the black, wrought iron pole. The well-dressed gentleman tickled his chin thoughtfully, whilst boring his keen eyes into the chessboard before him.
+I will never forget him. The man in the bronze, suede jacket, sitting on a grey wedge in St. John’s Square at midnight. Revealed by the murky glow of a Victorian lamppost, the solitary figure leaned against the black, wrought iron pole. He tickled his chin thoughtfully, whilst boring his keen eyes into a chessboard.
 
 As I staggered through the deserted London square, tipsy from a night out, I started grinning. The stranger was moving both the white and black pieces. There was something both amusing and bemusing about watching him play against himself. No, it wasn’t that. It was the fact that he was playing against himself in the middle of London at midnight.
 
@@ -184,7 +184,7 @@ My friend’s eyes welled with tears, and he turned to face me. When Franklin op
 
 “The kid stuck him with something…” He cried hoarsely.
 
-The two of us quickly sobered up, supporting Franklin as his legs buckled. When I caught him, I grabbed the back of his coat and felt the tool protruding from his lower back. Not a kitchen knife, nor a sizeable blade, but a stone hatchet. A medieval instrument of torture that did not put my friend out of his misery swiftly. Instead, we endured the horror of Franklin’s agonisingly-slow death, whilst I called the ambulance.
+The two of us quickly sobered up, supporting Franklin as his legs buckled. When I caught him, I grabbed the back of his coat and felt the tool protruding from his lower back. Not a kitchen knife or a sizeable blade, but a stone hatchet. A medieval instrument of torture that did not put my friend out of his misery swiftly. Instead, we endured the horror of Franklin’s agonisingly-slow death, whilst I called the ambulance.
 
 He passed before paramedics arrived.
 
