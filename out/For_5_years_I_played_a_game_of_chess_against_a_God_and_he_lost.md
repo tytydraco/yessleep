@@ -248,7 +248,7 @@ My eyes filled with tears, and I spoke — shared my soul with the man for some 
 
 “Mum doesn’t want the treatment… She hasn’t wanted to live for a long time.”
 
-“No, she hasn’t,” The man whispered. “But we always have options, Cato.”
+“No, she hasn’t,” The man whispered. “But we always have options, Declan.”
 
 The man finally crossed the threshold, entering Mum’s room, and I didn’t protest. I wasn’t worried about her waking to see a strange man in the room. I had the awful feeling that things would always go as the stranger had planned.
 
