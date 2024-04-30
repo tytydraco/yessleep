@@ -434,7 +434,7 @@ Should I run and go into hiding on my own? Is the government even really after m
 
 Please, if anyone can help me…
 
-My name is Kara Logan. My husband is Jonathan Logan. My children and Noah and Liam Logan.
+My name is Kara Logan. My husband is Jonathan Logan. My children are Noah and Liam Logan.
 
 My life was taken from me.
 

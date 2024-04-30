@@ -360,7 +360,7 @@ Cato moved a pawn to B5, threatening my bishop, and the terror of the situation 
 
 “You don’t know how I work,” He whispered, smiling horribly.
 
-I hardly wanted to move, but I had to move. There was no avoiding the game. It had to be played. The question was only how I was going to play it.
+I hardly wanted to move, but I had to move. There was no avoiding the game. It had to be played. I only had control over how I was going to play it.
 
 I moved my knight to B5, taking Cato’s pawn, and I fearfully eyed the pawn that threatened my knight.
 
@@ -418,7 +418,7 @@ Cato smiled. “You haven’t learnt, have you? You still hope to cheat fate.”
 
 “JUST TELL ME!” I shouted.
 
-In response, the lights of London disappeared. I choked in terror, my voice abandoning me as I was left in a soundless sense of stasis. And the man eyed me with that ever-terrible smile.
+In response, the lights of London disappeared. I choked in terror, my voice abandoning me as I was left in a soundless state of stillness. And the man eyed me with that ever-terrible smile.
 
 “The game does not stop until it ends,” He said.
 
@@ -442,7 +442,7 @@ I whimpered in fear, not knowing what horror awaited me.
 
 He packed up, and then he walked into the blackness. As the lights of London resurrected, no sign of the man remained.
 
-I did not receive immediate news, but that only led to a steadily-growing sense of dread. An awful anticipation. And when Matty didn’t show for our weekly session at the pub, a few days later, anticipation turned to a horrifying realisation.
+I did not receive immediate news, but that only led to a steadily-growing sense of dread. An awful anticipation. And when Matty didn’t show for our weekly session at the pub, a few days later, anticipation turned into a horrifying realisation.
 
 I rushed to my friend’s apartment and banged on the door viciously. Repeatedly. But there came no response. It was the middle-aged neighbour who eventually emerged in a pink dressing gown, miniature dachshund yapping at her heels.
 
@@ -514,7 +514,7 @@ I saw a way of putting a cap on the nightmare. All I had to do was move my queen
 
 “I won’t do it,” I replied.
 
-I got up and fled into the crowd, hearing Cato’s booming voice atop the raucous of early-morning commuters.
+I got up and fled into the crowd, hearing Cato’s booming voice atop the raucous early-morning commuters.
 
 “You can’t run forever,” He laughed horribly.
 
@@ -556,7 +556,7 @@ I pushed my queen to B8.
 
 “Check,” I croaked.
 
-An onlooker started to chatter excitably with his friend, seeing the play I’d seen, but unaware of the situation’s ghastly gravity. Unaware of the petrifying scenario which approached. And Cato made, of course, the only move he could make in that situation. Knight to B8.
+An onlooker started to chatter excitably with his friend, seeing what I’d seen, but he was unaware of the situation’s ghastly gravity. Unaware of the petrifying consequence which approached. And Cato made, of course, the only move he could make in that situation. Knight to B8.
 
 He took my queen.
 
@@ -570,6 +570,6 @@ The onlookers offered a round of applause, and Cato extended a hand.
 
 The man laughed erratically as he stood up, and the onlookers became increasingly concerned as I sobbed profusely.
 
-The mysterious stranger disappeared into the crowd, but I still fear that he may return. Wait for me to rebuild my life, then return for another game of chess. And he was right. What would I be able to do in such a situation? There is no stopping a game with Cato.
+The mysterious stranger disappeared into the crowd, but I still fear that he may return. He may wait for me to rebuild my life, before suggesting another game of chess. And he was right. What would I be able to do in such a situation? There is no stopping a game with Cato.
 
 Not until it [ends](https://www.reddit.com/r/dominiceagle).
