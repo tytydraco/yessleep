@@ -226,15 +226,26 @@ The following morning, I went outside to feed the dog. My heart was pounding lik
 When I reached the kennel, I gasped. My heart sank into my shoes. Before me was Dexter, stewing in a pool of blood and gore. His eyeballs were gouged and bloodied, his tongue lying limply next to his mutilated body. Stapled to his mangy, blood soaked fur, was a Velvet on Fire poster. Stunned and horrified, I seized the poster. On the back, scribbled in crimson-colored blood, was a note:
 
 UR MINE!!!  
+
 I vomited.  
+
 Connor, my roommate, was glaring at me from the kitchen, his eyes searing with suspicion. When I told him what happened, he turned ghost-white. Then he called the cops, who again were of little help.  
 I was unhinged. Terrible thoughts tore through my troubled mind. Why Dexter? What did he do to deserve such a fate? And why me, for that matter? I’m not a bad guy. Then, with a heavy heart, I buried my dead dog Dexter. The feeling of being watched was impossible to ignore. Somewhere close, was the redhead, taunting me. Proving this, a song wafted through the crisp, early morning air: I Put a Spell on You.  
+
 DING.  
+
 UNKNOWN SENDER.  
+
 With shaky movements, I found my phone, and shrieked. On my phone was a picture of me burying Dexter.  
+
 DING.  
+
 UR NEXT!!!  
+
 I raced into the house and locked all the doors. Grief held me in its terrible grip while I wept. This was all too much, too fast.  
+
 DING.  
+
 Sighing, I looked down and nearly died.  
+
 I PUT A SPELL ON YOU, my phone read. BCUZ UR MINE.
