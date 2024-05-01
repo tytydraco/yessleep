@@ -64,7 +64,7 @@ And once it was settled, the thing hovering above me seemed to begrudgingly flic
 
 The lights flicked back on. Everything went back to normal in an instant. And once again, I’d been left alone to agonize after having witnessed the impossible.
 
-I don’t want to go into the self-destructive spiral that was the rest of that night. Crying and dancing and stumbling around the house like I was commemorating my brush with death. I didn’t know what to feel. Relieved or horrified or upset. I was crying one moment and laughing the next. But eventually, I finally settled on a single emotion: anger.
+I don’t want to go into the self-destructive spiral that was the rest of that night. Crying and dancing and drinking and stumbling around the house like I was commemorating my brush with death. I didn’t know what to feel. Relieved or horrified or upset. I was crying one moment and laughing the next. But eventually, I finally settled on a single emotion: anger.
 
 My knuckles had almost turned white from how hard I’d been gripping the steering wheel as I tore through that dark and stormy night. I slammed my brakes in front of the school, and looked up at it with a swirling drunken hatred. And there, a faint light from the headmistress’ office, just like there always was, even long after everyone else had gone home for the night. It was like she never slept.
 
