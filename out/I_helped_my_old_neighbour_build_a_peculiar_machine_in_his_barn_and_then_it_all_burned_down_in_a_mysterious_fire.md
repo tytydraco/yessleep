@@ -1,0 +1,49 @@
+The old barn caught fire, and it took Mister Reed’s strange machine with it.
+
+He’d been working on that thing for months, ever since he’d gone out looking for the meteorite that crashed down in his back field. That was when he went missing for a weekend, and when he showed up again his eyes had gone from brown to blue and his accent had changed from his simple backwoods patter to something more stilted and narrow, almost European, or like somebody who’d grown up speaking a different language, which so far as we knew about Mister Reed, was not the case.
+
+We never did learn if he ever found the meteorite or not. Whenever anybody asked him about it, he’d get this sad, faraway look in his eyes, and then he’d change the topic. And you know folks in this town, they’re sad enough already, ever since the logging camp shut down and the money dried up. Nobody around here is looking for a reason to talk about hard times, they all got enough of their own.
+
+Only a few of us got to see Mister Reed’s machine. I was brought in a couple of times to help him move some of the larger parts, me being his closest neighbour at just two miles down the road. He’d show up in the morning with a six pack of Pilsner and a fresh thermos of hot coffee and he’d say, “Mister Paul, how do you feel about giving an old man a hand today?”
+
+Mister Paul, he’d call me, using my first name like it was my last. He did that with most folks, ever since that night he went out looking for that rock or whatever it was that fell down from the sky. I don’t think it was to be rude, it was almost more like he was being official, just for the fun of it. That’s how we got to calling Mister Reed by the title of Mister Reed, even though he’d just been Walter or Wally previously.
+
+The machine he was building was something else again. All glowing glass tubes and great grinding gears. The sounds terrified his horses, made ‘em scream like banshees in the night, so he sold ‘em all, and for barely a quarter of what they were really worth. The pigs never minded, so they got to stay, and I gather the barn cats just took off on their own, being mostly feral to start. I don’t know if the cats went far, but I’ll say this: you won’t find neither mouse nor rat within six miles of Mister Reed’s farm, and even the coyotes and wolves keep a respectful distance.
+
+I asked him what it was for; you’d think maybe I wouldn’t, as most folks didn’t, but I was possessed of a somewhat more cavalier curiosity back then, a trait sadly absent from me in present times. And you’d think maybe he wouldn’t tell me what it was, maybe he’d say something inscrutable and mysterious to whet my mind’s appetite for further mysteries. But that weren’t the case neither.
+
+Instead, he told me exactly what it was, just that he used terms that I wasn’t quite comfortable with, myself being neither a professor of advanced mathematics, nor an unmitigated psychopathic maniac.It was supposed to be a doorway, that much I could get my head around. He used all these other terms like *inter-dimensionality* and *hyper-augmented flatlands* and *topographical ontology*. It had something to do with his family as well, his extended family back in the old country, except he wouldn’t say which old country he was referring to. Wherever it was seemed to be quite a distance off, as Mister Reed claimed to be only able to talk to those family members under specific atmospheric conditions, involving the position of the moon, and other such satellites.
+
+Not everybody was as positive about Mister Reed’s machine as I was. Having never seen it, Agnes Tiller was dead set against the thing, and was known to loudly decry Mister Reed and his *devilish engineering*, as she called it. She even brought it up in church one time, asking Reverend Fallow in front of God and everybody, if it wasn’t the duty of good Christians to prevent Satanic constructions from taking hold in the community. Of course nobody paid her no mind, not after she was caught trying to instruct the Ennis girl on how to properly drown house-cats.
+
+And then one day Agnes just went missing. Didn’t take her clothes or her car, didn’t even shut her front door. Constable Williams told me her morning cup of coffee was still sitting on the kitchen table, having been only half-drunk. And next to the cup of coffee was a note, written on a piece of foolscap paper, which simply read *Come find me*. Neither Constable Williams nor anybody else in town was ever able to make much sense of that, but then, this town has always had a disquieting effect on the queer and lonely. Something about the way the wind rustles through the tall grass, puts a certain type of mind into a state of unease and perhaps prone to paranoias.
+
+I was there last night, when the barn and the machine caught fire. I can’t say with any accuracy which caused the other to inflame; obviously the heat was coming from those big glass tubes, but did they set the barn alight, or did the flame originate from within the machine itself? I only ask because the fire wasn’t red or yellow or blue, like every fire from match to campfire tends to be. These flames were pink at the edges, and a sort of chartreuse green at the centre, and were so hot that even the earth beneath the barn was turned to ash, going six feet down into the soil beneath where wood and mechanism once stood.
+
+And of course Mister Reed is gone too. Or at least most of him is. We found his arm, looking like it’d been severed quite cleanly halfway up the bicep, and then was somehow blown clear of the fire. That was some bad business, the fingers still twitching in the weeds when the dogs found it. We worried they might try and eat the arm, but it turned out that the dogs wanted nothing to do with the partial appendage. So, Doctor Marley boxed it up in an old wooden trunk, with plans to maybe bury or study the thing at some later date. But of course, that was a good sixteen hours ago, and the last I checked, those fingers still haven’t stopped twitching yet. Some kind of weird prolonged neurological spasm, like last year when Missus Leary’s chicken got beheaded and kept living for another two months.
+
+Did the most of Mister Reed burn up in that pink-green fire? Or did he make it through that doorway, to that other place? The old country or whatever it was meant to be.
+
+Wherever he is, I hope Mister Reed is happy. Although there are some who fear that may not be the case. Young Joshua Veitch, he was present for the fire as well, as he’d been assisting me with assisting Mister Reed. Joshua was a handy and capable young man, and was intrigued by the sciences employed by Mister Reed, enough so to donate an evening or two to the old man’s machinations. Which is what he was doing with me and Mister Reed last night, when the machine got going and the barn burned down.
+
+Joshua and I were well clear of blaze, and in no danger, but Joshua crept closer to it than I, and came away with an unfathomable/inscrutable expression carved into facial features, an expression which still has not left him.
+
+I asked him if he’d seen what’d happened to Mister Reed, shouting to be heard above the roaring fire just twenty feet off from where we stood, and Joshua replied to me in a voice that was somehow both a whisper, and yet also a tone I was incapable of blocking out.
+
+Joshua spoke like a man still within a dream, and he told me that he’d seen another world, amidst the flames. A world as big as this one, stretching on and on towards horizons of impossible mountains, which were themselves alive and hungry and demanding of an eternal obedience by all who beheld them. Joshua said that within the fire was a space larger than all the spaces, larger than the space outside and the spaces beyond, out into the stars, and he’d seen it. There in the fire, he’d seen it, growing like a froth of bubbles in a glass of fresh milk.
+
+And he was seeing it still, he said, as he looked away from the fire and out into the dark of the woods.He took his own eyes a short while after that. Had a pocket knife on himself that he always carried, one of those swiss-army things. Didn’t even use one of the blades. Went with the damn spoon, so he could scoop them out, and keep them whole. Those, the dog ate. Couldn’t even stop her, it happened so fast.
+
+Joshua’s in the hospital now, in the city. His dad had to drive him, and he certainly was in a state himself. Might have to get checked in for shock, the way I heard it.
+
+Me, I think I’m doing okay. I didn’t look into that strange fire the same way Joshua did. But I’ll admit, I still have Mister Reed’s final words bouncing around in my head. *I’ll be back*, he said, as he walked into the barn. *With all my family*. Such an odd thing to say, I remember thinking to myself as I watched him go. He was just entering the barn, where was there for him to come back from?
+
+But then the machine started up and then there was the fire and the arm and Joshua’s eyes and all that commotion. And now I’m sitting here halfway through my sixth beer of the evening, and I think I’ve finally concluded that it’s time for me to head home, pack up a bag, and find a new town to settle into. Find some new friends, a new job, and maybe make some new memories, to help me move past these more recent ones.
+
+And so help me god, once I finish this here beer, that’s exactly what I’m going to do.
+
+I’ll write this all down, to get it straight in my head, and then I’ll give it to that kid who lives down the road. He’s always posting stuff on the internet, maybe he’ll find a place for this story too.
+
+Hell, maybe he'll [read it for his youtube channel](https://youtu.be/CDn2SIvq2Go?si=lDYp6Ncr99a-NKC4) or something like that.
+
+I just hope nobody believes it.
