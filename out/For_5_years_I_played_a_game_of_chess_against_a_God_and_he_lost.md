@@ -374,11 +374,11 @@ I suspected the nature of the call before I answered.
 
 “Are you okay, Mum?” I whispered.
 
-“Yes, I… Oh, Declan… It’s awful,” She sobbed. “A nurse just told me that Doctor Brown died on the hospital floor. A heart attack, she said… What an awful week this has been.”
+“Yes, I… Oh, Declan… It’s awful,” She sobbed. “A nurse just told me that Doctor Brown died on the hospital floor. A heart attack, she said.”
 
 “I’m so sorry, Mum,” I whimpered. “I’ll… be right there.”
 
-“First Matty’s sister, and now this… What a dreadful time,” My mum said.
+“Franklin, Matty’s sister, and now this… What a dreadful time,” My mum said.
 
 Cato did not speak as I left, and I did not summon the courage to return to the square for six months.
 
