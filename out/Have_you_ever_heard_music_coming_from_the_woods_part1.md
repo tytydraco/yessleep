@@ -35,7 +35,7 @@ Dylan: yea what’s with holding out on us Connor are you trying to say that rea
   Tyler: because I’ve heard it before too, every night I hear it, it gets louder, and louder, and then… everything goes quiet, So quiet I can hear myself think.
 
   Dylan, Tyler’s brother, someone who he had shared a connection with since birth, someone who knew his brother longer than anyone else.
-Never had I seen Dylan look so distraught and frightened, hearing those words leave his brother’s mouth. Everyone taken back by Tyler and my statements we all stare at each other, the firing crackling through the eerie silence of the forest. None of know what to say, Rachel once again, breaks the tension. 
+Never had I seen Dylan look so distraught and frightened, hearing those words leave his brother’s mouth. Everyone taken back by Tyler and my statements we all stare at each other, the fire crackling through the eerie silence of the forest. None of us know what to say, Rachel once again, breaks the tension. 
   Rachel: has anyone heard any animals in the woods since Connor’s story? I swear when he was telling it I could hear some birds, but now, it’s like the forest is completely empty.  
   
 

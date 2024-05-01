@@ -86,7 +86,7 @@ Jumping in front of the approaching train, I braced for the now-familiar jolt, o
 
 The precinct was bustling, the air thick with the usual blend of coffee, anxiety, and determination. I felt the weight of eyes on me as I navigated through the desks, my recent financial uptick not going unnoticed among my colleagues. Whispers followed me like shadows, each murmur a thread weaving a net of suspicion.
 
-Rick Dalton, my partner and a man more brother than colleague, finally cornered me near the water cooler, his expression a mix of concern and curiosity. "Johnny, can we talk?" he asked, nodding towards the empty interrogation room.
+Rick Dalton finally cornered me near the water cooler, his expression a mix of concern and curiosity. "Johnny, can we talk?" he asked, nodding towards the empty interrogation room.
 
 Inside, the room felt colder than usual, the stark light highlighting the seriousness on Rick's face. "It's about these sudden gains of yours, John. People are talking. They're saying you might be into something... off the books."
 
@@ -115,7 +115,6 @@ The walk through the tunnel was quiet, the air thick with anticipation and the c
 
 Emerging onto the platform of the station, we were each hit by the authenticity of the scene. The smell of coal and old wood, the sound of distant trains, the murmur of spectral passengers in period attire—all of it was overwhelming.
 
-  
 "This is unbelievable…" Lucy murmured, her previous skepticism vanished, replaced by awe and a hint of fear. "It's like we've stepped into the past."
 
 I reiterated the rules: no eye contact, no speaking to the passengers, take only what is dropped, and most importantly, never board the train or go beyond the last platform. When it's time to go, jump in front of a train.  
@@ -127,7 +126,6 @@ We moved cautiously along the platform, the spectral figures brushing past us, e
 
 As we turned to leave, a glint of silver caught my eye—an old coin, lying just beside the tracks. I picked it up, showing it to Rick and Lucy. "Everything here is real, from back then. And it's valuable. But we must be careful."
 
-  
 We spent a few minutes wandering around, collecting oddities off the floor. When we were all ready, with a nod, we jumped down on the tracks and let the blinding light race towards us. Moments later, we came to on the bathroom floor, followed by several minutes of silence.
 
 "What now?" Lucy asked, the reality of our discovery settling in.
@@ -145,6 +143,18 @@ Confused, Lucy spun back to the woman, only to find herself staring into a face 
 "I'm... I'm sorry, I..." Lucy stammered, her words swallowed by the sudden, deafening silence that descended upon the station. I, realizing the unfolding catastrophe, could only watch as every spectral figure turned towards Lucy, their faces contorted in a collective rage.
 
 "I'm sorry. I didn't mean to," Lucy whimpered, her voice small and broken as the ghostly crowd advanced, their hands outstretched, grasping, tearing. In the distance, the conductor's eyes blazed with a fury that burned through the very fabric of reality.
+
+Lucy's screams echoed through the station as the vengeful specters descended upon her, their incorporeal forms suddenly all too solid, all too violent. Rick, his mind reeling, stumbled back towards the tracks, his voice cracking as he yelled to me, "We need to leave, now!"
+
+I, transfixed by the spot where Lucy had stood just moments before, barely registered Rick's words. As we turned to flee, the conductor materialized before us, his presence a suffocating force, his anger palpable. He pointed at me, then at Rick, his eyes promising retribution as he strode towards us with purposeful steps.
+
+"Jump, now! In front of the train!" I screamed, my voice raw with desperation.
+
+But Rick, consumed by panic, made a fateful decision. As the spectral train glided into the station, its form a shimmering aberration, Rick leaped through its closing doors, my anguished cries fading behind him.
+
+Reaching the platform's edge, I could only watch as the train carried Rick away, his face a mask of sheer terror pressed against the window. The conductor, his scowl deepening, watched the train disappear into the abyss, his vengeance unsated.
+
+With a pounding heart and ragged breaths, I steeled myself for the inevitable. As the next train approached, I closed my eyes, whispered apologies to my fallen friends, and jumped.
 
 My hands shook as I stared at the blank wall where the hole once was, the ghost of the portal that had swallowed my friends now just a patch of mismatched paint in my dimly lit bathroom. The reality of Rick's terrified face pressed against the train window haunted me, the echo of Lucy's screams merged with the constant, oppressive silence of my apartment.
 
