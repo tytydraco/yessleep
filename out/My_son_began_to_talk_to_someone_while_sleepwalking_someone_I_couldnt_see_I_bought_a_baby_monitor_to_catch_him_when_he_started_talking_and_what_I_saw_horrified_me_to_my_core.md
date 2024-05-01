@@ -56,7 +56,7 @@ Compelled by a mix of concern and curiosity, I rose and made my way to his room.
 
 "Take me, so we can play together forever." I didn’t expect there to be a response, but one came. A voice that sounded like a man and a woman responded back saying, "the time hasn't come yet, James."
 
-My heart pounding, I flung his door open, only to find him sound asleep in his bed, alone. The room was empty, no sign of the otherworldly conversation I had just overheard.
+My heart pounding, I flung his door open, only to find him sound asleep in his bed, alone. The room was empty, no sign of the otherworldly conversation I had just overheard. Maybe while James was sleeping he deepened his voice, unconsciously mirroring the imagined person he was talking to in his dream, a resonant echo that seemed almost his own.
 
 I tiptoed into the room, eyes darting to every corner. Under the bed? Nothing but dust bunnies. The closet? Just a bunch of clothes and old toys. It was just me and my son in the room, and he was out like a light, not even stirring when I checked under his bed.
 
@@ -64,7 +64,7 @@ I backed out of his room, leaving the door cracked open just enough to spy throu
 
 Dragging myself back to my room, I flopped onto my bed, my head hitting the pillow with a thud. It was 3:21 AM; I needed to catch some sleep, fast. Tomorrow’s school run wasn’t going to drive itself.
 
-Stealing glances at James in the rearview mirror, I couldn’t help but notice how unusually quiet he was. Just sitting there, his gaze fixed outside, watching the world zoom by in a blur of colors and shapes. It was like he was lost in another world, one that only he could see.
+Stealing glances at James in the rearview mirror, I couldn’t help but notice how unusually quiet he was. Just sitting there, his gaze fixed outside the car window, watching the world zoom by in a blur of colors and shapes. It was like he was lost in another world. 
 
 We rolled into the school parking lot, and instantly, the place was buzzing with life. Kids were everywhere. They chattered away, their backpacks bounced as they sprinted to the school doors. The bell rang out, a loud reminder that the day was starting, urging everyone to hurry.
 
@@ -116,13 +116,13 @@ James was standing on his bed, stiff as a board, staring into the darkness of hi
 
 And then I saw it. In the darkest corner of his room, there was a silhouette. It was too thin to be a man, too tall to be a woman, just standing there, arms hanging by its sides, it’s eyes faintly glowing. It was staring at James, and James was smiling back at it, a smile I'd never seen before.
 
-I felt a chill run down my spine as I watched, unable to move, unable to understand. The springs of my bed groaned as I finally managed to stand up, intent on going to James' room. But then, a voice, an impossible voice that was both deep and high at the same time, filled the room. "**The time has come, James,” it said.
+I felt a chill run down my spine as I watched, unable to move, unable to understand. The springs of my bed groaned as I finally managed to stand up, intent on going to James' room. But then, a voice, an impossible voice that was both deep and high at the same time, filled the room. “**The time has come, James.**”
 
 I watched on the baby monitor as a smile started to appear on James' lips. It was slow and deliberate, like a flower opening. It was a smile of pure, unadulterated joy, the kind that reaches deep into the soul and lights up every corner. But this was different—there was an intensity to it that I had never seen before, a fervor that seemed almost... otherworldly.
 
 His lips stretched wider and wider. They went far beyond the innocent grins of birthday surprises or Christmas mornings. This smile was too wide, too full of ecstasy; it was the smile of someone who had glimpsed paradise. It was a smile that seemed to know secrets that humans weren't meant to know, a smile that whispered of realms and beings beyond our understanding.
 
-And as his smile grew, it took on a life of its own, almost too big for his little face, too knowing, too eager. It was a smile that didn't belong in the innocent context of a child's bedroom. It was a smile that could freeze the blood, a smile that said, "I am seeing what you cannot see, I am feeling what you cannot feel, and it is magnificent."
+And as his smile grew, it took on a life of its own, almost too big for his little face, too knowing, too eager. It was a smile that didn't belong in the innocent context of a child's bedroom. It was a smile that could freeze the blood, a smile that said, “**I am seeing what you cannot see, I am feeling what you cannot feel, and it is magnificent.**”
 
 It was a smile that took my breath away. Not with awe, but with a primal fear. It clawed at my chest, a warning from my instincts that something was very wrong.
 

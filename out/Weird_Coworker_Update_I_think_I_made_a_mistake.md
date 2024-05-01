@@ -260,7 +260,7 @@ It's hard to describe what happened afterwards. Previously, the hoofed jinn had 
 
 Once its metamorphosis was complete, the hoofed jinn ran off towards the treeline. I glanced at Ramy. He made no move to follow it. He simply patted my shoulder, announced he needed a shot, then led me inside. 
 
-That was all a few days ago. We haven't seen any sign of the hoofed jinn since. I hope that whereever it is, it's okay. Omar hasn't returned. There was a moving company at his house. I suppose he wouldn't want to take the chance of collecting his belongings himself. 
+That was all a few days ago. We haven't seen any sign of the hoofed jinn since. I hope that whereever it is, it's okay. Omar hasn't [returned](https://www.reddit.com/r/nosleep/s/AejCBgz8Se). There was a moving company at his house. I suppose he wouldn't want to take the chance of collecting his belongings himself. 
 
 
 
