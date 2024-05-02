@@ -1,4 +1,4 @@
-[Pt. 1](https://www.reddit.com/r/nosleep/s/ykeaIXLfKm)
+[(Pt. 1)](https://www.reddit.com/u/Feeling_Easy_/s/Ga2d196yIr)
 
 (Pt. 2)
 
