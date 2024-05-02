@@ -72,7 +72,7 @@ We went upstairs, ready to confront the beings of the house.
 I opened the forgotten room’s door and stared in, nothing stood out at first. Old toys of both mine and my parent’s, an ironing board, wardrobes and shelves. 
 Then I saw something moving on the floor out of the corner of my eye. 
 I couldn’t tell what it was, it looked like a plastic bag moving erratically in the wind. 
-When it became aware of our presence it shot upwards and faced us, it was the same face I’d seen through the window with Ghostboy, the same blurry face that scared me when I woke up the day before. 
+When it became aware of our presence it shot upwards and faced us, it was the same face I’d seen through a window previously with Ghostboy, the same blurry face that scared me when I woke up the day before. 
 It rushed towards me but Ghostboy jumped in the way, it took one look at him and fell to the floor, cowering, back to its plastic bag state. 
 
 Ghostboy then took me to one of the corners of the room where it met my bedroom and told me to follow while he effortlessly went through the wall. 
