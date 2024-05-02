@@ -1,6 +1,5 @@
 The rain began as a soft patter against the windows of the Plymouth, a gentle interruption to the otherwise oppressive silence of the stormy afternoon. I drummed my fingers against the steering wheel, the rhythm a futile attempt to dispel the tension that had settled between us like a dense fog. The car door opened with a creak, and Finn slid into the passenger seat, bringing with him a gust of chilled air and the cloying scent of cheap cologne that seemed to cling to the back of my throat.
 
-  
 Took you long enough," I muttered, my gaze fixed on the rain-slicked road ahead. "We're going to be late."
 
 Finn grunted in response, fishing a crumpled pack of cigarettes from his jacket pocket. He lit one, the ember glowing bright in the dark, and inhaled deeply, filling the car with the acrid stench of tobacco. "Horses," he said, nodding toward a nearby field where a group of the animals huddled together, their coats glistening with rain.
@@ -19,7 +18,7 @@ I swallowed hard, bile rising in my throat. "Creativity? Artistry? Jesus Christ,
 
 He shrugged, taking another long drag from his cigarette. "Call it what you want, but you can't deny the skill it took to do this. The precision, the attention to detail. This isn't some amateur hour bullshit. This is the work of a true master."
 
-I shook my head, disgusted by his callousness. "You're sick, you know that? Absolutely fucking sick."  
+I shook my head, disgusted by his callousness. "You're sick, you know that? Absolutely fucking sick."
 He leaned forward, tapping the stack of photos with a nicotine-stained finger. "Look at these markings, these symbols carved into her flesh. They don't match any known cult or religious iconography. Not Hermetic, not Abrahamic, not even fucking Satanic. This is something new, something we haven't seen before."
 
 Despite my revulsion for Finn's crassness, I couldn't deny his expertise. The FBI had sent him for his knowledge of ritualistic crimes, and though it often felt more like I was there to babysit rather than collaborate, I knew we needed his insights to catch this killer.
@@ -78,8 +77,10 @@ Finn pulled the car off the road, bringing it to a stop beside a gently babbling
 
 Intrigued, I pushed aside the foliage, revealing the weathered inscription:
 
-"Willowbrook Confederate Hospital Est. 1862  
-Dedicated to the brave Texas soldiers who fought in the New Mexico Campaign and the noble medical staff who tended to their wounds.  
+"Willowbrook Confederate Hospital Est. 1862
+
+Dedicated to the brave Texas soldiers who fought in the New Mexico Campaign and the noble medical staff who tended to their wounds.
+
 'No greater love hath any man than this, that a man lay down his life for his friends.' John 15:13."
 
 Finn, cigarette dangling from his lips, exhaled a plume of smoke as he studied the faded lettering.
@@ -96,7 +97,8 @@ There, across the creek and through the dense foliage, a face peered out from on
 
 Finn, noticing my abrupt silence, turned to follow my gaze, his brow furrowing in concern. "What is it?" he asked, an uncharacteristic note of apprehension in his voice.
 
-"I saw someone," I managed, my words scarcely more than a whisper. "In the window. Watching us."  
+"I saw someone," I managed, my words scarcely more than a whisper. "In the window. Watching us."
+
 He scrutinized the building, his expression inscrutable. After a moment, Finn crushed his cigarette under his boot and looked back at me. "Probably just a squatter," he concluded, his usual skepticism returning. "Let's not get sidetracked. We've got enough to deal with."
 
 I wanted to persist, but I knew I didn’t have any good arguments. Still, I couldn't shake the feeling that we were being watched. Finn, too, seemed eager to put the building behind us, his pace quickening as we made our way back to the car.
@@ -113,9 +115,12 @@ One by one, community members stepped forward to share their memories of Allison
 
 I glanced at Finn, noting the way his eyebrows shot up at the woman's cryptic statement. It seemed we were both on the same page, our instincts telling us that there was more to this than mere grief-stricken ramblings.
 
-As the service concluded and the mourners began to disperse, Finn and I approached the elderly woman, our curiosity piqued. "Excuse me, ma'am," I said gently, not wanting to startle her. "We couldn't help but notice your unique perspective on Allison's passing. Could you tell us more about what you meant?"
+As the service concluded and the mourners began to disperse, Finn and I approached the elderly woman, our curiosity piqued. 
 
-The woman's eyes widened, a mix of fear and excitement flickering across her weathered features. She glanced around nervously, as if checking to see if anyone was within earshot. "You don't understand," she whispered urgently, leaning in close. "Allison was special. More than you could possibly know."  
+"Excuse me, ma'am," I said gently, not wanting to startle her. "We couldn't help but notice your unique perspective on Allison's passing. Could you tell us more about what you meant?"
+
+The woman's eyes widened, a mix of fear and excitement flickering across her weathered features. She glanced around nervously, as if checking to see if anyone was within earshot. "You don't understand," she whispered urgently, leaning in close. "Allison was special. More than you could possibly know."
+
 "Special in what way?" Finn cut in, his tone a mix of skepticism and intrigue.
 
 The woman opened her mouth to answer, but before she could utter a word, a hand gently touched her shoulder. We turned to see a younger woman, likely her daughter, standing beside her. She offered us a small, apologetic smile. "I'm sorry, but we really must be going," she said, her voice gentle yet firm.
@@ -134,55 +139,38 @@ Finn flicked the ash from his cigarette, his eyes narrowing. "You think?" He lau
 
 Martinez had arranged for us to meet the man who discovered Allison Novak's body, and he insisted on accompanying us himself. "Edgar's a bit of a recluse, old school, you know? He might open up more with a familiar face around," Martinez explained as our vehicle wound through the dense woodland bordering the town.
 
-  
 Edgar Holt was a wiry old man with piercing eyes and a guarded demeanor. He lived in isolation, off the beaten path in a cabin adorned with hunting trophies and antique firearms. As we approached, we found him on his porch cleaning a rifle. His scrutiny was intense as he watched us approach, his expression unreadable.
 
-  
 "Mr. Holt, I'm Detective Hunt, and this is Special Agent Finn," I introduced us, gesturing towards Finn, who offered a curt nod. "Detective Martinez mentioned you could help us understand more about where you found Ms. Novak."
 
-  
 Holt paused, setting his rifle aside with deliberate care and wiping his hands on an old rag. "Yeah, I found her alright," he muttered, his voice rough with a hint of defensiveness. "I was tracking a deer through the woods out back when I stumbled up on her. Nearly jumped out of my boots. I'll show ya."
 
-  
 We followed him into the woods, the underbrush crunching beneath our feet. Martinez stayed close to Holt, making small talk to keep the old hunter engaged. Despite his age, Holt moved with surprising agility, his intimate familiarity with the terrain clear as he navigated through the labyrinth of trees.
 
-  
 "Right around here," Holt announced, stopping in a small clearing. The ground was littered with fallen leaves, and remnants of police tape fluttered lightly in the breeze.
 
-  
 Finn crouched to examine the ground, while Martinez kept his eyes on Holt. "You come out here often, Mr. Holt?" Finn asked in a tone that was casual yet sharp.
 
-  
 "Every day," Holt responded, his gaze sweeping the clearing. "This land's been good to me. Known it all my life. Nothing happens here without me noticing."
 
-  
 I spoke up. "I noticed a fresh deer skin tanning outside your shed, and another looked recently processed. You're quite the marksman, Mr. Holt."
 
-  
 Holt's posture stiffened, his eyes narrowing as he processed my words. "Yeah, that's right. It's been a good season for me," he replied cautiously.
 
-  
 I nodded, keeping my gaze on the ground. "Interesting, since this is BLM land and I understand they've only issued two tags this season. You've had quite a bit of good luck to have already filled your tags this early, wouldn't you say?" I noticed how the color drained from his face, his hands clenching and unclenching at his sides.
 
-  
 "So, what I'm trying to understand, Mr. Holt, is how you were out here hunting deer when you've supposedly already reached your limit." My question hung in the air, the tension palpable.
 
-  
 The old man grunted, his eyes flashing with anger. "I want a lawyer. And you can get the hell out of here."
 
-  
 I sighed, holding up my hands in a placating gesture. "You're not under arrest, Mr. Holt. We're with homicide, not fish and wildlife. Whatever you're doing, that's for the game wardens to sort out. We're just trying to figure out why you were out here, and I don't appreciate being lied to."
 
-  
 Martinez stepped in, placing a hand on Holt's shoulder. "Give it a rest, will you?" he said, steering the old hunter away from us. He spoke to him in low tones, likely trying to reassure him that he wasn't in trouble.
 
-  
 Finn shook his head, "Wow, great detective work, Hunt. Not five minutes into interviewing a witness and he's already lawyering up. Bang-up job."
 
-  
 I shot him a glare, my patience wearing thin. "Speaking of jobs, why don't you do yours and look for something useful instead of second-guessing me?" I snapped, turning my attention back to the clearing.
 
-  
 Finn chuckled, but set about examining the scene more closely, his keen eyes scanning the ground for any clues we might have missed.
 
 "Mr. Holt, I need you to explain why you were out here," I pressed.
@@ -197,7 +185,8 @@ Finn chuckled, but set about examining the scene more closely, his keen eyes sca
 
 "Oh, you name it," he muttered, "Coyotes, bobcats, maybe even a cougar or two. They'd all take a chance on a free meal," he explained.
 
-I pondered his words, "And yet, she was out here for weeks without so much as a nibble from them?"  
+I pondered his words, "And yet, she was out here for weeks without so much as a nibble from them?"
+
 Holt paused, "Animals have been steering clear of this spot. Won't come within a hundred yards. They can smell the evil."
 
 "Smell the evil?" I echoed skeptically.
@@ -206,14 +195,15 @@ Holt paused, "Animals have been steering clear of this spot. Won't come within a
 
 "Well, I appreciate the advice, Mr. Holt, but I have a job to do," I responded with a forced smile, turning to leave. "Enjoy the rest of your evening."
 
-As I rejoined Finn, his expression was pensive, eyes scanning the ground. "Find anything?" I asked.  
+As I rejoined Finn, his expression was pensive, eyes scanning the ground. "Find anything?" I asked.
+
 He exhaled slowly, frustration evident. "Not much. There's hardly any blood, if any at all. But look at this," he gestured around us, "the foliage here is dying off. It might be from some chemicals she was doused with, or something else affecting the area."
 
 I nodded, following his gaze. The ground underfoot was patchy and discolored for a few yards in any direction.
 
 "She wasn't dragged here, either. The ground's soft from recent rains, but there are no tire marks, no signs of a body being dragged." He paused, then pointed towards a specific spot. "But I did find something interesting over here."
 
-I stepped closer, following his gesture to a set of footprints. Finn crouched down, his finger tracing the outline of the prints. "Look at the gait here," he explained. "Nearly four feet between strides. For a woman her height it should be around two. And look—they seem to be backwards."
+I stepped closer, following his gesture to a set of footprints. Finn crouched down, his finger tracing the outline of the prints. "Look at the gait here," he explained. "Nearly four feet between strides. For most adults, it should be closer to two. And look—they seem to be backwards."
 
 The implication of his words slowly dawned on me. "You're saying—"
 
