@@ -113,3 +113,5 @@ But the lightning passed, and all it left was the woman standing before me, star
 “Do you understand?”
 
 What else could I do but nod?
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/1cid8xb/im_a_teacher_at_a_school_for_children_who_arent/)
