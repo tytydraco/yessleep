@@ -239,3 +239,5 @@ Cassie told Grayson what happened.  He sounded defeated on the phone, she said. 
 But before that, I’m writing all of this down and telling you.
 
 I need to remember [what](https://alderrayne.com/) [happened](https://www.reddit.com/r/goatvalleycampgrounds/).
+
+[Next post.](https://www.reddit.com/r/nosleep/comments/1ci4hah/how_to_survive_college_all_praise_the_devilbox/)

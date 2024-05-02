@@ -175,3 +175,5 @@ He turned towards me and grabbed my hands.
 I wish I could believe that.  I really do.  But I do feel this - maybe I can trust Grayson or maybe I can’t, but he needs to get out of this place.  Leave, like I did.  I see myself in him, trapped by the expectations of everyone around him, caged in by how things should be because that’s how they’ve always been.
 
 It’s wrong.  It’s why this whole damn campus feels like it's rotting at the core.  But we’re both going to graduate and then we’re going to leave and we’ll never [come](https://alderrayne.com/) [back](https://www.reddit.com/r/goatvalleycampgrounds/).
+
+[Next post.](https://new.reddit.com/r/nosleep/comments/1ca0qyg/how_to_survive_college_i_dont_know_what_to_think/)
