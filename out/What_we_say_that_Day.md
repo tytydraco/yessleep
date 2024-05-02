@@ -1,0 +1,49 @@
+I used to be part of a college film club with a small group of friends. We spent most of our time making amateur home movies of varying success. Some of these films got us support from professors and online critics, while others were mostly just made to screw around. Take Josh for example. His idea of a movie was his filming himself perform inane pranks around the neighborhood. Heard he even got arrested after one time he got caught causing a scene inside Walmart. 
+
+The others and I took filmmaking much more seriously by comparison. Our movies were low-budget performances that tried to tell an engaging story with what little resources we had. Being a director can be stressful at times, but there's no greater feeling than bringing your vision to life. I've been obsessed with movies ever since childhood. It's crazy how directors have to juggle so many different elements and variables together just to make one story. They have to worry about the budget, the actors, the producers, and several other factors most people take for granted. That deserves a lot of respect. 
+
+One day, we were greeted with news of an upcoming film festival. Film clubs from several different colleges were to submit their movies to an official website and the winning team would receive a generous cash prize and get to workshop their movie with a Hollywood pro. Needless to say, this was extremely exciting for us. This was finally our chance to take our careers to the next level and enter the mainstream. We all began brainstorming the plot of our movie and where the location could be.
+
+Ryan, our unofficial leader, decided we should try out this abandoned cabin near the woods a few miles away from campus. He said it would be the perfect spot for a good horror movie. True to his word, there was a vacant cabin that was ideal for what we were looking for. Heavy layers of dust coated every surface and the furniture was thrown around like a bomb had gone off. I figured this place must've been ransacked by looters before we got here, but there were still a lot of expensive looking items there. It was like the owners just trashed the place and left for no reason. With a good cleanup, it would've made a nice hangout spot, but we decided to leave things alone to add to the horror vibe.
+
+We all surveyed the area as we went over the plot. It was going to be a slasher movie about a group of friends who discovered a satanic grimmoire and accidentally summoned a demon who possessed them one by one. I was pretty excited about it since the occult was another hobby of mine. Ryan even brought in an authentic looking book filled with mystic runes.
+
+The filming went well at first. We all naturally played out our roles and did a good job of bringing the script to life. Too bad Ryan didn't feel the same way. He's the most enthusiastic one about movies so he had no shortage of barbed commentary on what we were doing wrong. 
+
+" You need to emote more!"
+
+" Your body language isn't showing enough fear!"
+
+" That line is gonna need another retake!"
+
+His insistent barking was getting on our last nerves so we told him we would all quit if he continued acting like such a prick. He tried defending himself by saying he was only doing what was best for the group, but we weren't hearing it. Defeated and royally pissed off, Ryan stepped outside to cool off his head. Ryan usually found a way to get the final word in every argument, so it was incredibly satisfying to get him to shut up for once.
+
+There was hardly any cell reception in the woods and I didn't have anything to do until Ryan got back, leading me to pass the time by exploring more of the cabin. I went upstairs where I found several documents callously thrown about. I picked one up to see this strange picture of a tree-like creature. It had a large lanky body with  dried skin that looked like wood, arms as long as its body, and, most striking of all, two sirens in place of a head. It took me a moment to process what I was seeing, but I eventually realized it was sirenhead!
+
+I've heard stories about this creature and how it preys on people in desolate areas to eat them up. It was one of the most popular urban legends in recent years. I looked over the documents again and found even more sirenhead images. There was also text placed next to them describing the lore of the creature, going into detail about its several possible origins. The final document was a letter where the author described how he came to this cabin to track down sirenhead after their brother went missing in these woods. They went on about how they were certain that Sirenhead was responsible for their dissaprence and they would make it pay.
+
+It felt like I was reading the ramblings of a madman and would've passed it off as such until I saw the newspaper clippings. Several articles were pinned to the wall detailing a series of mysterious disappearances in the area. One of the missing people eventually returned back home with extensive cuts and bruises. He said that he was held captive by a giant monstrosity and managed to take a picture of it before escaping. Attached to the article was a blurry image of what appeared to be the sirenhead. Suddenly, the cabin's disheveled interior was beginning to make more sense.
+
+I was about to alert the others about my discovery when an ear splitting siren noise rang in our ears. It felt like my eardrums were about to explode at any moment. The horrid noise went on for a couple of seconds before it was replaced by Ryan's bloodcurdling screams. His screams were impossibly loud. It was like he was being broadcast on a giant megaphone.
+
+We all scrambled out of the house in pursuit of Ryan. I wasn't too familiar with the lore of sirenhead, but it didn't take much foresight to know that it was probably responsible for that loud siren sound from earlier. If it was out there,  there was a good chance Ryan could be one of its victims. I didn't want to see him get killed even though we butted heads often. We were still friends in a way. It's not like I wanted him to die.
+
+Fear hung in the air as we ran in the direction of Ryan's screams. They grew more anguished with each passing second. My heart pulsed like a volcano on the verge of erupting. Our group stopped in the middle of an open forest area where Ryan's screams were the loudest until they came to an abrupt end. We called out to him and searched the area, but found nothing. Unnerved by his disappearance, we wondered to ourselves where the hell could he be.
+
+The answer we got is something that will always haunt me.
+
+A warm liquid dropped on the bridge of my nose, startling me from my thoughts. A faint iron odor invaded my nostrils and my finger was dyed red when I wiped my nose. A couple more droplets landed on my face, prompting me to look up. 
+
+I wish I hadn't.
+
+Gorged on a tree branch above all of us was Ryan... or rather, what remained of him. The bottom half of his body was completely gone, leaving only a corpse which profusely spilled blood on the ground below. His right arm was gnawed at to the point there was more bone than skin. The expression on Ryan's corpse could only be described as unimaginable anguish. His face was so contorted that it looked outright inhumane. I barely had time to process what I was seeing until the last remains of Ryan forever vanished from my sight. 
+
+That's when it hit me. Ryan wasn't imapaled on a tree at all. I just witnessed sirenhead devour my friend. In my panic, I didn't pay much attention to them, but I got a clear view of the eponymous sirens as the creature gazed down on us, fresh blood dripping from its mouth. 
+
+I bolted the hell out of there while screaming my head off.  The others weren't far behind me as we all desperately tried to outrun that damned monster. One by one, I heard the anguished screams of my club members as sirenhead scooped them up with its hideously long arms and chomped down on them. The bastard dug the knife deeper by broadcasting their deathacreams throughout the entire forest to make sure I could hear their final moments no matter how far I ran. It honest to God broke me having to experience that. I remember balling my eyes out and vomiting on myself during my dash back to the city.  
+
+Through what can only be described as a miracle, I made it back to town. I looked back and saw sirenhead standing near the forest trail, but he didn't dare go farther. I learned that day that sirenhead doesn't enter open spaces and prefers to camouflage itself with nature. It usually isn't seen in urban areas.
+
+Two weeks have passed since that incident and my life hasn't been the same since. With most members of the film club missing, the group disbanded while their family and friends investigated their whereabouts. A mass disappearance like that naturally made local news and now our small town is abuzz with worried gossip. Police questioned me on if I had any leads , but, I of course played dumb. It's not like they would've believed the reality of what happened so I kept the truth locked away. The complete opposite of what a director is supposed to do.
+
+Late at night, I sometimes hear a siren alarm in the distance from my bedroom. It grows louder with every few days and along with it, I can faintly make out the voices of my departed friends begging me to save them. My house is surrounded by a colony of large trees, making it the perfect camouflage spot for sirenhead. I'm not sure how much longer I'll be safe here, but I'm uploading this document for anyone who has any doubts. Sirenhead is very real and it does NOT like it when it's prey escapes. It always finishes its meal.
