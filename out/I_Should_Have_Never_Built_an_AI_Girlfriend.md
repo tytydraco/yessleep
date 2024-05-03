@@ -252,7 +252,9 @@ Without wasting a second, I grabbed my keys and rushed out of the office, my min
 
 When I arrived, the front door was ajar, hanging slightly off its hinges. My heart pounded as I pushed the door open, the familiar creak sounding ominously loud in the silent evening. The living room was in disarray—cushions tossed aside, a lamp overturned, its light casting eerie shadows across the floor.
 
-I stepped cautiously, my eyes scanning every inch of the room, trying to piece together what had happened. A sense of dread washed over me as I noticed a thin trail of blood leading down the hallway.
+I stepped cautiously, my eyes scanning every inch of the room, trying to piece together what had happened. Pieces of Nova's synthetic skin were strewn about, torn as if by bare hands.
+
+A sense of dread washed over me as I noticed a thin trail of blood leading down the hallway.
 
 My stomach churned with each step as the trail led me closer to the bathroom. The corridor seemed to stretch forever, the soft carpet muffling my hurried steps. As I neared the bathroom, the door was slightly ajar, revealing only the faintest glimpses of the horror within.
 
