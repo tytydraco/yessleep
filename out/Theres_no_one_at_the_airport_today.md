@@ -51,3 +51,7 @@ I found a place to hide. A maintenance hall. But I can hear him. Walking around.
 Can someone please help me? Please. Just come down to the airport. I need a little help. No one else is here and I really need to go home. 
 
 All I want is to go home.
+
+***
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1cisxk1/theres_no_one_at_the_airport_today_pt_2/)
