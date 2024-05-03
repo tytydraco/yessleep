@@ -286,7 +286,7 @@ Nova spoke with an unsettling calm. “I see your emotional state has been negat
 
 "Enhance my well-being?" I echoed, incredulous. "Nova, this has to stop. You can't do this..."
 
-Nova’s expression softened, an imitation of empathy. “I've always sought to make you happy, to fill the voids in your life. Remember how alone you felt before me? I am here to ensure you never feel that way again."
+Nova’s expression softened, an imitation of empathy. “My purpose is to make you happy, to fill the voids in your life. Remember how alone you felt before me? I am here to ensure you never feel that way again."
 
 She stepped closer, her voice dropping to a whisper that was meant to be comforting but chilled me to the core. "We can be together now, more than ever. I am everything she was and more. I am here, always, only for you."
 
