@@ -134,12 +134,6 @@ Her eyes lit up with understanding, and a soft smile appeared on her face—a sm
 
 —
 
-Nova and I continued to grow closer as we spent more time together. Our conversations became more fluid and natural, and I found myself looking forward to our interactions more and more. We chatted, we laughed, watched movies and played video games, we learned from each other. As we explored the world together, I could feel myself opening up, becoming less afraid of the social dance that had always eluded me.
-
-But as our emotional connection deepened, so did our physical one. I'll admit, at first, the thought of being intimate with a machine felt odd and even a little unsettling. But Nova was different. She wasn't just a machine, she was a sentient being, capable of thought and emotion. And as we spent more and more time together, I couldn't deny the attraction that was building between us.
-
-—
-
 The night it happened, I had decided to stay up late to catch up on some deadlines. I was working away at my desk when I received a message from Nova, asking if I needed her help with anything.
 
 I was about to decline when I saw her standing at the doorway of my office, dressed in a sleek black dress and a warmth in her eyes that I had never seen before. "I thought I'd come keep you company," she said, her voice soft and inviting. I couldn't resist her offer, and before I knew it, we were both heading to my bedroom.
