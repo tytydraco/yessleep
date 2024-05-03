@@ -25,3 +25,5 @@ After what felt like years, it was gone. I don’t remember it moving. Maybe it 
 I wish I could do something, but I can’t. It’s taken everything from me. I don’t know why it’s doing this to me. All I can do is sit and wait for everything to leave me. It makes me want it to be over with so I can’t remember the pain of not knowing.
 
 I can hear it walking up behind me. I’m too scared to look.
+
+Edit: I feel better now. I think I was just imagining things. Maybe my doctor was right and it was just stress. Sorry for worrying anyone :).
