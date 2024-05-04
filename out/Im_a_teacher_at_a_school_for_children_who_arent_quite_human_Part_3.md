@@ -119,3 +119,5 @@ I told the headmistress everything. In retrospect, I was shockingly honest. She 
 I’m laying in the infirmary now, being cared for by a nurse with a third eye and no interest in hiding it. That would have horrified me before. Now, I just cracked a smile. For better or worse, I’ve picked my side.
 
 I’m sticking by these kids, even if it leads me straight into Hell.
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/1cjxrtu/im_a_teacher_at_a_school_for_children_who_arent/?)
