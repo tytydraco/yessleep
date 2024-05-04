@@ -180,7 +180,7 @@ I changed into a spare uniform I kept in my locker. The State Police had already
 
 I entered Vance's office and found him sitting at his desk, in the middle of a conversation with Pete and Joe, who stood on the other side. Vance was telling them how he had just gotten a call from the FBI. A couple suits from the Saint Paul branch of the Bureau were on their way.
 
-At this Pete smirked at Jerry and began to whistle the *X-Files* theme, which annoyed Vance who told him to knock it off. Vance reminded him that five people, including three children, were missing and this was not the time for joking around.
+At this Pete smirked at Joe and began to whistle the *X-Files* theme, which annoyed Vance who told him to knock it off. Vance reminded him that five people, including three children, were missing and this was not the time for joking around.
 
 Abashed, Pete apologized.
 
