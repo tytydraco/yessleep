@@ -208,3 +208,5 @@ I stepped closer, following his gesture to a set of footprints. Finn crouched do
 The implication of his words slowly dawned on me. "You're saying—"
 
 "Whatever happened, she walked here on her own," he concluded.
+
+Part 2: https://www.reddit.com/r/nosleep/comments/1ckj6q6/the_fleshweaver_part_2/

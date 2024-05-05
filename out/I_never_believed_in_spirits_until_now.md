@@ -1,0 +1,23 @@
+I (29M) grew up in Florida, in different parts, for different spans of my life, until recently. Living there was all I knew. We would vacation to other tourist destinations in Florida for summer breaks. Our family was always beach bound bums, although I usually ended up just reading a book on the hotel balcony, watching in cool shade so I didn’t cook in the sun. We might take a haunted ghost tour while in St Augustine, or enjoy a museum or church, but I never believed in all the spooky ghost stuff. It was creepy, sure, but I never saw anything with my eyes, and to me, seeing is believing when it comes to all that stuff. 
+
+Anyways, like I said before, I no longer live in Florida and recently took residence in North Georgia, close to the Appalachian mountains. It’s a big change from sunshine all day to cold, and ice, and real seasons. When I moved I brought my dog, Bubba (2MCattleDog), with me to my new place. For a little context, Bubba is trained and doesn’t really react to storms or fireworks, noises outside that usually would make a dog freak out, he doesn’t. 
+
+Well to get to it, recently Bubba has been really reacting to the storms that have been rolling through the mountains in the spring. 
+
+The rain would start, Bubba would be barking at the window. The first strike of lighting he would jump on my bed and put his back to me with all the hairs standing up from the back of his neck to the base of his tail. And when the first claps of thunder would rattle he would get low and growl, snarling really all of his teeth would be bared and he would stare at my bedroom door. 
+
+The first time I chalked it up to the new place and moving still being stressful to him, I redirected him and tried to calm him but he didn’t stop growling until the thunder slowly rolled away and the last bits of rain were pittering down the gutters. 
+
+The next few days went by without any incident. Another storm had come and I got home just as the rain began coming down in buckets. Bubba didn’t greet me at the door like usual and I went upstairs to find him standing on the top landing, staring at my bedroom door again growling and all his hair raised. I tried getting him to come downstairs but he only took a step forward to my door before a shuddering thunder clap shook the house and Bubba went ballistic. 
+
+My door swung open and he ran barking like a lunatic at the open doorframe and stood in it barking his head off. I was a little frightened, not going to lie there, this is the things you see in those crazy horror films. But I just… swallowed and went to Bubba, closed the door and took him for a drive with me, and waited for the storm to calm down. The whole time in the car, he slept in the backseat. 
+
+The next week went by without any storms and no incidents with Bubba. This brings me to yesterday. I raced home from work, trying to beat the storm clouds before they unleashed whatever hell I was about to endure this time. I got home and barricaded myself and Bubba in my room with food and water for him while we weathered the storm together. 
+
+Like clockwork Bubba was snarling and barking at my door while he stood at the edge of my bed as the thunder and lighting began. I tried to calm Bubba but he just wouldn’t stop. The lightning struck and I counted, waiting for the thunder, I didn’t have to wait long. 
+
+Bubba jumped off the bed as the door swung open again and I saw a hand retract away from the knob. I jumped up as Bubba ran out the door after whoever it was that just did that, but I stepped out and saw nothing. No one. I didn’t hear anyone racing down the stairs, no one was hiding on the first floor. It was fucking terrifying. 
+
+This morning I woke up and heard voices downstairs, to clarify I live alone, in a standalone cabin with two bedrooms upstairs and a living space and kitchen downstairs. I couldn’t make out what was being said but they were loud and angry, when Bubba woke up, he was immediately on edge again, fur raised and growling. I went to open my door and Bubba flew downstairs with me behind him, I thought, if these people want to break in, let them get bit. But there was no one there when I got downstairs. 
+
+It’s been a couple hours and now someone is knocking on my front door, they won’t say anything when I ask who it is and I’m really starting to panic. They just asked me to open the door and they used my name. Bubba is going crazy. What do I do?!
