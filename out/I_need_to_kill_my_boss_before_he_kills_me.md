@@ -363,7 +363,3 @@ The roach rocked to and fro on its back in the sink basin. I stabbed it with the
 I wrapped myself in my shirt, being sure the wound would stop bleeding.
 
 The sound of the roaches just outside of the break room door were still there. But another noise joined them. Click. Click. Click. Click.
-
-[XXX](https://www.reddit.com/user/Edwardthecrazyman/comments/17qis3x/archive/)
-
-[TCC](https://www.reddit.com/r/TheCrypticCompendium/)
