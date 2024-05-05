@@ -187,6 +187,6 @@ However, all of that wasn't what was bothering me about this whole interaction. 
 To hell with Mrs. Mayfield, I need to speak to Ms. Blackwell. Now.
 
 [Part
- 3](https://www.reddit.com/r/nosleep/s/Q0DVM6vchs)
+ 3](https://www.reddit.com/u/Chai_Ky/s/NYHKUDR77R) 
 
 [Part 1](https://www.reddit.com/r/nosleep/s/XbGqoEzFGT)
