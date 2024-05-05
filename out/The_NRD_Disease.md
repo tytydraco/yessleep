@@ -78,4 +78,4 @@ The cops didn't find any of the corpses that night. So, obviously the next cours
 
 I should probably tell you what the N.R.D Disease is now. It stands for the Necrotic Reanimation Disease. ***There's a "disease" that causes dead things to move.*** But that's no damn disease. You tell me what fucking disease psychologically and physically attacks you. It's nothing I've ever seen before. I've quit my job since then. But still... 
 
-**I feel like I can still see their pale and lifeless faces peeking from the [woods.**](https://www.reddit.com/r/t5_asx4o5/s/YKkYvYqVp6)
+**I feel like I can still see their pale and lifeless faces peeking from the [woods.**](https://www.reddit.com/r/SmileysWorld/s/wpQL9qjECY)
