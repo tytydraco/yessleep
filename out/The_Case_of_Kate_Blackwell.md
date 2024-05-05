@@ -218,4 +218,6 @@ Entry is rather concerning and I will need to dig deeper into it during my inves
 
 I shall update within this log should I find anything of value to this case within the guest book. 
 
-Whether Ms. Blackwell is at fault for the deaths of these young people or not, there is something deeper going on within those mountains when it comes to those cabins. And I am determined to understand what it is. 
+Whether Ms. Blackwell is at fault for the deaths of these young people or not, there is something deeper going on within those mountains when it comes to those cabins. And I am determined to understand what it is.
+
+[Part 2](https://www.reddit.com/r/nosleep/s/J7RdmyjFuL)

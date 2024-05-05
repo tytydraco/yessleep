@@ -184,4 +184,9 @@ Front desk had received the call first, the operator saying he sounded normal wh
 
 However, all of that wasn't what was bothering me about this whole interaction. He had called me "Lucky Dime." Only one person ever called me that and there's no way anyone would know that except my parents and I rarely speak to them. Whoever this was, knew more than even my closest friends and I don't have any of those. 
 
-To hell with Mrs. Mayfield, I need to speak to Ms. Blackwell. Now. 
+To hell with Mrs. Mayfield, I need to speak to Ms. Blackwell. Now.
+
+[Part
+ 3](https://www.reddit.com/r/nosleep/s/Q0DVM6vchs)
+
+[Part 1](https://www.reddit.com/r/nosleep/s/XbGqoEzFGT)
