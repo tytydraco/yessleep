@@ -172,7 +172,7 @@ It clicked into my brain that I was at the dive bar where Aanya had attacked me 
 
 Where was Ramy? What was bizarre was that I couldn’t feel his presence anymore. Oh God, was he *still there?* With that fucking angel?
 
-Frantic, I jumped up, the bar's patrons turning to me in bewilderment. One of them was Aanya. She left her place to rush over to me, abadoning the guy that she was most likely intending to eat later that night turning in his seat to give me dirty looks. 
+Frantic, I jumped up, the bar's patrons turning to me in bewilderment. One of them was Aanya. She left her place to rush over to me, abandoning the guy that she was most likely intending to eat later that night, who then turned in his seat to give me dirty looks. 
 
 “How did you get here?” She demanded, her voice low to deter eavesdroppers. 
 
@@ -214,7 +214,7 @@ I just wished that I could sense him again. Just so that I could know for sure i
 
 During the drive, Aanya ended up breaking the silence by telling me about how she became a churel. I got her permission to retell it here, since I didn't want to violate her trust after such an intimate admission. 
 
-“On my 18th birthday, my parents told me that they were taking me to a big family party.” She chuckled bitterly. “Turns out, it was my wedding.
+“On my 18th birthday, my parents told me that they were taking me to a big family party.” She chuckled bitterly. “Turns out, it was my wedding."
 
 Horrified, I gaped at her. 
 
