@@ -62,7 +62,7 @@ A few seconds passed before I hopped the rest of the way down; confused but eage
 
 Mom was in the kitchen preparing dinner when Hunter and Cody got dropped off. They popped out of an SUV Hunter's mom drove and waved, running towards the house.
 
-We played for a little in the yard and I explained my plan.
+We played for a little in the yard while I explained my plan.
 
 Cody looked like he couldn't wait.
 
