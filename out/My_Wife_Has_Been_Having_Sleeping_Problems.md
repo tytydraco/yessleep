@@ -1,4 +1,4 @@
-I want to start out by saying i love my wife, Alice. She’s always been nothing but the best to me, but she’s always had trouble falling asleep. She has tried all the standard methods; medication, sleepytime teas, etc. I never really have the same issues. I always fall asleep quickly, and she tries not to keep me up. She’s always been so caring about keeping me rested. 
+I want to start out by saying I love my wife, Alice. She’s always been nothing but the best to me, but she’s always had trouble falling asleep. She has tried all the standard methods; medication, sleepytime teas, etc. I never really have the same issues. I always fall asleep quickly, and she tries not to keep me up. She’s always been so caring about keeping me rested. 
 
 Recently, I’ve been a bit stressed at work, and as a result, falling asleep is a bit more difficult these days. Now, I think she needs more help than I initially thought. 
 
