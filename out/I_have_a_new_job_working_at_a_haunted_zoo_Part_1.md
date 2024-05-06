@@ -1,3 +1,5 @@
+May 6th, 2024 - 5:30 a.m.
+
 I’ll start with the job posting, I guess. I spotted it on Indeed while making my daily check for anything and everything that would hire someone with my biology degree, and it seemed on the up and up. Their website looked decent, the guy on the phone sounded nice, and I was looking for anything even slightly related to working with wildlife. Being a nightshift guard at a zoo was fine, especially when I took the incredibly generous rate of $25/hr. into account. That’s eleven bucks more than my dad makes at the local grocer, and he’s been working there for thirteen years. Then again, from the P.S. on the posting, I thought there might be good reason for the rate.
 
 It said at the end, almost as an afterthought, ‘Zoo is haunted.’
