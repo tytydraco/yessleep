@@ -27,7 +27,7 @@ I decided to see an Optometrist, they said it would eventually disappear. It was
 So I went home and hoped that’s exactly what would happen, despite it already being a week since the first dot. 
 
 Then peace. Nothing at all. A whole week without seeing a spot, I started to go back to normal. 
-Not simultaneously but in the same day, two of them. 
+But hatred and anger soon filled me, not simultaneously but in the same day, two of them appeared. 
 Thought I’d do the morning ritual, yawn, go for a wee etc, but instead I was greeted with the usual blurred vision but then yet another black spot on the right hand side. 
 Bigger than the others and with a different texture. It looked different somehow, more rubbery maybe? Or was it just my memory and they’ve always looked like that and I’m only just noticing?
 It blocked my view of things more than the others, compared, it was an actual annoyance, one that would definitely take time to get used to. One i’d definitely be angry about for a while. 
