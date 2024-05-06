@@ -148,7 +148,7 @@ DET. RYAN SNOW: Yes. They booked the cabin through Mrs. Larson and went through 
 
 MR. RAINES: Well I spoke to someone! That’s for damn sure, but how the hell could they have been dead for five years?
 
-DET. RYAN SNOW: Exactly. You’re saying you were possessed. This person also believes they were framed by something that didn’t show itself until they got the Ouija board. I don’t believe for one second it was something supernatural, but it definitely has something to do with with occult. You said your wife believed in that stuff, yes?
+DET. RYAN SNOW: Exactly. You’re saying you were possessed. This person also believes they were framed by something that didn’t show itself until they got the Ouija board. I don’t believe for one second it was something supernatural, but it definitely has something to do with the occult. You said your wife believed in that stuff, yes?
 
 MR. RAINES: Y-Yeah…
 
