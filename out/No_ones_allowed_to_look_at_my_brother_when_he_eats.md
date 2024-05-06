@@ -162,7 +162,7 @@ Something shifted from the far side of the room. Cody's face lost its color.
 
 When his feet hit the ground a pale hand darted from beneath the bed. Cody tumbled to the floor, shrieking.
 
-"HELP!" Cody squealed. There was a clattering from downstairs and footsteps hurrying up the stairs.
+"HELP!" Cody squealed. There was a clattering from the the kitchen and footsteps hurrying up the stairs.
 
 Hunter ran out of the room wailing. I was glued in place by a morbid fixation. The hand that was clamped tightly around Cody's ankle. Was that Matty's? That thing, impossibly tall, clambering out from underneath the bed. That couldn't be my ten-year-old brother, right?
 
@@ -188,4 +188,4 @@ He paid for his tab.
 
 "Don't contact me again."
 
-On the way back to my car I tried calling my mom again. She hasn't answered her phone all day. My dad passed away last year but my mom still lives at my childhood home. I need to talk with her. In person. And maybe I'll burn that house down on my way out.
+On the way back to my car I tried calling my mom. She hasn't answered her phone all day. My dad passed away last year but my mom still lives at my childhood home. I need to talk with her. In person. And maybe I'll burn that house down on my way out.
