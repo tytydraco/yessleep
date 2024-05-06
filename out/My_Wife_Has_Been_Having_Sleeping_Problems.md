@@ -43,3 +43,16 @@ About half an hour later, I slowly crept back to the bedroom, then to the bathro
 I’m in bed right now as I’m writing this post, facing away from her. I felt her cold body slink under the blankets behind me. I’ve been fake sleeping for a while. I’m typing this under the blankets. She definitely thinks I’m asleep. I can feel her warm breath against the back of my neck. i can hear the soft cracking of her jaw. I’m growing desperate. I can’t look at her.
 
 Has this sort of thing happened to any of you? If I ignore this behavior, will I be safe? Am I safe? I just want her to be okay. I’m going to try to sleep, goodnight everyone. Hopefully tomorrow I wake up and see some advice. Goodnight.
+
+EDIT: hi i’m alice :3 i’m not really sure why he’s reachiing out on the i nte rnet to 
+
+ instea d of talking to me about all this but don’t worry, he’s fine! he left his phone open when he fell asleep. i just thin k he 
+s the most hamdsome man i n the worlld 
+when he slleeeps i just have to loook at him sleep i just havve to watch i can’t helpp it i love to watch 
+him alseep in love to watching him
+sleepp i can’t contai n how handsome he. looks
+ when. he. sl eeps. slepps i love him aooo miuch wheen he sleepss for me me mmee mme me me me
+
+i wannt to loook so beauutiful for my sweeet husnamd when he sleepps in my bed with me i just hope he’s sleepping so well 
+
+i loove wat hing him sleep so much i don’t even want him to waAAKE UP
