@@ -22,7 +22,7 @@ There were feet. They were unmistakable. Two little lumps of flesh and fat, unde
 
 A scream gurgled at the back of my throat but it only came out as croaks. I tried to run but my legs couldn’t move. I pulled and tugged and yanked but like the pale feet under the curtain, mine didn’t move. As my gaze locked, for the first time, being so far away from my family became a nightmare.
 
-I inched closer. It happened before I could comprehend my own actions. Then again, and again, I found myself approaching the curtains against my own will. Their haunting billowing, the unnatural ebb and flow of the cotton sheets, begged me to come closer. I couldn’t stop. At some point, I think I didn’t want to stop even if I could.
+I inched closer. It happened before I could comprehend my own actions. Then again, and again, I found myself approaching the curtains against my own will. Their haunting billowing, the unnatural ebb and flow of the synthetic sheets, begged me to come closer. I couldn’t stop. At some point, I think I didn’t want to stop even if I could.
 
 The curtains were right in front of me, and that disgusting yellowish colour of maggots was all I could see. The fabric crawled on my face.
 
