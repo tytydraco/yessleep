@@ -198,7 +198,7 @@ Monica spoke into the microphone. "Copy, Unit 2, this is Dispatch."
 
 At the word "situation" we all tensed up a bit.
 
-"Vance got up and quickly crossed over to Monica's desk. He leaned close to the microphone. "Unit 2, this is Vance. What do you mean by 'situation?' Over."
+Vance got up and quickly crossed over to Monica's desk. He leaned close to the microphone. "Unit 2, this is Vance. What do you mean by 'situation?' Over."
 
 "Uh, me and Brandon found one of them."
 
@@ -212,7 +212,7 @@ Vance's face paled. I felt a skittering sensation in my guts.
 
 Lars went on: "We're taking him back to the station right now. Be there in about twenty minutes. Over."
 
-"Copy, Unit 2," Vance said with forced composure, looking deeply shocked by this development. "Bring him in through the rear door, there's kind of a crowd outside and we don't need any unwanted attention. Over and out."
+"Copy, Unit 2," Vance said with forced composure, looking stunned by this development. "Bring him in through the rear door, there's kind of a crowd outside and we don't need any unwanted attention. Over and out."
 
 "Roger, Chief. Over and out."
 
@@ -336,7 +336,7 @@ It's been five days. Still no leads on the case, and no sign of the missing Bark
 
 One interesting fact came to light after they finished investigating the Barker house: not only was the house's electrical system completely blown out, but also so was every portable battery-powered device within the house...including the family's mobile phones. That's why the 911 call was made on a landline phone, one of those old non-electric rotary-dial ones, which apparently wasn't affected by...whatever it was that happened there last Friday night.
 
-I don't anyone's going to find the Barkers. Not us, not the State Police, not the city cops or the Feds or anyone else. I think we're looking a little too close to home, and the Barkers are somewhere far, *far* away.
+I don't think anyone's going to find the Barkers. Not us, not the State Police, not the city cops or the Feds or anyone else. I think we're looking a little too close to home, and the Barkers are somewhere far, *far* away.
 
 I don't know what the "sky people" wanted with them, but I have a bad feeling their intentions are not good.
 
