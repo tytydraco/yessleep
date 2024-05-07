@@ -1,4 +1,4 @@
-I (26F) don't really date much. It's just never been my thing. But I'm doing well in most aspects of my life and I finally feel ready enough to actually put myself out there.
+I (26F) don't really date much. It's just never been my thing. But I'm doing well in most aspects of my life and I finally felt ready enough to actually put myself out there.
 
 I started with a few "test" dates with some guys I met on Tinder and Bumble. Just a way for me to dip my toes in the dating pool without getting too serious too quickly. I was completely upfront about this with guys and a few of them were totally cool with it, which was nice.
 
