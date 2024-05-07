@@ -22,4 +22,10 @@ After overcoming my initial Terror, at least somewhat, I noticed the child stand
 
 I knew I should run but I couldn't bear the thought of leaving the child alone with them. The rational part of my mind told me that she's clearly been here a while and that I should go get help and then come back to rescue her. I had just convinced myself to do so when I realized that I couldn't move. The creatures were all staring at me with their sickly yellow eyes and my muscles were all locked in place as they slowly moved towards me I saw the girl silently mouth, “I'm sorry.”
 
-Then there was only pain and darkness
+Then there was only pain and darkness, until I saw a flash of light before my eyes. Was this it? Was my life flashing before my eyes? At this point I was in and out of consciousness, rather it was dreams or my life flashing before me as I felt myself getting weaker and weaker. 
+
+It was almost dawn and I heard the rustling sounds of leaves coming closer towards me. I couldn't move, frozen from fear and unbearable pain. "I found him!" When I looked up I saw a man in a rangers uniform. I heard more voices while the man was reassuring me everything will be ok. After I woke up again in the hospital, I couldn't feel my legs. I tried to move them but there was not a hint of feeling. Worrying and scared about what I was about to discover was an understatement.  
+
+Slowly I raised the blanket to take a peek. I screamed! "Where are my legs!" "Where are my legs!" This was a nightmare. Is this what I deserved for trying to save that lost girl? It made me wonder if she was one of those things too. The nurse rushed into my room when she heard me screaming. I asked her what happened to that girl in the woods. The puzzled look on her face told me everything. Perhaps she was just a hallucination. 
+
+After the nurse checked my vitals she told me dinner will be served soon. I asked her what happened to my legs. Her smile turned sinister staring at me with the same sickly yellow eyes as those creatures I encountered in the woods. My heart raced, and my breathing accelerated. She mouthed, "You shouldn't have followed me". 

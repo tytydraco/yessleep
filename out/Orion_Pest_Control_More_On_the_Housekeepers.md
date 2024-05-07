@@ -8,7 +8,7 @@ Housekeepers are only active at night. The first signs of a Housekeeper infestat
 
 However, it should be noted that if the Housekeeper thinks that you're too lazy, too slovenly, or they just plain get annoyed at your snoring one night, you may be awoken by a pinch on the bottom of your foot in the middle of the night. They're finicky little guys that are prone to mischief.  
 
-So, that's how you keep a Housekeeper happy. Not too difficult, right? Hell, I know people who've had a Housekeepers helping their families for generations. That's the best case scenario.
+So, that's how you keep a Housekeeper happy. Not too difficult, right? Hell, I know people who've had  Housekeepers helping their families for generations. That's the best case scenario.
 
 Now, let's look at the factors that can cause a Housekeeper to transform. There's outright refusing to reward them for their work. Honestly, that's fair. If I cleaned someone's entire house and they couldn't even be bothered to give me a cool, tasty drink afterwards, I'd be a bit miffed myself. 
 
@@ -48,7 +48,7 @@ As the boss marched towards the body, he commanded me to get the head out of the
 
 As I raced past the sofa, the furniture began to move on its own. My body reacted before my brain did and I skidded to a stop on the wooden floor just as the sofa slammed into the wall next to me. I could hear a struggle behind me as Victor dealt with the Housekeeper's body. The lights flickered maddeningly, making it difficult to see as I crossed the room. A vase flew off of a shelf right at my face as if thrown. Shielding my head with my arms, I ducked, broken glass falling into my hair as the vase smashed above me.  
 
-The head leered at me as my hands covering each of its pointed ears. I couldn't help but notice that its teeth looked sharper than a typical Housekeeper's. I tucked it under my arm like a football as I turned to make a break for the door. 
+The head leered at me as my hands covered each of its pointed ears. I couldn't help but notice that its teeth looked sharper than a typical Housekeeper's. I tucked it under my arm like a football as I turned to make a break for the door. 
 
 A tornado of broken glass stood between me and the exit. I covered my eyes with my forearm, putting my head down. I almost dropped the Housekeeper's head, catching it by the hair just before it could slip from my grasp, which it did *not* like. It had a lot of colorful things to say about me, but I was preoccupied as a shard of glass embedded itself into the back of my hand, another grazing the top of my left ear. Gritting my teeth against the pain, I kept going. Pieces hit my work jacket, but couldn't get through the thick material. I was close. 
 
