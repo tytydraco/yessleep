@@ -1,5 +1,3 @@
-
-
 A week later I walked out of the hospital, literally. The doctors said I’d been very lucky. Because I’d been sweating, the oil didn’t stick to my skin. Since oil and water don’t mix, it was literally floating on top of the sweat on my legs. Even though I did receive some burns, they weren’t nearly as bad as they could’ve been.
 
 I guess I’m just one lucky guy. Now I get to go home and barricade myself in my house, hoping that thing forgets about me, or better yet, that it had died from its burn injuries.
@@ -446,4 +444,8 @@ I dropped the card on the seat.
 
 “I think I’d be better off on my own,” I said. “You don’t protect your partners very well.”
 
-I walked inside my house without looking back.[Part 1](https://www.reddit.com/r/nosleep/comments/1btfcax/camping_alone_can_be_terrifying_especially_when/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+I walked inside my house without looking back.
+
+
+
+[Part 1](https://www.reddit.com/r/nosleep/comments/1btfcax/camping_alone_can_be_terrifying_especially_when/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
