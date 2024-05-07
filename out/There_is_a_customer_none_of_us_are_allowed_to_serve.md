@@ -12,7 +12,7 @@ The pay.
 
 The pay is fucking great.
 
-There are maybe ten other diners within a 30 minute drive from where I live. Most of them average out to a little over minimum wage. 
+There are maybe ten other diners within a 30 minute drive from where I live. Most of them average out to a little over minimum wage.
 
 Meanwhile, Lone Star is whipping up a mean $50/hr.
 
@@ -196,13 +196,13 @@ Rather, I just didn’t want to know anymore. My gut no longer held curiosity. T
 
 The agents and troopers–spaced out and seated amongst the eatery–were now just a glaring reminder of what my dingy diner job *really* was.
 
-The government cavalry would *mostly* show up around the end of month window the wandering man was set to arrive in. When he’d appear, they wouldn’t do much more than examine him from their distant tables, subtly scribbling notes into notebooks. 
+The government cavalry would *mostly* show up around the end of month window the wandering man was set to arrive in. When he’d appear, they wouldn’t do much more than examine him from their distant tables, subtly scribbling notes into notebooks.
 
 He’d always act the same. He would just sit there. He wouldn’t give them, or us–the diner employees–much to go on.
 
 Speaking of employees, I remembered something Melanie told me after my first month of working here–that the worker turnover at this diner was incredibly high. Knowing at the time what everyone got paid, it made absolutely no sense to me.
 
-Now, five months into the gig, alongside a completely new set of cooks, waiters, and waitresses from when I’d first started, I’d seen firsthand just how true her statement was. None of the leavers claimed as much, but I’m sure the underlying premise of who the diner was *really* for became subconsciously clear to them during their time here. And it probably didn’t sit all too well with them. 
+Now, seven months into the gig, alongside a completely new set of cooks, waiters, and waitresses from when I’d first started, I’d seen firsthand just how true her statement was. None of the leavers claimed as much, but I’m sure the underlying premise of who the diner was *really* for became subconsciously clear to them during their time here. And it probably didn’t sit all too well with them. 
 
 I stayed. But not because of the pay. I’m actually not sure why I did.
 
