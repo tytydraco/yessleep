@@ -4,7 +4,7 @@ It was late at night , My friend Jake had sent me a video named Control.mp4. It 
 I went to school and gave my exam the next day . After the exam , The school had a session on mental health awareness. They told us how help is available for everyone and what happened to Jake was unfortunate.
 
 
-I was shocked , The school just told me that Jake took his own life. There's no way that's possible. Jake had some weird hobbies but he was a happy guy , There's no way he'd take his own life. Something was up and I knew it. Of
+I was shocked , The school just told me that Jake took his own life. There's no way that's possible. Jake had some weird hobbies but he was a happy guy , There's no way he'd take his own life. Something was up and I knew it.
 
 
 I quickly went home and tried to call Jake , There was no answer. I tried texting him, But there was no reply. I looked up his name on the internet and there it was , An article about how Jake had taken his own life.
@@ -31,7 +31,7 @@ It was the same with the 3rd , 4th ,5th and every single minute afterwards. I wa
 I finally reached the 29th minute, It was Jake. He started cutting himself in the same manner as everyone else , Crying for help. Nobody was there to help him , He finally stopped after cutting his throat.
 
 
-I was crying at that point , Maybe if I had replied then I could've saved him. That's when I suddenly noticed that the video was sent from me to one of my other friends.
+I was crying at that point , Maybe if I had replied then I could've saved him. That's when I suddenly noticed that the video was sent by me to one of my other friends.
 
 
 I was confused because I never sent that. That's when the 30th minute of the video started , The video shouldn't have been longer than 30 minutes. I started watching , Then I saw who was in the video.
