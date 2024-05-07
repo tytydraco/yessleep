@@ -13,13 +13,13 @@ I quickly went home and tried to call Jake , There was no answer. I tried textin
 The article said that multiple cuts were made by a knife on him before the final cut to the throat. There were no images. I started writing everything that I have found on this page whoever is reading , It might help me figure out what's going on. 
 
 
-I suddenly remembered the video he had sent me the night before , "Maybe that has something to do with this?" I thought quickly opened the vid Control.mp4
+I suddenly remembered the video he had sent me the night before , "Maybe that has something to do with this?" I thought and quickly opened the vid Control.mp4
 
 
 It was a 30 minute long video. In the first minute , There was a teenage girl sitting on a sofa. Soon she took a knife and started making cuts on her face while screaming for help.
 
 
-"Why is she screaming for help when she herself is making the cuts?" was my first thought. At the end of the first minute , She cut her throat and the cries of help stopped.
+"Why is she screaming for help when she herself is making the cuts?" was my first thought. At the end of the first minute , She cut her throat and the cries for help stopped.
 
 
 In the 2nd minute , It was a guy in his twenties. The exact same thing happened with him. He started cutting himself while screaming for help and then cut his own throat.

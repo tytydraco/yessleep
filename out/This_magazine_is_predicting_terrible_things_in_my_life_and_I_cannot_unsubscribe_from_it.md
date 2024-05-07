@@ -1,6 +1,6 @@
 I’m writing this in the beginning of May 2024. A few days from now, I won't be able to do so, I fear. In the vague hope of finding someone in the width of the internet who can help me out, I’ll try to retell the events that have led to this moment in as much detail as possible. I *need* to find a way to stop them. The authors of this magazine. The entity that is destroying my life. Or whatever else is responsible for these terrible articles.
 
-**1****^(st)** **issue: February 2024**
+**1st** **issue: February 2024**
 
 Even though the knocking on my door was very soft, it managed to find its way into my dreams, and I slowly woke up. On that Sunday in January, I wasn’t quite sure if I actually heard someone knock, or if my brain had just made up the sound. Back then, I didn’t know that this sound would cause me a lot of shivers in the future. I rolled out of bed and slowly made my way to the front door. No one there. Just as I was about to turn around and go back to bed, I saw something lying in front of me. A magazine. The shiny front cover read: *Embrace Your Life.*
 
@@ -74,7 +74,7 @@ I was interested. Of course, usually I never gave in to money-wasting subscripti
 
  
 
-**2****^(nd)** **Issue: March 2024**
+**2nd** **Issue: March 2024**
 
  
 
@@ -130,7 +130,7 @@ We hope that you enjoy the improvements initiated. Don’t be afraid to follow o
 
 The message was handwritten. A type of handwriting I had seen before. It wasn’t hard to put two and two together – it was the same as on my ‘*Thanks for your subscription’* card that had been laying under my couch for weeks. I noticed that I had goosebumps all over my body.
 
-**3****^(rd)** **issue: April 2024**
+**3rd issue: April 2024**
 
 The third issue was left on my porch on the 31^(st) of March. As I heard the soft knocking, I ran to the door. There was nobody there. I had a bad feeling.
 
