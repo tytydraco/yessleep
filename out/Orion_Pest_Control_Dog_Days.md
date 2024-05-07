@@ -2,6 +2,8 @@
 
 What should have been a normal bug infestation turned into one of the most bizarre atypical cases I'd ever seen. 
 
+(If you're not familiar with what Orion Pest Control's services are, it may help to start [here.) ](https://www.reddit.com/r/nosleep/s/OpNHnxiz8U)
+
 The client called with complaints of encountering centipedes frequently in his home. While a lot of people find centipedes creepy, they're generally harmless. First thing we had to do was an inspection. Find out how the centipedes were getting in. See if there is something such as a water leak that could be causing excessive moisture in the client's home. Centipedes love dark, damp places, which is why you'll often find them in basements, shower drains, and crawlspaces. Once we had a chance to scope out the situation, we could develop a treatment plan from there. 
 
 Armed with insecticides, Reyna and I arrived to combat the invasion. The first thing I noticed when the client answered the door was that he looked sickly. He apologized, saying that he had food poisoning, so he was going to keep his distance from us. 
@@ -303,7 +305,7 @@ The mechanic smiled at me, “Since you did such a good job, I’ll be a bit nic
 
 The melody he played was hypnotic, slow, enchanting. I blinked as my head suddenly felt… cloudy, is the best word I could think of for it. Pleasantly cloudy. And I was tired. So tired. It became harder and harder to keep my eyes open. The grass felt softer than any mattress I'd ever laid upon. I curled up in it, the fresh smell of it relaxing me even further as I let my eyes drift closed.
 
-Then I woke up in my bed, groggy. Why was I awake? I wanted to keep sleeping. I reached up to rub my eyes. A hand. I was me again. As embarrassing as it is to admit, I bawled like a fucking baby.
+Then I woke up in my bed, groggy. Why was I awake? I wanted to keep sleeping. I reached up to rub my eyes. A hand. I was me again. I was sore all over, as if I'd done a hundred crunches on hardwood floor. As embarrassing as it is to admit, I bawled like a fucking baby.
 
 I'm taking the next few days off to recover. The boss was the one to suggest it. I need it. He apologized for leading me there. He hadn't anticipated the mechanic finding me. I didn't blame him. It wasn't his fault. 
 

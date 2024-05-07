@@ -209,3 +209,5 @@ We're going to be keeping an eye on the boss. If something or someone is keeping
 But before we could speculate about anything besides potential vampirism, the phone rang. Raccoons got into someone's attic. Back to business, for now. 
 
 In the meantime, if there are any other questions that yinz have about the Housekeepers, feel free to ask. It's what I'm here for, when I'm not chasing bastard raccoons around someone's attic, of course. 
+
+Update: [I fucked up. Bad. ](https://www.reddit.com/r/nosleep/s/0B2UVxdWZg)
