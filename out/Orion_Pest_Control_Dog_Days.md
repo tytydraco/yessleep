@@ -237,7 +237,7 @@ I didn't realize his voice could go that high. Oh God, that was far too weird. A
 
 Great. I'd found him, but how was I going to get him to know who I really was? I tapped my nose against his palm, then circled towards the door, staring at him, willing him to follow me. I whined again, trying to look pathetic. It wasn't hard. I certainly felt it. 
 
-The boss rose back up, approaching ne like he was afraid to startle me. I padded out the door, turning back to see if he followed. I may not have been able to speak, but I still knew how to write. I used the claws of my right paw to dig at the dirt, making an ‘H.’ The floor creaked as he left the shed to see what I was doing. I kept pawing at the dirt until I spelled out, ‘HELP.’
+The boss rose back up, approaching me like he was afraid to startle me. I padded out the door, turning back to see if he followed. I may not have been able to speak, but I still knew how to write. I used the claws of my right paw to dig at the dirt, making an ‘H.’ The floor creaked as he left the shed to see what I was doing. I kept pawing at the dirt until I spelled out, ‘HELP.’
 
 His brows furrowed, glancing between me and the message. I whined again, head down, wishing that I could cry. Victor's hand delicately went under my jaw, gently urging me to look up at him. He examined my face intently, searching for something. 
 

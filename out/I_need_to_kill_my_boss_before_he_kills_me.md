@@ -20,7 +20,7 @@ I’d raise my eyebrows and respond listlessly, “No, I’ve got them. I was ju
 
 Like I didn’t know that. Cheeky.
 
--
+
 
 “I think Quincey is trying to kill me.” I said in the bare office.
 
@@ -74,7 +74,7 @@ Janice laughed, ushering me out of the room. “I said, “You’re stronger tha
 
 “I did.” She assured me.
 
--
+
 
 The old squalor factory I called a home was cast in weird long shadows as I walked to the front steps. Mary and Margery, the twin girls, were sitting on the steps, braiding one another’s hair together. By together, I mean that they’d intertwined their hair. Mary on the left, Margery on the right. Or maybe it was the opposite. I can never tell. Between them was a ropey knotted mass of hair. I stepped past them.
 
@@ -92,7 +92,7 @@ I stopped at the top of the steps and turned to greet them. “Huh?” I asked.
 
 They ignored me.
 
--
+
 
 The old squalor factory hadn’t produced anything within even the previous century but an ambiance of filth and drugs. Sometime over the previous fifty years, the building owners decided to convert the place into a series of apartments but had given up on that project halfway through. Whereas the exposed brick would have looked nice in another place, here it only served to indicate the owners’ sloppy attitude. This hadn’t stopped them from charging rent, however.
 
@@ -112,7 +112,7 @@ I stirred the beans with butter and sipped on a murky glass of water. “What do
 
 A small cockroach skittered up to my feet to inspect what a gourmand I was. Startled, I squashed it with my barefoot and excused its guts from me with a paper towel.
 
--
+
 
 Getting dressed in front of the dirty standing mirror, I straightened my tie without any trousers on. I leaned closer to my reflection and he leaned closer too. Beneath each eye I’d accumulated a dark black bruise. “Hmm.” Said the man in the mirror.
 
@@ -130,7 +130,7 @@ After putting on a pair of holey socks, I was down the steps with my laptop over
 
 She ignored me.
 
--
+
 
 “You’re late!” said Quincey, leaning over my cubicle wall with a broad yellow grin as warm as the sun. “Art, you know I’ll have to dock you for that.”
 
@@ -166,7 +166,7 @@ I watched as Quincey gave me a suspicious glance then slammed the phone in its c
 
 “Yes sir.”
 
--
+
 
 I stood at my post near the water cooler, sipping an empty cup and surveying the lonely break room. People rarely went in there, but it was nice to stand next to the water cooler. It was against a wall and it felt good to have a wall to my back. Everything was cement gray. The drapes, the floor tiles, the cabinets, the furniture. It made me sick to my stomach. I waited longer in the break room than normal.
 
@@ -176,7 +176,7 @@ My cellphone went off. It was Quincey sending me a text:
 
 I crumpled my paper cup and threw it in the bin.
 
--
+
 
 I rubbed my eyes against my fingertips, stepping out into the cool night air. Work was over. Car headlights splashed against my pant legs as I sulked down the sidewalk to the squalor factory, kicking loose bits of asphalt beneath my dress shoes. I loosened my tie and fancied for a moment that a drink would do me good but thought better of it. I always awoke with a shattering headache after saucing myself up.
 
@@ -192,7 +192,7 @@ I ignored them and unlocked the door to the factory.
 
 I went away.
 
--
+
 
 Sitting on my mattress in my barren room, I refilled the oil lantern near the bed, hushing slowly to myself, “Click. Click. Click. Click.”
 
@@ -204,11 +204,11 @@ It insisted its hissing again and as I was reaching for my shoe, I saw that perh
 
 “Click.” I said. They stood at attention and I watched them cautiously, pulling my feet beneath me on the mattress. I began my clicking again and they all began swaying their posteriors in affirmation.
 
--
+
 
 I dressed myself as the cockroaches made my breakfast. It was slow learning at first and the toast was only a little black around the edges. Leaning back in awe, I saw they’d found the time to tie my shoes as well.
 
--
+
 
 “You’re early.” Said Quincey.
 
@@ -220,7 +220,7 @@ I dressed myself as the cockroaches made my breakfast. It was slow learning at f
 
 He peered at me over the rim of his coffee cup. “That’s right.”
 
--
+
 
 Click, click, click, click went the metronome.
 
@@ -262,7 +262,7 @@ Click, click, click, click went the metronome.
 
 “I know.” I said.
 
--
+
 
 I gathered an army of roaches. I never counted them, but if I had to give a rough estimate, I’d say I had a few thousand under the control of my clicks.
 
@@ -270,7 +270,7 @@ After gathering them around the alley adjacent the squalor factory, I laid a thi
 
 “Good.” I whispered to myself. “Quincey doesn’t stand a chance.”
 
--
+
 
 Before work, I ushered them into my khaki satchel, hoping that it would be enough to defeat the boss. Moving the bag with them squirming around inside was an arduous task, but it still felt as though I had a hop in my step.
 
@@ -286,7 +286,7 @@ A cockroach popped its pinpoint head from the corner of my satchel flap and jump
 
 “Click.” I said, pointing at my bag. The cockroach skittered up my leg and disappeared beneath the satchel’s flap.
 
--
+
 
 “Art, where have you been?”
 
@@ -304,7 +304,7 @@ The bag was empty and loose. I gasped, pushing my head between my legs to search
 
 I bit my lip. “Oh. Of course. You’re right.” My legs shook beneath the desk.
 
--
+
 
 After Quincey’s departure, I scanned the room of empty cubicles, finding nothing.
 
@@ -322,7 +322,7 @@ I lifted it to my ear.
 
 “I’m sorry. Goodbye.”
 
--
+
 
 I crept through the halls, following all the proper indicators on the walls, but knowing full well where I’d end up. There came the sound of the metronome from the end of the concrete hallway. Moving slowly with my breath caught in my throat, I approached the cracked office door.
 
@@ -342,7 +342,7 @@ Janice pointed at me and the roaches came.
 
 I ran.
 
--
+
 
 The skittering of their mandibles was deafening as they surrounded me. Some of them fluttered into the air erratically, landing on my pants. I swatted at them and screamed in terror. They went for the soft tissue in my mouth, so I bit down, sending insect viscera down the front of my shirt. Pumping my legs in tandem with my own heartbeat, I moved faster than I’d ever moved before through those delirious halls.
 
@@ -362,6 +362,6 @@ The roach rocked to and fro on its back in the sink basin. I stabbed it with the
 
 I wrapped myself in my shirt, being sure the wound would stop bleeding.
 
-The sound of the roaches just outside of the break room door were still there. But another noise joined them. Click. Click. Click. Click.
+The sound of the roaches just outside of the break room door were still there. But another noise joined them. Click. Click. Click. [Click.](https://www.reddit.com/user/Edwardthecrazyman/)
 
 [Next](https://www.reddit.com/r/nosleep/s/nExhZLe88Y)
