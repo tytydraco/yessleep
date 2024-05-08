@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/1cnef0i/ive_been_homeless_for_the_last_sixteen_years_this/)
+
 I live on the streets.
 
 When they meet me, people wonder why. I’ve made up all sorts of lies, and occasionally told the truth. Even rarer, somebody believes me. I’ve finally decided to set it down in writing, to record it for after I pass on, and so that I don’t have to repeat the story. Next time somebody asks, they can simply read this.
