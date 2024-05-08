@@ -1,6 +1,6 @@
 [Part 1](https://www.reddit.com/r/nosleep/comments/1cl16lb/i_have_no_idea_what_im_doing_part_1/) // [Part 2](https://www.reddit.com/r/nosleep/comments/1clu48x/i_have_no_idea_what_im_doing_part_2/)
 
-I paced my bedroom floor wondering what I should do next. I’d already placed the leg back in the gun safe, then searched the entirety of my house looking for something Christian to place on top of it. It seemed to work in the movies and I didn’t really have any idea what else to do. I couldn’t find any religious paraphernalia of any kind, so I ended up fashioning a small crucifix out of two large carrots and hot glue with a little Jesus made out of raisins.
+I paced my bedroom floor wondering what I should do next. I’d already placed the leg back in the gun safe, then searched the entirety of my house looking for something Christian to place on top of it. It seemed to work in the movies and I didn’t really have any idea what else to do. I couldn’t find my bag of religious paraphernalia, so I ended up fashioning a small crucifix out of two large carrots and hot glue with a little Jesus made out of raisins.
 
 I needed a plan! I was thinking about who might know more information about the artifact I’d come into possession of, then it hit me – all of my competitors!
 
