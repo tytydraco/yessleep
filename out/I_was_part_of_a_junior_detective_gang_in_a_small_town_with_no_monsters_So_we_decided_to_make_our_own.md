@@ -264,7 +264,7 @@ Standing with her arms at her sides, Violet's hands clenched into fists.
 
 “What's the test?” Violet said, her gaze glued to bleeding black depths. 
 
-“I don't know,” Ben said, his voice teetering on a giggle. He leaned forwards, arms spread out. “I didn't think you'd actually come and meet us.” 
+“I don't know,” Ben murmured, his voice teetering on a giggle. He leaned forwards, arms spread out. “I didn't think you'd actually come meet us.” 
 
 Violet hummed, stretching out her leg, teasing it across the surface. “Was that the test?” 
 
@@ -302,9 +302,9 @@ Looking closer, Violet was perfectly still, her gaze on the sky.
 
 While she shoved Ben under the water, drowning him. 
 
-Violet’s eyes found mine, and somehow, I knew she belonged in my gang. 
+Violet’s eyes sparkled, and somehow, I knew she belonged in my gang. 
 
-Her eyes found mine, glinting with that darkness, that poisonous streak I found myself drawn to. It was a starving, insatiable need to understand a fractured mind. Know your enemy. 
+Her gaze found mine, glinting with that darkness, that poisonous streak I found myself drawn to. It was a starving, insatiable need to understand a fractured mind. Know your enemy. 
 
 “Do you want to see if Ben’s a witch?” Violet asked me, her tone something else entirely. This girl did not make sense, using barely her finger to drown Ben Callows. I knew she was wrong. 
 
@@ -328,7 +328,9 @@ Exhilarated.
 
 “Violet, will you join my gang?”
 
-She didn't answer me until we were sharing hot cocoa in my house. I told Mom we fell in the pool, and she believed me. I should have told her that my friends were sociopaths, and I was kind of maybe in love. Violet sipped her cocoa, nodding with a smile I didn't recognise. Violet never smiled at school. 
+She didn't answer me until we were sharing hot cocoa in my house. 
+
+I told Mom we fell in the pool, and she believed me. I should have told her that my friends were sociopaths, and I was kind of maybe in love. Violet sipped her cocoa, nodding with a smile I didn't recognise. Violet never smiled at school. 
 
 Well, she did. But it was always the prick of a cruel smirk. 
 
@@ -358,15 +360,15 @@ Jules piled his plate with fries, smiling widely at the lunch ladies.
 
 I grabbed a fork. “We weren't doing that.”
 
-His eyes were strange when I took the time to notice them. The excited gleam had fizzled out. Jules’s hands tightened around the tray. “Then what *were* you doing?”
+His eyes were strange when I took the time to notice them. The excited gleam had fizzled out. Jules’s hands tightened around his tray. “Then what *were* you doing?”
 
 I didn't reply, making my way over to our usual table. Ben was already waving me over, Violet and Lucy holding up the flyers we were making. 
 
-**THE REDBLOOD DETECTIVES.”
+**THE REDBLOOD DETECTIVES.”**
 
 **Do YOU need our help? We can find/solve anything! Contact us on the number below. (We take donations!)**
 
-When I bothered turning around, the boy was lost in the crowd of kids. 
+When I bothered turning around, Jules was lost in the crowd of kids. 
 
 We were on our first official case, searching for Mrs Lake’s missing mail, when Jules appeared seemingly out of nowhere. And with him, a golden retriever puppy he introduced as Arlo. 
 
@@ -410,7 +412,7 @@ Even if it wasn't quite the way I’d expected.
 
 I proposed a plan, standing up, wobbling a little off balance. 
 
-“I've got it.” I said, my voice kinda slurry from Violet’s special summer cocktail, which was just a random alcoholic beverages we found, thrown into a blender, and diluted with water. 
+“I've got it.” I said, my voice kinda slurry from Violet’s special summer cocktail, which was just random alcoholic beverages we found, thrown into a blender, and diluted with water. 
 
 The town wasn't taking us seriously. 
 
@@ -478,7 +480,9 @@ Mom was crying in the kitchen, praying to a god I knew she didn't believe in tha
 
 I told my Mother and the other parents that I didn't know where my friends were, repeating the same thing over and over again until I was tongue tied. 
 
-“I saw them the day before they went missing, and… yes, everything seemed okay.” I slowly sipped my class of milk provided, looking the sheriff directly in the eyes. “No, I didn't notice anything suspicious, sheriff. Yes, I'm sure, sir. No, they didn't tell me anything.”
+“I saw them the day before they went missing, and… yes, everything seemed okay.” I slowly sipped my glass of milk provided, looking the sheriff directly in the eyes. 
+
+“No, I didn't notice anything suspicious, sheriff. Yes, I'm sure, sir. No, they didn't tell me anything.”
 
 It was Ben’s mother who shattered my mask. 
 
@@ -500,9 +504,11 @@ It was dark when my phone vibrated, and I'd fallen asleep.
 
 I wasn't scared, forcing myself to my feet. 
 
-“Where are you?” Mom sobbed down the phone, when I tapped answer. 
+“Where are you?” Mom yelled down the phone.
 
-“Coming home now.” I muttered. “Sorry.” I paused, holding my breath against a cry. “Mom.” I broke down, forcing my fist into my mouth to hide my sobs. “Mom, did they come back?”
+“Coming home now.” I muttered. 
+
+“Sorry.” I paused, holding my breath against a cry. “Mom.” I broke down, forcing my fist into my mouth to hide my squeak. “Mommy, did they come back?”
 
 Mom didn't reply for a moment. 
 
@@ -524,7 +530,9 @@ The pickup flew forwards, and I remembered how to move.
 
 I rolled off the seat, my hands pinned behind my back. 
 
-Twisting around, blinking in the dim, I could feel something warm, something seeping across upholstery seats. Blood. It was everywhere, sticky on my hands and wet on my face when I struggled to get up. I was lying in someone's blood. 
+Twisting around, blinking in the dim, I could feel something warm, something seeping across upholstery seats. Blood. 
+
+It was everywhere, sticky on my hands and wet on my face when I struggled to get up. I was lying in someone's blood. 
 
 A scream clawed its way out of my throat. 
 
@@ -594,7 +602,9 @@ Lucy shuffled over to me, her eyes wide. “Then! He came back and struck again!
 
 With those words, she shoved me onto my back. 
 
-“First he took Violet,” Lucy hummed, tracing the blade down my shirt. “Then… Jules.” I squeezed my eyes shut, pulling at the restraints around my wrists. “Then Ben.” her breath tickled my cheek. “And finally… Panda.”
+“First he took Violet,” Lucy hummed, tracing the blade down my shirt. 
+
+“Then… Jules.” I squeezed my eyes shut, pulling at the restraints around my wrists. “Then Ben.” her breath tickled my cheek. “And finally… Panda.”
 
 Lucy lifted the knife, and I accepted my death.
 
@@ -672,15 +682,17 @@ Every time I was with him, I felt like my soul was being sucked out.
 
 Guilt so deep, so fucking painful, I lost my breath. 
 
-I live every day knowing that I immediately assumed it was *him* that day. Ben was barely alive when I found him. Lucy had started to carve into him before remembering she needed me. 
+I live knowing that I immediately assumed it was *him* that day. 
+
+Ben was barely alive when I found him. Lucy had started to carve into him before remembering she needed me. 
 
 After admitting it to him, his lips formed a small smile. 
 
 *“Can I tell you a secret?”* He said to me, at sixteen. 
 
-*Yeah?* 
+*"Yeah?"* 
 
-Whatever the boy was going to say, Ben never told me. 
+Whatever he was going to say, Ben never told me. 
 
 Presently, I nodded at the dog’s new collar.
 

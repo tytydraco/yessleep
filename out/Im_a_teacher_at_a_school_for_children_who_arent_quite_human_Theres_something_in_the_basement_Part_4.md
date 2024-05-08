@@ -109,3 +109,5 @@ It was the very distant singing of birds down another hall that ultimately drew 
 I don’t know how many hours have passed. I’m in the infirmary, now, largely returned to normal. The three-eyed nurse seems bored even as she treats me with medicines and surgeries no earthly doctor would ever recognize. Reversing, slowly and by degrees, the impossible ways the beast had twisted and reshaped my body. I’ve at least regained some control of my physical faculties, but in the process, I’ve been exposed to whole new categories of pain. Types of agony I thought were impossible. Types I never would’ve had to know had I gotten a job at any other school in the world.
 
 But the poor headmistress in the bed next to me seems more miserable, still. Shellshocked, even. Her eyes sunken and haunted. “He’ll be back,” I can hear her whisper. “He’ll let the Cancer gorge itself. Grow and grow. And then… he’ll be back.”
+
+[Part 5](https://www.reddit.com/r/nosleep/comments/1cn3i27/im_a_teacher_at_a_school_for_children_who_arent/)
