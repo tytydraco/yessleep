@@ -16,7 +16,8 @@ I've included for you below a transcribed copy of the Discord messages with the 
 
 >*UST TELL ME WHAT IT IS OKI*
 
->*wait, what does it look like again*
+>*wait, what does it look like again i cannot find a good image of the damn thing*  
+***Here:*** [her depiction of the ride](https://media.discordapp.net/attachments/769742652135833611/1237760988024148029/image.png?ex=663cd240&is=663b80c0&hm=c7cc37df9d7a9551c5ae4a85185b54f4df0b7d1e9a9b221a6339349f3c98e8df&=&format=webp&quality=lossless&width=794&height=473)
 
 >***Yeah, yeah. You got it, already.***
 
@@ -152,7 +153,8 @@ I've included for you below a transcribed copy of the Discord messages with the 
 
 >*you wannaaaa go somewhere that’s not here next time we visit?*
 
->**Sure thing bucko!**
+>**Sure thing bucko!**  
+*gn ig bye*
 
 I'm busy in College right now, will get back to her eventually if there are more incidents like this. It feels like there's something right under our noses where I live. Heck, maybe the entire world.
 
