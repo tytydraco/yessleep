@@ -20,7 +20,7 @@ The sun bore down, turning the canyon into a furnace, the heat mirroring the mou
 
 To be honest, "I'm going to die" wasn't a coherent thought in my head; it was more primal than that—a visceral sensation that grips you. Those who have felt it know what I mean. It's not about thinking in words; it's about experiencing a raw, unfiltered surge of dread. Panic is the essence of fear, a state where planning and logic are drowned out by an overwhelming wave of despair.
 
-I collapsed onto the scorched earth, feeling the sting of the hot sand against my hands and knees. My tears fell, disappearing almost instantly as they met the ground, a poignant symbol of my fleeting life being swallowed by the unforgiving soul of the desert.
+I collapsed onto the scorched earth, feeling the sting of the hot sand against my hands and knees. My tears fell, disappearing almost instantly as they met the ground, a poignant symbol of my fleeting life being consumed by the unforgiving soul of the desert.
 
 As I sat there, a small but vibrant splash of color caught my eye—a red bird, flitting from one parched tree to another. It was the first sign of life I had seen in what felt like an eternity. The sight of it sparked a flicker of hope in my heart. Perhaps, I thought, this bird knows where to find water.
 
@@ -84,7 +84,7 @@ I smiled and nodded, feeling a sense of safety for the first time in hours. I sa
 
 But just as I was about to speak, I heard a whisper on the wind, "This way..."
 
-I swallowed hard, feeling the hairs on the back of my neck stand up. "I... I have to go," I stammered, backing away.
+I felt the hairs on the back of my neck stand up. "I... I have to go," I stammered, backing away.
 
 The leader's voice deepened. "You're not going anywhere."
 
