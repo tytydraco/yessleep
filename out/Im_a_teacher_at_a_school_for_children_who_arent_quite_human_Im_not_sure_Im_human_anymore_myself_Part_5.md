@@ -1,4 +1,4 @@
-[Part 4](https://www.reddit.com/r/nosleep/comments/1cjxrtu/im_a_teacher_at_a_school_for_children_who_arent/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/1cg1has/something_terrible_happened_at_my_school_but_no/) | [Part 2](https://www.reddit.com/r/nosleep/comments/1cgwv8j/i_dont_think_that_my_students_are_actually_human/) | [Part 3](https://www.reddit.com/r/nosleep/comments/1cid8xb/im_a_teacher_at_a_school_for_children_who_arent/) | [Part 4](https://www.reddit.com/r/nosleep/comments/1cjxrtu/im_a_teacher_at_a_school_for_children_who_arent/?)
 
 It started with the animals. 
 
@@ -94,7 +94,7 @@ That seemed to actually tick him off. “Those deaths are on *you*, not me! You�
 
 “I don’t care *what* they are.” I pumped the shotgun. “They’re *my kids*. And I’m not letting you hurt a single one of them.”
 
-My heroics were interrupted, however, by what felt like a category 5 earthquake rocking me off of my fight. It seemed those titans outside had come crashing into the school amid their brawl, tendrils and cancerous limbs tearing into the very foundations. For a moment, it felt like the entire structure would crumple in on itself and crush us like bugs. It was only by the grace by whatever gods may be that only the other wing of the school was destroyed, although some blackened tentacle tore a hole right through the wall of the safe room.
+My heroics were interrupted, however, by what felt like a category 5 earthquake rocking me off of my feet. It seemed those titans outside had come crashing into the school amid their brawl, tendrils and cancerous limbs tearing into the very foundations. For a moment, it felt like the entire structure would crumple in on itself and crush us like bugs. It was only by the grace by whatever gods may be that only the other wing of the school was destroyed, although some blackened tentacle tore a hole right through the wall of the safe room.
 
 Everyone and everything in the room lay in a cluttered heap. When I managed the strength to arise, Saladin was standing over me. That big grin on his face. My students were quivering with fear. I knew that, with their strength, if they all attacked at once, they could tear him to pieces. But they were frozen in place, because in the end, human or not, they were just kids; terrified children faced with a man who wanted to hurt them. They couldn’t defend themselves. Someone had to step up and protect them.
 

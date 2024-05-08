@@ -1,4 +1,4 @@
-[Part 2](https://www.reddit.com/r/nosleep/comments/1cgwv8j/i_dont_think_that_my_students_are_actually_human/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/1cg1has/something_terrible_happened_at_my_school_but_no/) | [Part 2](https://www.reddit.com/r/nosleep/comments/1cgwv8j/i_dont_think_that_my_students_are_actually_human/) | [Part 4](https://www.reddit.com/r/nosleep/comments/1cjxrtu/im_a_teacher_at_a_school_for_children_who_arent/?) | [Finale](https://www.reddit.com/r/nosleep/comments/1cn3i27/im_a_teacher_at_a_school_for_children_who_arent/)
 
 I think it’s time to face facts: I really am no different from those morons in horror movies after all.
 

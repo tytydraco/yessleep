@@ -1,4 +1,4 @@
-[Part 3](https://www.reddit.com/r/nosleep/comments/1cid8xb/im_a_teacher_at_a_school_for_children_who_arent/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/1cg1has/something_terrible_happened_at_my_school_but_no/) | [Part 2](https://www.reddit.com/r/nosleep/comments/1cgwv8j/i_dont_think_that_my_students_are_actually_human/) | [Part 3](https://www.reddit.com/r/nosleep/comments/1cid8xb/im_a_teacher_at_a_school_for_children_who_arent/) | [Finale](https://www.reddit.com/r/nosleep/comments/1cn3i27/im_a_teacher_at_a_school_for_children_who_arent/)
 
 Something just occurred to me: these last few nights have been the first in years I’ve gotten through stone sober.
 

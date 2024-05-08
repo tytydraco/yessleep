@@ -1,3 +1,5 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/1cgwv8j/i_dont_think_that_my_students_are_actually_human/) | [Part 3](https://www.reddit.com/r/nosleep/comments/1cid8xb/im_a_teacher_at_a_school_for_children_who_arent/) | [Part 4](https://www.reddit.com/r/nosleep/comments/1cjxrtu/im_a_teacher_at_a_school_for_children_who_arent/?) | [Finale](https://www.reddit.com/r/nosleep/comments/1cn3i27/im_a_teacher_at_a_school_for_children_who_arent/)
+
 “Mister Vermeil?” Katie called, raising her hand. “I think I saw a man with a gun outside.”
 
 There is no combination of words more perfectly calibrated to turn a teacher’s blood to ice.
