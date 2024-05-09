@@ -1,6 +1,6 @@
 “Hey Nick, can I have some of the popsicles!? Pleaaase!?” Asher yelled out to me while I was laying on the couch with an icepack resting on my chest.
 
-It was a hot, humid day in the middle of the rural outskirts of upstate New York on a Friday afternoon. Me & my younger brother and I had just gotten home from school, bored as hell, while we boiled alive indoors and outdoors.
+It was a hot, humid day in the middle of the rural outskirts of upstate New York on a Friday afternoon. My younger brother and I had just gotten home from school, bored as hell, while we boiled alive indoors and outdoors.
 
 “No, we have to wait until Wednesday.”
 
