@@ -1,4 +1,4 @@
-[Part 2](https://www.reddit.com/r/nosleep/comments/1cnef0i/ive_been_homeless_for_the_last_sixteen_years_this/)
+[Part 2](https://www.reddit.com/r/nosleep/comments/1cnef0i/ive_been_homeless_for_the_last_sixteen_years_this/) [Part 3](https://www.reddit.com/r/nosleep/comments/1co781e/ive_been_homeless_for_the_last_sixteen_years_this/)
 
 I live on the streets.
 

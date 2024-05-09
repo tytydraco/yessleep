@@ -1,4 +1,4 @@
-[Part 1](https://www.reddit.com/r/nosleep/comments/14iwske/ive_been_homeless_for_the_last_sixteen_years_this/)
+[Part 1](https://www.reddit.com/r/nosleep/comments/14iwske/ive_been_homeless_for_the_last_sixteen_years_this/) [Part 3](https://www.reddit.com/r/nosleep/comments/1co781e/ive_been_homeless_for_the_last_sixteen_years_this/)
 
 Eight years ago I arrived in West Africa.
 
