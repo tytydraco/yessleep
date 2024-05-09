@@ -124,7 +124,7 @@ What happened next happened in a matter of seconds. I saw that he’d seen my fi
 The next, he was gone.
 
   
-I caught a glimpse of the line tightening around his leg, enough that I swear I saw it cut through the neoprene and begin to draw blood. Then, the man standing twenty feet away from me; my oldest and most cherished friend, was yanked off his board and beneath the waves. A large stream of bubbles broke the surface for a moment. Then, nothing. The surface resumed its unending rise and fall. For my part, I didn’t move. I *couldn’t*. I felt rooted in place as my mind fought against what I’d just seen. I prayed with every ounce of faith in my soul that I would see his head break the surface as I saw the buoy continue to move away from me, before lazily turning, and after a single, massive jerk forward, hover still in the waves.
+I caught a glimpse of the line tightening around his leg, enough that I swear I saw it cut through the neoprene wetsuit and begin to draw blood. Then, the man standing twenty feet away from me; my oldest and most cherished friend, was yanked off his board and beneath the waves. A large stream of bubbles broke the surface for a moment. Then, nothing. The surface resumed its unending rise and fall. For my part, I didn’t move. I *couldn’t*. I felt rooted in place as my mind fought against what I’d just seen. I prayed with every ounce of faith in my soul that I would see his head break the surface as I saw the buoy continue to move away from me, before lazily turning, and after a single, massive jerk forward, hover still in the waves.
 
   
 But he never appeared.
