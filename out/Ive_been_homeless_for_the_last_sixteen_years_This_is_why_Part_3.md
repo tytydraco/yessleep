@@ -80,7 +80,7 @@ We moved on to another room. Here were gears, some sort of half-finished clockwo
 
 Another room had something I remembered from back in school. Different-coloured metals, placed in a rectangular box full of liquid, and metal wires coming out of them. The beetles were making electricity.
 
-The other rooms had contraptions neither Carl nor I could even guess at. They were clearly scientists, some of them at least. I would have found it difficult to operate their machines with my human hands; their inventions were clearly designed for beetles, but their purpose eluded us.
+The other rooms had contraptions neither Carl nor I could even guess at. They were clearly scientists, some of them at least. I would have found it difficult to operate their machines with my human hands; their inventions were obviously designed for beetles, but their purpose eluded us.
 
 We didn’t stay long, ever wary of the slightest noise. Besides, we’d been gone maybe two hours at that point. At the end of the corridor, another passage went left and right. We very carefully peeked around the corner; no beetles, and not too far away on the left, we could just make out the crossroads from earlier. Slowly, silently, we crept back, made a left turn, and returned to the group.
 
@@ -108,7 +108,9 @@ Three strong lightsticks hit the floor, and two flashlights searched the ground.
 
 “Did any get away?” Carl made no pretence at stealth now.
 
-“I don’t know…” “I didn’t see…”
+“I don’t know…”
+
+“I didn’t see…”
 
 “They’re not moving. Did we get them all?”
 
