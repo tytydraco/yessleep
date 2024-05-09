@@ -6,11 +6,11 @@ We lived in a small two bed house near the river in the worst part of town. Desp
 
 Sophie is the precious rainbow baby so she gets her way obviously. If I moan I'm told that most girls my age have already left for University, so my options are to suck it up or move out.
 
-So I hide under my covers like a baby, but it doesn’t help as I know it’s out there, watching me with those red eyes. I can’t remember when I first saw it, but I know it wasn’t in the old place - the smelly flat above a chip shop, so I think it’s always been here, in this house. 
+So I hide under my covers like a baby, but it doesn’t help as I know it’s out there, watching me with those red eyes. I can’t remember when I first saw it, but I know it wasn’t in the old place - the smelly flat above a chip shop, so I think it’s always been here, in this house.
 
-At first I thought I was dreaming, or maybe just seeing things when the shadows twitched so I’d sit up and rub my eyes, only to find it had gone. I guess it grew bolder, once it knew my parents would just send me back to bed without bothering to check my room. 
+At first I thought I was dreaming, or maybe just seeing things when the shadows twitched so I’d sit up and rub my eyes, only to find it had gone. I guess it grew bolder, once it knew my parents would just send me back to bed without bothering to check my room.
 
-It doesn’t bother to hide anymore or pretend to be anything other than it is. I think he feeds off my fear, the hat man. It hasn’t harmed me yet, as far as I know anyway, but I’d know it was evil even without the glowing demonic eyes or sharp teeth. 
+It doesn’t bother to hide anymore or pretend to be anything other than it is. I think he feeds off my fear, the hat man. It hasn’t harmed me yet, as far as I know anyway, but I’d know it was evil even without the glowing demonic eyes or sharp teeth.
 
 My sister doesn’t see it. She’s been awake once or twice while it was in the room but she just carries on doom scrolling Tiktok while muttering about her crazy sister. She has nightmares every night though, has done since the first night, but she won’t talk about them. My parents have talked about taking her to a psychologist but NHS waiting lists are a thing and we don’t have the money for private.
 
@@ -64,8 +64,8 @@ I’m scanning the room when my eyes catch on a pack of my dad’s cigarettes. S
 
 I’ve just realised that there used to be a lighter beside it, didn’t there? I’d better go check, but I’m going to post this first as a warning to others. 
 
-I think they wait to be noticed in the dark. They travel in groups. They like old houses but will linger anywhere with small children. They’re more powerful in some places, but they grow stronger if you’re afraid. I think they’re like those other things I read about once - the things you’re not supposed to name because you call them to you. I think once you know about them, about the doorways they travel through you’re at risk. But the risk is never zero. They're there anyway, you just don't see them yet.
+I think they wait to be noticed in the dark. They travel in groups. They like old houses but will linger anywhere with small children. They’re more powerful in some places, but they grow stronger if you’re afraid. I think they’re like those other things I read about once - the things you’re not supposed to name because you call them to you. I think once you know about them, about the doorways they travel through, you’re at risk. But the risk is never zero. They're there anyway, you just don't see them yet.
 
-Sleep in the dark, avoid looking into mirrors at night. Stay away from anywhere where shadows group together, like under beds. 
+Sleep in the dark. Avoid looking into mirrors at night. Stay away from anywhere where shadows group together, like under beds. 
 
 Most of all ignore the creaks. 
