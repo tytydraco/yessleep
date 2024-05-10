@@ -38,7 +38,7 @@ Jonah cut him off
 
 "It's alright... It's alright."
 
-*"Jonah..."* I said somewhat impatiently as I lowered my weapon.
+*"Jonah..."* I muttered impatiently as I lowered my weapon.
 
 We had worked together long enough that I didn't need to say anything else. He knew what awaited us if we failed this mission. He knew that I just wanted to get this over with and drown any regrets I had in booze.
 
@@ -174,6 +174,6 @@ That was 8 years ago, to the day. I haven't seen him since. He was the closest t
 
 I learnt two lessons that day. Don't get emotionally invested in people, and just follow the fucking rules. It's easier that way.
 
-I've plenty more tales to tell, but it's getting late, so I'll save that for another night.
+I've plenty more tales to tell, but it's getting late, and I'm getting drunk. So I'll save that for another night.
 
 Tonight, I drink to you, Jonah. Wherever you might be.
