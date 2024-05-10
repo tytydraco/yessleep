@@ -1,14 +1,12 @@
 You won’t find it on Google Play or the App Store. There’s nothing about the game on any public websites, other than this cautionary post. It doesn’t matter whether you’re a good or a bad person. It indiscriminately chooses targets.
 
-The point is that you can’t avoid the game.  Nobody can. You might hear a reverberating ding from your phone — a death toll from the depths of Hell.
+The point is that you can’t avoid the game.  Nobody can. You might hear a reverberating ding from your phone — a tolling bell of death from the depths of Hell.
 
-An incongruous window might pop up.
+And then an incongruous window might pop up.
 
 >“Can you hide?”
 
 >‘Yes’ — ‘No’
-
-Make sure you select ‘No’.
 
 When the window first appeared on my phone screen, I was stunned. I always presumed smartphones to be safer from the threat of viruses than computers. Especially a brand new iPhone. Isn’t Apple supposed to be superior to Microsoft when it comes to security?
 
