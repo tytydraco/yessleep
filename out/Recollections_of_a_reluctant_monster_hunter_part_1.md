@@ -92,7 +92,7 @@ His grin somehow stretched even wider and his eyes appeared to bulge out of his 
 
 Both Jonah and I exchanged worried glances.
 
-"Then please... Do explain *how* I came across the fine gentleman you were supposed to *eliminate*... About to skip town?..." He said, waving a small slip of paper which appeared to be partially stained red, back and forth.
+"Then please... Do explain *how* I came across the fine gentleman you were supposed to *eliminate*... About to skip town?..." He said, waving a small slip of paper which seemed to be partially stained red, back and forth.
 
 The laughter had completely stopped now, leaving an unnerving silence in the air, and his grin had turned to a scowl.
 
@@ -106,7 +106,7 @@ At this point, Jonah's concern had visibly shifted to horror as the realisation 
 
 "Oh, yes!" The Boogeyman's grin returned once more
 
-"Not only has your laughable attempt at compassion been for absolutely nothing... But as a... Result of your actions, you've brought upon this... Poor man... Needless suffering."
+"Not only has your laughable attempt at mercy been for absolutely nothing... But as a... Result of your actions, you've brought upon this... Poor man... Needless suffering."
 
 "What do you-"
 
@@ -118,11 +118,11 @@ Both Jonah and I were stuck frozen in place, horrified at the ungodly sounds com
 
 I was left completely speechless. I didn't know what to say, I didn't know what to do but just, stand there. Jonah, however, did not suffer from the same speechlessness as I did.
 
-"Fuck... You." Jonah hissed, reaching for his weapon.
+"Fuck... You." He hissed, reaching for his weapon.
 
-All I could do was silently mouth "Don't do it."
+All I could bring myself to do was silently mouth "Don't do it."
 
-Alas, he either did not see me, or did not care. He drew his weapon and unloaded. I knew it wouldn't do anything. He probably knew it too, but he did it anyway. Each bullet landed on target. Punching holes in various parts of our employer, Holes which immediately began to fill back up, spitting bullet fragments back out in the process, and leaving holes only in the suit he wore.
+Alas, he either did not see me, or did not care. He drew his weapon and unloaded. I knew it wouldn't do anything. He probably knew it too, but he went and did it anyway. Each bullet landed on target. Punching holes in various parts of our employer, Holes which immediately began to fill back up, spitting bullet fragments back out in the process, and leaving holes only in the suit he wore.
 
 The Boogeyman adjusted his tie before standing up, making his already towering figure seem that much larger.
 
@@ -130,9 +130,9 @@ The Boogeyman adjusted his tie before standing up, making his already towering f
 
 Without prompt, Jonah also began screaming.
 
-I looked back over to him, to see flames burst from his back, incinerating a large part of his clothing in the process. Strange, glowing markings and symbols began etching themself into his skin.
+I looked back over to him, to see flames burst from his back, incinerating most of his shirt in the process. Strange, glowing markings and symbols began etching themself into his skin.
 
-As Jonah crumpled to his hands and knees, his howls of pain only growing in intensity, the Boogeyman slowly began to walk around his desk, trailing his fingers along it's surface as he went.
+As Jonah crumpled to his hands and knees, his howls of pain only growing in intensity, our boss slowly began to walk around his desk, trailing his fingers along it's surface as he went.
 
 "My dear boy, Jonah... You have broken the terms of our contract, and thus... You forfeit your free will... *To me*..."
 
