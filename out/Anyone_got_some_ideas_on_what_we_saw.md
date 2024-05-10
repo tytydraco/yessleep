@@ -25,3 +25,6 @@ When we got home, my boy sat down and we noticed he got scratched. Three slashes
 The screams were coming from the tree line and we both ran back inside when the screaming suddenly stopped…
 
 Anyone got some answers?
+
+Update-
+Somebody is screaming now as I write this. My boy is watching the front door. It sounds like it’s getting closer. We will defend ourselves if necessary. 
