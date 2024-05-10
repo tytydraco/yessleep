@@ -1,13 +1,30 @@
-  
-I've always been afraid of mirrors. Not just the ordinary fear of catching your own reflection when you look disheveled, but a deep, unsettling terror that has plagued me since childhood. My parents dismissed it as an overactive imagination, but I knew better. Mirrors held a secret, and it was one I needed to uncover.  
-My journey into the world of the supernatural began on a stormy night. The rain lashed against the windows, casting eerie, dancing shadows across the room. I found myself alone in my small apartment, surrounded by reflective surfaces. As I stared into a cracked antique mirror hanging on the wall, I could feel something watching me.  
-It started as a faint, distant presence. A shadow that seemed to move independently of me. When I turned, it would linger, a silhouette of a person I couldn't quite make out. The more I stared, the more it solidified. It looked like a man, a grotesque and distorted version of one, with hollow eyes and a malevolent grin.  
-The next night, I couldn't resist the urge to investigate further. Armed with a flashlight, I started examining every mirror in my apartment. Each one, no matter how small or insignificant, held the same strange, twisted reflection of the man. I even found one in the back of an old cabinet, untouched for years.  
-I decided to document my findings. I took photos, made sketches, and wrote down every detail. The more I looked at these images, the more convinced I became that this malevolent entity was trying to communicate with me. But I couldn't decipher its message. It was as though the secret it held was just beyond my grasp.  
-As the days turned into weeks, my life spiraled into chaos. Sleepless nights, unexplainable sounds, and strange occurrences became the norm. The shadow in the mirror was growing stronger, more insistent, and its intentions were far from friendly.  
-Then one evening, as I was gazing at my reflection in a dimly lit bathroom, the shadow manifested more clearly than ever before. It spoke, but not with words. Instead, it sent a chilling wave of thoughts directly into my mind. It wanted something, something I couldn't comprehend.  
-I decided to reach out to a paranormal investigator, a woman named Eliza, who had dealt with such cases before. She arrived with an assortment of equipment, determined to help me uncover the truth.  
-Eliza examined my collection of mirror images and was immediately taken aback. She explained that the distorted figure was a malevolent spirit, bound to the mirrors by a dark ritual. It was trying to break free, and it needed a host to do so.  
-Desperation drove me to seek a solution. Eliza and I attempted to break the curse that bound the spirit to the mirrors, but it fought back with a vengeance. It threw objects, shattered glass, and even tried to possess Eliza. We barely escaped with our lives.  
-In the end, there was only one way to contain the malevolent spirit. We gathered all the mirrors, broke them, and buried the pieces deep in consecrated ground. As we did, the shadow in the mirrors howled, its sinister presence weakening with each shattered piece.  
-Years have passed since that fateful night, but I still can't shake the feeling that the shadow in the mirror is out there, waiting to be set free. I know one thing for sure: I'll never look at a mirror the same way again.
+
+I moved into a new apartment, excited for a fresh start. But strange things started happening almost immediately. Every night, I would catch glimpses of a shadowy figure in the mirror, lurking just behind me. At first, I dismissed it as my imagination, but it became increasingly unnerving.
+
+One night, as I was getting ready for bed, I felt a cold breath on the back of my neck. I spun around, but there was no one there. I glanced at the mirror and froze in terror as I saw the reflection of a dark, featureless figure standing right behind me. Its eyes were pools of infinite darkness, devoid of any humanity.
+
+I stumbled backward, knocking over a chair as I tried to escape the room. But no matter where I went, the shadow followed, always lurking just beyond the edge of my vision. I tried to convince myself it was just a trick of the light, but deep down, I knew it was something far more sinister.
+
+As days turned into weeks, the presence grew stronger, its malevolent aura suffocating me. I couldn't eat or sleep, constantly haunted by the feeling of those dark eyes boring into my soul. Desperate for answers, I researched the history of the apartment building, only to uncover a chilling truth.
+
+Years ago, a tenant had died under mysterious circumstances in the very same apartment. Rumors circulated that they had been involved in dark rituals, summoning an otherworldly entity that now stalked the halls, seeking revenge on anyone who dared to cross its path.
+
+Terrified, I knew I had to leave, but the shadow wouldn't let me go. It whispered in the darkness, promising eternal torment if I dared to abandon it. In a final act of desperation, I smashed the mirror, hoping to break the connection between our worlds.
+
+But as the glass shattered, the shadow enveloped me, pulling me into its realm of darkness. And now, as I write this from beyond the grave, I warn you: beware the shadow in the mirror, for once it claims you, there is no escape.
+
+As the shards of the mirror fell to the ground, I found myself enveloped in a chilling darkness, a realm beyond the confines of reality. The shadowy figure loomed before me, its form shifting and undulating like smoke in the wind. I tried to scream, but no sound escaped my lips as the entity reached out with tendrils of darkness, ensnaring me in its grasp.
+
+I struggled against its hold, but it was like fighting against an invisible force, my efforts futile against its overwhelming power. Desperation gripped my heart as I realized the truth – I was trapped in the shadow's domain, condemned to an eternity of darkness and despair.
+
+Days blurred into nights as I wandered through the abyss, my only companion the haunting whispers of the shadow that echoed in the emptiness. Time lost all meaning in this twisted realm, the boundaries between reality and nightmare blurred beyond recognition.
+
+But amidst the darkness, a glimmer of hope flickered like a distant star on the horizon. I remembered the stories of the cursed apartment building, of the tenant who had summoned the shadow into existence. If there was a way to summon it, surely there must be a way to banish it as well.
+
+With newfound determination, I sought out the fragments of the shattered mirror, piecing them together like a puzzle. Each shard was a piece of the puzzle, a key to unlocking the secrets of the shadow's power. And as I gazed into the reconstructed mirror, I saw the shadowy figure staring back at me, its eyes burning with hatred and malice.
+
+But this time, I was not afraid. I confronted the shadow head-on, channeling all of my fear and anger into a single defiant act. With a cry of defiance, I shattered the mirror once more, unleashing a blinding flash of light that consumed the darkness around me.
+
+And then, in an instant, it was over. The darkness receded, leaving me standing alone in the abandoned apartment, the shattered mirror lying at my feet. I was free – free from the shadow's grasp, free from its suffocating presence.
+
+But as I looked around at the empty room, I knew that the nightmare was far from over. The shadow may have been banished for now, but its malevolent influence lingered like a stain on my soul. And as I stepped out into the light of day, I knew that the battle against the darkness was far from over.
