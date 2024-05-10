@@ -73,3 +73,6 @@ Panic took hold of me as I stared at that surreal scene before my eyes. I wanted
 Finally, after an eternity, I managed to gather the strength to move. With a tremendous effort, I reached for the button that called for help and pressed it with all my might. Soon, the guards came running towards me, and I pointed to that flesh statue, trying to explain what had happened. They quickly took control of the situation, removing Tulley from the infirmary and calling a medical team to check his condition.
 
 I still wake up occasionally trembling and sweating, with the image of the guard staring at me. On some warmer nights, I can even smell the ocher odor escaping from his mouth. I returned to my cell the next day, and Tulley never returned to duty; they say he spent the rest of his days in a mental institution. But at that moment, considering all my ignorance, I could only wonder one thing as I stared at the metal bars: What the hell was in cell 11?
+
+  
+[Update](https://www.reddit.com/r/nosleep/comments/1co52of/cell_11_part_2/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) 
