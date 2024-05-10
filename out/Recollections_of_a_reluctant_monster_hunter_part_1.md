@@ -1,10 +1,10 @@
 Never made one of these before, so I'm not quite sure how to start things off.
 
-I guess I'll start with an introduction.
+I guess an introduction is a good enough place to start as any.
 
 My name's Barry, and I've been hunting monsters for as long as I can remember. While I take a small amount of pride in being good at what I do, I didn't choose this life, and would happily trade it for another if given the chance.
 
-See, when I was younger, young enough that I hadn't figured out the whole 'walking' thing yet, my parents signed my future away to some otherworldly kingpin of the criminal underworld. This *creature* calls himself the 'Boogeyman.'
+See, when I was younger, young enough that I hadn't even figured out the whole 'walking' thing yet, my parents signed my future away to some otherworldly kingpin of the criminal underworld. This *creature* calls himself the 'Boogeyman.'
 
 I was brought to this Boogeyman, where a contract was made, and signed in blood. I would receive abilities of sorts, to aid me in my monster hunting endeavors. And, In exchange, I was bound to a lifetime of service, eliminating those who would break the rules, so to speak.
 
@@ -20,7 +20,7 @@ I had the displeasure of witnessing this process first hand to someone I used to
 
 We were on a job- A young man, suffering form Lycanthropy had lost control of his condition while he was having a drink at one of the local bars and, well, when we arrived... He was the only one left. There he sat, in the midst of all the carnage, sobbing profusely into his knees.
 
-I felt sorry for him, I truly did. But rules are rules, and this would be over quickly.
+I felt sorry for him, I truly did. But rules are rules. On the bright side, this would be over quickly.
 
 As I raised my weapon and prepared to take my shot, my partner, Jonah spoke.
 
@@ -66,9 +66,7 @@ He stumbled forward, then paused briefly to glance at both of us, before making 
 
 "He already knows, man..."
 
-"Yeah, I know..." He sighed.
-
-"Should we go see him?"
+"Yeah, I know..." He sighed. "Should we go see him?"
 
 "Better we find him than he finds us." I reply.
 
