@@ -1,14 +1,4 @@
-
-
-Life hasn't really been the same since, ...well let's just say there is some wild shit out there that would make you poop your pants... if your heart don't stop first. Probably the latter followed by the former. Thinking about it now, the word life has a whole new damn meaning. 
-
-I'm a deputy out in a small town in alabama, that has  a bit of history to it and NO i'm not gonna tell you where, don't need all the wannabe " monster hunters" coming down here. Those twat nuggets are a pain in the ass and honestly I don't feel like dealing with body parts and paperwork.
-
-The alphabet soup guys get real pissy when bodies start droppin' and questions start gettin' asked. Yeah they know about this shit, does that surprise you? They pay us very well to keep the bullshit to a minimum around here.
-
-So... yup, monsters are real. So are a bunch of other beings, gods and other things of the spooky variety. You'd be surprised how many of them really don't want anything to do with humans. Hey, can't blame em', I'm not really a fan either. At least with monsters you know what your gettin'... which is probably eaten, people on the other hand, that's a crap shoot.
-
-Well i guess a lil' background is in order. I spent a few years in the military and contracting after that. I ended up buying a house at the edge of this town.... before i knew all the bullshit that was goin' on around here. Got bored and went down to the local sheriff Jack and asked about an opening, Didn't even fill out an application, got the job on the spot. For the first few months it was the usual, speeding tickets, drunk and disorderly, normal human shit right? Well... let the fuckery commence....
+ I ended up buying a house at the edge of this town.... before i knew all the bullshit that was goin' on around here. Got bored and went down to the local sheriff Jack and asked about an opening, Didn't even fill out an application, got the job on the spot. For the first few months it was the usual, speeding tickets, drunk and disorderly, normal human shit right? Well... let the fuckery commence....
 
 
 I had been a deputy for 7 months when one of the local farmers called in and reported he had some animals killed  last night and wanted someone to come out to his house. John Nixon was a 60 year old farmer who lived by himself. His wife passed away years ago, but he never remarried and they never had kids. We met one day at the local tackle shop. Me being new in town, he took me to some of the good fishin' spots. The man was a huge military history buff and would always ask about my time in.  I thought I knew him personally, so i took the call.
