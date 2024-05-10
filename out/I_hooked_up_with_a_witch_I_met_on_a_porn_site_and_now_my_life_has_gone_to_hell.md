@@ -8,7 +8,7 @@ Some time passed and one night after I had guzzled a few beers I was feeling a l
 
 Now, this is where shit gets weird. You've probably seen those ads on porn sites like "fuck local milfs in your area tonight!" (Don't kid yourselves, I know you have) I saw one of those, but I almost spit out my sip of beer in laughter at the headline.
 
-"Fuck a local witch tonight!" The caption read, accompanied by a picture of a hot young blonde and a redhead, both dressed in nothing but a couple of traditional long pointy black witch hats with buckle above the brim.
+"Fuck a local witch tonight!" The caption read, accompanied by a picture of a hot young blonde and a redhead, both dressed in nothing but a couple of traditional long pointy black witch hats with buckles above the brim.
 
 "The fuck is this?" I remember chuckling to myself, I *had* to investigate further and clicked the pop up.
 
@@ -40,15 +40,15 @@ I was pleasantly surprised when she answered the door, and equally horrified whe
 
 Whatever, I was in after all! I remember taking off my shoes as she spoke to me, I don't really remember what she said, or how she said it, but I remember sipping wine on a couch with her, and the next, I was in her bed.
 
-I wish I had more details to go off of, but, I must have blacked out somehow during the time there. I just remember a couple of flashes of her on top me, once she looked exactly like she did in her photo, but the next, her plump, purple colored lips, faded to withered and dried out black, all flakey and cold like the old coals of a smoldered fire. Her skin hung from her body, like wax trying to run off the candle wick. She looked older than anybody I had ever seen alive.
+I wish I had more details to go off of, but, I must have blacked out somehow during the time there. I just remember a couple of flashes of her on top me, once she looked exactly like she did in her photo, but the next, her plump, purple colored lips, faded to a withered and dried out black, all flakey and cold like the old coals of a smoldered fire. Her skin hung from her body, like wax trying to run off the candle wick. She looked older than anybody I had ever seen alive.
 
-The last thing I remember from that night, was her standing over my body inside a circle of blue candles, their tips all burning a bright orange as she mumbled something to herself. Finally, she mumbled something a little louder and final, then all the candles went out.
+The last thing I remember from that night, was her standing over my body inside a circle of blue candles, their tips all burning a bright orange as she mumbled something to herself. Finally, she mumbled something a little louder and final sounding, then all the candles went out.
 
 That's the last thing I remember before waking up in my bed today.
 
 I was clutching my head, like I had the worst hangover of the century, I felt itchy all over my body... but the worst was when I went to the bathroom to shower and found these... purple welts all over my junk.
 
-They were swelling, and I almost threw up at the pure shock and disgust I felt looking at them. I turned on the shower to a scorching hot temperature just hoping to take the swelling down or melt them off altogether, I just needed release from the ache of them.
+They were swelling, and I almost threw up at the pure shock and disgust I felt looking at them. I turned on the shower to a scorching hot temperature just hoping to take the swelling down or melt them off altogether, I just needed release from the growing ache of them.
 
 That was my worst mistake besides showing up in the first place.
 
@@ -66,11 +66,11 @@ And just like the first time, my jaw hit the floor when I saw her house again, b
 
 I found myself standing in front of a dilapidated, run down old mess of a house, with a sign in the front stating a date for its demolition.
 
-I got closer to inspect, the lawn was feral and long, like it hadn't been touched in a decade or more, the windows and front door were boarded up with some form of "trespassers beware" signs on all of them.
+I got closer to inspect, the lawn was feral and long, like it hadn't been touched in a decade or more, the windows and front door were boarded up with some form of "trespassers beware" sign on all of them.
 
 Defeated, I came home and began typing this, but I've been here doing that for a while now and my situation is just getting worse. The warts on my chest and arms have been getting so big they've been pushing against each other until they burst open, the things that keep coming out of them are just getting bigger and bigger too.
 
-They're now piling up into the corner of my room, they gotten to the size and shape of a featureless toddler now, I threw a chair at it, but it contorted itself like a rag doll, and bent at an inhuman angle to avoid it, I'm very scared.
+They're now piling up into the corner of my room, they’ve gotten to the size and shape of a featureless toddler now, I threw a chair at it, but it contorted itself like a rag doll, bending at an inhuman angle to avoid it, I'm very scared.
 
 The warts have been growing over my face and almost completely obscuring my vision too, I can now hear that *thing* in the corner mimicking human breath, I don't know what it's trying to do or what it thinks it can accomplish, but I'm calling an ambulance and the police before I just become a hive for these things to spawn, I'll try to leave updates if anything else occurs, but I'm afraid this might be the last anyone hears of me.
 
