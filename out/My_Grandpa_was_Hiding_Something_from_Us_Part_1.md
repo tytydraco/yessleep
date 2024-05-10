@@ -4,6 +4,7 @@ So when I found out he had died, it hit me pretty hard. It had been a while sinc
 
 
 I had guessed he wanted to give me a head start in life. As a college student, the notion of owning a house seemed impossible, but now I was presented with one. There were no strings attached. The mortgage was already paid off and my grandpa lived there until the day he died, so it wasn't like the house was dilapidated. I obviously jumped at the opportunity and moved to the house within the week. I had still been living with my parents, but with how much time school was consuming, I wasn't home unless it was to sleep. I'm a second year engineering student, so the workload is understandably thick to say the least.   
+
 With my own place, I wouldn't have to worry about coming home late and disturbing my parents. That exact scenario was something that happened often. They went to bed early, so me stumbling through the doorway at a late hour of the night didn't make them the happiest. With my own place, I wouldn't have to worry about paying rent, I could just focus on school work. It was a win-win situation for both me and my parents. My mom was ecstatic about the entire situation, while my dad seemed a bit off put.  
 
 
@@ -50,10 +51,10 @@ I shot her a perplexed look.
 “Sorry about that, my wife forgets things. She used to have a friend named Stephen and well…”   
 
 
-“I don't forget things Ronny!” The woman suddenly yelled out. “Remember?  We were told that 
+“I don't forget things Ronny!” The woman suddenly yelled out. “Remember?  We were told that Stephen would be moving in. They sent it in the letter!” Her voice was getting louder as she talked. It wasn't a volume that came from anger, rather an excitement. One that wasn't shared by her husband.   
 
-Stephen would be moving in. They sent it in the letter!” Her voice was getting louder as she talked. It wasn't a volume that came from anger, rather an excitement. One that wasn't shared by her husband.   
 “Dear, you're doing it again.” He rubbed his hand against her back. “I'm so sorry folks,” he looked over to us, to my father in particular. “Her mind is getting all muddled. She's got mild dementia.”   
+
 “It's alright, really.” My dad didn't really know how to respond. The woman's behavior was odd, sure, yet the idea of her having dementia just made everything feel somber.   
 “Well, I hope you enjoy the new place Ian. This really is a lovely neighborhood,” the man quietly said. His wife had pushed herself into his arms. I thought I could hear a faint sobbing sound coming from her.   
 
