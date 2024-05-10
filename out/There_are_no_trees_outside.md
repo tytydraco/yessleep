@@ -76,7 +76,7 @@ The two men stood her up, walking her to her house. I tried to follow, but one h
 
 I would have fought my case; I was concerned for her, and wanted to help. But I felt like I had little to stand on, given that I was the cause of her state. I returned home, and told my husband about what had just happened. He was just as puzzled as myself.
 
-\-\-\-
+---
 
 That night, I struggled to sleep. The only thoughts on my mind were about Edith, and still, the lack of trees. Given the silence outside, it was like a knife cutting cleanly through the air when the silence changed into something else.
 
@@ -100,7 +100,7 @@ My husband woke up - I heard the sheets moving a little behind me. "What's that 
 
 I glanced at him, opening my mouth to answer, before noticing the chanting had stopped. Looking back, I could see the figure running away. They seemed to disappear; Their inky black clothes made it easy to quickly lose them to the night.
 
-\-\-\-
+---
 
 In the morning, I found myself just staring out the window. The lack of sleep, haunting terror from Edith, and the oddity encountered in the night, all combined into a horrid sense of impending doom.
 
@@ -136,6 +136,4 @@ Edith, clearly recognisable, her clothes soaked in blood. She lay in a bush, thi
 
 My heart rate picked up, almost beating through my chest. My trembling hands couldn't hold the paper steady. Feeling tears forming in my eyes, I wiped them away so that I could make out the sentence written underneath.
 
-"Don't break the branch that feeds you."
-
-[===](https://reddit.com/r/BriteWrites/)
+"Don't break the branch that feeds [you](https://reddit.com/r/BriteWrites/)."
