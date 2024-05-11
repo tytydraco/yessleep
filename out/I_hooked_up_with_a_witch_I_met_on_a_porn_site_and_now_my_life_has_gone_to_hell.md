@@ -40,7 +40,7 @@ I was pleasantly surprised when she answered the door, and equally horrified whe
 
 Whatever, I was in after all! I remember taking off my shoes as she spoke to me, I don't really remember what she said, or how she said it, but I remember sipping wine on a couch with her, and the next, I was in her bed.
 
-I wish I had more details to go off of, but, I must have blacked out somehow during the time there. I just remember a couple of flashes of her on top me, once she looked exactly like she did in her photo, but the next, her plump, purple colored lips, faded to a withered and dried out black, all flakey and cold like the old coals of a smoldered fire. Her skin hung from her body, like wax trying to run off the candle wick. She looked older than anybody I had ever seen alive.
+I wish I had more details to go off of, but, I must have blacked out somehow during my time there. I just remember a couple of flashes of her on top me, once she looked exactly like she did in her photo, but the next, her plump, purple colored lips, faded to a withered and dried out black, all flakey and cold like the old coals of a smoldered fire. Her skin hung from her body, like wax trying to run off of a burning candle wick. She looked older than anybody I had ever seen alive.
 
 The last thing I remember from that night, was her standing over my body inside a circle of blue candles, their tips all burning a bright orange as she mumbled something to herself. Finally, she mumbled something a little louder and final sounding, then all the candles went out.
 
@@ -50,7 +50,7 @@ I was clutching my head, like I had the worst hangover of the century, I felt it
 
 They were swelling, and I almost threw up at the pure shock and disgust I felt looking at them. I turned on the shower to a scorching hot temperature just hoping to take the swelling down or melt them off altogether, I just needed release from the growing ache of them.
 
-That was my worst mistake besides showing up in the first place.
+That was my worst mistake, besides showing up to that chicks house in the first place.
 
 The warts began to pop, one by one, and these little tiny black creatures began to fly out of them, they couldn't have been bigger than a common house spider, but they all started to pile up in the corner of the room, getting to be roughly as big as a grapefruit.
 
