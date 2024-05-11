@@ -360,3 +360,8 @@ Of course, I made it out alive. It’d be kind of hard to have posted this if I 
 But now, I sit in a dingy room in a farm house half way across the world from home. Surrounded by family and monsters, all of which seem out to get me. Being forced to risk my life in some kind of blood sport. 
 
 Maybe I’ll be back, maybe I’ll be dead by the next time I get a chance to post anything. If anyone has any help, please, post it in the comments. I’m in a dark place here and no one else seems to be on my side. 
+
+
+I decided to let everyone know how things are going. 
+
+https://www.reddit.com/r/nosleep/s/TQJpCXsGMK
