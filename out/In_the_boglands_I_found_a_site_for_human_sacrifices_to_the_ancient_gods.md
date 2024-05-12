@@ -150,7 +150,7 @@ Mowdoroth’s body stood as tall as the trees as it looked down at the three of 
 
 Winchester continued trying to crawl forward. Mowdoroth slithered behind him. Winchester looked up as a tentacle started coming down in his direction. He gave a short, panicked scream as the blade smashed through his back legs, chopping both of them off at the knees. The ground shook with the force of it. The stumps began spurting seemingly endless amounts of blood. Winchester pleaded and made incomprehensible gurgling sounds as he bled out. Mowdoroth ended Winchester’s cries when it wrapped its tentacle around Winchester’s torso. It slithered up into Winchester’s open mouth.
 
-X and I shot as fast as we could while running forward in the dark, trying to hold a flashlight and a pistol. Most of my shots missed Mowdoroth, but with a sense of satisfaction and pride, I saw a few burst through its enormous body. Streams of radioactive green blood ran down its torso now. As its slithering legs took it up on the trail, it gained speed, coming behind us like a runaway train. I could feel the ground shaking with every thud of its tentacled feet.
+X and I shot as fast as we could while running forward in the dark, trying to hold a flashlight and a pistol. Most of my shots missed Mowdoroth, but with a sense of satisfaction and pride, I saw a few burst through its enormous body. Streams of radioactive green blood ran down its torso now. As its serpentine legs pumped furiously, it gained speed, coming behind us like a runaway train. I could feel the ground shaking with every thud of its tentacled feet.
 
 A few hundred feet ahead of us, I caught a glimpse of the cultists. They were hurrying away from the area, not running but moving much faster than they had come in. Nearly out of breath already and exhausted from hiking all day, I pointed forward.
 
@@ -164,11 +164,11 @@ Following X’s lead, I raised my gun and started shooting the cultists. They sp
 
 I saw the woods again, living trees just a few hundred feet away. The trail of black earth ended abruptly, leading out of the boglands. Cultists sprinted blindly through the forest in every direction, scattering like cockroaches. I had nearly reached the border of the forest when I heard something whizzing past my head. I ducked, but the blur of a grayish tentacle coming down sent a jolt of fear like electricity sizzling through my body.
 
-A moment later, a cold agony covered my left hand. In shock, I looked down, realizing that the blade-like hand of Mowdoroth had neatly amputated all four of my fingers. If I hadn’t ducked, it would’ve probably gotten my head instead.
+A moment later, a cold agony covered my left hand. In shock, I looked down, realizing that the blade-like appendage of Mowdoroth had neatly amputated all four of my fingers. If I hadn’t ducked, it would’ve probably gotten my head instead.
 
-Stumbling and screaming, my mind in a blind panic, I stumbled through the intersection of the boglands and the forest, falling forward. I knew I was dead. I closed my eyes, waiting. Yet nothing happened.
+Stumbling and screaming, my mind in a blind panic, I staggered through the intersection of the boglands and the forest, falling forward. I knew I was dead. I closed my eyes, waiting. Yet nothing happened.
 
-When I looked back, I saw something strange. Mowdoroth had stopped at the end of the boglands. It tried to push its body forward towards me, but it couldn’t enter the forest.
+When I looked back, I saw something strange. Mowdoroth had stopped at the end of the boglands. It tried to push its body forward towards me, but it couldn’t enter the forest. It was as if an invisible barrier stood there.
 
 I lay there for a long time. After a while, I heard Mowdoroth slink back into the fetid waters of the boglands. And then I was alone.
 
