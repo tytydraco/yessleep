@@ -76,13 +76,13 @@ X was running towards me now. I continued to crawl towards him, shell-shocked an
 
 X took out a small, LED flashlight from his backpack, shining it ahead of us on the dark path. Across the center of the black earth, there was an obstruction, something that hadn’t been there when we passed this way originally. 
 
-“What the hell is that?” X said, slowing down. He focused the light on it. As my eyes adjusted, I gave a gasp of horror as I saw a rough sacrificial table looming there, waiting with a ready victim.
+“Shit! Is that a person?” X said, slowing down. He focused the light on it. As my eyes adjusted, I gave a gasp of horror as I saw a rough sacrificial table looming there, waiting with a ready victim.
 
 Laying on the bare wooden planks in the center of the trail was an elderly man wearing the garb of a hunter. He was gagged, a bloody rag shoved deep into his mouth. I felt a sense of revulsion and terror as I realized his hands and feet were nailed to the planks, as if he were being crucified laying down. His eyes rolled wildly, white and insane, like a horse with a broken leg. When he saw us approaching, he tried to say something through the gag, pulling hard against the nails that bit so viciously into his flesh. Fresh rivers of blood spurted from his wounds.
 
 I had my pistol in my hands. X had taken a fresh magazine out by now, throwing the empty one back in his backpack. Trembling, he went first, his shaking hand moving the flashlight around wildly. Its bright rays bounced off the dead, half-rotted trees that grew out of the boglands, the clouds of mosquitoes and moths that circled us constantly.
 
-“What the fuck is this?” he whispered. “It looks like someone has set that poor guy up to have his heart cut out, like some sort of Aztec ritual.” He glanced worriedly over at me. We had both stopped cold in our tracks, looking around for any sign of danger, but we only saw the old man writhing on his rough table of torture. 
+“Oh my God... he's like the victim of a serial killer or something,” he whispered, running a trembling hand over his face. “It looks like someone has set that poor guy up to have his heart cut out, like some sort of Aztec ritual.” He glanced worriedly over at me. We had both stopped cold in our tracks, looking around for any sign of danger, but we only saw the old man writhing on his rough table of torture. 
 
 “We have to keep going forward,” I whispered. “That thing is behind us. I don’t think it’s dead. I’m not sure it can even die.”
 
@@ -102,7 +102,7 @@ For a long moment, we stood staring at each other, my pistol aimed at his chest.
 
 “This job has been passed down to us from generation to generation, from big hand to small, for over four centuries. Only twice has Mowdoroth not been fed on the New Moon, and each time, entire settlements full of people were wiped off the face of the Earth as if they had never existed. On one, they just had time to carve the word ‘CROATAN’ before they were taken.
 
-“Mowdoroth looks for the place where the nightmares grow. It breaks open the chest and finds the place where the silent screams start, deep down at the base of the heart. All of the nightmares are planted there, like tiny seeds scattered during childhood. Those that fell on good soil in that abyss produced a great crop, yielding a hundredfold, sixtyfold, or thirtyfold.” The cult leader finished, looking at us with sparkling eyes, as if he had said something profound.
+“Mowdoroth looks for the place where the nightmares grow. It breaks open the chest and finds the place where the silent screams start, deep down at the base of the heart. All of the nightmares are planted there, like tiny seeds scattered during childhood. Those that fell on good soil in that abyss produced a great crop, yielding a hundredfold, sixtyfold, or thirtyfold. If you do not allow us to complete our holy mission, then you do it: cut open the man's chest and remove his beating heart. As it beats, squeeze it as hard as you can, and let all the blood drain onto the top of your head. Hold the heart above your head and close your eyes until the god appears and takes it.” The cult leader finished, looking at us with sparkling eyes, as if he had said something profound.
 
 “This shit is just insane drivel,” X whispered in a voice as low as possible. “I say we open fire and save the old man now. Fuck these cultists.” I nodded grimly in agreement.
 
