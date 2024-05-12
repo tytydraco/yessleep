@@ -176,9 +176,9 @@ The creature whirled on her.  I saw her eyes widen with shock, focusing on the c
 
 Cassie’s face shifted.  It went from shock to fear to realization -
 
-\- the creature took a step towards her, the more immediate prey, not realizing what was happening -
+- the creature took a step towards her, the more immediate prey, not realizing what was happening -
 
-\- to anger.
+- to anger.
 
 And Cassie swung the baseball bat with an anguished scream, bringing it straight down onto the creature’s head.
 
@@ -195,3 +195,5 @@ Yes.  I think it was.
 “I guess we can be fucked up together, then,” she said with a bitter laugh.
 
 I suppose we can.  Me, her… and everyone else that is going to start remembering the students that go missing now that the forgetter [is](https://alderrayne.com/) [gone](https://www.reddit.com/r/goatvalleycampgrounds/).
+
+[Next post](https://www.reddit.com/r/nosleep/comments/1cpy9f3/how_to_survive_college_rules_are_meant_to_be/)
