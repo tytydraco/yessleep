@@ -141,3 +141,5 @@ In the comforting light of day, I peered at Carrie’s window as I passed. The c
 Someone else would have heard that "crying" if it was real. Someone else would have done something...
 
 Midnight proved me wrong.
+
+Part 2: [https://www.reddit.com/r/nosleep/comments/1cpvrea/i\_think\_my\_neighbors\_baby\_isnt\_human\_part\_2\_finale/](https://www.reddit.com/r/nosleep/comments/1cpvrea/i_think_my_neighbors_baby_isnt_human_part_2_finale/)

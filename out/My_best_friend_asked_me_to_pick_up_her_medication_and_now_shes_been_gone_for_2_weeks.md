@@ -10,13 +10,13 @@ I tried to calm myself down, thinking maybe she had forgotten it and, since she 
 
 That, was two weeks ago. Everyone else who cares about her has given up, but I refused to believe she was gone, well, until today. I decided this morning as a last ditch effort, I would put aside my feeling of not wanting to invade her privacy, and use the access she had given me to her phone to look for something, anything, to help me find her. I did end up finding a clue to where she could be, but I know there’s no way anyone I know could get there.
 
-In her Reddit, I saw a draft for r/nosleep. I wasn’t surprised, because I knew she had liked writing stories, but this one was like 5x longer than any other story she had written. When I started reading it, I realized that it wasn’t a story she made up, it was her life story. As I mentioned before, I have no way of reaching where she is, so I’m posting her story in hopes that there’s someone out there who has had experiences similar to hers and can help me get my best friend back. 
+In her Reddit, I saw a draft. I wasn’t surprised, because I knew she had liked writing stories, but this one was like 5x longer than any other story she had written. When I started reading it, I realized that it wasn’t a story she made up, it was her life story. As I mentioned before, I have no way of reaching where she is, so I’m posting her story in hopes that there’s someone out there who has had experiences similar to hers and can help me get my best friend back. 
 
 
 
 My doctor told me I have narcolepsy, but that doesn’t explain the other dimensions.
 
-I’m Hannah Zimmerman (19F) and I love writing stories for this subbreddit. You may have figured out this isn’t normally how I write, but this is different, and I need that to be evident. I know a lot of stories in here are just that, stories, but what I’m about to tell you is quite real, and it’s the story of me. 
+I’m Hannah Zimmerman (19F) and I love writing stories for this subbreddit. You may have figured out this isn’t normally how I write, but this is different, and I need that to be evident. It’s different because, well, it’s the story of me. 
 
 In my junior year of high school, I remember having my first “episode”. I was in study hall “sneakily” playing on my phone, when all of the sudden I was in the woods, and running from something of my dreams, but this felt real. The pounding of my feet on the rubble of the forest floor, the tall grass tickling my legs, and the wind blowing around me as I fled. Then, I blinked, and I was back in study hall.
 
