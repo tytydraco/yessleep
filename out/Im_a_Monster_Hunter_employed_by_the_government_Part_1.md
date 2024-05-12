@@ -27,3 +27,4 @@ I called the men in black over to come pick up the body.And in about half an hou
 
 I managed to patch myself up with some bandages and first-aid supplies, but I was still in pain and feeling exhausted. The thought of more work ahead was weighing on my mind as I headed home, but I had to keep going. I knew that my job was never done.
 
+[Part 2](https://www.reddit.com/r/nosleep/s/cl0PsA9e1m)
