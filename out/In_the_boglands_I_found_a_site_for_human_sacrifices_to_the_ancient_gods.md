@@ -146,9 +146,9 @@ Winchester was weak, stumbling up to his feet and nearly falling over immediatel
 
 Mowdoroth’s body stood as tall as the trees as it looked down at the three of us with its strange, infected eyes. Its tentacles undulated faster and faster, seeming to whip around its body until they flew out towards us.
 
-“Run!” I screamed. X and I sprinted behind a cluster of dead trees hugging the path. The blade-like hand of Mowdoroth chopped them in a half, raining bone splinters down on our heads.
+“Run!” I screamed. X and I sprinted behind a cluster of dead trees hugging the path. The blade-like hand of Mowdoroth chopped them in a half, raining wood splinters down on our heads.
 
-Winchester continued trying to crawl forward. Mowdoroth slithered behind him. Winchester looked up as a tentacle started coming down in his direction. He gave a short, panicked scream as the blade smashed through his back legs, chopping both of them off at the knees. The ground shook with the force of it. The stumps began spurting seemingly endless amounts of blood. Winchester pleaded and made incomprehensible gurgling sounds as he bled out. Mowdoroth ended Winchester’s cries when it wrapped his tentacle around Winchester’s torso and threw it into its open mouth.
+Winchester continued trying to crawl forward. Mowdoroth slithered behind him. Winchester looked up as a tentacle started coming down in his direction. He gave a short, panicked scream as the blade smashed through his back legs, chopping both of them off at the knees. The ground shook with the force of it. The stumps began spurting seemingly endless amounts of blood. Winchester pleaded and made incomprehensible gurgling sounds as he bled out. Mowdoroth ended Winchester’s cries when it wrapped its tentacle around Winchester’s torso. It slithered up into Winchester’s open mouth.
 
 X and I shot as fast as we could while running forward in the dark, trying to hold a flashlight and a pistol. Most of my shots missed Mowdoroth, but with a sense of satisfaction and pride, I saw a few burst through its enormous body. Streams of radioactive green blood ran down its torso now. As its slithering legs took it up on the trail, it gained speed, coming behind us like a runaway train. I could feel the ground shaking with every thud of its tentacled feet.
 

@@ -62,6 +62,6 @@ A sharp sudden pain in my head interrupted me.
 
 A hologram appeared in front of me.
 
-*You have reached the end of your trial period for the “Lost lover’s midnight embrace” package. To continue enjoying uninterrupted service, please update your payment information.*
+*You have reached the end of your trial period for the “Lost lover’s midnight embrace” implant. To continue enjoying uninterrupted service, please update your payment information.*
 
 After I finished sobbing, I lay in bed all alone. I made a new email and applied for a new trial. I couldn’t afford to have my wife hold me every night.
