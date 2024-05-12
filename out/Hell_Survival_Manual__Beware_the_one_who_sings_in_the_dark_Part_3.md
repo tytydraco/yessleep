@@ -215,3 +215,4 @@ In any society, communities exist to create hope, a better future, and security 
   
   
   
+[Part 4](https://www.reddit.com/r/nosleep/s/EiRtjsHApW)
