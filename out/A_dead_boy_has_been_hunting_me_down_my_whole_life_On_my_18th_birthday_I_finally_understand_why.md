@@ -2,7 +2,9 @@ I've always been bound to death.
 
 On my eighth birthday, a shadow strode into my house and shot me and my family dead. I remember it vividly, every detail, every angle, etched and stained and carved into my memory.
 
-I sat very still with my knees to my chest, my gaze glued to my siblings. Lily and PJ looked like they were sleeping, and I could almost believe it. 
+I sat very still with my knees to my chest, my gaze glued to my siblings. 
+
+Lily and PJ looked like they were sleeping, and I could almost believe it. 
 
 I didn't look at the shadow. 
 
@@ -16,7 +18,7 @@ I could tell myself they were— as long as I didn't look at the splatter of sca
 
 *BANG*. 
 
-Mom’s body dropped onto the ground in slow stemming scarlet. 
+Mom’s body dropped onto the ground. 
 
 I lunged forwards, slamming my hands over my ears. 
 
@@ -35,9 +37,9 @@ I can't remember how long I stayed under the shattered remnants of Mom’s favor
 
 I watched booted feet crunch through glass, getting closer and closer, and slowly, fight or flight began to take over. 
 
-Making it halfway across the living room, my palms slick with my mother’s blood. I thought I was going to live. 
+Making it halfway across the living room, my palms slick with my mother’s blood, I thought I was going to live. 
 
-Cruel fingers wound their  way through my hair and shoved me to my knees. I remember the phantom legs of a spider creeping down the back of my neck when the shadow with no face dragged the barrel of the gun down my spine. 
+Cruel fingers wound their way through my hair and shoved me to my knees. I remember the phantom legs of a spider creeping down the back of my neck when the shadow with no face dragged the barrel of his gun down my spine. 
 
 “Turn around.”
 
@@ -73,7 +75,9 @@ Paralysed.
 
 I remember being unable to scream, unable to cry, the salty taste of metal filling my mouth. It was like being winded. Rolling onto my side, all I could see was flickering candlelight. 
 
-The air was thick, so hard to breathe.. I rolled onto my back trying to duck in air.
+The air was thick, so hard to breathe.
+
+I rolled onto my back trying to suck in air.
 
 The shadow took a step back, opened the front door, and bled into the night. 
 
@@ -91,7 +95,9 @@ I remember my last shuddering breaths, a lulling darkness beginning to swallow m
 
 Oblivion almost felt like I was sinking into lukewarm depths on a Summer’s day. 
 
-Oblivion wasn't pain, and there was a peaceful inevitability to it. It was endless nothing, a *nothing* I found myself gravitating towards. But before I could envelope myself in that darkness, it was spitting me back out. 
+Oblivion wasn't pain, and there was a peaceful inevitability to it. 
+
+It was endless nothing, a *nothing* I found myself gravitating towards. But before I could envelope myself in that darkness, it was spitting me back out. 
 
 The next thing I knew, I was in a white room, a slow beeping sound tearing me from slumber. I had a vague memory of slow spreading roses blossoming across my shirt, like summer flowers blooming. 
 
@@ -123,7 +129,9 @@ I wanted to ask where my family was, but I already knew the answer.
 
 I think she knew that too. 
 
-“You died, Charlie.” The nurse’s voice was eerily cold. “You were dead for thirteen minutes.” She took slow steps towards me, her eyes growing frenzied, like she couldn't understand me, like I was a puzzle she could not solve– and it was driving her crazy. I could see it in her twitching hands, her wobbling lips that were trying and failing to appear stoic. 
+“You died, Charlie.” The nurse’s voice was eerily cold. “You were dead for thirteen minutes.” 
+
+She took slow steps towards me, her eyes growing frenzied, like she couldn't understand me, like I was a puzzle she could not solve– and it was driving her crazy. I could see it in her twitching hands, her wobbling lips that were trying and failing to appear stoic. 
 
 “In fact, I just pulled you out of the morgue, honey. I opened up your body bag that I had just zipped up, and told your aunt that you were a miracle I just… can’t understand.” The nurse sounded like she was trying to choke down a laugh, or maybe a sob. 
 
@@ -183,7 +191,9 @@ The world started to move again, started to make sense again, when she cupped my
 
 Aunt May didn't say much, and when she did, she broke into sobs. 
 
-Her eyes were raw from crying, clinging onto me, her shuddery voice reassuring me that I was going to be okay. She told me I would be living with her from now on, before wrapping me into a hug and leaving to get coffee. 
+Her eyes were raw from crying, clinging onto me, her shuddery voice reassuring me that I was going to be okay. 
+
+She told me I would be living with her from now on, before wrapping me into a hug and leaving to get coffee. 
 
 Once my aunt was gone, another nurse came to prod my IV. 
 
@@ -197,7 +207,9 @@ Rotting.
 
 The sudden image of maggots crawling up my brother’s nose sent me lurching into a sitting position, my stomach heaving. Reaching for my glass of water, it was empty. The sensation of throwing up felt familiar, almost comforting. 
 
-Mom was always with me when I was sick, holding my hair back and lulling my hysteria with reassuring murmurs. I was frowning at the trash can by the door, my cotton candy brain trying to figure out if I would be able to make it in time, when a small voice drifted from the doorway, startling me. 
+Mom was always with me when I was sick, holding my hair back and lulling my hysteria with reassuring murmurs. 
+
+I was frowning at the trash can by the door, my cotton candy brain trying to figure out if I would be able to make it in time, when a small voice drifted from the doorway, startling me. 
 
 “I don't want you to come live with us.” 
 
@@ -839,7 +851,11 @@ I felt disgusting. I wasn't supposed to be alive. Every single year of my life, 
 
 Aunt May nodded at me, her lips forming a proud smile. She stood up, and was handed a sacrificial knife. 
 
-Climbing into the swimming pool herself, she strode over to Wren. The boy slumped to the floor, trembling, his knees against his chest. Aunt May grabbed him by the hair, forcing his head up, and slicing the blade across his throat. 
+Climbing into the swimming pool herself, she strode over to Wren. 
+
+The boy slumped to the floor, trembling, his knees against his chest. 
+
+Aunt May grabbed him by the hair, forcing his head up, and sliced the blade across his throat. 
 
 His eyes flicked to me, and I swore, he smiled. 
 
