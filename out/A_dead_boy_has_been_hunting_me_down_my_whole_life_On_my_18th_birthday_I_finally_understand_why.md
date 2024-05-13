@@ -759,11 +759,11 @@ I think that's why my aunt chose her.
 
 Aunt May cleared her throat. 
 
-“For a long time, our family has lived among creatures who live in the forest you played inside! In exchange for keep this town safe, they only ask for small favors. Wayward children who disappear into the woods are good enough payment. Now, you and your siblings do not share our inheritance. Your mother never wanted fae children. She wanted you to be human.” 
+“For a long time, our family has lived among creatures who live in the forest you played inside! In exchange for keeping this town safe, they only ask for small favors. Wayward children who disappear into the woods are good enough payment. However, you and your siblings do not share our inheritance. Your mother never wanted fae children. She wanted you to be human.” 
 
 Aunt May’s smile faded. 
 
-“After losing my sister, and my niece and nephew, I made a deal to give my last surviving niece 100 years of peace.”
+“After losing my sister, and my niece and nephew, I made a deal to give my last surviving niece 100 years of life.”
 
 Her words were white noise, my gaze glued to my birthday presents. I couldn't call them human anymore. 
 
