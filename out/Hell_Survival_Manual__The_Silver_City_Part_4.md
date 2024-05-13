@@ -273,16 +273,6 @@ It shelters demons and powerful beings born from darkness itself.
 
 And as you already know, beings made by the Creator's own hand.
 
-It wouldn't be at that moment that I would meet Samael, but alongside the self-proclaimed human King, I met the first prince of hell.
-
-When the doors of the castle opened, I fell to my knees on the ground.
-
-The biblical hell holds a king.
-
-It shelters demons and powerful beings born from darkness itself.
-
-And as you already know, beings made by the Creator's own hand.
-
 It wouldn't be at that moment that I would meet Samael, but alongside the self-proclaimed human King, I met his right-hand beast.
 
 When the doors of the castle opened, I fell to my knees on the ground.
