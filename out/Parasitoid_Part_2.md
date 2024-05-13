@@ -31,3 +31,5 @@ Mary lay on the cot. She was writhing in pain. The woman was wearing a bra, and 
  A head the size of baseball slowly emerged. The oval shaped head moved around, mandibles snapped slightly. It glistened, from the viscera that coated it. Mary laid back, her eyes rolling into her head. Joseph, gingerly picked the thing up. He held the bloody worm-like mass to his body. It squirmed slightly. The thing was the size of a newborn infant. Through the viscera I could make out ridges across the thing's body. It was a light pale color, with a lighter colored head. As the mandibles clicked, I realized they were shaped like human fingers. I began to gag from the horrific sight in front of me. Joseph finally turned to the doorway acknowledging my presence. He cradled it lovingly. Like a proud father looking down at his child. He made eye contact with me and smiled. He opened his mouth to speak. 
 
 “Christ has been reborn.” 
+
+Link to part 1: https://www.reddit.com/r/nosleep/s/DcFREiQz8f
