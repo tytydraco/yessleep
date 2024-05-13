@@ -62,7 +62,7 @@ I got in the van the next day at 7AM and headed off to the station. There was he
 
 'It's gonna be a good day!' There was a sun with a smiley face next to it.
 
-The traffic finally started flowing, and I approached an intersection where cars merged from the right hand side. A set of traffic lights came just before it. I looked at my watch. Please don't turn red, please don't turn red, I thought. As if the universe was conspiring against me, the lights turned yellow, and as the van in front of me sped past them, they turned red. Fantastic. I slammed the brakes and looked up.
+The traffic finally started flowing, and I approached an intersection where cars merged from the left hand side. A set of traffic lights came just before it. I looked at my watch. Please don't turn red, please don't turn red, I thought. As if the universe was conspiring against me, the lights turned yellow, and as the van in front of me sped past them, they turned red. Fantastic. I slammed the brakes and looked up.
 
 I only saw the van in front for a split second, and suddenly out of nowhere, a massive lorry T-boned it violently from the left. A loud crash combined with a painful crunch stunned me into paralysis. Both vehicles crashed through the railings and went hurtling over the edge of the cliff.
 
@@ -82,4 +82,4 @@ I figured blue suit guy must've somehow communicated to one of his cronies about
 
 I quit the job that very afternoon I found out, packed my bags and moved to a new town. Since then, I've moved several times. The paranoia won't leave me. I think it'll stay with me for the rest of my life. Any time I see someone wearing blue, a wave of terror sweeps over me - the same terror I felt seeing that van in front of me get pummelled and tumble over the cliff edge, knowing that should've been me. Previously, I'd always taken pride in the fact that I was a brutally honest guy, but I'm a lot more careful nowadays.
 
-And one thing's for sure - when someone makes a lame joke now, I always make sure to [laugh](https://www.reddit.com/user/latebutstillearly1/).
+And one thing's for sure - when someone makes a lame joke now, I always [laugh](https://www.reddit.com/user/latebutstillearly1/).
