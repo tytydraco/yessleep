@@ -10,7 +10,7 @@ My father snorted, and I stared blankly. I had no idea what my mother meant.
 
 “Oh, so you’re settling for me? Someone more attainable?” Mum asked.
 
-My father awkwardly searched for a ladder out ofaself-dug hole.
+My father awkwardly searched for a ladder out of a self-dug hole.
 
 “I, er, meant that she’s… too young,” He coughed.
 
