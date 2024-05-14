@@ -60,15 +60,25 @@ The air was thick with the scent of pine and earth, a symphony of nature envelop
 
 But my curiosity led me further ahead, my gaze alighting upon something beyond the ordinary. "What the hell," I murmured, my voice was like a whisper amidst the wilderness.
 
-My my heart was quickening as I glimpsed the outline of a vehicle amidst the foliage. It stood solitary and still, like a relic from another time, its metal frame weathered by the passage of seasons.
+My my heart was quickening as I glimpsed the outline of a vehicle amidst the foliage. It stood solitary and still, like a relic from another time.
 
 I hesitated whether or not to go closer, my instincts prickling with unease.
 
 "Perhaps just another camper," I told myself, though doubt lingered in my mind.
 
-Then I changed my mind the hairs were raising on the back of my neck and walked away from the silent sentinel of metal and glass.
+I cautiously approached the abandoned camper van, each step echoing in the eerie silence of the forest. A sense of unease crept over me, intensifying with every closer stride. The van, though not ancient, bore the unmistakable marks of neglect and abandonment, standing alone like a forgotten relic amidst the wilderness.
 
-I retraced my steps through the labyrinth of trees, the distant echo of our footsteps mingling with the whispers of the forest. I was immediately relieved as the warmth of our camp awaited me and I was not sure if I should tell Emma that I had seen another RV deeper in the forest. I decided not to, it might ruin the warm athmosphere of our moments.
+"Hello?" My voice broke the stillness, but no reply greeted my inquiry. It was as if the very air held its breath, shrouding the scene in an unsettling silence. Abandonment hung heavy in the air, casting a pall over the once vibrant camping spot.
+
+My eyes scanned the scene, taking in the disarray that surrounded the camper. Camping equipment lay strewn haphazardly, a jumbled testament to the hurried departure of its previous occupants. But it was the ominous black stain on the ground that drew my attention, a stark reminder of some past calamity, perhaps a fire that had ravaged this place.
+
+As I moved closer, my gaze was drawn to a chilling sight—a massive scraping marred the side of the camper van, like a grotesque scar etched into its metal skin. It seemed almost as if some colossal force had clawed at the vehicle, leaving behind a haunting testament to its power.
+
+The stillness of the campsite was oppressive, suffocating, as if nature itself held its breath in anticipation of some unseen threat. Not even the birds dared to break the silence with their song, lending an unsettling quality to the desolation that surrounded me.
+
+With a shiver of apprehension, I realized that I stood on the precipice of a mystery, the unanswered questions hanging in the air like a thick fog. What had transpired in this forsaken place? And more importantly, was I truly alone in this silent wilderness?
+
+The hairs were raising on the back of my neck and walked away from the silent sentinel of metal and glass. I retraced my steps through the labyrinth of trees, the distant echo of our footsteps mingling with the whispers of the forest. I was immediately relieved as the warmth of our camp awaited me and I was not sure if I should tell Emma that I had seen another RV deeper in the forest. I decided not to, it might ruin the warm athmosphere of our moments.
 
 The crackling fire and the tantalizing aroma of the cooking meat wove an enchanting tapestry around us, casting a spell that encapsulated the essence of togetherness. As the minutes ticked by, we shared stories, laughter, and the warmth of familial love. The darkness around us seemed to fade away, replaced by the glow of our shared experiences and the promise of a memorable night.
 
