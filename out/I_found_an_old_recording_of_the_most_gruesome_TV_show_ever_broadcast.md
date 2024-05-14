@@ -22,7 +22,7 @@ Imagine my despair at the sight of that dreaded ‘ɴᴏ ꜱɪɢɴᴀʟ’. I co
 
 I didn’t dwell on the fact that this ‘miracle fix’ had been impossible. If I’d had any sense, I’d have torn the horrid thing out of my VCR and buried it beneath holy ground. Instead, fool I was, I sat down and watched.
 
-At first, the thing seemed unwatchable. The audio was so distorted that the show’s theme song emerged as a low, crackling, staticky wail that made my head throb, and the logo was completely indistinguishable through the flickering and interference. I thought it was a lost cause for a moment. But then a figure appeared and cleared away the static, like Noah parting the Red Sea.
+At first, the thing seemed unwatchable. The audio was so distorted that the show’s theme song emerged as a low, crackling, staticky wail that made my head throb, and the logo was completely indistinguishable through the flickering and interference. I thought it was a lost cause for a moment. But then a figure appeared and cleared away the static, like Moses parting the Red Sea.
 
 It was the sight of the show’s host that hooked me. He was just… perfect. Perfect in every way. I knew it just looking at him. Infinitely handsome and likable and charismatic, and he always said the exact perfect thing. The only issue is, I don’t remember a single thing about him now, in the same way you can’t remember a dream that seemed so clear to you while you were experiencing it. He just appears in my memory as this abstract blur in a sharp suit. Yet at the time, I was awestruck, even before he said a single word.
 

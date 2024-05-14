@@ -375,7 +375,11 @@ Further down the trail, Jem was lying crumpled in the dirt, his camera smashed t
 
 Wren didn't look like a ghost boy anymore. 
 
-Death had dressed him in shackles of ivy, a crown of glass and bone forced onto his head, entangled in his curls. Death was torturing him. Wren’s flesh was its canvas, and every time I got away, he was punished, painting his failures across scarred flesh. I should have been running for my life, but I was mesmerised by each symbol cruelly carved into his neck. 
+Death had dressed him in shackles of ivy, a crown of glass and bone forced onto his head, entangled in his curls. Death was torturing him. 
+
+Wren’s body was its canvas, and every time I got away, he was punished, painting his failures across scarred skin. 
+
+I should have been running for my life, but I was mesmerised by each symbol cruelly carved into his neck. 
 
 The boy did a slow head incline, like he couldn't believe I was standing in front of him.
 
@@ -387,7 +391,9 @@ But I couldn't move.
 
 The burning hatred that death had filled him with, was stronger, hollowing him out completely. I managed two shaky steps, before I felt him, an unearthly force winding its way around my spine. This time, he didn't hesitate. 
 
-I watched his mouth move, a single curve of his upper lip that wrenched my body from my control, slamming me against a tree. There was something around my throat, choking the breath from my lungs,  a thick fog spreading over my eyes. Following his mouth curving into silent letters, I could feel my feet slowly leaving the ground, my legs dangling.
+I watched his mouth move, a single curve of his upper lip that wrenched my body from my control, slamming me against a tree. There was something around my throat, choking the breath from my lungs,  a thick fog spreading over my eyes. 
+
+Following his mouth curving into silent letters, I could feel my feet slowly leaving the ground, my legs dangling.
 
 I was floating. 
 
@@ -449,7 +455,9 @@ My aunt applied a dressing to Jem’s wound, ignoring the boy’s hisses.
 
 When my aunt's gaze flicked to me, I shook my head. 
 
-“It was Wren Oliver.” I gritted, teetering on hysteria. I could tell she didn't believe me, but I couldn't stop myself. I prodded at my throat, clawing for the indentations where his phantom fingers snaked around my neck, squeezing the breath from my lungs.
+“It was Wren Oliver.” I gritted, teetering on hysteria. I could tell she didn't believe me, but I couldn't stop myself. 
+
+I prodded at my throat, clawing for the indentations where his phantom fingers snaked around my neck, squeezing the breath from my lungs.
 
 But there was nothing.
 
@@ -623,9 +631,9 @@ Twisting around, I found myself gravitating towards warm golden light.
 
 The first thing I saw was the refrigerator door hanging open, and someone, no, *something*, rooting around inside it. 
 
-Glued to the spot, I dazedly watched them grab milk, guzzling it down, and then soda, cracking open each can and sucking them dry, before carving their fingers into my birthday cake. But I wasn't looking at the spillage of food seeping across the floor. Instead, my gaze found a crown of antlers, both human and animal bone entangled with dead flowers and human remains glued to a head of familiar matted brown curls.
+Glued to the spot, I dazedly watched them grab milk, guzzling it down, and then soda, cracking open each can and sucking them dry, before carving their fingers into my birthday cake. 
 
-There was something sticking from battered and bruised flesh, twin gaping slits sliced through a torn shirt resembling glass wings that were not yet formed, reminding me of a butterfly.
+But I wasn't looking at the spillage of food seeping across the floor. Instead, my gaze found a crown of antlers, both human and animal bone entangled with dead flowers and human remains glued to a head of familiar matted brown curls. There was something sticking from battered and bruised flesh, twin gaping slits sliced through a torn shirt resembling glass wings that were not yet formed, reminding me of a butterfly.
 
 *Wings.*
 
@@ -677,7 +685,9 @@ I remember saying his name, my voice slurred slightly.
 
 I didn't drink *that* much, but I could barely coerce words, my head spinning. 
 
-Wren’s neck snapped towards me, his eyes narrowing with resentment I couldn't understand, hatred that seemed to puppeteer him. Slowly tilting his head, the boy’s lips split into a grin, eyes filled, polluted, with mania. I could see where his lips had been stitched shut, and then ripped open.
+Wren’s neck snapped towards me, his eyes narrowing with resentment I couldn't understand, hatred that seemed to puppeteer him. Slowly tilting his head, the boy’s lips split into a grin, eyes filled, polluted, with mania.
+
+I could see where his lips had been stitched shut, and then ripped open.
 
 “Hi.”  
 
@@ -771,7 +781,7 @@ I think that's why my aunt chose her.
 
 Aunt May cleared her throat. 
 
-“For a long time, our family has lived among creatures who live in the forest you played inside! In exchange for keeping this town safe, they only ask for small favors. Wayward children who disappear into the woods are good enough payment. However, you and your siblings do not share our inheritance. Your mother never wanted fae children. She wanted you to be human.” 
+“For a long time, our family has lived among creatures who live in the forest you played inside. In exchange for keeping this town safe, they only ask for small favors. Wayward children who disappear into the woods are good enough payment. Charlie, you and your siblings do not share our inheritance. Your mother never wanted fae children. She wanted you to be human.” 
 
 Aunt May’s smile faded. 
 
@@ -857,7 +867,7 @@ The boy slumped to the floor, trembling, his knees against his chest.
 
 Aunt May grabbed him by the hair, forcing his head up, and sliced the blade across his throat. 
 
-His eyes flicked to me, and I swore, he smiled. 
+His eyes flicked to me, and I swore he smiled. 
 
 Spots of red dotted yellowing tiles, a river trickling under my aunt's heels. 
 
