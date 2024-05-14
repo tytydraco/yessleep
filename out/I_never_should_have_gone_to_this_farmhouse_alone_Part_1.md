@@ -76,7 +76,7 @@ If she noticed anything odd about me, she breezed over it in an easy manner. Tak
 
 "You must be Polly. We have been waiting a while for you to come. I simply must know what you think of the renovations to the house. Aren’t they just to die for?" The lady said all in one breath, as if she didn’t need air to speak.
 
-"Yes, they are quite nice..." I started before she cut me off, not in a rude manner but instead in one that she would have continued on even if I had just told her I was not Polly and instead I was a mass murderer looming for my next victim.
+"Yes, they are quite nice..." I started before she cut me off, not in a rude manner but instead in one that she would have continued on even if I had just told her I was not Polly and instead I was a mass murderer looking for my next victim.
 
 "You see, me and my son Eli—yes, Eli, you stop lurking in the shadows over there," she said, continuing on as I noticed a younger man leaning up against the barn. He wore simple clothes of jeans and a white t-shirt but had a handsome face. His hair was brown and hung slightly over his eyes.
 
