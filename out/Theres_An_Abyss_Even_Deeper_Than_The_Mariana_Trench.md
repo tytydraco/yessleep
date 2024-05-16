@@ -496,7 +496,7 @@ I didn’t dare so much as touch the water beneath me… but I was topside again
 
 As soon as I was back on the ship, I collapsed into Sheila’s arms, breaking down into tears as I clung to her, terrified that at any moment, some sort of unspoken other shoe would drop and I’d lose her all over again.
 
-   “Shh… it’s alright baby… I’ve got you… you’re safe… you’re safe…” I felt her fingers running through my air and I knew that what she said was true.
+   “Shh… it’s alright baby… I’ve got you… you’re safe… you’re safe…” I felt her fingers running through my hair and I knew that what she said was true.
 
 I was home.
 
