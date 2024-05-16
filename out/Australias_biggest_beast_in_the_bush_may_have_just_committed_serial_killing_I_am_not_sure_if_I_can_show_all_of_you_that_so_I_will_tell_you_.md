@@ -108,7 +108,7 @@ An unholy amount of files came in a link he attached. 
 
 
 
-The rest of my day was spent going through them all. I still know not what to make of what I saw, and I need time to collect myself before I can write of what I seen on those tapes. 
+The rest of my day was spent going through them all. I still know not what to make of what I saw, and I need time to collect myself before I can write of what I have seen on those tapes. 
 
 
 
