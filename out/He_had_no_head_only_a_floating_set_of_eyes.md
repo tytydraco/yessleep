@@ -416,4 +416,4 @@ My mom described it as a curly, serif font. Like a gift for a lover.
 
 ~ *You’re an angel* ~
 
-~ [W](https://www.reddit.com/user/EclosionK2/) ~
+~ [W](https://www.reddit.com/r/EclosionK2/) ~
