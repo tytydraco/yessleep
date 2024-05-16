@@ -58,7 +58,7 @@ Winston Ward, your typical real estate rich guy, bought some bushland last year 
 
 
 
-I certainly did not expect his name - or his family’s name - rather, to come up this way. 
+I certainly did not expect his name - or his family’s name, rather - to come up this way. 
 
 
 
@@ -100,7 +100,7 @@ As much as the Internet likes to make fun of its deadly wildlife, most of Austra
 
 I shook my head and rubbed my temples - for a moment questioning my sense of reality. That was until an alert jabbed into the screen of my desktop. Matthew’s email. 
 
-*Here are the footages, Tom. Crazy stuff. I got them to send us a scan of Madeleine’s journal, too. Found where those kids were seen last.* 
+*Here is the footage, Tom. Crazy stuff. I got them to send us a scan of Madeleine’s journal, too. Found where those kids were seen last.* 
 
 
 
