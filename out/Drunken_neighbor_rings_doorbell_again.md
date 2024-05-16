@@ -1,0 +1,17 @@
+I returned home after a long absence, finding everything in order. Starting university earlier in this year had kept me busy, from freshmen welcoming events to final exams, leaving my feeling overwhelmed. When summer break began and I returned home from the dormitory, it felt cozy and comforting, as if I hadn't been there in years.
+
+My parents ran a restaurant, so they often returned home very late. With some free time on hands, I decided to relax by catching up on some movies I had missed. But just as I was engrossed in my movies, the doorbell rang. It was 11 PM, and I assumed it was the upstairs neighbor, as it often was.
+
+Peeking through the peephole, I saw the familiar face of my neighbor, whom I hadn't seen in a while. Despite the annoyance I felt whenever he showed up unannounced, I couldn't help but feel a bit comforting tonight. I was home in ages.
+
+During my stressful senior year of high school, I often got irritated by the neighbor's late-night visits. When I first saw him, I didn't know who it was and mistakenly opened the door. The drunk man stumbled into the house and slept on the living room sofa. Shocked, I called my parents and even the police. It turned out he was a new neighbor upstairs, and the day passed with repeated apologies due to his drunken state.
+
+But every night at 11 PM, the upstairs neighbor would ring the doorbell. Alone and annoyed, I decided to use the intercom to communicate with the upstairs neighbor. During my sensitive high school days, the constant ringing of the doorbell was nerve-wracking, and naturally, the intercom conversations with the upstairs lady were tense and awkward. Whenever I met them, the upstairs lady always apologized, and I awkwardly accepted it.
+
+However, the ringing doorbell and the drunken neighbor's visit that day made it feel like an event, and my voice over the intercom to the upstairs neighbor was cheerful. After a while, the feeble voice of the upstairs lady could be heard. I greeted her warmly and suggested that since her husband was at the door again, she should come and collect him. Normally, she would have apologized and come immediately, but after a long silence, she ended the intercom conversation.
+
+Despite feeling puzzled by her unusual reaction, I understood that the elderly lady had been through a lot. The next day, waking up late, I saw my mother watching TV in the living room. It was already past 10 AM, and she should have been at the restaurant. I asked her what was going on, and she mentioned that the doorbell had been malfunctioning for a few days, so she called someone to fix it today. I told her it was working fine yesterday.
+
+Finding it odd, she went to test the doorbell, which remained silent. She asked how I would know if it was working or not. I mentioned that the upstairs neighbor had rung it again at 11 PM last night, and my mother asked if I had seen the neighbor. Having been peeking through the door peephole, I confirmed it was indeed him.
+
+I also mentioned using the intercom with the upstairs lady, but she abruptly ended the conversation without apologizing, saying it seemed tough because of her husband. My mother listened intently, her expression growing serious. My mother sternly warned me never to answer the doorbell or look outside if it rang again. She also advised me not to engage with anyone who showed up unannounced. Her subsequent words left me stunned: "The neighbor passed away a month ago while returning home \[drunk.\](https://youtu.be/3eKetgaDhJU)"
