@@ -7,7 +7,7 @@ I woke up blindfolded tied to a chair. They had tied up my hands and legs so I c
 "Where am I and who are you?" I asked 
 
 
-"I'm gonna be the one asking questions here , We both know [what you did](https://www.reddit.com/r/nosleep/s/2TATCeC2jA) so let's cut to the chase. Where is the pendrive?" the voice said.
+"I'm gonna be the one asking questions here , We both know what you [did](https://www.reddit.com/r/nosleep/s/2TATCeC2jA) so let's cut to the chase. Where is the pendrive?" the voice said.
 
 
 "Do you really think I'm going to tell you? I don't even know you are , One thing I can tell you is that pendrive had some really interesting stuff on there" I replied.
@@ -61,13 +61,16 @@ The footsteps of the person got closer and soon I was able to see his face.
 "Tracey?" I cried out 
 
 
-Tracey then started untying me. "I received a [message](https://www.reddit.com/r/UnnaturalUniverse/s/S8Mi1gDd2E) saying you were in trouble ,so I came to help" he explained.
+Tracey then started untying me. "I received a message saying you were in trouble ,so I came to help" he explained.
 
 
 "A message by who?" I asked him
 
 
 "I don't know , They called themself DS" He replied . The ropes were finally untied and I could move freely.
+
+
+"Here , take this. It'll help us stay in contact." Tracey said to me as he tossed a phone to me. It was fully charged and had his number saved. It also had a sim-card installed with cellular data.
 
 
 "Now let's get out of here, Uh ignore the bodies" he said to me.
@@ -172,4 +175,4 @@ Tracey then stretched his left arm to hit the button. The doors closed just befo
 "Now what is that?" Tracey asked in the same tone as when he saw Dave.
 
 
-I turned around and realised that Tracey and I were not the only ones in the room.
+I turned around and realised that Tracey and I were not the only ones in the [room.](https://www.reddit.com/r/UnnaturalUniverse/s/PnjyftoweI)
