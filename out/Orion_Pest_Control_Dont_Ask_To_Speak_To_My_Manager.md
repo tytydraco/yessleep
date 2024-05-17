@@ -366,4 +366,4 @@ What was alarming was that the dead man's body had been desecrated at some point
 
 I wondered if being exposed to so much blood had been the trigger. I suppose I should just be glad that Victor had eaten a man who was already dead instead of me or another living person. 
 
-Like I said, I'm going to have to keep an eye on him. In the meantime… maybe don't demand to speak to my manager. 
+Like I said, I'm going to have to keep an eye on him. In the meantime… maybe don't demand to speak to the manager. 
