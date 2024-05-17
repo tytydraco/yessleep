@@ -10,13 +10,13 @@ I woke up blindfolded tied to a chair. They had tied up my hands and legs so I c
 "I'm gonna be the one asking questions here , We both know what you [did](https://www.reddit.com/r/nosleep/s/2TATCeC2jA) so let's cut to the chase. Where is the pendrive?" the voice said.
 
 
-"Do you really think I'm going to tell you? I don't even know you are , One thing I can tell you is that pendrive had some really interesting stuff on there" I replied.
+"Do you really think I'm going to tell you? I don't even know you , One thing I can tell you is that pendrive had some really interesting stuff on there" I replied.
 
 
 "You don't have to make it any harder for us or you Jason. Just tell me where it is and we can be on our way" the voice said.
 
 
-I started laughing hysterically, There were other noises from behind me which made me realise there were more people here than I thought.
+I started laughing hysterically, There were other noises from behind me which made me realise there were more people there than I thought.
 
 
 "If I tell you where the pendrive is , You'll have no use of me anymore and will dispose of me. Won't you?" I questioned back.
