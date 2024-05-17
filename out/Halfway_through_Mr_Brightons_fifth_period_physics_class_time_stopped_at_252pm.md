@@ -114,7 +114,9 @@ The cheer squad were nowhere to be seen.
 
 Being on the top floor gave us a front row seat to their practice sessions.
 
-I stopped watching when their flyer did a death defying flip, almost breaking her neck. *2:52pm.* I couldn't see the cheer squad. But I *did* see Jessie Carson mid-sprint across the track field, strawberry blonde curls suspended in a halo around her. I could see exactly where she had frozen in place, her left foot hovering off of the ground, her right foot driving momentum. It wasn't just Jessie who had stopped. The dirt she was kicking into a cloud behind him was hovering, caught in mid-air. 
+I stopped watching when their flyer did a death defying flip, almost breaking her neck. *2:52pm.* I couldn't see the cheer squad. But I *did* see Jessie Carson mid-sprint across the track field, strawberry blonde curls suspended in a halo around her. 
+
+I could see exactly where she had frozen in place, her left foot hovering off of the ground, her right foot driving momentum. It wasn't just Jessie who had stopped. The dirt she was kicking into a cloud behind her was hovering, caught in mid-air. 
 
 Studying the faces around me, my mouth went dry. 
 
@@ -168,7 +170,9 @@ Imogen threw her iPhone at him, narrowly missing hitting him in the face.
 
 I waited for Roman’s response. For once, though, he was speechless. 
 
-“Well done, Imogen. That is correct.” Mr Brighton spoke up, tearing a piece of paper from a workbook and striding over to the door, glueing it over the glass window. When we started to protest, some of us were shouting, while others bursting into tears, he calmly took out his key and locked us in. I should have been surprised that our teacher had spontaneously decided to take his entire class hostage, but the rumour mill had been churning. 
+“Well done, Imogen. That is correct.” Mr Brighton spoke up, tearing a piece of paper from a workbook and striding over to the door, glueing it over the glass window. When we started to protest, some of us were shouting, while others bursting into tears, he calmly took out his key and locked us in. 
+
+I should have been surprised that our teacher had spontaneously decided to take his entire class hostage, but the rumor mill had been churning. 
 
 According to Becca Jason, the guy’s wife divorced him and took his kids. 
 
@@ -404,9 +408,15 @@ Our teacher seemed to be able to manipulate everything in his vicinity.
 
 And slowly… contorting *us* into his own. 
 
-In the single second we were trapped inside, I felt days go by in a dizzying whirlwind that was like being permanently high. When I stood up, I felt like I was floating. When I sat down, hours could go by, even days, and I wouldn't even feel them. I did try and count the days, initially, scribbling them on a scrap piece of paper, but somewhere around the thirteenth or fourteenth day, I lost count. The world around us never changed, in permanent stasis, and maybe that was sending us a little crazy. 
+In the single second we were trapped inside, I felt days go by in a dizzying whirlwind that was like being permanently high. When I stood up, I felt like I was floating. 
 
-After a while of being stuck at our desks, Mr Brighton allowed us to wander the classroom, as long as we stayed away from the door. I lay on the floor for days, counting ceiling tiles. Sometimes, Imogen would join me. I couldn't sleep, but I could pretend to sleep, imagining a world that was back to normal. I didn't feel hungry, but my brain did like to remind me of food at the weirdest times. I was aware of weeks passing us by, and then months. 
+When I sat down, hours could go by, even days, and I wouldn't even feel them. I did try and count the days, initially, scribbling them on a scrap piece of paper, but somewhere around the thirteenth or fourteenth day, I lost count. The world around us never changed, in permanent stasis, and maybe that was sending us a little crazy. 
+
+After a while of being stuck at our desks, Mr Brighton allowed us to wander the classroom, as long as we stayed away from the door. I lay on the floor for days, counting ceiling tiles. 
+
+Sometimes, Imogen would join me. 
+
+I couldn't sleep, but I could pretend to sleep, imagining a world that was back to normal. I didn't feel hungry, but my brain did like to remind me of food at the weirdest times. I was aware of weeks passing us by, and then months. 
 
 I never grew hungry or tired, and my bodily functions were none existent. 
 
@@ -476,7 +486,9 @@ The remaining nine of us were eagerly awaiting an explanation.
 
 When Kaz didn't respond, Roman gathered us in a kind of hustle, the four of us grouped together. I felt like I was on the football field. Still, though, if the guy’s goal was to look as suspicious as possible, he was doing a great job. 
 
-Roman studied each of us, one eyebrow cocked. When Mr Brighton glanced up from his work, Roman shot him a grin, lowering his voice to a hiss. “You seriously think our fifty year old physics teacher has been abusing me in the storage closet?
+Roman studied each of us, one eyebrow cocked. When Mr Brighton glanced up from his work, Roman shot him a grin, lowering his voice to a hiss. 
+
+“You seriously think our fifty year old physics teacher has been abusing me in the storage closet?
 
 “Then why did you cry out?” Kaz demanded. “Did he hit you?”
 
@@ -486,7 +498,7 @@ Roman stuck out his bottom lip. “I'm pretty sure he didn't hit me.”
 
 “Why are you covering for him?” Imogen poked his forehead. “Are you lobotomised?”
 
-Roman wafted her hand away. “Stop prodding me, and no, I'm 100% good.” He backed away from us, like we were observers, and he was the zoo attraction
+Roman wafted her hand away. “Stop prodding me, and no, I'm 100% good.” He backed away from us, like we were observers, and he was the zoo attraction. 
 
 “I won't be, if you keep treating me like I'm senile.”
 
@@ -500,7 +512,9 @@ Roman wafted her hand away. “Stop prodding me, and no, I'm 100% good.” He ba
 
 Kaz didn't look convinced, Imogen nervously sucking her teeth. 
 
-The boy leaned back, resting his head against the wall. His eyes flickered shut. “Stop looking at me like that, there's nothing to tell you,” he murmured, “Brighton didn't do shit to me. I was just freaked out.” Prying one eye open, he fixed us with a glare. “I am *so* sorry for reacting like a human. Next time, I'll make sure to attack him and pin him to the ground.”
+The boy leaned back, resting his head against the wall. His eyes flickered shut. 
+
+“Stop looking at me like that, there's nothing to tell you,” he murmured, “Brighton didn't do shit to me. I was just freaked out.” Prying one eye open, he fixed us with a glare. “I am *so* sorry for reacting like a human. Next time, I'll make sure to attack him and pin him to the ground.”
 
 It's not like we believed him. I don't think Roman believed himself. 
 
@@ -586,9 +600,9 @@ We were going to get out, so what… what was *this*?
 
 Kaz’s earlier words hit me from months ago. 
 
-*“Mr Brighton *is* the thing keeping us here,” he explained. “If we kill him, I'm like, 98% sure we’ll go back to normal.”*
+*“Mr Brighton *is* the thing keeping us here,”* he explained. *“If we kill him, I'm like, 98% sure we’ll go back to normal.”*
 
-“Okay, and what if he dies and we’re *stuck*?” Imogen whisper-shrieked. 
+*“Okay, and what if he dies and we’re *stuck*?”* Imogen whisper-shrieked. 
 
 *“I said 98% for a reason. Yes, there's a small chance his power will die with him. But there's a bigger chance that its effects will die when he does.”*
 
@@ -596,7 +610,7 @@ Ren nodded slowly. *“Right, and where exactly did you learn this information?�
 
 *“You'll feel a lot better if I don't answer that.”*
 
-*“Okay.”* Ren gritted his teeth.  “So, we just need to find a weapon, right?”*
+*“Okay.”* Ren gritted his teeth.  *“So, we just need to find a weapon, right?”*
 
 *“And don't tell Hemlock,”* Kaz rolled his eyes. *“I don't care what he says, that boy definitely had his mind fucked with. Hemlock is a liability. If we tell Roman, he tells Brighton, and we’re screwed.”* Kaz nodded to me, then the others. *“Keep your mouths shut.”*
 
@@ -624,7 +638,9 @@ Ren, who had been sitting next to me, kept moving, further and further away. I d
 
 But somewhere along the way, I think we just… lost the longing to want to escape. 
 
-I didn't see the exact moment the boy stabbed the blade into the man's neck, plunging it through his flesh, but I did *feel* a sudden jolt, like time itself was starting to falter and tremble. Mr Brighton dropped to the ground, and I found my gaze flashing to the frozen clock.
+I didn't see the exact moment the boy stabbed the blade into the man's neck, plunging it through his flesh, but I did *feel* a sudden jolt, like time itself was starting to falter and tremble. 
+
+Mr Brighton dropped to the ground, and I found my gaze flashing to the frozen clock.
 
 Which was moving, suddenly. 
 
@@ -768,7 +784,11 @@ It's been three months since my teacher froze time.
 
 Mr Brighton wasn't imprisoning us. He was *protecting* us. 
 
-I'm still alive, but I have to take regular shots. I think they're just in case I was infected by those things. I asked Mom if the incident has been on the news, but there's no coverage. According to the people in white who treated me, everything has been covered up. According to the Mayor, ten kids died in a gas leak. 
+I'm still alive, but I have to take regular shots. I think they're just in case I was infected by those things.
+
+I asked Mom if the incident has been on the news, but there's no coverage. 
+
+According to the people in white who treated me, everything has been covered up. According to the Mayor, ten kids died in a gas leak. 
 
 No mention of the monstrous things hunting us down… 
 
