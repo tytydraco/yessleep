@@ -1,0 +1,15 @@
+
+
+When I was 14-15 years old, I was at my grandparents' home in a small village in Bihar, India. We had come for the summer, and I heard lots of stories about my "baadi," which is what we call a small farm.
+
+One story was about a peepal tree, also known as a "sacred fig," that was very big. Every evening, a girl used to swing on the tree, but the girl was dead. They said a ghost used to swing on the tree, and almost every person in the village claimed to have seen it. After some years, my grandfather sought the help of a rickshaw driver to cut the tree, and finally, it was cut down. But the next day, when the rickshaw driver was driving, someone pushed him from the rickshaw, and he lost one leg. When people asked him who pushed him, he said there was no one, but he felt someone. All the villagers thought it was because he cut down the ghost's tree, and she took revenge.
+
+Now, back to my experience. After many years, when I came back one summer day, I felt compelled to go to my baadi. When I arrived, I suddenly felt the urge to use the restroom, so I did it in the corner of my baadi. When I turned around, I saw a pretty girl standing there. She asked me if she could wash her hands there, and I said yes. I liked her; she was too beautiful. Her half-face was covered with her hair, and there was a small cut near her eye, but she still looked beautiful. She was my height and seemed to be the same age as me.
+
+When I returned home, I got a fever and rested in bed. My cousin sister, who grew up in the village, came to visit. I asked her about the girl, and she told me there was no girl in the village named that. Oh, sorry, I forgot to mention, the girl had told me her name when she asked to wash her hands—her name was Aakanjala.
+
+Later, my sister told everything to her mother. Sisters can't keep secrets, so her mother told my grandmother, my grandmother, came to me. She told me I was cursed by a jinn; that girl was a jinn. But I didn't believe her. How could a pretty girl like her be a jinn, and she didn't even hurt me?
+
+After some time, my fever got too high, and my family called a doctor. I slept for some time, and when I woke up, I found myself sitting in a chair. I asked my mom why I was there, and she said if I wanted to rest, I could go there. I didn't understand what was happening. I asked my sister, and she said the doctor came and gave me an injection. I was talking with my family while sitting in the chair, but I don't remember anything. I just remembered that I was sleeping. But as my sister told me, I wasn't sleeping; I had taken the injection and was talking to my family. That part felt creepy.
+
+For some nights, I heard someone calling my name. I told my father, and he said to ignore it. After some days, we returned from the village, and the voice stopped. I forgot everything about it. Now, after 4 years, I heard that voice again for one time, and this story of my life came to my mind, so I posted it.
