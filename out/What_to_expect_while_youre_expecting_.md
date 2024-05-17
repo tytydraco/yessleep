@@ -23,22 +23,22 @@ When I wake up I realize I am no longer home. In between bouts of unconsciousnes
 
 I start stirring and the doctor notices and looks down at me, beaming with pride. My husband in a chair clearly drugged also is starting to rouse and try and piece together what happened. All he can keep repeating is, “what is it?” in a stupor. Like he truly couldn’t process what happened and what was currently happening. 
 
-As I become more aware, I try and find my voice. While raspy I am able to gasp out the words, “Where is my baby?!”
+As I become more aware, I try and find my voice. While raspy I am able to breathe out the words, “Where is my baby?!”
 
-The doctor looks at me the pride evaporating and a cold expression taking over his face. “Your baby died months ago. Your husband watched us remove it. However, he did not see that I went on to take advantage of your willing and ready womb by implanting something much more important than you or your child would ever become.”
+The doctor looks at me the pride evaporating and a cold expression taking over. “Your baby died months ago. Your husband watched us remove it. However, he did not see that I went on to take advantage of your willing and ready womb by implanting something much more important than you or your child would ever become.”
 
-I blink taking in this information. I felt this thing grow in me, thought it was a part of me, loved it more than I loved myself. But that’s when I thought it was my child, my stomach begins turning and bile begins to raise into my throat.
+I blink taking in this information. Trying to process these impossible thoughts. I felt this thing grow in me, thought it was a part of me, loved it more than I loved myself. But that’s when I thought it was my child, my stomach begins turning and bile begins to rise into my throat.
 
-“Would you like to hold what you brought to life, what you birthed?” The doctor said with a look of pure curiosity crossing his face.
+“Would you like to hold what you brought to life, what you birthed?” The doctor said with a look of pure curiosity displayed. 
 
 “Yes..” I gasp before I can rationally consider his proposition. 
 
-Walking over with a bundle, he places it into my arms, and I look down with severe trepidation. Even though I have never seen it, I know it’s the thing I felt so connected to and somehow still do. Pulling the blanket away I see what could only be described as an abomination.
+Walking over with a bundle, he places it into my arms, and I gaze down with severe trepidation. Even though I have never seen it, I know it’s the thing I felt so connected to and somehow still do. Pulling the blanket away I see what could only be described as an abomination.
 
-It was three different children stitched together to almost become one but not quite. Clearly in pain and not meant to exist. As a look of horror crosses my face the doctor sighs.
+It was three different children stitched together to almost become one but not quite. Clearly in pain and not meant to exist. As a look of horror I can’t stop crosses my face the doctor sighs.
 
-“I was hoping for a better reaction, that maternal instinct may win out. Too bad. Considering one of those babies IS yours. These three babies couldn’t make it on their own but together they could. I tried many times, but you are the first one to actually be able to last full term and have the baby survive. I hoped maternal instinct would have won over, it would have been easier.”
+“I was hoping for a better reaction, that maternal instinct may win out. Too bad. Considering one of those babies IS yours. These three babies couldn’t make it on their own but together they could. I tried many times, but you are the first one to actually be able to last full term and have the baby survive. I hoped maternal instinct would have won over, it would have been easier that way.”
 
-The bile rises again and I listen on in terror.
+The bile rises again and I listen on. Shaking in pure terror knowing wherever he is going with this will not end well for me. 
 
 The doctor continues, “Since you’re the only one this has been successful with, there will be many more attempts we will require your hospitable womb for.”
