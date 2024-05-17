@@ -147,6 +147,6 @@
 
 
 
- You all really forgot. I got went to mom's and my pictures were gone. Dad's? Same thing. I was gone, for three weeks. Nothing took me. Nothing is.. mad at me? And I don't know why! I was nothing.. someone please! 
+ You all really forgot. I got went to mom's and my pictures were gone. Dad's? Same thing. I was gone, for three weeks. Nothing took me. Nothing is.. mad at me? And I don't know why! I was nothing.. someone please! Suddenly I’m back and all the work I left behind is still here. I was gone! The world has proved it. But.. nobody remembers? All the logs! It’s all here. I WAS gone. You can see it in the company finances, yet nobody thought to look for me? Nobody noticed I’m back..? It’s like I never left? 
 
-   Do any of you remember? What is my name?!
+   Do any of you remember?!
