@@ -310,3 +310,5 @@ Then I woke up in my bed, groggy. Why was I awake? I wanted to keep sleeping. I 
 I'm taking the next few days off to recover. The boss was the one to suggest it. I need it. He apologized for leading me there. He hadn't anticipated the mechanic finding me. I didn't blame him. It wasn't his fault. 
 
 I encourage all of you to learn from my mistakes. If a Neighbor gives you an offer you can't refuse, take the choice that gets you out as unscathed as possible. I got off lightly. Don't mess around with them. Be smart. Be careful. 
+
+Update: Victor has been [officially diagnosed. ](https://www.reddit.com/r/nosleep/s/8VToIiFak2) 
