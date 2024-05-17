@@ -1,0 +1,39 @@
+Every night, since I was very young, I've heard a light tapping on my window. Just hard enough to wake me up, but it never took much for me to wake up. I've always been a pretty restless sleeper.
+
+ Every night I would fall asleep, and every night around 12:30 I would wake up to the tapping. Tap… Tap… Tap… I would wake up, slowly turn to the window, then nothing. Complete and deafening silence. I never saw anything when I looked over to the window. Just darkness. 
+
+Occasionally I would attempt to ignore the tapping, but every time I tried that, the tapping would become more frequent and louder. If I wanted any sleep I had to look. So I would slowly turn, look at my window, and the tapping would stop. 
+
+Whenever I tried to talk to my mom about it, she would always chalk it up to a tree branch tapping my window at night. The tree was never really close enough to my window to hit it unless there was a particularly strong wind or maybe a storm.
+
+I used to sleep over at my friend, Corbin`s, house nearly every weekend. We hung out almost every day when we were in first grade. He was my best friend. Every day we were at each other's house, playing in the seemingly neverending woods that surrounded our houses. Corbin only lived about a five-minute walk away from my house, so it was always very easy to see each other.
+
+The first time I slept over at Corbin`s house, he said he never heard any tapping on his window, and there were no trees nearby. However, every time I slept over at his house, both he and I would hear the taps on his window. Tap… Tap… Tap… Both of us woke up, looked at each other, and then at the window, and the tapping would stop. 
+
+We brought it up to Corbin`s parents as well, and they both said that it was just the house settling. That made sense because Corbin lived in a 150-year-old farmhouse, so little creaks and taps weren`t super uncommon, but the sound of something tapping on a window was very strange to me. I now know that the tapping was neither a tree nor was it the old house settling.
+
+One day, when Corbin and I were sleeping over at my house, we decided that we were going to set a camera outside in an attempt to see what branch was hitting my window. We begged and begged my mom to buy us a camera, and she finally gave in. 
+
+She took us to Walmart and bought us the cheapest camera that could record video that she could find. We brought it home and she helped us set it up and put it up in the tree facing my window. Despite our excitement, we understood that we needed to leave it be to not scare away anything that we might see.
+
+After eating our normal meal of Dino Nuggets and baked french fries drowned in an obscene amount of ketchup, we went upstairs and went to bed. We were feeling as if we were trying to catch Santa Claus on Christmas Eve. 
+
+As always, later that night we heard the tapping. Unlike every other time though, we heard a huge amount of rustling, making us worry that maybe the wind had knocked the camera out of the tree. It was particularly windy that day. 
+
+The taps that night were more aggressive than what they had been previously. They were more of a rhythmic thud against my window rather than a gentle tap. Obviously startled by the new aggressive knocks, we woke up, turned towards the window, and the knocking stopped. We brushed it off and went back to bed.
+
+When we woke up the following morning, we were so excited to check the footage from the camera that we skipped breakfast and didn't even brush our teeth until later in the morning. We woke up my mom, and she grumbled and groaned her way downstairs, threw her shoes on and we went outside. We went to the tree and noticed that the camera wasn't where we had set it the day before. It wasnt anywhere to be found. 
+
+Instead in its place was a piece of paper that had a hand-drawn picture on it. It was one little stick figure being hugged by a huge shadowy being. Underneath one of the stick figures were my initials as well as a heart underneath the big stick figure. The bottom of the paper said, “With Love, my child.” The paper also had a flash drive taped to the back.
+
+ We gave the paper to my mother and her face turned a ghost white. It looked like all the blood had drained from her face. She told us to get inside and that she needed to make a phone call. She called the police.
+When they got there, they asked me a few questions. I can't remember what they asked, and really, they only talked to Corbin and me for a few minutes. 
+
+I remember feeling guilty and scared when I saw my mother crying. There's something especially terrifying when you see your parents cry. It makes things seem much more real and serious. But still as a five-year-old at the time, I couldn't understand the danger that presented itself that day. 
+
+All these years later, I finally know what was on that flash drive. It was filled with hundreds of videos of me, taken when the taps would happen in the middle of the night. Hundreds of videos and pictures of me waking up.
+
+ There was one file that was a little bit different. It was from the camera we lost that night. It was a video of my window, exactly where we had rested it so many years ago. When you skim through the video you see a hand slowly creep up and cover the lens of the camera. The hand was dirty. Like this person had been digging holes in the ground bare-handed. And then darkness.
+
+
+I can`t remember much after that, or if any of the other strange events of my childhood have any connection to it, but if I remember anything else, I will update later. As of right now, it's time for me to go to bed. It's 12:22 and I don't want to miss my old friend.
