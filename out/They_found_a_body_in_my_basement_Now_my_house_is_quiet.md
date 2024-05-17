@@ -1,0 +1,28 @@
+It’s been thunderstorm after thunderstorm for the last two weeks. Nearly every morning starts with a torrent of rain turning the streets to rivers, and each night is lulled away by the pounding of water against the slated roof top. They say April showers bring May flowers, but at this point April showers were drowning any flowers before they even had the chance to try and grow. My muddy garden had become the least of my problems where the gallons of rain was concerned.
+
+
+It was the flooded out basement that was the first mark towards finding the body. Inches of water covered the basement floor, dragging mud and the stench of stagnation across the floor. The weeks of rain were destroying dozens of basements, and mine was no survivor. There was a backroom in the basement that I had not touched since the day I bought this house, and judging from the mud leaking under the stained wooden door, that was the source of the water. 
+
+
+I had always felt a sense of unease when stepping into the room, hence why I haven’t entered. The dug out cellar space was hidden behind a brick wall and a dead-bolted wooden door. It was dark, the air stale in your lungs, and always felt like something was behind you breathing down your neck. The room was largely full of dirt, like they had finished digging out the basement and just threw all that dirt into that room. The only object in there was a slab of concrete embedded into the stone wall; roughly three feet tall and a foot in a half wide. I say it was the only object, but that would be forgetting the dark green carved turtle necklace that resided in the nearby dirt; and in all honestly I didn’t pay much mind to the child’s necklace left forgotten in a dug out cellar.
+
+
+After the water was removed, was when the discovery was made. I was irritated about the hundred something dollars I’d had to spend to get a pump, relieved that it had worked to remove the water, pleased about finding the light socket that had been in that room, and alarmed about the bone now resting in the mud.
+
+
+This wasn’t the first human finger bone I’d seen in my life; but handling a bone in a college anatomy course, and finding one in the back cellar of your basement are too different experiences. It was the color of burnt sand, with speckles of blackened mold clinging to the rounded edges. The flesh was long gone, but there was the tiniest cling of dark red tendon that looked like a long dried worm attached to the bone. It wasn’t the only bone that had tumbled from the cracked concrete slab.
+
+
+It seems that room had been seeping water for a while, but it was only after the weeks of downpour that the small crack in the stone wall really opened up and allowed the flood to overtake the entire basement. Water had been dripping down that wall, and slowly chipping apart the concrete slab that had been shoved into the pile of dirt. There was a collection of fingers bones resting at the base of the slab. There was a small human skull resting in the center crack of the tombstone that had resided under my feet for years. There was another one of the dark green children’s necklaces dangling among the rubble.
+
+
+The police were here to collect the remains, and I cannot place when they left with them. They could have just stepped from the doorway and in the daze I’ve been in, that closing of the door could have felt like an hours long task. They could have taken the child’s bones yesterday and I’ve just been sitting here unsure of what to do next. But it feels wrong. It feels like my house it too quiet. Too empty. Too much like something has been removed from my home. Like someone had been removed from my home, and in all truth that had been SOMEONE that had been removed from my home. From their home? Was it their home before? Or had it become their home when someone had taken a child’s rotting body and locked it behind a slab of concrete in the back of a mud filled room. I don’t know. 
+
+
+All I know is I’m sitting on my couch, typing this out and feeling as if there’s something off about my home now. For as long as I’ve lived here, there’s been this feeling like I wasn’t the only one residing within these walls. You could hear a voice in the staircase, sometimes tossing out your name when you walked passed. There were nights where I’d wake and could swear that there was a grinning face leaning over the banister just watching. My feet would be almost pulled from underneath me like someone had tripped me up. The cats would lose their minds chasing after a figure that only they seemed to be able to see. The dolls would be moved off the shelves and left across the room. When playing far too many hours of Sims, it always felt like someone was sitting on the couch beside me watching the Sims setting the house on fire every time they tried to make a grilled cheese sandwich. 
+
+
+It was never a violent presence in my home. It never felt like a threat. Just like there was something, no someone, that was here before me. Someone else who was calling this place their home. Finding that there had been someone, a little someone who had been long forgotten under my feet all this time, well that presence made a bit more sense. And now that presence is gone. The house is still; its quiet. 
+
+
+I feel kinda bad that after having skeletal remains removed from my home, my only thought is that I feel lonely. Like someone I never really knew had disappeared, and all I’m left with is the dug out remains of a grave and a dark green turtle necklace. Its storming again but the house is still so quiet.
