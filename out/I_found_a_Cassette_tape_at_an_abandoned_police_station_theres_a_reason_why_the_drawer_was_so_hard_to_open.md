@@ -82,7 +82,7 @@ B: “It doesn’t help. It never helps. You only get me more hooked. And no, I 
 
 A: “What do YOU think is the best option? You’re obviously in a lot of pain….. the only option sounds like suicide. It will get rid of the pain. Your body can’t move without you screaming. It’s practically eating you alive.”
 
-B: “*laughs* oh you’re seriously going to say that. After all that, the tank, the femur peeling, you’re going to suggest I DIE, Just because you can’t help.”
+B: “*laughs* oh you’re seriously going to say that. After all that, the tank experiment,  you tried the femur peeling TO GET RID OF THE PAIN, YOU DID THINK THE PAIN WAS COMING FROM THERE. HOW DID YOU THINK THAT WAS GOING TO HELP, I WAS DRUGGED UP, you’re going to suggest I DIE, Just because you can’t fix this. You’re horrible”
 
 A: “It’s the best option, the pain will leave you”
 
@@ -90,7 +90,9 @@ B:”yeah? Here’s some truth, it can never leave me. I’ve been dealing with 
 
 *B appears to have snapped, and says something before getting cut off*
 
-B: “here’s one thing though, it wouldn’t work because you can’t die tw-“
+B:You want to do the assisted suicide, FINE. BUT IT WOULD NOT WORK
+
+B: “I AM ALREADY DE-“
 
 *the cassette cuts to some jazz music for the rest of side A*
 
@@ -99,47 +101,62 @@ B: “here’s one thing though, it wouldn’t work because you can’t die tw-�
 F: “What the actual…… holy shit.”
 
 I didn’t have the words to speak…. It was simply the most unnerving thing I’ve heard.
-
-There were different meanings to what B was obviously going to say. “You can’t die twice” 
-
  
-Despite the previous audio shaking us up pretty badly, I went to go and turn the tape over to side B. A sharp, intense feeling of pain surged through my head, my lungs losing their oxygen slowly. Fell on the floor, tried to get up by getting on the couch and did my best not to pass out and die as breathing was getting difficult now. 
+Everything was uncanny about it. 
+ 
+Despite the previous audio shaking us up pretty badly, I went to go and turn the tape over to side B. A sharp, intense feeling of pain surged through my head, my lungs losing their oxygen slowly. Fell on the floor, tried to get up by getting on the couch and did my best not to pass out and die as breathing was getting difficult now. I COULD NOT BREATHE. 
 
-My head was pounding , my right eye felt like a sharp wooden stick with infected piss with every type of STD you can think of spike going through it and the back of my head.
+My head was pounding , my right eye felt like a sharp wooden stick piercing my eyeball. I couldn’t scream. I kept coughing. I wheezed. And then everything went black .
 
 Who knows how long later, I got up, the pain subsided, and the environment was extremely unfamiliar. There was just this river, an endless river, length and width,  with a dark navy blue sky.
 
-All that could be heard was wind blowing around. 
+All that could be heard was the river. 
 
-I must drink, I need food.
+I must drink, I need food. Was the impulse, there was nothing. 
 
-Around half a mile through, something tripped me over, and a massive whirlpool formed, I fell, not expecting the at least 90ft fall.
+I tried to drink the river water, but I vomited this black gel. It felt like jelly, it smelled like jelly. 
+
+Had to continue on walking. 
+
+Around half a mile through, a whirlpool suddenly formed and sucked me down into a vantablack void.
 
 Everything felt slow, and the impact of landing on a SHARP big rock, broke a rib and punctured one of my lungs. 
 
-My lungs filled up with blood as I landed on a sharp, big rock. 
+Even more gel came up. 
 
-The “blood” was odd… it was gel-like and was black, with this glitter substance inside. 
+My lungs filled up with gel, even more came out, it was pouring as it hit the ground. 
 
-The dark, devoid room changed into a beautiful jungle, 
+Then the atmosphere changed, the sound changed, to something familiar. 
+
+
+
+
+The vantablack changed into a beautiful jungle, everything was too real
 
 the smell of the waterfall and plants. 
 
-“Blood” filled up my nose and mouth.
+The feel of the grass 
+
+I vomited again, again and again. 
 
 I was starting to choke. It wasn’t runny enough to swallow.
 
 
 
 
-Couldn’t take any chances and limped to the white door that was open, coughing wildly, the “blood” stickying the soft cotton of  my beige hoodie. 
+Couldn’t take any chances and ran to the white door that was open, coughing wildly, the “blood” stickying the soft cotton of my beige hoodie. 
 
-The door opened, it felt light. 
+The door opened, it felt light. It WAS the embodiment of light. 
 
-And I entered the light.
+And I entered it.
 
 Everything went white, and I woke up at home.
 
+F: “DUDE FUCKING WAKE UP!”
+
+
+
 My friend doesn’t think we should listen to side B. 
 
+Should we call an exorcist, a paranormal expert? Please let me know.
 
