@@ -4,7 +4,7 @@ We live in the middle of nowhere, on a secluded road that leads into the woods, 
 
 And don't get me started on the dead animals she brings back, I wish she wouldn't. 
 
-It was a Saturday afternoon when I want for a walk with Leia by my side, I often took walks through the forest to clear my mind, and not being able to attend the funeral was getting me to mentally. 
+It was a Saturday afternoon when I decided to go for a walk with Leia by my side, I often took walks through the forest to clear my mind, and not being able to attend the funeral was getting to me mentally. 
 
 I called out to her inside of the house and she was by my side not even ten seconds later, panting and ready to go out. As soon as I opened the door she bolted out at full speed, which made me grin. I love that dog to death. 
 
@@ -16,14 +16,14 @@ Leia was really loud today, louder than usual. I could hear the leaves crunching
 
 She ran up to me. "Oh Leia.." now I'll need to give her a bath. She started shaking the water out and onto me, and then ran back off into the direction of the river.
 
-"Leia! Come back!" I called out again, but she was still running. This wasn't like her. I stood there, completely an utterly confused. My bad gut feeling was only growing stronger. That's when I noticed something odd. The forest was eerily silent today, there were no birds chirping, no leaves rustling. Dead silence. I hadn't been paying too much attention to the nature itself. 
+"Leia! Come back!" I called out again, but she was still running. This wasn't like her. I stood there, completely and utterly confused. My bad gut feeling was only growing stronger. That's when I noticed something odd. The forest was eerily silent today, there were no birds chirping, no leaves rustling. Dead silence. I hadn't been paying too much attention to the nature itself. 
 
-Just as I was about to call out for Leia again, I was her shape bolting toward me again, with her tongue out.   
+Just as I was about to call out for Leia again, I saw her shape bolting toward me again, with her tongue out.   
 She was dirty again. I just turned around and beckoned for her to follow. We were going to head home, I couldn't stay here any longer, something felt really off about the forest today.
 
 The walk back took around an hour, I hadn't realized we had gotten that far from home. Time flies by fast when you spend it inside of your head, thinking of your dead cousin and the happy memories you shared together. 
 
-Leia behaved during the walk back and didn't run off again which saved me some trouble. I hosed her down when we got back to the house, which she really really hated. 
+Leia behaved during the walk back and didn't run off again which saved me some trouble. I hosed her down when we got back to the house.
 
 I felt more comfortable now that I was finally home, but my gut feeling was still screaming at me that something was wrong. Had I missed something? 
 
