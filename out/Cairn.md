@@ -1,6 +1,7 @@
 [(Pt. 1)](https://www.reddit.com/u/Feeling_Easy_/s/Ga2d196yIr)
 
 (Pt. 2)
+[(Pt. 3)](https://www.reddit.com/r/nosleep/s/1o0W4E8pXr)
 
 I thought that it was my mind playing tricks on me at first. I have had it happen before when I was alone on hikes. Natural human paranoia of thinking you hear something in the woods. The standard call of the wild, fear of the unknown. I was making similar time to Allison when I reached the first major outcropping. This mountain was by no means a pure vertical climb, it was steep but still walkable, more wide than it is tall. After a day or so of hiking alongside it I began to climb more. The weather had been abysmal: pouring rain and cold. I had felt the cold work its way through my soaked clothes and start to chill my core. It was at that point that I stopped and took a moment to recollect myself. After setting up for the evening I read more of the journal hoping to figure out if I was still on the right track. 
 
