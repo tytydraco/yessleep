@@ -30,7 +30,7 @@ With my brisk encouragement, she was able to continue. We made it to the river a
 
 
 
-They were unkempt and tattered. One resembled a mastiff, but thin and sickly. Another looked like a labrador with patches of fur missing. They all brandished yellow, with broken teeth and one even had a frayed collar around its neck. 
+They were unkempt and tattered. One resembled a mastiff, but thin and sickly. Another looked like a labrador with patches of fur missing. They all brandished yellow, broken teeth and one even had a frayed collar around its neck. 
 
 
 
