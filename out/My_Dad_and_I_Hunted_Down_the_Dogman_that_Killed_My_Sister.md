@@ -356,7 +356,7 @@ The forest around us seems to fall silent, holding its breath as the nightmarish
 
 With a ferocity that feels both alien and intrinsic, I move towards him. My dad, paralyzed by fear and shock, doesn't run. Maybe he can't. Maybe he doesn't want to.
 
-The encounter was brutal and swift, a blur of motion and violence. My dad barely puts up a struggle, as though resigned to his fate.
+The encounter is brutal and swift, a blur of motion and violence. My dad barely puts up a struggle, as though resigned to his fate.
 
 Not that there is anything he can do. The creature that I’ve become is too powerful, too consumed by the wild instincts surging through me. I tear him apart, limb from bloody limb, my hands—no, my claws—rending through fabric and flesh with disgusting ease.
 
