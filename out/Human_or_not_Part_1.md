@@ -176,3 +176,6 @@ Tracey then stretched his left arm to hit the button. The doors closed just befo
 
 
 I turned around and realised that Tracey and I were not the only ones in the [room.](https://www.reddit.com/r/UnnaturalUniverse/s/PnjyftoweI)
+
+
+[Part 2](https://www.reddit.com/r/nosleep/s/xHz4zDcUjG)

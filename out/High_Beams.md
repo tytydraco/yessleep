@@ -1,67 +1,284 @@
-In the dead of night, under a thunderstorm sending battalions of rain drops onto my car, I was speeding down a secluded two-lane highway. My car was the only source of light amidst the encroaching forests on either side of the highway. The road was familiar territory, a road I have traveled down countless times, yet something about this particular night felt unsettling.
+It was half past nine when my shift at the diner ended. It’s not any place specifically you’d know, though you’d be forgiven for confusing it for a Waffle House given the abundance of cheap, greasy food and drunk clientele. The only thing distinguishing our location was that our doors closed at ten.
 
-It was just past 1AM, and I had just wrapped up another grueling night shift at the hospital. As I began pushing 100 MPH, an unexpected sight caught my eye in the rearview mirror. Two bright lights were rapidly closing in on me. They belonged to another vehicle, an unusual occurrence on this isolated road. Especially at this time.
+  
+  
+It was a cold night in October. The winds felt out of place for the fall season with the sharp way they bit into my skin. Usually, the low temperatures in Grant tended to hover around the mid-fifties. Tonight felt particularly frigid even bundled up in the warm confines of my jacket.
 
-I remember muttering under my breath, a mix of annoyance and disbelief, as the car drew dangerously close, almost tailgating me.
+  
+  
+I hurried through the lot outside the diner, passing by several vehicles. When I made it to my car at the far end, I was quick to put the key in the ignition.
 
-"Come on asshole, I'm the only other car on this road. Just go around me" I said hoping that the other car would magically be able to hear me.
+  
+  
+My car was a special edition Subaru Legacy. The only thing special about it was that it was only by the grace of God that my radiator and engine were still operational given the car was a little over two decades old.
 
-The driver began flashing their high beams at me, intermittently blinding me with bursts of light. I interpreted this as a signal to speed up, but with the rain lashing down, I was reluctant to push my car any faster. In an attempt to defuse the situation, I moved into the opposing lane to let him pass, only to find the other car mirroring my move.
+  
+  
+When you turn the key, the engine would knock. My father said it was indicative of worn-out bearings. Could be an engine getting ready to declare sayonara before it crapped out one final time and departed for car heaven or perhaps car hell given its rough condition.
 
-The chase continued until I finally emerged from the forested area and reached the safety of my home. I darted inside and immediately called the police.
+  
+  
+I knew little about that though; all I knew was that as a poor college student I was having a difficult enough time as is scrambling to make ends meet with a part time job at a diner. Regardless, whatever the solution, the answer involved money. Money I, notably, didn’t have.
 
-When the officers arrived, I recounted the unnerving encounter, but the mysterious car had already vanished. They inspected my car and the surrounding area but found nothing amiss. The officers, unable to take any substantial action given the nature of the incident, eventually left. I managed to fall asleep, but my rest was short-lived. At 4:00 AM, a flood of light through my windows jolted me awake.
+  
+  
+The smart thing to do would be to purchase another used car; though in this economy that sort of thing is far easier said than done.
 
-*How was it already day time*?
+  
+  
+An even harder task than figuring out the financing for a replacement vehicle was getting this stubborn thing to turn. The engine threatened to exhibit life but would stop short of properly starting.
 
-After looking out the window, I soon realized that it was the same high beams, now casting an eerie, fiery orange glow into my room. I called the police again, but the car had disappeared by the time they arrived. The same officers, now visibly irritated, conducted a half-assed check and left, offering little assistance.
+  
+  
+It was about the fifth round when my engine found the energy to fight the good fight on this frigid night. The engine knocked fiercely, reverberating inside the hood for a few seconds before the noise steadied itself.
 
-The following morning brought further confusion. I received a call from the hospital, abruptly informing me of termination, followed by hanging up on me when I tried to ask why. When I attempted to call back, the phone number was disconnected. Determined to seek answers, I drove to the hospital, only to be confronted by an impassable barrier of orange cones and a fallen tree blocking the only direct road to the hospital. Frustrated and lacking the energy to find an alternate route, I returned home, planning to address the issue of my final paycheck later.
+  
+  
+I sighed in relief and backed out of my parking spot in the back of the lot.
 
-That same night, and every night for the following week, the high beams returned, each visitation at 4:00 AM, intensifying my sense of dread. The car was silent and would always vanish before the police could arrive, who were now convinced that I was fabricating the story.
+  
+  
+As I left, I couldn’t help but notice something out of the corner of my eye. A man, a very rugged specimen of the male sex adorning a blue baseball cap and a grizzly beard, was approaching my vehicle at a brisk pace. Where I was the only one stationed at the back of the lot, it seemed odd he was coming my way. 
 
-As the days passed, a surreal sense of isolation enveloped me. My social media seemed frozen in time and my 'for you' page would not update. I couldn't get a hold of anybody over the phone and was instead met with the beeping of a disconnected number. I stopped seeing cars going through my neighborhood and would no longer see anybody walking the streets.
+  
+  
+I turned my head to acknowledge him. That’s when he began to break out into a full-on run. 
 
-The outside world seemed eerily absent, save for the nightly visits from the mysterious car. The police stopped responding to my calls, and the town appeared to be closing in on itself, with construction work cutting off access to roads, including my own street.
+  
+  
+My heart raced almost as fast as my car. I slammed the pedal down and sped out of the lot, the tires screeched loudly along the pavement as I veered to a sharp right.
 
-As time passed on, my memory began to falter. It began with trivial things, such as where I vacationed 2 summers ago. But my memory continued eroding, to the point where I forgot the name of the hospital I worked at. By the seventh day, my own identity seemed like a distant, fading echo.
+&#x200B;
 
-On the night marking one week since my first encounter with my nightly visitor, I was overcome with frustration and fear when I was awoken by a flood of light at 4:00 AM. Armed with a baseball bat, I ran outside to confront the car. I began screaming profanities at it, asking what it wants from me.
+  
+I was lucky the road didn’t carry heavy traffic around this time of night. Where my eyes were focused on him, I was damn near lucky I hadn’t plowed directly into someone.
 
-As I got closer to the car, I was met with an unfathomable reality. The car wasn't a car; a void rather than a physical object. Suddenly, something I can only describe as a bubble seemed to form on the blank canvas of the void. The bubble popped open, revealing another flood of light. Similar to looking down into a well, I hunched forward over the hole and looked into it.
+  
+  
+I sped along the highway and tried to rationalize why this lumberjack looking fellow had charged me. News reports of human trafficking came to mind, but it wasn’t really anything you heard much about in a place as remote as Grant Alabama. 
 
-A blast of scorching, putrid air enveloped me; it was like standing at the mouth of an active volcano, the heat so intense that it drenched me in sweat within seconds. The image was so horrifying, so beyond the realm of human understanding, that it seared itself into my memory. I saw a vast, endless hellscape, a grotesque panorama of suffering and torment. The floor was a writhing mass of human figures, all on fire, blanketing the ground in a chaotic tapestry of pain. There were people everywhere, their bodies contorted in agony, their screams echoing through the chasm.
+  
+  
+For crying out loud, we physically were so remote one of the miniature cities within Grant was called Bucksnort. We were about as far from the Big Apple, or any real semblance of civilization, one could get.
 
-Above this sea of suffering towered monstrous entities, colossal in stature and terrifying in aspect. Their skin was a mix of dark red and bruised purple, resembling decaying flesh that clung to their enormous skeletal forms. Their eyes, glowing like embers from deep pits, radiated malevolence and hunger. Their hands, if they could be called hands, were massive, gnarled appendages, each finger ending in a claw that dripped with blood and human organs. Their faces were a blend of human and beastly features. Twisted mouths filled with rows of jagged, shark-like teeth. Their expressions were devoid of any humanity.
+  
+  
+After a minute of driving, I slowed down, especially when I heard something in the engine rattle. This car wasn’t designed for no races or wild chases. Not with the amount of age it carried. 
 
-These demonic beings continuously scraped their claws against the ground with a sound like metal on stone. Every swipe of their massive claws was a death sentence, executed with a brutality that defied comprehension. Flesh burned and bubbled under their touch, blood sprayed in grotesque arcs, painting the hellish landscape in a macabre palette.
+  
+  
+Besides, I was alone. Safe.
 
-The air was thick with the stench of charred flesh and sulfur. The ground itself seemed alive, a fiery pit that consumed and tortured the souls trapped within its grasp. I saw faces, ones that contorted in unimaginable pain, their eyes pleading for a mercy that would never come.
+  
+  
+At least that’s what I thought before I heard the blaring of a truck horn. An eighteen-wheeler was coming up behind me. Given I was the only other soul visible on this lonely two lane stretch of highway, it was clear they were honking at me.
 
-I stood there, immobilized by terror, as the ghastly vision of hell presented itself before me. Days seemed to pass in that moment of profound dread, every second stretching into an eternity of fear. I began backing away slowly, a sense of reality clawing its way back into my consciousness.
+  
+  
+I prayed to God and kept moving.
 
-But as I started to back away, I felt multiple hands gripping me with an iron force. For a fleeting second, hope sparked within me at the sight of police uniforms - perhaps they came back to save me. This hope was brutally extinguished as their faces twisted grotesquely, revealing pitch-black eyes and rows of razor-sharp teeth. They weren't there to save me, they were there to cast me into the void. Their grip burned my skin to the touch, giving me blistering burns on my arms.
+  
+  
+The big rig followed closely. We went down the road for two miles when suddenly my vision was obscured in a bright light.
 
-My screams echoed in the nothingness that surrounded us. My home, my neighborhood - everything familiar had vanished, leaving me in an isolated expanse of darkness. As they dragged me closer to the void, panic surged through me. I thrashed and kicked until, by some miracle, I broke free from their grip. I ran blindly into the void, fueled by pure instinct, my only thought to escape the horrors behind me.
+  
+  
+The trucker was flashing his high beams. I could barely see when he hit me with them. I nearly swerved off the road when he did it.
 
-As I ran, a glimmer in the distance caught my eye. Approaching it, I recognized the outline of the hospital where I had worked, standing alone in the engulfing darkness. The growls of the officers grew louder as they got closer. I pushed my body to its limits, every fiber straining, until finally, I lunged through the hospital's front doors. The impact was rough, my head slamming against the floor with a force that sent waves of pain radiating through my skull.
+  
+  
+After a few seconds the mounted flood lights on his vehicle relented and the blinding rays ceased their assault on my eyes.
 
-As I lay there on the edge of consciousness, I realized the officers had vanished. My vision blurred and a severe headache set in, each pulse amplifying the pain. Then, suddenly, a flash of light blinded me, reigniting my terror - was the car back to claim me?
+  
+  
+I moved my car to the right lane to let him pass. He had no intention of doing so. His signal made that clear when he merged behind me.
 
-Time seemed to stretch endlessly before my vision began to clear, revealing more and more about my surroundings with each painful blink. Looking down, I saw my body, my right leg and arm encased in casts. I was in the hospital, my workplace, but now as a patient. I weakly pressed the assistance button, and soon, familiar faces appeared. Doctor Williams and several nurses entered, their expressions a mix of relief and concern.
+  
+  
+Drops of rain began to pour from the sky lightly tapping my windshield.
 
-"You're finally awake. We've all been waiting for you to wake up. I'm sure you're confused about what's going on. We had a really bad thunderstorm tonight. After your shift, you must have gotten caught up in it because your car was found smashed into a tree on the side of the road. Two officers managed to find you shortly after and had you brought here." Doctor Williams then hesitated before continuing on, "you were clinically dead for 14 seconds. We called our neurologist in and she hasn't found any signs of brain damage. Your arm and leg are broken, you have a concussion and some internal bleeding, but you're going to be alright."
+  
+  
+**Plop…plop, plop…plop.**
 
-There words painted a starkly different reality from what I had experienced. Confusion ensued when I mentioned being fired - they assured me that no such termination had occurred.
+  
+  
+My car didn’t handle well with slick roads. Fortunately, I wasn’t too far from home. Maybe another seven miles.
 
-As I lay in the hospital, trying to get a grip on reality, I glanced down at my arms. I noticed peculiar, blistering burns on my skin.
+  
+  
+The fiery orange glow flooded the cabin of my car and I yelped. 
 
-"Doctor Williams," I began hesitantly, "why do I have these burn marks on my arms?"
+  
+  
+I fumbled in my purse. One hand on the wheel, one digging desperately for my phone. With my visibility being periodically robbed, I was already a hazard on the road. Might as well risk compounding the issue if it meant I could get in contact with the police.
 
-Doctor Williams, who had been reviewing my chart, looked up in confusion. "Burn marks?" he echoed, clearly surprised. He moved closer to examine my arms more carefully. As his fingers gently traced the contours of the reddened skin, his eyes widened in shock. "These... these weren't here before," he murmured, almost to himself. "And your skin... it's still radiating heat, as if these burns just occurred."
+  
+  
+When the high beams vanished, I managed to pull out my phone and dial 911.
 
-A shiver was sent down my spine. The burns bore an uncanny resemblance to the shape of human hands - the very hands of the officers that had gripped me, trying to drag me into the abyss. The realization hung heavily in the air between us as Doctor Williams struggled to find a logical explanation for the burns. There was no medical explanation as to why I had burns on my arms.
+&#x200B;
 
-Dr. Williams eventually departed, leaving me alone with a whirlwind of thoughts. Was the entire ordeal merely a hallucination, a byproduct of my oxygen-starved brain? The unexplained burn marks on my arms argued otherwise. They say that in death, you should head towards the light. Yet, in my experience, the light was a deceptive lure to something much worse. As I began getting lost in my thoughts, I was quickly snapped out of it upon noticing a bright light filtering through the curtains of my hospital window. 
+  
+The operator answered after two rings. “911, what’s your emergency?” The man that answered the call sounded bored out of his mind, like he’d rather be anywhere else on a Saturday night.
 
-"It's probably just a car. It was all just a hallucination, there isn't anything to worry about." I whispered to myself, ignoring my burns which suggested otherwise. I tried ignoring the light as long as possible, but curiosity is getting to the best of me right now. I think I'm going to go see what's outside the window - just in case.
+  
+  
+I didn’t care if he was bored, entertained, playing with himself. As long as he could send someone out that’s all I cared about in the end.
+
+  
+  
+“There’s a maniac tailgating me,” I said.
+
+  
+  
+The operator’s voice clipped. Though from what I could understand of the roboticized sound coming out from his end of the line, I could tell from his tone he remained unenthused. “Ma’am, you’ve called an emergency line.”
+
+&#x200B;
+
+  
+“Y-you don’t understand! I was leaving work and this man started chasing me. I-I think he’s trying to hurt me.”
+
+  
+  
+The operator fell silent for a few seconds. For a moment, between the rainy weather and the flaky signal, I thought I’d lost him. His voice reemerged seconds later. “Where are you?”
+
+  
+  
+I rattled off the highway number I was driving on and told him my home address. 
+
+  
+  
+“I’ll get an officer dispatched in the area. ETA should be around ten minutes.”
+
+  
+  
+Ten minutes. Six hundred seconds. Toss whatever metric you wanted to use to measure it out, with that big rig riding close behind me and the driver intermittently blinding me when they felt like getting their rocks off, it might as well have spanned an eternity. I was going to be lucky I didn’t crash into a guardrail or land myself in a ditch.
+
+  
+  
+“Make that around fifteen minutes,” the operator clarified, his crackled voice twisting the knife deeper into me with his update. 
+
+  
+  
+I made the turn off the two-lane highway. I didn’t signal when I did it. I was hoping the sudden movement would have had my unwanted friend in the big rig blow past me. 
+
+  
+  
+“Ma’am?”
+
+  
+  
+ For a moment, I believed it worked. No more blinding lights. The only sound was the operator fishing for a response and the pitter patter of rain on my windshield.
+
+  
+  
+My sigh of relief became a choking noise lodged inside my throat as I saw the eighteen-wheeler backing up. It didn’t turn on a dime, but he was moving fast enough. 
+
+  
+  
+The road up ahead winded with hairpin curves. I didn’t know how long I’d have until those lights were upon me. Till he was upon me.
+
+  
+  
+The phone clicked and the call abruptly ended.
+
+  
+  
+I cursed under my breath while my engine knocked like an irate person trying to beat down a door. My Subaru was rapidly approaching its limit. I had to think fast.
+
+  
+  
+These were my options: I could risk speeding and hoped the engine would hold out till I made it to the house, or I could continue driving at a steady pace. If the first option proved successful, he might not see where my vehicle would vanish. If it didn’t, my car might leave me stranded. That’s assuming I didn’t wreck myself taking a turn too fast.
+
+  
+  
+The other option would be safer, but I’d be visible to him. Though with some of these curves I feared if he hit me with the high beams again, I’d be at risk of crashing. Where the area of road ascended, one wrong turn would mean a long journey down.
+
+  
+  
+It would mean certain death.
+
+  
+  
+Taking a sharp intake of breath, I pulled out my phone and called my husband. The only answer I got was his voicemail urging me to leave a message at the tone.
+
+  
+  
+“Billy, there’s a lunatic after me. I’ve called the cops. Please…please be ready. I’m only two minutes away.”
+
+  
+  
+It wasn’t the most inspiring call to action. My husband wasn’t Billy Badass. He was more like Billy the Stamp Collector. Benign hobbies. Soft spoken. Wouldn’t hurt a fly. 
+
+  
+  
+Still, I was counting on his presence to deter Mr. High Beams behind me. It was a desperate ploy, but it was all I could think of on such short notice.
+
+  
+  
+I made the turn into the dirt trail that led to my driveway. As I was pulling in the porch light flickered to life. Maybe. It might have been those high beams. They illuminated my cab in a flood of light once more obscuring my vision.
+
+  
+  
+The door to the house opened and a figure ran out of the entryway. My husband from what I could discern of the silhouette. Our dog Jasper, a black schnauzer with more bark than bite, darted out the door. I couldn’t see the little guy, but I heard him.
+
+  
+  
+I stopped the car and shoved open the door. I bolted out of the seat, nearly tripping over my own feet with my frantic departure. 
+
+  
+  
+Jasper started barking up a storm, even before the big rig came to a standstill. 
+
+  
+  
+The door of it opened and the bearded man stepped out of the vehicle.  
+  
+
+
+Strangely, my dog paid the trucker little mind. Jasper’s eyes remained fixated on my Subaru. He began to snarl.
+
+  
+  
+“Get away from the car,” the man bellowed. He pulled out a gun and pointed it at an angle, almost like he was aiming at my vehicle. 
+
+  
+  
+Was this how my life was going to end? Shot dead when I was at the finish line, where I was supposed to be safe?
+
+  
+  
+My husband Billy babbled. “S-sir, please. You don’t have to do this.”
+
+  
+  
+The trucker shook his head. As he did, the sound of sirens began to blare in the distance. He didn’t answer us. Instead, he lowered his gun into his holster and stood still as a statue all while my dog continued snarling and barking at our vehicle.
+
+  
+  
+When the police came, guns drawn, he remained calm. 
+
+  
+  
+“I’m not the one you want,” he said. “The car. Search the car.”
+
+  
+  
+Even to this day, I still remember in vivid detail what happened. When the police opened the rear driver door, there was a gaunt looking man back there crouched in the floorboard with a knife clenched in his hand. The wide, manic look lingering in his eyes remained far colder than the frigid winds blowing around us.
+
+  
+  
+The trucker explained later that he saw the man inside my vehicle wielding the blade. He must’ve snuck inside before my shift ended. Once the driver realized what was going on, he’d tried to intervene.
+
+  
+  
+Every time the person in the backseat had attempted to overpower me, to harm me, the trucker turned on his high beams. It scared my unknown passenger. The sight of the light made him hide.
+
+  
+  
+The police hadn’t offered much in the way of details concerning who my stowaway was; given the six inches worth of blade he held, not much imagination was needed to map out what the strange man planned to do to me.
+
+  
+  
+I learned on that cold, lonely October night to never judge a situation wholly by appearances. I was grateful to that truck driver. If it weren’t for his persistence, I would probably not be alive today to share my story.  
