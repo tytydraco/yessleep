@@ -26,7 +26,9 @@ Followed by, **“BE WITH THE BEST, AND BE THE BEST. JOIN THE S CLASS NOW.”**
 
 When I googled the academy, nothing came up. 
 
-I gave up, clicking on the ad, which sent me straight to an application form. 
+It didn't exist, at least on Google. 
+
+So, I gave up, clicking on the ad, which sent me straight to an application form. 
 
 I filled in my details as more of a joke. But I wasn't expecting to get an email back. Again, it was a time, a date, and that exact same tagline: “Impress us.”
 
@@ -52,7 +54,9 @@ Though I had also seen a girl casually walk in wearing a two piece bikini.
 
 “Well?” 
 
-Freddie’s voice made me jump. I forgot I was on the phone to him. I was excited the whole car-ride, already high on five coffees, and now I was silent. 
+Freddie’s voice made me jump. I forgot I was on the phone to him. 
+
+After being excited the whole car-ride, already high on five coffees, I was silent. 
 
 If I perceived the ‘academy’ from an objective standpoint, it definitely looked like the perfect place to be brutally murdered. But my own personal opinion was it was.. *okay.*
 
@@ -70,7 +74,9 @@ Which was to turn around, walk away, and completely block the place from my memo
 
 Unfortunately, at that moment, I valued my pride over my awareness. 
 
-“It's… okay.” I said, trying to find positives. I was staring at a looming grey building with shattered windows and a resident rat living near the door. I had a hard time figuring out how the girl from earlier had just casually strode inside, barefoot too. I glanced down at the ground, immediately regretting it. 
+“It's… okay.” I said, trying to find positives. I was staring at a looming grey building with shattered windows and a resident rat living near the door. 
+
+I had a hard time figuring out how the girl from earlier had just casually strode inside, barefoot too. I glanced down at the ground, immediately regretting it. 
 
 Like there weren't bits of chewing gum and grime stuck to the concrete.
 
@@ -86,7 +92,9 @@ I was getting progressively more infuriated the more I stared down this place. J
 
 “That's, uh, that’s not really necessary–”
 
-I was cut off, suddenly, when a guy threw himself through the automatic doors, palms first. He took two stumbled steps forwards, one back, and lifted his head, half lidded eyes finding the sky, before dropping to his knees and heaving up pinkish liquid. 
+I was cut off, suddenly, when a guy threw himself through the automatic doors, palms first. He took two stumbled steps forwards, one back. 
+
+Lifting his head, half lidded eyes found the sky, before he dropped to his knees, heaving pinkish liquid. 
 
 I could see him trying to hold it in, slamming his hands over his mouth, only for it to splurge through his fingers, showering the ground in greyish pink froth. 
 
@@ -172,7 +180,7 @@ Before I could make it to the doors, though, Pepto jumped in front of me, waving
 
 By now, he had tufts of hair stuck between his fingernails. I don't know why his first reaction was to immediately try ripping his hair out. 
 
-A quick glance at my own phone reminded me of my own audition that was in five minutes. 
+A quick glance at my own phone reminded me of my audition that was in five minutes. 
 
 Meanwhile, I was dealing with what I was pretty sure was delusion, denial, or a mixture of both. 
 
@@ -318,9 +326,11 @@ I was three lines in, when Red started laughing.
 
 “Stop.”
 
-I did, my cheeks heating up, and she started clapping. 
+I did, my cheeks heating up. 
 
-“Sweetie, oh, stop, you're adorable!” She said, her lips curving into a cruel smirk. 
+She clapped loudly. Obnoxiously. 
+
+“Sweetie, oh, stop, you're adorable!” 
 
 She leaned forward, like I was something that entertained her, jostling her heeled foot. “We don't take amateurs. I think you need to go back to school.”
 
@@ -368,7 +378,7 @@ She turned her attention to her nails, nudging the guy.
 
 They ignored me, getting a little *too* close. 
 
-I don't know why I continued, reading my lines, screaming them, so I would be heard. I read them perfectly, and tweaking the genre from drama to romance, and then to horror. I became three different characters, a high school girl struggling with cancer, a final girl, and a woman going through a divorce. 
+I don't know why I continued, reading my lines, screaming them, so I would be heard. I read them perfectly, and tweaked the genre from drama to romance, and then to horror. I became three different characters, a high school girl struggling with cancer, a final girl, and a woman going through a divorce. 
 
 I was fucking perfect. 
 
@@ -402,7 +412,7 @@ They lost interest again, right in the *middle* of my reading.
 
 “Why can't you look at me?” I found myself spluttering. 
 
-When the man pulled out a bottle of water, I pulled off my heel and lobbed it at his face. 
+When the man pulled out a bottle of water, I yanked off my heel and lobbed it at his face. 
 
 “Look at me!”
 
@@ -414,7 +424,7 @@ Around the twentieth attempt, I started to laugh. Never been done before? I coul
 
 Reality contorted, and I felt myself drop to my knees. I was still laughing, spluttering, sobbing. I could still hear her in my head. Never Been Done Before. I started slowly, dragging my fingernails down my face until I felt the harsh sting. 
 
-“Again.” Red said, and her voice led me to stare down at my hands, at pinkish flesh glued to my bones, fleshy mounds. 
+“Again.” Red said, and her voice led me to stare down at my hands, at pinkish flesh glued to my bones, fleshy mounds that I had never realized was so thin. 
 
 So easy to tear. I didn't even feel it. 
 
@@ -452,7 +462,7 @@ When I stumbled to my feet, Red’s smile was so beautiful.
 
 The man, however, looked horrified. 
 
-“Someone bring in the one of the successes,” Red’s voice was a shrill giggle, “Bring him in!” she clapped her hands together, and I spat out a fleshy thing. “I want to see them together! I want to see the future in front of us!”
+“Someone grab one of the successes,” Red’s voice was a shrill giggle, “Bring him in!” she clapped her hands together, and I spat out a fleshy thing. “I want to see them together! I want to see the future in front of us!”
 
 Footsteps coming towards me in slow, shuddery thumps. I looked up, and a shadow was dancing around me. 
 
