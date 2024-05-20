@@ -110,9 +110,12 @@ It screamed in pain.
 I ran towards it and jumped on it , Ready to cut off its head. It caught my leg and threw me into a wall. 
 
 
-It then lunged at me using the force of its arms , It was much stronger than me in terms of raw strength. Then it grabbed my legs and arms with each of its arms , It....was ripping me apart.
+It then lunged at me using the force of its arms , It was much stronger than me in terms of raw strength. Then it grabbed my legs and arms with each of its arms , It pinned me to the wall again.
 
 
-But its attention was diverted before it could completely rip me apart. Jason had stabbed the egg's eye using the [knife.](https://www.reddit.com/r/UnnaturalUniverse/s/0pdEiP3lmg)
+But this time , I couldn't move or defend myself. It's head got closer to mine , It opened its mouth full of teeth.
+
+
+But its attention was diverted before it could bite me. Jason had stabbed the egg's eye using the [knife.](https://www.reddit.com/r/UnnaturalUniverse/s/0pdEiP3lmg)
 
 
