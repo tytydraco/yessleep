@@ -146,13 +146,13 @@ I cried out and recoiled from his every touch with disgust, but he was stronger 
 
 And then those terrible hands grasped my shoulders again, and I was paralyzed by a terror that could be called nothing but ancient and primal. Like the thing standing behind me was the same force that had kept my ancestors huddled terrified in their caves a hundred thousand years ago, and every one of those voices was crying out to me through my very blood. And it pulled me from my chair, threw me as though I were weightless… and the next thing I knew, I was waking up in the infirmary.
 
-Once more, none of this was captured on the security camera. In the footage, I just enter the room and have a seat with strange, almost robotic movements. And them the both us just sit there, staring at eachother, without speaking, without moving, without blinking. For an hour.
+Once more, none of this was captured on the security camera. In the footage, I just enter the room and have a seat with strange, almost robotic movements. And then the both us just sit there, staring at eachother, without speaking, without moving, without blinking. For an hour.
 
 After this, Joseph Glass entered a catatonic state, and from then on refused to converse with even me. Now that my usefulness had ended, the agents discarded me like yesterday’s trash. Don’t even seem to care if I tell anybody. Who would believe me?
 
 I thought I’d gotten lucky. That my nightmare was over. I couldn’t have been more wrong.
 
-Go sorting through any public records, and you won’t find a single mention of the name Joseph Glass. They’ve squirreled him away in that off-the-books blacksite and scrubbed away every other trace of him. I’d say he’d been unpersoned, if indeed he could ever be called a person at all. But they’re still trying every execution method in the back. I don’t know quite why. Maybe it’s for research. I’m sure the US military would love to find the secret to making its men as unkillable as Glass. And besides, they’re not the ones who have to deal with the consequences.
+Go sorting through any public records, and you won’t find a single mention of the name Joseph Glass. They’ve squirreled him away in that off-the-books blacksite and scrubbed away every other trace of him. I’d say he’d been unpersoned, if indeed he could ever be called a person at all. But they’re still trying every execution method in the book. I don’t know quite why. Maybe it’s for research. I’m sure the US military would love to find the secret to making its men as unkillable as Glass. And besides, they’re not the ones who have to deal with the consequences.
 
 On June 3rd, 2005, they tried a firing squad. I know this because me and my wife were out on our second honeymoon, slow dancing by the lake at night to our favorite song, when I felt a wetness against my chest. I looked down to see her eyes as gray and dull as foggy glass, and her chest shredded to swiss cheese by rounds that made no sound.
 
