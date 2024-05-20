@@ -94,7 +94,7 @@ I shook my head, and he sighed. “Back in `63, they found a woman’s body in t
 
 “It… didn’t sit right with me. The way I see it, Mendez, every life matters. Even the ones we try and cast aside. Everybody’s got people who love them, and childhood memories, and all that. Everybody deserves *justice*. No matter who they were.” He set down his glass and looked me in the eyes. “So I joined the force. Got the case reopened. Found the guy. And I watched him fry. And I like to imagine she was there watching, too, as he burned.”
 
-There was a tense moment. And then a chuckle. “Course, after that bullet to the hip in `71, I couldn’t walk the beat anymore. But I’ve been just as happy here. Watching justice be served… it makes me feel like there’s some kind of karmic order to the world. Like there’s some justice. Good deeds and bad deeds get repaid in kind.”
+There was a tense moment. And then a chuckle. “Course, after that bullet to the hip in `71, I couldn’t walk the beat anymore. But I’ve been just as happy here. Watching justice be served… it makes me feel like there’s some kind of karmic order to the world. Good deeds and bad deeds get repaid in kind.”
 
 It was clear there was something lurking beneath his words, some unspoken thesis. Eventually, with old, wrinkled, tired eyes, he said it. “I’ve thought about it, and… if Glass doesn’t die tonight, I’m finally going to retire, Mendez,” he confessed. “After what he did to those girls, what kind of… what kind of order can there be in a world, where a monster like that is just… beyond justice?”
 
