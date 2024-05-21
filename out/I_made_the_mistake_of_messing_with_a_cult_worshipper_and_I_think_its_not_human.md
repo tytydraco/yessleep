@@ -1,0 +1,21 @@
+[Part 1](https://www.reddit.com/r/nosleep/comments/1csc6wd/theres_a_reason_why_im_not_a_night_person_anymore/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button) and [Part 2](https://www.reddit.com/r/nosleep/comments/1cw3i3g/my_daughter_vanished_during_a_visit_at_her/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+
+
+
+If you're seeing this, then I'm far too gone, I think I might die tonight, maybe not, I don't even know, but if I do, please... Spread the word about this, but before I tell my story, I should give some information about myself, my name is Chris and I'm a 22 year old male, I live in a small but nice town with a few residents, I'm not sure if THEY'RE gonna be okay... Oh, my town is also near a suburb with a big park, I never went to it, but I did hear about disappearances related to the place, I guess I should tell you all what happened...
+
+
+
+So one night after a grocery run, I was walking along the sidewalk, I'm a careful person who doesn't want trouble of course, suddenly once I walked past a sketchy alleyway, I heard mumbling of sorts, being a curious and idiotic human being I am, I took a peek through the alleyway, I saw a hooded figure, doing a bowing session, mumbling "The Silencer will save us." over and over again, I saw a lot of writing on the walls, some saying "I live to serve the angel to our silent minds." or "Rejoice The Hour Of Silence." one stood out the most, it wasn't a writing though, it was a drawing of some... Creature's hand, it looked inhuman and robotic, spindly fingers that came down from above, like an angel coming from the heavenly clouds.
+
+
+
+I didn't wanna bother him, I've seen worse before of course, so I just walked off, but the next day during the day, I saw that hooded figure again, but this time, they were dumping something in... What I can only describe as an ancient bowl, I quickly got out of there as fast as I can, not wanting any trouble of course, I saw him again for an entire week, but recently, like, today recently, everything changed, I walked past the alleyway of that... I guess cult worshipper, I heard him talking to himself, or to someone, I was growing tired of his nonsense, but listened to his blabbering, and I could swear... I could hear another voice speaking to him, I only heard him say. "Yes my god, what do you need me to do?" and "I'll get that done, my savior." that was the final straw, I walked up to him and tapped his shoulder and spoke in an annoyed voice. "Hey buddy worship your 'God' somewhere else-" the figure turned around and kicked me out of the alleyway, I held my belly as he kicked me there.
+
+
+
+"You just don't get it... Do you..." He said, now I could make out his accent to be Australian, I looked up at him in a terrified look. "The Silencer is my GOD, my SAVIOR, and you DISRESPECT HIM LIKE THAT?!" In rage, he put his hood down and stepped into the streetlight, now I could see... He wasn't human, he had holes all over his body, metal parts exposed, his feet were just pieces of metal. "You know... You could be a good sacrifice to my lord, now just stay still while I KILL YOU..." Once he said that, my only instinct was to start running as fast as I could, but I could see he was faster, he looked different however, he looked deranged and insane, his hands trembled, not in fear, but in eagerness, it wanted to serve me to his 'God' but once I turned a corner, he tripped and fell on a big piece of rock, which seemingly knocked him out despite him being a metal robot creature.
+
+
+
+I returned home, out of breath, tired, sweaty, and afraid, once I calmed down, I gave 2 of my friends a call, one said he could come, but one couldn't make it, as he was still in grief over the loss of his daughter, I heard what happened so I respected his decision of course, now I'm typing this, waiting for my other friend to get here, but I'm scared that... THING might come after me before my friend gets the chance to arrive, all I have to do is pray, wait, and listen, just a little tip for all of you, never, and I mean never, mess with a cult member, ever in your life...
