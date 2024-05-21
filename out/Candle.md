@@ -1,426 +1,289 @@
-When a tragedy happens, it's the weirdest thing. There's no music to build tension. There's no foreboding presence. There isn't something stitching together inclinations that maybe anything else aside from the ordinary is ever going to happen. The moment it does, however, the moment a travesty rears its foul maw and bares its fangs of misfortune and grief, it comes and goes in the blink of an eye. It quickly leaves only the bystanders and survivors to witness the wake of its unpredictable rage.  
+On that morning, I found myself in a science class. The details of the assignment escape me now, for all that remains etched in my memory is the intense dread that was about to unfold. In the blink of an eye, everything changed. The events that ensued happened so quickly.
 
+ It was awesome in the way that it was awe-inspiring, but the awe was for the sheer magnitude of abject fear. Without warning, my ears popped from a sudden and drastic change in air pressure. In the following instant, a jarring rumble shook the entire classroom, accompanied by a deafening blast that robbed me of breath. Instinctively, we abandoned our unfinished finals and we hastily made our way toward the aisle between the rows of desks, surprisingly maintaining a semblance of order. 
 
-The first day I saw him, my mother had just passed away. I was 17 when it happened, nothing more than a background character in a school full of similar souls. I lost my mother to a fire at my high school, which claimed 9 lives. I remember it was a cold day in November, and there was a buzz among the students for the 4 day weekend we were granted in light of Thanksgiving. We were all eager to leave for the break but this prospect hung in the shadow of semester finals which stood between us and our reprieve.
+The blaring fire alarm pierced through the air as our teacher wasted no time in guiding us out of the classroom. I felt like a lamb lead to slaughter. We followed the teachers' lead, navigating the corridors toward the nearest exit. As I turned a corner, my mother's classroom came into full view, and what I beheld was a nightmare made manifest.
 
-My mom worked as the English teacher for juniors, situated on the lowest floor of the school. We all liked to call her room The Dungeon regardless of the teacher or class offered because the classroom was simply in the basement. The walls that edged the descending stairs were clad in exposed water and gas lines which sat in contrast against the concrete walls. The stairs had that weird rubber or maybe vinyl appearance that all together led to a classic prison presentation.
+ A surreal terror gripped me, freezing me in place. My mother's classroom door, blown off its hinges, lay against the opposing wall in a splintered heap. The space between the door and frame was filled with an enraged inferno, desperately and forcefully bellowing from within. I was the observer who was now left to bear witness to this wake. 
 
-I was in my science class that morning, working in a small team with my best friend and some girl we used to know. Our assignment for the day? Dissecting baby pigs and identifying their organs. Just kidding. I can't honestly recall much else of that day except that we were working on our finals.
+I don't know what compelled me to charge into that blazing fortress. Was it a delusion of invincibility? A desperate belief that I could save her like a superhero? Or was it a simple act of need, driven by an unexplainable force? I cannot say.
 
-Everything that followed happened so quickly. It was awesome in the way that it was awe-inspiring, but the awe was for the abject fear that ensued.
+ I pushed through the wall of flames and smoke, and I descended the staircase in a manner fitting of an infant; erratic, frantic, and without coordination. And there, at the bottom step, an unusual coldness enveloped me. Though darkness cast by the smoke enveloped everything, a faint glimmer from a small window illuminated my mother's desk. 
 
-&#x200B;
+A person who was wailing in apparent agony was across the room, however. The acrid stench of burning flesh and hair assaulted my senses, threatening to overpower me. Gradually, my eyes adjusted to the darkness, granting me an unwelcome gift of sight. The horrifying images etched themselves deeply into my psyche—charred bodies strewn across the floor, their limbs twisted and contorted. Some still smoldered, consumed by thin lines of crimson crawling greedily along their blackened skin, reduced to ash.
 
-As I recall, we were wrapping up the evidence needed for our report when suddenly my ears popped like I had rolled down the window in a fast-moving car. This was immediately followed by a jarring vibration experienced by the whole classroom and a deafening, concussive force that stole the breath from my lungs. A shower of water followed immediately after. As I swiftly rose from my desk, my chair shot backward and clattered with a startling force against the table behind me. I noticed the blaring fire alarm as my hearing quickly crawled back to my awareness. Our teacher, Mr. Smik, wasted no time and rushed us out of the classroom.
+ The scene was catastrophic. 
 
-&#x200B;
+It was repulsive. 
 
-We were orchestrated by the teachers like frightened animals, herded towards the nearest exit. Down the hall and to the left, downstairs to the lower level, and then outside. When we rounded the corner with my mothers' classroom coming into full view, I was greeted by a conceptual nightmare. I was suddenly and firmly frozen in place. My heartbeat seemed to stop, and yet it was beating harder than it ever had before. I was simply the bystander who was now left to bear witness to this wake.
+A nauseating sensation crept up from within, that familiar prelude to vomiting. I fought to suppress it, driven by a compelling instinct to find the crying emanating from an overturned desk in the far corner of the room.
 
-&#x200B;
+ "That must be my mom... she's still alive!" I thought so naively. 
 
-My mother's classroom door, blown off its hinges, lay against the opposing wall in a splintered heap. The space between the door and frame was filled with an enraged inferno, desperately and forcefully bellowing from within.
+My path was obstructed by the lifeless forms of a classmates.Deep down, my gut warned me to leave the scene to my imagination, but I ignored its plea. Almost reaching the desk, my attention was drawn to yet another body lying in my path. This one was slightly larger than the others. It took only a moment to realize the unthinkable—this was my mother. Her right side was gruesomely absent, her eyes clouded with milky white, and her jaw hung slack. She had lost an arm... and a leg.
 
-&#x200B;
+ Dead. 
 
-I don't know what I thought when I ran into that fire. I don't know if I thought I could save her like some invincible superhero or if I was simply running in because I needed to. I don't know. I broke through the wall of flame and smoke, and immediately past the door frame, the fire was no longer burning. I descended the staircase in a manner fitting of an infant, erratic, frantic, and without coordination.
+My mother lay lifeless at my feet. 
 
-&#x200B;
+The sound of sobbing erupted again, originating from behind the desk. No discernible words, just heartbreaking sobs. Setting aside my grief for the moment, cloaked in shock, I left my mother's side to aid this person. The true magnitude of the disaster had not yet fully sunk in, the rationalization that no human could have survived. 
 
-I lost my footing halfway down the stairs and fell with abandon, but I was lost in adrenaline and hardly noticed, regaining my balance on the last few steps.
+The crying grew louder as I approached, echoing not only in my ears but in my thoughts. It drowned out the clamor of the alarms, urging me to forward. It was as if I had been ensnared in a waking dream, where the cries became my sole focus, blotting out everything else. 
 
-&#x200B;
+Reaching the desk, I cautiously peered behind it, my eyes drawn to a huddled figure in the corner. His blackened skin mirrored the others, and he possessed little remaining hair. Tremors coursed through his body as he faced the wall, his arms extended limply, hands hanging delicately from his forearms. 
 
-It was almost cold once I reached the bottom step.
+"HEY," I yelled, "We have to get out! There's a gas leak!" No response. Perhaps the explosion had damaged his hearing.
 
-&#x200B;
+ Instinctively, I reached out and grasped his hand. The moment our skin made contact, the crying ceased, and the tremors subsided. A new sense of startled unease washed over me. Slowly, he began to turn his head towards me, his neck moving with jerky, disjointed snaps. And then, I beheld his face. Wet leathery skin clung to his emaciated skull, while his wide eyes, milky grey and white, mirrored my mother's. Through a slackened jaw, browned teeth peered out of a mouth devoid of lips. His broken nose sat withered upon his face. His leathery skin continued down his nude and skeletal frame, with patches peeling off, revealing a putrid yellow fluid oozing from the infected wounds. 
 
-I heard someone crying in the room and even though it was almost pitch black inside the veil of smoke, a small window lit the desk where my mom would sit. The person wailing in apparent agony was adjacent to her desk, however.
+I stood there in shock, witnessing his convulsions and heaves. His head, rocking like that of a newborn, fixated on me. He took a long ragged, strained breath and released a sound unlike anything I had ever heard before. No, that's not the right way to describe it. The sound triggered a sensation within me, a feeling that wasn't entirely my own. I was engulfed by an overwhelming grief, an intense pain that consumed me entirely. Guilt as I had never known flooded me, threatening to drown me in its depths. 
 
-&#x200B;
+I recoiled from the desk, stumbling backward until I fell onto my mother's charred remains. A cloud of ash billowed forth, caressing my face as I gasped for air. I inadvertently inhaled the plume of my mother's ash. I vomited, tears and bile streaming uncontrollably. I began crawling on hands and knees as I distanced myself from the nightmare.
 
-I broke out in a nervous sweat as I began my search for this crying person, gagging on the smell of burning flesh and hair. It didn't take long for my eyes to dilate accordingly and to return my gift of sight. I still wish they would have failed me just that once. The images seared themselves deep into my psyche, burnt bodies and their wayward limbs littered the floors. Some were smoldering like paper as a thin line of bright red crawled greedily up the blacked skin and turned to ash.
+ I crawled, then ran once I regained my footing. I ran out of that room, through the engulfing flames, through the school, and past my bewildered classmates. 
 
-&#x200B;
+Just keep running. 
 
-That mouth-watering feeling crept through my throat as it does when you're about to throw up. I heaved at the site but managed to hold it in. Through a power only granted to me in the fight of fight or flight, I averted my attention to the crying coming from an overturned desk in the corner of the room.
+Eventually, I collapsed in a local park, where the police discovered me. I remember the cold, crisp grass caressing my face, leaving behind wet stains from its melting lash. 
 
-&#x200B;
+The officer who found me sat silently beside me in the field, offering no words of advice or encouragement but his simple presence was comforting in hindsight. He didn't rush me even when we both were shivering to our core once the cold lay with our bones.While the officer drove me home, I awoke to a reality that felt both distant and surreal. The following year slipped away in a haze, an amalgamation of twisting memories and blurred moments. 
 
-"That has to be my mom.. she's still alive!" I thought.
+I found myself residing in my mother's home, under the temporary custody of my aunt and uncle. My aunt handed me a substantial sum of cash from the life insurance payout. It was an overwhelming amount for a seventeen-year-old to possess while grappling with the weight of responsibility. I failed so miserably.
 
-&#x200B;
+The passing months merged, as if time itself was nothing more than a fleeting illusion. I teetered on the precipice, constantly oscillating between moments of intoxication and near unconsciousness. My days were spent in a perpetual state of chasing a fragile equilibrium. And so, as predictable and anticlimactic as it may sound, I succumbed to the overwhelming grip of a heroin overdose. 
 
-I reached for the desk, almost tripping over the chest of a less fortunate husk. I heard someone yelling at the top of the stairs for me to come out because they had detected a gas leak. I wish I had listened.
+It was my aunt who discovered me in that state, a sight she never deserved to witness. She was far too good to be exposed to the wretchedness that had consumed me. 
 
-&#x200B;
+Preparing the syringe, I found a suitable vein, and sent the liquid bliss coursing through my veins. Was it my fifth hit? Sixth? More than I had ever done before. The rush surged through my body with an intensity I couldn't handle. My balance faltered, and I collapsed onto the couch, my head spinning in a disorienting haze. I slipped into unconsciousness, unaware of the vomit that spilled forth from my mouth. At the moment, I believe I was on the brink of death.
 
-I was almost to the desk when I looked down at another body. This one was slightly larger than the rest. It didn't take long for me to understand that this was my mom.. missing the right side of her face.. her eyes showed a milky white, and her jaw was slacked and opened wide. She had no arm.. or leg.
+ I vaguely remember my aunt's scream as she walked through the front door. I'm sure I looked just like the death I was longing for. 
 
-&#x200B;
+Rehabilitation became an inevitable path I had to tread, accompanied by a watchful eye to prevent any further harm. I grappled with a profound sense of worthlessness, despite the earnest efforts of those around me. Weeks bled into months, and progress towards my recovery became a slow, agonizing burn. No matter the tools and coping mechanisms I acquired, no matter the mental acrobatics I performed, I found myself sinking deeper into the abyss. 
 
-Dead...
+The insidious cravings for substances clung to my heart with sickening tenacity. 
 
-&#x200B;
+Over the following year, I retreated into seclusion. Depression became my constant companion, blurring the days together into an indistinguishable haze. I traded one vice for countless others, escaping reality through endless hours of pornography and video games, despising every fiber of my existence late into the solitary nights. Even in sleep, I found no respite. 
 
-My mother was dead at my feet.
+My nights were tormented by relentless nightmares, unyielding in their pursuit of stealing away what little rest I had left. At my emotional nadir, I ceased to care for even my most basic needs. My body, an instrument of survival, was now perpetually hunched, bent by the weight of my deteriorating state. I had become a repugnant wreck, a physical manifestation of the turmoil within my mind. I was a mirror reflecting the distorted image of my decayed mentality.
 
-&#x200B;
+ The battle against my demons was impossible, and I was losing myself in the process. My life soon embarked on a transformative journey though, emerging from the tattered remnants of an existence that had unwittingly become my solace. 
 
-The crying erupted from behind the desk again, with no audible words.. just sobbing. I left my mom's side to help this person. It hadn't fully dawned on me at this point that no one could have survived this disaster.
+It began with a simple spark, an eruption of laughter that echoed through the air. 
 
-&#x200B;
+It was not a mere chuckle or a fleeting smirk; it was a belly-deep laugh that reverberated within me. The sound itself felt foreign, stirring a mixture of confusion and exhilaration. At that moment, I felt an immense pride swell within me. 
 
-The crying was filling my head. It blocked out the sounds of the fire alarm, everyone screaming for me to get out.. it was like I was lost in a daydream in which the crying was the forefront focus. It blocked out everything.
+Soon after, I shed my former self, transitioning from a reanimated corpse to an animated being. My newfound addiction became growth, and I pursued it with unwavering fervor. I constructed a fortress, a barricade capable of withstanding the relentless onslaught of my mind. I tamed the internal chaos that had consumed me, gradually reclaiming control over my destiny. With every step, I crawled my way up that treacherous mountain, resolute and unyielding. 
 
-&#x200B;
+Knowing that I had to venture beyond the confines of my childhood home to nurture my emotional development, I made a decision without hesitation. I relinquished my home to my aunt, packed my belongings, and began a new chapter with a journey to Florida. 
 
-I reached the desk and tentatively peered behind it, and focused on an illuminated figure curled up in the corner. It had blackened skin like the rest of them and almost no hair. It trembled, facing the corner of the wall, Its body lightly convulsing like it was being electrocuted, arms held out beyond its sides with its hands limply hanging from the suspended forearms.
+I found refuge in a modest vacation cabin nestled amidst the serenity of the Everglades. I resided in splendid isolation. There were no neighbors for miles around, and the land I occupied belonged to a kind couple who were seldom present. The cabin was ensconced within a dense, humid forest—a lush sanctuary that provided me ample opportunity to confront my innermost thoughts, contributing to the arduous path of my recovery. Though the reclusive lifestyle persisted, I reveled in newfound freedom. The forest that encircled me was a testament to nature's magnificence.
 
-&#x200B;
+ It thrived with resplendent beauty, teeming with life and vibrant hues. The symphony of birdsong permeated the air, intertwining with the gentle hum of insects as the sun gracefully bid farewell to the sky, descending beyond the western horizon. It was a captivating contrast to the desolate nights I had once known. Occasionally, I would venture to an ocean-fed creek a mere stone's throw away from my dwelling, indulging in the peaceful art of fishing. 
 
-"HEY," I yelled, "We have to get out! There's a gas leak!"
+It was precisely what I had yearned for. 
 
-&#x200B;
+My life had become my own once again. Though the memories of that fateful night still carried a tinge of pain, they had become more bearable, more manageable. I was on the cusp of uttering those elusive words: "I am happy." 
 
-The figure didn't respond. I thought maybe the explosion damaged its hearing.
+Until the nightly lamentations returned, the anguished cries piercing the silence, a relentless reminder of the entity that hunted me. 
 
-I reached over to him and grabbed his hand. He stopped crying immediately when our skin touched.. the trembling stopped but his body kept jerking. He slowly turned his head towards me.. it limply followed his neck in quick little snaps as it turned. And then I saw his face.
+Sleep became an elusive luxury, for as darkness descended, the haunting wails shattered any chance of rest. The cries persisted, growing louder with each passing week. They invaded my sleepless nights, penetrating the silence of my room. I lay there, consumed by desperation, pleading for the torment to cease. 
 
-Leathery skin stretched across his bony skull, and his wide eyes were like my mother's.. a milky grey and white. Browned teeth showed through a slacked jaw, no lips.. a withered nose sat broken upon his face. He was naked.. the leathery skin continued down his nude frame. Some of the skin was falling off at points of stress.. from which an infected-looking, foul-yellowed fluid oozed forth.
+The cries filled my head and blocked out everything. It forced me to feel a torrent of forgotten pain. My barricade was fracturing. My rancor was waking up. My war returned with a windfall that left me breathless. 
 
-&#x200B;
+I broke so quickly. 
 
-I looked at him in shock, his body jerking and heaving... he shuttered as his head rocked and rotated like a newborn to face me. I looked into its eyes as it took a rattled, strained breath.. and bellowed a sound unlike any I'd ever heard. No, that's not the right way to portray this sound. The sound created a feeling inside of me that wasn't exactly mine. I was forced into a feeling of absolute grief. Pure pain. I felt absolutely and completely overwhelmed with guilt unlike any I had ever known.
+So quietly. 
 
-&#x200B;
+Like sand in the palm of my hands, my joy slipped away through my fingers. My laugh died in my throat. The cries became a force that unleashed a deluge of forgotten anguish, shattering the barricade I had erected. Fatigue wore me down, transforming me into a mere shadow of my former self.
 
-I threw myself back from the desk and fell upon my mother's corpse. A cloud of ash rose from her smoldering body and washed over my face as I gasped. I inhaled my mother's ash. I vomited on myself as I rose to my hands and knees to crawl away, tears streamed forth like a ruptured dam that threatened my existence. I crawled and then ran once I found my footing. I ran out of that room through the fire. I ran through the school. I ran out passed my classmates. I kept running. I ran and ran and ran until my legs couldn't carry the weight of my body and my experience anymore.
+ I became a captive in my mind. Yet, within the depths of my despair, a spark of hope still waivered amidst the chaos. I vowed to confront the source of this nocturnal torment, to unravel its strangling grip on my life. Then, one fateful night, I stirred from a nap that had inadvertently consumed me. 
 
-&#x200B;
+A strange sensation tugged at my mind, rousing me from my slumber. The room was shrouded in an eerie silence, the clock displaying the time as 1:26 am. With a sense of cautious curiosity, I rose from my seat and made my way toward the front door, spurred by a newfound audacity. 
 
-The police found me collapsed in a local park. I remember the cold, crisp grass caressing my face, leaving behind wet stains from its melting lash in the throws of my despair. I thought I would have at least run towards home. Instead, I ran in the opposite direction. The officer that found me sat with me in the field for a while and just listened to me sob. He didn't offer me any words of advice, nor words of encouragement. He didn't rush me even when we both were shivering to our core once the cold seeped through our skin and lay with our bones.
+Perhaps I believed that by directly confronting this apparition, I could dispel my fears and bring an end to my relentless experience. 
 
-&#x200B;
+That night, the air was eerily calm, devoid of the usual screams. I pressed my face against the small window on the door, peering into the darkness beyond, half-expecting to find only an indistinct shadow. But to my astonishment, there it stood, staring back at me with an intensity that sent shivers down my spine. Our faces were separated by a mere fraction of an inch of glass, locked in a macabre face-to-face encounter. A cacophony of screams erupted, shattering the once-tranquil air and sending tremors through the very foundation of my home. 
 
-I fell asleep in that field, wishing the air would escape from around me the same way it escaped my lungs between gasps for air my lungs unwillingly forced upon me. I awoke while he drove me home. I remained in my mother's home for a short while at the mercy of my aunt and uncle who were awarded temporary custody of me. I was offered a life insurance payout that was locked in a conservatorship. I'm not one to look a gift horse in the mouth, however, so I'll thank my stars because my aunt didn't take my money.
+The feeble glow from the kitchen illuminated his face, etching its haunting contours deep within the recesses of my mind. His quivering jaw moved erratically, a grotesque dance of opening and closing with each labored breath. Each exhale birthed a clinging mist, smearing the glass with intricate patterns reminiscent of inkblots, transforming its pristine surface into a testament of eerie artistry. 
 
-&#x200B;
+His vacant eyes remained fixed ahead, devoid of recognition as if ensnared within the merciless clutches of unyielding madness. With unsteady steps, he gradually retreated, his form eventually shrinking into a crouched position mere feet away from my door. There was no denying the undeniable presence before me. Fear, curiosity, and a twisted fascination intertwined within me, forming a turbulent whirlwind of conflicting impulses.
 
-She pulled out the settlement as soon as it was released to her and gave me a big stack of cash, definitely too much for a 17-year-old to have while attempting to remain a responsible member of society. I was quickly awarded emancipation in light of the funding and I began to fuel an addiction that left the hole in my soul full of even more regrets.
+ Who was he? What did he want? Questions plagued my mind, but answers eluded me. It was as if this apparition had materialized from the depths of my darkest nightmares, haunting my reality with its unsettling presence. 
 
-&#x200B;
+Though an unsettling truth sat within me, there was no denying the raw reality of his existence. This was no figment of my imagination; it was a chilling encounter with a realm beyond comprehension. My scream tore through the air, an instinctual response fueled by a surge of primal emotions. No coherent words could encapsulate the overwhelming turmoil within me. 
 
-Another few months passed by in the blink of an eye, probably because I was always strung out riding a line between high and barely conscious. As anticlimactic and foreseeable as it was, I ended up overdosing on heroin. I was found by my aunt in my home on my couch. my arm was shoved down between the cushions, searching for the remote that was actually on my coffee table. I had passed out like that and vomited in my stupor. I vaguely remember her scream once she walked through the doorway. I'm sure I looked just like the death I was longing for.
+I had escaped across the country to flee from this torment, yet here it was, huddled just feet away, mocking my desperate attempt at solace. 
 
-&#x200B;
+It felt like a cruel joke my own mind was playing on me. "LEAVE ME ALONE!" I shouted, my voice cracking as tears streamed down my face. 
 
-I was put on suicide watch once the story came to light. My therapist thought that what I saw there was a manifestation of my mind. Like something I created to personify the hell, I had lived in for those few meager minutes.
+"PLEASE, JUST LEAVE ME ALONE!" My cries resembled the agonized wails of a wounded and trapped animal, raw and untamed. 
 
-&#x200B;
+Outside, the creature continued its relentless screams, rising to its feet with an eerie, disjointed movement. It approached my door, its contorted posture resembling a grotesque bending of the body, skin tearing as it leaned. Yellow fluid oozed from its wounds.
 
-My weeks turned into months, and progress became a slow burn on my road to emotional recovery. No matter what I was taught, what tools I was provided, and what mental gymnastics I performed, I kept sinking deeper and deeper. The craving for substances kept its sick claws locked tightly around my heart.
+ "LEAVE ME ALONE!" I yelled again, unleashing a surge of pent-up emotion that had been dormant for far too long.
 
-&#x200B;
+ But my plea fell upon rotting ears that could not comprehend or sympathize. It reached my door. I had rehearsed this moment in my mind during my early days in the forest. 
 
-Over the next year, I found myself slipping into a reclusive lifestyle. I had dropped out of school that winter and became a shut-in. My life became a blur in the face of depression. I traded one vice for many more, watching porn and gaming all day, loathing my existence late into the long and lonely nights. My experience from school never left me. I had such vicious night terrors, unrelenting and boundless in their pursuit of my rest.
+Over and over, I had imagined how I would confront and eradicate this embodiment of my deteriorating sanity. Suicide was not my desire, but I had chosen this entity as the symbol of my mental decline, the entity that needed to be eliminated. Driven by panic and instinct, I grabbed the fire axe hanging above my table, my body moving mechanically as I propelled myself toward the barrier that separated us. A wordless scream of terror, revulsion, and hatred erupted from deep within me as I crashed through the door, my clenched teeth unable to contain the overwhelming intensity of my emotions.
 
-&#x200B;
+ The creature was struck by the door, its body forcefully pushed backward, eliciting a feral gasp from its throat. Now, I was determined to end it. 
 
-At my emotional lowest, I stopped caring to meet my basic needs. My body was constantly utilizing kyphosis to keep me alive. I was a vile wreck, becoming the personification of that which was my mind. I was a mirror of my mentality. I was losing the battle.
+"Kill it." "Kill me." "Candle." "KILL." The words reverberated in an unsettling loop within my mind, out of sync with each other, fueling my purpose as I prepared to face the culmination of my anguish. 
 
-&#x200B;
+In a whirlwind of uncontrolled movement, I tumbled down the steps, my body flailing as I crashed onto the unyielding ground. Before I could fully process the fall, I found myself on my feet, instinctively rising without conscious thought. 
 
-Do you want to know the truth about depression? It's not some "woe is me, I'm sad" bullshit. Depression is the opposite of happiness. Happiness is proactive and engaging. It has to be created and earned to be nurtured and it will grow. Depression is everything happiness is not. Depression comes from stagnation. Depression isn't cured and isn't wanted. It's torn into being, whether you had it from birth and sat on the genetic time bomb, or it was thrust upon you against your will. Depression is the absence of emotion that we innately use to protect ourselves. "If I can't feel, I can't hurt.". It's the absence of feeling the desire to care. It is apathetic. Dark and abysmal. Alone and unafflicted. I can't care to eat, I can't care to meet new people, I can't care to shower or brush my teeth. I can't care to keep up with living. I've learned and lived this hell. I hope you never have to, too. If you are? I know it's hard to care, but please talk to your friends and family, or ask someone for help. People will be there for you, you just have to find them.
+And there it was, face to face with me, its breath uncomfortably warm and sticky against my skin. The putrid stench of decay invaded my nostrils, causing me to recoil in fear and repulsion. Backing up until I was pressed against the wall of my house, I felt my courage waver, my resolve crumble. I realized I was not strong enough, not capable of facing this. Then, it screamed, convulsed, and trembled before me, its milky eyes fixed on an unseen horizon. 
 
-&#x200B;
+Its hands stretched out, reaching for something beyond my comprehension. With that scream, a surge of courage and rage flooded my being. It was the same as it had been all those years ago in the school, an overwhelming flood of emotions that were not truly mine to feel.
 
-But I digress.
+ It's difficult to articulate, but I embodied those emotions and allowed them to engulf me, to consume me. 
 
-&#x200B;
+"Kill." 
 
-My life started a journey in a new direction, birthed from the ruptured, hemorrhaging existence that I unknowingly came to find comfort in. It was so simple, that spark. I laughed. Not like a chuckle or a little nose smirk. A belly laugh. The sound was foreign to my ears. I was confused but oddly excited. I was so proud of myself. Soon after that, I went from a reanimated corpse to an animated individual. My new addiction was growth. I chased this feverishly. I built myself up and created a dam that could withstand the deluge of my mind, I calmed the rancor that consumed me without fail. I regained control. One step at a time, hand over hand I crawled a feeble yet unstoppable ascent up that mountain.
+The word reverberated relentlessly in my mind. Springing forward with a primal scream, I swung the axe with all my might, the blade sinking deep into its side. The sensation of bone deflecting the force of my strike is etched into my memory, never to be forgotten. 
 
-&#x200B;
+Blood and other fluids sprayed from the wound as it took a few faltering steps to the side, pushed by the momentum of my assault. The creature ceased its cries, its tremors, its breath. Time stood still as it finally turned to look at me. Fear rooted me in place, holding me captive in its gaze. We stared at each other, locked in a moment that felt like an eternity. 
 
-I knew I had to leave my home to continue my growth. Without a second thought, I left my home to my aunt, packed up, and moved out to Florida.
+Foul breath washed over me once more, seeping into my senses. Beyond that, nothing happened. We simply stood there, locked in a silent exchange. I willed my frozen bones to thaw, my mind transitioning from terror and frenzied rage to... something else. 
 
-&#x200B;
+It wasn't pride, but rather a different, indescribable emotion. Yet, it carried a sense of triumph, I believe. 
 
-Florida was great for a short time, I lived in a small vacation cabin by myself in the Everglades. I established myself as a transfer student waiting until next year for my college courses to begin. This was a lie, but one I found some comfort in telling. Thankfully I didn't have to tell it often as no one lived around me for miles.
+Unbeknownst to me, it had reached out and gently grasped my arm, its touch going unnoticed until it began to speak. 
 
-&#x200B;
+"I never... meant to... scare you..." he rasped, his voice torn and ragged, struggling to emerge between shallow breaths. "I'm sorry... this has to... happen to... you..." its words filled with agony and desperation. Tears welled up in its eyes, a flicker of pain crossing its face as its ragged hand clutched at the axe lodged in its new laceration. "Please... kill... me..." he wheezed, his plea reverberating in my mind and reaching my ears simultaneously. With its other hand, it gripped the axe and brought the blade to its neck. "Kill me... candle... kill. NOW!" 
 
-My lot was on private property which was owned by a pleasant couple who were never home. A dense and humid forest surrounded my establishment. This was a treat for me because it gave me time to confront my thoughts and ultimately contributed to my road to recovery from that night. Sure, it was the same reclusive lifestyle, but here I was free. Also, something about 80f in winter was better than I thought it would be.
+The final word echoed like an explosion within my head as its hand pressed against my face. Everything plunged into darkness for a fragmented moment as I swung the axe. Suddenly, I felt myself hurtling through space, a void engulfing me. The air grew cold, and the wind whipped past, intensifying the disorienting descent. 
 
-&#x200B;
+I screamed in a frenzy of confusion and terror, my voice lost in the abyss. Downward I plummeted, faster and faster, the nauseating sensation overwhelming me. In the distance, far below, a growing light pierced through the darkness. Fresh tears streamed down my face, blurring my vision and making it difficult to gauge the proximity of the light, and how much time remained before I would be halted by the unforgiving ground. But it was rapidly approaching.
 
-The forest surrounding me was beautiful, lush, and vibrant. You could frequently hear the birds sing, and bugs whine late into the evening as the sun departed the sky and lay to rest beyond the western horizon. It was a welcome change from the stark nights of my hometown. I would even go fishing occasionally at an ocean-fed creek just a few minutes from my house. It was exactly what I had wanted.
+ I squeezed my eyes shut, unleashing a defiant scream that echoed through the void. In the face of imminent death, I summoned every ounce of defiance within me. "I want to live." The words echoed in my mind, a fervent plea repeating like a mantra. I curled into a protective ball, bracing myself for the impending impact that would mark my brutal end.
 
-&#x200B;
+ Seconds stretched into eternity as I awaited the inevitable. Then, with a soft and gentle thud, I collided with the ground, the impact far less severe than anticipated. A feeble whimper escaped me, carrying away the remnants of my shattered pride. Slowly, I uncoiled my limbs and remained still, a mix of confusion and exhaustion paralyzing me. 
 
-My life was mine again. The thoughts of that night, though painful, were easier to experience. I think I was almost able to say "I'm happy".
+Was this death? Or had I somehow managed to survive? At the very least, I was conscious. I reached out with my hands, feeling the texture of the hardwood floor beneath me. Rolling onto my back, I extended my arms as far as they would go, searching for walls that eluded my touch, instead only finding a formless nothingness. I released a weak, triumphant sigh, throwing my arm in the air, and darkness claimed me once more, my consciousness slipping away. 
 
-&#x200B;
+When I awoke, I found myself in an unfamiliar hallway, illuminated by an ethereal light. Glancing around from my position on the floor, I took in the details of my surroundings. The hallway stretched endlessly in both directions, its warped and aged dark wood floors covered in a thick layer of dust. 
 
-Until I heard that crying again.
+On each side of me, two doors stood, adorned with handles veiled in shadows. Illuminated by flickering candles, the doors cast dancing shadows on the faded white paint. Ornate red and gold walls framed the hall, extending into the distance without interruption. 
 
-&#x200B;
+The air hung still, thin, and cold, creating an atmosphere of eerie stillness. Summoning my strength, I pushed myself upright, drawing a reflexive breath, only to find that my lungs refused to cooperate. I couldn't draw in the air, an unsettling revelation that further shook my already fragile state. Yet, amidst the disquietude, an unexpected acceptance settled upon me. 
 
-A few times a week, I would wake up to his crying in the woods late at night, and his lonely howls would penetrate the thin walls of my home. I thought maybe the crying was just a relapse of depression.. like PTSD in soldiers. I would stay awake and listen to it, focusing on it as if I was going to find some words within the rattling gasps.
+"Maybe I truly am dead," I mused, "and perhaps this is limbo or some other realm beyond the realm of the living." 
 
-But it kept getting closer.. every week the sound would get louder. I would lay awake in bed and find myself begging for it to stop. It was the same way it was in that school. It filled my head and blocked out everything. It forced me to feel a torrent of forgotten pain. My dam was fracturing. My rancor was waking up. My battle returned with a windfall that left me breathless. I broke so quickly. So quietly. Like sand in the palm of my hands, my joy slipped away through my fingers. My laugh died in my throat. My mind, so quickly, broke.
+Standing before the doors, I reached out and brushed off the accumulated dust, my fingers tracing patterns on the bronzed knobs. With hopeful anticipation, I attempted to turn the knob of the door on my right, but it remained resolute, refusing to yield. 
 
-&#x200B;
+Disheartened, I turned my attention to the door on my left, hoping for a different outcome. Yet, once again, my efforts proved fruitless. The doors remained firmly shut, denying me entry. A sense of resignation settled over me as I contemplated the possibility that I had indeed entered a realm of limbo or purgatory, where the deceased wander aimlessly, seeking answers and respite. 
 
-The uncontrollable sobbing returned nightly as the sun departed, leaving me alone to face this manifestation.. or creature. Entity. The wailing filled my nights until I was no longer able to sleep. I could only sleep during the day. The day was safe.
+If there were lessons to be learned or tasks to be fulfilled, I had yet to discover them. But the absence of purpose, the prospect of eternal nothingness, weighed heavily on my soul. With a deep breath, I made the conscious decision to venture further into the darkness, forsaking the dwindling light behind me. Hours turned into an indeterminate passage of time as I traversed the boundless corridor, my hand tracing the cold surface of the wall for guidance. 
 
-&#x200B;
+Fatigue and hunger eluded me, further reinforcing the notion that I had in fact died. 
 
-One night, I awoke from a nap that turned into full blown sleep. I felt like I was awoken by something, though it was silent outside. I looked at the time.. 1:26 am.. the middle of the night.. but no crying at least.
+If this was the extent of my existence, an eternal cycle of aimless wandering, I yearned for something more. The prospect of mere nothingness, devoid of purpose or meaning, felt like a reality abandoned by the gods themselves. Determination and desperation mingled within me, urging me to maintain my pace and to keep moving forward despite the gnawing uncertainty. 
 
-I quickly got out of bed and looked out of my bedroom window. Nothing.
+And then, a sudden burst of light ruptured the darkness behind me, catching me off guard. The icy tendrils of fear gripped my chest, causing me to flail and stumble, my yelp swallowed by the void. With a surprising display of grace, I rolled with the fall and swiftly turned around, propelled by a desperate longing. Desperation fueled my actions as I lunged for the handle of the nearest door, seeking an anchor to halt my momentum. 
 
-"Maybe.. it was just a raccoon trying to get into my trash," I thought. I made myself some coffee to help keep me awake through the night. Coffee had become the only thing I would drink. I made some food.. well.. canned salted potatoes with a hint of chicken dumplings and brought it back to my room. I sat down and addressed my fears as I had tried to do nights prior.
+The handle remained steadfast, unyielding, as it abruptly halted my chaotic trajectory. Reality began to fracture, the veil of ignorance slowly lifting. Could I truly be dead? The realization dawned upon me, shattering the feeble illusion of safety and acceptance. 
 
-&#x200B;
+I wasn't okay. I wasn't safe. The weight of my unease bore down upon me, threatening to consume what little resolve remained. In the face of uncertainty, I whispered the truth that echoed within my being: 
 
-Lately, I'd been convincing myself that maybe I'm witnessing him because I hadn't gotten over the events of that day. Maybe it was a symbol of the worst day of my life, a catalyst upon which my normalcy lay flayed in some blood eagle like fashion. Maybe it's just that my subconscious had unintentionally held onto what could have been and manifested as that in my day-to-day life. I became bold at this rationalization and told myself to go open the front door.. like that was going to make the fear end. I figured if I had confronted the atrocity of my own making, I could also make it go away.
+"I'm not okay." 
 
-&#x200B;
+With a surge of determination, I clutched the doorknob with both hands, pouring every ounce of strength into my attempt to pry it open. I threw my weight against the door, pulled, hit, kicked, and pleaded in a desperate frenzy. 
 
-I set my food and coffee down as I arose from my seat and shuffled to the front door. There was no crying tonight, it was just calm and peaceful. I placed my face in front of the window on the door as I had been every night before, honestly not expecting to see too much aside from an eerie shadow. But there it was, staring through the little glass window back at me. Face-to-face. Separated by not even half an inch of glass.
+But the door remained steadfast, unyielding to my relentless assault. Exhausted and defeated, I crumpled against the door, collapsing to my knees, and buried my face in my folded arms. The tears flowed freely once again as a sense of hopelessness enveloped me. 
 
-&#x200B;
+What was the point? There was nowhere to go, no escape from this interminable realm. I was trapped, imprisoned within my own personal purgatory. This was my punishment. 
 
-An eruption of screams washed away the silence and shook my house. My kitchen light showed through and illuminated his face. It's a face I can never forget. His jaw was chattering, gaping, and closing between breaths. As he exhaled, a sticky fog clung in Rorschach patterns to the otherwise unblemished glass. His eyes stared straight ahead at nothing as though he was lost in the grip of indefinite madness. He quivered again as he took several slow, unsteady steps backward and crouched on the ground just feet from my door. He was real.
+I rolled onto my side, curling into a tight ball, clutching my legs close to my chest. I surrendered to the inertia that consumed me. I ceased all efforts, resigned to my fate. Time lost all meaning as I lay there, motionless, accumulating layers of dust upon my immobile body. 
 
-&#x200B;
+Months or perhaps years passed in this stagnant state. The weight of my surrender bore down upon me, and I grew stagnant in body and spirit.
 
-I screamed at him out of reaction. It was guttural and primitive. There were no words I could offer my emotions to appease this sickening sensation.
+ But amidst the stillness, a small voice emerged from the depths of my being, offering shards of defiance. It urged me to continue, questioning why I should give up. The relentless nagging of that voice eroded the staleness of my resolve. 
 
-&#x200B;
+And so, with great effort, I yielded to the persistent beckoning within. I began to stir, my brittle bones creaking and cracking in response to the tentative movements. Every inch of my being protested, muscles screaming in protest, as I defied the inertia that had held me captive. The desire for something different, something more, ignited within me. 
 
-I was angry.
+My body clung stubbornly to the remnants of my self-imposed stagnation, resisting the momentum of my will. But I knew I had to move. "Just move." I whispered those two simple words to myself, a mantra to defy the stillness. 
 
-&#x200B;
+And with each painful twitch and every tear in my flesh, I pressed forward, compelled by the belief that there had to be more to this existence. The hallway, once shrouded in darkness, was now ablaze with the furious glow of burning candles, illuminating every inch of the endless walls adorned with white doors. 
 
-I was scared.
+Shielding my eyes from the searing exposure, I recoiled from the scorching heat that radiated from the flames. The blinding light pierced through the cracks between my fingers, growing in intensity with each passing moment. But as I cautiously peered through the gaps in my fingers, a sight greeted me that filled my heart with renewed hope. 
 
-&#x200B;
+There, at the end of the hallway, lay a continuation beyond the confines I had known. A surge of determination coursed through my veins, igniting a fire within my soul. Clinging to the wall for support, I willed my feeble legs to carry me forward, pushing past the pain that resonated with each step. I moved with a shaky shuffle that evolved into a stiff, determined speed walk. 
 
-I was sick of not sleeping, not having MY life! I moved across this god damned country to get away from THIS and here it was, huddled up near feet from the only comfort I had left. This was some sick fucking joke my brain was playing on me.
+In retrospect, I can only imagine the nightmarish image I presented. But at that moment, all I wanted was to reach the end, to embrace the promise it held. 
 
-&#x200B;
+With each passing door, I caught glimpses of their numbered plaques. 37, 39, 41, 43... The numbers ascended, propelling me forward as I squeezed my eyes shut, running with unwavering determination. The intensity of the light multiplied, searing through my closed eyelids, triggering a symphony of pain that reverberated through every fiber of my being. 
 
-"LEAVE ME ALONE!" I managed to yell, my voice cracking as I started to sob.
+Perhaps I should have gauged the distance to the end, but in my blind pursuit, I collided with the wall with a resounding thud. The impact broke my nose, sending shockwaves of agony coursing through me, and I tumbled to the floor, disoriented and wounded. 
 
-&#x200B;
+As my body sprawled upon the ground, the once-illuminated candles in the hallway extinguished one by one, enveloping the space behind me in impenetrable darkness. 
 
-"LEAVE ME ALONE PLEASE!" my voice sounded more like a dying animal, unrefined and shrill.
+Yet, amidst the obscurity, one candle remained defiantly aflame—the candle beside the door labeled #158. Its flickering glow drew my gaze, anchoring me to the present. Candle. The word reverberated within the recesses of my mind, its significance echoing relentlessly. And then, like a distant echo from the past, a strained and familiar voice permeated my thoughts.
 
-&#x200B;
+ "Kill Candle," it urged, a haunting reminder of the encounters I had faced. The voice, bearing the same ragged quality that had sent chills down my spine before, emerged from the darkness, piercing the silence with its command. 
 
-It kept screaming outside of the house as it rose to its feet again. Standing upright, it walked in slow and sporadic movements back towards my door.. it arched awkwardly backward like the abdominal muscles lost the ability to keep the torso upright, tearing the skin as it leaned. Yellow liquid again seeped from the wounds.
+A low, ominous rumble stirred in the distance, a sound foreign and unsettling to my ears. It started as a mere murmur, barely perceptible, but gradually swelled in volume, intensifying with each passing moment. The air itself seemed to thicken with unsettling energy, a growing force that permeated the surroundings. It was the sound of impending doom, a creeping darkness that threatened to swallow everything in its path. As the rumble resonated through the depths of my being, a profound unease settled within me.
 
-&#x200B;
+ It crawled beneath my skin, coiling around my bones with a chilling grip. The sensation of impending nothingness clawed at my very core, filling me with a deep-seated dread. It was a fear unlike any I had ever experienced, a realization that I stood at the precipice of an inevitable and irrevocable end. 
 
-"LEAVE ME ALONE" I yelled again with a level of emotion I hadn't felt in years, but my plea fell on rotted and deaf ears.
+The weight of this knowledge settled heavily in the pit of my stomach, a visceral stab of anxiety that sent tremors through my entire being. It was a fallible end, an abrupt cessation that promised a complete and utter halt to existence.
 
-&#x200B;
+ Each passing second amplified the intensity of this foreboding, like a storm gathering strength before it unleashes its fury. The world around me seemed to hold its breath as if bracing for the impending collision with an unimaginable void. In the face of this encroaching darkness, I stood transfixed, caught between fight and flight. The rumble grew louder, reverberating with an eerie resonance as if the very fabric of reality quivered under its weight.
 
-It reached my door.
+ It was a sound that defied explanation, an insidious reminder of the fragility of existence. And as the seconds ticked by, each one laden with a mounting sense of doom, I could not shake the feeling that something irrevocable was drawing near. 
 
-&#x200B;
+With trembling hands, I clutched the doorknob, desperately trying to twist it open. But it remained stubbornly locked, unmoving against my frantic efforts. The rumble grew louder, reverberating through the corridor, an unstoppable force closing in on me. Panic surged within me, urging me to shake the door with wild desperation. 
 
-I had rehearsed this moment in my earlier days of coming to the forest. Over and over I would think about what I would do to end my maddening reality. I didn't want to kill myself though, so I had made this "thing" the effigy upon which my mental decline rested, and that which should be eradicated.
+But still, it resisted, unyielding to my futile attempts. "Kill. Candle." The words thundered in my mind, echoing over the impending chaos that threatened to consume me. It was a command, a directive to extinguish the flame. In a moment of clarity amidst the chaos, I realized what I had to do. I reached out, smothering the candle's flame with my bare hand. 
 
-&#x200B;
+And at last, the door swung open, as if I had unlocked an ethereal barrier. But as the door gave way, I was violently thrust forward, pulled into the void that lay beyond. The deafening roar receded, replaced by a disorienting rush of motion as I spun and flailed, completely at the mercy of the unseen forces at play. Control slipped from my grasp once more, leaving me to surrender to the unknown. Abruptly, the tumult ceased, and I found myself standing outside my own house, a surreal tableau frozen in time. 
 
-In my panic and on instinct, I grabbed at the fire axe hanging above my table and mechanically threw my body at the thin door that separated us
+There, I witnessed an enigmatic moment, a version of myself suspended mid-swing, the axe poised to strike the creature's neck. It was a fractured moment of the reality I had left behind, a moment frozen in space and time. 
 
-A wordless and loud scream of fear, disgust, and hatred erupted from between my clenched teeth as I crashed through my door.
+Taking a hesitant step forward, I was abruptly hurled back into my own body, the fractured fragments of my existence reuniting. Time resumed its course, and I felt the weight of the axe as it carried out its intended purpose. 
 
-&#x200B;
+The blade connected with a solid, metallic impact, tearing a new rift in the fabric of reality. I was again plunged into a jarring darkness, the whirlwind of confusion was the only thing familiar anymore. My axe had struck something tangible, something solid. 
 
-That thing was hit by the door, the force unapologetically colliding with it. It fell backward, and a feral gasp emitted from the bottom of his throat. I was going to kill it now.
+The musty scent of familiarity, reminiscent of my high school days, filled the air, punctuating the otherwise suffocating silence. In an instant, my vision returned, but with a disorienting rush accompanied by dizzying vertigo. 
 
-&#x200B;
+I found myself standing in the classroom where my mother used to teach, a place I hadn't set foot in for years. Confusion clouded my thoughts as I turned my gaze to the left, and there she was, my mother, staring at me in disbelief. 
 
-"kill it."
+A collective gasp rose from the students, their eyes fixed upon me with a mixture of fear and horror. The weight of their stares pressed upon me, making me acutely aware of the unusual circumstances I found myself in. At that moment, my attention was drawn to my own hands in an unfitting sense of embarrassment. And there, I noticed the axe embedded in the gas line, emitting an ominous hiss that sliced through the eerie silence.
 
-"Kill me."
+ My eyes darted back to my mother, and on her desk, illuminated by a solitary burning candle, my gaze fixated. The word echoed relentlessly in my mind, its significance growing with each repetition. 
 
-"Candle"
+"Candle. The candle. The candle..." 
 
-"KILL"
+In a reflexive surge of urgency, I released my grip on the axe, discarding any semblance of thought, and propelled myself toward the desk, driven by a desperate need to extinguish the flame. 
 
-&#x200B;
+But my efforts were in vain, for as my fingers reached out, a catastrophic chain of events unfurled before me. In an instant, the classroom erupted in a fierce conflagration, an inferno that devoured everything in its path. The sheer force of the explosion shook the very foundation of reality, hurling me against a wall, my body crumpling behind a nearby desk. 
 
-The words echoed on an asynchronous loop inside my mind.
+Charred and broken, my form bore the scars of the blast, yet my consciousness stubbornly clung on. I felt pain unparalleled to any other I'd experienced so far. Amid the chaos, I gathered myself and began to crawl toward my mother's mangled figure. She lay there, torn asunder, yet desperately still clinging to life. 
 
-I fell down the steps as my unbraced momentum carried me forward, flailing as I fell to the unforgiving earth. I found myself on my feet before I even processed that I even fell. But then I was face to face with it, its breath was too hot, too sticky. The smell of rot and decay filled my nose. I recoiled in fear at the smell and close proximity. I backed up until I was pressed against the wall of my house. I lost my nerve. I wasn't strong enough. I wasn't capable.
+With every ounce of strength left in me, I painstakingly dragged my injured body toward her, my movements a testament to sheer determination. My hand reached out, seeking connection, but instead encountered a severed limb. 
 
-&#x200B;
+Undeterred, I reached my mother and she extended her remaining arm, seizing my hand with a desperate grasp, our bond unbroken even in the face of such devastation. "Mom!" I sobbed, my voice choked with anguish. Tears streamed down my face as I knelt over her broken form. "Mom... I'm sorry!" I cried out, my words punctuated by deep sobs. 
 
-It then screamed and heaved and shook in front of me.. its milky eyes still looking beyond me.. hands outstretched. And with the scream, courage returned to me, rage returned to me. It was the same as it was all that time ago in the school. I was feeling something that I wasn't actually feeling. It was my feelings, but I wasn't the one feeling them. It's so hard to explain.
+"I'm so sorry, Mom!" 
 
-&#x200B;
+Her eyes met mine, and in that delicate moment, she mustered all she had to utter a sweet whisper. "I love you," she managed, a feeble attempt at a smile gracing her lips.
 
-I embodied these feelings though, and let them wash over me, and consume me.
+ But as her grip weakened, her hand slipped away, surrendering to the pull of gravity. I collapsed once more, pressing my head against her scorching shoulder, the flames from her burning clothes licking at my tear-soaked eyes.
 
-&#x200B;
+ At that moment, the searing pain of loss eclipsed any physical pain I might have felt. A surge of bile rose in my throat as the full weight of the tragedy unfolded upon me. The realization struck with cruel clarity—I hadn't succeeded in extinguishing the candle.
 
-"kill" The word was on repeat in my head
+ I had failed once again, repeating the cycle for the 158th time. The weight of my failure bore down on me, crushing my soul into a cloud of fine dust to be carried away with the hellfire that consumed my surroundings. I needed to escape from the desolation I had wrought. 
 
-&#x200B;
+Crawling on hands stained with her blood, I retreated to the corner of the room, seeking refuge behind a desk. My arms hung limply at my sides, my body trembling with a mixture of guilt and revulsion. I didn't want to touch anything, especially not myself. I recoiled from my own skin, my hands, the instruments of her demise. I wanted to shed my skin as it pressed its decrepit form ever closer to my heart. 
 
-I sprung forwards and swung my ax with a primal scream, burying the blade deep in its side. The feeling of bone deflecting the axe upwards was a sensation I still haven't forgotten. Blood and other fluids spewed from the wound and it took a few sideways steps in retaliation against the momentum of my assault.
+"I killed my mom," I whispered, the words heavy with self-condemnation. I trembled uncontrollably, consumed by my otherworldly screams of anguish and sorrow that shattered the air. Suddenly, a voice pierced the chaos from behind me. 
 
-&#x200B;
+"Hey!" it yelled urgently. "We have to get out! There's a gas leak!" A hand reached out and grabbed mine. As I turned to face the source, a jolt of recognition coursed through me—I was staring at myself. Another version of me, yet somehow different, younger. At that moment, I realized with terror that I had become the embodiment of the nightmare.
 
-It stopped crying, shaking.. even breathing. Time froze as he finally looked at me. I was rooted in place by my fear. We stared at each other for what felt like an eternity. Eyes locked. That breath returned with a vengeance. Nothing happened beyond that, we just stood there. My bones began to thaw, and my mind, once racing in terror and fevered rage, was now feeling... pride? No.. it was something else, but a victorious emotion nonetheless I think.
+ I screamed a primal cry of disgust and horror, forcing the other me to retreat in a frightened flurry. Days have passed since then. 
 
-&#x200B;
+I write these words with dwindling autonomy, pleading for help, for someone to find me, the other me. 
 
-I somehow didn't notice it had reached out and gently gripped my arm, only becoming aware of it myself once it started to speak.
+Find him. I beg you, whoever reads this, to search for him, and tell him what he must do. Please, tell me what I must do. The grip on my self-control weakens with each passing moment. The relentless compulsion to find the other version of myself consumes my every thought. I fear I can no longer hold myself back for another day. I need to give you more time. I need more time. He needs to break this cycle. 
 
-&#x200B;
-
-"I never.. meant to.. scare you.." he said in this torn-up voice, struggling between shallow breaths
-
-&#x200B;
-
-"I'm sorry.. this has to.. happen to.. you.." it said
-
-&#x200B;
-
-Its eyes welled up in pain while it clutched at the axe in the new laceration with its ragged hand.
-
-&#x200B;
-
-"Please... kill... me..." It wheezed.
-
-&#x200B;
-
-It took the ax with its other hand and brought the blade to its neck.
-
-&#x200B;
-
-"Kill me... candle... kill. NOW!" The final word sounded like an explosion in my head as it put its hand on my face.
-
-&#x200B;
-
-Everything went black for a fractured moment once I swung my axe.
-
-&#x200B;
-
-"Kill it" Was all I could think.
-
-&#x200B;
-
-I swung with everything I had and hit something solid, metal?
-
-&#x200B;
-
-Everything was dead quiet, but I smelled a familiar mustiness that reminded me of high school. In an instant, my vision came rushing back, accompanied by an intense sense of vertigo.
-
-&#x200B;
-
-I was in my mother's classroom. I looked to my left and saw her, and she saw me. I glanced over my shoulder, the entire class was staring at me. I looked back to my hands in reaction to the sudden attention, the strangeness of the situation momentarily lost on me. I then noticed that the axe was buried in the gas line, and an audible hiss was apparent in the silence. I looked back to my mom and upon her desk sat a single burning candle.
-
-&#x200B;
-
-The Candle the candle the candle candle candle candle The Candle-- I let go of my axe without allowing time to think anymore, and sprinted towards the desk to blow it out.
-
-&#x200B;
-
-But I was too late.
-
-&#x200B;
-
-The classroom ignited; It shook the entire foundation... I was blown into the wall and fell limply behind a desk. My body was blackened from the blast, and my bones were broken, but I held on to my consciousness. I don't know how but I was moving toward my mom before I knew it. My mom just laid there torn to pieces but still alive. I crawled the best I could to her side... my body in shock. I reached for her hand but instead found the limb which was forcefully ripped from its host. She reached out her remaining and found mine, gripping it the best she could.
-
-&#x200B;
-
-"Mom!" I sobbed
-
-"Mom... I'm sorry!" I cried over her;
-
-"I'm so sorry, Mom!"
-
-"I.. love you..." She whispered, trying her best to smile until her grip lost its force and slipped away as gravity took a stronger hold on the now limp limb.
-
-&#x200B;
-
-I collapsed once more, resting my head on her searing shoulder. Flames lept forth from her burning clothes and scorched my eyes. I didn't care.
-
-I felt bile rising in my throat again.
-
-&#x200B;
-
-I dragged myself away and to the corner of the room behind a desk
-
-&#x200B;
-
-my arms at my side covered in my mom's blood.
-
-&#x200B;
-
-I didn't want to touch anything...
-
-my hands..
-
-me.
-
-&#x200B;
-
-I killed my mom.
-
-&#x200B;
-
-I shook in the corner.. screaming in pain and sorrow.
-
-&#x200B;
-
-Someone spoke from behind me.
-
-&#x200B;
-
-"HEY' he yelled, "We have to get out! There's a gas leak!" and he grabbed my hand. I turned towards him and realized he was me.. and I.. I knew
-
-I had become the nightmare.
-
-&#x200B;
-
-I screamed
-
-&#x200B;
-
-and he ran.
-
-&#x200B;
-
-It's been several days since then. I write this with what little autonomy I have left. I beg you to please search for me.
-
-&#x200B;
-
-Find me.
-
-&#x200B;
-
-Save me from me.
-
-&#x200B;
-
-I feel the grasp upon my self-control beginning to wither. This persistent and overwhelming compulsion to find "me", the me that isn't this wretch, is becoming all-consuming.. and I don't think I can hold myself back for another day.
-
-&#x200B;
-
-I need to break this cycle.
-
-&#x200B;
-
-This needs to be stopped.
-
-He needs to reach the candle.
+He must reach the candle.
