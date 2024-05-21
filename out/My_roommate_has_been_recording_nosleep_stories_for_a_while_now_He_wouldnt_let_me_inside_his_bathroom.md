@@ -4,6 +4,8 @@ JJ Savrin, Nicholas Mayflower, and Elena Fisher.
 
 I was a big fan of their horror narrations. 
 
+Sorry, I mistakened the title. Nosleep posts are **true**, though a lot of narrators read them out as if they are stories. 
+
 “Yoooo, and welcome to another episode of The Sleepaway Show! I'm your host, JJ Savrin! I'm here with Nick and Elena, and we’ve got a crazy story for you! It's by Reddit user Broken-but-not-bent, and it's called Metal Baby. Now, this story is horror, but it's got a liiiitle bit of M. Night mixed in. It's one of my faves–”
 
 “Hey!”
@@ -116,7 +118,7 @@ JJ’s narration sounded normal, at first.
 
 But further into it, I began to notice something was *wrong* with it. The charm was gone, his smooth, velvet murmur had been airbrushed, perfected into a horrifying, AI-like robotic drone. There were zero mistakes, or breaths, or laughter. 
 
-*It was late when I left the restaurant.” 
+"It was late when I left the restaurant.” 
 
 JJ’s voice was too perfect, skipping over the voice of the character, the atmosphere he put into his tone. “I was locking the door when I noticed something was behind me.” 
 

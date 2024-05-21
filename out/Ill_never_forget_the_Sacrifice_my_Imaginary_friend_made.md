@@ -1,0 +1,19 @@
+You know how most kids have imaginary friends mine wasn't imaginary he was a ghost who would let me see him. We meet when I was six years old  when I collapsed on the floor of the my childhood bedroom that's when I first met him. "Whats wrong little girl?" He asked. I told him about my epilepsy and how it effected me. How I was scared. He laughed. "More scared of your body than a monster this is very wise, any monster you can run from but you can't run from yourself."  The ghost or David as I would come to know him was allways very blunt his honesty was allways something I could count on. 
+
+
+ When I tried to Introduce him to my mother she couldn't see him and she said "I'm glad you have an imaginary friend sweetie but don't go telling people about him they might get the wrong idea." I decided to ask David about the talk I had with my mother. "It's probably best if people think I'm a figment of your Imagination it be less than ideal for both of us if someone or something found us."  I didn't quite understand what David said but it sounded serious so from that point forward I decided to keep David a secret from everyone I knew.
+
+
+As I grew older and began to clash more and more with the people around me my emotions a whirlwind of   anger, sadness, happiness and many others. David was the one person  who was in my corner thoughout my adolescents a lot of other things changed about our relationship for one he was bound to me now so where ever I was he was. David was also the one that explained emotions to me and how hormones worked as well as telling me about when he was younger  He saw raido come about how he knew the founders of my small town. He told me about the first house that was now a museum how he help build it. David's knowledge was one of his best qualities and his the ability to grow my love of history was 2nd to none. He essentially became a 2nd father to me I asked him why he helped me out so much.
+
+ "your father is gone often and when he isn't your walking on egg shells around him and your mother is a door matt for his verbal abuse when you were six I decided I needed to give you a guiding hand. Let me  help you out. Emma please I'll guide you and teach you just trust me." I decided to trust David he had never led me on a dark path.
+
+
+Years past and I had turn 18 and my  interest in the occult had started thanks to David being so chill I had little fear of spirits. I didn't know what I was doing if I did maybe I could have saved him that night I bought the damn thing here. David tried to warn me I just didn't listen.
+
+
+
+ One night I was working on a ritual to summon something I wanted to know if heaven and hell were real obviously a soul was real what about an after life? If I knew this maybe I could give David the peace he deserved to have. It went horribly wrong I ended up letting something lose and I heard a blood chilling scream before it came after me I know not were it came from or what  but what ever it was wanted to kill me and I couldn't escape it when it Inevitably got me. My body started to feel cold I ended up seeing my body. Just as I was fading to black I felt  David push me back into my body. As I saw the thing drag David somewhere.
+
+
+That night I Cried someone I cared about was gone permanently thanks to my fuck up. I've been itching to tell this story for two reasons 1. To tell someone most people would think me mad if I told them this story. 2. To ask if any of you know a way to summon a Specific ghost I need to get him back I feel lost and his advice is the only way I can feel whole again. I know it's risky but please tell me I Just want my friend back.
