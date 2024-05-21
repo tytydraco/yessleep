@@ -90,4 +90,6 @@ The two officers interrogated me. They took my camera, searched my interior, and
 
 The next week I moved. I surprisingly found a job as an archivist at a newsroom. It's simple and boring, but I operate the same hours as before. It's steady, which I'm thankful for, but it's gotten strange. Sometimes I'll see some footage that I thought was mine and it makes me chuckle. But I'm beginning to worry. I've been seeing the smiling man.
 
-At first, I thought it was just hallucinations from the long hours. Nope. He's in all the videos. The cameramen don't notice him, but I do. He's at every crime scene and he's always smiling - always watching. I've done my best to not watch the videos because I can't stand to look at his face. One day coming home from work, I thought I saw him in my reflection. I'm beginning to believe the woman. He's not a person. He's something *else*.
+At first, I thought it was just hallucinations from the long hours. Nope. He's in all the videos. The cameramen don't notice him, but I do. I even brought one of my colleagues to see, and he confirmed. I have photos on my phone as well. The smiling man is there wearing the same black suit as the night I saw him.
+
+He's at every crime scene and he's always smiling - always watching. I've done my best to not watch the videos because I can't stand to look at his face. One day coming home from work, I thought I saw him in my reflection. I'm beginning to believe the woman. He's not a person. He's something *else*.
