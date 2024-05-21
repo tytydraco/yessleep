@@ -50,7 +50,9 @@ When it was over, Elena thanking their college patrons, I tugged out an earphone
 
 Connor was glaring at his phone. When he caught my eye, he scowled. “What? Why are you looking at me like that?”
 
-Instead of answering him, I held up my phone, displaying the show. “Why not try finding a *real* human voice?” I said. “You have cash from your job, right? Dump the robot-sounding AI, and pay a voice actor.”
+Instead of answering him, I held up my phone, displaying the show. “Why not try finding a *real* human voice?” I said. 
+
+“You have cash from your job, right? Dump the robot-sounding AI, and pay a voice actor.”
 
 I watched my roommate's expression crumple. 
 
@@ -102,7 +104,11 @@ I couldn't help it, risking a peek at his latest narration. I always get curious
 
 Getting comfy in his chair, and taking an awkward sip from his lukewarm coffee, I pressed play on the edit. I'm not sure what it was that twisted my gut. 
 
-The coffee tasted kind of weird, and it was too hot in his room. But, as I fast forwarded the edit, I realized I wasn't listening to a familiar voice. I wasn't expecting JJ’s Savrin’s voice to bleed from the speakers. So soon, too. It's not like I was doubting that he'd say yes to narrating, but he'd been sick, right? I twisted around, studying my roommate's room for recording equipment. Nothing. 
+The coffee tasted kind of weird, and it was too hot in his room. 
+
+But, as I fast forwarded the edit, I realized I was listening to a familiar voice. I wasn't expecting JJ’s Savrin’s tone to bleed from the speakers. 
+
+So soon, too. It's not like I was doubting that he'd say yes to narrating, but he'd been sick, right? I twisted around, studying my roommate's room for recording equipment. Nothing. 
 
 Just a broken microphone on his floor, the one I accidentally stood on. 
 
@@ -124,7 +130,7 @@ The AI voice faltered, and this time, I *did* hear a gasp.
 
 It sounded like pain. 
 
-Running through the edit, there were still chunks of recording untouched. 
+Running through the edit, there were still chunks of recording, untouched. 
 
 “I… ice… cream…I…”
 
@@ -140,6 +146,8 @@ I remembered stabbing the off switch on the laptop, but the voice continued, spl
 
 This time it was coming from behind me. 
 
+The bathroom. 
+
 “Is… someone there? I'm locked in the bathroom, man. I want to go home.”
 
 JJ Savrin. 
@@ -148,13 +156,13 @@ Was in our house.
 
 Worse, my psycho roommate has kidnapped him, attempting to steal his voice. 
 
-When I stepped back, his voice was louder. 
+When I stepped back, his cry was louder. 
 
-“Fuck! Is someone there?”
+“Fuck! Is someone there? Answer me!"
 
-“JJ?” found myself in a daze, walking towards my roommate's bathroom. 
+“JJ?” I found myself in a daze, walking towards my roommate's bathroom. 
 
-“What did he do to you?”
+“What... did he do to you?”
 
 The guy let out a strangled cry. “Your psycho friend locked me in the bathroom! I think I'm blindfolded. I…I can't see anything, “ he paused, “Can you get me the fuck out of here?”
 
@@ -162,7 +170,7 @@ I swallowed down something slimy. “Did Connor do this to you?”
 
 He broke out into a sob. “He knocked me out. I think he wants me to narrate for him. Which isn't happening, by the way. The lunatic is trying to steal my fucking voice!”
 
-With shaky hands, I grabbed the handle, which turned, to my surprise. 
+With shaky hands, I grabbed the icy handle, which turned, to my surprise. 
 
 “The door isn't locked,” I said. “Did he tie you up?”
 
@@ -214,7 +222,9 @@ Stuffed into the toilet bowl, a single lump of pink, wires protruding from it.
 
 The thing pulsed, JJ Savrin’s cry collapsing into a robotic drone. 
 
-JJ’s voice didn't make sense. It was alive. While he wasn't. 
+JJ’s voice didn't make sense. 
+
+It was alive. While he *wasn't.*
 
 “So, why… why can't I see you?” His voice stuttered. "I can't see *anything*."
 
@@ -248,7 +258,11 @@ Whatever was left of the narrator was disposed of. I wasn't even fully conscious
 
 The cops said it was evidence, but I didn't want to give it to them. 
 
-Due to the horrific nature of JJ Savrin’s murder, the full details were never released, and his full name was covered up. Nick and Elena have dumped the show. I heard Nick tried to kill himself a month ago. Elena published a blog exposing what really happened to JJ, warning Youtube narrators. It was deleted, of course, but she wasn't wrong. 
+Due to the horrific nature of JJ Savrin’s murder, the full details were never released, and his full name was covered up. Nick and Elena have dumped the show, and the show itself has been wiped from existence. I heard Nick tried to kill himself a month ago. 
+
+Elena published a blog exposing what really happened to JJ, warning Youtube narrators. 
+
+It was deleted, of course, but she wasn't wrong. 
 
 I don't think people will go to extremes like my roommate, but human voices are precious. 
 
