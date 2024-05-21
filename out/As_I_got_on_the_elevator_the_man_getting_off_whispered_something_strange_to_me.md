@@ -4,11 +4,11 @@
 
 *“I’ll only say this only one more time. Don’t get off until you hit 9th. No other floor is safe.”*
 
-It’s crazy but something about the way he said it penetrated my skull. He was serious. *And*, he looked nervous, like he had to fight every instinct in his body to say that to me.
+It’s crazy but something about the way he said it penetrated my skull. He was serious. *And*, he looked nervous, like he had to fight every instinct in his body to say that to me.
 
 The doors closed, while I thought to myself - who the fuck says anything like that?
 
-As I went to hit the button for the fifth floor, some anxiety came over me. I shook it off and pressed it. *The guy was probably just off his rockers.*
+As I went to hit the button for the fifth floor, some anxiety came over me. I shook it off and pressed it. *The guy was probably just off his rockers.*
 
 The elevator went up. I scanned my surroundings - a TV bolted to the top corner of the elevator (playing the weather channel), a mirror for the back-wall of the elevator, and some cozy lounge-style music playing. Pretty standard stuff.
 
@@ -30,7 +30,7 @@ The gentleman’s warning from earlier played in my head.
 
 “Nonsense! We’ll see if we can speed things up. He’s been very excited to meet you.”
 
-The elevator doors started closing. I held them open. I wasn’t sure what to do here, but everything seemed fine enough. Granted, the receptionist did seem a *bit eager*, but beyond that…
+The elevator doors started closing. I held them open. I wasn’t sure what to do here, but everything seemed fine enough. Granted, the receptionist did seem a *bit eager*, but beyond that…
 
 From my vantage point, I scanned the office space behind the front desk area. All looked normal - cubicles, folks clicking away at their computer, a kitchen area. Pretty unremarkable.
 
@@ -60,9 +60,9 @@ Ninth floor. I needed to go to the ninth floor.
 
 I found the 9th floor button and pressed it. It felt like it didn’t register my push, so I pressed the button again. And again. Come on, come on, come on, ninth fucking floor. I tried again and again, but nothing was happening.
 
-Fuck it. *I’ll go back to the ground floor,* I thought to myself. Back to the start.
+Fuck it. *I’ll go back to the ground floor,* I thought to myself. Back to the start.
 
-As I went to press the ‘G’ button, I realized it was missing. *Just that one singular button gone.* Fuck.
+As I went to press the ‘G’ button, I realized it was missing. *Just that one singular button gone.* Fuck.
 
 I was getting claustrophobic. I took in deep breaths to prevent myself from having a full blown episode.
 
@@ -72,11 +72,11 @@ The elevator started moving up again. A panel above the elevator doors lit up wi
 
 I started talking to myself to self-soothe. “It’s okay, someone will call the 9th floor soon. That’s where I’ll get off.”
 
-As the elevator approached its new destination, I noticed that the background lounge music in the elevator had changed. It was now an instrumental arrangement of “Happy Birthday”. *Huh.* Not sure why this thing thought it was my birthday.
+As the elevator approached its new destination, I noticed that the background lounge music in the elevator had changed. It was now an instrumental arrangement of “Happy Birthday”. *Huh.* Not sure why this thing thought it was my birthday.
 
 I glanced at the weather report on the TV. At least it was going to be sunny all week! Silver linings.
 
-*“Now arriving at the 11th floor.”* DING!
+*“Now arriving at the 11th floor.”* DING!
 
 The doors opened, I hung around the inside corner of the elevator beside the buttons. No need to have another nightmare-ish experience, right?
 
@@ -136,7 +136,7 @@ I clung onto the ends of it. Fuck. Fuck!
 
 I started kicking and headbutting him. I was able to make him let go of me momentarily, as I desperately pressed on the “close doors” button. Miraculously, the elevator responded much quicker this time and they closed immediately.
 
-I tried the 9th floor button again. Didn’t work. I pressed 8 instead. *Anything to get away from this hell-hole of a floor.*
+I tried the 9th floor button again. Didn’t work. I pressed 8 instead. *Anything to get away from this hell-hole of a floor.*
 
 I heard a loud banging on the door as the elevator started taking off. Like an aggressive knock.
 
@@ -146,7 +146,7 @@ As I saw the floor numbers rising -
 
 3… 4… 5…
 
-The banging continued. Just as loud. *What the fuck?*
+The banging continued. Just as loud. *What the fuck?*
 
 6th floor… 7th floor…
 
@@ -184,11 +184,11 @@ And disappeared.
 
 It was gone. Thank fucking god.
 
-I exhaled. It felt like I’d narrowly avoided disaster.
+I exhaled.  It felt like I’d narrowly avoided disaster.
 
 The doors opened.
 
-I scanned the new floor, and I realized… I was back on the ground floor. That’s what it looked like, anyways. *Did I escape? Was I finally free?*
+I scanned the new floor, and I realized… I was back on the ground floor. That’s what it looked like, anyways. *Did I escape? Was I finally free?*
 
 A man stood not-too-far from the door. He looked familiar, but I couldn’t exactly place him.
 
@@ -216,7 +216,7 @@ I didn’t leave.
 
 *Why the fuck couldn’t I move?*
 
-“He’s in the other room. I’m gonna fetch him, okay? All you have to do is look at him. It’ll feel a bit weird at first, but then it’ll all be okay. It’s a permanent position. Great benefits. It *is* fully onsite, but, no better birthday present than a new job, right?”
+“He’s in the other room. I’m gonna fetch him, okay? All you have to do is look at him. It’ll feel a bit weird at first, but then it’ll all be okay. It’s a permanent position. Great benefits. It *is* fully onsite, but, no better birthday present than a new job, right?”
 
 I lowered my gaze to the floor. I forced myself to mutter the following words - “It’s not my fucking birthday.”
 
@@ -256,7 +256,7 @@ I answered.
 
 “It’s a trick, honey. You have to trust me. The man from before was lying to you. It’s not safe.”
 
-“*None of this has been safe!* How do you even know everything that’s happening?!”
+“*None of this has been safe!* How do you even know everything that’s happening?!”
 
 “You just need to trust me, hun.”
 
@@ -278,9 +278,9 @@ Even with me hanging up the call, the muffled sound of the demonic voice coming 
 
 **GO TO YOUR INTERVIEW.”**
 
-I pulled out my phone and flung it to the ground as hard as I could. I stomped on it angrily. The warped sound of **“GO TO YOUR INTERVIEW”** slowly started dying out.
+I pulled out my phone and flung it to the ground as hard as I could. I stomped on it angrily. The warped sound of **“GO TO YOUR INTERVIEW”** slowly started dying out.
 
-But suddenly, the elevator started shaking. It was continuing to go up… but it was faster than usual. Really, really fucking fast all of a sudden. Almost like the 9th floor was now *way below me.*
+But suddenly, the elevator started shaking. It was continuing to go up… but it was faster than usual. Really, really fucking fast all of a sudden. Almost like the 9th floor was now *way below me.*
 
 It felt like an amusement park ride with no breaks on it. Loose. Dangerous. Flinging up at an insane speed, almost as if it was falling upwards.
 
@@ -312,11 +312,11 @@ I felt like I was inside a bullet. The pleasant voice of the elevator lady was g
 
 The voice started croaking. A demonic sound this time –
 
-*“Now arriving at* **SOMEWHERE NICE.**”
+*“Now arriving at* **SOMEWHERE NICE.**”
 
 A sudden halt. The elevator stopped. The doors didn’t open though. The panel above the elevator doors had no indication on what floor we were on.
 
-As I sat, I heard what could be best described as the sounds of hell coming from outside the elevator. Low grunts of pain. Crackling. *A dark hymn.*
+As I sat, I heard what could be best described as the sounds of hell coming from outside the elevator. Low grunts of pain. Crackling. *A dark hymn.*
 
 Was this where I was supposed to get off?
 
@@ -356,7 +356,7 @@ An awkward silence between us.
 
 I looked at the TV in the top corner of the elevator, hoping to see the one constant I’d had during this whole cursed trip - the weather.
 
-Instead, the TV was now showcasing what looked to be CCTV footage. Grainy footage from a camera… of the exact elevator I was in. *A live feed of this exact moment.*
+Instead, the TV was now showcasing what looked to be CCTV footage. Grainy footage from a camera… of the exact elevator I was in. *A live feed of this exact moment.*
 
 Except, the TV showed me lying down. Looking up with a wide smile on my face.
 
@@ -398,7 +398,7 @@ I was interrupted by a voice from the outside.
 
 “You coming out or what you fucking moron?”
 
-I got to my feet. The feeling of distrust… anxiety, whatever you’d call it. My *fear intuition*. It was gone.
+I got to my feet. The feeling of distrust… anxiety, whatever you’d call it. My *fear intuition*. It was gone.
 
 I felt light.
 
@@ -434,7 +434,7 @@ I pressed it, and the elevator went down. It was a smooth ride.
 
 DING!
 
-As I got ready to exit, I realized that the ground floor button was missing once again. *Strange.* I didn’t linger on it.
+As I got ready to exit, I realized that the ground floor button was missing once again. *Strange.* I didn’t linger on it.
 
 I marched out, ready to get the fuck out of this building.
 
@@ -447,3 +447,5 @@ The most I could muster was putting my hand on the door to relay a message to he
 The woman just smiled at me.
 
 “Happy Birthday Michael.”
+
+[\+-+-+-+](https://www.reddit.com/user/WorldAwayTweedy)
