@@ -1,4 +1,4 @@
-[[Part 2]](https://www.reddit.com/r/nosleep/s/NWJ9EIewSW)
+[[Part 2](https://www.reddit.com/r/nosleep/s/rlsUCbSPX6)]
 
 
 My hands are shaking as I write this, I have to document my story incase something happens to me in the next few days. I'm not sure where to begin but I suppose here is better than anywhere.
