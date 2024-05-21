@@ -1,0 +1,15 @@
+i just found out about the challenge a little bit ago after just being on social media like usual and i saw a video of someone talking about a dhp trip and i found out it was Benadryl so i was interested and i wanted to try it so i was researching it all day and it seemed pretty cool i have smoked weed before in the past but I've never tripped,
+
+ i was looking for something new after doing some more research on it i saw you can buy Benadryl anywhere so i walked to a food store got it and walked home and hid the pills, once 8:45 hit i took 2 and i know that's not enough but i was shitting myself because i didn't want to be like the other who died doing this so after i took the 2 pills i just said fuck it and ate 6 more and hid the rest somewhere good so i don't take more once I'm tripping with is really important. around 9:30 i had to take a piss but when i stood up i felt weird almost heavier every step was hard i was bumping into wall and found it hard to stand.
+
+ I walked back into my room turned my lights on and chilled looking out of my window an I saw something up the road i don't know how to describe it but i was a big object just sitting in the road once I saw that I knew it was starting to hit and i was exited and nervous
+
+ at this point i took 400mg of dhp so i got the pills from where I had hid them and took 2 more for 500mg and i flushed the rest because I'm only 14 doing this keep in mind, anyway i look back at it and it was gone, then when i look at my carpet it was so weird but so cool there where spiders ALL OVER IT and i knew that i was tripping, when i went  to touch them but they just diapered. 
+
+after that was a blur but i do remember sitting on my bed relaxing an for some reason my shoe was on my bed so i tried to pick it up but my hand went right through it like it was a hologram. it was so cool after that though nothing else was happening just the spiders and the shoe on my bed with was now gone.
+
+ so i turn my lights off and as i get under my blankets i get a glimpse under my desk across my room and see a black figure with a black top hat and he had something in his hand but i couldn't see what it was when i saw him i knew i was tripping balls so i just looked away then a few minutes later i look back and its still there and it hasten move the same red eyes are still starting at me just like they where when i noticed him.
+
+ i remember nothing after that but when i woke up i knew what i did last night and i remembered what it was so i looked it up and turns out I'm not the only one who saw the "hat man" it was pretty cool to see a picture pretty close to what i saw in my room that night
+
+and i probably wont be doing this challenge any time soon or ever again AND DONT EVER TAKE MORE THEN THE PRESCRIBED AMOUNT OF ANY DRUG IM A IDOIT.
