@@ -267,3 +267,5 @@ I think they figured this out as well. Because one of them abruptly stopped spea
 In a matter of moments, the other alien turned around and took a step forward in my direction. It looked like he was peering down at me, fully aware of my existence. A wry smile appeared on his lips, and I felt a shiver go down my spine.
 
 I immediately switched off the telescope, put it back in the briefcase and ran towards my jeep. Buster followed after me. I decided to get to the nearest town and drove as fast as I could.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1cx7qav/i_work_as_a_security_guard_in_a_secret_government/)
