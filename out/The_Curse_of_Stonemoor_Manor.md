@@ -231,8 +231,6 @@ In response, Alistair simply glanced past me, nodding toward a figure looming in
 
 Alistair spoke as I stood in awe, elucidating, "With death, I am rejuvenated, yet with life, Fergus withers further. I take and I gain, while he gives and he loses. Our blessing is also our curse.”
 
-Fergus looked on with weary eyes and sagging shoulders. "There was a portrait earlier that escaped your notice, Doctor," Alistair interjected. "It was the portrait of my son... Fergus Stonemoor."
+Fergus looked on with weary eyes and sagging shoulders. "There was a portrait earlier that escaped your notice, Doctor," Alistair interjected. "It was the portrait of my son... Fergus [Stonemoor."](https://www.reddit.com/r/FishermanTales/s/GMKxgdasNS)
 
-___________
 
-[To be continued…](https://www.reddit.com/r/FishermanTales/s/GMKxgdasNS)
