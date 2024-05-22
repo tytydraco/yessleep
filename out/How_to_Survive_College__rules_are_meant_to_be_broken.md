@@ -145,3 +145,5 @@ We bought a camera.  One of those motion activated ones that hooks up to your s
 We’re going to figure out exactly what’s going on.
 
 Also, yes, I’m fully aware of the irony of Professor Monotone telling me to stay away from the power plant and then we immediately trespass twice in a twenty-four [hour](https://alderrayne.com/) [period](https://www.reddit.com/r/goatvalleycampgrounds/).
+
+[Next post](https://www.reddit.com/r/nosleep/comments/1cxq2xu/how_to_survive_college_the_best_laid_plans/)
