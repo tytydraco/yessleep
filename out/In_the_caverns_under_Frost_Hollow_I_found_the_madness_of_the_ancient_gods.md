@@ -78,7 +78,7 @@ Taking a deep breath in, I followed my friends down into the dark.
 
 “How do you know?” I asked. “You said you’ve never been here before.” She laughed.
 
-“I know. Probably just wishful thinking,” she said. Far below us, Jack’s voice drifted up, faint and weak. He had already reached the bottom.
+“I know. Probably just wishful thinking,” she said. Far below us, Phil’s voice drifted up, faint and weak. He had already reached the bottom.
 
 “The tunnel really opens up down here, guys,” he called. “It’s somewhat… bizarre, though.”
 
@@ -102,7 +102,7 @@ All along the smooth walls of gray rock, I saw thousands of black orbs peeking o
 
 We walked as fast as we could, excited to see where, if anywhere, the strange tunnel led. Phil, always the conspiracy theorist, babbled excitedly.
 
-“This has to be aliens, man,” he said, running his fingers through his dark hair. “I bet that scientists will find out this shit is millions of years old when we get back up and tell everyone. Maybe aliens came to earth in ancient times and made a bunch of stuff underground.” Gradually, as we walked, I noticed the tunnel opening up. The pointed triangular ceiling rose up higher above our heads and the walls moved outwards, as we were walking up a triangular funnel. At first, it was so subtle that I didn’t believe it when Sonia pointed it out.
+“This has to be aliens, man,” he said, running his fingers through his dark hair. “I bet that scientists will find out this shit is millions of years old when we get back up and tell everyone. Maybe aliens came to earth in ancient times and made a bunch of stuff underground.” Gradually, as we walked, I noticed the tunnel opening up. The pointed triangular ceiling rose up higher above our heads and the walls moved outwards, as if we were walking up a triangular funnel. At first, it was so subtle that I didn’t believe it when Sonia pointed it out.
 
 “No, look,” she said, raising her hand above her head. “When we first started down this weird tunnel, my fingers were only maybe a foot away from the top. Now it’s a couple feet.” I was about to respond when our headlamps illuminated something standing in the middle of the tunnel.
 
