@@ -72,7 +72,7 @@ I tried to stop berating myself. It was my first day back at work, after all, an
 
 I felt so foolish. So *dramatic*, as always, for letting emotions rule me. James had been so patient, in spite of my mistrust, and I felt incredibly guilty for doubting him. So, I thought about what I could do to make amends.
 
-A Thai takeaway and Donny Darko. His favourite food, and his favourite film. The perfect solution. That would mend the recent rift in our relationship. I was certain of it.
+A Thai takeaway and Donnie Darko. His favourite food, and his favourite film. The perfect solution. That would mend the recent rift in our relationship. I was certain of it.
 
 The rest of the work day raced by as I eagerly anticipated the romantic evening I was planning in my head. An evening that would put the unpleasantness of the previous week behind us. I dropped James a text telling him that dinner was going to blow his socks off.
 
@@ -112,17 +112,17 @@ I wish I still had that privilege.
 
 The teenager responded to my sound of horror with a slight giggle. A giggle that grew as I slowly began to shut the door. I was too afraid to slam it in a swift motion, in case the boy on my doorstep were to react dangerously. He haunted me. And in the sliver of the ajar door, moments before I closed it, I saw something else.
 
-Wriggling shapes. Reddened worms, like the ones I’d seen on the boy’s lips, began to burst through the blemishes on his face. They slipped through petrifying pimples that weren’t really pimples at all. Just as that *thing* wasn’t Mike at all.
+Wriggling shapes. Red worms, like the ones I’d seen on the boy’s lips, began to burst through the blemishes on his face. They slipped through petrifying pimples that weren’t really pimples at all. Just as that *thing* wasn’t Mike at all.
 
 I finally closed the door and locked it, whilst my heart thumped without rhythm. I could hear the boy breathing on the other side of the door, and my body shook. I thought about calling the police. Thought about screaming at him to go away.
 
 “He didn’t want the delivery…” Mike tittered erratically.
 
-Footsteps padded away, and I tried to process what the boy had said. Not that it made any sense. The haunting pieces of the puzzle were there, but nothing meant anything. Not until James spoke.
+Footsteps padded away, and I tried to process what the boy had said. It made no sense. The haunting pieces of the puzzle were there, but nothing meant anything. Not until James spoke.
 
 “*Didn’t you hear me, sweetie*?” My husband cooed.
 
-The unexpected voice struck my heart with a thunderous bolt of fear, and I spun around to see James standing in the doorway to the living room. His face was clumsily painted with a smile that looked self-learnt — as if he had never seen true joy. Never seen a true person. It was a poor performance from a thing that had walked among humans for a week. I knew then what I’d suspected for days.
+The unexpected voice struck my heart with a thunderous bolt of fear, and I spun around to see James standing in the doorway to the living room. His face was clumsily painted with a smile that looked poorly-learnt — as if he had never seen true joy. Never seen a true person. It was a terrifying performance from a thing that had walked among humans for a week. I knew then what I’d suspected for days.
 
 *This was not my husband.*
 
@@ -130,13 +130,13 @@ The unexpected voice struck my heart with a thunderous bolt of fear, and I spun 
 
 “Hear me come home, Lillian,” He chuckled. “I told the delivery boy we wouldn’t be needing the food… I see you’ve collected it anyway. That’s fine. I know how it feels to be hungry.”
 
-I gulped. “Listen, sweetie, I–”
+“Listen, sweetie, I–”
 
 His hand shot to the light switch, and the lobby was plunged into darkness. I yelped in fright, dropping the bag to the floor, and James’ heavy shoes clomped across the tiles towards me.
 
 I screamed as fingers gripped my shoulders, and the thing with my husband’s face tossed me to the ground like a limp doll. He climbed on top of me, suffocating me beneath his inexplicable weight. I saw very little in the darkness, but I felt that awful breath on my pupils — a mouldy, earthy aroma that slithered under my eyelids. Staleness looking for somewhere cosy to hibernate.
 
-That was how I chose to understand it as I squinted at James’ eyes in the blackness. Eyes which spilled a torrent of dark liquid. A squirming liquid, breaking into solid parts. Weaselling creatures were tumbling out of every discernible orifice, and I knew that these things had claimed James' body as a home. His mind too. I wondered whether, inside his body, there might be nothing left but those dreadful creatures. Creatures that had filled the delivery boy in the same way.
+That was how I chose to understand it as I squinted at James’ eyes in the blackness. Eyes which spilled a torrent of dark liquid. A squirming liquid, breaking into solid parts. Ravenous creatures were tumbling out of every discernible orifice, and I knew that these things had claimed James' body as a home. His mind too. I wondered whether, inside his body, there might be nothing left but those dreadful creatures. No bones or organs. Simply worms. Creatures that had filled the delivery boy in the same way.
 
 Creatures that were on the verge of taking *me*.
 
@@ -146,4 +146,4 @@ My hand wrapped around the base of the nearby coat-stand, and I yanked. It toppl
 
 As I ran into the street, I was haunted by a memory of the seconds that preceded the car accident. James had swerved into the barrier of the bridge. Swerved to avoid not a person or an animal, but a mass of united creatures.
 
-A wriggling mass of worm-like [horrors](https://www.reddit.com/r/dominiceagle).
+A travelling mass of worm-like [horrors](https://www.reddit.com/r/dominiceagle).
