@@ -38,7 +38,7 @@ And that was all the excuse my husband needed. He didn’t get any better.
 
 The first truly strange experience took place a week or so later, after I was released from the hospital and returned home. I stirred in the middle of the night, neck hairs pricking my pillow. Like those alert strands, I rose to attention, and my eyelids flew apart. I didn’t know why, at first, but then I felt it. A thick cloud of breath, reeking of festering sewage, that weighed against my flesh.
 
-It didn’t smell like the man I loved, but when I rolled over, James was certainly the one breathing heavily. My husband lay on his back, stiff as a board, but his cheek was pressed against the pillow. He was facing me. Eyes wide open.
+It didn’t smell like the man I loved, but when I rolled over, James was certainly the one breathing heavily. My husband lay on his back, stiff as a board, but his eyes were facing me. Eyes wide open.
 
 “Honey…?” I asked timidly.
 
@@ -74,7 +74,7 @@ I felt so foolish. So *dramatic*, as always, for letting emotions rule me. James
 
 A Thai takeaway and Donny Darko. His favourite food, and his favourite film. The perfect solution. That would mend the recent rift in our relationship. I was certain of it.
 
-The rest of the work day raced by as I eagerly anticipatedtheromantic eveningI was planning in my head. An evening that would put the unpleasantness of the previous week behind us. I dropped James a text telling him that dinnerwas going to blow his socks off.
+The rest of the work day raced by as I eagerly anticipated the romantic evening I was planning in my head. An evening that would put the unpleasantness of the previous week behind us. I dropped James a text telling him that dinner was going to blow his socks off.
 
 *I’m hungry.*
 
@@ -92,7 +92,7 @@ After an hour without any sign of either, I started to worry and called James. H
 
 Knocking interrupted me.
 
-“– Sorry, the takeaway’s finally here… That was aridiculously-longwait.I thought you’d be here by now, but don’t worry.I’llheatupthe foodwhen you get home. I just… hope you’ve not been held up at work. Love you,” Isighed, hanging up.
+“– Sorry, the takeaway’s finally here… That was a ridiculously-long wait. I thought you’d be here by now, but don’t worry. I’ll heat up the food when you get home. I just… hope you’ve not been held up at work. Love you,” I sighed, hanging up.
 
 I answered the door to Mike. The usual acne-ridden teenager who did the deliveries for the Thai place. He was the kid of a neighbour at the end of the road. We’d known him for years. And I could see that something was different about him. It was a primal sensation. A feeling beyond fear. It was a *warning* from my brain. A warning that my eyes were unable to comprehend what they were seeing. My body was unable to comprehend what it was feeling.
 
@@ -144,6 +144,6 @@ Creatures that were on the verge of taking *me*.
 
 My hand wrapped around the base of the nearby coat-stand, and I yanked. It toppled onto James’ head. He flew backwards, disappearing into the darkness, and I immediately leapt to my feet, shrieking as I felt something slip from my cheek — something that had been all-too-close to entering one of my nostrils. I opened the front door, and everything came flooding back to me.
 
-As I ran into the street, I was haunted by a memory of the seconds that preceded the car accident. James had swerved into the barrier of the bridge. Swerved to avoid not a person, nor an animal, but a mass of united creatures.
+As I ran into the street, I was haunted by a memory of the seconds that preceded the car accident. James had swerved into the barrier of the bridge. Swerved to avoid not a person or an animal, but a mass of united creatures.
 
 A wriggling mass of worm-like [horrors](https://www.reddit.com/r/dominiceagle).
