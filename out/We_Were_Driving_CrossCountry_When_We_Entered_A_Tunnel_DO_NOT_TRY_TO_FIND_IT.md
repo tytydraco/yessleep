@@ -786,7 +786,7 @@ Before I could say anything, her hand smashed through the window and gripped Mia
 
 Disappeared…
 
-I SLAMMED on the breaks just as the RV passed through the exit of the tunnel and sunlight flooded the cab of the RV. I threw it in park and shot out of the door screaming.
+I SLAMMED on the brakes just as the RV passed through the exit of the tunnel and sunlight flooded the cab of the RV. I threw it in park and shot out of the door screaming.
 
 “Mia!? Mia??!!”
 
