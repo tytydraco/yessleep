@@ -34,6 +34,8 @@ The man glared in silence, then in a tone tinged with irritation and raised volu
 
 In an instant, the chatter in the pub fell silent, and every gaze turned toward our shadowed corner.
 
+“Seems you’ve caught everyone’s ear. Should I know this ‘master’ of yours, then?” I asked.
+
 Under the weight of the pub's collective gaze, the man squirmed uncomfortably, his voice lowering as he muttered, "It matters not. You’ll be well rewarded for your troubles."
 
 Past the man, the bartender shook his head in disapproval, fixing me with a stern glare, and silently mouthed the word, "no."
