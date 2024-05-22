@@ -58,5 +58,4 @@ We never did find that cottage again. Other guys went back to where I was and fa
 
 I have been disciplined three times for writing symbols on the walls that I can’t get out of my head. I draw them in my blood so they stand out more and resemble what I see. I have found that once they are on the wall, they stay out of my head. Unfortunately, I haven’t finished writing them all out yet. The first time I started I got really close to finishing, but then I found myself strapped to a hospital bed.
 
-The worst part of my new existence is the nightmares. I am plagued by images of my former colleagues: their pale dismembered bodies, the sound of cracking bone, their blood on my hands, their shrieks of pain, and the taste of flesh.
-
+One of the guards seemed to take pity on me recently, though, and he told me that I could write all my symbols down into a notebook so long as I also recounted my side of the story, so here we are. He said he would post the story somewhere, but I don't care what he does with it. I just hope the symbols stay out of my head once and for all.
