@@ -1,0 +1,220 @@
+[Part 1](https://www.reddit.com/r/nosleep/comments/1c2iu3v/im_indebted_to_a_voodoo_shop_part_1/) [Part 2](https://www.reddit.com/r/nosleep/comments/1cc2vtj/im_indebted_to_a_voodoo_shop_part_2/) [Part 3](https://www.reddit.com/r/nosleep/comments/1chsst6/im_indebted_to_a_voodoo_shop_part_3/) [Part 4](https://www.reddit.com/r/nosleep/comments/1cmjcja/im_indebted_to_a_voodoo_shop_part_4/) [Part 5](https://www.reddit.com/r/nosleep/comments/1cukmrq/im_indebted_to_a_voodoo_shop_part_5/) 
+
+The conversation with my dad about King Creole was the most heated I’ve ever had. Just mentioning his name to my dad was enough to send him into shock. He demanded to know where I had heard that name. I had to tell him everything about what had happened to me and my friends. About how we had been breaking into places to steal valuables and how it had all gone wrong the moment we entered the voodoo store. 
+
+
+
+“I can’t believe this,” my dad said as he buried his face into his hands and let out a shaky exhale. I didn’t know what to do as I watched my dad tear up. I rubbed my arm as he began to cry into his hands. I didn’t know if it was because his daughter had been reduced to robbing places to help keep us off the street or that both of us were now under the control of a psychopathic voodoo man. 
+
+
+
+“I’m sorry Dad…” I said as I left him to digest the knowledge I just dumped on him. I left out the part where I had been stabbed in the neck and nearly killed. I figured he could handle only so much terrible news. His deal with Creole was for a better-paying job and he had just been called for the opportunity to enter the management of one of the only remaining manufacturing plants left in town. Then I had to come and rain on his parade. 
+
+
+
+But knowing Creole, there had to be some kind of horrible strings attached to this wish granting. Nothing was ever straightforward with him. And as I pulled out the contract I signed with him I quickly began to realize that while this document guaranteed my dad and mom’s lives, it didn’t guarantee mine. Or for that matter, it didn’t guarantee their lives if something happened to me. In my fury and panic over my dad having made a deal with Creole I hadn’t been able to think clearly. Maybe I should’ve hired a lawyer to help me look over this thing. 
+
+
+
+While I was lamenting my lack of legal representation as if on cue, my phone began to ring. I already knew who it was and I didn’t want to answer it. But then I would have to explain to my dad who the undead bellboy was who had just shown up at our door looking for me. So begrudgingly I reached out and picked up the phone to answer it. 
+
+
+
+“My marvelous Mace! Could you come on over to the shop? Seems we have an issue that you need to help resolve.” Creole’s cheery southern voice was enough to make me want to punch a hole into my bedroom wall. I didn’t even bother answering him, simply grunting in reply and hanging up on him. If he wasn’t going to even be paying me for all this he was going to get the bare minimum of effort from me. 
+
+
+
+Bringing my usual items of lockpicking, a new can of pepper spray, and my phone, I applied more ointment to my invisible scar and headed downstairs. My dad was still at the kitchen table, staring forlornly at the table as I wordlessly left the house. I’m sure he could figure out where I was going, so it didn’t matter if I told him or not. 
+
+
+
+Walking down the street I was again lost in my mind thinking about how screwed I was. I was so focused I didn’t even realize that a limo had pulled up alongside me. And it wasn’t until some unseen force yanked me inside that I did realize that. Before I had a chance to reach into my pocket for my pepper spray, it was yanked away by an unseen slimy force. I couldn’t even let out a scream because that same slimy force quickly covered my mouth and filled my nostrils with a noxious and horrible odor. 
+
+
+
+“I’d rather not have you pepper spray me again, woman.” The familiar voice told me as my eyes adjusted to the sudden darkness inside the limo. As my eyes adjusted, the sallow face of Constantine Sinclair stared back at me with nothing but disgust in his exhausted eyes. I felt something heavy lean onto my shoulder and looked over to see the skeletal face of his shadow creature staring back at me with its pure white eyes. 
+
+
+
+“I’ll make this quick, the less time I spend here the better,” he said as he reached into his suit pocket and pulled out a cigar. I half expected him to pull out a gun and whack me like a mob boss or something. Instead, he calmly produced a cigar cutter and snipped the end off of his stogie. “Why were you in my mansion? More importantly, what were you doing with files concerning my mother?” he asked as he placed the cigar in his mouth. His shadow monster slithered away from me and removed its hand from my mouth. It then suddenly produced a match and lit the cigar of its master for him.
+
+
+
+“Creole sent me there to gather them. I don’t exactly know why,” I told him, doing my best to not gag from the double whammy of the rotting smell of the shadow and now the cigar smoke. Sinclair huffed and blew out a bluish plume of smoke into the dimly lit limo. I wanted so badly to roll down the window but I figured that he had them child-proofed in the back. 
+
+
+
+“As I figured. Asshole was trying to get leverage over me,” he said as he took a drag from his cigar. He wasn’t focusing on me, but his shadow kept a close eye on me, its pure white eyes keeping an obsessive watch over me. “And I take it that you work for him now?” Sinclair asked after a moment more of thought. 
+
+
+
+“Unfortunately,” I answered, he nodded again and looked to his shadow who suddenly got a disappointed look on its face. “What are you going to do to me?” I asked him after a moment. I thought that maybe if he didn’t let me go I could use my tools for lockpicking as some sort of weapon if he tried something. But I doubted that I could fist-fight a weird goopy shadow monster. 
+
+
+
+“Nothing. For now. But if you ever set foot on my property ever again, I won’t hesitate to feed you to him.” His shadow unhinged its jaw and produced a gaping maw at me that sent a shiver up my spine. I wanted so badly to just be away from him. “And tell your boss, to keep his disgusting undead hands off of my property as well.” He shooed me away and on that cue, the doors to the limo unlocked. I quickly exited the limo and put as much distance as possible between me and him. 
+
+
+
+“Oh, one more thing,” he said as the window rolled down. I looked back and was suddenly hit in the forehead by the can of pepper spray. I let out a pained grunt and rubbed my forehead as the limo slowly drove away. I bent over and picked up the spray and watched as his limo slowly faded into the distance. 
+
+
+
+“Fucking asshole,” I mumbled as I shoved the pepper spray back into my pocket and continued on my way to the voodoo shop. A part of me wished that Sinclair’s shadow had eaten me. Because maybe then I wouldn’t have to do whatever it was that Creole was going to send me on. But I had a family to protect so I sucked in as much air as I could and entered the store, the sad rusty bell signaling my arrival. 
+
+
+
+“Mace! Just the woman I was expecting,” Creole greeted me with giddy excitement. I offered him a little wave as I approached the register. I was surprised to see that Jacob wasn’t there and it made me a little sad not to see him waiting for me there. But I did my best to hide my contempt for Creole, afterall I couldn’t let him get bored of me already.“What have you got for me this time, sir?” I asked with as much enthusiasm as I could muster. Creole was ecstatic with my minimal amount of effort and he quickly sprang up from the chair and sauntered over to me, quickly wrapping an arm over me and pulling me close to him. Clearly, he still had no concept of personal space. 
+
+
+
+“Well as it turns out, we need to clean up a mess the two of us made! Turns out that version of you that crawled out of that lil ol’ mirror I had you get is causing some amount of issues. So I need you to go and deal with it!” He framed it like it was as simple as going to the gas station and picking up some snacks or something. 
+
+
+
+“How…am I supposed to kill that thing? And if I kill it…her? Will it kill me?” I asked him. Cause if that was the case I would rather have her roaming around than have the two of us dying. 
+
+
+
+“Excellent questions, Mace! First, this is how you’ll beat the creature.” He reached into his suit and pulled out a small little golden bell. I stared at him in confusion. How the hell was a bell supposed to save me? He rang the bell and we both waited a moment. Then suddenly Jacob popped up from behind the register, saluting like some kind of superbly dressed soldier. 
+
+
+
+“Be a good boy and bring the dagger, Jacob my boy,” Creole told the happy bellhop, who quickly nodded and practically skipped over to us and presented a dagger to Creole. It was a simple knife in a ceramic sheath. Nothing fancy about it, and if anything it seemed like some kind of prop that a crappy high school play would use. 
+
+
+
+“I have to get close to her?” I asked him as I took the knife with apprehension. I unsheathed it and was greeted with…a normal-looking dagger. How was this thing any better than a regular pocket knife? And for that matter how was this going to kill that version of me? 
+
+
+
+“Well, you got plenty close when you stared at the mirror. I’m sure you can deal with it no problem,” Creole said with a smile letting me go and walking over to Jacob. “If it makes you feel better Jacob will be going with you. If things get too bad I’m sure he’ll be of some help.” Creole chuckled walking back over to the register and sitting back down. “Well, y’all better get going. No telling what that other Mace is up to.” He shooed us away. I sighed as I resheathed the dagger and stuck it into my pocket. 
+
+
+
+Jacob led me back over to the entrance of the voodoo store and reached into his pocket to pull out another skeleton key. Inserting it into the keyhole and turning the lock we both stared and watched as the door warped into the shape of the hotel’s main entrance. When it was done, Jacob pulled the key back out and opened the door for me, I thanked him and entered the abandoned hotel. 
+
+
+
+Already within the first couple of steps, I could tell that the hotel had changed. the already pitch-black hotel had gotten even darker. And Creole had neglected to give me any source of light this time around. As I fumbled around I stepped on something wet and squishy. I instantly had a bad feeling and quickly reached into my pocket to pull my phone out. Turning the flashlight on I looked down at where my foot had stepped. I had stepped on what looked like intestines. 
+
+
+
+“Oh fuck me,” I shivered as I quickly turned my flashlight off. Something told me that the dark would be much better than knowing what else I could be stepping on. I fumbled for a bit more until I walked straight into the front desk and knocked over whatever was on it. Cursing in the dark I was suddenly illuminated by a source of light behind me. Turning I saw Jacob standing there with two actual flashlights in his hands. 
+
+
+
+“Thanks, Jacob,” I said with a tired smile. I walked over, making sure to ignore the squishy noises that came from every step I took toward him. I took the flashlight from him and he nodded with that permanent smile he always had. Seeing the front desk he happily skipped over to it and took his place behind it. I figured this was where he was going to stay while I went me hunting. 
+
+
+
+I began making my way towards the door to the stairs, glancing at every corner with my flashlight and shuddering at the stains of blood and meat chunks strewn about everywhere. I figured that this was the ‘issue’ that the mirror me was causing that needed to be dealt with. Creole probably didn’t have much jurisdiction out here in Pennsylvania so an evil monster version of me running around and killing people probably wouldn’t fly very well. 
+
+
+
+As I approached the stairwell door, I took a deep breath. I knew what smell awaited me on the other side of the door. With sufficient breath to ensure that I made it up a couple of flights of stairs and away from the smell, I opened the door and shone my flashlight into the pile of corpses waiting for me at the bottom. Now having expected them, I had a chance to examine them. And what I was met with confused me to no end. Most of the bodies were long and gangly, just like the version of me that had crawled out of the mirror. 
+
+
+
+I made a mental note of that and quickly rushed up the stairs to escape the smell. Once I was far enough up the stairs I started breathing again, only getting a slight hint of rot and decay. Every step I took toward the 11th floor echoed throughout the stairwell and I had to take several pauses. I could've sworn that something was following me up the stairs. It was the same as the first time I had been here in the hall, it felt like there was something following me. 
+
+
+
+It took me several minutes of stopping and starting to make it up the stairs to the 11th floor. In my mind, I figured that mirror me would be hanging around near where the mirror had been. And if not I would just have to go floor by floor. Arriving at last at the 11th floor I entered into the hallway and closed to door behind me, happy to leave those strange echoing footsteps behind me. But now I was just in a familiar hell. I shone my light in every direction that mirror me might be in. Slowly I started making my way through the halls stopping every few seconds for any possible sound that may have been my target. 
+
+
+
+“This sucks,” I whispered to myself as I pulled out the knife and held it out in front of me. I felt like some protagonist in a shitty horror movie, and I made damn sure to check behind me every moment I got. As I neared the scene of our first chase I saw that the damage that mirror me had done was still there, meaning that I didn’t have to go room by room looking for her. She’d have most likely broken into any room so that was a silver lining. A microscopic one, but it was one. 
+
+
+
+I shone my light into the room where the mirror had been and waited to see if there would be a reaction. There wasn’t one so I took a deep breath and stuck my head into the room. Satisfied that she wasn’t in there I turned to continue down the hallway. That was until I heard something. Like nails scraping across metal. I flashed my light in several directions in an attempt to figure out where it was coming from but to no avail. But this wasn’t like the steps, they didn’t stop after a while, they continued. 
+
+
+
+I started walking again and the sound continued to follow me. It sounded like it was right on top of me. And that gave me the idea. I slowly turned my light to the ceiling. And staring back at me were the crazed eyes of my mirror version. I let out a surprised scream at seeing her hanging from the ceiling. She was crawling like some sort of bug on the ceiling with her nails dug into the roof. Her head completely rotated around like a fucking owl to stare at me. And upon making eye contact with her she grinned at me with eyes that screamed murder. Her mouth was coated in dried blood and I could already tell what she wanted to do to me. 
+
+
+
+I wasted no time after discovering her than booking it towards the nearest room. She let out a haunting laugh which turned into a screech as she began chasing after me. There was going to be no time for me to pick any of the locks so my best bet was heading towards one of the rooms that she had already broken into. And to my luck past the turn in the hallway was one of those rooms. I ran inside and quickly ran into the bathroom, slamming the door closed and locking it. She had been closer than I would’ve liked as she slammed into the door just as I locked it. 
+
+
+
+“Great, now I’m trapped.” I scolded myself, but in my defense, a life-or-death situation calls for quick thinking. And this was as quick as I could think. I shone my light around every inch of the bathroom to look for something to fight back with. A knife was nice but I needed something to keep her at bay as well. Unless she was allergic to soap or towels there wasn’t much in here that could get her off my back long enough to use this knife. Then I noticed the toilet. 
+
+
+
+Quickly I grabbed the lid off the back tank and waited for her to break through the door. She was relentless as she continued to bash her head against the door and it began to break and splinter. I backed up and stood on top of the toilet and readied like a baseball player ready to strike her the moment she busted into the bathroom. 
+
+
+
+Finally, the door split down the middle and she lunged into the bathroom. I swung as hard as I could at her. The lid shattered against her and she went flying into the bathtub, the shower curtain fell on her and quickly entangled her as she flailed around in confusion. I took my chance and quickly climbed on top of her and plunged the dagger into her. But to my shock, the shower curtain had bunched up just enough to dampen my stab so that it barely so much as nicked her. 
+
+
+
+She quickly let out a scream and kicked me off of her, sending me right into the bathroom mirror and causing it to shatter. Just what I needed, seven more years of bad luck. I let out a grunt and stared at the mirror me as she rose from the bathtub and the curtain fell off of her. She was so much more taller than me and she reached out to grab me by the head. 
+
+
+
+“You’re mine,” She hissed at me, in a voice that sounded like me if I had been smoking for the entirety of my life. She opened her mouth and leaned in to take a bite out of me. She had been so focused on eating me however that she hadn’t noticed me grabbing a shard of mirror and sticking her in the neck with it. She screamed again and dropped me, yanking the shard of glass out of her neck and attempting to stop the flow of blood. I fell to the ground in a thud and quickly started searching for the knife in all the chaos that was the bathroom floor. 
+
+
+
+Finally, I found it and instead of taking my chances I quickly put more distance between me and her. She was still busy dealing with her bleeding neck but upon seeing me starting to escape she quickly ignored it and got back on all fours ready to chase me. I quickly looked around for something else to defend myself with and landed on one of those old fat TVs. I rushed towards it and picked it up as best as I could, grunting with how heavy it was I quickly tossed it at her as she came running out of the bathroom. 
+
+
+
+It hit her with a loud crash and I quickly jumped on her again once she was dazed. This time for sure I plunged the knife into her back and drove it to the hilt. She let out a pained and gurgle-filled scream and before my eyes, she began to wither away. But before she completely did, her head spun around and she bent backward at almost a 90-degree angle and sank her teeth into my skull. At a sideways bite, she yanked out my left eye and chunks of bone and flesh along with it as she shriveled up and died like a spider. 
+
+
+
+I let out a pained scream and staggered backward before collapsing and screaming more in pain. The pain was so bad that I must have blacked out because before I knew it I had woken up in a different room in the hotel. One that happened to have power and was lit up. Jacob was sitting on the bed and gave me a little wave, I was so thankful to see him that I sat up in bed almost immediately. 
+
+
+
+“Is she…dead?” I croaked, my mouth felt like I had just eaten a handful of sand. Jacob nodded and quickly reached over to the nightstand next to my bed and offered me a glass of water. I quickly guzzled it down and let out a satisfied sigh. I then reached up towards the glaring lack of vision in my left eye, but before I could touch it Jacob quickly grabbed my hand and shook his head. 
+
+
+
+“It’s better if you don’t touch it. Quite the nasty bite.” Creole’s voice came from the bathroom as the tall voodoo man emerged from inside with a smile that threatened to rip all his stitches. “Seems that mirror creature got the last bite off on ya.” He chuckled as he shooed Jacob off of the bed. 
+
+
+
+“Nice to see you too sir…” I huffed as he carefully held my face in his gloved hands and examined the wound that mirror me had given me. He didn’t give off any indication of how bad it was, but considering I couldn’t see what he was doing on my left side it was safe to say that my eye was well and truly fucked. 
+
+
+
+“Well, we have some options for you, marvelous Ms. Mace,” Creole said as he let go of my face and patted my head. “I can give you a button eye,” He smiled and tapped his own. “Or a glass eye.” He offered, reaching into his pocket and pulling out the two options he had presented me. 
+
+
+
+“You can’t just fix my regular eye?” I asked him as I quickly took the glass one. I wasn’t about to end up looking like him or Jacob if I could help it. Creole looked over at Jacob and then back at me. 
+
+
+
+“Well…If I still had the other eye it might be possible. Unfortunately, it seems that it was crushed in the creature’s jaw when it clamped down on you.” He shrugged and took the glass eye from me, rubbing it around in his gloved hands and presenting it to me, with a slight purple glow emanating from it. “But you’ll be able to see just fine with this one. Satisfaction guaranteed,” he said with that usual big stupid smile on his face. 
+
+
+
+I took the eye from him and looked down at it. I stood up from the bed and went into the bathroom. And I had to stop myself from screaming at the reflection I saw staring back at me. My left eye was gone and parts of my skull were visible. I fell to the floor and began crying uncontrollably from my remaining eye. As I lay there on the bathroom floor I felt arms wrap around me and pull me into a hug. I looked up and was greeted by Jacob’s smiling form looking down at me. I buried my face in his chest and cried my eye out. 
+
+
+
+After I sufficiently calmed down Creole helped me put my new eye into its home. Vision quickly returned to it and I looked around to make sure it was working correctly. I was still a sniffling mess and Jacob handed me tissues to wipe my nose. 
+
+
+
+“Well, that should do it! The ointment I gave you for your scar will also work on the area around your eye. Now, I’ll leave you two to finish up here. Can’t leave the shop unattended for too long after all!” He giggled happily as he exited the room and left me alone with Jacob. I looked over at him and then reached for the notepad and pen that were on the nightstand next to my bed. He looked at them and then at me with a quizzical look. 
+
+
+
+“Can you please help me escape him?” I asked him and handed him the notepad. He took it and looked at it for a minute as if he was trying to remember how to write. Then he scratched it with the pen a few times before presenting it to me. 
+
+
+
+It was a smiley face. I caught so off guard that I couldn’t help but snort and laugh. Both at my hopeless situation and at his response. Seemed that in the process of creating him, Creole had scooped out his brains. I was on my own. And this was the second time that I had almost been killed working for Creole. 
+
+
+
+Who knows when the time will come that I’m finally killed off? 
+
