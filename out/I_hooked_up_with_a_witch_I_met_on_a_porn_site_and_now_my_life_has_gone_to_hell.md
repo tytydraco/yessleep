@@ -62,7 +62,7 @@ I tried every possible name the site could have been called, but I turned up emp
 
 I had one Hail Mary left though, I checked my cars GPS and found the address I had gone to the night before, I plugged the coordinates back in and and put my foot to the floor.
 
-And just like the first time, my jaw hit the floor when I saw her house again, but for the wrong reasons.
+And just like the first time, my jaw hung by its hinges when I saw her house again, but for the wrong reasons.
 
 I found myself standing in front of a dilapidated, run down old mess of a house, with a sign in the front stating a date for its demolition.
 

@@ -12,9 +12,9 @@ Happy’s Restaurant had enormous plate-glass windows wrapping around the sides 
 
 I got out of the car, heading over to the front of the restaurant where I lit a cigarette and inhaled deeply. The spicy menthol tobacco gave me a sudden jolt of energy. Blinking quickly, I smoked the cigarette as quickly as I could, feeling wide awake by the end of it. I stood under the canopy of the building, watching lightning erupt like missile flashes across the sky. The street remained dead and empty. I hadn’t seen a single other person since I had dropped off the weirdo at the nearby Victorian house.
 
-I opened the glass door of the diner, hearing a bell ring overhead. I looked into the empty restaurant, seeing its sparkling clean tables. The smell of fresh coffee rose out in fragrant waves. Shrugging, I went down and sat at a table next to a TV in the corner. It was playing some twenty-four hour news channel, talking about a mass break-out in a nearby mental asylum.
+I opened the glass door of the diner, hearing a bell ring overhead. I looked into the empty restaurant, seeing its sparkling clean tables. The smell of fresh coffee rose out in fragrant waves. Shrugging, I went down and sat at a table next to a TV in the corner. It was playing some local news channel.
 
-“Two patients of the Graypath Psychiatric Hospital were able to break out by murdering a doctor and taking a nurse hostage. They had apparently planned the attack for weeks, making homemade knives out of screws taken out of the walls and other contraband that went undetected. The facility is considered a maximum-security hospital, with the majority of patients considered criminally insane and held until…”
+“Two patients of the Graypath Psychiatric Hospital were able to break out by taking a nurse hostage. They had apparently planned the attack for weeks, making homemade knives out of screws taken out of the walls and other contraband that went undetected. The nurse escaped soon after, uninjured but in clear distress. The facility is considered a maximum-security hospital, with the majority of patients considered criminally insane and held until…”
 
 “Hey, sorry bud, didn’t see you there,” a voice called out from the back of the empty restaurant. I jumped, turning to see who was speaking.
 
