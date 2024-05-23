@@ -385,3 +385,5 @@ His voice lowered, “When your heart stops, puppydog, you better pray the devil
 Hoping that he couldn't see my hands shaking, I grabbed my things and got out without another word. The G6 was working even better than it had before the deer incident. 
 
 After that interaction… I think I'm going to look for more hagstones. And I'm going to restock on salt shells. 
+
+[(Here's an index of all the cases I've discussed so far.)](https://www.reddit.com/u/adorabletapeworm/s/DSCXrJChCH)
