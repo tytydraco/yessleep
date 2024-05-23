@@ -119,3 +119,5 @@ But this time , I couldn't move or defend myself. It's head got closer to mine ,
 But its attention was diverted before it could bite me. Jason had stabbed the egg's eye using the [knife.](https://www.reddit.com/r/UnnaturalUniverse/s/0pdEiP3lmg)
 
 
+[Part 3](https://www.reddit.com/r/nosleep/s/bizBVEauso)
+
