@@ -26,8 +26,6 @@ One photograph in particular caught my eye. A woman, sitting in a bright red ro
 
 She sighed before opening a drawer and pulling out a small pipe. “I’ll go, but i'm not going sober.”  
 
----
-
 It was a cold, shitty Seattle winter night. We got dropped off in the parking lot and spent a few minutes looking for the storefront. We finally found it next to a dog groomer and Pho restaurant with some pun for the name I can’t seem to remember. 
 
 We entered the shop, which consisted of two narrow isles separated by wood shelves barely big enough for me to fit down. We spent some time looking at the various items, my attention diverting to a vial of elk blood. I remember wondering if they were even allowed to sell this without some type of medical certification they definitely did not have while Chloe shuffled through a bowl of mix and match crystals. 
@@ -64,8 +62,6 @@ Chloe and I hung back, and politely declined when our turn came. Once all was sa
 
 We laughed our asses off the entire way home. First thing she did was open her laptop and post the pictures on Twitter, tagging the lodge with the caption “me and the boys chilling right now”.  
 
----
-
 We returned to the usual rhythm of our lives. I went to work, conducting meetings and answering emails, while Chloe went back to her classes. A few days later, Chloe checked her Twitter and saw that she had gained a few thousand likes. The whole ordeal became a running joke between us. 
 
 I would eat fruit snacks and sip on my soda, saying, “There is no part of me that is not of the Gods”. A few weeks later, we had mostly forgotten about it, except for the occasional recounting as a funny story to regale our friends. 
@@ -99,3 +95,5 @@ After a moment of silence I stormed off again, back towards home. 
 I picked up a glass bottle from the sidewalk and chucked it, smashing against her shop window, forcing her to close the door and disappear into the shadows. I’m not particularly proud of how I behaved in this moment, but unless you’ve had someone break into your home and draw shit on the walls, hold on to your judgment. 
 
 The next few days passed without so much as a peep from them. Chloe and I began to relax, convincing ourselves that the cult had been scared off. Life seemed to be returning to normal, and the unsettling incident became just another story. 
+
+\[[Part 2](https://www.reddit.com/r/nosleep/comments/1cywowj/we_joined_a_cult_as_a_joke_part_2/)\]
