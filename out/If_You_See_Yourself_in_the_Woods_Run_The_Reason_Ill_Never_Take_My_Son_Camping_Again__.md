@@ -1,16 +1,14 @@
 Jake, my 11-year-old son, blindsided me one day when he asked if we could go camping. I nearly spit out my lukewarm coffee in surprise—this was coming from the same kid who complained about the sun’s brightness at soccer practice and whined about mosquitoes at night! So when he suddenly expressed interest in camping, I couldn’t help but chuckle. It was such a far cry from his usual pastime of being glued to anything with a screen.
 
-I set my coffee aside, intrigued by Jake’s sudden interest in camping. “Where’s this coming from, buddy?” I asked, leaning in.
-
 We were hanging out by my truck one morning, talking about school, when Jake first mentioned camping. He nudged a pebble along the dry road, his gaze fixed on the ground. “Hey Dad,” he began hesitantly, “think we could go camping sometime?”
 
-I couldn’t help but grin from ear to ear. Jake's friend Daniel had been endlessly bragging about a camping trip with his dad, making the great outdoors suddenly irresistible to my screen-obsessed son.
+I couldn’t help but grin from ear to ear. Apparently Jake's friend Daniel had been endlessly bragging about a camping trip he went on with his dad, making the great outdoors suddenly irresistible to my screen-obsessed son.
 
 “Camping, huh?” I said, trying to contain my excitement. “Sounds great, but you know, it’s not all fireflies and s’mores. There’s bugs, for one thing. Lots of ‘em.”
 
 Jake grimaced, his enthusiasm briefly dimming. “Yeah, I know,” he mumbled, kicking at the dirt with his sneakers.
 
-I gave him a playful nudge. “If the weather holds, maybe we can find a good spot by the lake next weekend. Just you and me. You up for it?”
+I gave him a playful nudge. “If the weather holds, maybe we can just find a good spot by the lake next weekend. Just you and me. You up for it?”
 
 “Yeah,” Jake said, a hint of uncertainty in his voice.
 
@@ -18,15 +16,9 @@ His response to the lake idea didn’t seem genuine. A subtle shrug and a glimme
 
 Truth be told, I hadn’t been camping in years. Fond memories of childhood fishing trips and backyard campouts with my own dad felt like a lifetime ago. Work had a way of taking over, and lately, it had been consuming more than its fair share.
 
-“Just one thing,” I added, my smile fading slightly. “The boss just dropped a major project on me. I might have to work most of the weekend.”
+But after listening to Jake’s retelling of Daniel’s camping trip story, it had stirred something in me—a friendly rivalry. I was suddenly determined to one-up Daniel and his dad, to make sure my boy had the camping trip of a lifetime.
 
-Disappointment clouded Jake’s face, though he tried to hide it with a forced smile. “Oh, that’s okay, Dad. We can go another time.”
-
-My heart sank. This was supposed to be our chance to reconnect, a chance to be the kind of dad who took his son camping.
-
-After listening to Jake’s retelling of Daniel’s camping trip story, it had stirred something in me—a friendly rivalry. I was suddenly determined to one-up Daniel and his dad, to make sure my boy had the camping trip of a lifetime.
-
-A grin spread across my face as I promised Jake, “Yeah you know what Jake? We’re gonna go camping, and it’s going to be the best camping trip ever! As soon as I can take a break from work, we’ll go.”
+A grin spread wide across my face as I promised Jake, “Yeah you know what Jake? We’re gonna go camping, and it’s going to be the best camping trip ever! As soon as I can take a break from work, we’ll go.”
 
 Jake’s excitement was contagious. He jumped up and down with joy, and I couldn’t help but laugh. It hit me then that I probably should’ve introduced him to camping sooner.
 
