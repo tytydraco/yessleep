@@ -194,7 +194,7 @@ The seller cocked her head. “Hmm?”
 
 The woman sighed, placing her phone on the counter. I glanced at whatever she'd been so interested in, but the screen was faced down. “Esme came in here a lot,” Her lips broke out into a sad, sympathetic smile. I was quickly growing sick of them. 
 
-“Esme. She, uh, she told me you guys were dating,” She smiled, “Esme was always buying roses for her room. Sometimes she would stand in here for hours, and just stare at flowers. I think she found comfort in them.” The woman sighed, fixing me with what I could only describe as a pitiful pout. 
+“Esme. She, uh, she told me you guys were dating. Esme was always buying roses for her room. Sometimes she would stand in here for hours, and just stare at flowers. I think she found comfort in them.” The woman sighed, fixing me with what I could only describe as a pitiful pout. 
 
 Urgh. 
 
@@ -326,7 +326,7 @@ I don't know what came over me. It's like, one minute I hated him, and the next�
 
 I mean, his gaze followed mine, piercing, fingers playing with the buttons on his shirt. Before he leaned forward, his breath in my face. 
 
-“Did you know that Mulberry Farms is an award winning brand of milk?” 
+“Did you know that Mulberry Farms is an award winning brand of milk in our town and ONLY our town? Mulberry farms was bred and made right here."
 
 And suddenly, I was no longer hot and bothered. 
 
@@ -334,7 +334,7 @@ And suddenly, I was no longer hot and bothered.
 
 “Three *time* winner,” Jasper continued. When I jumped up, he stepped closer, and I felt my cheeks spark. His smile was rare. In fact, Jasper was only smiling when he was talking about *milk*. 
 
-“Mulberry Farms have the best pasteration. It's suitable for everything! Coffee, cereal, or maybe you just want a glass of fresh milk to yourself! Perfect for kids, too! Breakfast time *is* Mulberry Farms.”
+“Mulberry Farms have the best pasturization. It's suitable for everything! Coffee, cereal, or maybe you just want a glass of fresh milk to yourself! Perfect for kids, too! Breakfast time *is* Mulberry Farms.”
 
 “Are you having a stroke?” I whisper-shrieked. 
 
@@ -774,13 +774,13 @@ Or was he another recycled, mindless suitor?
 
 He took slow steps towards me, and kissed my hand.
 
-I saw the slightest smudge of scarlet, but his eyes were blank. 
+I saw the slightest smudge of scarlet in his lip, but his eyes were blank. 
 
 In the corner of my eye, my ‘father’s’ eyes were glittering. 
 
 “Hello, Brianna.” Sam said, and I *swore* Now that I was awake, the walls were wolf-whistling. Laughing. 
 
-*Ooohhhhhhhhh!”*
+*"Ooooooooooooooo!”*
 
 My town is a blip on the map. 
 
