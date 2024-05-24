@@ -144,6 +144,6 @@ Creatures that were on the verge of taking *me*.
 
 My hand wrapped around the base of the nearby coat-stand, and I yanked. It toppled onto James’ head. He flew backwards, disappearing into the darkness, and I immediately leapt to my feet, shrieking as I felt something slip from my cheek — something that had been all-too-close to entering one of my nostrils. I opened the front door, and everything came flooding back to me.
 
-As I ran into the street, I was haunted by a memory of the seconds that preceded the car accident. James had swerved into the barrier of the bridge. Swerved to avoid not a person or an animal, but a mass of united creatures.
+As I ran into the street, I was haunted by a memory of the seconds that preceded the car accident. James had swerved into the barrier of the bridge. Swerved to avoid not a person, nor an animal, but a mass of united creatures.
 
 A travelling mass of worm-like [horrors](https://www.reddit.com/r/dominiceagle).
