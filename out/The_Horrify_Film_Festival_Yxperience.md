@@ -1,38 +1,34 @@
 The HRRFY.
 
-It’s the horror movie festival where something genuinely fucked happens every year. And I mean every year.
+It’s the *secret* horror movie festival where something genuinely fucked happens every year. And I mean every year.
 
 Like, there are some screenings that unleash hordes of bats while the movie is playing. You're free to leave whenever you want, but the movie will still play for 2 hours and 15 minutes.
 
 Other screenings hire actors to turn at you and scream at some point in the movie. You have no idea when, or how many times.
 
-It's a festival where the word "illegal" can't even begin to describe what happens. You'd only attend if you were a young, stupid edgelord like me who was trying to prove he was hardcore to his friends.
+It's a festival where the word "illegal" can't even begin to describe what happens. You're forced to sign an NDA if you attend. And You'd only attend if you were a young, stupid edgelord like me who was trying to prove he was hardcore to his friends.
 
 Trust me. DO NOT GO.
 
 You have nothing to prove to anyone. Don't be stupid.
 
-Wait for the lamer film versions to come out streaming. That's what everyone else does. They're neutered edits but they're fine.
-
-All they lack is the real gleaming *thing* everyone wants to see at HRRFY, but who cares. At least you don’t get traumatized. At least you’re not risking your life.
-
-Anyway, if you *really* want to know what attending HRRFY is like. I’ll be quick and summarize the one screening I went to. It was the 20th anniversary, and I was lucky enough to get in.
+If you *really* want to know what attending HRRFY is like. I’ll be quick and summarize the one screening I went to. It was the 20th anniversary, and I was lucky enough to get in.
 
 \*\*\*
 
-I had signed up for the HRRFY mailing list, and joined the subreddit. Through a series of cryptic online emails I solved a sequence of riddles and was entered in the lottery for a HRRFY entry.
+I had signed up on the HRRFY darkweb forum (which was no small feat, and I'm pretty sure my identity may have been stolen, but what can you do.) Through a series of cryptic forum DMs, I solved a sequence of riddles and was entered in the lottery for a HRRFY entry.
 
 Lady Luck took a shine to me, because one day in my mailbox, I received a physical ticket. I had done it.
 
 I was going.
 
-The actual ‘ticket’ was a black USB key that announced the location of the festival the night before (which I won’t disclose here) and it did force me to pay for a very expensive flight in order for me to make it on time.
+The actual ‘ticket’ was a black USB key that announced the location of the festival the night before (which I won’t disclose here, otherwise I may be hunted.) I was pretty much forced to pay for a very expensive flight in order for me to make it on time.
 
-You see, to prevent getting shut down, the location of HRRFY changes every year. Some years the local police have managed to stop it, but for the most part, authorities have given up. What’s the point of arresting or charging anyone, if all the organizers and attendees actually *want* to be there?
+You see, to prevent getting shut down, the location of HRRFY changes every year. Its always a small town you've never heard of, where the authorities can't catch on to what's happening until it's well over.
 
-Upon arrival, I had to pick between three participating theaters.
+Upon arrival, I had to pick between three secretly-participating theaters.
 
-Based on title alone, I decided to go see *“Many Drownings”* (directed by Oleksander Gołański.) It was in the theater that was furthest away from the downtown core, which meant it was likely the one where the *craziest shit* was bound to happen.
+Based on title alone, I decided to go see *“Many Drownings”* (directed by Oleksander Gołański—though that might've been a pseudonym.) It was in the theater that was furthest away from the downtown core, which meant it was likely the one where the *craziest shit* was bound to happen.
 
 That’s what I came here for right?
 
@@ -50,7 +46,11 @@ Again I will repeat myself. DO NOT GO.
 
 No one has ever truly gone 'missing' at HRRFY in any legal or physical sense, because every missing person always shows up a day later, convinced that they are fine—refusing to elaborate further.
 
-There are some small support groups for people who have family members who had gone to HRRFY, and came back irrevocably changed after being **‘found.’**
+The reason they can't talk is because of the intense NDA's attendees sign. 
+
+If anything were to leak, they'd be dead.
+
+As a result, there are some small support groups for people who have family members who had gone to HRRFY, and came back irrevocably changed after being **‘found.’**
 
 These few unlucky people lose all semblance of personality. They don’t want interviews, or help, or therapy, or contact of any kind. And they never, ever want to talk about what they saw.
 
