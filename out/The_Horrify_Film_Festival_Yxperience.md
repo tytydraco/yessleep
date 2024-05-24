@@ -46,7 +46,7 @@ Again I will repeat myself. DO NOT GO.
 
 No one has ever truly gone 'missing' at HRRFY in any legal or physical sense, because every missing person always shows up a day later, convinced that they are fine—refusing to elaborate further.
 
-The reason they can't talk is because of the intense NDA's attendees sign. 
+The reason they can't talk is because of the intense NDA's attendees sign.
 
 If anything were to leak, they'd be dead.
 
