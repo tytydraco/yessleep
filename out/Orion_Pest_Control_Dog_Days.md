@@ -312,3 +312,5 @@ I'm taking the next few days off to recover. The boss was the one to suggest it.
 I encourage all of you to learn from my mistakes. If a Neighbor gives you an offer you can't refuse, take the choice that gets you out as unscathed as possible. I got off lightly. Don't mess around with them. Be smart. Be careful. 
 
 Update: Victor has been [officially diagnosed. ](https://www.reddit.com/r/nosleep/s/8VToIiFak2) 
+
+[(Here is an index of all the cases I've discussed so far.)](https://www.reddit.com/u/adorabletapeworm/s/bQoKK0vwYJ)
