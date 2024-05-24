@@ -124,7 +124,7 @@ The room's felt darker and darker by the second, the light from their phones sta
 
 My body now was completely numb. My hand was on my cross and I felt it burn. It was the only thing that reminded me that this was real. That male voice was smooth, almost intoxicating to listen to. But it also felt as if it was a guttural growl from a beast.
 
-'Or that poor old couple you killed two weeks ago? Or that young father you found near your turd and shot on the back? Should I go on?'
+'Or that poor old couple you killed two weeks ago? Or that young father you found near your turf and shot on the back? Should I go on?'
 
 The two dudes looked suddenly terrified. One of them pulled a gun out of his pocket.
 

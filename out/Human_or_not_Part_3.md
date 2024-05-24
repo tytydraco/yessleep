@@ -52,7 +52,7 @@ We both took a glance back and saw something horrifying, Dave jumped over them a
 "Seems like it's still mad at you for killing its egg" said Tracey worriedly.
 
 
-Now we had both the armed men and Save chasing after us. We kept running and then there was a Y-intersection where the hallway got divided into two separate ones.
+Now we had both the armed men and Dave chasing after us. We kept running and then there was a Y-intersection where the hallway got divided into two separate ones.
 
 
 "You go right , I go left. I'll track your location through the phone" Tracey said as he tossed the phone to me that I had given him to hold onto.
@@ -67,7 +67,7 @@ I went right and he went left. Seems like I drew the short end of the stick beca
 It roared back at me , I guess reasoning with it was not the best idea.
 
 
-It was faster than me even with his legs cut off , It almost caught me but I took a sharp right turn and it crashed into the wall.
+It was faster than me even with its legs cut off , It almost caught me but I took a sharp right turn and it crashed into the wall.
 
 
 "Can't change directions well huh" I said to myself.
