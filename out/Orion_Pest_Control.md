@@ -190,4 +190,4 @@ Just remember, when in doubt, salt. And if you awaken to find that your house is
 
 Edit: [Here's more info on the Housekeepers and their significantly more frightening cousins. ](https://www.reddit.com/r/nosleep/s/KGUfH2hO6t)
 
-[Here is an index of all the cases I've discussed so far.)](https://www.reddit.com/u/adorabletapeworm/s/bQoKK0vwYJ)
+[(Here's an index of all the cases I've discussed so far.)](https://www.reddit.com/u/adorabletapeworm/s/DSCXrJChCH)
