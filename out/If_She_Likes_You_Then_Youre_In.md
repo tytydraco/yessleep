@@ -112,6 +112,6 @@ I knew that to be the truth. He didn’t have to voice the obvious. The fact tha
 
 “She liked you, so she let you go. That means we owe her,” he explained. I gave him a confused look. “It’s Dave’s turn to take a ride to the bottom of the sea to have a little meeting with the fair old lady. He was the Master of Ceremony, his chance to be an Elder. But guess what?” he said with a drunken grin on his face. “If she likes the novice, then the Master of Ceremony has to take his place and there isn’t any coming back like you did.”
 
-“What happens," I asked?
+“What happens?" I asked.
 
 “She eats him.”
