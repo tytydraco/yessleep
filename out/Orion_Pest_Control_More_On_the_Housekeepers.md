@@ -212,4 +212,4 @@ In the meantime, if there are any other questions that yinz have about the House
 
 Update: [I fucked up. Bad. ](https://www.reddit.com/r/nosleep/s/0B2UVxdWZg)
 
-[Here is an index of all the cases I've discussed so far.)](https://www.reddit.com/u/adorabletapeworm/s/bQoKK0vwYJ)
+[(Here is an index of all the cases I've discussed so far.)](https://www.reddit.com/u/adorabletapeworm/s/bQoKK0vwYJ)
