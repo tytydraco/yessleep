@@ -163,7 +163,7 @@ Suddenly, a huge bright white mist, resembling the one that the Seeker sucked ou
 
 Everything went black. 
 
-The next thing I knew, my body slammed back together again, and I was ascending upward through the flames, engulfed in the ball of white light. 
+The next thing I knew, my body slammed back together again, and I was ascending upward through the flames, engulfed in the white mist. 
 
 I closed my eyes. 
 
