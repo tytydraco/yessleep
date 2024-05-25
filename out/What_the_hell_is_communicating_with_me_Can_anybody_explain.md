@@ -65,3 +65,6 @@ So with that, what was the damn baritone voice talking about? I don't want to do
 
 
 The dread is killing me. I cannot figure out what's going on. This doesn't seem like something the police would be able to help with, although the scary part is I have no idea who could possibly help. What is invading my home and why would they invade my home without expecting me to expose them? I can’t recall a single time this has happened before and a single reason for why this would happen. What do they want from me?
+
+
+[Update](https://old.reddit.com/r/nosleep/comments/1d0j2ib/what_the_hell_is_trying_to_communicate_with_me/?)
