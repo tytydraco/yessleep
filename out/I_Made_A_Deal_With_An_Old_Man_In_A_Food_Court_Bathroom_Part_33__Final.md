@@ -1,4 +1,4 @@
-[Parts 1-18](https://www.reddit.com/r/nosleep/comments/lnonvk/i_made_a_deal_with_an_old_man_in_a_food_court/?utm_source=share&utm_medium=ios_app&utm_name=iossmf)
+[Parts 1-18](https://www.reddit.com/r/nosleep/comments/lnonvk/i_made_a_deal_with_an_old_man_in_a_food_court/?utm_source=share&utm_medium=ios_app&utm_name=iossmf) [Part 19](https://www.reddit.com/r/TheMindOfMikey/s/JcDWDDz0A9)
 
 [Part 32](https://www.reddit.com/r/TheMindOfMikey/s/UGFt0KRMzr)
 
