@@ -1,3 +1,6 @@
+[Context](https://old.reddit.com/r/nosleep/comments/1cy8azi/what_the_hell_is_communicating_with_me_can/)
+
+
 I'm currently 51 miles away from my home. I have nowhere else to be so I'm on a drive to be as far away from home as possible. One night has gone by, so the things living in my kitchen probably know I don't want to be around anymore. I can't understand what they are or what the void they bring with them is, but I need to be as far from them as possible.
 
 
