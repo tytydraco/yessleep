@@ -1,29 +1,81 @@
-Part 1 [Part 2](https://www.reddit.com/r/nosleep/s/G3OVIy4F9n) [Part 3](https://www.reddit.com/r/nosleep/s/zGn1eERV6O)
+[Part 1](https://www.reddit.com/r/nosleep/s/57LGjNQNfY) [Part 2](https://www.reddit.com/r/nosleep/s/btnaCNFAuz) Part 3
 
-If you turn on the lights late at night, when there are no street lights, the windows become mirrors, reflecting the interior of the room.  In the reflection, I see myself, clothes scattered, unfinished drawings pinned to the wall, and a figure standing in the center of the room.  Its silhouette seems blurred compared to the rest of the reflection.  It never moves, does not disappear when you look at it, it is impossible to touch.  It is always there and you feel it staring.
+So there I was. Standing in my room. Sage burning on the floor. My eyes glossy with tears. The thing was gone but I didn't feel relieved. Because deep down I knew it was still here. But then something worse happened. My mom walked in.
 
-I really like horror stories. They always give a more digestible way to cope with terrible things all of us encounter: the death, the illness, the brutality of others. Unlike fiction, my life was full of real and traumatizing invents. I saw a lot of real-life horrors even before I hit 12.
+She immediately realized something was wrong. Mom took in my shaking figure, saw the big forming bruise on my hand. She cupped my face looking me straight in the eyes. 
 
-Now I am 20 and have lots of gruesome stories to tell. The hits among friends are "How is it to live near a cemetery", "Changing schools changing serial killers", "Stalker in the tinted car", "A night train full of crazies" and "Brutal murders on my street". You might have a friend like me. A storyteller with a smirk, excitement pouring out of every single word. Trying to terrify you, to warn you of the dangers lurking around. They collect them for years and treasure every single detail. But they know that every story comes with a price. Every one of them is a new fear, a new nightmare lived through haunting them until they tell the story. 
+"Who did this?"
 
-But I guess witnessing this set of events didn't give me good tale to tell. I feel like I can't tell this to my friends or family. They will probably think I am crazy or something. But I need to tell it to someone. That's why i am here. 
+I couldn't utter a word. I knew what she thought about the worst thing that could happen to a child.
 
-And before I start I wanna mention that English is not my native language but I don't wanna leave any traces for sake of anonymity.
+"No. Mom. You..."
 
-I am not sure then it all started. I already was in my second year of university. My education was not a smooth sail and as an illustration student I worked days and nights just to get all of the projects done. The stress levels were off limits. But I managed.
+"You know you can trust me, right?"
 
-One night everything started to change. I remember waking up everything shaking and hearing a bloodcurdling scream that terrified me. Only minutes later realizing it was me screaming my lungs out and my parents shaking me trying to calm me down. I remember their faces distraught and my little sister looking scared sitting near. I was really confused but i brushed it off saying I saw a horror film before going to bed. But i didn't. Everyone left. I sat there on my bed looking at nothing, thinking should i go back to bed? What even did i see in my nightmare? I tried to remember. I couldn't. Even later, even now. I still scream in my sleep sometimes. 
+"Mom, please. I just..."
 
-I think myself as a rational person first. But i have a wild imagination like a lot of artists do. And since that screaming incident i started to notice things around my house that existed me a little. It's an occasional door opening with no windows open. Feeling my hair moving when i sit to working like someone was touching it. I joked around. Pretending I am talking to some poor lost soul. I even gave it a name - Alex. So every time i thought i came around something "paranormal" like an item disappearing I asked ghost Alex to return it and thanked when I found it. I guess it was just a way to easily dismiss little things and not to dwell on them. And I have a problem with overthinking. 
+She hugged me and I winced. I felt her tense. She turned me around and saw blood. 
 
-In a few months Alex became a part of my home. I imagined stories about who was the ghost during their life and did a small history research about the land i lived on for university. Alex kinda helped. Few times I even poured my soul out to it. I knew it was just a part of my imagination and joke gone too far. But i found comfort in someone always being near listening to my ramblings when the exams are nearing and i am stuck at my house alone. Pathetic I agree. But i swear I wasn't delusional. 
+"It's ... just paint mom"
 
-Exams ended and so did my need for Alex. I could just relax and do something for myself during winter break. So sat down to work on some oil paintings. On the day four i worked late sipping on some coffee. I almost finished and had a great mood but still focused and in the zone. I lowered my eyes to mix the right colour and looked back up at the painting. What was in front of me was so clear it took me only  half a second to fully see it. It was big sickly yellow hand laying on my canvas just half a meter away from my face. The nails were sharp and the skin was almost too perfect. It looked like someone was grabbing canvas from behind but nothing was behind the canvas.
+At that moment I knew that with every word truth or lie I would break the trust I had with my mum more and more. I felt immense guilt building inside. I couldn't bear the thought of looking at her distraught face.
 
-I jumped in my chair coffee spilling on the floor and my knees. I automatically looked down and again on the canvas and it was gone. The room was earily quiet. The fresh layer of paint was smudged. The image of that hand was, no still imprinted in my mind. The coffee started to seep in my jeans but i was too shaken to clean the mess. The only thing on my mind was "It's not real". I stood up a little bit shaken and walked around the canvas slowly. The paint was on the other side of the easel too. 
+"I'm sorry..."
 
-As I stood looking at the trail of paint I froze up. I felt the presence behind. I couldn't bare a second of it. I just sprinted out of the room and shut the door not looking back. I went to my bedroom turning on all the lights on the way and locked it. I took off the jeans and shirt throwing them and putting on pajamas. I breathed in trying to calm myself. And then i saw paint. Paint on the back of my shirt. Barely visible 5 little spots. 
+Mom just said nothing in return. She walked me in the bathroom, took my T-shirt off and started to patch me up. I knew she was trying to keep herself together. But I heard her labored breaths and few sobs. I wanted to hug her to thank her to reassure her but as I tried to face her she stopped me with a shaking gentle touch and I left the bathroom not looking back. The door closed quietly behind me and I heard the sink running.
 
-I felt a familiar moving of my hair. I backed into the corner of the brightlit room. And then i saw the reflection.
+Guilt. Guilt was consuming me. Eating at my existence. I walked inside my room and layed on the bed. I didn't notice the reflection or presence near my bed appearing. I really didn't care about what happened to me next. So I waited until it was quiet in my home and I started packing my things. It was irrational but at the moment it felt like the only right decision. But only for the moment. 
 
-[Part 2](https://www.reddit.com/r/nosleep/s/G3OVIy4F9n) [Part 3](https://www.reddit.com/r/nosleep/s/zGn1eERV6O)
+"Sis?"
+
+My sister was standing at the door looking sleepy and confused. 
+
+"I'm just searching for something. Go to sleep."
+
+"Do you know why mom was crying?"
+
+"I... I don't know."
+
+I looked away and saw Alex in the reflection. It was within the reach distance of my sister. Its blurred form was stretching towards my little sister's head. 
+
+"Don't leave." I heard two voices whispering. 
+
+I panicked. I rushed to my sister and grabbed her in a tight embrace trying to cover her from Alex. With the tears in my eyes, I started to chant.
+
+"I won't. I would never leave. I promise. Please. I would never..."
+
+I closed my eyes trying to stop the tears. The fear of losing my little sister just paralyzed my mind. 
+
+"You are going to crush meeee."
+
+Before letting her go I looked at the window. It was in it's usual place. I shakily breathed out and smiled.
+
+"Now get back to sleep. Okay?"
+
+She nodded and walked away looking back at me a couple of times before closing the door as I sat on the floor. 
+
+At that point, I felt like losing my mind. All the fear, anger, confusion and guilt that had been building inside of me for months bursted out. 
+
+I started crying then laughing then laughter turned into silent cries. I was crumbling on the floor. I felt Alex staring intently.
+
+"W-what do you even want from me?" I whispered weakly.
+
+It didn't move.
+
+"Alex!" 
+
+"I will free you..." it whispered again.
+
+"I don't need that! Please leave. What does that even mean?"
+
+The room was filled with silence. Then I felt the piercing touch on the skin again.
+
+"No! Nononono..." 
+
+I jumped immediately and rushed to the corner pressing my bloody back to the wall. It was in front of me glowing with the same terrifying expression. I closed my eyes but I still saw its gaze peering into my chest.
+
+So here I am now. I haven't left the house since and it is already more than three weeks. I am too afraid it will do something to my family the moment I step outside. I didn't try to talk to it either. Because every time I tried I decided to claw its way inside my spine. My mom thinks something horrible happened and so does my father. But they don't try and talk to me about that. I guess they think I need space. The burn on the floor caused by the sage was found but not questioned. I don't look at Alex. I don't acknowledge Alex. I don't draw Alex. But Alex is all that is on my mind. It doesn't matter what Alex is really. A demon, ghost from the cemetery, spirit trapped on my property, an imaginary friend turned real or maybe all of them.
+
+I feel like I am sitting on a mine. And the wrong move will just...
+
+My birthday will be on the 1st of May. I was waiting for it. But I dread it now. Maybe I have until then. Maybe this is the last story I will ever tell. I don't really know. I don't want to be remembered as a mutulated corpse in the news or a crazy daughter. But I am afraid of what will happen after. I am afraid of my own screams. And i hope nothing comes next after my death.
