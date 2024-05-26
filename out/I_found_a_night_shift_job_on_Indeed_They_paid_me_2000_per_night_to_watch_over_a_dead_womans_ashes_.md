@@ -58,11 +58,7 @@ In the end, I got the job.  
 
 I started work the next evening.
 
- 
-
-
-
-
+--
 
 I kissed Celine goodbye and was out the door.
 
@@ -128,9 +124,7 @@ I pulled out my phone and saw the PayPal notification signalling that $2,000 had
 
 That's how I started looking after Ms. Ferguson's ashes.
 
- 
-
-
+-- 
 
  
 
@@ -210,7 +204,7 @@ My phone was ringing up a storm as I reversed out of the driveway. I put it on l
 
  
 
-
+--
 
  
 
@@ -236,13 +230,9 @@ She frowned, worry etched across her face. "You don't have to keep pushing yours
 
 She probably noticed how distracted I was.
 
-"You sure you're ok, Lex?"
+"You sure you're ok, Lex?" 
 
-
-
-
-
- 
+--
 
 From that point forward, I heard nothing more from Damien.
 
@@ -308,9 +298,9 @@ And if it wasn't the urn haunting me, it was the old lady with that cane of hers
 
 *Tap. Tap. Tap.*
 
- 
 
 
+-- 
 
  
 

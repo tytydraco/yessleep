@@ -72,7 +72,7 @@ The centerpiece of the room was a hole about the size of a manhole. It clearly w
   
 My brother let out a “hello” down the hole. I tapped his shoulder and mouthed “let’s get the hell out of here”. We began to turn when a noise arose from the hole.  
   
-It wasn’t one noise, it was multiple. The noises were inaudible, but they were clearly human screams. It sounded as if dozens of people were in the hole, and the voices sounded like they had traveled up the hole for miles. The screams were so desperate, so stricken with agony. I’d never heard anything like it and I’d bet I never will again. Instantly tears were brought to my eyes, the cries of those people were that painful.  
+It wasn’t one noise, it was multiple. They were clearly human screams. It sounded as if dozens of people were in the hole, and the voices sounded like they had traveled up the hole for miles. The screams were so desperate, so stricken with agony. I’d never heard anything like it and I’d bet I never will again. Instantly tears were brought to my eyes, the cries of those people were that painful.  
   
 We didn’t even make an effort to cover our tracks. My brother and I went home without speaking a word. By the time our mom got home that night we had calmed down enough to tell her what we’d seen.  
   
