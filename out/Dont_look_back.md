@@ -1,73 +1,66 @@
-With nearly 200,000 kilometres of highway across India, it’s not uncommon that quite a few of them hold a reputation of being haunted.
+You just finished showering. You feel refreshed and clean. You lifted up both of your legs to get out of the bath one by one. You then smile when you realize that you are on a roadtrip and away from school. You feel even more happy when you realize that your partner is taking the trip with you. 
+You look in the mirror. You dry yourself and get your clothes to get dressed.
+Your straight dark brown hair is wet so you dry it with one of the hair dryers you brought with you from home, back from london. You then look into the reflection of the mirror and your eyes immediately catch what's behind you. Next to the bathroom door, there stood a tall man wearing a faceless mask. 
 
-Every state, and there are 29 of them, boast of at least a handful of highway stretches where locals will discourage you from travelling late at night, or stopping for gas, or offering lift to strange lonely women walking by the side of the road dressed in white sarees.
+Your heart skips a beat and then you realize that his clothes were dark and wet. You then think to yourself that maybe this was all just a bad dream. But you know it's not.
 
-In other parts, superstitious practices have taken grip, mostly to please the gods that protect travellers, but also to placate the angry spirits.
+You then remember your boyfriend, Adam, is in the living room, watching the TV. How come he isn't here to save me? Who was this guy and how did get into our cabin? Did this man kill Adam?
 
-You are told it is essential that you stop by the large mound at the fifth turn down the Kasara Ghat and offer your prayers before driving on, or you are told that you must keep driving on the Eastern express highway, even if you hear your name being called out, or a simple advise of not carrying any meat in your vehicle when driving the Kashedi road which may incite unexpected hungry guests into your car.
+No, you can’t think like that. You just can’t.
 
-After a while, it gets hard to separate the real stories from the many myths. As they get repeated, nevertheless, over and again around the campfire tales, generation after generation, many details are altered, enhanced, blurred… till you can’t remember the important things… things that could save your life, such as; when driving down the long, dark and lonely stretch of Bhatta Road, was it a woman dressed in white that you had to watch for, or a young bride in red bridal attire?
+This person is now at your full view- right in front of you. You want to cry but you hold it in, in hopes this man won’t attack for that. He jerks his head, as if he was some type of animal. You immediately run for life as you sped past him.You head towards your room and lock the door behind you. You cover your mouth as quietly as possible to cover your sobbing. 
 
-As hard as I tried hard to remember the story my grandma had told me of the haunting on this road, the details alluded me. After a while I stopped trying to remember and pulled myself backward to further sink into the passenger seat of my friend’s extremely sturdy, made for Indian roads Bolero that could easily seat an extended Indian family. But today, it was carrying just the four of us, my childhood buddies Hitesh who was driving, and Bobby and Sunny who were dozing in the middle seat, and our luggage took up some of the space in the seats at the very back.
+You got your backpack and grabbed a jacket that Adam had gotten for you on your birthday a year ago. Then you quickly head to the window next to your bed but to your horror, the man in the faceless mask appears out of nowhere from the other side of the glass. He placed both of his gloved- covered hands on the glass. You jumped in fear and backed away from the mattress. You ran out from the room and headed to the living room in search of your keys but you then remember that Adam had them last. You get so pissed off for that. 
 
-The four of us were on our way back from the wedding of another one of childhood friends, the reception for which had been held in a remote farm house deeper into the rural heartlands of India. The newlyweds were obsessed with connecting with their tribal roots, away from the urban hustle their families had embraced few generations ago.
+You called out for your boyfriend but there was no answer. He is nowhere around. All of sudden, you see your cellphone on the ground. You picked it up in hopes to answer you. Your heart starts to pound hard as you hear the other line ringing, but then the only sound that exists in that moment was static. You then hear a raspy voice on the other line-
 
-I have to admit that despite my previous reluctance to travel so far for the wedding,  it was a beautiful ceremony, and the drive to the farmhouse was scenic. We had started early in the morning, stopping often to take in the breathtaking sites of the hill we passed through, and grabbing quick bites of local cuisine accompanied with piping hot spiced tea, at regular intervals.
+“Sallie.. Your next..”
 
-However, now, at nearly 2am, that same route seemed macabre, without any street lights or quaint little food and tea stalls, and with the intimidating dark shadows of the hills against the horizon. The drive, which promised to be long, brought back memories of every tale I had heard or read of highway ghosts in India. I was certain there was a similar take about this very road we were on, but tired and exhausted from long day of festivities, I couldn’t recall the story attached to the famous Bhatta road.
+You immediately throw the phone to the ground and you wonder to yourself what the hell is going on?
 
-I turned to Hitesh to ask him if he remembered the story; mainly to keep a conversation going with him to help him stay awake and alert as he drove us through the winding ghats in the middle of an exceptionally dark night.
+You search through one of the drawers in the kitchen. You find a small gun and a lighter. You know you need to find a way out of this mess. You can feel the fear under your skin. You slowly make your way to the front door. You wanna put your hand on the door knob but a knock sounds straight towards you. 
 
-“I think the story goes that a lady in white or maybe in red…the spirit of who died in an accident here or maybe she raped and killed… or something as such, will ask you for a lift, and if you stop for her, you’re dead,” he said, just as uncertain and casting a wide net that encapsulated 80 percent of highway urban legends of India.
+Knock
 
-“No one who’s stopped their vehicle for her has lived to tell the tale,” he added for good measure.
+Knock
 
-“If no one lived, then how do we know this story,” Bobby said from the backseat, followed with a wide yawn, waking up from his nap.
+Knock 
+ 
+You hear the knocking but a voice comes through- behind the door,
 
-“Exactly,” replied Hitesh, leaving us confused, whilst distractedly looking at something in a distance.
+“Hey babe. I left my phone inside the room. Could you open the door?”
 
-I turned to look in the direction Hitesh’s eyes were fixed at, and straight ahead in the distant noticed a small gathering of a few people at the far end of the highway, where the road seemed to meet the horizon. “Who are these people,” I wondered out loud.
+You calm down, and quickly start to realize that maybe this was all just your mind playing with you.
 
-No one answered my rhetoric question, but all of us, including Sunny who had woken up with our chatter by now, were fixedly staring at the road.
+“Adam is here. Nothing bad is going to happen.”
 
-As we got closer, the group grew clearer in our visions—about three people, two men, and one woman who seemed to be overdressed for her surroundings. Even from afar, her massive pink lehenga (a bridal outfit) and garish gold jewellery were hard to miss. It was a bridal party!
+You then start to wipe the tears off your face. You take off the latch from the door and to your surprise, standing in front of you, the same man you saw before, the one with the faceless mask, was in your full view. He was such a tall man, he grabbed you by your hair. You can feel that he is pulling your hair way too hard as he is dragging you out of the cabin. 
 
-Or at least a part of it that seemed to have been separated from the larger celebrations. But what were they doing on this otherwise isolated road? With thick forests on one side and an extensive deserts stretching for miles on the other side of the road, it hardly seemed like an appropriate place for any hitchhikers, let alone a bride and her wedding party.
+You can feel the fear coming back to you. It's coming back to haunt you.
 
-“It seems like they’re asking for a lift,” Hitesh said. “They seem lost. Maybe we should stop and help them,” the ever-generous soul added.
+This person- this monster- whoever or whatever he was, did not speak to you. He could look at you and you would already be terrified. You get scared that you are not even praying for your rescue to come and save you. 
 
-“No way man! Haven’t all the highway ghost stories taught you anything?” remarked Bobby. “Lingering the spirits with unfulfilled desires, brides who died on their wedding nights, haunt such roads and stop travellers seeking revenge or justice or whatever
+You just want all of it to go away. 
 
-“But it’s not a single woman as in those stories. It looks like a family of four people who seem to need our help,” Hitesh tried to reason.
+You remember when you were thirteen, you had received a dog for christmas and you were so happy, or you remember when you received awards for being the best student in school. You then start to have flashbacks on how you met Adam. But somewhere through your life, something felt off. Something didn’t seem right. You then remember that you have seen this man before. The man that is dragging you by your hair. You have seen his face before. He would sometimes hide from a distance as he would watch you and what you had gone through within your life. 
 
-Sunny added in agreement with Bobby. “They could possibly be dacoits. This part of the world is known for these things,” he said.
+You remember how you would sometimes hear tapping from your window as a little girl but you could never find what was there. And now, your childhood monster is coming back for you. 
 
-“Oh come on you don’t really believe in that stuff,” Hitesh retorted.
+You then snap back to reality. The man had dropped you in the dirt. You look up and see his hideous- deformed face when he takes off his mask. You then remember that you had a gun and use your first shot on the man’s leg. He screams as he falls, screaming in pain. You then got up from the ground and ran away from him. Your mind then starts to wonder, “Where the hell is Adam?”
 
-We had less than 45 seconds to decide whether we would stop for the lost bride and her family, and everyone turned to me to weigh in. As the eldest in our group I often ended up being the person breaking up deadlocks.
+“Did he just leave you in this mess?”
+You tell yourself, “Don’t look back- Don’t look back.”
 
-I voted we show compassion to likely lost travellers. I wasn’t sure I believed the ghost stories, but I certainly was sure they were not dacoits. Something about the way they stood there, helpless and scared, told me they were truly lost.
+You keep on running towards the woods. You pass by tall trees, and in the end, you are running towards the darkness. You just kept on going that you had gotten lost and couldn’t find your way to the rescue station. You now don’t know what to do. 
 
-We pulled over next to the man who had his thumb out at us. I noticed a wave of relief wash on their faces as we stopped.  The men were also dressed in fineries, expensive clothes and jewellery; this was definitely a wedding party. “Thank you for stopping,” the oldest of them said to Hitesh. “We were taking my daughter here to her wedding in the next village, but our car broke down a few miles down the road. We have been walking for hours but not a single vehicle has passed us,” he said.
+The sound of nature at night had taken its place. The only piece of light that existed with you was coming from the moon. You are cold and alone and scared. You continue to keep on walking in the shadows. You try to process what had just happened. You then start to cry. 
 
-I thought it was odd because although the road was largely isolated, quiet a few cars and trucks passed us by and I was sure there was no other detour along the way. They should have seen the family by the side of the road.
+The sound of leaves breaking is heard from behind you. 
 
-Our Bolero was large enough to fit the three of them in the very back seats, behind Bobby and Sunny. Being the gentleman he is, Hitesh even offered my driver-side seat to the bride but she declined and chose to join her wedding party at the back.
+“I’m not alone..” you thought to yourself. 
 
-None of them spoke much after the initial thank yous. Even though we tried to strike up a conversation, some more excitedly than others (re: Bobby), but the family answered in grunts and sighs. I don’t blame them, after the journey they’ve had, that too on her wedding day.
+You don’t want to look at what is behind you. You want to- No- You need to but you still won’t. You then start to smell something familiar. Adam’s cologne. 
 
-After a while, everyone slipped into a silence, punctured only by Bobby’s intermittent snores and the soft jingling sound coming from the back made by the bride’s bangles every few minutes. It was kind of nice and calming, lulling me to sleep.
+Tears start to fall from your eyes even harder. You prepare yourself and pull out the gun from your pocket. A hand is placed on your shoulder from behind. You slowly look at what is behind you. This man who had followed you for years is now wearing your boyfriend’s face as his own. His expression showed how he was terrified in his last moments. You scream in horror. 
 
-But just as I was about to doze off, I felt Hitesh nudged me. I turned to him only to see an absolute look of terror on his face which has been drained of all colour.
-
-Before I could say something, he hushed me with one finger on his lips, and the other hand struggling to keep the steering wheel steady.
-
-After a few seconds of what seemed like he was trying to catch his breath, he muttered very softly, I could barely catch his words, “Don’t look back!”
-
-The rebel in me was tempted to turn around and look behind me immediately, but the fear dripping in each syllable of Hitesh’s warning had chilled my bones.
-
-I was frozen, and looked at him for more explanation. But he kept his eyes fixed on the road, wide open, and filled with a terror that I struggle to describe in words here. I followed his gaze and there on the side of highway, getting closer by the second, stood a group of three villagers, among them a bride in pink lehenga, thumbs out. As we drew closer, I could see their faces; it was the same three villages who we had picked up, and were supposedly sitting in the back seat.
-
-Extreme shock and horror swept through my body, as I watched them them smiling eeriely, lips stretching from ear to ear.
-
-I was terrified but I couldn’t look away. And just as we passed by them, i heard the sweet soft sound of bangles jangling in the back of our vehicle.
+The man then grabs you by the neck and lifts you up in the air. It’s quiet. You only hear the sound of your heart beating. You know something is going to happen. And then something sharp goes through your chest. The horrible sound of your blood running out of you. And then you finally figure out what is happening. 
