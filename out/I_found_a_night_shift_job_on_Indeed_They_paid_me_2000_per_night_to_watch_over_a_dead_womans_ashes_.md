@@ -184,9 +184,9 @@ But then the crying got louder and *louder*. And then it was followed by the sou
 
 That was the last straw. As soon as the crying stopped, I got up out of there.
 
-I left the house keys under the doormat and dropped Damien a text message that I wouldn't be coming back.
+I left the house keys under the doormat.
 
-My phone was ringing up a storm as I reversed out of the driveway. I put it on loudspeaker and pressed the gas pedal to the floor.  
+My phone was ringing up a storm as I reversed out of the driveway. Damien must have been alerted that the door was opened. I put it on loudspeaker and pressed the gas pedal to the floor.  
 
 "What are you doing, Alex?" There was no more politeness in Damien's voice.
 
@@ -297,8 +297,6 @@ Each time I found it, I tried to get rid of it – moving it to the attic, locki
 And if it wasn't the urn haunting me, it was the old lady with that cane of hers.
 
 *Tap. Tap. Tap.*
-
-
 
 -- 
 
