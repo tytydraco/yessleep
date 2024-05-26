@@ -1,0 +1,24 @@
+I’ve told this story to friends and family. Damn, I have even tried talking to doctors about it, but it's all been chalked up to. “Oh, she just wants attention”, “She isn’t taking things well”. Please can someone help me?
+
+Ever since I was younger, I have always loved my hair. I would beg and beg my grandmother to help me pamper and look after it. She would always sit me down in her kitchen to cut it, it was the type of kitchen you'd imagine reading about. Different colored pots and pans stacked high on shelves, each color slightly different than the last, all the chipped and stained. Rust invades all the crevices where the coating of oil and protection has withered away. The classic white and black tiles dotting the floor, grime and crumbs caking the grout between. Maybe even some of my hair still to this day roams the canals of that grime between the tiles, like snakes through the mud.
+
+The first time it happened I was coming up to my 13^(th) birthday. I had let my hair get long and tatty, split ends plaguing the ends. My grandmother had just come home from a trip with friends, and I was so excited to finally get cleaned up. I just didn’t trust anyone but her to do it right. She handed me a small round tin with a faded label on top clearly from one of her old cupboards. “Go take a shower and put this on before bed tonight. That will smooth some knots out and we can get to work tomorrow” she said giving my hair an exam through her fingers. She would always give me instructions and products before a hair day.
+
+I did as I was instructed. Showering, my hand gliding over the unnecessary amount of hair products most unlabelled and gifted from my Gran I always used the same products before my hair was cut. I opened the tin, the gel, smooth and manageable easily combing through my hair. Then I went to bed.
+
+I want you to know I have always suffered from serve nightmares, but that night. I wish I had just stayed awake. Most people get to forget their dreams when they wake up. This was not one of those dreams.
+
+I woke up, no not really, but I felt like I had. My room was the same, every detail from the landing light bleeding in from under the door. To Mr Wrinkles the stuffed teddy bear watching over me in the corner. I don’t know if you have ever felt someone's presence, just knowing someone is with you even without seeing them you can just feel them there. How do you explain feeling multiple presences, not just one or two but dozens, dozens of bodies, Eyeless, Motionless, like a congregation waiting for instruction all just waiting?
+
+ The terror I felt then just from that feeling would jolt anyone up right in bed screaming, parents rushing in to give them a hug Checking under the bed for the bogyman that was never there. I didn’t get that luxury. No jolting up, no parents rushing in to make sure I was okay. I was left sitting upright frozen, the tightest most painless knot clotting inside my windpipe. I tried to scream, I tried to get any noise out.
+
+My brain is in hyperdrive knowing I am asleep knowing that is all I need to do. To get rid of this feeling of nothingness watching me. Was to make a single noise. But nothing happened. No scream. No noise, I felt tears rush down my cheeks. My body was frozen by my eyes darted around the room trying to catch a glimpse of anyone, anything. The shadows dance and tease the corner of my eyes as I scan the room.
+
+Then just as quickly as it began it ended. I panted and put my face in my hands sobbing soundlessly. My eyes scanned my bed for the first time seeing hair pooling below me, writhing, squirming. Pushing into the pores of my legs, then I woke up. The morning sunlight bounced off the wooden walls, I looked around the room and burst into tears. My father was the first in the room asking me what was wrong, I could barely speak through the tears my head buried in his shirt.
+
+His heartbeat calmly me as I pressed harder into him, the words he uttered still sending shivers down my spine.  
+“Rachel, what did you do to your hair?” That is all he said.  
+I didn’t understand at first, I was confused. What did he mean what did I do with my hair? I even thought to myself “I know it's messy, but Gran is going to help me with it today geez” he said again “What did you do to your hair?” Sterner and expecting. Like he wanted an answer.  I pushed away from him and ran to my mirror. My hair was shoulder length, silky, it looked nice. It looked perfect. “Rachel, I said what the hell did you do to your hair.”  
+I couldn’t answer, I just stuttered and stammered. All I could say was “The hair on the bed wasn’t even mine”
+
+I really don't know what to think any help would be fantastic
