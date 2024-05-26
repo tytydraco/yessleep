@@ -1,6 +1,6 @@
 It began with a fart.  
   
-My next-door cubicle neighbor, Michael with the missing tooth, (or big Mike as we called him in the breakroom), felt comfortable enough this past Tuesday to let one rip while I was clacking away at a work email.
+My next-door cubicle neighbor, Michael with the missing tooth, (or big Mike as we called him in the breakroom), felt comfortable enough this past Friday to let one rip while I was clacking away at a work email.
 
 It wasn't a surprising fart, just a noticeable one. Clearly not loud enough to rattle the particle board with memos, my calendar, and a photo of my dog pinned to it, but still quite a sound to be heard half an hour before lunch in the middle of a busy office.
 
