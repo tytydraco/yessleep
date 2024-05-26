@@ -520,7 +520,7 @@ My stomach was in knots. “Please Charlie. Please bring them back to me.”
 
 
 
-“You’ll either be there, or not. But if not, I’ve got another little friend who would love to make acquaintances with Lori and Jack.” I heard a \*click\*.
+“You’ll either be there, or not. But if not, I’ve got another little friend who would love to make acquaintances with Lori and Jack.” I heard a *click*.
 
 
 
@@ -540,7 +540,7 @@ He hung up. I inhaled a sharp breath and screamed into the house. The first thin
 
 
 
-\*Happy Birthday to the best daddy in the world\*
+*Happy Birthday to the best daddy in the world*
 
 
 
@@ -632,7 +632,7 @@ He walked towards me and took the gun from my hand, putting it on the table. The
 
 
 
-“Careful. All it takes is one little click, and Lori’s heart goes \*boom\*! And little Jack and Joey will be left orphans.”
+“Careful. All it takes is one little click, and Lori’s heart goes *boom*! And little Jack and Joey will be left orphans.”
 
 
 
@@ -660,7 +660,7 @@ My legs went weak, and I had to sit down on the floor. “You actually want me t
 
 
 
-I started to cry. I felt so weak, so powerless. But I think the worst thing of all was that Charlie was my friend. We’d be estranged for years, but he was my friend.
+I started to cry. I felt so weak, so powerless. But I think the worst thing of all was that Charlie was my friend. We’d been estranged for years, but he was my friend.
 
 
 
