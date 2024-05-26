@@ -121,3 +121,5 @@ But its attention was diverted before it could bite me. Jason had stabbed the eg
 
 [Part 3](https://www.reddit.com/r/nosleep/s/bizBVEauso)
 
+
+[Final part](https://www.reddit.com/r/nosleep/s/736ilSzoOP)

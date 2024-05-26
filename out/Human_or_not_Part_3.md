@@ -113,3 +113,6 @@ We got in the car without hesitation. Then the car started moving towards the ex
 
 
 I looked back and realised we were still not safe , Dave was at the top of the UDA building looking at [us.](https://www.reddit.com/r/UnnaturalUniverse/s/MZZsHWg1Ch)
+
+
+[Final part](https://www.reddit.com/r/nosleep/s/736ilSzoOP)
