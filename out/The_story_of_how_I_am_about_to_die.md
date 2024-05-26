@@ -1,0 +1,46 @@
+
+I have only fallen in love twice in my life.
+My first love was these old arctic mountains where I live, and the second was the woman who convinced me to leave these mountains 8 years ago.
+
+I shot that woman dead a few weeks back because my first love asked me to, whispering to me from thousands of miles away. I did it because I missed hearing the sound of that whisper. I did it because I needed to hear that whisper in person again. I’m only saying all this because very soon I am going to die, and I cannot bear to take all this with me to the grave.
+
+I moved back to the mountains just this week to a house well outside a remote little town. My new neighbors have been all nice to me since I lied to them that my wife shot herself. I almost couldn’t help laughing when the sweet old lady across the road brought a delicious baked lasagna to my door yesterday. As a sympathy gift I’m sure. 
+
+Anyway, my new property in the mountains is gorgeous; 100 acres of frozen forest wilderness with just a few neighbors across the road. I even have a small lake to myself a ways back in the woods. Every night since I’ve arrived I’ve been taking walks through that wilderness, listening to the mountains whisper. Each night, they’ve been beckoning me farther and farther into those woods, whispering my name in the icy wind.
+
+Tonight on my walk, I stumbled upon the entrance to an old mine. The light from my phone flashlight didn’t reach far when I peered timidly inside. As I turned to go, I heard a rasping voice echo from within the mine. “HELLLLLP” it cried. After nearly pissing myself in surprise, I yelled back into the mine asking what was the problem. There was no response. I tried again. And again. Then, the voice cried out again screaming “HELP ME.” It sounded distorted like it had echoed some distance through the tunnel. I noticed another set of footprints in the snow leading to the mine. They were recent.
+
+I tried to call 911, but I couldn’t. I had service, but the calls just weren’t going through for some reason. I thought about going back to the house and trying the phone there, but a desperate “PLEASE, SOMEONE I NEED HELP” from the mine made me worried that it might take too long. I wondered what someone else had been doing exploring MY property at night anyway. I thought I ought to have just left them there to let it serve them right, but with another pleading cry from the mine, I decided not to add any more weight to my conscious by walking away and maybe letting someone die.
+
+Carefully, I went into the mine, watching over my shoulder as the moonlight in the door faded into a spec behind me as I slowly walked forward, following the whimpering cries for help. The tunnel was narrow and completely dark, with a strange stink to it, like the smell of burned hair. I did not want to be in there a second longer than I needed to. It gave me the creeps.
+
+Soon, I got to a fork where the tunneling split off into two branches. On the floor was a sticky note with two arrows drawn on it. One arrow pointed down the tunnel I had just walked, and another pointed down the tunnel branching off to the right.
+
+It gave me a funny feeling. A bad feeling. But I heard another piercing “HELLLP” from the right hand tunnel and suddenly it made sense. The person in trouble must’ve left it behind to avoid getting lost. They must have left arrows pointing the way they came and the way they were going so that they could trace their path back to the entrance. Still, something seemed off. 
+
+The voice cried out again, sounding pretty close. I yelled back. There was still no response. I thought about turning around and Christ knows I should have, but I could not stand the thought of having another life on my hands to haunt me with my wife in my nightmares. I did not want to hear those bone chilling screams for help every time I closed my eyes. I knew that they would curse my dreams for the rest of my life if I walked away. I already had one too many dead people on my conscience. Besides, the distressed person didn’t sound too far away. 
+
+I was wrong about that for sure. I continued though that cold mine for a long while more. Following the flashlight on my phone through the total blackness. The tunnel got narrower and colder as I went. I felt like my bones themselves were freezing. The cries always sounded close, but really the echoing effect was just deceiving me. I came to many more forks with sticky notes. Each note always with two arrows. One pointing the way the person had went and one pointing the way out. I kept calling out to the person in distress but they still didn’t answer me. They just kept yelling for help. How could I hear them screaming so loudly but they couldn’t hear me at all?
+
+Then, I heard them again. They HAD to be close judging by the sound of that scream. I was certain they were just down the left tunnel at the fork I had just come to. The 9th fork I had come to at that. Hurrying, I rushed down that tunnel, crying out to them as I went. There was light! The first I’d seen in awhile. It came from a grate in the ceiling, where a long shaft must’ve vented in air. In that light, I saw a wall at the other side of the tunnel. It was a dead end. Nobody was here. I was confused, I was sure that last scream had come from here. The arrow on the last note had pointed this way too.
+
+Then I had a horrifying thought. Why would there need to be two arrows on each note for the person to find their way out? Why wouldn’t there just be one arrow to point to the path to the exit? I ran back down the tunnel, and to my horror, the sticky note at the fork there was gone. I searched the floor for it but it just wasn’t there. Panicking, I began to frantically run back through the mine, taking my best guess at the way I had come. All of the sticky notes were gone. 
+
+I was overjoyed when I saw moonlight at the end of the tunnel I had come to. I ran toward it panting, dying to leave this horrible place. To my disappointment, I realized that the light was coming from the grate at the ceiling, not from the entrance. I was back at the dead end. Somehow I had gotten lost and run in a circle. 
+
+Then, I saw a small figure step into the moonlight from the grate. Assuming it was the person I was here to help, I cried out to them and ran towards them. As I got closer, I recognized the figure. It was the sweet old lady from across the street. Why was she smiling like that? Why was she naked? What was that rectangular object she was holding? “Are you ok?” I asked in confusion. She took a sheet of tin foil off of the top of the object, revealing a baked lasagna in a small pan. She pulled out a fork and took a bite, sauce spilling on her chin. I waited for her to finish chewing, too confused to know how to react. “Fine!” she said swallowing, “Fine! Yep! I’m doing fine! Just fine and dandy!” She held out a fork of lasagna for me to take a bite. I looked at the fork. To my horror, it was not lasagna.
+
+It appeared to be sheets of human skin, covered in small hairs and stacked in layers of goopy bloody sauce like a lasagna.
+
+I don’t know if I screamed. I can’t remember.  I only remember that terrible laugher echoing behind me as I ran away. I ran and ran, faster than I knew I could, turning random corners, just trying to put as much distance as possible between me and that lady. Her sickening laughter echoed everywhere. I heard it from all directions. I needed to get out of there. I tripped on something, I don’t know what, and I think I passed out. Then I think I remember being carried? I know I remember the laughing. I think I was unconscious.
+
+I woke up just 10 minutes ago about. I’m missing my arms. My arm stubs hurt so bad. I’m not in the mine anymore. I’m standing on a frozen lake. 
+
+There’s a chain around one of my ankles. It goes through a hole in the ice. I think there’s a weight attached at the bottom of it. Judging by the strength of the chains pulling on my ankle I don’t think the weight has reached the lake floor. In fact I don’t think that there is a lake floor at all. Also beneath the ice is a dead woman floating in the water. A beautiful dead woman. A dead woman with a bullet hole in her head. I don’t know how she’s here.
+
+ The ice is melting fast. Even now I can hear the first pops as it begins to crack. If I look into the dead woman’s eyes the ice will stop melting. That’s what the old lady tells me at least. I tried for a second to meet the corpse’s dead gaze and it worked. The melting stopped. But I could not look for long. I could not bear it. I could not stand to look at what I had done. I’d rather the ice melt. I’d rather that chain drag me under the freezing black water than see the blankness in those eyes for a moment more.
+
+That wretched old lady is still here. Sitting naked in the snow on the shore. She’s watching me, cackling through mouthfuls of her disgusting lasagna. I don’t want to look at her either. The ice is getting thin now, I feel it starting to crack beneath my feet. Oh god. Why me?
+
+
+((((Got idea from 1922 in full dark no stars by Stephen king))))

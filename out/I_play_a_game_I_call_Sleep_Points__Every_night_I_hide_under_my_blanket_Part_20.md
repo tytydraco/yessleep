@@ -1,8 +1,7 @@
-First Part - [I play a game they call "Sleep Points". Every night I hide under my blanket (Part 1) : r/nosleep (reddit.com)](https://www.reddit.com/r/nosleep/comments/11ovngn/i_play_a_game_they_call_sleep_points_every_night/)
+First Part - [I play a game they call "Sleep Points". Every night I hide under my blanket (Part 1) : ](https://www.reddit.com/r/nosleep/comments/11ovngn/i_play_a_game_they_call_sleep_points_every_night/)
 
-Previous Part - [I play a game I call "Sleep Points". Every night I hide under my blanket (Part 19) : r/nosleep (reddit.com)](https://www.reddit.com/r/nosleep/comments/1bt9ozu/i_play_a_game_i_call_sleep_points_every_night_i/)
+Previous Part - [I play a game I call "Sleep Points". Every night I hide under my blanket (Part 19) : ](https://www.reddit.com/r/nosleep/comments/1bt9ozu/i_play_a_game_i_call_sleep_points_every_night_i/)
 
-  
 I had no idea how to react to any of this.  There was a long awkward pause of about 30 or 40 seconds where I just kept my mouth shut and let Anastasia let it all out.  My first instinct, though, was to ask probably the dumbest question I could’ve asked at that moment.
 
 “Who’s Wendy Peterson?” I asked.  I immediately regretted the question.  This was obviously a person ENORMOUSLY important to Anastasia, and here I was, just asking who the hell she was, like she was some nobody.  But Anastasia didn’t seem too upset.  I guess my question took her mind off the tragedy with her friend, since she seemed to regain her composure a bit after I asked that.
@@ -91,9 +90,9 @@ Though I’ll admit, it may have also been because I had a bit of a buzz going m
 
 “What time do your parents wake up on weekends?” she asked.  “If they sleep in, you might not have to leave until 4, maybe even 5.  I am entering a new stage tonight, and I would not like to go through my first night alone.  That, in tandem with the fact that we still have so much more of Sleep Points to go over, is why I am far more concerned with you leaving too early rather than too late,” she said.  “We may well need to fit two nights of discussions into one, tonight.  Have you met your sleep quota yet?” she asked.
 
-“Well… not quite.  But should be able to get 90 minutes in during the day tomorrow.  I mean, I’ve been up for 2 days, and it really feels like the new moon has been helping.  I’ve already strung together 26 minutes so far, and since tomorrow is Saturday, I’ve got all day tomorrow to get some sleep in,” I explained.
+“Well… not quite.  But I should be able to get 90 minutes in during the day tomorrow.  I mean, I’ve been up for 2 days, and it really feels like the new moon has been helping.  I’ve already strung together 26 minutes so far, and since tomorrow is Saturday, I’ve got all day tomorrow to get some sleep in,” I explained.
 
-“You cannot afford to risk that.  If you still need 90 minutes of sleep within the next 24 hours or so, then it will be far too dangerous for you to risk missing out on it by coming to visit.  You must stay at home tomorrow night. I will not let you in if you decide to come anyway,” she said.  “26 minutes after two under a waning moon is, I must again say, a rather poor sign.  Most by now would have strung together at least a full hour.  At least among those only in Stage Two, in any case.
+“You cannot afford to risk that.  If you still need 90 minutes of sleep within the next 24 hours or so, then it will be far too dangerous for you to risk missing out on it by coming to visit.  You must stay at home tomorrow night. I will not let you in if you decide to come anyway,” she said.  “26 minutes after two nights under a waning moon is, I must again say, a rather poor sign.  Most by now would have strung together at least a full hour.  At least among those only in Stage Two, in any case.
 
 Now, I have no doubt that, with the melatonin I have given you, you will have nothing to worry about this weekend.  The new moon will shortly be upon us, and, so long as you have melatonin at your disposal, you will most likely survive the next week or two with relative ease.  It is the full moon that concerns me.  The full moon on later stages, to be more specific.  Not only do I have my reservations about your capacity to survive the upcoming full moon in roughly three weeks’ time, but even if you do, it will still be very worrying when you are confronted with the next full moon, when you are on Stage Three.  And there are many more stages beyond that as well, each more sleep depriving than the last. 
 
