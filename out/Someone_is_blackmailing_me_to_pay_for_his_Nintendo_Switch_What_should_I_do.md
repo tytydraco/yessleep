@@ -1,6 +1,6 @@
-“Fuck you!” 
+“Screw you!” 
 
-“Oh yeah? Well, fuck you, too!” I shouted, sending an egg hurtling through the air. It landed square between Biff’s eyeballs with a satisfying *splat*. 
+“Oh yeah? Well, screw you, too!” I shouted, sending an egg hurtling through the air. It landed square between Biff’s eyeballs with a satisfying *splat*. 
 
 “You’re gonna pay for that, you little punk! Just wait ‘til I get my hands on y-” 
 
