@@ -90,7 +90,7 @@ I knelt down, prying the fingers back with soft, cracking noises. I uncorked it 
 
 “1. The cult known as the Golden Butchers has been kidnapping women to breed them with the pig-creatures. They worship the offspring that result from these unions as gods. If a member of your group gets taken, you will find them in the living farm at the end of the forest.
 
-“2. If you encounter Mr. Welcome, the enormous pig god with the third eye on his forehead, you must not let him touch you.
+“2. If you encounter Mr. Welcome, the enormous pig god with the eyes on his forehead, you must not let him touch you.
 
 “3. The red snakes can only see while you’re moving. If you encounter them, stay still. Don’t even breathe.”
 
