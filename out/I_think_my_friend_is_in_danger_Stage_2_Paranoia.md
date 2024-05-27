@@ -18,8 +18,6 @@ There wasn’t even enough room beneath my bed for anyone to fit; boxes of old c
 
 I felt my stomach growl, and remembered how little I had eaten the previous day. Realizing I’d have to actually go out and buy food before I could feed myself, I sighed and put on some clothes, slipping my car keys and wallet into my jacket pocket.
 
----
-
 “Find everything you were looking for today si-,” said the cashier, catching herself mid-word as she looked closer at me, eyes drifting towards my neck and shoulders.
 
 “Just fine, thank you,” I replied, not having any energy to even acknowledge this sort of thing.
@@ -35,8 +33,6 @@ Where there ought to be the total I was supposed to pay, or an advertisement, or
 I jumped slightly at the cashier’s voice, hoping that she didn’t notice. “Of course, sorry,” I murmured, fumbling for my wallet and grabbing my credit card. The cashier just sighed almost imperceptibly. While I clumsily inserted the card into the chip reader, I looked up at the monitor, simply seeing my purchase’s total and a list of the items that had been scanned.
 
 After being handed my receipt, I thanked the cashier, grabbed my bags and headed out the automatic door. I chanced a glance backwards on my way out, just to see if I could catch a glimpse of the image on the monitor again, but it was still normal. Just an ordinary checkout screen. I shook my head and made my way back to the car.
-
----
 
 Maybe it wasn’t the wisest idea to take a night walk, given the odd events of the previous day, but in my defense at this point I was still operating under the assumption that whatever was going on was merely a consequence of stress and paranoia. I didn’t want to believe that I was in any real danger.
 
@@ -64,15 +60,11 @@ I almost collided head first with the fence, but somehow managed to get a footho
 
 And there was, indeed, *something* there, in the dark. A dark figure, just barely discernible at the edge of the streetlamp’s light. It took a slightly hesitant step forward, coming so, so close to being fully visible, but stopped before the light could touch it. I looked up at where I thought its face must be, and I could feel it looking back at me, *studying* me. Then, it simply turned around and began to walk slowly away, back into the blackness, gravel crunching beneath its feet. I could hear it whistling softly as it faded into the shadows.
 
----
-
 ^(Postscript)
-
-
 
 ^(As promised; the second document, or “stage” as Trinity refers to it. Once again, the mundane details of Trinity’s life do seem to be accurately reflected within the document. I myself have actually walked with her in the past by what she calls the “midnight river,” though I have only ever done so during daylight.)
 
-^(Thusfar, I am unable to determine Trinity’s intentions with writing this narrative. While I wouldn’t necessarily describe her as being entirely mentally healthy, especially given the somewhat traumatic details of her former marriage, she never seemed prone to hallucinations or flights of fancy. And yet, she hardly seems like the sort to write all this out as some sort of hoax.)
+^(Thus far, I am unable to determine Trinity’s intentions with writing this narrative. While I wouldn’t necessarily describe her as being entirely mentally healthy, especially given the somewhat traumatic details of her former marriage, she never seemed prone to hallucinations or flights of fancy. And yet, she hardly seems like the sort to write all this out as some sort of hoax.)
 
 ^(I hope that the subsequent “stages” shine some light as to what exactly is going on.)
 
