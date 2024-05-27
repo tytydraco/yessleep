@@ -91,3 +91,5 @@ The big ones have migrated north. I think I pissed them off. They don’t die. T
 Day 245?
 
 I started digging again. I’m almost there…….. VOICECHAT VOICECHAT the sun feels so good if you find this save us please come get us no no no leave me alone donut come to this place voice text is trash we are not all dead there is no oh fuck fuck fuck fuck………………
+
+[Part 2](https://www.reddit.com/r/nosleep/s/RQZ7Zb9lrj)

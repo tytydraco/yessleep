@@ -2,11 +2,11 @@ When I was a little younger, (about 8-10 years ago) something completely unexpla
 
 Around high-school time, I was a loser and complete shut-in. Most of my time during these formative teenage years I’d just spend inside, playing games or listening to music and spacing out. Though I’ve always had a fond interest with photography. Capturing life through brief screenshots is precious, plus its fun and easy to do with just the average phone.  
 
-So, occasionally, I would leave on my own to wander the woods at the end of our street. Gave me plenty of time alone to get fresh air and stretch, plus I’d snap a bunch of pictures of mostly bugs but other animals or plants I found pretty too. 
+So, occasionally, I would leave on my own to wander the woods at the end of our street. Gave me plenty of time alone to get fresh air and stretch as well as snap a bunch of pictures of mostly bugs but other animals or plants I found pretty too. 
 
 On one of these walks, I heard a very offputting sound. It vibrated very quietly along the trees and in the surrounding area. Whilst I'm normally a very paranoid person and I was certainly uneased by the presence of this noise, I thought I recognized it. From the distance I was to whatever was producing it, the sound vaguely resembled that of a pig. My thought was maybe some livestock had escaped from a nearby farm or something. 
 
-Whether I was right or not, it sounded hurt. The slow agonized rattle, piercing the odd bird chirp or rustle of a branch falling. Then, I made a decision that would scar my life forever. I approached; if it was hurt, I wasn’t just going to leave it to bleed to death or whatever. I know, circle of life and whatever, but I was young and much dumber than I am now.  
+Whether I was right or not, it sounded hurt. The slow agonized rattle, piercing the odd bird chirp or rustle of a branch falling. Then, I made a decision that would scar my life forever. I approached; if it was hurt, I wasn’t just going to leave it to bleed to death or whatever. I know, circle of life and all that, but I was young and much dumber than I am now.  
 
 I made a brief trek off the path to find the source of the noise and (hopefully) save it. Wading through a bramble bush that slightly cut my legs, I began to focus on the sound. Or, rather, the sound seemingly gave me no choice but to focus on it. No birds were chirping anymore and aside from my movements, the rising repetitive groans were all I could hear. Everything from the leaves in the trees to the soft blowing winds fell still. 
 
@@ -54,7 +54,7 @@ In an immediate fit of panic I jolted out of my seat, slamming my knees on the d
 
 Through the hallways, that growing darkness began to appear, before I burst out into the courtyard. There, a slow rattling groan awoken in my ears again. I was becoming extremely familiar and recognized it immediately. Tears began to roll out of my eyes as I screamed, trying to drown out the sound, but it didn’t work. It grew louder and louder, deafening my surroundings.  
 
-I opened my eyes wide again to se a huge, limp mass in front of me. Shapeless and constantly contorting, it had no identifiable features beyond the shifting unknown textures and colors. Taller than it was wide, I tried to see where a head should be on a human but once again, just a repulsive slurry that I couldn’t understand. 
+I opened my eyes wide again to see a huge, limp mass in front of me. Shapeless and constantly contorting, it had no identifiable features beyond the shifting unknown textures and colors. Taller than it was wide, I tried to see where a head should be on a human but once again, just a repulsive slurry that I couldn’t understand. 
 
 But it was looking at me. It was looking. At me. Watching, staring, observing anywhere I moved I could not hide. The sound began to hurt, the pulsing rising groan of misery that pained me. I screamed once more, clutching my head. 
 
@@ -66,7 +66,7 @@ Alex offered to take me to the medical office and I was far too exhausted to ref
 
 I went home and stayed quiet. I was drained. I lay there, appreciating the precious silence of my room. School had just finished and I received a text from my friends. We shortly arranged to go on a walk together through the woods to help me feel better. I wanted to show them what I’d been seeing. 
 
-Though my parents were hesitant, they allowed it since Alex and May would be there. They arrived and we set off toward the woods, but I directed them to the specific section I had ran out from, I didn’t want to be out here longer than I needed to be. 
+Though my parents were hesitant, they allowed it since my friends, Alex and May, would be there. They arrived and we set off toward the woods, but I directed them to the specific section I had ran out from, I didn’t want to be out here longer than I needed to be. 
 
 We arrived at the spot, but the sounds weren’t there anymore. Maybe it was because of my slightly dulled hearing, but there was nothing. Desperate to convince myself I was still sane, I hurried them off the path. 
 
@@ -102,7 +102,7 @@ I stopped going to school for the rest of the week as my ears had both become in
 
 This last part is a little hazy to me due to the actions I took at the end. Most of this is missing details, but this night specifically I have desperately tried to block out of my memory. It wasn’t until recently it came back to me in pieces. 
 
-I remember my whole family was out for various reasons. My parents were both working late shifts and my sister was having a sleepover at her friend’s. I was especially anxious already because of my situation, so I crawled out of bed and clumsily headed downstairs. I poured a very shallow bowl of cereal, when that familiar sound kicked up again. I was taking absolutely no chances, dropping the bowl on the counter and rushing to lock everything I could. Every single day, every single window, up until the very last one. I turned, jittery and terrified. 
+I remember my whole family was out for various reasons. My parents were both working late shifts and my sister was having a sleepover at her friend’s. I was especially anxious already because of my situation, so I crawled out of bed and clumsily headed downstairs. I poured a very shallow bowl of cereal, when that familiar sound kicked up again. I was taking absolutely no chances, dropping the bowl on the counter and rushing to lock everything I could. Every single door, every single window, up until the very last one. I turned, jittery and terrified. 
 
 Something was there. The front room’s secondary window, a smaller more ornate patterned window compared to the large glass pane in the center of the wall. Through the textured glass I saw it. 
 
@@ -114,9 +114,9 @@ Nowhere was safe. I hadn’t locked this thing out, I had caged myself in for it
 
 I knew this was it for me. I had an unexplainable feeling, just as indescribable as the formless carcass that was coming for me. I didn’t want to be there when it happened. 
 
-Last I remember, I finally smelt it approaching, a hideous mesh of ash and rotten meat. The smell permeated my room as my eyes began to shudder. I could feel the physical pain of them kicking in. I was already exhausted and I don’t know how I fell asleep so quickly.  
+Last I remember, I finally smelt it approaching, a hideous mesh of ash and rotten meat. The smell permeated my room as my eyes began to shudder. I could feel the physical pain of them kicking in. I was already exhausted and I don’t know if I fell asleep quickly or if I just blocked out most of before I did.
 
-I awoke a week or two later. My parents were in tears, wondering why I’d ever try to take my own life and wishing that I’d spoken to them. 
+I awoke a week later. My parents were in tears, wondering why I’d ever try to take my own life and wishing that I’d spoken to them. 
 
 For 10 long years, my story has ended there. A crazy drug trip from trying to take my own life.  
 
