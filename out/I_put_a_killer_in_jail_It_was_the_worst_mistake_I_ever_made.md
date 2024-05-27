@@ -1,6 +1,6 @@
 I'll try to keep this concise, given that I'm in serious need of timely advice. I'm a college-bound high-school senior, and since I'm about to be in debt for the rest of my life, I decided a few weeks ago to pick up a summer job. My friend, Liam, and I both found part time positions at an ice cream store in town. Not the best paying job, but our schedules were flexible and given the popularity (or lack thereof) of the shop, we basically got to sit on our asses all day and play video games on Liam's SteamDeck. The job did have one downside though, which was the shop's owner, Fred.
 
-Fred was an older guy, probably in his 60s. I have no clue where he came from or what he did before moving into my town 15 years ago, but from the way he carried himself, I always thought he had a military background. He was tall and wiry, and had this stare that felt like he was peeling back your skin with his eyes alone. I had no idea what a guy like that was doing running a kitschy little ice cream shop called "Sundae Central", but the events of the past few weeks have given me some theories.
+Fred was an older guy, probably in his 60s. I have no clue where he came from or what he did before moving into my town five years ago, but from the way he carried himself, I always thought he had a military background. He was tall and wiry, and had this stare that felt like he was peeling back your skin with his eyes alone. I had no idea what a guy like that was doing running a kitschy little ice cream shop called "Sundae Central", but the events of the past few weeks have given me some theories.
 
 So a few hours before our first 4-10 P.M. shift, Fred gave Liam and me a tour. The shop was too small for its own cold room, and so the back room had two standing freezers. It also had one giant chest freezer which, as I learned a few days later, was locked. When I asked Fred about it, he told me that it was for surplus inventory, and I didn't really care enough to inquire further. The last thing Fred told us was to be wary of a homeless woman who sometimes begged outside of the store and had been known to be aggressive. Fred watched Liam and me closely throughout our first shift, which luckily went off without a hitch. At 10 P.M. sharp, he told us to grab our things and go—apparently, Fred liked to clean and close up shop himself.
 
@@ -100,23 +100,10 @@ I don't know what I was thinking. I shouldn't have let him go. I should have cal
 
 In the morning, the light streaming in through the living room windows broke me out of my trance. I forced myself to get up and get in the car and I drove like a maniac to Liam's house. We were such good friends, you know? I had my own set of keys to his place. His parents joked that I was their second son.
 
-
-
-
-
-
-
 The adult human skeleton has 206 bones. I found maybe 40 of them. Vertebrae splintered and stuck in his mattress. Half a ribcage discarded on his floor. Something long, maybe a femur or a tibia, embedded in his wall. How strange it was that for all the carnage, all those scratches and dents in the floor and ceiling, I didn't see a drop of blood.
-
-
-
-
-
-
 
 His parents and younger sister were in a similar state. I didn't find them myself—I called the police after seeing … what I saw in Liam's room, but I could tell from the officers' expressions that they had been similarly brutalized. They took me in for questioning, of course, since I've now been found at the center of two crime scenes, but I doubt I offered them any valuable answers.
 
 I don't know what has descended upon my town. I don't know exactly what it did to Liam's family, or why. But I suspect that the person with all the answers, the person who was protecting my town all this time without anyone knowing, is currently behind bars because of me.
 
 Maybe I can find a way to talk to him. Maybe I can find a way to convince everyone of his innocence. If not, then I'll have to take matters into my own hands. I'll have to feed the monster I set free.
-
