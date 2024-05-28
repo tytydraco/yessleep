@@ -61,7 +61,7 @@ Now we had both the armed men and Dave chasing after us. We kept running and the
 I went right and he went left. Seems like I drew the short end of the stick because Dave was after me.
 
 
-"WHY DON'T YOU GO AFTER THE OTHER GUY WHO ACTUALLY HAS SUPERPOWER" I yelled at it.
+"WHY DON'T YOU GO AFTER THE OTHER GUY WHO ACTUALLY HAS SUPERPOWERS" I yelled at it.
 
 
 It roared back at me , I guess reasoning with it was not the best idea.

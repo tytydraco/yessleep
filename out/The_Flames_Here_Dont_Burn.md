@@ -29,7 +29,7 @@ I pushed myself away from the world and two years later as per the script, jumpe
 
 I sat there facing the hypnotizing yellow light coming from the lamp. The mild sound of pots and pans coming from the kitchen, while my wife samantha cooked. We had been married for 10 years, however she never stopped looking the way she looked to me when I first met he-
 
-Wait no, I remember it now. A chance, from the heavens, This my chance to straighten my life, a fucking time loop. I can do this.
+Wait no, I remember it now. A chance, from the heavens, This my chance to straighten my life, a fucking time loop, I can do this.
 
 Cathy came crying towards and I quickly grabbed her and samantha and locked them in bedroom, and by the dot the sound of a window came crashing in, I now knew that where he was going to be, so I took the strategic position behind the kitchen door and waited for the burglar to arrive, I waited and waited but he never came and then a sharp pain in my head as my world went dark
 
@@ -55,4 +55,4 @@ I charged towards him and was pushed back with equal force as he grabbed my daug
 
 Tears flood my eyes as I saw him grab my daughter. "THIS IS...", my words trailed of as I smiled. A wave of realization hit me accompanied by laughter. "So thereis no forgiveness to even accidents huh." I smirked.
 
-That night I laughed as the burglar killed the girl in front of me.
+That night I laughed as it killed the girl in front of me.
