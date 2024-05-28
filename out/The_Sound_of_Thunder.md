@@ -8,7 +8,7 @@ I had lived at Belleview Place a little over a year now and knew everyone in the
 
 The more I listened, the more I sensed an unpleasantness in the man's tone. Though the sounds were just muffles through the floorboards, I could still hear the deliberate way in which he spoke, as though it took him great effort just to contain himself. His guest took longer and longer in responding with anything at all, the silence between them stretching into the uncomfortable.
 
-Cutlery and dishes rattled in the kitchen below as thunder bellowed on the outskirts of town and downstairs I could hear the voices getting louder. The two men were really getting into it. *Or was one pleading,* I wondered. Now that I listened, I did notice a whining in the guest’s voice, a pitiful, high-pitched noise that made me want to wince. I wondered if I should really be listening in, and I reconsidered just how much about this man I really needed to know.
+Cutlery and dishes rattled in the kitchen below as thunder bellowed on the outskirts of town and downstairs I could hear the voices getting louder. The two men were really getting into it. *Or was one pleading,* I wondered. Now that I listened, I did notice a whine in the guest’s voice, a pitiful, high-pitched noise that made me want to wince. I wondered if I should really be listening in, and I reconsidered just how much about this man I really needed to know.
 
 The tenants voice grew only louder, roaring above the storm. I could feel the anger through my mattress and tried my best not to listen. As soon as I was better, I would have a word with the landlord. Even if this man thought he was alone, this was still no way to treat a guest, who could in no way be deserving of such a tirade. I could hear the guest’s sobs and only imagine what an ordeal this was for him. And still the shouts and the pleas persisted, clambering to a fever pitch with the growing madness of the storm outside.
 
@@ -66,7 +66,7 @@ I inched away from the door in time to see it shudder in place. I nearly let out
 
 Without thinking, I felt for a lighter in my jacket that hung from its hanger as a third sent splinters flying across the room. I reached for the tissues by my bed, and as the door rattled again, this time the deadbolt plate loosening from its screws, I lit the clump of tissues and held them up to my smoke detector. Yellow flames sputtered from my hand. It took a second for the alarm to trip, but when it did, I heard it be accompanied by the others in the house, as a light flashed from the device.
 
-Just like that, the door was still once more. I couldn’t hear for the siren whether they’d truly gone, but all the same, I took the phone from my desk and fell to the floor, sitting in the roar of the alarms as I waited for someone on the other side to pick up.
+Just like that, the pounding stopped. I couldn’t hear for the siren whether they’d truly gone, but all the same, I took the phone from my desk and fell to the floor, sitting in the roar of the alarms as I waited for someone on the other side to pick up.
 
 The winds died down by the time the call wrapped up, over as quickly as it had started.
 

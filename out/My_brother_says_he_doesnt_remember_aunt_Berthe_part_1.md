@@ -14,7 +14,7 @@ My mom was very young when they met.She was almost immediatly pregnant with my b
 
 My father's french. He came here to study but he was born and raised in a small mining town in the moontains. It used to thrive in the 50's but since the coal mine closed... It's changed a lot. Don't think my ancestors were minors. I mean... They were. But they were there before the mines.
 
- They hid in those montains for centuries so they could practice their religion in peace away from the protestants' and heretics' massacres. When my grandfather decided to build the house on the stepped plot of land he'd inherited from his father, there were no roads , no telephone , no water, nothing. 
+ They hid in those mountains for centuries so they could practice their religion in peace away from the protestants' and heretics' massacres. When my grandfather decided to build the house on the stepped plot of land he'd inherited from his father, there were no roads , no telephone , no water, nothing. 
 
 Our ancestral house stands on top of a hill, surrounded by thorns , chestnut trees and some miserable rotting vineyards. The old stones so crumbled he never thought about living in it himself. He was happy to let the whole place to aunt Berthe. Although she only used her own side of the property. His great aunt. She was already old when he started building a new house in the 70's but you know... People used to be very old pretty young back then. When grey hair ran wild on old crone's head, teeth fell unreplaced and eyes went white from old age. Time had no grip on my ancestor's land. Tv, radio and its commercials weren't there to change my great aunt's old ways. 
 
@@ -58,7 +58,7 @@ I didn't want my family to see how hurt I was. They always teased me if they kne
 
 I went back to my room where Mike was playing on his gameboy color. " I'm going to the cemetary to see aunt Berthe. Do you want to come?" I was not expecting it but he came. 
 
-I've told you earlier that we were part of a community who'd come to the montains to live their religion safe from the catholics. For this reason, we had our own private cemetary in the woods. Grandma came pretty often clean the forgotten tumbstones. I knew I would find her grave there. 
+I've told you earlier that we were part of a community who'd come to the mountains to live their religion safe from the catholics. For this reason, we had our own private cemetary in the woods. Grandma came pretty often clean the forgotten tumbstones. I knew I would find her grave there. 
 
 On my way I'd collected the best looking pinecones and disposed them on the ground, under the rusted cross. " Where you there ?" I asked my brother. He was a few feet away, looking at a spider near the gate. " There where?" " at her funeral ? ". He came nearer. " See this date ? " " yes" " It's her birthdate. I read, aloud, "September the 9th 1889" . " And this one?" " yes" "It's her death, december the 22nd 1973". "Oh..." ... I hesitated. " I think it's another Berthe..." I breathed. " What do you mean?" " The old woman... In the old house. Maybe it's her daughter and they just have the same name... " What old woman? " he snarked. " You saw her last week !!" He became pale. ".  Dad told me we should never talk about that day ever again. YOU UNDERSTAND !?" he shouted so loud , so suddenly, that I started crying immediatly. " You're such a baby" he growled, leaving. 
 
