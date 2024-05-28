@@ -4,7 +4,7 @@ On the morning of Mother’s Day this year I received exactly one gift: a dead r
 
 The rest of the family had forgotten the holiday. Not that I blamed them. My husband Saito was busy at work, pulling 70-hour shifts as he prepared a series of PowerPoints to explain his company’s corporate structure to a potential buyer. In the meantime, the twins June and Lily were busy with spring soccer and last-minute prep for their upcoming AP tests. 
 
-I spent some time idly making myself coffee while the family swept. Then, around 9:00 they all flew past in flurry, the twins off to a soccer game and Saito headed to the office. 
+I spent some time idly making myself coffee while the family slept. Then, around 9:00 they all flew past in flurry, the twins off to a soccer game and Saito headed to the office. 
 
 It wasn’t until they’d all left, that a lump began to form in my throat, and I headed to the backyard to have a little cry. I felt silly. It was a made up holiday, after all. Not like Christmas or a birthday (though Saito forgot my birthday too this year.) 
 
@@ -13,8 +13,6 @@ For a few minutes, I sat on one of the patio chairs, sniffling pathetically, hop
 I was about to go back in when I saw James. He was over in the corner of the yard, lying in the shade. Right away, I could tell something was off about him. James always slept curled in a ball, his chin resting on his rear haunch. Today, he was stretched out, bent awkwardly. Even stranger, he seemed to shimmer in the few spots where the dappled sunlight caught his fur.
 
 Slowly, I walked over, clicking my tongue in the way he liked. When he didn’t move, I softly called his name. Finally, I reached out to touch him, only to find his fur wet. Drawing my hand back, I found it red and bloody in the sunlight, which is when I started screaming.
-
-
 
 I called Saito a few minutes later.
 
@@ -27,8 +25,6 @@ I called Saito a few minutes later.
 I could practically hear him roll his eyes on the far and of the line.
 
 “It’s not a good day for this,” he said. “I can come back a bit early, take care of the body. Just leave it alone for now.”
-
-
 
 I spent many hours alone that day, sitting in the backyard. In time, flies found James and began to lick at him with their little straw-mouths, dipping their horrible little hands in his blood and rubbing them together. It was no use shooing them away. 
 
@@ -60,8 +56,6 @@ An hour later, he came in dirty and sweaty. He headed to the shower.
 
 I walked to the maple to find the earth there freshly disturbed from digging. Then I found one of James’s favorite toys–a fuzzy bird that had once had a bell inside–and affixed it to a stick, which I placed at the head of the grave.
 
-
-
 At dinner, the twins showed up still in their soccer uniforms. They’d spent the day at the park with friends after the game. 
 
 “Happy Mother’s Day,” said June, somewhat sheepishly. She handed me an envelope with a gift card to Jazzy Juice inside.
@@ -78,8 +72,6 @@ At dinner, the twins showed up still in their soccer uniforms. They’d spent th
 
 “Great,” she said, looking disappointed.
 
-
-
 The next morning I went out into the backyard and screamed. 
 
 James’s grave had been dug up. It was nothing put an empty hole surrounded by a pile of dirt. The stick and the toy were missing too. It didn’t seem that deep. By the time Saito ran out to see what was wrong, I was in tears.
@@ -89,8 +81,6 @@ James’s grave had been dug up. It was nothing put an empty hole surrounded by 
 “The soil gets really rocky when you go down that far,” he said. “I figured it didn’t matter.”
 
 “It mattered!” I screamed. 
-
-
 
 I decided to take some ‘me’ time that afternoon, so I headed to Jazzy Juice. I tried to figure out the menu while I was in line, but I got overwhelmed by all the options. Finally, when I got to the front of the line, I asked if I could just get a basic orange juice.
 
@@ -116,15 +106,11 @@ She shot me a shit-eating smile, “have a nice day!”
 
 I chucked my drink in the garbage on my way out the door.
 
-
-
 That night, I found myself crying as I tried to make dinner. I could see the little hole that had once contained James’s body through the kitchen window, and I couldn’t help glancing at it as I tried to peel zucchini. 
 
 It struck me that James had been the only one in the world who loved me at all. Even worse, it seemed unlikely that no one would ever love me again. I was aging, chubby, and boring. The world didn’t want me anymore.
 
 Without realizing it, I made a deep cut on my thumb and started bleeding everywhere. For a minute, I just watch the blood ooze out of me, all over the vegetables. 
-
-
 
 That night, I heard a thump. I tried to shake Saito awake, but he was dead asleep. Finally, I got up and walked downstairs. There was another thump now, louder. Then a series of three more thuds right by the front door.
 
@@ -138,7 +124,7 @@ At first, I saw no one. Just the empty street in the moonlight. A few night bloo
 
 There, on my doorstep, lay a body, its chest still fluttering with life but mostly torn to shreds. Great, bloody gashes had left the green apron in tatters, the skin’s intricate tattoos sundered to islands of nonsense. The girl’s red hair was now redder.
 
-Though her skull was crushed, her pretty face nearly ripped off the skull, I knew immediately it was the girl from the juice shop.
+Though her skull was crushed, her pretty face nearly ripped off the bone, I knew immediately it was the girl from the juice shop.
 
 My body tensed as I watched her chest cease its fluttering and the flow of blood slowed to a trickle. Soon, she was still as the rest of the street. 
 
