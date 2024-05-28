@@ -16,12 +16,13 @@ I loved my paper round. It consumed me, it was all I ever remembered doing. But 
 It felt like no time at all before I struck lucky on my job search, and it was all thanks to my paper round. Alan, the man in the shop, had installed a Community Noticeboard just last year. It held a rotation of different notices, some posters in full colour, some little scraps of hastily-scribbled messages. On that day, when Mother stopped in to collect my wages, a gleaming white sheet of paper sat in the very centre, 4 lines of text in clean black type. 
 
 
-*Wanted: Office Administrator.
+*Wanted: Office Administrator.*
 
 
-Seeking a motivated individual looking for a full-time opportunity. 
+*Seeking a motivated individual looking for a full-time opportunity.*
 
-Experience not necessary - full training provided.*
+
+*Experience not necessary - full training provided.*
 
 
 The last line was a phone number, and the address of a local dentists office. I knew the place, I'd cycled past it more times than I knew how to count. Mother saved a picture of the notice, and she all but ran home to tell me the good news. 
