@@ -851,3 +851,4 @@ His parents took me to court. I spent six months in prison before the judge dism
 Charlie got his wish; he became a member of the 27 club. I hope it’s everything he wanted it [to be](https://www.reddit.com/r/DiscoBloodbath)
 
   
+Edit: For those who don't understand why I did what I did, Charlie was my best friend for a lot of years.  One final act of kindness felt right to me, regardless of what he'd done to me. I wouldn't even want to see my worst enemy kept alive with wires and synthetic breathing apparatus.
