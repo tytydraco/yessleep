@@ -79,7 +79,7 @@ Slowly, I unfolded myself, and staggered into the seat. My hands trembled so bad
 "See! See how their mouths twist! Their eyes are so flat, there's nothing to them except for those horrible, horrible smiles."
 
 
-Mother sighed, deeper than I've ever heard her. And she began to explain. 
+Mother exhaled, deeper than I've ever heard her. And she began to explain. 
 
 
 I learned something, that day. I learned that sometimes when humans smile, it isn't because they're happy. It's because they're being polite, because the social rules that govern their society tell them that they have to smile. And because there's no feeling behind that smile, the only thing it twists is their mouth. It creates that flat, terrifying, expression that I saw in those women. 
