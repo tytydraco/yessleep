@@ -34,3 +34,5 @@ Shit! I thought it was all a dream! I thought I was going crazy! I woke up in th
 I started doubting everything that happened………… until I read that last message. James wrote that last message on my phone! When I saw that message I popped up to show the doctors, but when I got to the door I overheard them talking in the hallway. The first doctor kept saying “there are people still alive! How? Everyone should be dead! And now it’s starting to suck people in? We need to do damage control. Get 100 soldiers and get a barricade around it. We don’t need more people getting involved.”
 
 They know it’s real! Am I part of the cover up now? I’m nervous they are going to kill me to keep me quiet. I’ll keep you all updated, assuming I’m still alive!
+
+[Part 1](https://www.reddit.com/r/nosleep/s/RuXMadmynI)
