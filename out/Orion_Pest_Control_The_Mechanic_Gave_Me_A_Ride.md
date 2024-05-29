@@ -366,7 +366,7 @@ I sounded braver than I felt, “Of course I did. Now, how much for the repairs?
 
 His smile turned mysterious as he gave me my total. He didn't come closer to the counter while I stood by it; I had to back up for him to be able to run my card - a pre-loaded debit card that I keep putting cash onto specifically for reasons like this. After that was done, he set it on the counter next to my other belongings, leaning against the back of some old clunker he had lined up to work on. 
 
-As I hurried to get my things, the mechanic suddenly asked, “You can't tell me that you ain't curious.”
+As I hurried to get my things, the mechanic suddenly said, “You can't tell me that you ain't curious.”
 
 “Curious about what?”
 
