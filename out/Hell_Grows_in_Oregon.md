@@ -20,10 +20,9 @@ As soon as I heard this I stopped walking and stared at Gene with a confused and
   
 Gene patted my hand and gave me a big smile, “I’m as serious as a heart attack Kim, got express approval from the CDC to study Mr.Humungous himself”.  
   
-“Oh my god Gene” I said as I gave him another hug, “this is gonna be the best day of my life!”.  
-  
+“Oh my god Gene” I said as I gave him another hug, “this is gonna be the best day of my life!”.    
 “It’s gonna be a day, that's for sure!” Gene said as he unlocked his GMC Yukon, “Dr. Alisha Johnson will be meeting us there as well”.   
-As we got into his car, Gene turned to look at me. “Kim, National Geographic is going to publish a story about us!”.  
+As we got into his car, Gene turned to look at me. “Kim, National Geographic is going to publish a story about us!”.
   
 “Gene, you better stop giving me good news or I might ugly cry all over your leather seat” I said as I wiped my eyes.  
   
@@ -65,21 +64,17 @@ As we grabbed our research kits from the truck, the young man began to walk towa
   
 “It's a pleasure to meet you Connor” I said as I shook his hand, “lets see the site!”   
   
-After walking for what seemed like a lifetime, we finally made it to a roped off section of open land. Standing about twenty feet in was Dr. Ashley Johnson and a middle aged man with a camera around his neck.  
+After walking for what seemed like a lifetime, we finally made it to a roped off section of open land. Standing about twenty feet in was Dr. Ashley Johnson and a middle aged man with a camera around his neck.    
+“Dr. Johnson, we’re all here!” Connor yelled as we stepped over the rope.    
+“Wonderful!” Dr. Johnson said as she and the man made their way towards us, “Dr. Bishop and Dr. Wilson, It's great to see you both again”.
   
-“Dr. Johnson, we’re all here!” Connor yelled as we stepped over the rope.  
-  
-“Wonderful!” Dr. Johnson said as she and the man made their way towards us, “Dr. Bishop and Dr. Wilson, It's great to see you both again”.  
-  
-“The pleasure is all mine” I said as I shook her hand.  
-  
-“Everyone, this is Dan” Dr. Johnson said as she turned to look at Daniel “He’s a reporter from National Geographic”   
-  
+“The pleasure is all mine” I said as I shook her hand.    
+“Everyone, this is Dan” Dr. Johnson said as she turned to look at Daniel “He’s a reporter from National Geographic”.    
 “It’s a great honor to be able to venture into this unknown with all of you!” Dan said as he snapped a picture of Dr. Wilson and I.  
   
 “So how far away is this sinkhole?” I asked.  
   
-“The sinkhole is right over this small hill, but that's not where we will be going doing our research” Dr. Johnson said as she led the group towards the hill.  
+“The sinkhole is right over this small hill, but that's not where we will be doing our research” Dr. Johnson said as she led the group towards the hill.  
   
 “But isn't that why we planned this excursion?” Gene asked.  
   
@@ -87,7 +82,7 @@ After walking for what seemed like a lifetime, we finally made it to a roped off
   
 “A cave system? I asked.   
   
-“Yes, a cave system which will allow us to get extraordinarily close to the armillaria ostoyae fungi”. Dr. Johnson said as we neared the top of the hill  
+“Yes, a cave system which will allow us to get extraordinarily close to the armillaria ostoyae fungi”. Dr. Johnson said as we neared the top of the hill.  
   
 “How close?” I asked excitedly.  
   
@@ -203,7 +198,7 @@ As I went to stand up, I suddenly heard a sound further down the corridor.
   
 “Guys… Guys… Where are you…are you ok…”  
   
-“Hello, is anyone down there?” I replied as I inched towards the voice   
+“Hello, is anyone down there?” I replied as I inched towards the voice.  
   
 “Are you ok… Guys… Guys…”  
   
@@ -219,7 +214,7 @@ After slowly making my way towards the voice for a couple minutes, I could final
   
 As I got closer, I could see Dan standing still in the middle of the corridor about 200 feet in front of me. As I moved closer, he started to wave at me.  
   
-“Thank god you’re ok Dan, I was worried…” I quickly stopped in my tracks  
+“Thank god you’re ok Dan, I was worried…” I quickly stopped in my tracks.  
   
 Dan was still waving at me. Now that I was about 50 feet closer, I could tell that the way he was waving was almost as if his body was stuttering. He wasn’t looking at me either, instead he was staring down at the floor. Before I could get any closer, I felt hands grab me by my mouth from behind and pull me into a small alcove. I tried to kick and scream but whoever was dragging me was much stronger than I was. Once we had backed into the darkness the person spoke.  
   
@@ -277,7 +272,7 @@ As the voice came closer, I realized that whenever the voice spoke it lacked a f
   
 Suddenly I could make out the silhouette of a figure standing right in front of the alcove. Looking at its legs, I could see that it was hoisted several inches off the ground by roots protruding from the back of its legs. Its arms and head dangled like a limp stuffed animal. The figure rose about a foot off the ground and began to lean forward at a 45 degree angle. Suddenly, it lurched towards the wall of the alcove where Gene and I were hiding. As it crept towards us, I heard the sound of a soft thud a couple feet in front. The sound of the thud caused the creature to stop dead in its tracks.   
   
-I remembered that Dan had kept his matchbook in his breast pocket. If this silhouette was Dan and that is what made the noise, then using the match could be our only chance of escape. As the figure stood only a couple feet in front of us, I slowly crept towards where I had heard the sound. I was just out of reach of the object when my knee landed on a small pebble, causing me to let out a soft gasp. At that moment, the whole world went silent as I noticed that the body of the figure was now at a much steeper angle. I couldn’t see it, but from the angle of the body  I could tell that it was dangling directly above me. Holding back tears, I held my breath as I reached down and grabbed what he fell off of the figure. As soon as I picked up the object, I knew from the texture and shape that it was the matchbook. Taking one more deep breath, I laid on my stomach and held the match in front of me. I only had one chance to do this, so I couldn’t afford to fuck it. I took a breathe and counted down in my head to calm any nerves  
+I remembered that Dan had kept his matchbook in his breast pocket. If this silhouette was Dan and that is what made the noise, then using the match could be our only chance of escape. As the figure stood only a couple feet in front of us, I slowly crept towards where I had heard the sound. I was just out of reach of the object when my knee landed on a small pebble, causing me to let out a soft gasp. At that moment, the whole world went silent as I noticed that the body of the figure was now at a much steeper angle. I couldn’t see it, but from the angle of the body  I could tell that it was dangling directly above me. Holding back tears, I held my breath as I reached down and grabbed what he fell off of the figure. As soon as I picked up the object, I knew from the texture and shape that it was the matchbook. Taking one more deep breath, I laid on my stomach and held the match in front of me. I only had one chance to do this, so I couldn’t afford to fuck it up. I took a breathe and counted down in my head to calm any nerves  
   
 “3”  
   
@@ -297,7 +292,7 @@ As soon as the match head scraped the stone floor, the head burst into flames. W
   
 “I’m sure that it's just Connor, we shouldn’t jump to conclusions”. I said I began to walk toward, but as I did Gene grabbed my arm.  
   
-“Kim, that fucking thing mimics voices and uses bodies as puppets. I think not rushing into a potential trap is jumping to conclusions”. Gene replied in an annoyed tone.   
+“Kim, that fucking thing mimics voices and uses bodies as puppets. I don’t think that being careful and not rushing into a potential trap is jumping to conclusions”. Gene replied in an annoyed tone.   
   
 “You’re right, what should we do then?” I asked  
   
@@ -440,7 +435,7 @@ Alisha turned to look at me with wide eyes and a droopy smile
   
 “Kim, I have never felt better. We are so close, I can feel it” Alisha said as she began to speed walk again.  
   
-As she made her way down the hallway, Gene and I let some distance before we started to follow.  
+As she made her way down the hallway, Gene and I  slowed down to gain some distance between us before we started to follow.  
   
 “What the hell is wrong with her” Gene said, “She’s acting totally different”.  
   
@@ -454,7 +449,7 @@ As she made her way down the hallway, Gene and I let some distance before we sta
   
 After a couple minutes, we finally caught up to her and stood in awe. We could see a beam of light coming from an opening a couple hundred feet away.  
   
-“Alisha you an exit! Thank fucking god!” Gene said as he hugged her.   
+“Alisha you found an exit! Thank fucking god!” Gene said as he hugged her.   
   
 We both sprinted towards the light as Alisha followed behind us laughing to herself.   
   
@@ -464,7 +459,7 @@ As soon as we got to the doorway, Gene gave me a hug.
   
 After he let go and waited for Alisha to catch up to us, the three of us walked through the doorway and into the light.  
   
-Once the light faded and we were on the other side, we froze in terror. This wasn’t the exit, it wasn’t anyplace that should even exist. The room seemingly stretched for miles in either direction. Blue and white lights glowed beyond the distance that the human eye can see. In the middle of this glowing chamber was a pulsating mass of black roots, eyes and veins which looked as though it was the size of a large mountain.Tendrils made of rotting muscle, eyes, and roots, which connected the mass to the chamber seemed to stretch indefinitely, were hundreds of feet thick, and was gushing out black liquid. After being frozen in place, the mass began to shake and the massive eye in the center of its form began to open. As it did, tendrils carrying thousands of corpses similar to Dans’ hovered about us and spoke in unison. As the corpses spoke, Gene and I looked on in horror as Alisha bowed before the Mass  
+Once the light faded and we were on the other side, we froze in terror. This wasn’t the exit, it wasn’t anyplace that should even exist. The room seemingly stretched for miles in either direction. Blue and white lights glowed beyond the distance that the human eye can see. In the middle of this glowing chamber was a pulsating mass of black roots, eyes and veins which looked as though it was the size of a large mountain.Tendrils made of rotting muscle, eyes, and roots, which connected the mass to the chamber seemed to stretch indefinitely, were hundreds of feet thick, and was gushing out black liquid. After being frozen in place, the mass began to shake and the massive eye in the center of its form began to open. As it did, tendrils carrying thousands of corpses similar to Dans’ hovered about us and spoke in unison. As the corpses spoke, Gene and I looked on in horror as Alisha bowed before the Mass.  
   
 “Alisha Johnson… You have brought forth your harvest…” The corpses sang in unison  
   
@@ -474,19 +469,19 @@ Once the light faded and we were on the other side, we froze in terror. This was
   
 ‘Fuck this bullshit!” Gene said as he raised his flare gun towards the Mass.   
   
-Before Gene could pull the trigger, Alisha had gotten up and smashed him over the head with rock.  
+Before Gene could pull the trigger, Alisha had gotten up and smashed him over the head with a rock.  
   
 “Gene no!!!” I screamed as I rushed to his side.  
   
 “Go Forth… Alisha… Join the Harvest… Join the Harvest…” The corpses screeched.  
   
-“Why the fuck would you do that Gene” I said as I held his head.  
+“Why the fuck would you do that Gene?!” I said as I held his head.  
   
 “I wanted to go out in style”, Gene said he coughed up blood.  
   
 “What do you mean, we could’ve just escaped”. I cried.  
   
-“Kim, we both know that we can’t leave this place. Not after what we’ve seen or what may be carried in our bodies. If Alisha escapes, she’s going to kill a lot of people… You have to stop her” Gene said as his voice became weaker.  
+“Kim, we both know that we can’t leave this place. Not after what we’ve seen or what may be carried in our bodies. If Alisha escapes, she’s going spread the spores like Connor did and kill a lot of people… You have to stop her” Gene said as his voice became weaker.  
   
 “How? She’s so far ahead already” I said as I clutched Gene’s head.  
   
@@ -507,7 +502,11 @@ As I ran towards the opening, I could hear the deafening sounds of thousands of 
   
 “You pretentious bitch stop speaking to me in riddles” I yelled back.   
   
-Alisha quickly ran towards the entrance to the cave. After a couple minutes I was able to scale the rockwall and ran towards the rope. As I passed through the narrow wall of roots, they began to scratch and claw at me, as if to try and slow me down. However I bore the pain, as I was not going to let Gene, Dan and Connor die in vain. Once I emerged from the cave, I noticed that I was bleeding profusely from all of the cuts. With all my remaining strength and adrenaline, I made my way over to the rope and saw that Alisha was about thirty feet above the ground.  
+Alisha quickly ran towards the entrance to the cave. As I could hear the sounds of her laughter and footsteps above, I slowly made my way up the rock wall. As I got to the halfway point, I accidently grabbed hold of a loose rock causing me to loose my balance.
+
+“Fuck that was close” I muttered as I regained my composure and continued my ascent. 
+
+Finally after several grueling minute I made it to the top of the wall and started racing back towards the entrance. As I passed through the narrow wall of roots, they began to scratch and claw at me, as if to try and slow me down. However I bore the pain, as I was not going to let Gene, Dan and Connor die in vain. Once I emerged from the cave, I noticed that I was bleeding profusely from all of the cuts. With all my remaining strength and adrenaline, I made my way over to the rope and saw that Alisha was about thirty feet above the ground.  
   
 “This ones for you Gene” I said as I raised the flare gun and pulled the trigger.  
   
