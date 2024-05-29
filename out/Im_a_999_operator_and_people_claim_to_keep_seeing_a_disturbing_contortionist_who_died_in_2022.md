@@ -4,11 +4,9 @@ Everybody in my area knows about Kit Jenson, the Crazed Contortionist. A moniker
 
 Still, in spite of what folk call him, he did not slaughter Mandy Jenson in a performative way. There was no display of gratuitous grandeur. The two bodies were not packed into some poky space, like a pair of contorted sardines. He beheaded his wife and threw himself from a sixth-floor balcony.
 
-They both died on Tuesday 10^(th) May, 2022. I know that because I’ve researched it extensively. Read and re-read articles until my eyes throb. Just to ensure that I’ve not entirely lost my marbles. There's no denying it. They’ve been gone for *two years*.
+They both died on Tuesday 10^(th) May, 2022. I know that because I’ve researched it extensively. Read and re-read articles until my eyes throbbed. Just to ensure that I’ve not entirely lost my marbles. There's no denying it. They’ve been gone for *two years*.
 
 That’s why I don’t understand the calls I received on Friday 24^(th) May, 2024. Calls that all stemmed from a town I shall call Greentree.
-
-
 
 ***\~Call 1 – 12:40pm\~***
 
@@ -96,8 +94,6 @@ And it was only the first crumb of Friday’s awful events. Events which took pl
 
 Kit Jenson.
 
-
-
 ***\~Call 2 – 3:24pm\~***
 
 ***Operator:*** *Police. What is the nature of your emergency?*
@@ -147,8 +143,6 @@ When responders arrived at 3:29pm, they did not find Cora Ashburn. Four days lat
 After sweeping the playground beside Crescent Drive, officers found a threadbare cardigan knotted onto two interlinking bars of a jungle gym. Something that only warranted attention because its remaining strands had mostly unravelled from a gaping hole in the centre. Worst of all, upon closer inspection, it appeared to be blood-stained.
 
 After the evidence was brought into the station, an investigating officer recognised the item of clothing from an old case. It was the cardigan found on the corpse of Mandy Jenson. A cardigan that was discarded once the case had swiftly, and decisively, been closed. Two years earlier.
-
-
 
 ***\~Call 3 – 6:16pm\~***
 
@@ -203,8 +197,6 @@ For the remainder of the call, though I tried to communicate with the man, I hea
 Responders arrived at 6:25pm, finding the phone of Robert Anderson outside The Old Arms. And Officer Jeffrey Ross claimed that he had seen something in the alley beside the establishment. The body of a man being ‘misshapen’ by a figure in the darkness. Misshapen. That was the word he used repeatedly.
 
 Officer Isabelle Donaldson didn’t see what her partner alleged to have seen. It was ‘there one moment and gone the next’, in Officer Ross’ words. And he called the alleged figure at the end of the alley ‘recognisable’. Ross told investigators that the perpetrator’s ‘costume’ reminded him of the one Kit Jenson used to wear for his performances at Greentree Theatre.
-
-
 
 ***\~Call 4 – 9:19pm\~***
 

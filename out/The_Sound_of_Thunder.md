@@ -10,7 +10,7 @@ The more I listened, the more I sensed an unpleasantness in the man's tone. Thou
 
 Cutlery and dishes rattled in the kitchen below as thunder bellowed on the outskirts of town and downstairs I could hear the voices getting louder. The two men were really getting into it. *Or was one pleading,* I wondered. Now that I listened, I did notice a whine in the guest’s voice, a pitiful, high-pitched noise that made me want to wince. I wondered if I should really be listening in, and I reconsidered just how much about this man I really needed to know.
 
-The tenants voice grew only louder, roaring above the storm. I could feel the anger through my mattress and tried my best not to listen. As soon as I was better, I would have a word with the landlord. Even if this man thought he was alone, this was still no way to treat a guest, who could in no way be deserving of such a tirade. I could hear the guest’s sobs and only imagine what an ordeal this was for him. And still the shouts and the pleas persisted, clambering to a fever pitch with the growing madness of the storm outside.
+The tenants voice grew only louder, roaring above the storm. I could feel the anger through my mattress and tried my best not to listen. I could hear the guest’s sobs and only imagine what an ordeal this was for him. And still the shouts and the pleas persisted, clambering to a fever pitch with the growing madness of the storm outside.
 
 Thunder shook the house as a sound like a canon erupted from the night. And as the last of the rumbles faded, I heard a second bang shortly follow.
 
@@ -18,9 +18,9 @@ I was upright in a second. The sound was gone as quickly, and in the aftermath, 
 
 I sat as still as I could, straining my ears to hear for the slightest of noise in the silence downstairs, but the rainfall was too loud for me to pick out anything. As quietly as I could, I lowered my torso to the floor and pressed my ear into the carpet.
 
-I could just hear a creak, as though someone were walking around softly. There was a click, and a muffled ring, and suddenly I could hear the tenant’s voice, oddly now much calmer. He said only a sentence or two to a person on the other end, before there was a beep and the crunch of the phone being returned to its stand. And from then on, it was just silence once more.
+I could just hear a creak, as though someone were walking around softly. There was a click, and a muffled ring, and I could hear the tenant’s voice, oddly now much calmer. He said only a sentence or two to a person on the other end, before there was a beep and the crunch of the phone being returned to its stand. And from then on, it was just silence once more.
 
-I could feel my heart inside my chest. My shirt was damp with sweat. But I knew what I’d heard, and I needed to hear more. I didn’t dare make a move for the phone at my desk and risk making a sound on the rickety floorboards. Rather, I would pay as much attention as I could to what was to follow, so that I could give as detailed an account of it for when I next got the chance to share. I didn't want to act too hastily and risk not giving the police enough to go on.
+I could feel my heart inside my chest. My shirt was damp with sweat. But I knew what I’d heard, and I needed to hear more. I didn’t dare make a move for the phone at my desk and risk making a sound on the rickety floorboards. Rather, I would pay as much attention as I could to what would follow, so that I could give as detailed an account of it for when I next got the chance to share. I didn't want to act too hastily and risk not giving the police enough to go on.
 
 For the next twenty or so minutes, there was little but the odd creak. I became aware of the smell of a cigar and wondered if the man wasn’t waiting as much as I was. At last, I got my answer, as there came a knock at the door. The chair squeaked as the man got up, his footsteps moving towards the front of the house before returning a moment later, a second set of footsteps with him now, as he spoke in a measured tone with someone else in the room.
 
@@ -28,7 +28,7 @@ I could make out the word, “Jesus,” from a voice I didn’t recognize.
 
 A short conversation followed, and though I couldn’t make out a word of it, I strained my ears to the edge of their ability to try to catch even a passing phrase. But the words of the men were always frustratingly out of reach.
 
-I listened for any sounds that might give away what they were doing. And sure enough, as I listened, there came a rustling from down below, as though someone were moving the sheets of their bed. With it came grunts as well, as though whatever they were doing were making the two men strain themselves.
+I listened for any sounds that might give away what they were doing. And sure enough, there came a rustling from down below, as though someone were moving the sheets of their bed. With it came grunts as well, as though whatever they were doing were making the two men strain themselves.
 
 Someone spoke, and a set of footsteps retreated to the front entry. There was the distant thud of a car door, before the man returned to a chorus of crinkling paper.
 
