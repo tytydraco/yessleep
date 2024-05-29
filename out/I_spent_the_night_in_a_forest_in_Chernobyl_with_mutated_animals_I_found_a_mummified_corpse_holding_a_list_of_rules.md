@@ -174,7 +174,7 @@ I noticed how cool and dark it was in here, as if I had walked into a cave. I tu
 
 \*\*\*
 
-Hundreds of imprisoned women both lined both sides of the barn. They were stacked one on top of another like prison cells. Wearing filthy, blood-stained rags, most of them looked silently down on us with dead, haunted eyes. I noticed the majority were in their twenties or thirties, but their eyes looked centuries old.
+Hundreds of imprisoned women lined both sides of the barn. They were stacked one on top of another like prison cells. Wearing filthy, blood-stained rags, most of them looked silently down on us with dead, haunted eyes. I noticed the majority were in their twenties or thirties, but their eyes looked centuries old.
 
 Along the back wall, an enormous pig lined the wall, positioned like Jesus on the cross. It stood as tall as the barn itself. Extra eyes covered its face, a dozen of them positioned all over its cheeks and forehead. From the top of its head, I saw white filaments rising up into the bell tower. Its many blood-red eyes focused on us, as still as death.
 
