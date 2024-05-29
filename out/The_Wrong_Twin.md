@@ -62,4 +62,6 @@ The authorities arrived quickly and took Thomas into custody. It turned out he h
 
 James was weak but alive and with time, he regained his strength. The ordeal left deep scars, but it also brought us closer together. We moved to a new town, far from the memories of that old house and the horrors we’d endured. 
 
+
+
 Ten Years Later, we found ourselves in a hospital room, the sterile scent mingling with the overwhelming joy of new life. I lay exhausted but ecstatic, holding our newborn son in my arms while James stood beside me, his eyes soft with love. We discussed names, tossing around options with laughter and warmth. Then, James looked down at our baby, his expression shifting subtly. “How about Thomas?” he suggested, his smile stretching into something unworldly, something that sent a chill down my spine. The room seemed to darken, and the echoes of the past crept back, reminding me that some nightmares never truly end.
