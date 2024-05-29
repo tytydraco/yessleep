@@ -288,13 +288,13 @@ Sam, or the boy underneath him, had shown me who I really was, a lump of flesh s
 
 Sam had the same fate. 
 
-He showed me where he came from, a factory that had turned the entire town's teen populace into the exact same four faces. 
+He showed me where he came from, a factory that had turned the town's teen populace into the exact same four faces. 
 
 Brianna Timberman’s exes. 
 
 Ben, Alex, Esme, and Sam. 
 
-First, he was an Alex, then a Ben, and *then* an extra, who tried to warm me, before being abruptly converted into Sam Thwaites, a brand new love interest, and Brianna’s childhood friend. 
+First, he was an Alex, then a Ben, and *then* an extra, who tried to warn me, before being abruptly converted into Sam Thwaites, a brand new love interest, and Brianna’s childhood friend. 
 
 Sam told me Brianna’s exes deaths were a joke, her love life controlled by the town through a popularity poll. 
 
@@ -414,7 +414,7 @@ I was in the break room trying to cool myself off, when Jasper stepped in front 
 
 “Vegan milk.” He said. Despite acting cool and collected, maintaining his asshole smirk, I glimpsed a noticeable red blush spreading across his cheeks. 
 
-His lips found my ear. “Can you… lhelp me find it?”
+His lips found my ear. “Can you… help me find it?”
 
 *Autopilot*. 
 
@@ -484,7 +484,7 @@ I made sure to let my mouth linger on his, aware of every inch of the two of us 
 
 I pulled away, slowly, playing with the collar of his shirt. But at the same time, I was looking for every possible escape route. Sam was right. To my left, I could see a subtle red light dancing across Jasper’s jaw. 
 
-And to my left, another skimming across my neck. 
+And to my right, another skimming across my neck. 
 
 So, I grabbed the boy, shoving him against the shelf, switching our positions. 
 
