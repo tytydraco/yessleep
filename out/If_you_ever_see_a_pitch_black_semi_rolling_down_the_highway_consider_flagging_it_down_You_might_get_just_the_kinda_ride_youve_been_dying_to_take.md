@@ -37,13 +37,15 @@ The door opened.
 
 The woman stepped out.
 
-Blood was running down her neck. 
+Blood running down her neck. 
 
 I ran up to her, “Miss, hey, Miss, are you okay?! You’re bleeding. Should I call an ambulance?” I was frantic, my eyes darting between the blood on her neck, trying to ascertain the source and the thumping truck.
 
 “Oh, I’m fine. Just swell. Fucking grand.” Her voice was dreamy. Her eyes were glazed over as though she was in a daze.
 
 I grabbed her arm, “I really don’t think you’re–”
+
+My voice was quivering. Shaking from the pure terror of the situation.
 
 She suddenly became more cogent, grasping my hand, “You don’t wanna get fucking involve in this, kid.”
 
@@ -79,6 +81,8 @@ I closed my eyes. I sank into the darkness. The headlights went out as the cab r
 
 And I felt *good*.  So good. 
 
-Now, I don’t feel anything at all. Not scared or sad or hurt or lost. I’m found. Just like you could be found. So if you ever see a pitch black semi rolling along the highway, think about flagging it down.
+Now, I don’t feel anything at all. Not scared or sad or hurt or lost. I’m found. And now the night stretches on forever. There's a thirst in me that's new. It made me sick at first, but I'm growing accustomed to it. But it feels so...*nice* to be found. Wouldn't you like that? To be found? 
+
+So if you ever see a pitch black semi rolling along the highway, think about flagging it down.
 
 And then, like me, you’ll never have to die again.
