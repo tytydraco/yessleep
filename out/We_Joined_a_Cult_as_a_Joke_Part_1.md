@@ -1,3 +1,9 @@
+\[[Part 1](https://www.reddit.com/r/nosleep/comments/1cxgb2u/we_joined_a_cult_as_a_joke_part_1/)\] <- You are here.
+
+\[[Part 2](https://www.reddit.com/r/nosleep/comments/1cywowj/we_joined_a_cult_as_a_joke_part_2/)\]
+
+\[[Part 3](https://www.reddit.com/r/nosleep/comments/1d3j1sm/we_joined_a_cult_as_a_joke_part_3/)\]
+
 I sat in our dark bedroom, the computer screen glaring with a harsh, white light. A banner flashed before my eyes: “Seek wisdom by understanding yourself.” 
 
 “Chloe, check this out,” I called over my shoulder to my girlfriend playing The Sims on her laptop. 
@@ -95,5 +101,3 @@ After a moment of silence I stormed off again, back towards home. 
 I picked up a glass bottle from the sidewalk and chucked it, smashing against her shop window, forcing her to close the door and disappear into the shadows. I’m not particularly proud of how I behaved in this moment, but unless you’ve had someone break into your home and draw shit on the walls, hold on to your judgment. 
 
 The next few days passed without so much as a peep from them. Chloe and I began to relax, convincing ourselves that the cult had been scared off. Life seemed to be returning to normal, and the unsettling incident became just another story. 
-
-\[[Part 2](https://www.reddit.com/r/nosleep/comments/1cywowj/we_joined_a_cult_as_a_joke_part_2/)\]
