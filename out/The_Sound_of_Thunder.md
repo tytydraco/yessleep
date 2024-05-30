@@ -10,11 +10,11 @@ The more I listened, the more I sensed an unpleasantness in the man's tone. Thou
 
 Cutlery and dishes rattled in the kitchen below as thunder bellowed on the outskirts of town and downstairs I could hear the voices getting louder. The two men were really getting into it. *Or was one pleading,* I wondered. Now that I listened, I did notice a whine in the guest’s voice, a pitiful, high-pitched noise that made me want to wince. I wondered if I should really be listening in, and I reconsidered just how much about this man I really needed to know.
 
-The tenants voice grew only louder, roaring above the storm. I could feel the anger through my mattress and tried my best not to listen. As soon as I was better, I would have a word with the landlord. Even if he a thought he was alone, this was still no way to treat a guest, who could in no way be deserving of such a tirade. I could hear the guest’s sobs and only imagine what an ordeal this was for him. And still the shouts and the pleas persisted, clambering to a fever pitch with the growing madness of the storm outside.
+The tenants voice grew only louder, roaring above the storm. I could feel the anger through my mattress and tried my best not to listen. As soon as I was better, I would have a word with the landlord. Even if he thought he was alone, this was still no way to treat a guest, who could in no way be deserving of such a tirade. I could hear the guest’s sobs and only imagine what an ordeal this was for him. And still the shouts and the pleas persisted, clambering to a fever pitch with the growing madness of the storm outside.
 
 Thunder shook the house as a sound like a canon erupted from the night. And as the last of the rumbles faded, I heard a second bang shortly follow.
 
-I was upright in a second. The sound was gone as quickly, and in the aftermath, the house had become eerily quiet. The argument downstairs had suddenly resolved itself, as if in the time it took for the house to settle.
+I was upright in a second. The sound was gone as quickly, and in the aftermath, the house had become eerily quiet. The argument downstairs had suddenly resolved itself.
 
 I sat as still as I could, straining my ears to hear for the slightest of noise in the silence downstairs, but the rainfall was too loud for me to pick out anything. As quietly as I could, I lowered my torso to the floor and pressed my ear into the carpet.
 
