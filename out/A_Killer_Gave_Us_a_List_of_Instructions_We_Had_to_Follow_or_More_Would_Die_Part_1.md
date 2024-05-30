@@ -264,7 +264,7 @@ Audrey and I begin documenting everything with meticulous detail, our cameras cl
 
 As we inspect the body, it becomes disturbingly clear that there are signs of cannibalism. Bite marks, unmistakably human, mar the girl’s limbs, the flesh torn away in some places to reveal bone underneath.
 
-Around the child’s form, the ground is littered with what appear to be votive items—candles still flickering weakly, coins glinting dully in the limited light, and oddly, a single cell phone lying a few feet from her body. It’s an older model Nokia, probably a burner.
+Around the child’s form, the ground is littered with what appear to be votive items—candles still flickering weakly, a set of rosary beads, and oddly, a single cell phone lying a few feet from her body. It’s an older model Nokia, probably a burner.
 
 I pull on a pair of latex gloves with a snap and carefully pick up the device, ensuring not to smudge any prints that might be on it.
 

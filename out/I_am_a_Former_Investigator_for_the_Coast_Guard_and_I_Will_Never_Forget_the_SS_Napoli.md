@@ -229,7 +229,7 @@ The sudden reaction caused Eric and I to flinch as John began pacing around the 
   
 “John, are you ok?” Eric asked as he got up.  
   
-“It’s face!” John screamed, “It’s fucking face”.  
+“Its face!” John screamed, “Its fucking face”.  
   
 “I know, I don’t think I’ll ever be able to unsee that skinless freak” I said.  
 “What the fuck are you talking about?” John said as he stopped pacing and stared at me.  

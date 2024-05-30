@@ -1,4 +1,4 @@
-\[[Part 1](https://www.reddit.com/r/nosleep/comments/1cxgb2u/we_joined_a_cult_as_a_joke_part_1/)\] 
+\[[Part 1](https://www.reddit.com/r/nosleep/comments/1cxgb2u/we_joined_a_cult_as_a_joke_part_1/)\]
 
 \[[Part 2](https://www.reddit.com/r/nosleep/comments/1cywowj/we_joined_a_cult_as_a_joke_part_2/)\]
 
@@ -52,7 +52,7 @@ We abruptly stopped again, before she wheeled me backwards into a small room. �
 
 I felt drool dribble down my chin as I asked who she was. “Kelly, from GSNN. I don’t have time to explain right now, I just need to know if you can walk.”  
 
-I tried to say no, but only managed to blow a spit bubble out of my foaming mouth. “Shit, okay.” she replied as she finished dressing me. “Put your arm over me” she said as he hoisted me out of my chair.  
+I tried to say no, but only managed to blow a spit bubble out of my foaming mouth. “Shit, okay.” she replied as she finished dressing me. “Put your arm over me” she said as she hoisted me out of my chair.  
 
 We reentered the hallway, thankfully empty, the silence amplifying my ragged breaths. Each step was a monumental effort, my focus narrowing to the simple act of placing one foot in front of the other as Kelly supported my weight. 
 
