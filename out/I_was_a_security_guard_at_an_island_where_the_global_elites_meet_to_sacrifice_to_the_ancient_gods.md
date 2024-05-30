@@ -18,7 +18,7 @@ I was working piecemeal jobs like this one at the time, but none of them were pa
 
 That was how I found myself on a private jet, flying out to an island in the middle of the vast blue ocean. I was never told the coordinates of the island or saw it on a map. It was all kept very secret. 
 
-A few hours later, we landed on a private airstrip. I looked out the window of the jet, seeing the tropical waters of the Pacific Ocean stretching off to the horizon in every direction. Below me stood an island with tropical palm trees and sandy white beaches. An enormous Victorian mansion loomed directly in the center of it all. The mansion was painted black and looked like something straight out of a horror movie. It had no windows, and the turrets spiraled into blade-like points.
+A few hours later, we landed on a private airstrip. I looked out the window of the jet, seeing the tropical waters of the Pacific Ocean stretching off to the horizon in every direction. Below me stood an island with palm trees and sandy white beaches. An enormous Victorian mansion loomed directly in the center of it all. The mansion was painted black and looked like something straight out of a horror movie. It had no windows, and the turrets spiraled into blade-like points.
 
 That was my first inkling that something might not be quite right about this trip.
 
