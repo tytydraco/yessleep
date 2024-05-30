@@ -57,3 +57,5 @@ My energy finally started to fail me, and I decided at the very least I should b
 ^(To be entirely honest, I am quite anxious to read what Trinity’s fourth and final “stage” of her narrative contains, but I am a woman of my word, and, in spite of my better judgment, will respect her wishes. I shall read and post the final document in 24 hours.)
 
 ^(- Helen Theodora Waite)
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/1d2og1r/i_think_my_friend_is_in_danger_stage_4/)

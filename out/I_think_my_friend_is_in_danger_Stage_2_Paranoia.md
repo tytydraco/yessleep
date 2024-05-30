@@ -69,3 +69,5 @@ And there was, indeed, *something* there, in the dark. A dark figure, just barel
 ^(I hope that the subsequent “stages” shine some light as to what exactly is going on.)
 
 ^(- Helen Theodora Waite)
+
+[Part 3](https://www.reddit.com/r/nosleep/comments/1d1tjj8/i_think_my_friend_is_in_danger_stage_3_imitation/)

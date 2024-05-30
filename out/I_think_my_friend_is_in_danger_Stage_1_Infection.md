@@ -101,3 +101,6 @@ In the foggy, rapidly dissipating remnants of my consciousness, I became dimly a
 ^(In accordance with Trinity’s wishes, I shall post the second “stage” of her story tomorrow. I have similarly obeyed her instructions regarding my own reading of the document, and have not yet opened it. However, I have read the title: “Paranoia.” I sincerely hope that Trinity is alright.)
 
 ^(- Helen Theodora Waite)
+
+  
+[Part 2](https://www.reddit.com/r/nosleep/comments/1d12z3m/i_think_my_friend_is_in_danger_stage_2_paranoia/)
