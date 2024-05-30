@@ -311,7 +311,7 @@ Eric and I then boarded the ship and sped off into the night towards where Wende
   
 As we approached the side of the boat, I saw John standing on the bow naked and staring at the sky while the orb above him was singing just as it had in the video.   
   
-“John… John… John…  
+“John… John… John…”  
   
 “John what in the fuck are you doing?” Eric yelled.  
   

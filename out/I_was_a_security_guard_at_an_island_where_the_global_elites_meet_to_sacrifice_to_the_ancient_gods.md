@@ -232,6 +232,6 @@ Frantically, I sprinted around the other side, seeing a Black Hawk helicopter ge
 
 The Savior stared at me with his strange green eyes, the color of swamps where monstrous things swam under the surface.
 
-“Some people just need to learn the hard way,” he said as the helicopter took off. “There is no great power without great responsibility, after all. Those of us who seek the ancient ones know it comes with a cost.” I just stared at the window, staring down at the countless mutilated, broken bodies that littered the beach.
+“Some people just need to learn the hard way,” he said. The helicopter took off into a dark night covered with bright, twinkling stars. “There is no great power without great responsibility, after all. Those of us who seek the ancient ones know it comes with a cost.” I just stared at the window, staring down at the countless mutilated, broken bodies that littered the beach.
 
 Below us, the face of a bull stared up with eyes of fiery cyclones. The broken, still body of Leviathan lay at his feet. As we made it over the great waters of the Pacific Ocean, the bull-god raised a hand and waved. At that moment, I thought I could almost see a hurricane of translucent souls circling around him. 
