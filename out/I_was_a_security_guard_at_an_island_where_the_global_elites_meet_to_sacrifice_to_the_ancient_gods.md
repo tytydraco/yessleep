@@ -134,7 +134,7 @@ I had seen bloodshed and war before, but this was different. The Island itself s
 
 “It’s Leviathan,” Mario continued grimly, “the beast from the waters. The smell of blood is drawing it from the depths of the ocean. We picked up the first blips on radar a few minutes ago. When it gets here, it won’t stop until everything is rubble. It will kill every single person on the Island.”
 
-“All the security personnel must report to the south beach immediately,” a cool robotic voice cried out over hidden loudspeakers all over the Island. The screaming from the auditorium had quieted behind me. I was afraid to look inside.
+“All security personnel must report to the south beach immediately,” a cool robotic voice cried out over hidden loudspeakers all over the Island. The screaming from the auditorium had quieted behind me. I was afraid to look inside.
 
 “There it is,” Kolmek said, his head jerking up as the emergency alert read. He motioned for me to follow. “It’s time to fight.”
 
@@ -192,7 +192,7 @@ A trail of twisted, broken bodies led from the mansion to the surrounding trails
 
 “He’s around somewhere,” Kolmek answered. We started circling the mansion, looking for any signs of life. Kolmek went in the lead. As he turned the corner, an enormous black hand with sharp claws of fingers flitted forward in a blur, wrapping itself around his chest. Kolmek gave a strangled cry as it closed around him. I heard his bones crush as a spout of blood and gore flew from his mouth and nose, as if he were a toothpaste tube being squeezed.
 
-I backpedaled away as Moloch threw the twitching corpse aside like a discarded toy. It smashed into the wall of the mansion, exploding wetly. A human-shaped bloody stain slowly slid down the wall above Kolmek’s mangled body.
+I backpedaled away as Moloch threw the twitching corpse aside like a discarded toy. It smashed into the wall of the mansion, exploding wetly. A human-shaped, bloody stain languidly dripped down the wall above Kolmek’s mangled body.
 
 Moloch slowly turned his head towards me, the fiery eyes flashing with hunger. He gnashed his fangs together, taking a step forward with a leg the size and shape of a tree trunk. With every step he took, I felt the ground tremble.
 
@@ -232,6 +232,6 @@ Frantically, I sprinted around the other side, seeing a Black Hawk helicopter ge
 
 The Savior stared at me with his strange green eyes, the color of swamps where monstrous things swam under the surface.
 
-“Some people just need to learn the hard way,” he said. The helicopter took off into a dark night covered with bright, twinkling stars. “There is no great power without great responsibility, after all. Those of us who seek the ancient ones know it comes with a cost.” I just stared at the window, staring down at the countless mutilated, broken bodies that littered the beach.
+“Some people just need to learn the hard way,” he said. The helicopter took off into a dark night covered with bright, twinkling stars. “There is no great power without great responsibility, after all. Those of us who seek the ancient ones know it comes with a cost.” I just stared out the window, gazing down at the countless mutilated, broken bodies that littered the beach.
 
-Below us, the face of a bull stared up with eyes of fiery cyclones. The broken, still body of Leviathan lay at his feet. As we made it over the great waters of the Pacific Ocean, the bull-god raised a hand and waved. At that moment, I thought I could almost see a hurricane of translucent souls circling around him. 
+Below us, the face of a bull stared up with eyes of fiery cyclones. The broken, still body of Leviathan lay at his feet. As we made it over the great waters of the Pacific Ocean, the bull-god raised a hand and waved. At that moment, I thought I could almost see a hurricane of translucent souls circling around him, spiraling up into the sky. 
