@@ -1,0 +1,35 @@
+I have been living alone for the last 2 years. Fresh out of college I got a very stable and very isolating job in work-from-home Data Entry for a large medical company out west. I have always been a keep-to-myself kind of person, and I never really had any friends that didn't last through the next grade or semester. I just never found myself as someone who got much out of long-term company and interaction. I had plenty of so-called friends drop me when they moved to different states and cut all contact. These experiences of having someone and then losing them have turned me off from friendships and relationships altogether. I know it's not healthy for me, but at the end of the day, I always find comfort in knowing that I always have myself to keep me company.  I found a great third-floor apartment near where I went to school, and being very familiar with the area after four years moved myself in from my dorm with no trouble. Remote work from home in my field has many benefits. Usually just a super simple population of data on spreadsheets or systems of medical data and records. No meetings or calls daily, nor reason to ever be on a mic or camera. Due to its sensitivity, it pays very well and I have made myself a good and simple, albeit quiet life post-grad, everything my loner self could have dreamed of.
+
+One thing you start to notice when you live alone is how few times a day or even a week you actually talk or even say anything. I had no coworkers, roommates, or even pets to talk to, and sometimes would find myself going entire days without speaking a word. I didn't tend to go out and would spend my nights gaming or reading, or in a silent workout at the gym. It is a strangely peaceful existence not having to talk or hold any conversations. When I would talk at a restaurant, to the doctor, or my mom on one of her monthly calls, I would often have an odd experience hearing my voice, as if it was the voice of another being projected through me. Usually, just an odd feeling to shake off, like how it feels to eat food you have not eaten for a while, a sensory adjustment to the now-changed world around me.
+
+This had never been something I had dwelt on in the past, as usually, I would go a day or two before eventually having to talk, never really thinking of it as a disturbing or unusual experience. That was until last night.
+
+I never typically ordered in food but I had done so today after a busy day in systems and spreadsheets I caved and ordered some pizza from a nearby restaurant online through a delivery app and had it delivered to my door. I ALWAYS selected the "no contact" or "leave at door" option. Chalk it up to my growing antisocial personality, but if I could minimize any human interaction and maintain my almost monastic vow of silence it was a win for me. As I pushed back onto my living room couch I waited for my food which was to arrive in a few minutes. This peace was shattered by a firm but gentle knock on my door.
+
+Odd I thought to myself as I checked the leave-at-door option but mistakes happen, I was not pressed over it at all, especially as someone who had driven for a similar delivery app during the pandemic. As I approached the door, I was greeted by a perfectly normal-looking, ordinary taller brown brown-haired man who smiled and handed the box to me. He said the following in a carefree and airy tone of voice.
+
+"Have a good rest of your night and enjoy sir. Looking forward to hearing from you soon!"
+
+I crinkled my nose at the last part but took the box and nodded to him curtly saying thank you while shutting the door. I noticed he stood outside my door for about 5 seconds before walking away and whistling a tune to himself. At the time I assumed he just expected a good review which I gave him on the app, but something about that "hearing from you soon" didn't quite sit right with me. I am beginning to realize what he might have meant.
+
+The rest of the evening went off without a note, I devoured the pizza and went to throw the box away. It was at this point I noticed the top of the pizza box had been cut into a few times by what I assumed was the knife or slicer at the restaurant but I looked....off. I couldn't quite put my finger on it but it looked less like random cuts and more like deliberate attempts to write. I could make out no recognizable words and symbols so I took the benefit of the doubt and threw the box out. I took a shower and went to bed with nothing amiss. That all changed this morning.
+
+I was woken up that next day by a phone call. Which would've been a cause for alarm but it was from my mom, one of her usual monthly check-in calls. I picked up the phone and spoke into it.
+
+"Hey Mom"
+
+Or at least I attempted to speak that into it, instead, all that came out of my throat was a dusty and almost wind-like shrill into the receiver. I attempted to clear my throat, chalking it up to just waking up, and tried again.
+
+Nothing.
+
+Every time I tried to speak, the only sound that could be heard was a shrill and guttural rushing noise that sounded and felt like a dagger to my lungs. Like as if they had been penetrated with a knife and only the rushing sound of air out of them could be heard as I attempted to speak. My mom said my name several times and eventually hung up as I frantically tried to speak. I ended up texting her and lying saying I was doing well and was having tech issues but would call her later. I tried looking at my mouth and throat in a mirror and saw nothing amiss. Tried drinking water and making tea with honey but there was nothing I could do to get my voice back. Eating and swallowing were perfectly normal but I could not speak no matter how hard I tried.
+
+A bit panicked, I found a doctor who was open on the weekend and grabbed my keys to hop into my car to race there as fast as I could. I hoped it wouldn't be any trouble that I had not called before (obviously I couldn't with my lack of voice). As I opened the door to run to my car, I was stopped dead in my tracks faced with the same man who had delivered my food to me yesterday. As I opened my mouth to shout and surprise I heard a voice.
+
+"Told you I would be hearing from you soon".
+
+It was not the shrill and nasely voice I had heard yesterday when the food was dropped off. No. It was my voice, crawling its way from his lips, through the wry smile he wore on his face. He gave me a wink and walked out towards the stairs leading down from my apartment. Leaving me standing in the front door in horror of what I had seen, and heard.
+
+It was at this point that I realized, I had not lost my voice. It had been taken from me. Somehow this thing I took for granted had been stolen from me. I don't think any doctors are going to be able to help me. I do not know what I can do.
+
+Someone else has my voice.
