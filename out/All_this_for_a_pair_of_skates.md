@@ -222,7 +222,7 @@ This only angered me more. I sighed in frustration. 
 
 “Well, maybe the policeman’s right. Maybe this is the end of it. The rat was his way of saying “fuck you”, and now he’s going to leave us alone. Hold out on the cameras for now, babe. We’ll see what happens.” 
 
-But of course, it didn't end there. As if by magic, my phone alerted me of a new message. 
+But of course, it didn't end there. The next day, my phone alerted me of a new message. 
 
 *Ken D: you told on me* 
 
