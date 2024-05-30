@@ -52,7 +52,7 @@ The woman told me the machine was a device that helped suppress the weight of th
 
 The worker opened the door, and we went down the hall and into a room through a pair of yellow and metallic doors. There was a chair and a metal table off to the right. There, the device sat.
 
- I also took notice of a brown door connected to the room. It didn’t matter then. All I wanted was the damn weight to go away. The woman asked for me to remove my shirt, and she sat me down in the chair and begin to set up the device She hooked up the belt from the machine around my waist. 
+ I also took notice of a brown door connected to the room. It didn’t matter then. All I wanted was the damn weight to go away. The woman asked for me to remove my shirt, and she sat me down in the chair and begin to set up the device. She hooked up the belt from the machine around my waist. 
 
 I closed my eyes and began to cry a little. This had to work. Earlier, I had thought about stopping my vehicle, and go back home and forget the entire program. For all I knew, they could have just been a group of scammers that wanted to harvest my organs. 
 
