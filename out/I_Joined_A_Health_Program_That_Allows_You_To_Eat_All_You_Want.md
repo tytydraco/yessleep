@@ -74,7 +74,7 @@ The first thing I thought would happen was that the patients would knock the foo
 
 There had been that vacuum sound, the one that I heard beyond the walls from earlier. The machines had turned on, and the suction of the tubes began. Groans echoed throughout the room. I heard someone to the right throw their head forward and vomit. 
 
-Ilooked down at my body. 
+I looked down at my body. 
 
 Like everyone else, incisions had been made just above my hips where those tubes had been placed. These people, the owners of those dust covered vehicles… they didn’t seem like they wanted to leave. Had they been here for months?  Stuffing their faces, having these meals and fat pumped out of their body after it hit their stomachs?  
 

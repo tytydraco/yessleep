@@ -224,7 +224,7 @@ Audrey kneels beside me, her flashlight sweeping over the scene. “Look at how 
 
 I look again, squinting through the fog and the dim light of our flashlights, and it clicks. She's right. The arrangement of the items—a seemingly random assortment of personal belongings—is a deliberate depiction of the constellation. My mind races back to Salazar's frenzied babbling about the "trail of the fallen stars to the sleeping child." It couldn't be a coincidence.
 
-"I remember learning about the Big Dipper in the Girl Scouts," Audrey murmur. "We used it to find Polaris—the North Star. It was like a game back then, using the stars to find our way back to camp…" My voice trails off.
+"I remember learning about the Big Dipper in the Girl Scouts," Audrey murmur. "We used it to find Polaris—the North Star. It was like a game back then, using the stars to find our way back to camp…" Her voice trails off.
 
 With a renewed sense of purpose, she starts tracing the items making up the makeshift constellation laid out in the marshy ground. “The fork and dog tags are pointer stars.”
 
