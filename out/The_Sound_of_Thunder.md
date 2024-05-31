@@ -6,7 +6,7 @@ I coughed violently. The force tore at my throat. I took a lozenge and a sip of 
 
 I had lived at Belleview Place a little over a year now and knew everyone in the house but the man downstairs. He kept mostly to himself, coming and going at all hours in the night. I didn’t know his name or what he did. The few times I had seen him, he hadn’t smiled to me or said a word, and from what I’d heard from the others, he had been much the same with them. A part of me didn’t mind listening in to this conversation, if only to get a glimpse into this life that I knew so little about.
 
-The more I listened, the more I sensed an unpleasantness in the man's tone. Though the sounds were just muffles through the floorboards, I could still hear the deliberate way in which he spoke, as though it took him great effort to contain himself. His guest took longer and longer in responding with anything at all, the silence between them stretching into the uncomfortable.
+The more I listened, the more I sensed an unpleasantness in the man's tone. Though the sounds were just muffles through the floorboards, I could still hear the deliberate way in which he spoke, as though it took him great effort to speak at a normal volume. His guest took longer and longer in responding with anything at all, the silence between them stretching into the uncomfortable.
 
 Cutlery and dishes rattled in the kitchen below as thunder bellowed on the outskirts of town and downstairs, I could hear the voices getting louder. The two men were really getting into it now. *Or was one pleading?* I wondered. Now that I listened, I did notice a whine in the guest’s voice; a pitiful, high-pitched noise that made me want to wince. I wondered if I should really be listening in, and I reconsidered just how much about the man I really needed to know.
 
@@ -54,7 +54,7 @@ I tried not to make a sound as my breaths came out in ragged whimpers. The wind 
 
 I could feel the handle try to turn.
 
-There came a flash of light, and another crash of thunder shook the house, and for a brief moment, I could see my room in all its detail, as normal as it had ever looked before, before it faded as quickly into the night.
+There came a flash of light, and another crash of thunder shook the house, and for a brief moment, I could see my room in all its detail, as normal as it had ever looked before, before it faded as quickly into the dark.
 
 “I asked if you’re in there, you little worm!” the man’s voice screamed inside my head.
 

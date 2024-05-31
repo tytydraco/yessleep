@@ -220,7 +220,7 @@ The other dragon heads bit Moloch in a unified attack. They ripped deep holes in
 
 I felt like the survivor of an Apocalypse. I couldn’t find a single other living person on the Island. Hundreds of crushed, broken and decapitated bodies surrounded me. Over the cacophony of fighting, I heard a new noise: the whirring of helicopter blades nearby. It was coming from the other side of the mansion.
 
-Frantically, I sprinted around the other side, seeing a Black Hawk helicopter getting ready to leave. A man in black robes sat at the pilot’s seat, his gray eyes gleaming and a wide smile plastered across his face. I smashed my fist into the door over and over until he opened it.
+Frantically, I sprinted around the other side, seeing a Black Hawk helicopter getting ready to leave. A man in black robes sat at the pilot’s seat, his green eyes gleaming and a wide smile plastered across his face. I smashed my fist into the door over and over until he opened it.
 
 “Holy shit, you’re still alive?” he asked. I hadn’t seen this man before. He had a face like a Calvin Klein model, all sharp angles and high cheekbones, perfectly proportioned in every way. But his scalp looked melted and scarred, as if someone had thrown gasoline on his hair and ignited it. His ears were stunted, twisted growths of scar tissue. His hands, too, were covered in deep, folding burn scars.
 
