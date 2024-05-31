@@ -4,7 +4,7 @@ There is this Abandoned Warehouse in the middle of my city. Not in the middle mi
 
 The reason nobody has done anything about it, is because the warehouse used to be own by a petroleum company, they used it to store oil, before the city expanded. Now there's a flyover running over it and the property is owned by the city and the railway comission because of the railway line that runs next to it.
 
-Anyway, it's just a building that used to be part of a massive complex of warehouses, silos and a factory. Now only this one building remains. A friend and I loke exploring abandoned places.
+Anyway, it's just a building that used to be part of a massive complex of warehouses, silos and a factory. Now only this one building remains. A friend and I like exploring abandoned places.
 
 Mainly for the experience and to imagine what it would have been like when the places were active and functioning. So we were looking for places to explore and I had known about this location. It is quite close to where we live.
 
