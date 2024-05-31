@@ -315,7 +315,7 @@ As we approached the side of the boat, I saw John standing on the bow naked and 
   
 “John what in the fuck are you doing?” Eric yelled.  
   
-John didn’t not respond.   
+John didn’t respond.   
   
 “John if you don’t answer me I am going to board this boat and haul you off myself” Eric yelled as he prepared to disembark.   
   

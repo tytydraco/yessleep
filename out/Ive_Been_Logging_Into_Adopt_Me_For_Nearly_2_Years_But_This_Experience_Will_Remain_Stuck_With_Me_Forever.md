@@ -1,6 +1,6 @@
 I've been logging into "Adopt Me!" for over 2 years. I'll one day get my 1,000th day streak, a milestone I doubt anyone reached, but after what I went through, I don't think I'd play "Adopt Me!" anytime soon.
 
-On the day where I should've gotten by 1,000th day streak, I knew something was off as the game loaded. Instead of having the familiar and cheery intro screen, I was already in the game (it just popped up). The usual iconic music was replaced by a stinging silence. I once prided as a very rich player, but I now had no bucks and only one Reborn-age Neon dog named Alex, and a Sunshine-age Neon cat named Lilly.
+On the day where I should've gotten by 1,000th day streak, I knew something was off as the game loaded. Instead of having the familiar and cheery intro screen, I was already in the game (it just popped up). The usual iconic music was replaced by a stinging silence. I once prided as a very rich player, but I now had no bucks and only one Flare-age Neon dog named Alex, and a Luminous-age Neon cat named Lilly.
 
 It had been a long time ago since I played "Adopt Me!" for the first time, but I couldn't bring up anytime where I had a Neon dog which I named Alex, nor a Neon cat named Lilly.
 
