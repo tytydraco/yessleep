@@ -67,7 +67,7 @@ But I figured I wouldn't need it as the cage seemed to be burning the thing itse
 
 There was no time to celebrate, though. Almost immediately, a hole appeared in place of the being. The place around began crumbling and a wall of very toxic materials of what seemed to contain the virus began tracing the hind wall. I pressed 'E' as fast as I could to try to push open the heavy door. But it didn't work and I clicked the left mouse button. That triggered a slice which bust the door down into two molten pieces.
 
-As we ran out of the main chamber, we saw more infected monsters that began charging at us immediately followed by a jump scare. But I was so focused on killing the monsters I merely blinked. 
+As we ran out of the main chamber, we saw more infected monsters that began charging at us immediately followed by a jump scare. But I was so focused on killing the monsters I merely blinked.
 
 I swiped my camera down and slashed, jumping into the air with an incendiary jump. Then, an idea immediately sparked into my mind. I scrolled my camera backwards and looking down about 45 degrees. As I swiped the sword repeatedly about 2 times per second, the monsters began falling like bowling pins.
 
@@ -83,7 +83,7 @@ Another voice bubble popped up.
 
 My camera view began developing a red, blurry, vignette. I feared what would happen if my camera became completely opaque. I thought I heard the ceiling crack as I slashed it, so I panned up as hard as I could, and began clicking faster than I ever had.
 
-I thought my mouse was gonna shatter, but all that faded away as the ceiling opened and the camera refreshed. Back out of the ground, the ground patched back up, almost as if nothing was there. 
+I thought my mouse was gonna shatter, but all that faded away as the ceiling opened and the camera refreshed. Back out of the ground, the ground patched back up, almost as if nothing was there.
 
 The sky had been clear again, and one last message appeared.
 
@@ -91,4 +91,4 @@ The sky had been clear again, and one last message appeared.
 
 This would be an experience I would never forget or unsee. As I finish this post, I want to remind you that after what I've been through, I'll likely never see "Adopt Me!" the same way ever again.
 
-After all, who knows if the virus is really dead? Is it still buried underground? All I can hope is that another disaster doesn't happen which triggers the virus to be released again, and I REALLY hope this cruel hacker spreads the virus to other games.
+After all, who knows if the virus is really dead? Is it still buried underground? All I can hope is that another disaster doesn't happen which triggers the virus to be released again, and I REALLY hope this cruel hacker doesn't spread the virus to other games.
