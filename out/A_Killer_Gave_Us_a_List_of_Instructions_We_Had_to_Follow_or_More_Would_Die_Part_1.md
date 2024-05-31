@@ -182,7 +182,7 @@ I pantomime with the knife, tracing a line down his neck. "They cut your throat 
 
 Salazar clutches at his shirt, his fingers trembling. "He said: ‘Dulces, dulces,’" he mutters repeatedly, the single word spilling out between labored breaths.
 
-"Dulces?" I echo. "Like candy? What does that suppose to mean?"
+"Dulces?" I echo. "Like candy? What's that supposed to mean?"
 
 He doesn't seem to hear her, or chooses not to respond. His gaze is distant, unfocused, as if he's seeing something beyond the grimy walls of the trailer.
 
