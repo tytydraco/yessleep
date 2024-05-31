@@ -4,7 +4,7 @@ One day,I went out to the balcony to sweep it,as I usually do.I finished my work
 
 I served in the Armed Forces.Therefore,I wasn't really afraid of blood as I had seen my fair share of blood and death.I picked up the statue to inspect it.It had a gash on its right wrist.It was profusely bleeding.
 
-Now,this freaked me out.I never expected an supernatural event to happen to me.I was always skeptical of my family's classic ghost stories.Yet,my Yeats of physical and phycological training kicked in.
+Now,this freaked me out.I never expected an supernatural event to happen to me.I was always skeptical of my family's classic ghost stories.Yet,my Yeats of physical and psychological training kicked in.
 
 The statue was about 12 inches tall,amd featured an woman wearing an robe amd holding an paper fan,staring at a noose in front of her.
 
