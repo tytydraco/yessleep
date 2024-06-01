@@ -1,0 +1,26 @@
+
+My grandmother or abuela is the sweetest lady. She owned the convenience store I helped out at and would always tell me traditional Mexican stories. I never would have thought anything bad about her until the accident. I was about seventeen and had just received my drivers license and somehow, drove my car into the barrier of the highway. My parents would have been furious at me if I hadn’t been injured. It wasn’t anywhere near life-threatening, just a concussion that made me a bit lethargic and nauseous. After I was discharged from the hospital, I had to take this prescription medication to help deal with the pain. One side-effect was it could cause hallucinations, but these were very unlikely to happen so I instantly agreed to take them, thinking that I would much rather a couple of hallucinations than the extreme pain I was feeling.
+
+My first shift back at the convenience store with my abuela, I had my first hallucination. It wasn’t the ‘stereotypical’ hallucination, more as if someone had turned up the volume of the sounds around me. Annoying, but not scary.
+
+My second hallucination a couple weeks later at the convenience store was less so. My abuela was in the back restocking the fridge of the store. She was always stronger than your average 78 year old, surprisingly stronger than me. That was when it happened, the second hallucination. But this was different. Instead, I was in this hallway. It looked like the hallway to the stock room. I stumbled around, confused at the surroundings. “Abuela! Where are you? I’m having another one,” I tried to call out, but it was like my voice went hoarse, unable to speak. I tried to speak again but this time I couldn’t speak at all. I continued walking down the hallway, the tile was darker and covered in dust, like it had been here for much longer than 40 years. “Abuela…?” I managed to call out. I noticed a corner and slowly turned, making sure to not run into something that was actually there. My heart sunk. The same hallway. The same paintings, but slightly distorted. Colours were less saturated, faces were less recognisable. This continued on for around seven more hallways, becoming more and more distorted as I continued on. Every corner I reached, I called out for my abuela, tears welling in my eyes from fear like I was a little girl again.
+
+Then I saw her. She wasn’t right. She looked stripped of emotion, a blank canvas. Like she was a shell of her soul. Just I went to call for her, I was back. I was sitting against the tiled wall of the convenience store. It had been five hours.
+
+I grabbed my backpack and left. I immediately went home, climbing up the fire escape to not wake up my mother. But despite my efforts, she had already been awake, her eyes red from what I assumed was crying.
+
+“Mama? Are you okay?” I asked her, she seemed less inconsolable and more in shock.
+
+“Yes yes. Mija, your abuela is unwell. She cannot remember… a lot. Doctors believe it is dementia.”
+
+My heart sunk. I swear she had been in the restocking room, but what if that was part of the hallucination as well? “I had another hallucination, Mama,” I told her as she grabbed some stuff around the kitchen. She sighed and shook her head, “Valeria, don’t play with me right now, you were off your medication a couple of weeks ago, remember when you had that first hallucination?”
+
+My heartbeat accelerated. I had sworn that I had took that medication the morning of, and that hallucination was real. 
+
+I visited my abuela a week later. She didn’t know who I was, she only remembered memories from when she was a young girl. What shocked us the most is that she told us about when she had gone missing. A week she spent in the forest, and anything past that, she didn’t remember. 
+
+Maybe I was just scared and dreaded the news that she had dementia, so that night I scoured the internet for what could cause memory loss after an event like that. But without needing to search a single thing, my heart dropped as I remembered a tale my abuela used to tell me. She said it was not a famous Mexican folk tale, mainly in the rural town she grew up in. But La Somba was a creature that could take possession over your memories and life until it took over someone else. It was said to make the person appear normal until it tried to take over someone else. In these cases, the person would appear lifeless, unlike themselves. And the person would be stuck in an eternal maze until La Somba successfully took over their memories
+
+I logged off the computer. My abuela. She was strong because of La Somba. She didn’t have dementia, La Somba took her memories. And I was the next victim. But I was fine? I had full control over all my actions. I tried telling my mother, but she told me to settle down and that I was hurting my family. Abuela has dementia, and that is final. But as I watch my abuela confused in a hospital bed of her surroundings, completely void of any memory, I wonder: How do I know that they haven’t already taken mine?
+
+I’m writing this for my sake. Maybe if I write down this I can remind myself if I do lose my memory. Maybe. 
