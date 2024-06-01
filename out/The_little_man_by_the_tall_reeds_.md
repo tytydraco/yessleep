@@ -58,7 +58,7 @@ The little man waited again, then continued on: "Well, maybe I'm talkin' about a
 
 
 
-"Tell me the story" I said. My fingers were tapping on the ground, along the dancing shadows, under that big yellow moon. I could hear the plop of a fish flying out out of the water and right back in. That siren eek of a mosquito came by my air and I shooed it away. And I looked at the water, where it was lit by the flame I could still see the little man. His eyes still whirling, his hands still digging. 
+"Tell me the story" I said. My fingers tapped on the ground, along the dancing shadows, under that big yellow moon. I could hear the plop of a fish flying out out of the water and right back in. That siren eek of a mosquito came by my air and I shooed it away. And I looked at the water, where it was lit by the flame I could still see the little man. His eyes still whirling, his hands still digging. 
 
 
 
