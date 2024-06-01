@@ -24,7 +24,7 @@ Nothing.
 
 Every time I tried to speak, the only sound that could be heard was a shrill and guttural rushing noise that sounded and felt like a dagger to my lungs. Like as if they had been penetrated with a knife and only the rushing sound of air out of them could be heard as I attempted to speak. My mom said my name several times and eventually hung up as I frantically tried to speak. I ended up texting her and lying saying I was doing well and was having tech issues but would call her later. I tried looking at my mouth and throat in a mirror and saw nothing amiss. Tried drinking water and making tea with honey but there was nothing I could do to get my voice back. Eating and swallowing were perfectly normal but I could not speak no matter how hard I tried.
 
-A bit panicked, I found a doctor who was open on the weekend and grabbed my keys to hop into my car to race there as fast as I could. I hoped it wouldn't be any trouble that I had not called before (obviously I couldn't with my lack of voice). As I opened the door to run to my car, I was stopped dead in my tracks faced with the same man who had delivered my food to me yesterday. As I opened my mouth to shout and surprise I heard a voice.
+A bit panicked, I found a doctor who was open on the weekend and grabbed my keys to hop into my car to race there as fast as I could. I hoped it wouldn't be any trouble that I had not called before (obviously I couldn't with my lack of voice). As I opened the door to run to my car, I was stopped dead in my tracks faced with the same man who had delivered my food to me yesterday. As I opened my mouth to shout and  in my surprise I heard a voice.
 
 "Told you I would be hearing from you soon".
 
