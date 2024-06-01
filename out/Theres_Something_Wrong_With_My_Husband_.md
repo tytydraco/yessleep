@@ -2,7 +2,7 @@ I was originally going to post this in a marriage advice thread, but after what 
 
 Let me preface this by saying that my husband is a good man. He’s always supported me, he’s an excellent father, and he’s never raised a hand against me or our son. Even now I don’t feel unsafe around him, just confused and worried. 
 
-I suppose I should back up a bit. My husband, Jim and I live on the outskirts of Cheboygan, Wisconsin, just close enough to be within the city limits, but far enough away to not have neighbors within spitting distance. It’s a beautiful city, pressed right up against Lake Michigan. We were lucky enough to find an old, fixer-upper house that was in our price range and for the last five years we’ve been slowly turning it into our dream home. 
+I suppose I should back up a bit. My husband, Jim and I live on the outskirts of Sheboygan, Wisconsin, just close enough to be within the city limits, but far enough away to not have neighbors within spitting distance. It’s a beautiful city, pressed right up against Lake Michigan. We were lucky enough to find an old, fixer-upper house that was in our price range and for the last five years we’ve been slowly turning it into our dream home. 
 
 Jim got a job as a mechanic at a nearby auto parts place while I happily settled into the homebody life and worked from home in order to take care of our son, Micah. He’s two and showing early signs of autism so I’m extra concerned with making sure he’s getting the attention and care that he needs to be an independent adult. 
 
