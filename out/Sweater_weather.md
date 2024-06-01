@@ -1,8 +1,8 @@
 I live on the other end of Washington state. As annoying as it is you know exactly what I mean by that. I live near Spokane, WA. Eastside. You have to love the outdoors if you live here. Outside the city it's pretty rural. We have some exceptionally beautiful state parks and conservation areas. Hiking, camping, horseback riding, snowboarding, anything outdoorsy we have. I highly recommend taking part in some outdoor activities if you're ever here to visit. However, I don't recommend Riverside State Park. 
 
-I went hiking there a few months ago and I had the strongest feeling of being watched I've ever experienced. I couldn't shake it. I only got about a mile in from the trailhead before I turned around. Something wasn't right and I wasn't sticking around to figure out what. But the feeling grew, and I'm a little embarrased to admit when I heard a noise in the underbrush I broke into a jog, and then a run. It was probably just a squirrel, it didn't sound large, but I was freaked out anyway. I reached the parking area and jumped into my car. I looked back towards the trail and there was nothing, but I still couldn't shake the feeling of being watched so I drove away. By the time I was a few yards down the feeling evaporated. I haven't felt it since, but I've never gone back there. 
+I went hiking there a few months ago and I had the strongest feeling of being watched I've ever experienced. I couldn't shake it. I only got about a mile in from the trailhead before I turned around. Something wasn't right and I wasn't sticking around to figure out what. But the feeling grew, and I'm a little embarrased to admit when I heard a noise in the underbrush I broke into a jog, and then a run. It was probably just a squirrel, it didn't sound large, but I was freaked out anyway. I reached the parking area and jumped into my car. I looked back towards the trail and there was nothing, but I still couldn't shake the feeling of being watched so I drove away. By the time I was a few yards down the road the feeling evaporated. I haven't felt it since, but I've never gone back there. 
 
-And that's not really a scary story, but it's my story, and gives you some context. I don't want to admit I was that chickenshit on a very easy hike, not more than a few minutes from civilization, but I ask friends sometimes if they had ever had a bad feeling about Riverside State Park. Usually they'd ask what I was talking about, and I'd shrug and laugh and say, “I dunno, weird vibes,” and the conversation would move on. 
+And that's not really a scary story, but it's my story, and gives you some context. I don't want to admit to people I was that chickenshit on a very easy hike, not more than a few minutes from civilization, but I ask friends sometimes if they had ever had a bad feeling about Riverside State Park. Usually they ask what I was talking about, and I shrug and laugh and say, “I dunno, weird vibes,” and the conversation moves on. 
 
 But yesterday, I was down at the bar with one of my buddies, Alan. He's more of a drinking buddy than a hiking buddy, but he is a good outdoorsman. I think he just prefers to drink with friends and hike alone. I asked him about Riverside State Park. He didn't ask what I meant, just gave me a long level look and said, “Have you?”
 
@@ -26,7 +26,7 @@ I still felt a pricking at the back of my neck, though, and I glanced back a few
 
 I walked on a little farther and I saw a tree had fallen across the trail up ahead. It was leaning against another tree so the angle was pretty steep and the area over the trail was about at head height. If you were going to pass you'd duck under it, not climb over it. 
 
-I stopped dead, heart racing, the way you do when you see when someone startles you. I saw a person lying facedown on the log, head pointed down towards the roots and feet up towards the canopy, which was a weird position to be in even if you were screwing around. It was too high up to be someone trying to climb over, they would have had to climb up the tree from off the side of the trail and then turn around and lay down on it. Their leg was twisted at a strange angle. What the hell were they doing? Was it a dead body?
+I stopped dead, heart racing, the way you do when someone startles you. I saw a person lying facedown on the log, head pointed down towards the roots and feet up towards the canopy, which was a weird position to be in even if you were screwing around. It was too high up to be someone trying to climb over, they would have had to climb up the tree from off the side of the trail and then turn around and lay down on it. Their leg was twisted at a strange angle. What the hell were they doing? Was it a dead body?
 
 After a second though my brain actually processed what it was seeing. I laughed because I realized someone must have thrown their sweater up there for some reason. Unexpected, but not scary. There was an arm and a hood visible. There was a branch jutting out from the tree where a leg would be, so the whole thing had the general shape of a person if you squinted.
 
@@ -62,7 +62,7 @@ The guy came back. He had begged a bottle of water off somebody and gave it to m
 
 “Thanks, man,” I said. I downed half the bottle in one go.
 
-“Weird vibe around here,” the guy said.
+“Weird atmosphere here,” the guy said.
 
 “Yeah.”
 
@@ -74,7 +74,7 @@ He nodded as if that made sense. “Should we call someone?”
 
 “I don't think so… I don't have much to tell them, really.”
 
-I didn't even want to tell this guy, who had seen me in my fear and fury, and was at the camp now, that I'm pretty sure I was chased by an animate sweatshirt. I mean it sounded fucking ridiculous. At a police station it would sound even worse.
+I didn't even want to tell this guy, who had seen me in my fear and fury, and was in the oppessive atmosphere of the camp, that I'm pretty sure I was chased by an animate sweatshirt. I mean it sounded fucking ridiculous. At a police station it would sound even worse.
 
 I haven't told anyone about it until now.
 
@@ -82,7 +82,7 @@ I haven't told anyone about it until now.
 
 “Oh,” I said. We nursed our beers in silence. 
 
-After a minute I asked, “So when you threw the sweater at it, you turned all the way around?”
+After a minute I asked, “So when you threw the jacket at it, you turned all the way around?”
 
 “Yep.” He sighed. 
 
@@ -100,7 +100,7 @@ After a minute I asked, “So when you threw the sweater at it, you turned all t
 
 “To blend in?” I suggested, and we had a good laugh.
 
-“I'll tell you what though, I think it's still out there, and I think somebody knows. They're closing the park this year and into next. Certain areas and certain times. I bet it's related.”
+“I'll tell you what though, I think it's still out there, and I think somebody knows. They're closing the park this year and into next. Certain areas and certain times. They say it's for maintenance but I bet it's related. Hopefully they take care of it.”
 
 “Would you ever go back?” I asked.
 
