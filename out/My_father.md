@@ -1,0 +1,14 @@
+My father. The soul provider.
+
+Since we lived in severe poverty my father hunted quite often to keep food on the table. He was a very hard-working man but it was unfortunately never enough to get by comfortably. We would always run out of food by the end of the month despite it only being me and my mother. We even skipped meals sometimes.
+
+When my mother would tell him this he would go out and simply hunt no matter what time of season it was to provide. He never came home empty-handed. My mother was so impressed with the fact that he brought home a feast every time he left, she then began to ask him to do this more often to save money. He happily obliged and it became a routine. On the weekends, my dad would be gone all day scavenging for food or anything he could get his hands on to bring home to us. 
+I never saw what he brought home because I hated the sight of blood and would stay in my room all day but my mother would make an amazing meal out of it and that was good enough for me. At first I didn't even question what it was.
+
+As I was reading the news one day I was shocked to find out that lots of men and women in our area were going missing and I began to fear for my father when he would go out. I would beg him to not to go and he would always tell me "Not to worry sweetheart. You have nothing to fear." and leave. I love my dad more than anything and didn't want him to be hurt by a psycho. My heart would sink to the bottom of my stomach seeing him go out the door. He began to come home later at night and I started to worry although my mother always dismissed it. She would tell me "He's providing for us Beth." and I accepted that answer. He was feeding us, so who was I to complain or worry? 
+
+I worked up the courage to try sneak a peek of the meat he would bring home because they never told me what it was. I suspected that it was deer. I had never seen a dead animal and although I really didn't want to, my curiosity was gnawing at me. One night when he came home I sneakily walked by the kitchen just to see a glimpse of it.
+
+That's when discovered his secret. He wasn't hunting animals. He was killing our town residents one by one and serving it to me. I couldn't believe my eyes and the stench made my stomach physically turn upside down. I watched my mother kiss him and thank him for the "wonderful meal" he brought while the dead corpse lay on the kitchen table. Tears formed in my eyes. The person I had been fearing about the whole time was him.
+
+I rushed back to my room and never said a word fearing that I may be next.. and yes. I still ate the meals knowing what he did. It's been years and it's still haunts me. Our dark family secret.
