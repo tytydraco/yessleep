@@ -4,9 +4,9 @@ One day,I went out to the balcony to sweep it,as I usually do.I finished my work
 
 I served in the Armed Forces.Therefore,I wasn't really afraid of blood as I had seen my fair share of blood and death.I picked up the statue to inspect it.It had a gash on its right wrist.It was profusely bleeding.
 
-Now,this freaked me out.I never expected an supernatural event to happen to me.I was always skeptical of my family's classic ghost stories.Yet,my Yeats of physical and psychological training kicked in.
+Now,this freaked me out.I never expected an supernatural event to happen to me.I was always skeptical of my family's classic ghost stories.Yet,my Years of physical and psychological training kicked in.
 
-The statue was about 12 inches tall,amd featured an woman wearing an robe amd holding an paper fan,staring at a noose in front of her.
+The statue was about 12 inches tall,and featured a woman wearing a robe and holding a paper fan,staring at a noose in front of her.
 
 I took the statue and put it in the sink.My analytical mind kicked in.I collected some of the blood for any further use or analysis.I cleaned up the puddle and the trail of blood.Last thing I want is to be labeled as a murderer by the Karen next door.
 
@@ -46,7 +46,7 @@ The next week breezed by,that is,until the day I got the results.The Blood was t
 
 I accessed the public records relayed to her case.Her body was found in an state of advanced decomposition,despite being killed a day prior.She had acid burns amd bite marks all over her body.Her house and especially the attic were completely trashed.
 
-I took an cursory review of her family history.Well,well,her elder sister was found dead in her room 2 years later,4 months back.She committed suicide by slashing her wrist.Whats more,she was found with the statue in her room.
+I took a cursory review of her family history.Well,well,her elder sister was found dead in her room 2 years later,4 months back.She committed suicide by slashing her wrist.Whats more,she was found with the statue in her room.
 
 Though,why was the younger sister's blood flowing from the statue when the older sister was found with it?It seemed that the deaths were connected.
 
