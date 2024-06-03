@@ -152,7 +152,7 @@ I got a close look at the driver. The same blonde, 40 something woman that had h
 
 “Leave me the fuck alone!” I screamed.
 
-I arced my hand. The concrete left my palm and flew towards the Chevrolet. It missed the roof by a few inches and kept flying until it hit a black BMW parked behind it. The concrete broke in half as it left a massive crack on the windscreen.
+I arced my arm. The concrete left my palm and flew towards the Chevrolet. It missed the roof by a few inches and kept flying until it hit a black BMW parked behind it. The concrete broke in half as it left a massive crack on the windscreen.
 
 I fell to the floor. The emotions had finally hit me as the adrenaline wore off. I began crying and didn’t stop for an hour.
 
