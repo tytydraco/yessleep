@@ -426,12 +426,12 @@ As if hearing him, the creatures responded with loud screeching and… hysteric
 
 I nodded. 
 
-Sergei was already bandaging his leg. Several empty syringes lied near him. He showed me thumb up and kept wrapping the bandage over his limb.
+Sergei was already bandaging his leg. Several empty syringes lay near him. 
 
 I heard Batu chuckle. 
 
 “What’s the matter?” I asked. 
 
-“We really should stop getting ourselves in situations like this,” he said humorously. 
+“We really should stop getting ourselves in the situations like this,” he said humorously. 
 
-I grinned and shook my head.
+I grinned.
