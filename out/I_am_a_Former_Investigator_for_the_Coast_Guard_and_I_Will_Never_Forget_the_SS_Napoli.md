@@ -4,7 +4,7 @@ During my time as an investigator for the Coast Guard my days were spent stoppin
   
 It was 1997 and I had been an investigator for the Coast Guard for 3 years and was stationed in Portland when my partner John and I got the call. According to our dispatch there was a small cruise vessel which had veered into a restricted commercial waterway. Having nothing better to do and not wanting to look too lazy around our Superiors, we made our way to our small patrol boat were we were met by one of the senior investigators named Eric.  
   
-“John, Marshall, you’re both late”, Eric said as he stood in front of our bar with his arms crossed.  
+“John, Marshall, you’re both late”, Eric said as he stood in front of our boat with his arms crossed.  
   
 “I didn’t know this was gonna be so serious” John said as we walked towards the boat.  
   
