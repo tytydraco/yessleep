@@ -226,6 +226,8 @@ These two men had been spotted by several passers-by, who didn't think much of t
 
 Naturally, I was inconsolable for months, having just lost my boyfriend and best friend of six years. After the grief, I was numb.
 
-Looking back, the mystery had been on Noah's mind ever since the second child who fell in died. The two men had just moved to the area six years ago. Noah would have been the first victim. He acted different that day at school, and although I couldn't tell what he was thinking, I knew something was on his mind. Initially, I thought he had shaken off his near death experience with ease, but later he mentioned it came back to haunt him many nights. He finally got the answer he was looking for. What he felt was undoubtedly real, and more sinister than anyone could have imagined.
+Looking back, the mystery had been on Noah's mind ever since the second child who fell in died. The two men had just moved to the area six years ago. Noah would have been the first victim. He acted different that day at school, and although I couldn't tell what he was thinking, I knew something was on his mind. Initially, I thought he had shaken off his near death experience with ease, but it came back to haunt him many nights. He finally got the answer he was looking for.
 
-They tried to kill him once, but he lived to tell the tale. Then he came back and took them down. I love you, Noah.
+What he felt was undoubtedly real, and more sinister than anyone could have imagined.
+
+They tried to kill him once, but he lived to tell the tale. Then he came back and took them down. I love you, [Noah](https://www.reddit.com/user/latebutstillearly1/).
