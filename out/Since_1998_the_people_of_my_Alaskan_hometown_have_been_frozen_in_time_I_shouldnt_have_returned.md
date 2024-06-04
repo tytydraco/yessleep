@@ -2,7 +2,7 @@ When the edged wind came to our village, it seemed like a typical Alaskan gust. 
 
 Once others understood that, the time for running had passed.
 
-The unholy wind reached the village’s main road, causing two moving cars to sharply and statically stop. The vehicles were frozen in place, much like the people within those metal graves. Onlookers, enjoying a brisk afternoon in the park, began to scream loved ones succumbed to that supernatural end. Imprisoned in a capsuled moment of time.
+The unholy wind reached the village’s main road, causing two moving cars to sharply and statically stop. The vehicles were frozen in place, much like the people within those metal graves. Onlookers, enjoying a brisk afternoon in the park, began to scream as loved ones succumbed to that supernatural end. Imprisoned in a capsuled moment of time.
 
 Those first few victims were the lucky ones. They’d been oblivious to the fate which awaited them. *True* terror was endured by those who beheld the raw power of the wind. Those unfortunate enough to see the end coming.
 
