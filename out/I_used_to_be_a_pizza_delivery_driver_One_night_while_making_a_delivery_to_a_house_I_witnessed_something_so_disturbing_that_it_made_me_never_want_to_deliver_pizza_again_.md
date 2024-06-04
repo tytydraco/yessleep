@@ -21,25 +21,25 @@ The judge, a stern woman, pronounced my fate: four months in juvenile detention.
 
 A month before completing my four-month sentence, the court granted me conditional release— under the agreement that I repay the repair costs for Mr. Smith’s garage. Every hard-earned cent I made over the next year went toward that repayment, a constant reminder etched in both money and trust. The weight of my past clung to me like damp clothes, and I trudged forward, one paycheck at a time.
 
-The air hung heavy in the house, thick with disappointment and the unspoken weight of my mistake. Mom sat beside me, a faint tremor in her hands as she scrolled through endless job listings on the flickering computer screen. I knew she was mad, heartbroken even. But beneath the anger, I saw love, a silent plea for me to understand the gravity of my actions. Dad, ever the pragmatist, sat across from us, a deep frown etched on his usually jovial face. Unlike Mom, his silence felt accusatory, a heavy weight that spoke volumes.
+The air hung heavy in the house, thick with disappointment and the unspoken weight of my mistake. Mom sat beside me, her hands quivering slightly as she navigated through a sea of job listings on the unsteady glow of the monitor. I knew she was mad, heartbroken even. But beneath the anger, I saw love, a silent plea for me to understand the gravity of my actions. Dad, ever the pragmatist, sat across from us, a deep frown on his usually jovial face. Unlike Mom, his silence felt accusatory, a heavy weight that spoke volumes.
 
-The night stretched on, with only the rhythmic clack of the keyboard. After an hour of searching, we finally stumbled across a job listing that seemed promising – “Pizza Delivery Driver Needed.” It wasn’t the glamorous career I once envisioned, but, it was better than nothing. My parents, sensing the shift in the air, exchanged a glance. Relief flashed in Mom’s eyes, while a hint of a smile tugged at the corner of Dad’s lips.
+The night went on, marked by the steady tapping of the keyboard. An hour in, we hit upon a job ad that looked promising – “Pizza Delivery Driver Wanted.” It wasn't the dream job I'd hoped for, but it was a start. My parents felt the change too; they looked at each other. Mom's face lit up with hope, and Dad almost smiled.
 
-Mom, a whiz with words, polished my resume, turning it from a jumbled mess into a presentable document. Dad, with his years of experience interviewing for his own job, drilled me on interview etiquette, his gruff questions a tough but necessary preparation for the real deal. In that moment, their unspoken support spoke louder than any words ever could.
+Mom, a whiz with words, polished my resume, turning it from a jumbled mess into a presentable document. Dad, seasoned by his own job interviews, coached me on how to behave during an interview, his stern questions a hard but essential practice. In that moment, their unspoken support spoke louder than any words ever could.
 
-A week later, I stood outside “Luigi’s Loafs,” the name painted in peeling red letters above the door. The air hung thick with the unmistakable aroma of a well-worn pizza joint – a symphony of sharp tomato tang, savory bubbling cheese, and the underlying hum of sizzling pepperoni. Flour-dusted cardboard boxes huddled precariously in a corner, and walls plastered with peeling posters boasted cartoon chefs juggling implausible amounts of toppings with manic glee.
+A week later, I found myself outside “Luigi’s Loafs,” its name flaking in red above the entrance. The air was rich with the classic scent of an old pizza place – a blend of sharp tomato, melting cheese, and the sizzle of pepperoni. In one corner, stacks of flour-coated boxes teetered, and the walls, adorned with faded posters, showed cartoon chefs tossing heaps of toppings with exaggerated enthusiasm.
 
 The gruff man who emerged from behind a swinging kitchen door wasn’t the polished interviewer I’d envisioned. A flour-dusted apron clung to him like a second skin, and his voice boomed with a gruffness that could rival a foghorn. Desperation drowned any initial apprehension; I needed this chance.
 
 The interview itself was refreshingly short and to the point. He didn’t delve into my past, didn’t ask about the fire that still burned in my conscience. Instead, he focused on the essentials: age, driver’s license, and the seemingly impossible task of juggling a piping-hot pizza and a temperamental GPS. It wasn’t much, but in that moment, it felt like everything. This gruff man, with his flour-dusted apron and no-nonsense demeanor, had offered me a way to crawl out of the hole I’d dug for myself.
 
-The job itself wasn’t a walk in the park, but it wasn’t a disaster zone either. There were long stretches of downtime, with the occasional rush of orders that left me breathless and drenched in sweat. The base pay was a joke, barely enough to cover a week’s worth of ramen noodles. Thankfully, there were tips. Those crisp bills, tucked into sweaty palms or clinking in the bottom of the delivery bag, were my lifeline. Every penny went straight to Mr. Smith, a constant reminder of the debt hanging over my head.
+The job itself wasn’t a walk in the park, but it wasn’t a disaster zone either. There were long stretches of downtime, with the occasional rush of orders that left me breathless and drenched in sweat. The base pay was a joke, barely enough to cover a week’s worth of ramen noodles. Thankfully, there were tips. Those crisp bills, tucked into sweaty palms or clinking in the bottom of the delivery bag, were my savior. Every penny went straight to Mr. Smith, a constant reminder of the debt hanging over my head.
 
 But the real challenge wasn’t the physical demands or the meager pay. It was the customers. On paper, the job seemed simple: deliver hot pizza, collect payment, smile politely. Reality, however, was a different beast entirely. Some folks were friendly, genuinely happy to see a pizza appear at their doorstep. But others...well, let’s just say they could test the patience of a saint. A simple wrong turn or a slight delay could turn into a verbal maelstrom.
 
 I’d had doors slammed in my face with enough force to rattle my teeth, endured accusations of stolen sodas with the indignation of a wronged king, and even faced down a few Karens demanding free pizzas for inconveniences real and imagined. Those moments made you question the very fabric of humanity, leaving you wondering if kindness was an extinct species.
 
-One night at work, the clock on the wall mocked me with its luminous green glow that seemed to say, “almost there.” Midnight had just struck, and the promise of freedom – a bed, a shower, anything but another delivery – hung tantalizingly close.
+One night at work, the clock on the wall mocked me with its luminous green glow that seemed to say, “almost there.” Midnight had just struck, and the promise of freedom – a bed, a shower, anything but another delivery – hung close.
 
 Just as I was about to switch off the radio for the blissful silence of a closing shift, my boss’s voice crackled to life. “One more delivery,” he announced. I swallowed a sigh that threatened to be an all-out groan.
 
@@ -59,7 +59,7 @@ In a last-ditch effort, I pulled the car onto the gravel shoulder of the darkene
 
 “Hello?”
 
-Relief washed over me like a tidal wave. “Hello? This is the pizza guy,” I blurted out, my voice a touch higher than usual."I’m having a bit of trouble finding your place."
+Relief washed over me like a tidal wave. “Hello? This is the pizza guy,” I blurted out, my voice a touch higher than usual. "I’m having a bit of trouble finding your house."
 
 Another beat of silence followed, then the man on the other end chuckled softly. “Don’t worry, son,” he drawled. “My driveway’s easy to miss. Looks more like a dirt trail than anything else.” He went on to describe the surroundings, his voice painting a picture with words. He mentioned a large oak tree with a tire swing hanging from a low branch, and a rusty mailbox shaped like a red pickup truck.
 
@@ -93,9 +93,9 @@ My gut lurched – that wasn’t in the training manual. My boss had drilled it 
 
 But In that moment, better judgment took a backseat to a misplaced sense of...well, I wasn’t sure what to call it – misplaced helpfulness, maybe? Against the gnawing voice of caution in my head, I found myself shrugging nonchalantly.
 
-I stepped cautiously into the house, the weathered floorboards groaning under my weight like the protests of a reluctant spirit. It wasn’t just old; this house was a time capsule, each detail frozen in a snapshot of a bygone era. The air hung heavy with the scent of dust and forgotten memories.
+I stepped cautiously into the house, the weathered floorboards groaning under my weight like the protests of a reluctant spirit. It wasn’t just old; this house was a time capsule, each detail frozen in a snapshot of a bygone era. The house was thick with the smell of dust and echoes of the past.
 
-The long, narrow interior stretched before me like a dimly lit tunnel. Dark hallways, their doorways shrouded in shadow,branched off to the left and right like forgotten rooms in a labyrinth. The faded wallpaper clinging precariously to the walls boasted a swirling floral pattern in hues of dusty rose and tarnished gold. It was a design straight out of a 1930s dream, faded with the passage of time.
+The long, narrow interior stretched before me like a dimly lit tunnel. Dark hallways, their doorways shrouded in shadow, branched off to the left and right like forgotten rooms in a labyrinth. The faded wallpaper clinging precariously to the walls boasted a swirling floral pattern in hues of dusty rose and tarnished gold. It was a design straight out of a 1930s dream, faded with the passage of time.
 
 In the corner, a tall grandfather clock stood sentinel, its ornate mahogany frame gleaming faintly in the dim light filtering through the half-open door. Its solemn presence was punctuated by the rhythmic tick-tock of its pendulum, a steady heartbeat in the quiet house. Next to it, an old record player whirred to life, its needle whispering across the surface of a dusty vinyl record. A melody, melancholic and hauntingly beautiful, drifted from the speakers, a forgotten song from a long-lost time.
 
@@ -119,9 +119,9 @@ Then, with a terrifying suddenness, the horrific laughter was cut short. “GET 
 
 My blood ran cold as the full weight of his words sank in. From the hallway on my left, a sound ripped through the air – the sound of rapid footsteps approaching. I whipped my head around just in time to see the naked woman, the one who had been dancing mere moments ago, sprinting towards me. Her speed defied her age, propelled by a terrifying urgency.
 
-Pure terror coursed through me, a shot of adrenaline that propelled me into action. Without a single wasted thought, I spun on my heel, the forgotten pizza boxes tumbling from my grasp with a clatter. The door – the only escape – seemed miles away. My legs pumped, a primal urge to flee overriding any thought of dignity. I flung the door open with a crash, the hinges groaning in protest, and practically dove through the threshold.
+Pure terror coursed through me, a shot of adrenaline that propelled me into action. Without a single wasted thought, I spun on my heel, the forgotten pizza boxes tumbling from my grasp with a clatter. The door – the only escape – seemed miles away. My legs pumped, an instinctive urge to flee overriding any thought of dignity. I flung the door open with a crash, the hinges groaning in protest, and practically dove through the threshold.
 
-Reaching the car, I fumbled with the keys, momentarily cursing my trembling hands. The door flew open, and I practically flung myself into the driver’s seat, slamming it shut with another bone-jarring thud. In a heartbeat, the engine roared to life, the sound a beautiful symphony in the face of the chilling silence behind me. My foot slammed down on the gas pedal, and the car lurched forward, tires spitting gravel as I tore out of the driveway.
+Reaching the car, I fumbled with the keys, momentarily cursing my trembling hands. The door flew open, and I virtually flung myself into the driver’s seat, slamming it shut with another bone-jarring thud. In a heartbeat, the engine roared to life, the sound a beautiful symphony in the face of the chilling silence behind me. My foot slammed down on the gas pedal, and the car lurched forward, tires spitting gravel as I tore out of the driveway.
 
 As I sped away, the house receding rapidly in the rearview mirror, I couldn’t resist a final, glance back. Bathed in the pale moonlight spilling through the open doorway, I saw them – the man and apparently his mom, both completely naked, their forms stark and unsettling against the dark interior. Their faces were obscured by shadow, but the intensity of their gazes seemed to pierce the distance, following me even as I put more and more space between us.
 
@@ -131,7 +131,7 @@ I returned to work a few days later, the encounter at the house replaying in my 
 
 He was aware of the court-mandated agreement and tried to persuade me to stay, saying, “If you don’t have work to accommodate your neighbor’s garage, you’ll end up right back in juvie,” he warned. The thought of juvenile detention didn’t hold the same weight it once did, not compared to what I saw in that house. “I don’t care,” I blurted out. “I’d rather go back than continue working here.”
 
-4 weeks later, I finally landed a job at a local diner. The pay was decent, but after court fees, and the courts-mandated agreement to pay off my neighbors garage, every penny counted. One night, during a late shift, the diner’s familiar atmosphere engulfed me—the greasy aroma of food on the grill, the blur of servers rushing between tables, the clink of dishes in the kitchen. I was wiping down a table, sticky with ketchup and littered with leftover fries, when my phone buzzed in my pocket. I fished it out and answered, “Hello?” in a curious tone.
+4 weeks later, I finally landed a job at a local diner. The pay was decent, but after court fees, and the courts-mandated agreement to pay off my neighbors garage, every penny counted. One night, on a late shift, the diner wrapped me in its usual sensory tapestry—the sizzle of burgers on the grill, the dance of waitstaff weaving through patrons, the symphony of cutlery and crockery from the kitchen. As I cleaned a table marred by ketchup smears and abandoned fries, my phone vibrated against my leg. I retrieved it and greeted the caller with an inquisitive, “Hello?”
 
 Silence.
 

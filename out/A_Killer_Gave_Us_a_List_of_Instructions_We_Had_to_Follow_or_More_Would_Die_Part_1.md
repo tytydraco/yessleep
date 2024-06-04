@@ -304,7 +304,7 @@ Audrey pulls out a pen and notepad, jotting down each word with meticulous care.
 
 "Paso cuatro: Ofrezcan sangre de tres animales distintos—un cuervo, un perro y un caballo—en el mismo lugar." (Step four: Offer the blood of three different animals—a crow, a dog, and a horse—at the same place.)
 
-"Paso cinco: Esperen hasta la medianoche y luego quemar una efigie del Señor del Inframundo mientras todos los presentes pronuncian su nombre tres veces." (Step five: Wait until midnight and then burn an effigy of the Lord of the Underworld while all present chant his name three times.)
+"Paso cinco: Esperen hasta la medianoche y luego quemen una efigie del Señor del Inframundo mientras todos los presentes pronuncian su nombre tres veces." (Step five: Wait until midnight and then burn an effigy of the Lord of the Underworld while all present chant his name three times.)
 
 Lucía’s eyes brim with tears as she concludes, "Esto debe hacerse antes de la próxima luna nueva para aplacar al que cosecha almas." (This must be done before the next new moon to appease the one who harvests souls.)
 
