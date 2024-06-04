@@ -110,7 +110,7 @@ We pause at the door, the metallic clang of the trailer echoing slightly in the 
 
 Sálazar is cuffed to a bench at the far end of the trailer, his clothes muddy and disheveled. His eyes are wide, darting around in panic, and as the door opens, he recoils as if expecting an attack.
 
-The network of tattoos crawling up his arms and neck stands out, the intricate designs unmistakable in the dim light. The most prominent among them is the black scorpion that marks him as a member of the infamous Sinaloa Drug Cartel.
+The network of tattoos crawling up his arms and neck stands out, the intricate designs unmistakable in the dim light. The most prominent among them is the black scorpion that marks him as a member of the infamous Tijuana Drug Cartel.
 
 Martínez, unfazed by the man's disheveled state, addresses him with a firm tone. "Hey, Salazar, there are detectives here to talk to you.”
 
@@ -156,13 +156,13 @@ I lock eyes with Audrey, and without a word, we both understand the gravity of t
 
 Sálazar's eyes widen in fear as I grip him by the shoulders and slam him against the wall. His face hits the metal with a dull thud, and a trickle of blood seeps from his nose, staining his dirt-caked shirt. He gasps, the panic palpable.
 
-I lean in, my voice cold and calculating. “Mira, pendejo, what do you think would happen if we shipped you to RJD and locked your ass in a cell full of Los Zetas?"
+I lean in, my voice cold and calculating. “Mira, pendejo, what do you think would happen if we shipped you to RJD and locked your ass in a cell full of Sinoloas?"
 
-“Detective Castillo here," Audrey gestures to me, "was undercover with the Zeta Cartel for over a year. He's seen things that would turn your blood cold. Things that make your little devil story sound like a bedtime fairy tale."
+“Detective Castillo here," Audrey gestures to me, "was undercover with the Sinaloa Cartel for over a year. He's seen things that would turn your blood cold. Things that make your little devil story sound like a bedtime fairy tale."
 
 I pull out my pocket knife, flipping it open with a swift, practiced motion. The metallic click sounds unnaturally loud in the cramped space. I lean in close, the cold steel just grazing the stubble on Sálazar's neck.
 
-"See, cabrón, the Z’s, they like to make examples out of rival cartel members," I growl, my voice low and menacing. "They got this little trick called el corte de corbata (the necktie cut). You know what that is?”
+"See, cabrón, the Federation, they like to make examples out of rival cartel members," I growl, my voice low and menacing. "They got this little trick called el corte de corbata (the necktie cut). You know what that is?”
 
 I draw the tip of the knife lightly across his skin, just enough to draw a bead of blood.
 
