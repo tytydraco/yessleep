@@ -1,6 +1,6 @@
 With my head throbbing and clutching my handbag tightly to my chest, I walked quickly through the indoor parking garage. A massive concrete structure, every space was full, cars of all makes and models squeezed between the lines.
 
-I was running late for my niece's fifth birthday. I find family occasions overwhelming. The innocent yet gut-wrenching questions like, "When are you going to meet a nice young man and settle down?" and the worst one, "Have you tried online dating?" I just smile and give a rehearsed answer about my career. 
+I was running late for my niece's fifth birthday. I find family occasions overwhelming. The innocent yet gut-wrenching questions like, "When are you going to meet a nice young man and settle down?" and the worst one, "Have you tried online dating?" I just smile and give a rehearsed answer about my career.
 
 I continued to hurry through the parking garage. I stopped and scanned the area. I simply couldn't remember where I parked. My head was still throbbing, pounding to be exact. I never suffered from migraines but that's the only way to describe it. That, or a jackhammer to my temple. I reached into my handbag and took out a small bottle of pills. I swallowed a few pills, no water needed.
 
@@ -26,9 +26,9 @@ I walked past several pointless stores where young store clerks mindlessly stack
 
 I quickly checked my cell phone, and the time was indeed 5.30.  
 
-I continued on tentatively. I had this nagging feeling that something wasn’t quite right. I passed a small drugstore, and my attention was drawn to a young, disheveled homeless guy with a large rucksack slung over his shoulder. He clutched his back as he picked up a packet of bandages from a shelf. He turned and stared at me. We locked eyes for a little too long. It wasn’t sexual. I just knew that I had seen him before but I couldn’t remember where or when. I broke eye contact and moved on.
+I continued on tentatively. I had this nagging feeling that something wasn’t quite right. I passed a small drugstore, and my attention was drawn to a young, disheveled homeless guy with a large rucksack slung over his shoulder. He clutched his back as he picked up a packet of bandages from a shelf. He turned and stared at me. We locked eyes for a little too long. It wasn’t sexual. I just knew that I had seen him before but I couldn’t remember where or when. 
 
-I didn’t have time to hang around. I needed to find someone who could help locate my car. I needed to get to my niece’s birthday party.  
+I broke eye contact and moved on. I didn’t have time to hang around. I needed to find someone who could help locate my car. I needed to get to my niece’s birthday party.  
 
 I looked up to the second level and saw the holy grail, an information desk. I stepped onto the escalator but they stopped working, so I was forced to walk up. My legs felt heavy and my head continued to pound. The escalator on the other side worked fine. Shoppers whizzed past me, looking straight ahead, their eyes glazed over.
 
@@ -192,7 +192,7 @@ Why the heck do I have cash? Out of the corner of my eye, I saw Thomas staring a
 
 We sat opposite each other in a booth. “Do you get the feeling these people don’t know we’re here?” I asked. Thomas gave a response I wasn’t expecting. “Can you remember the faces of everyone you meet?”
 
-I felt guilty. He’s right, we never stop to take the time to get to know one another. Even our close friends and family don’t truly know who we are. My head started to pound and I instinctively popped some pills.   
+I felt guilty. He’s right, we never stop to take the time to get to know one another. Even our close friends and family don’t truly know who we are. My head started to pound and I instinctively popped some pills.
 
 We waited for what could have been seconds, minutes, or hours. The diner owner, a large jovial man in his sixties wearing an apron walked over and put down our order. He spoke with a gentle southern drawl, but like everyone else here, he couldn’t look us in the eye.
 
