@@ -37,7 +37,7 @@ The job itself wasn’t a walk in the park, but it wasn’t a disaster zone eith
 
 But the real challenge wasn’t the physical demands or the meager pay. It was the customers. On paper, the job seemed simple: deliver hot pizza, collect payment, smile politely. Reality, however, was a different beast entirely. Some folks were friendly, genuinely happy to see a pizza appear at their doorstep. But others...well, let’s just say they could test the patience of a saint. A simple wrong turn or a slight delay could turn into a verbal maelstrom.
 
-I’d had doors slammed in my face with enough force to rattle my teeth, endured accusations of stolen sodas with the indignation of a wronged king, and even faced down a few Karens demanding free pizzas for inconveniences real and imagined. Those moments made you question the very fabric of humanity, leaving you wondering if kindness was an extinct species.
+I’d had doors slammed in my face with enough force to rattle my teeth, endured accusations of stolen sodas with the indignation of a wronged king, and even faced down a few Karens demanding free pizzas for inconveniences real and imagined. Those moments made me question the very fabric of humanity, leaving me wondering if kindness was an extinct species.
 
 One night at work, the clock on the wall mocked me with its luminous green glow that seemed to say, “almost there.” Midnight had just struck, and the promise of freedom – a bed, a shower, anything but another delivery – hung close.
 

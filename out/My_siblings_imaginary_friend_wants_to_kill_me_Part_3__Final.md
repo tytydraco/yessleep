@@ -112,7 +112,7 @@ I dropped the picture, and lowered my face to his. ‘Are you serious? Kids have
 
 Mr. Winslow's face was beginning to turn blue. “Listen. Do you have any idea how tight the turnaround is on children’s programming? I don't make the rules.”
 
-“No no no!” I pulled at my hair.*How could I be too late?*
+“No no no!” I pulled at my hair. *How could I be too late?*
 
 I stared at the air above the studio exec and pointed wildly. “Jumpy, is that true? Is there something you're not telling me? Have some kids seen you?”
 
