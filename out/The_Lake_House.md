@@ -1,6 +1,6 @@
 Looking back on this weekend, I try to think of everything that we could have done to prevent what happened from happening. I remember it like it was yesterday, when it really began five years ago.
 
---------------------------------------------------------------------------------------------------------------------------
+*************
 
 “Are we there yet?” My sister whined for the fourth time within the hour from the backseat. I could feel my eye twitching as I let out an exasperated sigh, and my best friend chuckled from the passenger seat. 
 
@@ -40,7 +40,7 @@ I laughed, making my way to the kitchen. “Let’s see if there is anything edi
 
 “Maybe Uncle Alan was up here recently, it is halfway through Summer already, sis,” Tara commented. She was right. Uncle Alan was the one who normally spent a few weeks up here, but it was weird that Mom hadn’t mentioned that to me before leaving. I had been under the impression no one had been here for a while, given the state of the outside of the house. But, it further explained the bed situation and the front door. I nodded, and we got to work preparing ourselves some dinner.
 
---------------------------------------------------------------------------------------------------------------------------
+*************
 
 It was half-past ten, the clock read to me as I laid in bed, waiting for Kelsey to get in from her shower. Tara had already turned in about an hour ago, claiming she was tired from the drive and wanted to see what games she could play on her phone that didn’t require reception. As I felt myself drifting off, I was startled by the door swinging open. Kelsey poked her head in with her cheesy grin, and jumped into bed with me. “Soooooo…did you come up with anything for us to do tomorrow?” She asked, rolling over and propping herself up on her right arm to look at me.
 
@@ -49,8 +49,7 @@ It was half-past ten, the clock read to me as I laid in bed, waiting for Kelsey 
 “I honestly hadn’t gotten that far, but I figured we could hang out on the dock since we brought our swimsuits and everything. I’m just craving peace and quiet at this point,” I replied, moving my pillow to make myself more comfortable. After that, we settled into our nightly routine that we had back at our dorms-making small talk and indulging each other with whatever was on our minds at the time.
 
 
-
---------------------------------------------------------------------------------------------------------------------------
+*************
 
 I woke up with a gasp, feeling like the wind had been knocked out of me. Was it my dream that had given me a fright, or was it something I had heard? I grabbed my stomach, looking at the time. 4:45 AM…Kelsey and I had fallen asleep around midnight so it had only been a few hours. I rolled over to grab Kelsey’s arm and to move closer, but my eyes widened when I realized she wasn’t in bed anymore. *That’s weird…* I thought, *Kelsey doesn’t sleepwalk.* That chilling feeling of dread crept back into my chest again, and I crawled out of bed, making myself towards our bedroom door. I stopped for a second, listening, but all I could hear was my heart pounding and my breath coming out in short breaths. I opened the door, and popped out into the hallway, bracing myself in case Kelsey was on her way back from the bathroom.
 
@@ -82,7 +81,7 @@ As I drove faster, my phone dinged. I slammed on my brakes and grabbed my phone,
 
 “Hey honey, I’m not sure if this will reach you…I think I gave you the wrong house number! It was 37, not 47. I’m sure you figured it out by now though when you saw the place and couldn’t get in, I know it’s been awhile since your uncles were there! Love you girls, I’ll see you when you get home.” My mom’s voice echoed in the car as my phone slid out of my hand onto the floor below me. Tears streamed down my face as my eyes glanced out the window, recognizing a mailbox on the left side. The numbers read 47.
 
---------------------------------------------------------------------------------------------------------------------------
+*************
 
 This was five years ago. My best friend and sister had been murdered, by some unknown assailant that they still have yet to catch. When the police finally arrived, I was in an uncontrollable state. I’m the one who hadn’t listened to my gut and taken the time to realize we were in the wrong house. They found Kelsey hanging in the same spot I had left her, and they found Tara’s body face-down, floating out in the water. I don’t even think that’s where he killed her though, because I never figured out where her screams came from. To this day, I’ve always questioned. Why me? Why did he leave me alive? The only sign I ever received to explain it to me was a year to that date, I came out from class to find a note on my car. It read, **I always like to leave my favorite alive. :)**
 
