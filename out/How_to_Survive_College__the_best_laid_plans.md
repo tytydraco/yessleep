@@ -203,3 +203,5 @@ And for at least two of them, they seemed to have something against Grayson.
 They don’t like Grayson because he [replaced](https://alderrayne.com/) [them](https://www.reddit.com/r/goatvalleycampgrounds/).
 
 Update: HOLY SHIT Y’ALL BATTERIES EXPLODE WHEN YOU SET THEM ON FIRE
+
+[Next post](https://www.reddit.com/r/nosleep/comments/1d7nnmh/how_to_survive_college_a_force_to_be_reckoned_with/)
