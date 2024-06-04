@@ -26,9 +26,9 @@ I walked past several pointless stores where young store clerks mindlessly stack
 
 I quickly checked my cell phone, and the time was indeed 5.30.  
 
-I continued on tentatively. I had this nagging feeling that something wasn’t quite right. I passed a small drugstore, and my attention was drawn to a young, disheveled homeless guy with a large rucksack slung over his shoulder. He clutched his back as he picked up a packet of bandages from a shelf. He turned and stared at me. We locked eyes for a little too long. It wasn’t sexual. I just knew that I had seen him before but I couldn’t remember where or when. 
+I continued on tentatively. I had this nagging feeling that something wasn’t quite right. I passed a small drugstore, and my attention was drawn to a young, disheveled homeless guy with a large rucksack slung over his shoulder. He clutched his back as he picked up a packet of bandages from a shelf. He turned and stared at me. We locked eyes for a little too long. It wasn’t sexual. I just knew that I had seen him before but I couldn’t remember where or when.
 
-I broke eye contact and moved on. I didn’t have time to hang around. I needed to find someone who could help locate my car. I needed to get to my niece’s birthday party.  
+I broke eye contact and moved on. I didn’t have time to hang around. I needed to find someone who could help locate my car. I needed to get to my niece’s birthday party. 
 
 I looked up to the second level and saw the holy grail, an information desk. I stepped onto the escalator but they stopped working, so I was forced to walk up. My legs felt heavy and my head continued to pound. The escalator on the other side worked fine. Shoppers whizzed past me, looking straight ahead, their eyes glazed over.
 
