@@ -66,7 +66,7 @@ Incisions had been made just above their hips, and those tubes from the machines
 
 There had also been metal buckets placed below their exposed buttocks. That’s when I realized the smell had not been garbage and waste, but excrement.
 
-Some of patient’s bodies hadn’t been heavy at all. Loose skin from their faces and limbs hung below the chairs, and it continued on a bit before stopping at their shoes. 
+Some of the patient’s bodies hadn’t been heavy at all. Loose skin from their faces and limbs hung below the chairs, and it continued on a bit before stopping at their shoes. 
 
 On the other end of the room, there was that same brown door. Nurses came in and out carrying large trays of fast food, desserts, and several packs of soda cans.
 
