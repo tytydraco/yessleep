@@ -6,13 +6,13 @@ This time it was different though.
 
 As I sorted by 'lowest price first,' I saw a listing uploaded twelve seconds ago. An image of an alluring, modern home flashed before me and I barely caught a glimpse of the price before the post vanished. The mental image I snapped convinced me that the price was £120 a month. Considering the lowest price I had seen before then was £700, I put it down to either a technical glitch or a mental glitch caused by my sleep-deprived mind.
 
-I just couldn't get the image of that house out of my mind though. It was a romantical obsession. The house was plastered in my vision every time I closed my eyes. I would spend every waking second thinking about it and every tireless night dreaming about it. I just hoped what I had seen was real or whether this desperation was driving me to insanity.
+I just couldn't get the image of that house out of my mind though. It was a romantical obsession. The house was plastered in my vision every time I closed my eyes. I would spend every waking second thinking about it and every tireless night dreaming about it. I didn't know whether what I had seen was real or whether this desperation was driving me to insanity.
 
 There was so much more about the house I wanted to discover. Where was it located? Was the rent really £120 a month? How many people share it? These were all questions that would remain unanswered unless I could see that house again.
 
 My father had been fighting an ongoing battle with cancer for four years. Between the countless chemotherapy treatments, we were starting to realise he was fighting a losing battle. Before his diagnosis, he worked as a car salesman. We wouldn't see him much as he was committed to putting food on the table for his wife and eight children. That responsibility had now been passed on to my two brothers. I helped out where I could but I knew moving out would be a huge financial burden lifted from their shoulders. It would also let me escape the stirring pot of depression engrained in the house.
 
-I was beginning to lose hope though. Perhaps I was destined to inherit the pain and suffering from my parents and continue living a life of hope. I was thinking about whether I really was losing my mind over a house or if it was more the prospect of starting a new life. Weeks of my laborious life continued and my daily scrolling never amounted to anything more than disappointment.
+I was beginning to lose hope though. Perhaps I was destined to inherit the pain and suffering from my parents and continue living a life of stress. I was thinking about whether I really was losing my mind over a house or if it was more the prospect of starting a new life. Weeks of my laborious life continued and my daily scrolling never amounted to anything more than disappointment.
 
 Then one night it happened. I saw it. The same exact image. The same image that had burrowed it's way into my brain since I first saw it. It was real!
 
@@ -48,4 +48,4 @@ She finished off her coffee and let out a huge sigh as she reclined back into he
 
 We parted ways and I headed home and crashed down onto my mattress which felt a little bit softer than it always had. My siblings cries rang through my ears like a familiar lullaby. I pulled out my phone and had a message from Laura. "Thanks for coming and hearing my story. I really enjoyed today. You free next week? x"
 
-I went to my photos app and started scrolling through the same images that I had spent so long obsessing over. I admired the picture of the house one last time and reluctantly sent it to the digital landfill. Then my phone started ringing and it seemed to be vibrating with a strange urgency. I recognised the number immediately as it was the same one in the image of the property description box on my screen.
+I went to my photos app and started scrolling through the same images that I had spent so long obsessing over. I admired the picture of the house one last time and reluctantly sent it to the digital landfill. Then my phone started ringing and it seemed to be vibrating with a strange urgency. I recognised the number immediately as it was the same one from the image of the property description on my screen.
