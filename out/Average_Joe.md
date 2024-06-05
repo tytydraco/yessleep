@@ -36,9 +36,9 @@ As said, my parents had a word with me about imaginary friends, and how I was to
 
 I of course paid them no heed. 
 
- 
 
-*Later that night, I opened the note. It had barely legible scrawl, unlike Mrs. Smith who had perfect handwriting, which I was sorely jealous of. This is what it contained:* 
+
+Later that night, I opened the note. It had barely legible scrawl, unlike Mrs. Smith who had perfect handwriting, which I was sorely jealous of. This is what it contained:
 
 *If you are reading this, I may be able to save you. I need you to follow these guidelines:* 
 
@@ -75,11 +75,7 @@ Xavier made jokes after that. But they were different, not funny. But Ms. Smith 
 
 I dug through my backpack and eventually found the note from the man. It had been a few weeks now, and I hadn’t destroyed it. 
 
-
-
 *I have proof, so that you will believe me. Look at your classmates. Think about their defining features, whether physical, social, etc. They will change.*
-
-
 
 Sure enough, it had happened.  
 
