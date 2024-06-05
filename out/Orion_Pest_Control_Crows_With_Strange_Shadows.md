@@ -335,7 +335,7 @@ The stakes were getting way too high. I couldn't do this. But then what? The Hun
 
 Maybe there was another way and I just couldn't see it. But desperation has a way of messing with your head. 
 
-“If I agreed to this,” I started, knowing that I was probably digging my grave even deeper. “And I haven't agreed to anything. just to be clear. *If* I did this, I'd need the assurance that you won't send your crows or hounds or any others that serve the Wild Hunt after those that I care about. That includes my colleagues and me, for that matter. Like you said, this is between us two.”
+“If I agreed to this,” I started, knowing that I was probably digging my grave even deeper. “And I haven't agreed to anything, just to be clear. *If* I did this, I'd need the assurance that you won't send your crows or hounds or any others that serve the Wild Hunt after those that I care about. That includes my colleagues and me, for that matter. Like you said, this is between us two.”
 
 The mechanic chuckled and I heard him shift again. “You're feeling awfully bold tonight, aren't you?” 
 

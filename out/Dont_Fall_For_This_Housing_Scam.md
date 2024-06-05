@@ -46,6 +46,6 @@ Laura explained that she had done some digging. She found out about the house's 
 
 She finished off her coffee and let out a huge sigh as she reclined back into her seat.
 
-We parted ways and I headed home and crashed down onto my mattress which felt a little bit softer than it always had. My siblings cries rang through my ears like a familiar lullaby. I pulled out my phone and had a message from Laura. "Thanks for coming and hearing my story. I really enjoyed today. You free next week? x"
+We parted ways and I headed home and crashed down onto my mattress which felt a little bit softer than it always had. My siblings cries rang through my ears like a familiar lullaby. I pulled out my phone and had a message from Laura. "Thanks for coming and hearing my story. I really enjoyed today xx"
 
 I went to my photos app and started scrolling through the same images that I had spent so long obsessing over. I admired the picture of the house one last time and reluctantly sent it to the digital landfill. Then my phone started ringing and it seemed to be vibrating with a strange urgency. I recognised the number immediately as it was the same one from the image of the property description on my screen.
