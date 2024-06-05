@@ -175,3 +175,6 @@ As Drake was putting them away, I tried calling for help only to see that I coul
 None of my browsers or other apps could make a connection. Luckily, the Play Store was working fine and I downloaded a VPN. Granted, it’s the free version which makes my internet torturously slow. At least it’s enabled us to have some connection to the outside world and it’s also how I’m able to post all this. Right now it’s a little after midnight and we’re about to crash.
 
 Tomorrow I’ll explain Drake’s side of things and hopefully, we have a way out of here. If past experiences are any indicator, though, I don’t think I [should](https://www.reddit.com/r/StoriesFromRose/) be [optimistic. ](https://www.threads.net/@rose_black2222)
+
+  
+[https://www.reddit.com/r/nosleep/comments/1d8fl3m/out\_of\_the\_apartment\_part\_2/](https://www.reddit.com/r/nosleep/comments/1d8fl3m/out_of_the_apartment_part_2/) (And the horse shit continues)
