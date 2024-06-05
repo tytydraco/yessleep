@@ -1,7 +1,5 @@
 *This story may seem a bit outlandish, insane even. But when you’re a scientist at a lab that no one even knows about and a strange man in a tube is begging you to tell their story and screaming to get it out to the public, you feel obliged to tell it. Now, I know this may result in my immediate termination, if not worse, but honestly? I don’t quite care. If there is even a grain of truth to this story, people deserve to know. I’d also like to tell you that I am no writer, so if this isn’t great, I do apologize.* 
 
-
-
 “And for the missing person reports that date back many years, police still have not found any leads to the odd disappearance of multiple people around our little town of Welks, Utah. If police find any new leads, I, Nathan White, will be the first to give you the news.” Nathan White is a small town reporter who is finishing up his final words of the day's news. Charlie Akins, Nathan’s colleague and long time friend is manning the camera. Nathan is your typical guy who never gives up and has the determination of a beaver building its dam. He will take any story he is given and will do his best to make it the best. Charlie on the other hand is about as outgoing as a sloth and so paranoid he can’t go anywhere without thinking the worst, but will never leave his friend’s side. 
 
 Soon after the two wrap up, Charlie gets a call from their boss who claims to have a new story they could cover. Nathan places their gear in the news van as Charlie walks over. With the way Charlie nervously walks over, Nathan knows something is odd. “So what’s the deal? We got a story or what?” Charlie gets in the driver seat of the van without saying a word and Nathan quickly follows, getting into the passenger seat. 
@@ -31,8 +29,6 @@ Nathan is awestruck by the sight of a large sign on the outer brink of a long dr
 **“WE EXPERIMENT FOR THE SAFETY OF OUR PEOPLE”**
 
 **SPECIAL ACCESS IS NEEDED BEYOND THIS POINT**
-
-
 
 Although it was obvious by the city-sized dome in the middle of the desert, this sign fully confirmed they were in the right place. They continue down the driveway until they finally reach a parking lot that lies in front of the only noticeably cube-like design of the entire facility. The parking lot was small, or at least it seemed that way based on how huge the building was. 
 
@@ -72,43 +68,23 @@ As they walk in, they split up. Charlie searches the living room and kitchen. Na
 
 Nathan finds Charlie holding an old yellowed stack of papers. Charlie hands them to Nathan without uttering a single word. On top is an old document that reads:
 
-
-
 **Aug. 17, 1953: Testing is ready to commence for Project 718/Operation “SUPER” in the environment dome. However, there are no volunteers for testing just yet.**
-
-
 
 **Aug. 18, 1953: Chief scientist, Dr. Maximus Woods, has volunteered as prime subject under the name: Subject Zero. All tests are now being prepared.**
 
-
-
 **Aug. 20, 1953: Day 1 of testing has started. The Super Serum has been injected into Dr. Maximus Woods A.K.A Subject Zero at approximately 12:53 A.M. It has been hours and nothing has happened thus far.**
-
-
 
 **Aug. 25, 1953: Subject Zero has gained a slight form of telekinesis. Small signs of abnormally quick healing factors have also appeared, taking only a couple of hours to fully heal mid-large wounds made on the subject's body. Tests, so far, seem to be successful with no side effects.**
 
-
-
 **Aug. 30, 1953: Subject Zero has had impressive changes with easy to control telekinesis, rapid healing, and even large amounts of strength.**
-
-
 
 **Sep. 5, 1953: Over the past week, Subject Zero has been undergoing small changes in personality, possibly a slight side effect of the serum. This will be monitored.**
 
-
-
 **Sep. 10, 1953: Subject Zero has become rapidly unstable, showing major signs of insanity. Subject does not seem to realize the environment is simulated and treats test mannequins placed around the environment dome as if they were living beings.** 
-
-
 
 **Sep. 17, 1953: Multiple teams have been sent in to try and allow real communication with living beings. However, all teams have been killed by Subject Zero. He also does not allow anyone to retrieve the bodies and it is unclear what he does with them.**
 
-
-
 **Oct. 3, 1953: Subject has become far too unstable to continue any further testing. All research will be abandoned but a small team will remain in the overseer’s office. For full safety measures, this team has agreed that if the facility must be destroyed then they will die with it. This was the intended way in case of emergency. If the facility is self-destructed, no one inside will survive.**
-
-
 
 “What the hell…” Nathan says fearfully. 
 
@@ -116,13 +92,9 @@ Nathan finds Charlie holding an old yellowed stack of papers. Charlie hands them
 
 The newspaper article reads:
 
-
-
 **October 3, 1953**
 
 **Today, the government-run facility, Envirodome, had been shut down after multiple men had been slaughtered at the hands of the company’s very own test subject, Subject Zero. The few men who made it out alive today could not speak of or about the tests done but we were told that their subject is still inside the facility. Test Subject Zero was locked inside only as a safety protocol but many wonder, how long will he remain there?**
-
-
 
 Upon this discovery, Nathan stops to think and wonders if he screwed up by taking on this story to cover. Nathan, being himself, tries to lighten the mood but before uttering a single word, he is cut off by a rough and deep voice in the distance. The voice now being the only thing to focus on, Nathan and Charlie look out the front windows of the old house and spot the figure of a man playing baseball with a mannequin.
 
@@ -158,15 +130,9 @@ After a moment of searching, Nathan notices multiple papers scattered around all
 
 **The project was abandoned and only a few escaped but one former employee of Envirodome decides to speak up about the events. “The main doors may have been closed but they sadly were not locked,” the scientist tells our interviewer, “Oddly, the doors were made to allow people in but not back out unless you went to the overseer’s office and unlocked the main doors. All this means, anyone who decides to go inside without knowing this info will be trapped forever with a psycho maniac. Fortunately, Subject Zero’s insanity affected his mind so badly he doesn’t even realize he’s in a fake little world that’s specially made for him.”**
 
-
-
 A little further down the same newspaper article it reads:
 
-
-
 **The former Envirodome employee continues. “All documents will state that Dr. Maximus Woods volunteered to be Subject Zero, but that just isn’t true. We tricked him. You see, we needed someone and Dr. Woods was just this weird scientist that no one really liked. We convinced him that if he volunteered that he would be a hero. Someone who could save our world if the serum worked. He was so happy and we just laughed at him but knew we needed him for the tests. As soon as everything began, it all ended. As he became more and more deranged, he also became more determined to make the serum work. He eventually took living people he kept with him and made his own serum to try and perfect it. But it never worked. It just leads to each person to become crazier and far quicker. He ended up just killing everyone that the serum didn’t work on. God knows what he does to any poor soul that innocently walks into that building and gets trapped.”**
-
-
 
 With this new knowledge, Nathan knew he fucked up by coming into this beautiful hell. Now filled with dreaded emotions, he gets onto his feet and sets onward through the hallway. As he reaches the beginning of the hallway, the front door is unexpectedly busted down by an already all too familiar figure, Subject Zero.
 
@@ -260,4 +226,9 @@ Nathan looks in confusion but quickly realizes he’s about to have to accept hi
 
 Charlie finally snaps and is engulfed in pure raging insanity. He lunges at Nathan but before he reaches him, Nathan, with teary eyes, slams the door onto his friend, turns, and begins running out into the seemingly vast wilderness. As he runs, Nathan hears the cries of a dozen men and women as they get ripped apart. Knowing that among them is his best friend, Nathan begins to cry as he continues to run away from his previous hell.
 
-This is where the man in the tube, now known as Nathan White, stops due to bringing up too many memories. He's willing to finish his story with me but only if I get this part out to the world. If enough people care about his story, then he will finish it. Otherwise, he will give in to his new life in a tube. I'm far too curious to give up on his story so I hope people will care. For now, goodbye. 
+This is where the man in the tube, now known as Nathan White, stops due to bringing up too many memories. He's willing to finish his story with me but only if I get this part out to the world. If enough people care about his story, then he will finish it. Otherwise, he will give in to his new life in a tube. I'm far too curious to give up on his story so I hope people will care. For now, goodbye.
+
+  
+PART 2:
+
+[https://www.reddit.com/r/nosleep/comments/1d8czbv/im\_a\_scientist\_and\_a\_man\_in\_a\_tube\_is\_telling\_me/?utm\_source=share&utm\_medium=web3x&utm\_name=web3xcss&utm\_term=1&utm\_content=share\_button](https://www.reddit.com/r/nosleep/comments/1d8czbv/im_a_scientist_and_a_man_in_a_tube_is_telling_me/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)

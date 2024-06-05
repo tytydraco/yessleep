@@ -162,7 +162,7 @@ I'm giving myself a few months to figure out what to do. I’ve mostly been stay
 
 Every now and then I go swimming at the nearest public pool late at night. Jumpy always finds a way through the roof. We swim together.
 
-Through Jumpy I’ve been learning more about my late twin sisters. They used the Jumpy a lot to get what they wanted.
+Through Jumpy I’ve been learning more about my late twin sisters. They used Jumpy a lot to get what they wanted.
 
 But I don't need anything excessive. I don't want money, I don't want fame, I just want to live somewhere peacefully. Maybe teach synchronized swimming. If I can use Jumpy to arrange that—it's enough for me.
 

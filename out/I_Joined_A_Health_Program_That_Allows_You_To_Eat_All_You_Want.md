@@ -34,7 +34,7 @@ As much as I would love to say that my future downfall would be for not reading 
 
 May 7th…
 
-When I arrived at the building, I noticed that the parking lot had been entirely filled up. I ended up parking at a local hiking trail on the other side of the street. When I made my way towards the location, a three story bricked building surrounded by spruce tress, I took note of the vehicles. While some of them appeared okay when it came to cleanliness, others had not. They were covered in thick coats of dust, along with the several dried and white droppings of bird shit.
+When I arrived at the building, I noticed that the parking lot had been entirely filled up. I ended up parking at a local hiking trail on the other side of the street. When I made my way towards the location, a three story bricked building surrounded by spruce trees, I took note of the vehicles. While some of them appeared okay when it came to cleanliness, others had not. They were covered in thick coats of dust, along with the several dried and white droppings of bird shit.
 
 When I entered the building, I filled out a form at the front desk, and a male worker in scrubs wrote me a room number: 213. I found the room after going up to the second floor. I’m surprised I hadn’t taken note of how isolated the place felt. There was also a loud flushing sound from beyond the walls. It was the kind of noise you’d hear behind the door of a public restroom when you walked by.
 
