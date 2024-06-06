@@ -1,4 +1,4 @@
-I had always wanted to move out of my parents' house. I am a child of eight and not having to come home to my siblings wailing, mum and dad screaming and the strain of sharing two bathrooms between ten people was an everlasting, yet unrealistic dream.
+I had always wanted to move out of my parents' house. I am one of eight and not having to come home to my siblings wailing, mum and dad screaming and the strain of sharing two bathrooms between ten people was an everlasting, yet unrealistic dream.
 
 One day, after working my routine eleven hour shift at work, I clambered up the crusted carpet floors and collapsed onto my rigid mattress. It was a ritual at this point. I had come to terms that the only accommodation I could afford would be a house share. I typed 'cheapest places to rent near me' into my browser app and as usual, I was disappointed to see that the potential options were neither near me nor were they cheap.
 
