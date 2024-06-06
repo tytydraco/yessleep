@@ -1,6 +1,6 @@
 Life in Frost Hollow had always been fairly normal, up until a few days ago. My husband and I had small issues and arguments, like any couple, but there was no sign of the severe transformation that would escalate into such gruesome, nightmarish scenes.
 
-I always woke early. The day that it all started, I rose around dawn to see the muted gleam of an infant sunset shining through the window. I looked over to Jack’s side of the bed, seeing it empty. It appeared unslept in, which I found strange, as he worked the night shift and would nearly always be home and in bed by 3 or 4 AM. 
+I always woke early. The day that it all started, I rose around dawn to see the muted gleam of an infant sunrise shining through the window. I looked over to Jack’s side of the bed, seeing it empty. It appeared unslept in, which I found strange, as he worked the night shift and would nearly always be home and in bed by 3 or 4 AM. 
 
 But ever since he had found our newborn daughter dead in her crib, he had been acting strange, disappearing at random hours and occasionally bringing a “friend” home. The people he brought were always young, glassy-eyed guys I had never seen before, who often followed him around in an eerie silence like ducklings following a mother duck.
 
@@ -118,7 +118,7 @@ I had nearly forgotten about Friend, the strange shape-shifting creature who wor
 
 The limb went straight through Bones’ heart. Bright red arterial blood immediately began flooding out as he looked down in shock, still holding the pistol in one hand. He gurgled, dropping the gun and falling forward, dragging the arm down with him. I had the baseball bat in my hands. With all of my strength, I swung it at the creature’s head. It made contact with a fleshy thud. The soft, yielding flesh of Friend cratered under the impact. Friend made a soft hissing sound as the wound bubbled and danced as if a nest of mice were about to emerge.
 
-I leapt for the pistol. A choked sound rasped from Bones’ trembling lips. The adrenaline rush made me feel no pain as I landed on the hard, cracked road, rolling as I landed. I felt the cold metal of the pistol’s grip under my hand. I raised it, feeling the stab wound Friend had given me earlier rip back open. Fresh streams of blood soaked my clothes as I fired, dripping from the long slash along my arm.
+I leapt for the pistol. A choked sound rasped from Bones’ trembling lips. The adrenaline rush made me feel no pain as I hit the hard, cracked road, rolling as I landed. I felt the cold metal of the pistol’s grip under my hand. I raised it, feeling the stab wound Friend had given me earlier rip back open. Fresh streams of blood soaked my clothes as I fired, dripping from the long slash along my arm.
 
 The top of Friend’s head exploded, the body transforming before my eyes into a black, spidery humanoid with a single spinning red eye in the center of its pointed skull. Dark blood the color of asphalt leaked down its naked, glossy body. It had no mouth or nose that I could see, but fine silvery hairs covered its jointed arms and legs. The eye widened in pain as it stared into the barrel of the pistol, one blade-like arm still caught in Bones’ chest. I remembered the transmission that had come through the radio and aimed for the center of the spinning eye.
 
@@ -130,7 +130,7 @@ When the first of the bullets pierced his eye, I saw a blinding explosion come f
 
 When I could see again, I found only a smoking crater in the spot where Friend and Bones had stood. Gray smoke hissed from the center of it. I knelt down, seeing a dark, jelly-like substance covering the jagged patches of concrete. I quickly realized it was flesh, though whether human or alien, I couldn’t say.
 
-Shell-shocked, I stumbled over to Bones’ body, feeling around his waist until I felt the cold metal of an extra magazine. I had emptied all the bullets in the gun fighting Friend. To my dismay, I realized Bones only had one extra magazine.
+Shell-shocked, I stumbled over to Bones’ melted pants, feeling around his waist until I felt the cold metal of an extra magazine. I had emptied all the bullets in the gun fighting Friend. To my dismay, I realized Bones only had one extra magazine.
 
 Feeling sick and weak, I stumbled away, heading towards downtown, hoping against hope that I would find some solace or answers there.
 
