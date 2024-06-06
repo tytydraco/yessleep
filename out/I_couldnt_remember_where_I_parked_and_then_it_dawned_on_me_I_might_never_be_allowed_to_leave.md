@@ -64,7 +64,7 @@ A hand grasped my hand and pulled me outside. I desperately sucked in oxygen. I 
 
 “Little breaths, little breaths,” he tells me.
 
-His presence made me calmer, and I breathe in and out. I know him, but how? I quickly rose to my feet and looked him straight in the eye.
+His presence made me calmer, and I breathed in and out. I know him, but how? I quickly rose to my feet and looked him straight in the eye.
 
 “Who are you?” I bluntly asked.
 
