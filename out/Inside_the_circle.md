@@ -199,4 +199,3 @@ I'm in a hospital room now, waiting for my EKG, but I just wanted to get this do
 When/If I hike again, I'll be paying attention to the signs from now on. 
 
 You never know what you might find just below the surface.
-
