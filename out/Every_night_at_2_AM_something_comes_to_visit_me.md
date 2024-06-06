@@ -1,0 +1,39 @@
+I recently moved back home, to Appalachia. Kentucky, specifically. Well, I've actually never been to KY in particluar - I'm a Virginia boy. But after years of scrimpin and savin and denyin myself all the little pleasures that make life worth livin, I managed to buy a little piece of land outside of town - and a trailer in pretty good condition, too. I even had enough cash left over to afford all of those annoyin connection fees, for electricity and water and whatnot. Now, some folks might look down on a trailer, but I don't need a lot of space, and with all my basic utilities hooked up, it's really no worse than an apartment, although property tax is a lot cheaper than rent. But I digress.
+
+I didn't just move out here because I missed the mountains and the woods. See, I used to live in the city - Las Vegas. My apartment was a shithole, and pourin drinks for all the poor saps who drained their wallets at the casinos was my job. I swear, there ain't many lines of work more depressin than that of a Las Vegas bartender. Kept me from ever riskin a dime at the tables, myself.
+
+But somethin unusual happened one night. This old man came in - black man, I gotta assume in his 70s, nice clean suit and hat. But his hands and his face were absolutely filthy, guy looked like he'd been diggin ditches all day. He sat down with a sigh, and I started to pour him a beer. Well he looked up, real sharp, and asked for a shot of whiskey. I obliged, of course. But seein as I'd already poured the beer, and figurin he must have had a hell of a day, I slid it over to him anyways. "This one's on me," I said, "you look pretty beat."
+
+Well, he smiled, real big grin - and his teeth, unlike his face, were damn near perfect. Pearly white, practically shinin in the dimly lit barroom. He thanked me, and drank it down, all at once, before reachin for his shot of Jack and downin that, too. He turned to me, ordered two more. Again I obliged, and as I did, his grin suddenly went away. He asked me what was wrong with me - I was about to apologize, sure I must've spilled or somethin. 
+
+But as I looked over at him, he showed no sign of irritation, or anger. I knew - and I'm not quite sure how I did - that his question was a little more general than that. He was asking me what was wrong with ME, what was wrong with MY life. And his countenance was that of a businessman, even under all the filth and grime. The alarms in my head started to go off - I got real nervous, all at once. And I said the first think that came to mind.
+
+"I guess I'm pretty lonely."
+
+It was the truth, of course. I'd made no real friends since moving to that godforsaken city, I'd been too busy tryin to survive at first, and presently, tryin to get out. No girl, no buddies - just me, in my dingy apartment, working in this dingy bar, dreaming of being anywhere but here. His smile came back, it looked as if a load had been lifted from his shoulders, and he downed both shots of whiskey in quick succession. He paid for his drinks, stood up quick, and tipped his hat. Wordlessly, he strode out the door, leaving me not a little bit unnerved.
+
+Now before I go any further, I gotta say, there was one more peculiarity to this old fella. We spoke, and I remember the gist of what he said. I remember what he ordered, I remember him thankin me - but no matter how hard I try, I can't seem to remember his actual words. Strange as that is, it pales compared to what happened next.
+
+That night, as I fell asleep, I dreamed of a girl with golden hair, beautiful blue eyes, and a brilliant smile. Not a dirty dream or anythin like that - we sat and talked, and laughed. Her voice was like birdsong, and she smelled of peaches. When I woke up, I felt refreshed, and happy. Well, that feelin stayed with me, right up until about the time I went into work.
+
+I was standin at the counter, cleanin one of the glasses, when I realized that the whole place was empty. I checked the clock - 8:32PM, not exactly late, but we'd usually have at least a few customers by now. I was ready to write it off as a slow night, when a voice called out to me, askin for a shot of whiskey. I turned, and the man from the previous night was sitting in the same seat he'd been last night. He smiled real big, and he was still covered in dirt and grime. I poured his shot, and I wondered to myself how he hadn't been bounced at the door. I slid it over and he drank it down.
+
+Now I still can't remember his words, but I know he asked me if our business was settled. If I was satisfied. My heart went a little cold, and before I could stop myself, I nodded real vigorously. He laughed... and what a laugh it was. It didn't really seem to come from his mouth, or anywhere for that matter. He said somethin, about how a young man like me shouldn't be lonely... and he left. He paid first, of course. Exact change.
+
+Well I went home, fairly shaken, at the end of the night. Not a single soul walked through those doors, all night long. I keep a bottle of scotch in the kitchen, for special occasions and sleepless night, and I poured myself a couple shots. I'd calmed my nerves a little, started makin excuses in my head. I went into the shower next, turned it up real hot. Closed my eyes as I washed my hair, and when I did, I felt a pair of soft hands glide down my chest. I heard a gentle voice in my ear, and felt a pair of soft hands glide down my chest. I got spooked, slipped backwards, and it felt like I slipped into somebody else, I swear. But when I opened my eyes, I was alone. Of course I was.
+
+But it smelled like peaches, and I started to feel real sick.
+
+I rinsed myself off quick and got out, and as I did, I felt terribly tired. Took all my energy to dry off and crawl into bed. Well, I started to dream, real quick, and the girl was there again. But this time, she was sitting at my table, glaring at me, rubbin the back of her head. I started to speak, but I shut up real quick. See, I felt the cool, sharp, and very impartial blade of a rather fuckin large knife pressed against my throat. And the hand that held it was absolutely filthy. The man's voice, I heard it again - and for the first time, I could remember his words. 
+
+"You better be real careful, boy. Strike one."
+
+I looked at the girl with the golden hair, scowling at me. And I woke up.
+
+When I crawled out of bed, I was shaking. My nausea had gone into overdrive, and I ran into the bathroom, entirely emptying my stomache into the toilet. My neighbor must've heard me, because he banged on the wall and told me to keep it down. I wiped my mouth off with toilet paper, and went to check in the mirror, make sure I was fully cleaned off. I damn near shouted when I did - along my throat, where I know damn well there didn't used to be no mark of no kind, there was a long, old, faded scar. Like somebody had slit my throat, and I'd lived to tell the tale. I didn't get any sleep that night.
+
+I called into work, told em I was quitting. My boss was fuckin furious, but I hung up on him. Packed my things, loaded em into my old truck, and hit the road. Spent a bit of money on sleepin pills - the kind that make it so you don't dream, y'know. And I went home, to my mama. She weren't happy about it but I told her I just needed a couple weeks, that I was buyin my own land - and I already told you how that ended.
+
+I'm out of sleepin pills. Tonight, I'm gonna let myself dream again. I can't just drug myself every night, right? And hell - I never saw that old man till I came to Las Vegas, so maybe now that I'm out... everythin might just go back to normal. I'm not sure. I'm too nervous to fall asleep. So here I am, tellin my wild tale to you folks.
+
+I wonder if I'll have more to tell, come mornin.
