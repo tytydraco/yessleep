@@ -254,4 +254,7 @@ Even then, we survived by the skin of our teeth. Now it was Me, Drake, Van, and 
 
 “So we've been staying at a hotel,” I said, averting my gaze from the aftermath of the carnage. “Mind driving us there?”
 
-Roscoe, still in shock, nodded. Then we got in his Hummer and rode in silence. That brings me to now. Trying to keep the peace between Roscoe and Van has been nothing short of migraine-inducing. Oh well, hopefully, we'll be out of town tomorrow so we won't have to deal with this anymore.  Until then, I hope we can keep from [losing ](https://www.reddit.com/r/StoriesFromRose/)our [heads](https://www.threads.net/@rose_black2222).
+Roscoe, still in shock, nodded. Then we got in his Hummer and rode in silence. That brings me to now. Trying to keep the peace between Roscoe and Van has been nothing short of migraine-inducing. Oh well, hopefully, we'll be out of town tomorrow so we won't have to deal with this anymore.  Until then, I hope we can keep from [losing  ](https://www.reddit.com/r/StoriesFromRose/)our [heads](https://www.threads.net/@rose_black2222).
+
+  
+[https://www.reddit.com/r/nosleep/comments/1da25dz/out\_of\_the\_apartment\_part\_4/](https://www.reddit.com/r/nosleep/comments/1da25dz/out_of_the_apartment_part_4/)  (Not the ideal situation, I can tell you that)
