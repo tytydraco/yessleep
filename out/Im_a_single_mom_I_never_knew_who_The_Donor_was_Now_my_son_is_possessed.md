@@ -166,4 +166,4 @@ But it was too late...
 
 "And what shall we do with her?" The thin man asked Cassius.
 
-"Get her a gown, and prepare her for service." The biological father of my son decreed, as they carried me off, screaming, into the darkness.
+"Get her a gown, and prepare her for service." The biological father of my son decreed, [as they carried me off, screaming, into the darkness.](https://www.reddit.com/r/nosleep/comments/1danrq3/im_a_single_mom_i_never_knew_who_the_donor_was/)
