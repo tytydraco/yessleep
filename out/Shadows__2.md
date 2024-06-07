@@ -1,12 +1,12 @@
 As I was writing the last part, I remembered this story from my childhood. As a kid, I was always scared of the dark. My mom, being aware of this, always kept a night light on somewhere in my room. I couldn’t sleep without it no matter how hard I tried. It was a comfort knowing that no matter what, when I woke up I could see everything in my room.
 
-This story happened when I was 8 years old. We had just moved to Oregon because my Dad had recently got a job with a local marketing agency. This was great for our family because we were rather on the poor side and didn’t have much to our name. This Job was a huge step in the right direction. The house we moved into was your average 2 story family ranch style house out in the middle of a clearing surrounded by woods.
+This story happened when I was 8 years old. We had just moved to Oregon because my Dad had recently got a job with a local marketing agency. This was great for our family because we were rather on the poor side and didn’t have much to our name. This job was a huge step in the right direction. The house we moved into was your average 2 story family ranch style house out in the middle of a clearing surrounded by woods.
 
 I was fine being surrounded by woods because that meant that, during the day, I could go out there either pretend to have stick sword fights with no one or build a stick fort that I was the sole leader of. There was, however, an area of the woods I was not allowed to enter. My dad told me, “Under no circumstances should I ever see you near that part of the woods.” When I tried to pry him for information as to why, the best answer he could give me was “I want to be able to see you safe at all times.”
 
 From our kitchen, you could see the woods from a window overlooking that area. I understood and promised him that I would stay where he could see me, but a nagging feeling kept coming over me as to why I wasn’t allowed to go back to that area.
 
-I had made a friend at my new school in the couple of months I had been there. He was my best friend, and his name was Aaron. Now if you know anything about Aaron and I, you would know just how nerdy we can be. We both like Star Wars, Jurassic Park, etc.  But I introduced Josh to the wonderful world of the woods. I taught him every broken form of lightsaber combat I knew, and the best way to conquer a fort that no one wanted. I did everything with Aaron. So when my parents were going out for dinner, I asked them if Aaron could stay at the house as they were out. They reluctantly agreed and left.
+I had made a friend at my new school in the couple of months I had been there. He was my best friend, and his name was Aaron. Now if you know anything about Aaron and I, you would know just how nerdy we can be. We both like Star Wars, Jurassic Park, etc.  But I introduced Aaron to the wonderful world of the woods. I taught him every broken form of lightsaber combat I knew, and the best way to conquer a fort that no one wanted. I did everything with Aaron. So when my parents were going out for dinner, I asked them if Aaron could stay at the house as they were out. They reluctantly agreed and left.
 
 I called Aaron and told him that my parents had given me the go ahead to have him over. He arrived shortly after with his PS3 and more games than I had ever seen in my life. Between video games, snacks, and board games, we did enough activity for 30 people our age.
 
@@ -48,7 +48,7 @@ The noises didn’t stop though. I shined my flashlight in the direction the noi
 
 Silence.
 
-“This is funny man, cut it out.”
+“This isn’t funny man, cut it out.”
 
 Again, silence.
 
