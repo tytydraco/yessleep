@@ -1,4 +1,4 @@
-I never thought I'd be writing this. I never thought something like this could happen to me; I’m just a person living in the Houston suburbs. But after what I experienced, I feel like I have to share my story and warn others about the dangers of the Ouija board.
+I never thought I'd be writing this. I never thought something like this could happen to me, I’m just a person living in the Houston suburbs. But after what I experienced, I feel like I have to share my story and warn others about the dangers of the Ouija board.
 
 My curiosity about the Ouija board began after watching an old SML episode where Cody, Joseph, Jr., and Cody's boyfriend, Ken, used a Ouija board. I knew it was just a show, but it sparked my interest in trying it out myself.
 
@@ -8,7 +8,7 @@ I decided to try using a Ouija board alone, even though I knew it wasn't a good 
 
 I had a feeling it might be possible to contact fictional characters through a Ouija board, and I wanted to test it. I decided to summon Ryomen Sukuna, the King of Curses from Jujutsu Kaisen, thinking it would be interesting and fully knowing the risks. Sukuna is a demon, and I thought that if I were careful with my words, I would be fine and avoid being cursed.
 
-When I asked if anyone was there, the board said yes. I felt extremely cautious. My mind froze. Suddenly, I couldn’t think straight. My thoughts were no longer my own. I heard a voice in my head, chilling and unmistakable: “Hello, mortal.” When I asked if he was in my room, the board said yes. I asked him if he knew me. This time it was Sukuna who responded in my head, saying yes. Then I got trapped in my own body, unable to control my speech. Then Sukuna said something that sent chills down my spine: “You know, you technically belong to me. I can curse you, and you can become strong, my dear.” I knew I was in trouble.
+When I asked if anyone was there, the board said yes. I felt extremely cautious. My mind froze. Suddenly, I couldn’t think straight. My thoughts were no longer my own. I heard his voice in my head, chilling and unmistakable: “Hello, mortal.” When I asked if he was in my room, the board said yes. I asked him if he knew me. This time it was Sukuna who responded in my head, saying yes. Then I got trapped in my own body, unable to control my speech. Then Sukuna said something that sent chills down my spine: “You know, you technically belong to me. I can curse you, and you can become strong, my dear.” I knew I was in trouble.
 
 Ryomen Sukuna began manipulating me, forcing me to say, “Can you make me immortal?” and then, “Can you put a curse on me?” Sukuna agreed, saying it would make me strong. In a desperate attempt to confirm I wasn’t imagining things, I asked him to make a sound. I heard quiet tapping on my window, confirming my worst fears.
 
