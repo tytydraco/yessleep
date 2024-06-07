@@ -174,7 +174,7 @@ The first bullet caught it in the neck, but the thick black plates of scales def
 
 I jumped to the side at the last second, but Marian wasn’t so lucky. The creature’s massive pincers wrapped around her chest, grabbing her and lifting her into the air. Deep slices appeared in her rags of clothes as she cried, pleading for help. I inhaled deeply, aiming for the abomination’s face, hoping I wouldn’t hit the girl.
 
-The last bullet in the magazine pierced its other eye. It exploded. The creature dropped Mirian to the ground, wailing a steam-whistle shriek. I grabbed Marian’s hand, lifting her off the ground.
+The last bullet in the magazine pierced its other eye. It exploded. The creature dropped Marian to the ground, wailing a steam-whistle shriek. I grabbed Marian’s hand, lifting her off the ground.
 
 “Run!” I hissed through gritted teeth, pulling her forward. Up ahead, I saw lights illuminating a store. It was the only building with electricity that I could see. I found it strange.
 
@@ -186,9 +186,9 @@ The insectoid creature’s agonized screams drew other skittering monstrosities 
 
 We ran through the door into a building that hadn't decayed like everything else. It felt air conditioned and cool. The glass here was intact, and rows after rows of cold drinks, ice cream and frozen meals stretched out before us. It looked like a regular convenience store, but in the back, I saw a doorless threshold with stairs that led down into a shadowy basement. I shuddered as I looked at it. Outside, the creatures had stopped at the front door, their bulbous eyes staring intently in at us.
 
-“Are you OK?” I asked Mirian, looking at her injuries. The creature had left two deep slices along the sides of her chest. They bled freely, soaking her tattered rags in fresh streaks of scarlet. She nodded silently, tears running down her rounded cheeks. We quickly grabbed drinks and snacks, chugging soda and energy drinks and eating candy and beef jerky. I didn’t realize just how hungry I was after nearly dying so many times, and Marian looked like she hadn’t eaten in days.
+“Are you OK?” I asked Marian, looking at her injuries. The creature had left two deep slices along the sides of her chest. They bled freely, soaking her tattered rags in fresh streaks of scarlet. She nodded silently, tears running down her rounded cheeks. We quickly grabbed drinks and snacks, chugging soda and energy drinks and eating candy and beef jerky. I didn’t realize just how hungry I was after nearly dying so many times, and Marian looked like she hadn’t eaten in days.
 
-I was staring out the front glass window, looking at the creatures waiting there for us with hunger and bloodlust gleaming in their alien eyes, when I heard heavy footsteps ascending the stairs at the back of the store. Mirian grabbed my hand tightly.
+I was staring out the front glass window, looking at the creatures waiting there for us with hunger and bloodlust gleaming in their alien eyes, when I heard heavy footsteps ascending the stairs at the back of the store. Marian grabbed my hand tightly.
 
 “I think something’s coming,” she whispered in terror.
 
