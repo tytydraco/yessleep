@@ -1,6 +1,4 @@
-Five years I’d been in orbit, so the prospect of seeing people again excited me. I may enjoy time alone, but I long for human company as we all do. The day I anticipated soon approached, or so I believed.
-
-As I exit the military spacecraft, desolate mounds of white sand with sparse plant life greet me. The sun beams in the cobalt blue sky over a vast mountain as the wind whistles through the sands and a lone American flag flaps in the breeze.
+Five years in orbit, so the prospect of seeing people again excited me. As I exit the military spacecraft, desolate mounds of white sand with sparse plant life greet me. The sun beams in the cobalt blue sky over a vast mountain as the wind whistles through the sands and a lone American flag flaps in the breeze.
 
 I furrow my brow and shift my eyes in every which direction. It’s mid-day, where is everyone?Continuing to scan my environment, I stomp through the sand, though turning proves difficult. There were footprints, so I follow them, but they led nowhere, stopping as if the person had vanished.
 
@@ -54,24 +52,24 @@ I grab the fire extinguisher and press a button, opening the door. The creature 
 
 After I knock the creature out for the third time, a shiny object slips out of its pocket. A key card. I yank it off the floor and slip it into my pocket. I now had a plan.
 
-Making sure the thing was not moving, I made my escape. I balanced atop my wheelchair, holding a screwdriver in my hand. Adrenaline kicked in when the creature stood back on its feet. Quick, I climbed into the ventilation ducts. Sweat beaded on my brow.
+Making sure the thing is not moving, I make my escape. I balance atop my wheelchair, holding a screwdriver in my hand. Adrenaline kicks  in when the creature stands back on its feet. Quickly, I climb into the ventilation ducts. Sweat beads on my brow.
 
-I worked my way through the vents, but I ran into a dead-end. A loud crash echoed throughout the vents behind me. I panicked. They made their way inside the vents. I scooted backwards through the tight corridor as fast as I could manage, now out of breath and heading in another direction.
+I work my way through the vents, but I run into a dead-end. A loud crash echos throughout the vents behind me. I panic. They make their way inside the vents. I scoot backwards through the tight corridor as fast as I can manage, now out of breath and heading in another direction.
 
-Shadows rounded the corner behind me, and the pounding of flesh followed. I jumped into a room. Pain shot up my leg as I hit the ground. But I had no time to complain as I limped towards the armory door.
+Shadows round the corner behind me, and the pounding of flesh follows. I jump into a room. Pain shoots up my leg as I hit the ground. But I have no time to complain as I limp towards the armory door.
 
-Limping at light speed, I waved my newfound keycard as I approached the door. It flashed green and chimed. I darted inside, slamming the door behind me. I flipped over the place, searching every drawer and cabinet. Finding a pistol, a shotgun, and the ammo for both, I was now prepared. Strange, my foot no longer hurt. In fact, my whole body felt back to normal now.
+Limping at light speed, I wave my newfound keycard as I approach the door. It flashes green and chimes. I dart inside, slamming the door behind me. I flip over the place, searching every drawer and cabinet. Finding a pistol, a shotgun, and the ammo for both, I am now prepared. Strange, my foot no longer hurts. In fact, my whole body feels back to normal now.
 
-I loaded the guns and waited, and not too long after, they found me. Chunks of flesh, brain, and blood splattered as I fired upon these former humans. Just as I expected, headshots did the trick. When I ran out of ammo, I just slammed the door shut and reloaded. It was too easy. In half an hour, I massacred two hundred of those things. I’m unsure of how it happened because I’d never been a marksman.
+I load the guns and wait, and not too long after, they find me. Chunks of flesh, brain, and blood splatter as I fire upon these former humans. Just as I expected, headshots did the trick. When I run out of ammo, I just slam the door shut and reloaded. It was too easy. In half an hour, I massacre two hundred of those things. I’m unsure of how it happened because I’d never been a marksman.
 
-I stood surrounded by corpses, soaked in their blood as the realization came over me. What have I done? My suit radio buzzed.
+I stand surrounded by corpses, soaked in their blood as the realization came over me. What have I done? My suit radio buzzes.
 
 “Thank you. You have brought forth a thousand demons. I have waited for this moment."
 
-As her words ceased, I watched the bodies before me liquify into blood. I retched, my head pounded again, and I collapsed to the floor. The impious liquid formed into puddles and seeped into the barren earth, draining until it was no more.
+As her words cease, I watch the bodies before me liquify into blood. I retch, my head pounds again, and I collapse to the floor. The impious liquid forms into puddles and seeps into the barren earth, draining until it is no more.
 
-I tried to stand, but my right ankle had fractured. I no longer had the strength to walk on it. As I lay there, the ominous wail returned. Frantically, I scanned the surrounding windows but saw nothing. I slid across the floor and grabbed the door, shutting it, the wailing growing louder.
+I try to stand, but my right ankle is fractured. I no longer have the strength to walk on it. As I lay there, the ominous wail returned. Frantically, I scan the surrounding windows but see nothing. I slide across the floor and grab the door, shutting it, the wailing growing louder.
 
-The door shook with ferocious force, yet I saw nothing there. My radio made noise. That loathsome voice again, like sandpaper on my ears.
+The door shakes with ferocious force, yet I see nothing there. My radio makes noise. That loathsome voice again, like sandpaper on my ears.
 
 “Now I offer you a choice. Die for me and receive unlimited joy, or become a slave for the afterlife suffering for eternity.”
