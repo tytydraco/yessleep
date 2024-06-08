@@ -78,7 +78,7 @@ She turned her head to the side as if I was supposed to remember exactly what ha
 
 I touched the top of my head and winced in pain as I noticed it had fresh cuts all over it and it was completely bare.
 
-I felt sick at the thought of being bald and my face must have visually showed it as the nurse was soon handing me a metal bowl with one hand and rubbing on my shoulder.
+I felt sick at the thought of being bald and my face must have visually showed it as the nurse was soon handing me a metal bowl with one hand and rubbing on my shoulder with the other
 
 My vision blurred and I began vomitting into the bowl. After the contents of my stomach (mostly bile) had been extracted into the bowl, she reached out to take it from me. 
 
