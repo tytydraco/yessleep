@@ -1,6 +1,6 @@
 Two weeks ago I moved to my new apartment and I love it! I love the large windows, I love the enormous living room, and I love how every little appliance is connected to the internet. It really is a smart house - smarter than some people I know. I wouldn't say I like the paintings on the walls, but they are growing on me. I'm not allowed to remove them anyway.
 
-Generally speaking, it's a huge improvement compared to the shit hole where I used to live in the last few years. I certainly won't miss the huge rats that visited me a couple of times a week. I tried calling one of them Remy after the rat from Ratatouille, but it didn't make things any better. I hated living there. Dropping out of college just like Steve Jobs did, wasn't one of my brightest ideas, and earning minimum wage as a truck driver for a small furniture workshop left me with little choice. I could hardly make rent for this dump.
+Generally speaking, it's a huge improvement compared to the shit hole where I used to live in the last few years. I certainly won't miss the huge rats that visited me a couple of times a week. I tried naming one of them Remy after the rat from Ratatouille, but it didn't make things any better. I hated living there. Dropping out of college just like Steve Jobs did, wasn't one of my brightest ideas, and earning minimum wage as a truck driver for a small furniture workshop left me with little choice. I could hardly make rent for this dump.
 
 I found out about this new apartment through a text I received.
 
@@ -26,7 +26,7 @@ About an hour after I checked it out, they finally called.
 
 “So what do you think?”
 
-“It's great, but I'm pretty sfure I can't afford it.”
+“It's great, but I'm pretty sure I can't afford it.”
 
 “1$ for the first month, and after that we'll work something out.”
 
@@ -190,10 +190,10 @@ And then it came back to me. I remembered what happened that night. That strange
 
 “I am a decent guy.” I said to myself. I was pretty proud of myself, “FIL MO RAK! Moe loves RAK!”
 
-"We, the followers of RAK, have prepared for this day since RAK came to the blessed prophet in his dreams. The day of judgment is upon us!”  
-  
-"Of course, I will join you! Death to the non-believers!” I said with a smile.  
-  
+"We, the followers of RAK, have prepared for this day since RAK came to the blessed prophet in his dreams. The day of judgment is upon us!”
+
+"Of course, I will join you! Death to the non-believers!” I said with a smile.
+
 I hugged Gor. I hugged Angelica. I hugged every single person in that building.  
 I have never felt such love.
 
