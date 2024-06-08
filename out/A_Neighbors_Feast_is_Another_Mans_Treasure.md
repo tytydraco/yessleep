@@ -1,53 +1,43 @@
-[Part 1](https://www.reddit.com/r/nosleep/s/vDDRp17w3V)
+[Part 2](https://www.reddit.com/r/nosleep/s/G2R8VKP2MQ)
 
-Part 2: The Experimenter Who Preyed on the Weak (ft. Mae Rokubi)
+Part 3: Thrice the Power (NSFW/CW: Gore, Primal urges, brutality)
 
-**this chapter of my life gets SAUCY**
+The peaceful facade of our quiet suburban neighborhood had been shattered again. It wasn't long after our last encounter that we noticed the new neighbors moving in. This time, it was a group, not a family, and their presence felt wrong from the start. There were rumors - whispers about young women going missing in nearby towns, about bodies found with signs of horrific torture.
 
-The dust had barely settled from the last encounter when I noticed another
-moving truck pull into the neighborhood. My eyes narrowed as I watched the new arrival step out - a hulking figure, taller and broader than most, with an unsettling calmness in his movements. Something about him set my instincts on edge. I don’t like this…not one bit.
+This wasn't just another predator; it was a pack of them, serial killers hiding behind the masks of friendly neighbors. They targeted young women, girls in their teens, and the thought of their twisted pleasure filled me with a familiar, dark rage. Mae and I knew we couldn't handle this alone. We needed someone with skills that matched our own. Navah was the perfect choice.
 
-Days passed, and whispers began circulating, strange sounds, the occasional muffled cry, and the sight of men entering but not leaving the house. It was time to act. This new neighbor wasn't just another predator; he was something else entirely, a twisted experimenter who preyed on the weak.
+Navah was an old friend back in my hometown, a hunter like us, with a specialty in tracking and dismantling groups of killers. She was relentless and resourceful, with a sharp mind and a fierce spirit. When I called her, she didn't hesitate. By the next evening, she was at our doorstep, ready for action.
 
-This was more than I could handle alone. I needed backup, someone who shared my dark expertise. Mae Rokubi was the only person I trusted for this.
+We gathered in my dimly lit living room, our faces grim as we laid out the plan.
+The killers had to be stopped before they claimed another victim. We decided to strike at night, when their guard would be down, and the darkness would give us the advantage.
 
-We had met years ago, bound by our mutual mission to hunt the demons in human skin. Mae was as deadly as she was beautiful, with eyes that could pierce through any lie and a prowess that matched my own.
+Navah scouted the area, identifying the layout of their house and noting the patterns of their movements. Mae and I prepared our gear, each item meticulously chosen for its purpose. We went over the plan again and again, ensuring every detail was covered. This had to be flawless, perfect without a flaw in a sense.
 
-I called Mae, explaining the situation in terse, coded language. She understood immediately. By nightfall, she was at my door, her presence a reassuring reminder that I wasn't alone in this fight. 
+The night was moonless, the perfect cover for our approach. We moved like shadows, silent and unseen, slipping through the neighborhood toward the killers' house. Navah took the lead, her expertise in stealth guiding us to the back entrance. Mae and I followed, our senses heightened, ready for anything.
 
-Mae and I had a history of working seamlessly together. Her agility and sharp mind complemented my brute force and instinct. As we prepared, Mae donned her gear with the same calm precision I had seen in her countless times before. Her eyes met mine, and a silent agreement passed between us - we were ready.
+Navah picked the lock with ease, and we slipped inside. The house was dark, but we navigated through it with practiced ease, our night-vision goggles giving us the edge. We found the basement door, slightly ajar, and heard faint, muffled cries. The sound fueled our determination.
 
-Under the cover of darkness, we approached the house. Mae moved like a shadow, slipping through the yard with a grace that seemed almost supernatural. I followed, our movements synchronized by years of practice. We reached a side window, peering inside to confirm our
-suspicions.
+We descended the stairs, weapons ready. The basement was a nightmare - bloodstained walls, makeshift cells, and the tools of their gruesome trade. The killers were gathered around their latest victim, a terrified young girl, bound and gagged. They didn't see us coming.
 
-The scene was worse than I had imagined. The hulking neighbor stood over a restrained figure, tools of torture meticulously laid out on a table. Mae's eyes flashed with anger, and I felt my own blood boil. We had seen horrors, but the sight of this man's twisted pleasure in tormenting others ignited a fury within us both. Silently, we communicated our plan - Mae would create a distraction while I went in for the takedown.
+Navah struck first, her blade slicing through the air with deadly precision. Mae and I followed, engaging the others in a brutal dance of death. The killers fought back, but they were no match for our combined skill and fury. Blood splattered the walls as we dispatched them one by one, each kill methodical and precise. Mae, then released the girl from her restraints and let her go. 
 
-She moved to the front, throwing a rock through a window to draw the monster's attention. As he turned, I slipped inside, using the noise to mask my entry. Mae's diversion worked perfectly; the man moved towards the source of the noise, giving me the opening I needed. 
+In the chaos, one of them tried to escape. Mae intercepted him, her movements swift and lethal. As the last killer fell, silence descended, the air thick with the scent of blood and fear.
 
-I struck with precision, immobilizing him before he even realized what was happening. Mae joined me, her eyes cold and determined. We secured him, ensuring he wouldn't be a threat while we freed his latest victim. The man was barely conscious, his body bearing the marks of his captor's cruelty.
+The basement was a symphony of blood and silence. The killers' bodies lay strewn across the floor, their lifeless forms testament to our victory. Navah and Mae were talking softly, their voices blending into the background noise of the aftermath. But their words were indistinguishable to me. My mind was elsewhere, consumed by a dark, primal hunger that surged within me.
 
-Mae and I exchanged a glance, knowing what needed to be done. This wasn't just about stopping one monster; it was about sending a message. 
+The sight of the viscera, the metallic scent of blood, aroused something primal inside me. It was a hunger that burned deep in my gut, a craving for release that demanded satisfaction. “Oh fuck me sideways…” I cursed under my breath, feeling the fire of desire roaring to life.
 
-The thrill of the hunt, the raw power I felt as I took down the hulking neighbor, coursed through me like a raging inferno. My heart pounded with a dark excitement, and the sight of blood and viscera intensified the feeling. The man's lifeless body, the gore splattered across the room - it all fed the fire inside me, awakening a primal hunger that needed release.
+I wanted them both, right here, right now, amidst the blood and gore of our enemies. The thought of having feral sex with Mae and Navah, covered in the blood of the demons we had just slain, made my pulse race with anticipation. When I voiced my desires, they giggled in understanding, their lust mirroring my own.
 
-As Mae and I stood over the remains of the experimenter, the air thick with the metallic scent of blood, I felt an undeniable urge. The violence, the chaos - it aroused something deep within me, a dark desire that demanded satisfaction. My breath came in heavy gasps, and I turned to Mae, my eyes burning with intensity.
+I wanted to see their luscious bodies covered in viscera, to taste the blood of the hunt on their skin. I wanted to devour them, to eat them out ravenously, feeling their pleasure and warmth as they surrendered their hunger to me. Knowing me, my hunger knew no bounds, and I longed to show them the depths of my desire.
 
-"Mae," | said, my voice rough with barely contained need, "I need your help with something else. Right now."
+As we came together in a frenzy of passion, I made them feel every inch of me, every rough touch and urgent thrust. I wanted them to know that if I didn't have a code to live by, if I didn't have a moral sense guiding me, I would want nothing more than for the police to find us in the midst of our primal union, lost in the heat of the moment amidst the piles of hot flesh and warm blood.
 
-She looked at me, her eyes reflecting the same dark fire. Mae understood the depths of my desires, having shared similar experiences. Without a word, she nodded, a silent agreement passing between us. The tension between us crackled, electric and undeniable.
+As the last echoes of our passion faded into the stillness of the basement, we lay tangled together, our bodies slick with sweat and blood. The bond between us had deepened, forged anew in the fires of violence and lust.
+We were more than just hunters; we were comrades bound by the darkest parts of ourselves, a connection that transcended the horrors we faced.
 
-In the midst of the potential crime scene, we gave in to our pent-up feral urges. The adrenaline from the night's events, combined with the sight and smell of death, drove us to a place of primal need. We tore at each other's clothes, the urgency of our desire overriding any thoughts of restraint, “Fuck yes.” I remember saying that.
+As we rose and began to clean ourselves and the scene, there was a silent understanding between us. The hunt would continue, the darkness within us ever present. But we had each other, and in that, we found a twisted sense of solace and strength.
 
-Covered in the experimenter's blood, we ravaged each other and came together with a ferocity that mirrored the violence we had just enacted. The viscera beneath us added a macabre element to our union, heightening the intensity of our connection. Every touch, every movement was charged with a raw, animalistic passion.
+With a final glance at the carnage we had wrought, we made our way out of the basement, leaving behind the remnants of our victory. The night was far from over, and there were still demons to hunt. But as we stepped out into the cool night air, I knew that together, we were unstoppable. And as long as we stood united, no darkness could ever truly overcome us.
 
-When it was over, we lay entwined on the blood-soaked floor, breathing heavily. The feral sex had not only satisfied our physical needs but had also strengthened our partnership. In the aftermath of the carnage, we found a twisted sense of peace and unity.
-
-As we lost ourselves in the moment, the boundaries between us blurred. Our bodies moved in perfect sync, driven by the same dark hunger. The satisfaction of our primal urges brought us even closer, forging a bond deeper than before.
-
-We left enough evidence for the authorities to find, ensuring the hulking neighbor would face justice, but we took our own measures to ensure he wouldn't harm anyone again.
-
-As the sun began to rise, Mae and I stood side by side, the weight of our mission settling over us. Another demon in human skin had been dealt with, but our work was far from over.
-
-Mae and I were more than just hunters now. We were bound by our shared darkness, our desires intertwined with our mission. Together, we would continue to hunt the demons in human skin, knowing that our connection made us stronger, more formidable. And the fire that fueled us would burn ever brighter, as long as there were monsters to face and evil to eradicate.
-
-We were bound by our dark purpose, hunters in a world where evil wore many faces. And together, we would continue to hunt, bringing justice to those who preyed on the innocent.
+[AN: Gods…I really need therapy]
