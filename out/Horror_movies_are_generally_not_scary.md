@@ -1,4 +1,4 @@
-Horror movies never scared me, neither the horror books nor the haunted houses.  I was never the type of kid to sleep with his blankets above the face or a tiny night light like a normal kid, I never felt the necessity to run my mother's bed after a nightmare, as a matter of fact I never had many nightmares and when I did, I didn't consider them as such.
+Horror movies never scared me, neither the horror books nor the haunted houses.  I was never the type of kid to sleep with his blankets above the face or a tiny night light like a normal kid, I never felt the necessity to run to my mother's bed after a nightmare, as a matter of fact I never had many nightmares and when I did, I didn't consider them as such.
 
 My whole life I was living through a bubble that protected me from everything that could hurt me, so, why would I be scared? Until that moment I didn't have a reason to. I saw it as kids' thing, but of course I don't feel that way anymore.
 
@@ -8,7 +8,7 @@ It all started with what I treated as a virus, they sent me a link with a video 
 
 The person that sent me this told me it's worth taking a look, up until this day I can't remember exactly what the video was about, but I do remember the feeling it gave me it wasn't fear it was similar, it made feel.... uncomfortable.
 
-From that moment on things just kept getting worse, the background image from my PC changed to a woman with a knife that looked at me from what it seemed to be a bedroom, and from then on laughs and sounds and screams came out of my computer, even if the sound was off and then suddenly the famous 'screamers' started to show up on my screen and those images were very real, the putrid the eyes, the corrugated skin everything that I was seeing looked very real.
+From that moment on things just kept getting worse, the background image from my PC changed to a woman with a knife that looked at me from what it seemed to be a bedroom, and from then on laughs and sounds and screams came out of my computer, even if the sound was off and then suddenly the famous 'screamers' started to show up on my screen and those images were very real, the putrid eyes, the corrugated skin everything that I was seeing looked very real.
 
 A few days later a strange smell started coming out straight from my computer, it was undeniably the smell of death. The smell was driving me crazy and for moment I thought I was, so what else could I do? I bought another computer, everything was fine for the next month or two, I was able to live normally but after that the voices and the screams came back again, they became louder than before.
 
