@@ -104,3 +104,6 @@ By the time we got back to my home, my legs were about to break. Before we retur
 
 
 I'm not, under any circumstances, telling you the room Alice and I are hiding in. I hope this ends soon. The police are on their way, so we should be good, right? Unless the girls get here before the cops do… then do things to us… We didn't get any answers, and I honestly don't feel like we will, but maybe that'll change someday. That’s all I wanted. Right now though, we're in need of help.
+
+
+[Update](https://old.reddit.com/r/nosleep/comments/1dbbmm5/update_my_friend_was_being_ignored_and_left_out/?)
