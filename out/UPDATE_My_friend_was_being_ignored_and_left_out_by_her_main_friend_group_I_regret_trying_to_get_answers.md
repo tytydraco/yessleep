@@ -73,16 +73,16 @@ Sandra's boyfriend walked up to the doors, the girls moved out of his way to let
 “Mine, actually.”
 
 
-The girls sprinted towards Alice and I, eyebrows furrowed and hammers pointed at us. I grabbed Alice's shoulder, then turned and sprinted to the back of the store with her. There was a door, but the handle wouldn't budge. My nerves were stinging. Next thing I knew, excruciating pains hit my back and shoulders. The force of multiple hammers brought me to the floor, then one of them struck my right knee. The pain was unbearable. I reached for my knee and let out a scream. Leah grabbed both my hands and held them above my head, then Sarah and Sandra struck both of my knee caps again and again and again, making me scream louder than I ever have. Meanwhile, Alice was wailing and screeching. Jessica and Anna weren't holding back, striking every nerve-ending-heavy part of her body. I could barely do anything other than kick and wail. The only thought on my mind was… “why?” I was then struck in the head, and everything went blurry.
+The girls sprinted towards Alice and I, eyebrows furrowed and hammers pointed at us. I grabbed Alice's shoulder, then turned and sprinted to the back of the store with her. There was a door, but the handle wouldn't budge. My nerves were stinging. Next thing I knew, excruciating pains hit my back and shoulders. The force of multiple hammers brought me to the floor, then one of them struck my right knee. The pain was unbearable. I reached for my knee and let out a scream. Leah grabbed both my hands and held them above my head, then Sarah and Sandra struck both of my knee caps again, making me scream louder than I ever have. They then started scraping my waist with the front of their hammers. Meanwhile, Alice was wailing and screeching. Jessica and Anna weren't holding back, striking every nerve-ending-heavy part of her body once, before scraping her forehead. I could barely do anything other than kick and wail. The only thought on my mind was… “why?” I was then struck in the head, and everything went blurry.
 
 
-Sometime later, I awoke in an empty room with white brick walls and a grey metal door with no window. Where was I? Where's Alice? What’s happening? The door creaked open. It was Sarah, without her mask, face and long blond hair fully visible. She was holding a jar in her hands and stared into my eyes.
+Sometime later, I awoke in an empty room with white brick walls and a metal door with no window. My body was aching from the hits it took, and I was confused as to where I was. The door creaked open. It was Sarah, without her mask, face and long blond hair fully visible. She was holding a jar in her hands and stared into my eyes.
 
 
 “I brought this… I hope you have fun with it.”
 
 
-She pointed the jar at me, then twisted the lid off. Shutting her eyes, she turned the jar upside-down, letting a blurry object fall to the floor. It looked odd. It was as if something was able to be given a censor-blur in real life. As I stared at it, my heart dropped, shivers ran down my spine, and my head began to ache. Sarah backed out of the room, shutting the door. What made this worse was the click of the door being locked. I jumped up, looking at the blurred object as it sat on the concrete floor. I needed out. I sprinted to, then body-slammed, the door. I twisted the handle, knowing the door was locked, but hoping I could somehow rip it out. Of course, it was no use. Fear really does things to your confidence.
+She pointed the jar at me, then twisted the lid off. Shutting her eyes, she turned the jar upside-down, letting a blurry object fall to the floor. It looked odd. It was as if something was able to be given a censor-blur in real life. As I stared at it, my heart dropped, shivers ran down my spine, and my head began to ache. Sarah backed out of the room, shutting the door on her way out. What made this worse was the click of the door being locked. I jumped up, looking at the blurred object as it sat on the concrete floor. I needed out. I picked myself up, ignoring the aching, and stumbled to, then body-slammed, the door. I twisted the handle, hoping I could somehow rip it out. Of course, it was no use. Fear really does things to your confidence, doesn't it?
 
 
 I was hyperventilating, but then I wondered, why was I so afraid of this? It was an object… it can't move… I sat down facing the door. I was not going to look at that rancid THING. I hated it so much. It was like its purpose was to heighten my fight-or-flight response. Specifically the flight part. I reached into my pocket for my phone. As I pulled it out, I noticed the screen was terribly scratched and cracked. “LOL” had been written on it with mascara. All I could do was throw it at the object, but I would need to look at the object in order to properly aim for it. I buried my head in my arms, hoping I'd at least fall asleep.
@@ -202,7 +202,7 @@ Sarah and Sandra sped up to me, then grabbed me by the arms. I froze, reminded o
 “I bet she thinks people will believe the bug thing.” Sandra giggled.
 
 
-“Maybe she shouldn't have posted about us in the first place.”
+“That was the reason we introduced her to the bug, so...”
 
 
 The employee gave me her phone, then she told me to vocalize every word I type. As I typed this, the girls giggled and rolled their eyes at every moment of fear I recounted. They want me to feel small, but I'm too distrusting of them already. Hopefully this will be settled peacefully and maturely.
