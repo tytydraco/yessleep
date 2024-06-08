@@ -52,7 +52,7 @@ So Laurent and Bill came down to take a look.
 
 "Couldn't be," Bill said. "A twin maybe?"
 
-"...Maybe," I agreed grudgingly. "It seems unlikely."
+"...Maybe," I agreed grudgingly. "It must be. What are the odds?"
 
 "Well, could it be the same guy?" Laurent asked. "Hear me out, what if they took the remains and froze them?"
 
