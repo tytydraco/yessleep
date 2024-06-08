@@ -38,7 +38,7 @@ The kettle was still cold and silent.
 
 “It doesn’t work like that, you know” I said cautiously, willing the kettle to boil.
 
-“And you have this nice place”, she said, looking around appreciatively “Looks like a house right from Midsummer Murders!” The jokey tone again. The kettle began making very tiny noises.
+“And you have this nice place”, she said, looking around appreciatively “Looks like a house right from Midsomer Murders!” The jokey tone again. The kettle began making very tiny noises.
 
 “What’s your Reddit name?” I asked, hoping I sounded friendly.
 
