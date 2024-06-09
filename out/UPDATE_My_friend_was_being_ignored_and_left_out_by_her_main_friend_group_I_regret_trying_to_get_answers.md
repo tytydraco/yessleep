@@ -76,10 +76,16 @@ Sandra's boyfriend walked up to the doors, the girls moved out of his way to let
 The girls sprinted towards Alice and I, eyebrows furrowed and hammers pointed at us. I grabbed Alice's shoulder, then turned and sprinted to the back of the store with her. There was a door, but the handle wouldn't budge. My nerves were stinging. Next thing I knew, excruciating pains hit my back and shoulders. The force of multiple hammers brought me to the floor, then one of them struck my right knee. The pain was unbearable. I reached for my knee and let out a scream. Leah grabbed both my hands and held them above my head, then Sarah and Sandra struck both of my knee caps again, making me scream louder than I ever have. They then started scraping my waist with the front of their hammers. Meanwhile, Alice was wailing and screeching. Jessica and Anna weren't holding back, striking every nerve-ending-heavy part of her body once, before scraping her forehead. I could barely do anything other than kick and wail. The only thought on my mind was… “why?” I was then struck in the head, and everything went blurry.
 
 
-Sometime later, I awoke in an empty room with white brick walls and a metal door with no window. My body was aching from the hits it took, and I was confused as to where I was. The door creaked open. It was Sarah, without her mask, face and long blond hair fully visible. She was holding a jar in her hands and stared into my eyes.
+Sometime later, I awoke in an empty room with white brick walls and a metal door with no window. My body was aching from the hits it took, and I was confused as to where I was. Hours went by and nothing happened. All I had were my thoughts. Eventually, I fell asleep, and woke up to a plate with three slices of steak sitting beside me. It was cold, but I was hungry and had nothing else to do.
 
 
-“I brought this… I hope you have fun with it.”
+I'm unsure how much time passed, but I was given some more cold steak meals and my legs were aching less. While the hits from the hammers were painful, I should admit they weren't very strong. I can only guess it was more of an intimidation thing, than it was torture. It was still quite painful though.
+
+
+Another hour had to have gone by before the door creaked open. It was Sarah, without her mask, face and long blond hair fully visible. She was holding a jar in her hands while staring into my eyes.
+
+
+“I brought this. Have fun with it.”
 
 
 She pointed the jar at me, then twisted the lid off. Shutting her eyes, she turned the jar upside-down, letting a blurry object fall to the floor. It looked odd. It was as if something was able to be given a censor-blur in real life. As I stared at it, my heart dropped, shivers ran down my spine, and my head began to ache. Sarah backed out of the room, shutting the door on her way out. What made this worse was the click of the door being locked. I jumped up, looking at the blurred object as it sat on the concrete floor. I needed out. I picked myself up, ignoring the aching, and stumbled to, then body-slammed, the door. I twisted the handle, hoping I could somehow rip it out. Of course, it was no use. Fear really does things to your confidence, doesn't it?
