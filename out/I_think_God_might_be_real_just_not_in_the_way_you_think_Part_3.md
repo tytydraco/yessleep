@@ -96,23 +96,15 @@ When I arrived, I parked at the head of the driveway. I turned off the car, then
 
 Road tripping with Trent was a much different experience than when we were driving for our lives. For one, Trent wasn't nearly as tense. He drove with the windows down and one hand on the steering wheel like out of a Mustang commercial, talking intermittently about his adventures: people he'd met, jobs he'd done, close calls. He was like a living radio. And when his personal station wasn't on, he was playing one of his CD's—classic rock, mainly. When he was in an 'off' period, I found myself looking out the window at the rolling wheat fields and cloudy blue sky. *Journey* was playing, and the lyrics to one of the songs crept into my head and reverberated there:
 
-
-
 *The wheel in the sky keeps on turning.*
 
 *I don't know where I'll be tomorrow…*
-
-
 
 *I've been trying to make it home,*
 
 *Got to make it before too long…*
 
-
-
 *Ooh I can't take it, very much longer…*
-
-
 
 In a strange way, I felt like I was leaving home. But in another way, I was going back. And then it occurred to me that perhaps I didn't have a home at all. Did I *ever* have one? These past couple days had called everything about my life into question, to the point where the past seemed as mysterious as the future, and both intersected at that one place in the woods. The place where it all began. The place we were headed.
 
@@ -343,3 +335,6 @@ Another ping rolled through. I checked the side-view mirror and saw the swarming
 Trent didn't waste any time stepping on the gas. I watched as the coyotes diminished in the distance and the *pings* receded into the back of the map, never disappearing fully, but covering the flank of our retreat—a reminder lingering on the edge of our awareness that there was no turning back now. That, one way or another, this was ending tomorrow.
 
 And I'd either be dead, or something else entirely.
+
+  
+[Part 4](https://www.reddit.com/r/nosleep/comments/1dc2rh6/i_think_god_might_be_real_just_not_in_the_way_you/)
