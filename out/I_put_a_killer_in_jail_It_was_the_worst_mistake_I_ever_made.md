@@ -107,3 +107,6 @@ His parents and younger sister were in a similar state. I didn't find them mysel
 I don't know what has descended upon my town. I don't know exactly what it did to Liam's family, or why. But I suspect that the person with all the answers, the person who was protecting my town all this time without anyone knowing, is currently behind bars because of me.
 
 Maybe I can find a way to talk to him. Maybe I can find a way to convince everyone of his innocence. If not, then I'll have to take matters into my own hands. I'll have to feed the monster I set free.
+
+  
+Update: [06/09/2024](https://www.reddit.com/r/nosleep/comments/1dc4rbi/something_has_been_eating_our_local_wildlife_last/)

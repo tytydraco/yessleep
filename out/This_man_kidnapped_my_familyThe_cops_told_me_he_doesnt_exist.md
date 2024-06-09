@@ -32,4 +32,4 @@ It’s the 5th year and I hadn’t seen John in over a month. I bought myself a 
 
 As of now, my son would’ve been 10, and my daughter 7. My beautiful daughter, my wife, my son. All corpses because of John. How can those kids endure such a brutal death? How can I get rid of John for good? I bought a shotgun for a reason.
 
-
+(Entertainment pourpous only)
