@@ -1,4 +1,4 @@
-“You’re girlfriend’s here” my brother and roommate called from across the house in an obnoxious tone. I didn’t feel like getting up see what he was talking about. I didn’t have a girlfriend, my social anxiety wouldn’t allow it. 
+“Your girlfriend’s here” my brother and roommate called from across the house in an obnoxious tone. I didn’t feel like getting up see what he was talking about. I didn’t have a girlfriend, my social anxiety wouldn’t allow it. 
 
 With an exasperated sigh I got off the couch. “What are you talking about? Who’s at the…” 
 
