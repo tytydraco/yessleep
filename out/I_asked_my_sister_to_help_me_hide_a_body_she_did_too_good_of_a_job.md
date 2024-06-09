@@ -4,7 +4,7 @@ It wasn’t just for me, it was for the whole neighborhood. 
 
 He was a horrible man and a terrible neighbor and if I had to listen to poor Charlene scream one more night I was going to make the whole town pay for it. I don’t care if he was a cop. He was also an asshole, and a bigot, and ten IQ points short of passing exam. And now he’s dead. 
 
-And until three days ago, that wasn’t a problem for me. You see, I have the best sister in the world. 
+And until this afternoon, that wasn’t a problem for me. You see, I have the best sister in the world. 
 
 Her name is Darla, and she’d do literally anything for me. Same I’d do for her. She’s the kind of sister I could call at three a.m. on a Wednesday night to pick me up from a college party gone bad. The kind of sister who would spend hours helping me untangle my hair after I let it dry in a braid. The sort of sister who would help me move across two states and back when I broke up with my first-ever-fiance. 
 
@@ -63,4 +63,3 @@ I went home, still clutching my phone, and laid down in bed while she talked.
 Anyone who would have known he was missing. That had ever known him at all.
 
 No one even knows he’s gone. 
-
