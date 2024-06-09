@@ -354,7 +354,7 @@ Feeling the weight of the hagstone as a comforting weight around my neck, I said
 
 *Fuck you.*
 
-He set my keys on the counter, along with my shotgun, then leaned forward, resting his forearms on the counter next to then, “Come and get ‘em.”
+He set my keys on the counter, along with my shotgun, then leaned forward, resting his forearms on the counter next to them, “Come and get ‘em.”
 
 I didn't know if the hagstone would keep him out of my head and I wasn't about to find out the hard way. He already knew more about me than I was comfortable with. I kept my eyes low. 
 
