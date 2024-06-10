@@ -1,82 +1,75 @@
-It was my first time back at the substation as an armed private security guard; this certain electric substation was out in the middle of nowhere. I got the heads up from my captain that I'll be doing a good thirteen-hour shift from 1800 to 0800 due to having all available guards posted events for Halloween. He explained that it would be our last day for this post. The pay was not bad at just 19.50 an hour. I mean, in truth, I always needed the money to catch up on some bills. I know I have been doing some insane OT throughout the week and the week before. But these are hard times. And since this is our last shift here at these electric substations, Then it'll all be good for me.
 
- 
-I got myself ready for work. I took everything I needed and wore my concealable bulletproof vest that can stop 9mm rounds and has a pocket that holds a 6x8 plate that can stop AK and AR rounds under a polo shirt. All I needed to wear were a khaki polo, brown cargo BDUs, and tac boots. with, of course, my gun belt with my service weapon and a jacket, as the whole night will be cold as fuck. Now, I must remind everyone that I'm in the South. And since I am going to be by myself throughout the whole shift, So without telling anyone, as I know I am not the only one who has done this, I will bring my personal weapon. Now we've got black bears, coyotes, and yes, wild hogs as heavy as refrigerators out in this motherfucker. So I brought my HK41 semi-automatic back on the G3. just for emergency situations and my 2nd Amendment right. But of course I can't use it while I'm at work, as I will get fired. I've got to need the money.
- 
 
-Now, what everyone may think is that we rednecks carry around ARs, which is understandable. But! For me, I like the German design, ever since I was stationed in Germany in my days in the US Army. I just came to love all things German. With just four magazines put away in the case with my rifle. I headed out on my Dodge Dakota pickup with off-road tires. Yes, I am a redneck, and I am proud of it. I use it for many purposes besides taking it to work. I stopped by a gas station to pick up some more food, just in case, along with batteries, hand sanitizer, some medication, and toilet paper. I believe there should be a united outhouse. But we've got to be prepared.
- 
+At 22, I’ve barely scraped through college with a degree I never wanted. Engineering—a path chosen under the heavy shadow of my father’s expectations, not out of any passion of my own. I realised in my first year that this wasn’t for me, but I stubbornly pushed through, determined to finish what I had started. Now, that degree feels more like a shackle than an achievement. Still uncertain about my future, I’ve decided to continue with my part-time job at McDonald’s for a year to figure out what to do with my life.
 
-So I brought other necessities like food, some of my MRE (basically crackers), my canteen filled with water, and two water bottles. And I know I can't bring any alcohol to work. But..fuck'em. I definitely know that any road captain isn't going to come out here in the boondocks. With a heavy-duty lunch box filled with food and a Yeti cooler filled with the goods, I went out an hour before my shift. Relieved the officer that was there and was ready to go.
+I usually work the night shift, from 5 PM to 1:30 AM, starting in the midst of the evening rush between 5 and 7 PM, which can be tough. During these hours, I typically go on autopilot, trying not to think about the stifling heat as I scrape the grill clean, sweating in the greasy air. After the rush, the orders die down, leaving just me and Tristan, my coworker, in the kitchen.
 
- 
-But before he went The officer gave me a heads-up about some strange things he experienced during his shift and told me to turn off the lights when nightfall begins. When I got to look at him. He was paler than a corpse, as if he had seen a ghost. After that, the man hauled ass with his pickup.
+Tristan is the complete opposite of me—very extroverted and constantly chatting with the other coworkers in the front. His outgoing nature often leaves him distracted, so I usually end up taking over his tasks, which I don’t really mind since it makes the time go faster. This includes putting the hamburger buns in the oven and preparing the orders by placing the buns in the boxes, ready for me to dress the burgers.
 
- 
-This is a fenced electric substation that is 40 x 20 meters, with only one main entrance and exit, and surrounded by dense woodland. Nothing but trees, bushes, and shrubs, and one dirt road that leads to the main highway that is miles away and power lines that connect to it. Our guardhouse is behind the main entrance. Now behind our guardhouse, there was this outdoor canopy tent inside, which was a united ADA portable restroom and portable sink rental. Next to it were a water holding tank and a garbage tank. Mind you, we're out in the sticks.
+We work in kitchen line 1, which faces kitchen line 2. The main difference is that line 1 has the grill, and line 2 houses the floor deep fryer. After 7 PM, kitchen 2 closes since there aren’t many orders, and everyone’s workload lightens. However, there still needs to be someone managing the deep frying, and recently, that task fell to a new girl who started three weeks ago. I’ve only seen her on two shifts before, for just an hour each, because she was still in training and her shift had to be earlier. Now that she’s passed, she can work independently, and tonight marks her first night shift.
 
- 
-As I parked my truck next to the guardhouse, I believed no one should be coming, like literally behind the main entrance. Across from it was a large building consisting of four rooms: a switchgear station and operator room, a battery and DC supply room, a kV panel room, and a storage room. Right next to our guardhouse was a generator room. Though there were two other outhouses or portable restrooms, As all the work has been done by the workers of this company. I closed the gate of the main entrance and went inside our guardhouse. Now this guardhouse of ours is 14x8 with all the basic requirements installed, like a desk with drawers, fluorescent light, phone jack, desk, computer, AC, desk organizer tray, a filing cabinet and shelf, first aid kits, etc. With one main window with curtains and a door with a small window. Now I have my battery-powered Milwaukee fan and Jwin personal TV radio.
+After the rush had finished, and most coworkers had finished their shifts, it was just me, Tristan, and the new girl in the kitchen. Since we hadn’t received an order for a while, Tristan was, as usual, chatting in the front with a coworker, which left just me and the new girl in the kitchen. Since I had finished checking the dates of the ingredients that needed to be replaced within a few hours and had cleaned the workspaces and refilled all the burger boxes, I was left with really nothing to do besides preparing the few orders I’d received. The new girl was quiet, which gave me this uncomfortable feeling since you barely noticed her presence. So, I decided to introduce myself, which I would later regret.
 
-The walls are decorated with a map of the state of Mississippi and layouts of the perimeter, sticky notes, and papers taped on them with information and data.
-But one paper had some strange information about what to do. Well, this was something recent that I hadn't seen before. "Beware of the lights in the sky," it said. Now what kind of hogwash was that? Was that officer trying to pull my leg or what?
+“Hey,” I said, trying to sound friendly despite my introverted nature. “I don’t think we’ve properly met yet. I’m Ryan.”
 
- 
-I placed my cooler, lunchbox, and old army backpack down on the floor, clocked in the company's PDA, and wrote my name on the sign-in sheet. Man, lots of officers have been stationed here for three years and ten months until we're replaced by another or renewed to come here. But it won't happen until mid-January. As I got myself ready for the shift, I patrolled within the perimeter, checking for anything out of the ordinary and doing checkpoints by scanning each tag with our PDA, which also had a scanner installed. Couldn't patrol outside of it due to the heavy foliage. But with the wildlife in these parts, I don't want to take my chance. Especially big gators that can walk on land. Though not too far from the nearest swamp.
- 
+She looked up slowly, her eyes blank and distant. “Hi, I’m Amy,” she replied in a whisper.
 
-The outside was swarming with gnats, flies, and mosquitoes. Luckily, I wore my jacket and security beanie, as the temperature was beginning to drop. It's strange how the substation's lights outside are off. With a flashlight on hand, I did the same patrol for the next two hours. I went back inside, wrote my report on paper, and relaxed. Luckily, there was this small table next to my desk that had a microwave and a coffee maker, along with a stack of styrofoam cups that lay next to the microwave. Under it were two boxes: one was Folgers, and the other was filled with paper filters, wooden stirrers, creamers, both liquid and powder, and sugars. I made my coffee and turned on my radio. There were two walkie-talkies that were charging. It was odd that there should be only one guard on sight. But as I read the reports from previous officers, it stated that there were actually three on site. Two security guards and one road captain act as post supervisors, monitoring company field workers and contractors.
- 
+“So, how do you like your new job?” I asked, raising my voice a bit over the faint radio music and the periodic beeps from the kitchen equipment.
 
-What's even more strange is that company employees who worked on the site reported unknown events happening to them. They witnessed unusual objects in the sky and heard strange disembodied voices in the morning and afternoon. When it got to a point, they called in the police. Here, even the police began to see what everyone was seeing. One by one, they all became uneasy working over here, and soon our own security guards began having the same issues, but at night. At night, where one of the guards reported witnessing unnatural occurrences. It's strange that my supervisor hasn't spoken to me about this. Now, there could be some explanation in the form of modified drones that people were playing tricks on. But the more I read, the more I'm starting to believe every word that they're saying.
+She glanced around, seemingly attuned to the noises that filled the space. “It’s… different,” she murmured, almost as if puzzled by the question.
 
- 
-And so I heeded the words from the officer that I was relieved of his duty and turned off the lights. Except for the lamp that was on top of the desk and that of the CCTV monitor that I was looking at. Showing the black and white live feed from the six cameras installed, four showing the outside and two from within the perimeter. But I closed the curtains on the main window and a small one on the door. Lowered the volume of the radio. I could hear the wind picking up outside the guard house. I'm now hearing the weather forecast on my radio state that it'll be cloudy throughout the whole night. Turning off my monitor, as there was no use in having it on. Then I dimmed the light from the small lamp, which illuminated a soft yellow glow. Now on the shelf, lay this standard-issue NOAA and Red Cross emergency crank radio on top of a longwave shortwave radio that also radiated a green glow. And this, to me, is getting out of hand. Sure, I don't mind being prepared for everything. But c'mon, this is getting to be paranoid.
+“What made you decide to work here?” I tried again, hoping for a bit more insight.
 
- 
-Crazy bastards are trying to make me insecure up in this sh*t. But I've got to keep my composure and be professional. I ain't going to let some superstitious bullshit get the better of me. I turned off the AC and turned on my fan, as it was starting to get cold out there. Now we do have this cumbersome indoor stand fan that was in the corner, but we didn't use it.
+“The noise,” she said softly, a strange smile flickering. “It drowns things out.”
 
- 
-It was now 2340. And the night became colder. I used the towel that was inside the drawer as a blanket. With the ambience of the wind outside and the low volume of my radio, I began to slowly close my eyes. I suddenly woke up afterwards and saw it was just 0031. The wind had just died down outside when something caught my eye on the CCTV monitor. I observed some movement on C#3 that is facing outward. Now it could be racoons or opossums, but I just disregard it.
-I began to heat up some of my food and took out a beer can.
+“Ah, okay,” I replied, a little thrown off. “Not much of a talker, huh?”
 
- 
-I was listening to my podcast on my smartphone when suddenly the monitor and lamp began to flicker. I looked out the window and checked what was going on. And when I did, I couldn't barely see jackshit being that fucking dark. The clouds were covering the moon. Now I didn't want to go out just yet, as I was about to eat my food. As I did so, the monitor and lamp began to flicker again for a few seconds. Was there something going on with the power? It couldn't be. But I continued eating anyway. Only to keep an eye on the CCTV monitor.
- 
+She shook her head slightly, her gaze drifting back to her tasks. “Not much to say,” she breathed out.
 
-As I finished my meal, I decided to walk out just to check out. And boy, was it cold outside. The clouds just blanketed the entire sky. I couldn't see no moon or stars, just all clouds. I can see from my G-Shock that it has already passed 0130, and I used my flashlight to check around. Spotting around with the yellow light by patrolling within the closed perimeter and towards Camera #3. There, I looked to see what was wrong with it. Yet when I checked out, nothing was wrong with that damn thing. I went back towards the guard house with the light facing the ground so I could see where I was going, and I turned it off. I took out my cigar from my pocket, unwrapped it, and stood there a few minutes enjoying my smoke. I lit it up with my lighter and began to smoke. Having the aroma of Dominican tobacco leaves fill the air felt so damn good. Now I don't like smoking cigarettes due to all the processed shit it has. But the imported stuff I like. And this cigar is made with all natural tobacco leaves. I took my time puffing out the smoke.
- 
+“Got it. Well, good luck,” I said, turning back to my grill, the unease settling heavier around me.
 
-The clouds were finally dissipating from the night sky, where the moon and stars made their appearance. I could finally see the area itself until I glanced at some of the stars shifting. I could've sworn they were moving slowly away from one another. Now this couldn't be any of the satellites, as they were close to the clouds, where their movements were too instantaneous, almost as if they were moving like clockwork.
-There, one of the stars moved away from the others and streamed towards the substation, miles east of the substation but still far away. When the rest dispersed. The night became eerily quiet. No sound is coming from the woods whatsoever. And the one thing that came to mind was UFOs.
+As the shift went on, I kept thinking about the conversation I had earlier with Amy—about the noise. Since she mentioned it, I couldn't really focus anymore. Now, all I could think about were those annoying beeps from the kitchen and the repetitive radio songs that were driving me crazy. It was as if her words had planted a seed of distraction in my mind, growing louder with each passing moment. 
 
- 
-I was struggling to accept the sudden appearance of a UFO. Jesus Christ, either I am seeing things or this is the real deal. When one of the stars that moved away from the other began to change color, one was out of orange, then it became red, then back to orange. When one followed suit, another followed suit, then another, and another. All four of them were changing colors, primarily from orange to vermilion to red. I watched as I was smoking, seeing them dance in the sky. My God, it was so quiet. The objects then suddenly spread out, streaking across the sky in opposite directions. They were literally UFOs. I hated to see what was inside those objects. Are the Martians, or these so-called Grays, that are operating them. Who knows, maybe they are just drones. I think I just need to lay off the science-fiction movies. To be honest, it scares me a bit to witness those objects in the sky.
- 
 
-But I better not stay out here too long; I just don't want to draw any attention to those things up there. I hope they don't see me because that'll be so bad on my part, and I don't want this to be such a weird shift. Jesus Christ! I pray that they don't spot me. Especially since all the lights outside are off in this substation, the only thing that is working is the backup generators. It's starting to get cloudy again. As the winds are picking up strength, as it got chilly just now. I wanted my truck to take out my personal weapon and ammo. And I know that what I'm doing is illegal and wrong since I could get into trouble by using my personal weapon, especially one that is a rifle. But! I just have a bad feeling about this. And seeing that doesn't seem right at all. I got the other stuff out as well as my box of rounds that I use for emergencies. Of course I got my service pistol, but that won't be enough. I did one final round within the substation. When the door of the generator room was unlocked, I peeked inside and spotted a fireax laying on the floor. I picked it up and walked back out. As I got inside the guard house, I just decided to close the shades. Sure, I just got frightened a bit.
- 
+In an attempt to quell my growing anxiety, I decided to take my 7-minute smoke break. I made my way to the designated smoking area—a neglected corner of the restaurant where the trash containers find place and were i can sit on the broken yard furniture. Settling into one of the cheap, worn-out chairs, I lit up a cigarette, intending to find a moment of peace amidst the chaos of the night.
 
-I lowered the volume on the radio and just kept an eye on the CCTV monitor. It was all dark inside and out. And the only thing that lit up inside the guard house was the green glow from the radio and the blueish-gray light emanating from the CCTV monitor. I looked at every panel on that screen. Luckily, those cameras are outside and have night vision, so I can see them clearly even in the cloudy sky. They could see the winds moving the branches. Until something dashed in between those trees, my eyes caught it, and again it happened on C#3. Making out what seems to be a hand with long fingers that was on the branches. And a large head seems to be moving back and forth behind the foliage. I don't know what it is, but it seems to be a tall figure hiding behind those trees and bushes. It began to get colder inside the guardhouse, and I wrapped myself in a towel, with the coffee being the only thing keeping me warm.
- 
+However, what was meant to be a brief respite turned into a prolonged 15-minute hiatus. The calm of the night air and the rhythmic motion of smoking seemed to soothe my frazzled nerves, offering a fleeting sense of tranquility that I desperately needed.
 
-Then again on C#7 and on C#10. All of the cameras are out. All except for C#3, which is the only functional camera in this place. My eyes gazed at it with such suspense until my jaw dropped from what I'd seen. Emerging from the trees was a silhouette of a tall entity. I think if I close the camera, I can make a good outline of its figure. It was bald with oval-shaped eyes and long arms with a slender appearance. It had no nose and a small mouth. It was wearing some sort of dark uniform of some sort with some sort of breastplate. I had these strange markings, or what it seems to be similar to, I think hieroglyphs and cuneiforms. Yes, I think it could be that. I am no stranger to these things, ever since my deployment in Iraq ages ago. But as it stood there observing the fence line, it spotted the camera. As it did so, it disappeared back into the bush. I can't believe my own eyes; am I dreaming about this? Did I witness an actual extraterrestrial? When C#3 finally gave out. It was all blank. Nothing is seen. The night is dark, as the only light there was was that of the green glow from the radio.
+Reluctantly, I extinguished my cigarette and rose to my feet, ready to return to the chaos of the kitchen. As I approached the entrance, the dim light above the door cast eerie shadows, obscuring the identity of the figure standing in the darkness beyond.
 
- 
-When the radio suddenly erupted with a loud volume, there was a mechanical tone that at first sounded like static until I came to realize it was just chatter. An unknown tongue has been speaking and communicating with another. I couldn't understand what they were saying. However, there was a third voice speaking in a deep, bellowing voice that I could tell sounded very angry.
-I didn't know what it was angry about until...
+I could barely make out the silhouette of a person, their features shrouded in shadow as they disposed of a trash bag filled with leftover food scraps. It must have been Amy, since i thrown away the trash back at mine kitchen line when i was on my way for the smoke break.
 
- 
-"We are watching you. Come out... and submit."
+As I stepped closer, I called out to her, my voice echoing in the quiet darkness. She turned towards me, her face illuminated by the flickering light from above. What I saw sent a shiver down my spine—a blank expression devoid of any emotion, her eyes vacant and empty.
 
- 
-I was flabbergasted to hear that. This is some sort of joke? no. Doesn't know that I am here? How does he know that? and how can they know that I am in here as the whole area is dark with all the lights off?
+For a moment, time seemed to stand still as we locked eyes, the silence punctuated only by the faint hum of the fluorescent light. I repeated my question, my voice tinged with concern, but she offered no response, her gaze fixed on some unseen horizon.
 
- 
-"Come...out. or... we, shall... get you."
- 
-I don't know who the hell this asshole is. But I ain't coming out. And if I do, I'll be packing up armed. And it is where streaks of light come through the window blinds. I don't know what will happen next. Hell… I don't know what will even happen to me.
-This is what I do know. I'll fight, and I won't back down.
+Suddenly, she turned away, disappearing into the depths of the restaurant without a word. Bewildered by her strange behaviour, I followed after her, tossing the trash bag into the bin before setting off in search of Amy.
 
-End. 
- 
+To my astonishment, I found her back at her workstation, as if nothing out of the ordinary had occurred. Puzzled and unnerved, I couldn’t shake the feeling that something was amiss—that beneath her composed exterior lurked a darkness I couldn’t begin to comprehend.
+
+After that unsettling encounter, I found myself retreating back to my workplace in silence, my mind racing with questions and unease. I couldn’t shake off the eerie feeling that lingered in the air, haunting me as I went about my duties for the remainder of the shift.
+
+As the hours dragged on, my unease only grew, a knot tightening in my stomach with each passing moment. Yet, despite my growing sense of dread, nothing else out of the ordinary occurred.
+
+Finally, as the shift came to a close and the rest of the crew gathered to await the manager’s final tasks to close the restaurant for the night, a sense of relief washed over me.
+
+After the manager finished up and the rest of the crew drove off, Tristan and I remained behind, seeking solace in the stillness of the night. Stepping outside, I reached for my pack of cigarettes and lit one up, the soft glow contrasting against the bright lights of the parking lot.
+
+Tristan also lit a cigarette, the smoke curling upwards as we stood side by side. I explained the encounter with Amy earlier, downplaying it a bit to not seem too weird.
+
+Tristan chuckled lightly, taking a drag from his cigarette. "Huh, Amy's a bit of an enigma, isn't she?" he remarked, his tone light. "Quiet, mysterious type. Probably just lost in her thoughts."
+
+I nodded in agreement, relieved by Tristan's easygoing response. "Yeah, she does seem a bit reserved," I replied, attempting to shake off the lingering unease.
+
+But then the manager, who had been finishing up closing, overheard our conversation and approached us. “What’s this about Amy?” she asked, curiosity evident in her voice.
+
+I explained the strange encounter with Amy during my smoke break, feeling a chill run down my spine as I recounted the details. The manager furrowed her brow, clearly concerned by what she was hearing.
+
+“Let’s check the security footage,” she suggested, leading us back inside the restaurant. We gathered around the monitor as she scrolled through the recordings, searching for any sign of Amy leaving her station.
+
+But to our shock, there was nothing. Amy had remained at her workstation the entire time, never once venturing towards the smoking area. The realisation sent a shiver down my spine, my mind reeling with the implications.
+
+As we returned to the parking lot, the sense of unease that had plagued me all night intensified.
+
+As I drove home that night, I made a silent vow to myself—I would never set foot in that restaurant again, haunted by the memory of Amy and the mysteries that lurked within its walls.
+
