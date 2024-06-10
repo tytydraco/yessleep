@@ -1,14 +1,14 @@
-If you missed my grand entrance into the silver city, [I recommend reading my last post.](https://www.reddit.com/r/nosleep/comments/1cq76qu/hell_survival_manual_the_silver_city_part_4/)
+If you missed my grand entrance into the silver city, [I recommend reading my last post.](https://www.reddit.com/r/nosleep/comments/1cq76qu/hell_survival_manual_the_silver_city_part_4/)
 
-If nothing here makes sense to you, start from the very [ beginning.](https://www.reddit.com/r/nosleep/comments/1c298x2/hell_survival_manual_everything_you_need_to/)
+If nothing here makes sense to you, start from the very [beginning.](https://www.reddit.com/r/nosleep/comments/1c298x2/hell_survival_manual_everything_you_need_to/)
 
-I apologize for the long period without news. I received an unexpected visit, and because of it, I was bedridden for quite some time. I'm grateful that my boss saw everything happen—I mean, saw what he *thought* was happening—and assured me that I would receive financial assistance while I recover.
+I apologize for the long period without news. I received an unexpected visit, and because of it, I was bedridden for quite some time. I'm grateful that my boss saw everything happen—I mean, saw what he *thought* was happening—and assured me that I would receive financial assistance while I recover.
 
 Did you know that if you don't have most of your documents, the hospital bombards you with questions? It's pretty obvious, isn't it? It's a shame I didn't think of that while I was being taken there; I could have jumped out of the car and avoided the headache.
 
 Jokes aside, the last few weeks have brought me answers. Maybe I have a chance to correct some mistakes. Maybe all of this wasn't just a desperate final act to gain favor with the Lord. This place has been much more useful than I anticipated.
 
-Today's post is important because I finally have the chance to talk about the most precious information one can have when condemned to the abyss: **how to escape it**.
+Today's post is important because I finally have the chance to talk about the most precious information one can have when condemned to the abyss: **how to escape it**.
 
 But before I start walking through my memories, I need to tell you guys how I ended up in this miserable state.
 
@@ -483,7 +483,7 @@ The old man whispered words in a convoluted language forgotten by time. Aecus be
 
 Without looking back, the old man said, "A wish for a wish, a will for a gift, Blood taken in exchange for bliss"
 
-"What the fuck *are* you?" I asked.
+"What the fuck *are* you?" I asked.
 
 "Nathanael, you have a choice to make. Do you want to escape Hell? Do you want your life back?"
 

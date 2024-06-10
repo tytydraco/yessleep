@@ -430,4 +430,4 @@ I'm tired of remembering those horrible years, so I think I will stop here for t
 
 Clinging to hope in hell is as useless as using petrol to put out a fire; you'll only end up dying either way. But in the realm of insanity, it might not be all that crazy to think there might be a way out of the suffering.
 
-[Part 5](https://www.reddit.com/r/nosleep/comments/1dc18ps/hell_survival_manual_how_to_get_out_of_hell_part_5/)
+[Part 5](https://www.reddit.com/r/nosleep/comments/1dcguat/hell_survival_manual_how_to_get_out_of_hell_part_5/)
