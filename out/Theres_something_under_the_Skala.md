@@ -1,0 +1,14 @@
+"I hate a Barnacle as no man ever did before, not even a Sailor in a slow-sailing ship" Darwin once said. Ditto but with clams. I've been stuck on Skala for almost a month now doing my graduate thesis and it seems like this place is driving me clams. To add to my misfortunes - I'm running low on coffee and, oh, almost forgot. I think there's something in the sea near the island and it's getting closer.
+
+
+Okay, beforehand, some context. Skala is a small peninsula in the Barents sea. There used to be a small village of fishermen, but it was abandoned in the 90s, and that's when people from ******** State University took hold of it. Right now it has everything a grad student like me can desire - labs, aquariums, ships, everything bar the stable internet. We're working on it. For the past few weeks I've been going through the benthos I collected off the coast and... It just doesn't seem right. In one specific place there's almost no living animals, the samples came with mostly dead corals, starfish and clams. All the clams are pierced. 99% of them have holes on them, and all of the shells are emptied. Some sea snails love doing that, but there's no way it's them. They just cannot decimate a whole popultion. It must be a new species of... Something. The PCR tests came in inconclusive. Maybe it's some kind of an annelid, maybe - a mollusc, maybe something older than either. All we know is that we haven't seen it yeet, it probably haven't seen us too, but we're both keenly aware of each other.
+Not only this is weird as hell, it's also messing with my data. How am I even gonna publish this bunch of rubbish? But, thinking of yesterday, I may not get to publish it at all. Wanna know what I found? Not all buildings in this place were reused. Some of them were burnt to the ground when the previous population left and my colleagues let them be. I've been snooping around one of those out of boredom, and in the ash I found...
+
+
+A set of bones. Damaged by fire, of course. But what was more grim is that they are also covered in holes. Poor guy was doomed either way. I was about to puke, but I didn't. Had to do it this evening, when a paella made in out canteen had a clam with a hole in it.
+
+
+I'm almost done with the map of my findings. All the pierced clams come from a spot where the seafloor takes a sharp dive. And then there's a ray, it's like a demonic starfish is pointing at our base. Sometimes I think I can hear the whales sing when I sit on the pierce. Are they also diced from the inside by this thing? And when I feel a are muscle or a crack in my joint I can't help but think... 
+
+
+Am I a clam to it?
