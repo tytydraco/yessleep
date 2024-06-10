@@ -1,0 +1,87 @@
+“Are you really that afraid of the basement?” My boyfriend was busy putting on his blue buttoned shirt as he asked me casually. I glared back at him. “You’re seriously going to bring this up now? I’m busy getting ready for dinner” I said grumpily, pulling on my bra. He shrugged apologetically, “Look, I’m sorry okay, I just want to know why, especially if it’s such a big issue. We can talk about it whenever you want. But I would really like to talk about it eventually.” His tone was calm and filled with sincere concern. I sighed. Timothy had been so great. We’d been living together for over a year now and he’d been very patient with me and my phobia of dark places. I don’t just mean I’m afraid of the dark, I mean I go into full on panic attack mode and start tearing the walls apart with my bare hands and finger nails and teeth if it gets even close to dark in any room I’m in. It makes going out at night or doing anything normal like going to the cinema, or planetarium or club or bar very difficult. I also cannot enter a bathroom that has no natural light and nothing but motion-sensor based lights. If they go out for just a second my heart races, my blood boils from fear and my lungs burn from panic. I scream and run, crying usually until I’m back in the light. 
+
+
+
+ 
+
+I slowly sat on the edge of our bed “Okay Tim, I’ll tell you why. Right now actually if you’d like. I’d rather just spit it out. We have a few minutes and it’s not a very long story anyway”. Timothy quickly pulled on his last sock and came over to sit next to me. I looked at him and then looked back down at the bed. “I’ve – I’ve never told this to anyone. But the reason I’m so afraid of the dark. Of being alone. Is because of what happened to me in the basement when I was ten years old.” I paused and Tim took my hand. His fingers were rough and warm. “I’d never had issues with the dark or the basement or anything like that ever before. One day my mom asked to go down and fetch the laundry from the dryer. So, I’ve been down in the basement of this house a billion times and I think nothing of this at all. The door creaked loudly just like normal as I opened it. I lazily walked down the steps and was busy messing around with my new Walkman when I suddenly heard the door slam behind me. I was plunged into darkness and I thought I’d gone blind. 
+
+ 
+
+ 
+
+I groped in the darkness for the light-switch and heard it click as the lightbulb buzzed to life noisily. The basement was not large and was nothing but bare concrete. We used it to store some old furniture and photo albums. Of course we kept our laundry down there too. A bit spooked by the door slamming, I decided to get the chore over with as fast as possible. However, as I my foot left the last step and touched the cold concrete floor the lightbulb glowed brightly and burst. I was plunged into darkness yet again. I breathed heavily and moved in the direction of the laundry. I waved my hands in front of my face but could see nothing. I knew that there was a flashlight in the drawer of the desk next to the dryer. I took a few tentative steps expecting any minute to feel bright pain explode threw my hip as I bumped into the desk. But I never did. 
+
+
+
+
+
+So, I started taking bigger steps. The hairs on the back of my neck stood up as I realized that something was horribly wrong. I should’ve been on the other side of the room by then. A few steps after that I should’ve been on the other side of the wall! Before I knew it I was running. Sprinting! Hoping to be lucky enough to slam hard into the wall. To prove this nightmare a fake.  But the wall never came. I ran through cold darkness. 
+
+ 
+
+ 
+
+Then I heard a voice.  A soft whisper at first. Then it became louder. It was the voice of a man. There was nothing abnormal about his voice at all. But it gave me goosebumps. He – he warned me never to return to the dark. He warned me never to tell another living soul about where I had been. I shook. Trembling with fear and incredulity. How could this be possible? Where was I? Suddenly, light sprung to life in front of me. I yelped and shielded my eyes because it was very bright and I suddenly felt really cramped like the room had just shrunk. Then strong hands were grabbing me and lifting me and I found myself being pulled from a well. We still have no idea how but some men had heard a noise and once they’d seen me they rescued me immediately. They found me in a well that was hundreds of miles from my house. From that damn basement.” 
+
+ 
+
+ 
+
+ 
+
+I paused briefly as I rubbed my temples with the tips of my fingers, “I had to go to therapy and no one could ever explain anything. Like I said before, I never mentioned what really happened to anyone. I didn’t know whether I was more afraid of people thinking I was crazy or if I was really more afraid of that – voice. All I said was that I blacked out on my way down the stairs. Ended up being in all the papers and my family and I had to move to a whole new town. After that it was just kind of swept under the rug and people stopped asking questions. My parents never bring it up. They pretend it didn’t happen. I like to do that too. So now that I’ve told you I don’t want to hear another word about it. And if you tease me or prank me, so help me God I’ll dump your ass.” I was trying to make a joke to help break the tension but I could feel myself shaking as I recounted the story. It had been some time since I’d thought about that traumatizing day. I felt tears form in the corners of my eyes but quickly blinked them away. 
+
+ 
+
+ 
+
+Tim sat silently and still, his expression one of sympathy and concern, “Wow, I had no idea. that sounds really horrifying my dear. I completely understand your fears now. I’m feeling a bit less fond of the dark too now myself.” He kissed me lightly on the forehead and rubbed my arm. “You still okay for dinner with my folks? We can always reschedule and get McDonald’s or something. Watch some *Ducktales*?” I smiled at him and chuckled. “That’s tempting but no. No, we’ve booked a table and everything. Besides it’s too short notice now to cancel. Let’s get going soon. I feel okay. It was a long time ago.” Tim glanced at me in a way that showed he was wholly unconvinced, but he yielded. “Okay my dear, I’ll just take the trash down quickly. Meet you downstairs.”
+
+ 
+
+ 
+
+ 
+
+A few minutes later I had my makeup on and was waiting downstairs on the ground floor. Tim had left ahead of me to take the trash to the refuse bins in the basement and I had expected him to be waiting for me already. But he wasn’t there. I frowned, confused. Is he still downstairs? Why is he taking so long? I tried to keep my panic in check but as the minutes ticked by my heart began to thump loudly. “No, no, no. There’s no such thing as the dark-place. There’s no such thing as the monster in the basement” I stammered to myself softly as I tried to force the panic back down into the recesses of my stomach. “He’s just -  he’s – “ I couldn’t end that thought without the ending being dire. 
+
+
+
+
+
+My blood was electrified with terror as I made a small step towards the basement. The stairway to the basement was curved so the basement door was hidden. I craned my neck and peered around the corner. The large, metal basement door was shut. “Tim? Tim, is everything ok?” My voice shook slightly as I spoke but it was firm and loud. Silence pressed up against my ears. 
+
+ 
+
+ 
+
+I took a step forward and started to descend. I halted after three steps. I felt dizzy now. “Tim? Tim this isn’t funny. I’m really freak – “, then I heard him. “Cara! Cara!  I tripped and hit my head”. I heard him groan in pain, “I think I twisted my ankle. I really need some help.” My fear instantly dissipated. Tim was hurt badly! His voice sounded really worried. If he’d been unconscious this whole time he’d need serious medical attention. Shit! Why had I waited so long to check on him? Of course there’s no such thing as monsters. He needed me and I couldn’t let my fear get in the way. I hurried down the stairs and ripped the door open. As soon as I stepped through the doorway I knew I’d made a huge mistake. 
+
+ 
+
+ 
+
+Complete, utter darkness pressed up against my eyes and I felt an unnatural coldness in the air. I turned to leave but the basement door slammed into me and knocked me back so hard I felt myself leave the floor. I hit the ground hard and yelled with fright, pain and surprise. “What the hell?” I stammered, my head swimming with confusion. “Tim? Timothy!” I whimpered in the pure darkness. I was sitting on the hard, dusty floor which was the only other thing I could sense besides the horrendous cold, my soft sobs and the musty smell. Then a gloomy light bloomed to life. 
+
+ 
+
+ 
+
+My jaw dropped open in horror. It couldn’t be possible. There, many yards in front of me, too far for the size of this basement to be possible, was hanging a single lightbulb. Its light was cold and small. It looked almost exactly like the light from my old basement. As I looked down I yelled and began to wail loudly. Lying in the light of the bulb was the mutilated, bloodied corpse of my dear, sweet Timothy. The man who I had wanted to marry. The man who always made me feel safe. The man who knew exactly how I liked my coffee and pancakes. 
+
+ 
+
+ 
+
+Oh my God! He was dead! That thing had got him and it was all my fault. Guilt, terror and pain of all kinds washed over me. Tears poured down my face and I yelled incomprehensibly, pleading for someone to help. Suddenly, another identical lightbulb popped to life before the first. Then another. Then another. Soon, hundreds of lights sprung to life. The line of lights made a beeline toward me and the final lightbulb flickered to life in front of me. I heard the sizzle and hum of its electromagnetic field as it hung above me. I was frozen from fear. I had no idea what to do. 
+
+ 
+
+My eyes burned with tears and I squinted because of the bright fluorescent lights. I shouted from fright as I heard a lightbulb suddenly explode. I gazed down the line of lights and saw the silhouette of a man standing beneath the broken bulb right at the end. Then the next bulb in the line burst and the man instantaneously stood beneath it, now one light closer to me.  
+
+ 
+
+ 
+
+With a loud pop the next bulb blew. Then the next. Suddenly, all the bulbs were exploding one after the other louder and louder. I saw the silhouette get closer and closer, as swift as a shadow. I stood to run, vomit making its way into my mouth as my heart screamed from panic. As I turned to face the dark behind me a cold hand grabbed my throat. I felt myself lift into the air. The cold hand squeezed ever tighter. As I sputtered, unable to breathe, I heard a soft, raspy male voice say, “We warned you”.
