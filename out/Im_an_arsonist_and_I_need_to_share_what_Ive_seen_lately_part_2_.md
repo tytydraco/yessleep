@@ -80,7 +80,7 @@ The cleaner comes walking back and tells me that a guy dressed in a black suit d
 
 “Hey man I don’t know I was just told to give it to you” 
 
-“Alright thanks.” The cleaners walks away from me as I take a look at the sealed envelope that says “to my protege” covered with some drawn rose flowers around the words. I tear open the envelope and take out the card inside of it. It’s a get well soon card with a dog that has an ice pack on its head and a thermometer in its mouth on the cover. When I open the card it has 2 words written all over the inside. 
+“Alright thanks.” The worker walks away from me as I take a look at the sealed envelope that says “to my protege” covered with some drawn rose flowers around the words. I tear open the envelope and take out the card inside of it. It’s a get well soon card with a dog that has an ice pack on its head and a thermometer in its mouth on the cover. When I open the card it has 2 words written all over the inside. 
 
 “Suit yourself.” 
  
