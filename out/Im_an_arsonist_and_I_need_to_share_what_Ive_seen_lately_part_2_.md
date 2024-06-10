@@ -64,11 +64,11 @@ As I come flying into the parking lot just thankful I didn’t crash I take up t
 
 “What’s good”
 
-“Hey you’re Jackson *********** right”
+“Hey you’re Jackson *********** right?”
 
 “Yeah why?”
 
-“Some guy left a letter for you at the main office. Lemme go grab it real quick. We were going to give it to you in the morning but as long as I here I might aswell give it to you” 
+“Some guy left a letter for you at the main office. Lemme go grab it real quick. We were going to give it to you in the morning but as long as I got you here I might aswell give it to you” 
  
 He walks away leaving his carts of towels and cleaning sprays behind as he walks to the main lobby. 
 
