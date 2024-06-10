@@ -17,3 +17,5 @@ I decided to stay put and ration my supplies, hoping someone would find me. That
 Today is day four. I’m exhausted, hungry, and losing hope. The whispers are constant now, and the shadows feel closer. I’ve tried every possible direction, but the forest seems determined to keep me here. I’ve been writing this down in my journal, hoping it might help someone understand what’s happening to me.
 
 I’ll update again if I can. If anyone reads this, know that something in this forest doesn’t want me to leave. And if I don’t make it out, at least my story will be told.
+
+[Part 2](https://www.reddit.com/r/nosleep/comments/1dcjuhx/ive_been_trying_to_escape_the_woods_for_4_days/)
