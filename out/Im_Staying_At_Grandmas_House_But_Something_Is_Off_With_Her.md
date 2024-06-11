@@ -114,11 +114,11 @@ I reached out and disarmed her of the pillow.
 
 Her wrinkled hands covered her pencil-thin lips and she let out a childish giggle.
 
-"Your mind can play all sorts of tricks on you when you are tired. Get some rest and I will see you in the morning for breakfast."
+"Your mind can play all sorts of tricks on you when you are tired. Get some rest and I will have you downstairs for breakfast in the morning."
+
+I thought that was a strange way of phrasing that sentence.
 
 She left and closed the door behind her.
-
-Now I am here, typing this up on my phone. I can't stay here any longer and I am afraid that if I fall asleep again, I may not wake up. I can't call the police because no crime has been committed and I wouldn't want to cause Grandma any stress as she is elderly after all.
 
 Eventually, a much welcome wave of tiredness swept over me and I was back into a deep slumber.
 
