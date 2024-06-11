@@ -1,0 +1,15 @@
+I set out in my car towards a mountainous region to go to the old house that was my family's legacy. When I got home, I saw the log cabin. Spider webs were everywhere and it was freezing inside. The cold air nipped at my skin, sending shivers down my spine. The wooden floors creaked under my weight, echoing through the silent house. Dust particles floated in the beams of sunlight that managed to pierce through the grimy windows.
+
+When I went out to get wood, **I noticed something behind the trees**. It was just a fleeting shadow, but it was enough to make my heart race. *"Who are you?" I asked*, my voice trembling slightly, but the figure suddenly disappeared. I stood there for a moment, the forest eerily silent around me.
+
+**I told this to the neighbor across the street, an old man with a weathered face and kind eyes**. *He said it might be my imagination, that I looked tired*. He invited me in for a cup of coffee, and we chatted for a while. The warmth of his home and the smell of freshly brewed coffee was comforting.
+
+In the morning, I noticed items scattered around the house. Books, old photographs, and some kitchen utensils were strewn across the floor. I was in a deep sleep and didn't pay attention to the sounds outside. It was evening before I finally cleaned the area around the house.
+
+I decided to go to the market in the evening and got in the car. **However, I was surprised when my car battery died**. Frustrated, I got out of the car, and when I opened the hood, I heard the sound of glass breaking. Panic surged through me as I ran home, only to find shards of glass scattered on the ground. The windows of my house were not broken, adding to the mystery. As *I walked towards the car*, **I noticed that the tire was flat**. Someone had slashed it, leaving me stranded.
+
+I went to the neighbor across the street again. He didn't say anything about the glass but suggested there might be a stone in the wheel of the car. **He offered me to spend the night with them**, and I accepted. Their hospitality was a welcome relief from the eerie happenings at the cabin.
+
+**At night, when I tried to get water to drink**, I felt a cold wind from downstairs. I went out and saw a fire burning below. A black silhouette was walking around the fire, chanting something inaudible. **When he saw me, he started running towards me**. My heart pounded in my chest as I hid among the logs. After waiting hungry for 3 hours, I finally gathered the courage to run. **I ran 5km** through the dark, dense forest, my lungs burning and legs aching, and reached a small settlement a few hours later.
+
+I woke up in the early hours of the morning with scratches and bruises everywhere and explained what I had experienced. However, people here said there was nothing there except 2 abandoned huts. When we returned home *with the police*, we couldn't find any traces. **They towed my car**, and I took my belongings and left. I wanted to leave these mysterious events behind, but questions about what happened were still floating around in my mind. The eerie silence of the forest, the shadowy figure, and the mysterious happenings would haunt me forever.
