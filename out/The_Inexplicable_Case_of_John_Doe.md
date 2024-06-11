@@ -141,3 +141,5 @@ The car he was found in the previous time was registered to an elderly man a few
 I'm ashamed to say I didn't join the search to find the missing officers. To be honest with you, and I feel guilty about this, I hoped they didn't find John Doe, missing men be damned. I couldn't bear to do another autopsy on him, and resolved to quit on the spot if they found him. And lucky or unlucky, they didn't. They never found a trace of him, nor the police officers who followed him. No blood, no sign of a struggle, not even a footstep.
 
 It’s been many years since then. I think he's gone for good. I don't know what John Doe wanted but I guess he must have gotten it somehow. Or maybe he’s haunting some other benighted ME’s office somewhere. I'll tell you, while I like my job and I always have, I’ve hated unzipping body bags since then. I'm always half afraid it will be John Doe in there, laughing at me. My retirement is coming up soon and I’m looking forward to never having to wonder if I’ll see him again.
+
+[\*](https://linktr.ee/sipixre)

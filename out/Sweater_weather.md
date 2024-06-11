@@ -117,3 +117,5 @@ After a minute I asked, “So when you threw the jacket at it, you turned all th
 “Nah,” I said. “You seem fine to me.”
 
 I gave Alan a lift home. There wasn't much to say after that story. As we drove in silence I started to get that feeling again. In the dark enclosed space of the car, with the streetlights flashing by few and far between, I kept imagining if a figure was behind us in the back seat. I kept flicking my eyes to the rear view mirror to make sure there was nothing there. I turned on the radio. We chatted a bit and then I was pulling up to his house. He got out and I watched him go inside. I caught a flutter of motion as I was pulling away. His neighbor had left a windbreaker draped over their porch railing. It was neon colored and caught the light as it stirred slightly in the wind. 
+
+[\*](https://linktr.ee/sipixre)

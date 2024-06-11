@@ -225,3 +225,5 @@ There was a long pause.  
 Then he walked away.
 
 I don’t have [an](https://alderrayne.com/) [answer.](https://www.reddit.com/r/goatvalleycampgrounds/)
+
+[Next post.](https://www.reddit.com/r/nosleep/comments/1dd4urw/how_to_survive_college_ive_been_spending_a_lot_of/)
