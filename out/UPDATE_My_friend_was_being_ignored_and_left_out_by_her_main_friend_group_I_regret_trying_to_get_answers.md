@@ -167,3 +167,6 @@ Sandra giggled. “That was the reason we introduced her to the bug, so...”
 
 
 The employee gave me her phone, then she told me to vocalize every word I type. As I typed this, the girls giggled and rolled their eyes at every moment of fear I recounted. They want me to feel small, but I'm too distrusting of them already. I want this to be settled peacefully and maturely. I don't want to go through anymore torture.
+
+
+[Update](https://old.reddit.com/r/nosleep/comments/1ddpssg/final_update_my_friend_was_being_ignored_and_left/?)
