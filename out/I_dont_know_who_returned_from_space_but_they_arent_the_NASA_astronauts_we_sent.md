@@ -400,7 +400,7 @@ Dr Parker scoffed. “Dr Odell needs to–”
 
 “The fragments were dangerous. The audio recordings made that abundantly clear. Dr Long ordered us to destroy the samples,” Dr Zeeland said.
 
-At that moment, Veronica Riding emerged from the lab, which was being barricaded by Dr Zeeland’s hulking form. The sheepish was pushing a trolley of black waste bags, and she seemed to be trying to avoid detection. Regardless, hope sparked in my mind, as Veronica was a close friend of mine, not just a colleague.
+At that moment, Veronica Riding emerged from the lab, which was being barricaded by Dr Zeeland’s hulking form. The sheepish woman was pushing a trolley of black waste bags, and she seemed to be trying to avoid detection. Regardless, hope sparked in my mind, as Veronica was a close friend of mine, not just a colleague.
 
 I hoped she would clear up the strangeness of the situation. The idea of NASA discarding such an important historical find seemed unthinkable to me. It was a lovely thought. There’s no denying that. I wanted to entertain the possibility of the agency putting mankind’s safety before mankind’s progression. But I’m not a moron.
 
