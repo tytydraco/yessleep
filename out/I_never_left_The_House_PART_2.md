@@ -2,7 +2,6 @@ PART 1:
 
 [https://www.reddit.com/r/nosleep/comments/1db2p4d/i\_never\_left\_the\_house/?utm\_source=share&utm\_medium=web3x&utm\_name=web3xcss&utm\_term=1&utm\_content=share\_button](https://www.reddit.com/r/nosleep/comments/1db2p4d/i_never_left_the_house/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
-  
 It has been a bit more than a day since I woke up alone in The House. I’m so happy to see that some people answered to my post, this means you are all real people living at the same time as me, and that I’m not alone, so I guess that’s the first lie I’m discovering.
 
  
@@ -59,7 +58,7 @@ I then moved to a drawer. I opened the top one and it was full of pages. I took 
 
 *Mental Issues:*
 
-*Subject 1 seems to show signs of paranoia as well as delusional disorder (see “February 2016 Incidents Reports” file) (02/16/2010)*
+*Subject 1 seems to show signs of paranoia as well as delusional disorder (see “February 2010 Incidents Reports” file) (02/16/2010)*
 
 *-> under control (11/25/2010)*
 
@@ -95,6 +94,6 @@ I was suddenly woken up in the middle of the night by a loud noise. The little g
 
  
 
-I woke up this morning and my whole body was hurting, I had a few bruises all over my body. The little girl was lying where she fell last night, and, after a few minutes, I gently woke her up. She opened her eyes, and she seemed back to normal. I asked her if she was okay, and, to my surprise, after a few seconds of looking around her, she mumbled a “yes”. I was kinda shocked to see that she could actually talk, but I didn’t mean to scare her, so I just asked her name, to which she answered “Ava”. I looked at her arm. The wounds already started to heal, but she was covered in blood, and I had no idea how to treat them, so I told her that she needed to wash herself. She agreed immediately, and I took her to the shower. She seemed to know how it worked, so I left her alone.  
-  
+I woke up this morning and my whole body was hurting, I had a few bruises all over my body. The little girl was lying where she fell last night, and, after a few minutes, I gently woke her up. She opened her eyes, and she seemed back to normal. I asked her if she was okay, and, to my surprise, after a few seconds of looking around her, she mumbled a “yes”. I was kinda shocked to see that she could actually talk, but I didn’t mean to scare her, so I just asked her name, to which she answered “Ava”. I looked at her arm. The wounds already started to heal, but she was covered in blood, and I had no idea how to treat them, so I told her that she needed to wash herself. She agreed immediately, and I took her to the shower. She seemed to know how it worked, so I left her alone.
+
 I’m currently waiting for her to finish as I’m writing this. I have so many questions, and I don’t understand everything, but if any of you ahs more questions, or any advices, I’m more than [open.](https://www.reddit.com/user/markimdreaming/comments/1c1gwgd/full_universe_timeline/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
