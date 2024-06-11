@@ -1,4 +1,7 @@
-**READ PT 1 FIRST**  
+
+
+https://www.reddit.com/r/nosleep/s/ynOstLZXNA
+
   
 I’ve always been a skeptic. Ghost stories, haunted dolls, curses – they were just the stuff of fiction to me. But now, faced with this relentless terror, I knew I needed help. Desperation drove me to contact a paranormal investigator I found online. His name was Dr. Elias Thornton, a renowned expert in dealing with supernatural phenomena.
 

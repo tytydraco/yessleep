@@ -56,7 +56,7 @@ As I leave I put the “do not disturb” sign on the door handle outside. I don
 
 When I leave I do my usual routine which consists of going to the liquor store, picking up some bars from my plug in a city over from mine, taking 2 2mg hulks and going to the bar. This isn’t a great way of living. Obviously I’ve not made the best life choices  but I’m not going to let a bunch of random fucks in the comments tell me how to live. 
 
-As I usually do I stumble out of the bar around closing time and hop in my car for the drunkin ride back. There’s not a lot of other cars around the 2am around my parts so I get a peaceful drive home almost every time. It gives me a lot of time to reflect on things which may be for better or worse depending on who you ask. 
+As I usually do I stumble out of the bar around closing time and hop in my car for the drunkin ride back. There’s not a lot of other cars around 2am around my parts so I get a peaceful drive home almost every time. It gives me a lot of time to reflect on things which may be for better or worse depending on who you ask. 
 
 As I come flying into the parking lot just thankful I didn’t crash I take up two parking spots and stumble towards the door to my room. As I’m grabbing the key card to my room one of the workers calls out to me.
 
