@@ -407,4 +407,6 @@ That church. It reminded me of something. In the morning, I’m going to check o
 
 On the bright side, there weren't any crows waiting for me when I got home. 
 
+Update: [I think I know what church it is. Also, I encountered a Weeper.](https://www.reddit.com/r/nosleep/s/drXdHZgAZ7)
+
 [(Here's an index of all the cases I've discussed so far.)](https://www.reddit.com/u/adorabletapeworm/s/DSCXrJChCH)
