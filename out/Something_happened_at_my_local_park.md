@@ -96,7 +96,7 @@ We tagged some pretty cool stuff in the bathroom, made some sick drawings. That�
 
 “I don’t know, lemme go check it out,” Neo said.
 
-I walked out with him, and he said he wanted to go look around for a minute. I walked around with him for a bit, then go back.
+I walked out with him, and he said he wanted to go look around for a minute. I walked around with him for a bit, then went back.
 
 He stayed behind.
 
@@ -210,4 +210,4 @@ There was a security camera at the park. We are now able to see who committed th
 
 The police then showed me the footage of what happened at the park that night.
 
-The footage showed me, brutally murdering my three friends. The reason that I am able to be writing this right now, is because they are giving me one chance to write out my story. Tomorrow is my execution.
+The footage showed me, brutally murdering my three friends. It was all there. I ripped out. Neo's intestines and hung him from the tree. I sunk a rusted machete into Jude's head. I hung Matthew from the bridge with ripped out lungs. The reason that I am able to be writing this right now, is because they are giving me one last chance to write something or call somebody. Tomorrow is my execution.

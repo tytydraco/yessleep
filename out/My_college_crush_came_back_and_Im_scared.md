@@ -75,3 +75,6 @@ I ignored him, my entire focus was riveted to the hand written note.
 She left an address and said to be there Saturday at noon. 
 
 I don’t know what to do. My memories of that night have to be false, there was no police reports, no missing people. It had to have been in my head. Maybe Rachel can clear things up for me, give me the closure I need. 
+
+
+[UPDATE](https://www.reddit.com/r/nosleep/s/Dsfv6eGx5c)
