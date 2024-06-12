@@ -42,7 +42,7 @@ She jerked on the road like a dying hornet, her shattered limbs twisting with a 
 
 “Your area is now a federally-mandated quarantine zone. Until you can be safely evacuated, stay in your home and await rescue. Thank you for your cooperation in this difficult time.”
 
-“What?!” I screamed into the phone. “There’s someone dying here! I need an ambulance!” In response, the message started to repeat, the cool robotic female voice sounding as nonplussed as if it were announcing a sale on produce at a grocery store. I ended the call, looking around hopefully for someone who might be able to help. It was only then I noticed the bloodshed spreading all around me.
+“What?!” I screamed into the phone. “There’s someone dying here! I need an ambulance!” In response, the message started to repeat, the cool robotic female voice sounding as calm as if it were announcing a sale on produce at a grocery store. I ended the call, looking around hopefully for someone who might be able to help. It was only then I noticed the bloodshed spreading all around me.
 
 \*\*\*
 
