@@ -1,0 +1,25 @@
+I don't feel the same, not after what happened that night. I don't feel like anything is real anymore, I feel as if it's all disconnected and distant, the people feel fake like they are in my dreams. This demon. I don't know how it got inside of me but it's there, *I know it is inside.*
+
+
+
+ I've went to the hospital and they've told me there is nothing but they looked at me like I was fucking insane, They were doubting me in my time of need it's just so fucking fucked up. I've tried everything, but I can't do anything, there is one option left, but I will do it after this note. This thing should be known about if it is to happen to others.
+
+I had just gotten home after working hard at the mines, I live alone, usually with my cat but she had gone missing a few days prior so I would leave my back door open for her to walk inside as I relaxed around the house. I was sitting in the kitchen eating my dinner until I heard this knocking sound coming from the front door. I walked up to it and opened it but nothing was there, but some dark stain was in the grass just outside of the light of my front porch. I didn't feel like walking out to see it, but something felt strange about it, I felt an extreme amount of paranoia. What if it was my cat's blood?
+
+
+
+ I was too scared to go outside so I went to take a shower. My boiler is busted so I usually just take cold showers with spurts of warm water, but for some reason this water was hot. Burning hot, the steam rose to the fan and I pushed through the pain to shut it off. After I did shut it off, I went to the boiler and tried to call the manufacturers of the model but it didn't have a model number, serial number, or manufactured date. The man on the phone told me that there should be one. I told him the truth, but he started laughing. He started laughing at me, I hung up the phone and just decided to completely turn off the boiler. So I looked for a valve to shut the water off... I could never find it, but I think it's because the boiler wasn't an actual boiler. It was fake, like everything else in my god forsaken house.
+
+
+
+I walked to the front porch and looked at the dark stain, I built up some confidence to go and look at it. I walked out to it and tried to touch it but my hand passed through it. It may have been a hole, perhaps, but I decided to leave it alone and walked back inside. When I walked inside my home didn't feel the same, it didn't feel like home. 
+
+
+
+Something wicked was inside and I felt doom as its footsteps walked down the hall. I ran upstairs and shut my bedroom door. I heard a siren coming from outside, like a trumpet as I shut off all my lights. I hid behind the bed near the window as I heard their thumping footsteps. The siren screamed outside, lights flashing through the window as they walked up the stairs. I sat as still as possible. My door creaked open, I heard it. Then it shut.
+
+
+
+It was in the room with me, I could see its face in the darkness their mask barely visible. They could see me though, I could only see them now. I lost track of them the second they moved, the siren blared and it laughed as it walked towards me. The passing lights shined on the creature, their claws scratched along surfaces as it moved in the darkness. I sat there as the footsteps came closer, oh so quiet they were. I heard it breathe as it stood over me, I wept. It touched me as it crawled in me, I screamed.
+
+I awoke on the floor, beside my bed, it had long cuts deep into the mattress, my dresser had sharp cuts all along it and I had a pounding headache. Yet I felt like nothing. I walked downstairs to see my backdoor was wide open with dirty, inhuman footprints of a creature unknown. I closed it and scrubbed the foot stains off, yet no matter how hard I tried they would not come off. So I ripped out the planks of the floor and burned them in my fireplace. I went to the mines and worked hard yet I was alone in there as the darkness crept with a haunting siren. I came home, to do nothing. I laid in bed, I could not sleep as the siren roared, I ate but I could not swallow as it laid in my throat, I read, but I could not be entertained knowing it is inside me. I felt so horrible like I was a fraud, the world felt fake, as fake as my home felt when the creature entered it. The house is in ruin much like myself, my boiler has fallen over, my food has gone rotten, and my cat is dead. There is nothing, no family to see, no friends to have. The people around me are so distant, they don't listen to me or see me. I hate it. I hate it all. This demon inside of me tells me horrible, horrible things. I don't want to listen to it, but... they deserve it. I am torn, on what to do. Let the demon win? Listen to it, or try to take it with me... I think... I should do the world one last favor.
