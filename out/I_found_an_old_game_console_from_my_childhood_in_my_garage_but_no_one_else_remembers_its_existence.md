@@ -186,7 +186,7 @@ I heard a hissing from behind me, a sound that sent both waves of dread and a sm
 
 The Creeper and the worm stared at each other across a no-man’s land of whipping dunes and blowing sands, neither moving. They might have both been statues at that moment.
 
-Without warning, they ran at each other, Tristan now completely forgotten. The Creeper took his fist with Tristan still inside and struck out at the worm. I saw his body go flying in the chaos of the battle, soaring through the air in a graceful arc. Spatters of bright blood followed him through the air. A moment later, Tristan landed in front of me, gasping and bleeding. I ran over to him, my breath catching in my throat.
+Without warning, they ran at each other, Tristan now completely forgotten. The Creeper took his fist with Tristan still inside and struck out at the worm. I saw Tristan's body go flying in the chaos of the battle, soaring through the air in a graceful arc. Spatters of bright blood followed him through the air. A moment later, Tristan landed in front of me, gasping and bleeding. I ran over to him, my breath catching in my throat.
 
 His entire left arm was gone, ripped off. Bright-red arterial blood spurted from the ragged stump, staining the beige sands a deep scarlet. His eyes met mine, fluttering and roaming the black, hellish skies overhead with ineffable pain and fear.
 
