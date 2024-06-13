@@ -1,4 +1,6 @@
 
+*Repost
+
 Abigal and I grew up together. We’ve always been incredibly close. When my mother went to work on the plantations for extended periods of time Abigal was always there for me. We took care of one another. Abigal required a lot of care and attention. Sometimes the care had me burnt out especially when she was sick. But, whenever I needed a friend to talk to or a quick snuggle, Abigal was there. 
 
 My mother adopted Abigal when I was a toddler. Abigal was just born and needed a home. My father had just died; I think my mom decided to take in Abigal to fill the void she was feeling. Being a single mother of two it was not surprising that my mother struggled to feed both Abigal and me. She often worked several jobs to make ends meet. Sometimes she would disappear for weeks at a time to work on local plantations, traveling from one to another. While she was away Abigal and I had only one another to depend on. I was responsible for keeping the small shack we resided in clean. Abigal oversaw hunting and gathering food. Abigal was incredibly greedy and often I was left to hunt and gather my own food in addition to my many other chores.  
