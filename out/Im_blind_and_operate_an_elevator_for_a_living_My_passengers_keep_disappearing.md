@@ -1,6 +1,6 @@
 Last year, when my ten year prison "stint" was finally up, and I re-entered society, I encountered some... obstacles.
 
-Obstacles like.. Lack of upward mobility. Prejudices and stigmas. Wages and earnings lower than the general population. Undesirable and oftentimes dangerous jobs. And lack of protection from wrongful termination.
+Obstacles like... Lack of upward mobility. Prejudices and stigmas. Wages and earnings lower than the general population. Undesirable and oftentimes dangerous jobs. And lack of protection from wrongful termination.
 
 Not to mention, an already tough job market, and the fact that my parole required that I maintain steady employment, or face re-incarceration.
 
@@ -470,7 +470,7 @@ But the joke was met was silence. I simply stood there, shaking, as Mr. Winfred 
 
 —
 
-A few weeks later, after the authorities had done a full sweep of the basement, and cleared out all traces of the building' old laboratory, I found myself once again back in the manager's office.
+A few weeks later, after the authorities had done a full sweep of the basement, and cleared out all traces of the building's old laboratory, I found myself once again back in the manager's office.
 
 "Mr. Owens. This is the last time I'm gonna tell you this!" Jane joked, as I heard her recline back in what was once Mr. Winfred's chair, having been named interim manager since her boss's recent and... ironic... prison sentencing.
 

@@ -48,7 +48,7 @@ She jerked on the road like a dying hornet, her shattered limbs twisting with a 
 
 “What is that?!” a female jogger cried, pointing at the sky. My eyes widened in confusion and horror as I tried to comprehend what I saw there. No one was looking at me or the woman I had run over. No one had even noticed in all of the chaos.
 
-A writhing, twisting black mass of thrumming flesh stretched over the forest, growing at a rapid rate over the tops of the trees. The mass was a few feet across, lumpy and wet. It seemed to be passing fluid through its main body, like some enormous intestines uncoiling out above the world. It stretched upwards like something from Jean and the Beanstalk, growing and curving back down towards other tube-like masses.
+A writhing, twisting black mass of thrumming flesh stretched over the forest, growing at a rapid rate over the tops of the trees. The mass was a few feet across, lumpy and wet. It seemed to be passing fluid through its main body, like some enormous intestines uncoiling out above the world. It stretched upwards like something from Jack and the Beanstalk, growing and curving back down towards other tube-like masses.
 
 Every few feet along the fleshy, worm-like mass, hollow protrusions as long as railroad spikes shot out. They reminded me of spider legs, jointed and covered with fine, dark hairs. They skittered constantly as the central body continued growing. Even from the street, I could hear the wet, sucking sounds the legs made as they constantly flexed and relaxed, dripping black sludge like dirty oil from their glossy skins.
 
