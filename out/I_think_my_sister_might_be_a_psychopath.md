@@ -8,6 +8,7 @@ Until she met Zane Hargreeves.
 
 We live in a small town, everyone knows everyone. We met Zane when we were fourteen. He moved here with his parents and younger sister. Zane was our age, so our mother encouraged us to visit the family when they moved in, in hopes that we would become friends. 
 Something changed in Roxanne when she saw Zane for the first time. He was tall for his age, he was sweet, funny, and even I had to admit that when the light danced off his pale blonde hair, he looked almost angelic. 
+
 Zane and his sister Elizabeth were eager to join our group of friends. There were five of us until that point. Myself, Roxanne, and our friends Lucas, Alec, and Kyran, my boyfriend.
 Alec and Zane really clicked. They became best friends within a matter of weeks, and they were inseparable. They still are.
 

@@ -4,9 +4,8 @@ PART 1:
 
 PART 2:
 
-[https://www.reddit.com/r/nosleep/comments/1dchddi/i\_never\_left\_the\_house\_part\_2/?utm\_source=share&utm\_medium=web3x&utm\_name=web3xcss&utm\_term=1&utm\_content=share\_button](https://www.reddit.com/r/nosleep/comments/1dchddi/i_never_left_the_house_part_2/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+[https://www.reddit.com/user/markimdreaming/comments/1deuf53/i\_never\_left\_the\_house\_part\_2\_reupload/?utm\_source=share&utm\_medium=web3x&utm\_name=web3xcss&utm\_term=1&utm\_content=share\_button](https://www.reddit.com/user/markimdreaming/comments/1deuf53/i_never_left_the_house_part_2_reupload/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
 
-  
 Yesterday, after posting the last part, Ava finally finished her shower. She got out and looked at me. She looked a bit embarrassed, or shy, I’m not sure, I’m not used to this, I usually only interact with Peter. Now that I knew that she could talk, I wanted to ask her so many questions, but she was clearly still scared, so I decided to take it slow. We had to eat, but first, I had to get my shots. We went to the check-up room, and I injected two in my arm. Now I only had 46 shots left. This got me anxious, so I decided to get back to the usual 1 shot in the morning and 1 shot in the evening. They only started to give us two doses a few days earlier, and this could double the time that my stock would last.
 
  
@@ -91,8 +90,8 @@ I looked in the drawer where my file was, but it was thousands of pages of infor
 
 *- First injections -> No physical/psychological changes.*
 
-*Report of the day: Both subjects cry when alone in the yard. No reaction to outside watchers.*  
-  
+*Report of the day: Both subjects cry when alone in the yard. No reaction to outside watchers.*
+
 *04/23:*
 
 *- First changes probably from injections effects: Both subjects already took their first steps after less than a month of life.*
@@ -267,10 +266,10 @@ I continued to look in other cabinet. I opened one and found myself in front of 
 
  
 
-Again, having to read this was a lot. I really liked Tyler and Debbie, and apparently, they were part of some sort of test. But still, they’re the ones that warned us about that place and that bad things were going to happen.  
-  
-After that first page. I decided that it was enough for that day. I had been reading for a moment, and I didn’t even check on Ava. Before leaving, I tried to use the office computer as some said I should, but it asked a password, which I don’t entirely understand.  
-  
+Again, having to read this was a lot. I really liked Tyler and Debbie, and apparently, they were part of some sort of test. But still, they’re the ones that warned us about that place and that bad things were going to happen.
+
+After that first page. I decided that it was enough for that day. I had been reading for a moment, and I didn’t even check on Ava. Before leaving, I tried to use the office computer as some said I should, but it asked a password, which I don’t entirely understand.
+
 I got up and, suddenly, I was facing myself. Just in front of me, standing, it was me, or should I say, something that looked exactly like me. I was petrified. I didn’t know what to do. It smiled to me and started to speak. “You’re lonely, aren’t you?” it said. “Come on, follow me, I know where to find Peter.” it continued. It started to walk and I followed it, but it stopped pretty fast. That thing turned back to me. “Or maybe you could just die. You wouldn’t be alone” it said. I couldn’t believe what I was seeing. In a second, that thing jumped on me and we fell on the floor. It was on top of me, and it started to punch me, laughing. I was trying to protect myself but couldn’t. It then started to scratch my face with its nails. It was painful and I put my hands on my face to protect me. I couldn’t see because of it. A few seconds later, I heard it laughing one last time, and then, silence. I carefully removed my hands from my face and there was nothing there anymore.
 
  
@@ -291,8 +290,8 @@ We went back inside. I was seriously disappointed, but at least I knew he was so
 
  
 
-During the night, I tried to look on the computer for some names of antidepressant medications. I knew from her file that she was treated with it, and maybe some of the pills in the check-up room that have names that I don’t know are antidepressants. Unfortunately, the computer refused to let me do that research. The person who said that my internet access was heavily restricted was right apparently. I’m getting very worried for Ava, so if some of you could look for names of antidepressant medications, it would help a lot.  
-  
+During the night, I tried to look on the computer for some names of antidepressant medications. I knew from her file that she was treated with it, and maybe some of the pills in the check-up room that have names that I don’t know are antidepressants. Unfortunately, the computer refused to let me do that research. The person who said that my internet access was heavily restricted was right apparently. I’m getting very worried for Ava, so if some of you could look for names of antidepressant medications, it would help a lot.
+
 I managed to stay awake for maybe 3 more hours, but I ended up falling asleep. I woke up today very early. Ava is still sleeping, and I decided to take the time to write you this before the day really starts.
 
  
