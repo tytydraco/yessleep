@@ -1,42 +1,83 @@
-[https://www.reddit.com/r/nosleep/comments/1apicqe/i\_stumbled\_across\_a\_monster\_in\_the\_middle\_of\_the/](https://www.reddit.com/r/nosleep/comments/1apicqe/i_stumbled_across_a_monster_in_the_middle_of_the/) 
-
-&#x200B;
-
-I am back. It has been a week since the last incident, and the veteran arrived last week. His name is Alex and he is very tall, and has worked with the national park service for at least 20 years. He told me and Jordan  he has wrestled an alligator before. He’s also hunted a bear for 20 miles in the smokie mountains.   
-  
-I asked him how long he has been out here in Joshua Tree. He told me he has been here for three years. He told us that this isn't really harsh weather and the biggest predator out here is a mountain lion. If someone was to get lost, they could spend days out here being completely fine with the right amount of food and water that they need to survive. But he told us the way people disappear only to be found dead miles and miles away is just so, so strange. He told us he was searching for a senior citizen who was hiking by himself. He wasn't heard from for a couple days and the family came to the Search and rescue workers for help  
-  
-Alex told us how they would have these dogs that would catch a scent and lead the SAR to a sheer cliff and then lose it. Then the dogs would catch the scent later on again, and lose it again. The only evidence they ever found was the hand of the guy sticking out from one of the branches of a Joshua tree. As if whatever out there got him, was taunting SAR.   
-  
-He also told us that they would find dead people 30 miles away from where they were last seen. This is impossible because most people would be missing for only a few days. Sometimes SAR would find bones, backpacks, shoes or nothing at all. They would never find the entire body of a missing person.   
-  
-Now let me tell you the layout of the park. Since we are at the back of the park, there is only about 20 miles of desert, before you get to the back of the park. There's a long wired fence with a sign that says, ‘WARNING, SAR and NATIONAL PARK SERVICE ARE NOT RESPONSIBLE FOR YOUR SAFETY BEYOND THIS FENCE’ , beyond the fence are the large dirt hills.   
-  
-There are  reasons we don't monitor beyond the fence. There are mines out beyond the fence that are old and unsafe and some mines can go 100 feet underground. If someone steps on the wood on the top of the mine, they can fall and die. There are also caves on the hill that can collapse and kill people. The national park service doesn't want incidents happening and people looking at them with a bad eye, so they don't allow people back there.  
-  
-But some people do go past the fence. A couple days ago, one lady asked us if we could monitor past the fence. We said no and she said that she saw something strange up on one of the hills. She said, “I went past the fence to get onto the top of one of the mountains to take some pictures. When I got up there I saw this guy about 200 feet away, and started walking over to him, figuring that he got a good view of the sun or the desert. As I got closer to him I noticed that he was not wearing any clothes. He was wearing fur. I just froze, too scared to move. He got closer and I noticed that it was as if someone found mountain lion roadkill and put it on. He was standing up right, the shape of a human, had big ears, and his face was smushed. He had these spots all over him, which were covered with blood, like he got hole-punched or lasered all across his body. He came over to me and was trying to talk to me. The only thing that was coming out of his mouth was blood, muscle and bone. He shook me and the only thing I could comprehend from him was the word ‘RUN’ He noticed that I couldn't understand and ran off down the mountain.”   
-  
-Alex told us that we need to go find this dude. He could be a crazed individual or a homeless person, and they can get killed. Me and Jordan were freaked out but agreed that we should probably find this and not have any more incidents that involve this guy. We started hiking to the mountain in the morning and got to the hill that the woman described around noon.   
-  
-As we climbed up the mountain, I started to smell something weird. “You smell that?”, I asked. “Yeah, it smells like death, we need to track it..”, Alex responded. We followed the smell until we got to this hole. Alex shined his light down the hole and saw a tunnel going into the hill. The tunnel was too small for Jordan or Alex to fit into, but I was the only one small enough to squeeze through and travel down the tunnel.   
-  
-I put my arms in front of me and pushed my way through. The tunnel was tight. About 2-3 feet for the height and I had only about 3 inches to wiggle around and get all my limbs into the tunnel. I started gripping for rocks in front of me. The tunnel was going down. That meant I had to have my feet hooked onto rocks behind and grab onto rocks ahead of me, shifting my way down. I did this because I didn't want to go so fast and slide down the tunnel into a potential embankment and die.   
-  
-It took me 20 minutes to get through the tunnel. I yelled back saying I was safe, “I am gonna see if I can get through.”, Jordan Yelled at the top. I thought that was a good idea. After all, I didn't have a flashlight and it was pitchdark. After another 20 minutes Jordan finally got to the bottom and turned the flash light on.  
-  
-I saw sand on the ground and more tunnel to pass through. There was enough room for us to crawl through. The smell of something grew stronger and stronger. I heard Jordan gag and wheeze behind, covering his nose with his shirt. We got to the end of the tunnel and saw an opening.   
-   
-I stepped through and smelled it. Something died and was rotting in this room. The room trapped all the air in, giving it a horrendous smell. Jordan stepped through and turned the flashlight on. I looked around the room and I saw it. Animal skins everywhere. There's a pile resting neatly on a pile of sand and intestines in the far right of the Corner. Jordan gagged even harder. He turned the flashlight to the ceiling  and I saw writing on it. It was as if someone carved writings on the ceiling with stone, the words looked jagged and rushed. I saw things like ‘They are coming to save us’ and 'Their faces melt in the sun’ ‘they want to be like us’ There was a drawing of a man with no skin and there were words next to it saying, ‘they lied, they want our people so they too can be perfect.’ Huge words on the top of the ceiling said ‘HE SEES ALL, HE KNOWS ALL’   
+I know I’m going to sound insane to you, but what has been happening to me has freaked me out for many years. For context, I live in the mountains. The little town that I lived in used to have a road going through it, and forest on either side. We used to get a lot of visitors around autumn because of how pretty our little town looked. 
 
 
-I looked at Jordan, and he looked at me. It can be seen in his eyes, that he was equally as terrified as I was. I looked around and Jordan walked over to the skins. There was a small hole going down next to the intestines. I tried to take pictures when I heard something coming from the hole. I looked down. It was as if something was crawling in the holes. At first it sounded far away, but it sounded like it was getting closer and closer. It was climbing up.  
-  
-“Jordan, we need to get out of here!”, as I said that I heard a loud yell from behind me. It came from the hole. I grabbed him and pushed him through the room and into the tunnel. We scraped ourselves badly, but I didn't care, I was too scared to look back. As we rushed upwards, whatever that monster was, was right behind us  
-  
-I saw the light of the entrance, and I pushed Jordan to go faster. A hand reached through the entrance and pulled Jordan through. I shoved him and we both made it out. Alex was standing there looking at us, “What was that?” he said, picking Jordan up. “I..I don't know what that was.”, I said, getting up. I checked my arms and legs and noticed there were scrapes and bruises. I told him what we saw down there. He said that he didn't care right now, that we needed to go back and clean ourselves up.   
-  
-As we were walking back to the information building, I saw white writing on the back of Alex’s car. As we got to the information building, I saw Alex freeze. He was looking at the back of the car. I looked and there was a drawing of earth on the back of it. There were words that said ‘Found you!’ in cursive, Alex ran into the informational bathroom and locked himself in. I tried talking to him, telling him to open up the door  
-  
-The only thing that came from the over side of the door was crying and whispers of “I shouldn't have done this, I had the option to quit, last year. Why was I an idiot and didn't quit last year” and “How did they find me so quickly? The higher ups said it was at least a year before they found me.”, I heard that all night long  
-  
-I will be getting some rest. It is 1 am and I am pretty tired. I will see if I can get back in 1 or two weeks if I have anything interesting happening. Me and Jordan are very scared, and we have no idea what to do.   
+
+Autumn was where we got a lot of money for hotels and restaurants. Many townsfolk anticipate autumn, btu something sinister also comes with this season, that affects our little town
+
+
+
+The Leopard man 
+
+
+
+Some people call him the furry man or fuzzy man, some people call him the polka dot lion, but the most popular name is the Leopard man. Every autumn, he comes through our town, and just stares. He doesn't go in any of the houses, doesn't talk to anyone. Some of the townspeople have said that they have gotten real close to him, and can see that his eyes are bloodshot red.
+
+
+
+He breathes heavily and has the odor of death stuck to him. Many townsfolk find him very unsightly, and try to keep the talk of him low so no tourist can hear about him, and keep the economy stable. 
+
+
+
+But every year, he comes down the road, walks through the town, and leaves into the forest. I always thought he was harmless, until I had first and final interaction with him. I was about 6, and to be honest, wasn't very helpful to either of my parents. I loved to play outside, and when I couldn't, I threw a huge temper tantrum. I usually played in the front yard with my favorite soccer ball, I absolutely loved that thing. 
+
+
+
+But one day, I accidentally kicked it into the forest. I didn't mean to, and I went to ask my parents if I could go get it. They said no and I suggested that me and either my dad or mom go walk into the other side of the street and into the forest to get it, but they still said no.
+
+
+
+I was incredibly sad, I cried my eyes out all day, I was a mess when I went to bed, I was still super sad. I couldn't go to sleep, I kept thinking about that, just staring through my window, hoping I could sneak out before my parents could catch me. 
+
+
+
+But then he came and stared through the window. The leopard man is a danger and shouldn't be messed with. I freaked and ran to the corner of the room, trying to shield my eyes from him. He gestured that I should open the window, but I was too scared. But then the leopard man held something.
+
+
+
+My soccer ball.
+
+
+
+It was deflated, but I didn't care. The leopard man had it and I wanted it back. He gestured again that I should open the window, and this time, I did. I cracked it just a little bit( I was still very scared of him) and smelt his foul odor
+
+
+
+“Wel well well, I believe this is yours' ' said the Leopard man, holding up the deflated soccer ball. “Yes that's mine, how did you find it?” I said prying the window just a little bit more “Well I have been observing you and I know just how deeply you care about that ball, and when you kicked into the forest and couldn't get it back, I felt sad for you, so I trekked through the forest and found it, and am now giving it back to you.”
+
+
+
+“It's ruined, it has a massive hole in it, I can't play with it anymore.” I said looking disappointed “Ah don't be sad, Here, if you come out of the house, me and you can trek to my fixy uppity house, and we can get it fixed in no time” I thought about it, but shook my head “ But you're a stranger, I don't even know who you are, and how do you know where I live?” 
+
+
+
+“ Well I work with the tooth fairies, and together we know all the names of the boys and girls around the globe. I know your names William, and I know who your mommy and daddy are. Would I really be a stranger if I knew what your name was?” I thought about it, it was true, strangers don't know the names of small boys and girls, and who their parents were.
+
+
+
+“I guess not, '' I said. “See I'm not a stranger, I'm your friend, and friends help each other, and that's what I am trying to do with you. So if you crawl out of the window, Me and you can meet all my friends, and the fairies living in the forest together.” said the Leopard man. I was hooked, I wanted to meet all his friends and I also wanted to get my soccer ball back, so I pried the window  and crawled through it. ONe thing that I didn't notice, was that the Leopard man was large 
+
+
+
+He had to be less tall than my dad(H=MY dad is 6 '2) and squeezed my hand so hard that I was afraid he was going to break it. AS we walked, I could tell that he was breathing very hard, and all he talked about was he couldn't wait for me to see his friends at the house. We walked for about a ile through first, until we came through clearing and I saw the house
+
+
+
+It looked like it had been abandoned for years. The roof was caving in, the windows were broken and all you could see was darkness. “Is this your house?” I asked “Yes, doesn't it look so fun? '' said the leopard. I didn't think so “I wanna go home, this is scary '' I said, trying to yank my hand from the man. “No, you're not going anywhere now, this is your home forever, and you're going to meet all my wonderful friends' ' The leopard man said. He pulled me into the house, and I smelt something very putrid. I tried to cover mouth and nose from the smell, and I was trying very hard not to cry
+
+
+
+Inside the house was much better from the outside appearance. THe floors and walls were decaying. The man led me to the basement, and the smell became absolutely horrible, THe man gripped onto my hand even tighter, and I kept telling him that he was hurting my hand, but he just kept walking down the stairs and breathing hard. When we got to the bottom, all my eyes could make out was there shelfs lining the walls with round things on them. The leopard man told me to sit and he went to turn on the basement light. AS he did he said “ I'm so excited that you can finally see my friends, william!” THe light turned on. 
+
+
+
+THe light finally allowed me to see what was in the room, and I screamed, The round things were heads, and they were on every shelf, with labels over them. In the middle of the room, there was a pole with flesh on it, and a pole going horizontal across. It was as if the two poles were making out a cross. I screamed and ran up the stairs. I looked back and I could see a leopard man running behind me, trying to grab onto my clothes and pull me back down. 
+
+
+
+I ran out through one of the doors and into the forest. I didn't know where to go so I hid in some brush. I couldn't go to sleep, I was too scared, and All night long, I heard screaming and running. He was trying to get to me, and I tried to hold my crying until the morning. I survived the night, and eventually made it back to my house early in the morning. My parents didn't notice I was out of the house, and frankly, I was too scared to tell them I sneaked out.
+
+ 
+
+I told none of my experience, and frankly, I would keep my experience a secret for the rest of my life if it wasn't for a news story. They found the house. Turns out the leopard man was some pedophile creep. He liked messing with kids and cutting off their heads and displaying their heads on shelves as like a sick trophy. He was also insane, and stuck all their organs into a cross, to worship the ‘one who shall live forever’ whatever that means. Overall I'm scared, but I'm bringing this story to you, so no people have to live through hell like I have. Screw that leopard man, and screw whoever was related to him. He can die  in hell for all I care
+
+  
