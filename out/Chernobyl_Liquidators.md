@@ -1,12 +1,26 @@
-My name is Sergei and I am currently stationed in pripyat, I am a soldier who got posted at pripyat.
+I have a friend let's call him Sergei, its not his real names since he told me that I can only post this if I hide his name.
 
-My actual name is not Sergei becauseI'm afraid I'l get chewed out for leaking our locations.
+I have known Sergei for a while and I met hime while playing mudrunner and we have talked ever since.  
+He is very nice but he has had a light ptsd from his time in the military.
 
-But I'l tell the story.
+His father told him lot's of stories which definetly could fit in here but those are for another time.
+
+He comes from a middle class family, not to rich not poor, he lives a very comfortable life and works as a extra help on a small farm owned by a very nice lady whose husband bought the farm but died a while ago so she hires him and pays him quite nicely, she is a very nice lady but is a bit older and is lonely but she has a motherly energy which he really enjoys since his mother worked on airplanes and was not always there for Sergei.
+
+Anyway to get back to the story I was going to tell.
+
+I am telling this like sergei told it to me and he told it to me from his perspective so here we go.
+
+  
+One time I got stationed at pripyat, and I often patrolled there.
+
+Most of the time nothing happend with one exception.
+
+
 
 So I was on a night patrol through pripyat riding through the streets in my UAZ-469.
 
-I drive for about 15 ish minutes to start my patrol.
+I drove about 20 ish minutes from the base to start my patrol.
 
 I stop at the new designated parking spot for my patrol.
 
@@ -48,7 +62,7 @@ Maybe the government knew that we were digging trenches and sent people to hose 
 
 some are wearing the recognisable trenchcoat issued to liquidators, some are wearing full body suits issued and soviet era PBF gas masks.
 
-But still something looked 
+But still something looked
 
 Off
 
@@ -219,6 +233,9 @@ But in my dreams they still watched me and even when I got to go home, somtimes 
 
 This is my ghostly story from pripyat.
 
-(side note if don't be surprised if you see this story in the comments of a post in the chernobyl subreddit, that was my original comment and I got complemented that it was a nice story so I decided to expand it and post it here.  
   
-I hope you liked it and I didn't make a mistake and if i did please message me, I will respond eventually.)
+Sergei told me that he always has his makarov in his Mercedes M class in the center console alongside some spare magazines, but he said he never needed it for anything except for one time when he saw a big bear in the woods and fired a warning shot to scare it of but that is it.
+
+I hope you enjoyed the story and any complements I will pass on to Sergei.
+
+Until next time my friends.
