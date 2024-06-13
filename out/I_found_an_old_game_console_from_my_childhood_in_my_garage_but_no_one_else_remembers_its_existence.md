@@ -52,7 +52,7 @@ The white noise from the TV continued escalating into a shrieking cacophony, the
 
 The tunnel morphed and warped around me like an acid hallucination, melting and dripping into spiraling black-and-white trails. A small exit at the end loomed far ahead, just a pinpoint of blackness. It came rushing up at me, widening into an abyss. I fell through it, landing hard on the ground. The air was knocked out of my lungs in a great whoosh, pain rocketing through my back. My head swam and I couldn’t see anything. I blinked quickly, trying to focus. For a long moment, I had no idea where I was or what had happened. Then my memories started filtering slowly back in.
 
-“What…” I rasped, looking around. “Where the fuck am I?” I found myself laying in the middle of a dead valley. Enormous mountains covered in fine, white sands loomed overhead in every direction, their tops as sharp as scalpels. 
+“What…” I rasped, looking around. “Where the fuck am I?” I found myself laying in the middle of a dead valley. Enormous mountains covered in fine, white sands loomed overhead in every direction, their tops as sharp as scalpels.
 
 There wasn’t a sign of life as far as I could see, not a single blade of grass or a tree or insect flying through the air. The sky overhead constantly seethed with black smoke, the clouds bubbling and rippling with lightning strikes that moved from cloud to cloud every few seconds. Everything had a flat, gray sheen to it from the dim light shining through the clouds, except when the lightning illuminated the dead world in bright, strobing flashes.
 
@@ -62,7 +62,7 @@ Tristan lay a few feet away, his eyes fluttering as he groaned, his fingers twit
 
 “Did someone drug me or something?” Tristan whispered in a hoarse voice.
 
-“No, it was that goddamned thing in the box, the Virtual God. As soon as I turned it on, it sucked us in somehow.” He looked like he was about to say something in response when the ground started trembling beneath us. At first, it was subtle, like the aftershocks of an earthquake, but it quickly accelerated into a cacophony of grinding stones and crashing earth.
+“No, it was that goddamned thing in the box, the Virtual God. As soon as I turned it on, it sucked us in somehow.” This had never happened to me as a kid while playing the Virtual God. He looked like he was about to say something in response when the ground started trembling beneath us. At first, it was subtle, like the aftershocks of an earthquake, but it quickly accelerated into a cacophony of grinding stones and crashing earth.
 
 Black fissures opened up in the ground beneath my feet. The white sands disappeared down into them as if falling into an eternal hourglass. Something in the ground roared, a primal wail that split and distorted like thunder, so loud I could feel my bones tremble with the force of it. It reminded me of a lion’s roar, but it sounded electronically slowed and amplified in strange, dissonant risings and fallings.
 
