@@ -56,4 +56,4 @@ So here I am, just a few moments later after I finished assembling the puzzle. T
 
 But my fear was true. There's nothing inside it anymore. 
 
-[Whatever it was, it got out. ](https://www.reddit.com/user/NoobNoSleeper/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
+Whatever it was, it got out.
