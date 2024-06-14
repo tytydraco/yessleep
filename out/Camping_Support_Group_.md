@@ -160,7 +160,7 @@ Frank: “No, no not yet” Frank steps in front of Daniel. “So? Liam is bring
 
 Mark: “I gotta say, it does sound weird when it’s put like that.” 
 
-Daniel: “No! What does that even mean? She got her head chopped off, what’s the plain?” 
+Daniel: “No! What does that even mean? She got her head chopped off, what’s the plan?” 
 
 Liam: “Suicide and wanted us all dead” 
 
@@ -319,7 +319,7 @@ Frank: “That’s so fucked up, but I understand.” 
 
 Time 39:23 
 
-Frank: “That hill sucked.” They get to the stop and rest for a moment. 
+Frank: “That hill sucked.” They get to the top and rest for a moment. 
 
 Daniel: “Oh come on. Everyone look...” He points down the hill. The three remaining men are at the bottom of the hill, looking up to the group. 
 
