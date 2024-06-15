@@ -1,6 +1,6 @@
 My Dad was my hero, I idolized that man growing up. No matter what got him down or problems he was struggling with he always had a smile on his face for me. I think that’s the reason why what happened doesn’t make any sense to me. 
 
-My mom was also great. At heart, I was a complete mommy boy, and always have been. I would do anything to make sure she was happy. One day something changed in her. She seemed withdrawn as if something was troubling her.  I overheard her one night talking to my Nan on the phone. I’m sure she suspected my Dad of cheating on her, something I think would be unforgivable. She complained to my Nan about a strange odour coming from his clothes. I didn’t want to believe it, maybe he was just working harder than usual. 
+My mom was also great. At heart, I was a complete mommy's boy, and always have been. I would do anything to make sure she was happy. One day something changed in her. She seemed withdrawn as if something was troubling her.  I overheard her one night talking to my Nan on the phone. I’m sure she suspected my Dad of cheating on her, something I think would be unforgivable. She complained to my Nan about a strange odour coming from his clothes. I didn’t want to believe it, maybe he was just working harder than usual. 
 
 I decided it would be best if I confronted him. Maybe I thought I could handle the truth better than my mother could. I think I just needed to know for myself. 
 
@@ -10,7 +10,7 @@ He was over two hours late before he finally snuck in the back door. As I went t
 
 As I made my way down the narrow steps into the basement I began to get that unusual smell I heard my mother talk about.  It was hard to describe, it smelt like the crusty, old sock behind my bed that my Mom was scared to touch and the musty odour that only comes from an old-folks home. 
 
-As I slowly made my way down the stairs I could hear my Dad on the phone, crying uncontrollably, begging someone for forgiveness. I made it to the last step forgetting that it made a loud creak. When it alerted my Dad to my presence the usual bright smile he kept for me was replaced with a hate-filled glare. He bore his teeth at me like a rabid dad before he made a lunge for me. He was too quick for me to react and caught me by the scruff of my jumper. The anger on his face terrified me to my core. I didn’t recognize my father at that moment, but the look of fear on my face snapped him back to his senses and he wrapped his arms around me as if ashamed of what just happened. 
+As I slowly made my way down the stairs I could hear my Dad on the phone, crying uncontrollably, begging someone for forgiveness. I made it to the last step forgetting that it made a loud creak. When it alerted my Dad to my presence the usual bright smile he kept for me was replaced with a hate-filled glare. He bore his teeth at me like a rabid dog before he made a lunge for me. He was too quick for me to react and caught me by the scruff of my jumper. The anger on his face terrified me to my core. I didn’t recognize my father at that moment, but the look of fear on my face snapped him back to his senses and he wrapped his arms around me as if ashamed of what just happened. 
 
 As he held me, he looked down at the phone in his other hand. I could swear I could hear someone laughing loudly on the other end, and without warning, my dad stopped hugging me before slithering back into the dark corner of the basement, sobbing down the down. 
 
@@ -38,13 +38,13 @@ The more the creature licked my Dad's feet the more he laughed. He laughed so mu
 
 As I stood there helplessly, I noticed someone else in the room. They looked small like a child, but old and creepy at the same time. They seemed to be telling whatever was on the floor what to do and got into a manic frenzy the more the creature licked my Dad’s feet. 
 
-I couldn’t hear what was going on, but suddenly a little girl walked into the room. The old, creepy-looking child seemed physically scared of the little girl and backed away into the corner of the room. She walked over to my Dad and began collecting his tears in a small glass vile. It was killing me seeing my father like this and I didn’t understand why he didn’t just get up and run. 
+I couldn’t hear what was going on, but suddenly an old-looking woman walked into the room. The old, creepy-looking child seemed physically scared of the old woman and backed away into the corner of the room. She walked over to my Dad and began collecting his tears in a small glass vile. It was killing me seeing my father like this and I didn’t understand why he didn’t just get up and run. 
 
 I was trying to think of a plan to get my Dad from the house when suddenly I got that same smell I got from my Dad in the basement. Before I could turn to see where the smell was coming from something hit me in the head and my lights went out. When I finally came too it was dark out and the house seemed empty. I made my way home hoping to find my Dad there and maybe everything I had witnessed was just some horrible dream.
 
 When I made it home I was surprised to see the light on in the kitchen. As I opened the kitchen door I was hit with that horrible smell again. The smell was pungent, but this time it wasn't my Dad. It was my mother and she was huddled under the table with the same distraught look on her face my father had. 
 
-She was on the phone crying hysterically and apologizing down the phone to someone. I quickly grabbed the phone from her hand and demanded whoever was on the other end to tell me who it was. The sound of a little girl's voice was laughing down the phone at me. As I begged them to leave us alone the phone suddenly went quick, suddenly the girl spoke in an eerie manner of urgency. 
+She was on the phone crying hysterically and apologizing down the phone to someone. I quickly grabbed the phone from her hand and demanded whoever was on the other end to tell me who it was. They began to laugh maniacally down the phone. As I begged them to leave us alone the phone suddenly went quiet
 
 “Your mother's tears are going to taste so much sweeter than your father’s”
 
