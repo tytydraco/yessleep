@@ -44,7 +44,7 @@ But even the comforting glow of my computer screen couldn't pacify the parts of 
 
 The strange occurrences continued to escalate in the following weeks, each one chipping away at my fragile grip on reality, my vanishing sense of control. I'd find objects in bizarre places, like my toothbrush balanced precariously on the edge of the bathroom sink or my shoes arranged in a perfect line, toe-to-heel, in the middle of my living room. The evidence piled up - evidence that I was not this apartment’s only inhabitant, and my intruder wanted to make themselves known. 
 
-One morning, I woke up to find a cryptic note scrawled on a post-it stuck to my bathroom mirror. "Hav̵ě̵̲̩y̷o̶u̵ ̷f̵o̴̳͐̀goť̸te̵̍n̶̋?̴̼͋̚" it said, in jagged handwriting, the glyphs and symbols so jarringly familiar. I stared at the text, my blood running cold as I tried to make sense of the message. Forgotten what? I wracked my brain, but I couldn't make sense of the message.
+One morning, I woke up to find a cryptic note scrawled on a post-it stuck to my bathroom mirror. "Hav̵ě̵̲̩y̷o̶u̵ ̷f̵o̴̳͐̀rgoť̸te̵̍n̶̋?̴̼͋̚" it said, in jagged handwriting, the glyphs and symbols so jarringly familiar. I stared at the text, my blood running cold as I tried to make sense of the message. Forgotten what? I wracked my brain, but no explanation came to mind.
 
 With trembling fingers, I pulled the note off the mirror, intending to throw it away. But as I held it over the trash can, something stopped me. A nagging feeling in the back of my mind, a desperate need for tangible proof that these things were really happening. I found myself tucking the note into my pocket instead, a talisman against the encroaching madness.
 
