@@ -6,6 +6,8 @@
 
 \[[Part 4](https://www.reddit.com/r/nosleep/comments/1daq9vc/we_joined_a_cult_as_a_joke_part_4/)\] <- You are here.
 
+\[[Part 5](https://www.reddit.com/r/nosleep/comments/1dhc4ww/we_joined_a_cult_as_a_joke_part_5/)\]
+
 I shifted uncomfortably in my seat, the loose-fitting blue polo clinging to my sweat-dampened skin as I adjusted the collar for the hundredth time. Tim straightened the emergency medical badge on his chest as he wiped down the dashboard with a dirty rag. 
 
 “This isn’t going to work,” I muttered. 

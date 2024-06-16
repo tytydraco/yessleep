@@ -6,6 +6,8 @@
 
 \[[Part 4](https://www.reddit.com/r/nosleep/comments/1daq9vc/we_joined_a_cult_as_a_joke_part_4/)\]
 
+\[[Part 5](https://www.reddit.com/r/nosleep/comments/1dhc4ww/we_joined_a_cult_as_a_joke_part_5/)\]
+
 One afternoon at work, my phone buzzed. It was unusual for Chloe to call during her classes, so I quickly picked up.  
 
 “Hello?”  
