@@ -1,0 +1,42 @@
+
+
+What would you say is your favorite thing in the world? For me, it is easily a great campfire story. But my problem for the longest time was that I never had my own story to tell, only other’s stories to steal or add on to. Today is my lucky day, because I finally found the time to write down the only scary story worth telling. And it is about a creature I have deemed, the Caneman.
+
+When I was around 12 years old, my parents invited my cousin Liam over. Liam was short, pale, and annoying to all that had to bare him. He was a notorious snitch and would tell on you for the smallest, most minute thing. He was also very easy to scare, and would break down into tears over shadows. Liam took a liking to me for some reason (even though I made it very clear that I didn’t like him like the rest of my cousins), and so he asked to come stay the night at my house. 
+
+That reminds me, I better describe my house. I live in a very rural part of South Louisiana, in a 2 acre yard surrounded on 3 sides by rows on top of rows of canefield and a long stretch of road in front. We were isolated from our nearest neighbor by at least 6 miles, and much further everywhere else. I spent a lot of my time walking the headlands of the canefield, mentally mapping out every road and lane. And in Fall (which is when this story takes place) the cane is at its tallest and is prime mating season for coyotes. In other words, we were not allowed outside at night. “Bad place to be, trust me” I recall my dad telling me in his deep, gruff voice. “Without a gun over your shoulder and a man watching your back, you’d be dead before you even knew it.” He was a hardened hunter full time and had lost both of his siblings to coyotes, meaning that when he meant to stay inside, you were going to stay inside. 
+
+After a long day of tolerating Liam, night had fallen. Dad had tucked us in and put some generic kids movie on the screen that he rented when he last went into town. “You can stay up as late as you want, but you cannot go outside Liam. That means you too Dawson.” I groaned and begrudgingly accepted his terms. He left the living room and 20 minutes later, I could hear him snoring. This got me thinking. 
+
+“You guys wanna go outside?”
+
+Liam’s eyes got really big and he shot up off of the mattress he was on. “B-but Mr. Ricky said that we wern-” before I cut him off. 
+
+What dad doesn’t know won't hurt him. Also, I’ll bring a weapon to protect ourselves.” I told him, before going into the kitchen and grabbing a dull butter knife. It was at that moment that I noticed my dad’s thermal vision goggles that he had gotten for his birthday. He must have left them out, and I decided that bringing it along wasn’t worth it, the hell I would get if I dropped it. I grabbed a flashlight and I basically pushed Liam out onto the dark porch. We began our adventure. 
+
+I really didn’t need to bring a flashlight, the moon was full and our path was easily illuminated. We walked for about 30 minutes in a giant square behind my house before we noticed that there was a giant light coming from up ahead. We rushed towards it and stopped dead in our tracks when we saw a ginormous bonfire created in a recently cleared patch of cane. Against Liam’s wishes, I walked up to it to see what was burning. It was a giant pile of porcelain dolls, maybe 20 in total, covered in a strange reddish-green fluid. When Liam saw this, he started hyperventilating, which took a lot of coaxing to calm him down. It was ridiculously cold that night, so we decided to sit around the fire and warm up before heading back home. This is when I had an idea. “Wanna hear a scary story?” I asked him, leaning my head down so that it would look creepy in the shadows of the fire. 
+
+“N-no thanks” he said quickly, but I ignored him. I then began to tell him some stupid generic creepypasta that I had heard of online. I am a notoriously bad story teller, and I extended the story much longer than it was supposed to be, trying to get Liam as scared as possible. By the time I was done, I checked my phone and saw that it was about midnight. I told Liam that it was about time that we head back, and he began speed walking before I could finish my sentence. Our pace was pretty slow, until we heard a lone coyote howl. 
+
+“W-what was t-that?” Liam asked, his voice quaking with fear. “Just a dog, don’t worry. They’re afraid of us and even if they do come mess with us” I took out my knife, “I’ll shank ‘em.” Regardless of my “heroic” demeanor, we started walking a lot faster. 
+
+We were about halfway home when we heard something begin to quickly move through the cane behind us. I didn’t even turn around to see what it was before I screamed at Liam to run. We didn’t stop, pushing our short legs to be as fast as they could go. I looked over to my left while running and got a glimpse of what was chasing us. It was big and pitch black, with hair all along its back. It was running on all fours and getting closer and closer. My immediate thoughts were “Oh shit! A bear!” But I didn’t tell Liam that. We just kept running. 
+
+It felt like an eternity but before I knew it, we were back home. As soon as we crossed the property line, the thing stopped. I could see its outline peaking over the cane, rising up and down as it breathed. Liam was in a frenzy, and wouldn’t stop crying. I ignored him, and instead was struck with an intense fascination with the creature. I had never seen a bear before, and my stupid little 12 year old brain thought that I was much braver than I was. 
+
+“Do you think that dad would be proud if I killed a bear?” I asked Liam, never taking my eyes off of the creature. He didn’t answer, he was rolled up in a ball on the porch and crying softly. I then went into the kitchen and came back with the biggest kitchen knife I could find and my dad’s thermal vision camera. I looked to where the thing was, and saw that it had moved. I began to sprint after it, thoughts of my father’s pride in me after I killed a bear by myself fueling my speed. 
+
+That’s when something strange happened. I got lost. I had walked every single row of sugarcane in a 1 mile radius of my house a million times, yet I was lost. This is when I began to panic. I began to call for help. I screamed and screamed at the top of my lungs until my voice was hoarse. I walked and walked but couldn’t find any way out. The canefield seemed infinitely bigger.
+
+It must have been an hour of frenzied running until I gave up, falling to the ground in soft sobs. That’s when I heard it. Rustling from behind. In one motion I turned on the camera and  whipped around, knife extended towards the bear. It definitely looked like a black bear. It was covered in black shaggy fur from head to toe and had the head of a bear, but it wasn’t. It stood on two legs and had five fingered hands, just like a person. It had to have been about 7 feet tall, and it just stood in front of me, glaring down at me in a shape colored by orange and blue. I could see its breath through the camera, a giant cloud of hot steam. I was overwhelmed with fear, and dropped both the camera and the knife. In a split second, the thing descended on me. 
+
+I expected to die right then and there, but the thing didn’t kill me. It did something even worse. It hugged me. Not so tight that it would hurt me, but a gentle bear hug that fully encompassed me. I didn’t move, didn’t think. I just stood still in shock. I don’t know how long we were in an embrace before I heard something in the distance begin to come closer. The thing heard too, and I saw its wolf-like ears shoot up. It tossed me to the ground and took off into the canfield, leaving no trace behind. My dad then came crashing through the stalks, a double barrel shotgun in hand. 
+
+“JUST WHAT THE FUCK DO YOU THINK YOU ARE DOING OUT HERE BOY?” He screamed at me.  I didn’t answer, I was so dizzy in that moment that I suddenly blacked out. I woke up the next morning in my bed. Liam was gone, and when I asked my dad about last night, he looked at me confused. 
+
+“What are you talking about? You didn’t go outside last night. You and Liam stayed up watching that movie.” I was in disbelief. “It just, it just felt so real.” I muttered. He walked over to me and hugged me. “Just a nightmare buddy. Just a nightmare.” 
+
+As he hugged me, my eyes drifted over to the kitchen table, and saw a broken thermal vision camera. 
+
+To this day, I have no clue what was stalking the fields that night. 
+
