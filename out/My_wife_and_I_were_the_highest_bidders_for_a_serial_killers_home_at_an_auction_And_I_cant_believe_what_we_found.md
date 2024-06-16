@@ -18,7 +18,7 @@ So, the day after my retirement party, I did what any right-minded ex-detective 
 
 "New? You've been hunting this guy for nearly a decade now, Theodore. It's time to let it go."
 
-“I will, after we move in, and finally put this case to rest.
+“I will, after we move in, and finally put this case to rest."
 
 “We? You expect me to move in there with you?”
 
@@ -108,11 +108,11 @@ Sure enough, about twenty feet away, the passage split in two, leaving us with t
 
 —
 
-Once we began to explore the maze, I immediately realizing hat terrifying things likely awaited us inside, and warned my wife.
+Once we began to explore the maze, I immediately realized that terrifying things likely awaited us inside, and warned my wife.
 
-But when we reached the end of the left passage, and reached a dead end, it became immediately apparent that what awaited us was far more terrifying than I had even suspected.
+But when we reached the end of the left passage, and arrived at a dead end, it became immediately apparent that what awaited us was far more terrifying than I had even suspected.
 
-There, at the end of the tunnel, illuminated by nothing but my flashlight and tied to an old rocking chair, sat one of the serial killer’s victims… still alive, an IV protruding from his arm and leading to a medical bag that was mounted on the wall, his eyes squinting in the glare of the flashlight.
+There, at the end of the tunnel, illuminated by nothing but my flashlight and tied to an old rocking chair, sat one of the serial killer's victims… still alive, an IV protruding from his arm and leading to a medical bag that was mounted on the wall, his eyes squinting in the glare of the flashlight.
 
 “What the fuck.” I whispered to my wife. “They’re all down here. And they’re all still alive.”
 
