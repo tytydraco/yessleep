@@ -20,8 +20,6 @@ What happened after that diner made me think about my father even more and the t
 
 “Semper Fi”
 
--
-
 “Look at that.”
 
 “What?”
@@ -164,8 +162,6 @@ It sounded like a slur coming from him.
 
 Not only a phrase he appropriated, but something he was mocking.
 
--
-
 We drove off. I stared out into the dark thinking about that poor kid walking home like that. 
 
 I thought about the uniform in the trunk.
@@ -264,11 +260,8 @@ I stayed on my knees in the dirt while I heard my uncle making the same noises t
 
 I didn’t move until I heard the sirens off in the distance.
 
--
-
 I don’t know who that was in the woods that night. I don't know if it was the kid’s father or mine, or just some naked kook who decided to kill three members of my family and spare me.
 
-The authorities never found the[ bodies](https://www.reddit.com/r/tinyhorribles/) of my cousins or my uncle. They did find the tattered old uniform folded neatly on the hood of my uncle’s car, and scratched in the paint of that shiny Lexus were the words my father lived and died by.
+The authorities never found the[ ](https://www.reddit.com/r/tinyhorribles/)bodies of my cousins or my uncle. They did find the tattered old uniform folded neatly on the hood of my uncle’s car, and scratched in the paint of that shiny Lexus were the words my father lived and died by.
 
-The same words that I said to that kid when I gave him his father’s uniform back.
-
+The same words that I said to that kid when I gave him his father’s uniform [back](https://www.reddit.com/r/tinyhorribles/).
