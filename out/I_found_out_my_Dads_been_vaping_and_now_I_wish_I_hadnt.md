@@ -1,8 +1,8 @@
-Oh Jesus, calm down, dude.
+*Oh Jesus, calm down, dude.*
 
-I looked at the vape. It flashed a little animation of a five point star getting brighter and then exploding into a new star before rinsing and repeating. Above the star a ticker tape LED display read F-R-E-E-K-Z-B-A-R-8.
+I looked at the vape. It flashed a little animation of a five point star getting brighter and then exploding into a new star before rinsing and repeating. Above the star a ticker tape LED display read **F-R-E-E-K-Z-B-A-R-8**.
 
-It had been barely thirty minutes from my last pull. It had read, "F-R-E-E-K-Z-B-A-R-8," that time. Number eight. That was the equivalent of the edge of the skyscraper's ledge. I felt the hunger in my very being. I felt what Vera called, "The Craving,". 
+It had been barely thirty minutes from my last pull. It had read, "**F-R-E-E-K-Z-B-A-R-8**," that time. Number eight. That was the equivalent of the edge of the skyscraper's ledge. I felt the hunger in my very being. I felt what Vera called, "The Craving,".
 
 I heard myself say, "Engine engine number nine. That's the end of the line."
 
@@ -24,11 +24,11 @@ Dad didn't. Not even close. Dad had developed a very bad habit and was keeping i
 
 I remember when Dad suddenly started acting, well; just different. He was never the most pleasant dude and that got alot no better after Mom went missing. Dad started working seven days a week and when he was at home he was locked up in his home lab. I had never been in there and lately Dad wasn't coming out. I was under strict orders not to disturb Dad.
 
-I told Vera about it and then I did something stupid. I let Vera talk me into putting a motion activated camera in a stuffed kangaroo just where it could spy Dad press the four digit code to the lab's keypress activate lock.
+I told Vera about it and then I did something stupid. I let Vera talk me into putting a motion activated camera in a stuffed kangaroo just where it could spy Dad press the four digit code to the lab's keypress activated lock.
 
 And just like that, we were in.
 
-Vera looked around. There were beakers, multiple lap tops, some with devices attached that looked like Geiger counter or some type of electronic measuring devices. And attached to those were about a dozen bright yellow disposable vapes in various states of electronic assembly or disassembly; I couldn't tell which.
+Vera looked around. There were beakers, multiple laptops, some with devices attached that looked like Geiger counter or some type of electronic measuring devices. And attached to those were about a dozen bright yellow disposable vapes in various states of electronic assembly or disassembly; I couldn't tell which.
 
 One a greaseboard I recognized my Dad's chickenscrawl. It scratched: Ten is the answer
 
@@ -60,17 +60,17 @@ We beat a hasty retreat and I took the stuffed spy kangaroo with me. I immediate
 
 Back at Vera's room she asked, "What happened to your Mom anyway, Sam?"
 
-"Well, Mom and Dad were arguing a lot even though they tried to hide it. And then, it was weird, it was like they were fine. Like they hadn't been at each other's throat's for months out of nowhere."
+"Well, Mom and Dad were arguing a lot even though they tried to hide it. And then, it was weird, it was like they were fine. Like they hadn't been at each other's throats for months and months out of nowhere."
 
 "But-" Vera began.
 
 "You mean how'd she go missing?" I asked.
 
-Vera nodded.
+Vera nodded impatiently.
 
-It was last Memorial Day weekend. Mom and Dad were planning a cook out in the backyard. Mom walked past me in the house and said, "She was going out for a pack of smokes. Weird thing about it was Mom didn't smoke; ever. And Dad was working down in the basement lab that weekend and I was sort of pouting because I didn't think Mom and Dad were going to get me the Les Paul I kept bugging them about since I had discovered Alice in Chains on a music subreddit.
+I thought about it. I told her. It was last Memorial Day weekend. Mom and Dad were planning a cook out in the backyard. Mom walked past me in the house and said, "She was going out for a pack of smokes. Weird thing about it was Mom didn't smoke; ever. And Dad was working down in the basement lab that weekend and I was sort of pouting because I didn't think Mom and Dad were going to get me the Les Paul I kept bugging them about since I had discovered Alice in Chains on a music subreddit.
 
-And, honestly, I was totally distracted with my new neighbor, Vera.
+What I didn't tell her was I was totally distracted with her.
 
 Vera
 
@@ -240,13 +240,13 @@ And then I felt a pain I won't even try to describe. It became one with me. Only
 
 Vera slapped me again. She came into focus slowly.
 
-"Listen, Sam. We don't have a lot of time. I don't know what your Dad's been doing but he's one of the others. Like Mrs. Crawford having an octogenarian shootout with her fam. You see, in about an hour or two you're gonna get your first craving for the freekbar. Your vape will read, 'F-R-E-E-K-Z-B-A-R-1'.
+"Listen, Sam. We don't have a lot of time. I don't know what your Dad's been doing but he's one of the others. Like Mrs. Crawford having an octogenarian shootout with her fam. You see, in about an hour or two you're gonna get your first craving for the freekbar. Your vape will read, '**F-R-E-E-K-Z-B-A-R-1**'.
 
-Now when it get's to F-F-R-E-E-K-Z-B-A-R-9 you get replaced. And you gotta go somewhere. You gotta go somewhere forever to burn cause all 8 of you have been bad and there can only be one."
+Now when it get's to **F-R-E-E-K-Z-B-A-R-9** you get replaced. And you gotta go somewhere. You gotta go somewhere forever to burn cause all 8 of you have been bad and there can only be one."
 
 Vera reached into her pocket and pulled out a second vape.
 
-It read, "F-R-E-E-K-Z-B-A-R-0," across the LED display. She pressed it into my hand.  "Just push the button and inhale when you can't take it anymore," Vera said slowly, with some effort. She looked pale.
+It read, "**F-R-E-E-K-Z-B-A-R-0**," across the LED display. She pressed it into my hand.  "Just push the button and inhale when you can't take it anymore," Vera said slowly, with some effort. She looked pale.
 
 You're going to go back there. To the other Crawfordville."
 
@@ -280,16 +280,22 @@ A cold smile froze upon her face.
 
 And then Vera punched me in the face, got up and said, "I'm going out for a pack of cigarettes. Just wait for the beep!" And then Vera began to laugh. Not a happy laugh. It was the laugh of someone In The Know but what she knew was definitely too much.
 
-Sure enough, about an hour ago I felt an urge I had never known could exist. My hand instinctively felt for the vape in my pocket. My eye socket was throbbing.
+Sure enough, just like Vera said not too long ago I felt an urge I had never known could exist. My hand instinctively felt for the vape in my pocket. My eye socket was throbbing.
 
-It must have been some weed I thought. I just got to build up a little tolerance. Maybe tomorrow- And then I doubled over. Every ounce of my being wanted a hit. And I took it. And the Vape device LED display beeped exactly once. The LED incremented itself reading: F-F-R-E-E-K-Z-B-A-R-**1**.
+It must have been some weed I thought. I just got to build up a little tolerance. Maybe tomorrow- And then I doubled over. Every ounce of my being wanted a hit. And I took it. And the Vape device LED display beeped exactly once. The LED incremented itself reading: **F-R-E-E-K-Z-B-A-R-1**.
 
 ....
 
-And now we seem to have come full circle back to the beginning of my end. Another few hours have passed in indescribable agony. My ribosomes are writing and radiating out one message; suffer and suffocate.
+**F-R-E-E-K-Z-B-A-R-8**
 
-I guess I have an addictive personality. I watched my eighth hit enunciate through the dustmote rush hour into a series of concentric vape rings that gained on one another before swallowing them up alive; motes and all.
+***Wait for the beep...***
+
+And now we seem to have come full circle back to the beginning of my end. Another few hours have passed in indescribable agony only broken up by each successive hit taking me to other words filled with others who are the same but not the same. My ribosomes are writhing and radiating out one message; suffer and suffocate and yield to the other, Sam(s) or die craving that hit.
+
+I guess I have an addictive personality. 
+
+I watched my eighth hit enunciate through the dust mote rush hour into a series of concentric vape rings in time with the eight beeps that all gained on one another before swallowing one another up alive; motes, beeps and all.
 
 After that hit I had seen myself though a mirror reflecting nothing but the ruins of what looked like my hometown, Crawfordville. And then again, I was somewhere else too, and somewhere else again before finding myself back in my bloodied, bruised and discombobulated contusions nest of an excuse for a head.
 
-I gotta go cold turkey. It's been three hours now curled up in the fetal position. The sweats are worse and now I am having stomach cramps and dry heaves. I can feel Vera giving me the stinky eye. I can feel the air getting thin. I think I need a remedy; just one more hit...
+I gotta go cold turkey. It's been three hours now curled up in the fetal position. The sweats are worse and now I am having stomach cramps and dry heaves. I can feel Vera giving me the stinky eye. I can feel the air getting thin. I can feel another Sam gaining on me.
