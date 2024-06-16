@@ -80,42 +80,24 @@ Chloe stepped closer, her eyes pleading. "I had to make them believe I was loyal
 
 Tim looked away, his anger slowly ebbing. The tension in the room began to ease as he processed Chloe’s words. Finally, he nodded, the betrayal in his eyes giving way to a weary acceptance.
 
----
+A faint whisper reached my ears. I turned, eyes scanning the room, and noticed a flicker of movement. In the shadowed corner, a cultist stood, his eyes wide with fear and recognition. He had been hiding, silently witnessing the carnage. The room seemed to close in around us. The cultist's gaze darted frantically between the lifeless bodies on the floor and us, as if trying to decide his next move. Suddenly, he knocked over a candelabrum, the candles spilling and igniting a small fire.
 
-A flicker of movement in the shadows caught my eye. A cultist stood there, eyes wide, face pale. He had been hiding, witnessing everything. Stumbling back, he knocked over a candelabrum, the candles spilling and igniting a small fire.
+He fumbled backward, tripping over his own feet, giving Tim a moment to lunge at him. The cultist scrambled up, his eyes wild with panic, and bolted towards the door, knocking over a chair in his haste.
 
-For a moment, time stretched. The cultist’s gaze darted between the bodies on the floor and us. Tim stepped forward, growling, "Don't move a muscle."
+"Voss and Wilcox are dead! They're dead!" he screamed, his voice rising to a panicked wail. As he reached the door, he swung it open with such force that it struck Tim, causing him to stumble back, clutching his side.
 
-The cultist’s chest heaved, sweat beading on his forehead. The room felt like it was holding its breath, only the distant echo of footsteps and muffled chants breaking the silence.
+The cultist’s screams echoed through the stone corridors. The sound of hurried footsteps and frantic shouts grew louder, a wave of chaos crashing towards us. Chloe’s face tightened with resolve and fear.
 
-Tim lunged at the cultist, aiming to subdue him. The cultist’s robes slipped through Tim's grasp, the slick fabric giving him just enough leverage to escape. He stumbled backward, eyes wide with terror, and bolted down the hallway.
+"We need to go! Now!" she urged, her voice cutting through the rising din.
 
-"Voss and Wilcox are dead!" His voice ricocheted off the stone walls, reverberating through the corridors. "They're dead! They're dead!"
+The noise from the cultists swelled, the sound of impending doom that pressed in on us from all sides. An ominous chant began, echoing through the corridors.
 
-A chill shot through me. "Fuck, they’re onto us. What do we do?" My voice barely masked the panic rising in my throat. The sounds of hurried footsteps and shouts grew louder, crashing towards us like a tidal wave.
+Chloe’s eyes darted around the room, searching for an escape. "There’s a passage behind that tapestry. I've seen Wilcox use it," she said urgently, pointing to a heavy drape hanging on the wall. We rushed to it, and she pushed it aside, revealing a narrow wooden door. She tried the handle, but it didn’t budge. "It’s locked," she muttered, frustration creeping into her voice. Then her eyes lit up with realization. "The key—Voss must have it."
 
-Chloe’s face tightened, a blend of resolve and fear. "We need to move, now," she urged, eyes flicking to the corridor. "We're out of time."
+She ran to Voss’s lifeless body and rifled through his robes. Her hands trembled slightly as she searched, finally discovering a hidden compartment in his cloak. She pulled out a small, ornate key. An object fell from his cloak and rolled to the floor - the heart shaped stone from the ritual. Instinctively, I grabbed a cloth and wrapped it up before placing it in my pocket. I had no plans on what to do with it, but I did know it was valuable to them.
 
-A roar erupted from the corridors, a wave of alarmed voices. Footsteps pounded the stone floors, growing louder, more frantic. The cultists were mobilizing, their shouts echoing like a battle cry.
+She inserted the key into the lock, and with a heavy click, the door creaked open. We quickly stepped inside, the air immediately cooler and damp. The rough-hewn stone walls pressed in around us, their surfaces slick with moisture and covered in a thin layer of moss. Strange, glowing symbols pulsed with light on the walls, casting an eerie glow that seemed to dance in the corners of my vision. A musty smell filled the air, mingling with the faint scent of decay. The passage was narrower than expected, the walls almost brushing our shoulders. I slammed the door shut, catching one last glimpse of the small fire catching on a tapestry.
 
-“Voss is dead! Wilcox is dead!” The cries repeated, each iteration driving a spike of dread deeper into my chest. The noise grew closer, the footsteps merging into an ominous rumble.
+Chloe led the way, her hand trailing along the damp, cold wall for guidance. The chaotic noise from above gradually faded, replaced by the soft drip of water and the occasional scurrying of unseen creatures. The passage twisted and turned, its narrow confines making it easy to get lost. As we moved deeper, the walls seemed to close in, and the air grew colder and heavier.
 
-Chloe’s eyes darted around. “There’s a secret passage behind that tapestry,” she said urgently. “I’ve seen Wilcox use it.”
-
-Tim and I exchanged a quick glance. “How do you know about this?” I whispered as the sounds of the crowd grew deafening.
-
-“I’ve been locked in here for weeks,” Chloe replied, her voice steady despite the chaos. “I’ve observed everything.”
-
-We rushed to the tapestry. Chloe pushed it aside, revealing a narrow door. She tried the handle, but it didn’t budge. “It’s locked,” she said, frustration creeping into her voice. Then her eyes lit up. “The key—Voss must have it.”
-
-Without hesitation, Chloe ran to Voss’s lifeless body and rifled through his robes. She pulled out a small, ornate key. At the same moment, I grabbed the ceremonial dagger from Voss's chest, its blade gleaming wickedly in the dim light.
-
-Chloe returned and inserted the key into the lock. It turned with a heavy click, and the door creaked open, revealing a dark, narrow passage.
-
-We stepped into the passage, the air immediately cooler and damp. The walls were rough-hewn stone, closing in around us. Faint, musty smells of earth and decay filled the space. The only light came from the open door behind us, casting long, eerie shadows.
-
-Chloe led the way, her hand trailing along the wall for guidance. “Stay close,” she whispered, her voice echoing softly. We moved deeper, the sounds of chaos fading, replaced by the soft drip of water and the distant scurrying of unseen creatures.
-
-The passage twisted and turned, leading us further from the mansion’s heart. We passed small alcoves with forgotten relics—old books, rusted tools, and decayed cloth. The path was uneven, forcing us to watch our steps.
-
-The air grew colder, the walls closing in. It felt like we were descending into the bowels of the earth. The oppressive silence was broken only by our breathing and the occasional creak of the ancient structure.
+We passed small alcoves filled with forgotten relics—rusted tools, decayed cloth, and crumbling books that hinted at the passage's ancient history. The floor became increasingly unstable, with loose stones and creaking wood underfoot. Each step echoed in the oppressive silence, broken only by our breathing and the occasional creak of the foundation. Each moment filled with the fear of what might lie ahead or pursue us from behind.
