@@ -110,7 +110,7 @@ Eventually, I ended up talking Charlie down and getting him back to bed. The sta
 
 \*\*\*
 
-The next morning, I went over to Sloan’s house and knocked until he answered. While I waited, I studied the strange gargoyle knocker plastered across the scarlet door. At first, he would only crack it open a fraction of an inch, staring out at me with a single emerald-green eye.
+The next morning, I went over to Sloan’s house and knocked until he answered. While I waited, I studied the strange gargoyle knocker plastered across the scarlet door. At first, he would only crack it open a fraction of an inch, staring out at me with a single black eye.
 
 “Can you not run the woodchipper in the middle of the night?” I asked, giving him a faint, anxious half-smile. “It’s keeping me and Charlie from sleeping. I mean, you had the thing going at 3 AM last night.” A few heartbeats later, the front door flew open. Sloan took a step towards me, until his scarred, alien face stood only inches from mine.
 
