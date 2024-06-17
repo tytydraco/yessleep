@@ -1,8 +1,8 @@
 Jim was an aspiring writer. He often told me that every great storyteller opens with a setup and closes with a punchline. Well, I’m not a writer, so don’t expect big things from me. I’m going to tell this tale as simply as possible.
 
-I read Jim’s blog, and it frightens me. Three posts from a best friend who went missing 15 years ago. I found them yesterday. It was the anniversary of his disappearance, which seemed like the perfect day on which to nostalgically peruse our old conversations. He used to send me flurries of memes and hyperlinks. I didn’t always read every message. And, somehow, I managed to overlook something essential from 2009. A hyperlink lost within Jim’s final manic influx of messages.
+I read Jim’s blog, and it frightened me. Three posts from a best friend who went missing 15 years ago. I found them yesterday. It was the anniversary of his disappearance, which seemed like the perfect day on which to nostalgically peruse our old conversations. He used to send me flurries of memes and hyperlinks. I didn’t always read every message. And, somehow, I managed to overlook something essential from 2009. A link lost within Jim’s final manic influx of messages.
 
-A private blog.
+His private blog.
 
 ***Entry 1 – July 6******^(th)******, 2009***
 
@@ -142,7 +142,7 @@ Jeffrey's time of death was estimated to be an hour *before* Patricia’s time o
 
 I kept thinking about that as I read Jim’s disjointed account of events. Thought about how it didn’t make sense that my friend would've been able to describe how Jeffrey felt whilst killing his wife. Thought, more importantly, about how it didn't make sense that Jim would've been able to see Mr Ackhurst kill Mrs Ackhurst. Jim was telling the truth in his second entry. He did kill Mr Ackhurst. I have no doubt about that. But my friend couldn’t have seen Patricia die in the upstairs bathroom because her husband was already dead.
 
-And if Jim weren’t saving the woman’s life, why on Earth did he savagely slaughter Jeffrey Ackhurst?
+And if Jim weren’t avenging the woman, why on Earth did he savagely slaughter Jeffrey Ackhurst?
 
 I think I know. We all know, don’t we? But I don’t want to accept it. Just as I don’t want to accept who really killed Patricia Ackhurst. For years, it was believed that Rudy Ackhurst had killed his brother and sister-in-law, before kidnapping or murdering Jim Harlow, for whatever reason. But it’s clear that we’ve been believing a lie.
 
