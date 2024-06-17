@@ -14,7 +14,7 @@ He licked at my fingers through the bars and my heart melted. He was the most ad
 
 
 
-As he licked me with his sandpaper tongue I laughed “That tickles! Oh, I’m so taking him with me.” The employee smiled. This time genuinely. “Alrighty, I’ll get the paperwork together.” After a few minutes of signing forms and receiving copies of vaccination certificates I walked out the door with my new best friend tucked under my arm in her new cat-box. My smile was beaming as I walked toward my small green Toyota. As I got to my car I searched, one handed, for my keys. My smile fell slightly as I remembered why I had come to the animal shelter in the first place. 
+As he licked me with his sandpaper tongue I laughed “That tickles! Oh, I’m so taking him with me.” The employee smiled. This time genuinely. “Alrighty, I’ll get the paperwork together.” After a few minutes of signing forms and receiving copies of vaccination certificates I walked out the door with my new best friend tucked under my arm in his new cat-box. My smile was beaming as I walked toward my small green Toyota. As I got to my car I searched, one handed, for my keys. My smile fell slightly as I remembered why I had come to the animal shelter in the first place. 
 
 
 
@@ -54,11 +54,11 @@ A week went by and my adorable friend finally got a name. I had tried picking a 
 
 
 
-It was a Friday evening and he was sitting on my lap, kneading the way cats do when they want to get comfy. I was busy watching trash of some kind. I think it was a Steve Segal movie. Anyway, once it was over the next movie on the channel began. I lazily clicked the remote to check the title. On a blue banner that ran along the bottom of the TV screen, white letters spelled out: *Casper (1995).* I rolled my eyes. “Nah,” I said aloud as I put my now empty bowl of instant ramen on the table next to me. I switched off the TV. 
+It was a Friday evening and he was sitting on my lap, kneading the way cats do when they want to get comfy. I was busy watching trash of some kind. I think it was a Steve Seagal movie. Anyway, once it was over the next movie on the channel began. I lazily clicked the remote to check the title. On a blue banner that ran along the bottom of the TV screen, white letters spelled out: *Casper (1995).* I rolled my eyes. “Nah,” I said aloud as I put my now empty bowl of instant ramen on the table next to me. I switched off the TV. 
 
 
 
-Suddenly I jumped from fright and yelped as the TV flicked back on. “What the?” I muttered. Then I noticed my cat was holding his one paw on the remote while glowering at me with his yellow eyes. They shone like beaming, double moons as if to say, “How dare you interrupt my TV time?”. “Sorry, okay,” I said at him, glaring back. I looked back at the TV to see the titular character on screen. 
+Suddenly I jumped from fright and yelped as the TV flicked back on. “What the?” I muttered. Then I noticed my cat was holding his one paw on the remote while glowering at me with his yellow eyes. They shone like beaming, double moons as if to say, “How dare you interrupt my TV time?”. “Sorry, okay,” I said at him, glaring back. Those eyes of his could be really unnerving sometimes. I looked back at the TV to see the titular character on screen. 
 
 
 
@@ -66,7 +66,7 @@ My cat let out a small meow and jumped down. He ran over to stare at the screen.
 
 
 
-Over the last few days I grew increasingly convinced he was preternaturally intelligent. Definitely sentient. What made me a bit uneasy was that he often got into rooms or places he could not possibly get into. It was almost like he could walk through walls. Or maybe he could pick locks? I chortled at this thought. I’m pretty sure he could clean up his own toilet if I gave him the tools and the time to learn. 
+Over the last few days I grew increasingly convinced he was preternaturally intelligent. Definitely sentient. It was sometimes disturbing. “Maybe he could even pick locks?” I chortled at this thought. But to be honest, I’m pretty sure he could clean up his own toilet if I gave him the tools and the time to learn. 
 
 
 
@@ -126,7 +126,7 @@ Nothing but a muffled moan escaped me. 
 
 
 
-My body tried to squirm but I remained helplessly locked in place. The pale, dawn-colored hand stretched out further. Then I could see another hand. And now arms. And now a masked face. Now a dark torso. Now legs. All emerging so slowly. So silently. Like a horrible insect carefully unfolding itself out of its lair. 
+My body tried to squirm but I remained helplessly locked in place. The pale, dawn-colored hand stretched out further. Then I could see another hand. And now arms. And now a masked face. Now a dark torso. Now legs. All emerging so slowly. So silently. Like a horrible insect carefully unfolding itself out of its burrow.
 
 
 
@@ -162,19 +162,36 @@ As I approached my front door I felt a hand seize my hair and heave me back. I s
 
 
 
-I held my hands in front my face, “Please, why are you doing this?” I yelled, tears streaming down my face. For a moment the man remained motionless. Then he crouched on his haunches. He peeled off his mask. I flinched and moved back slightly. The light of the dawn revealed him to be a handsome young man with bright blue eyes and fair hair. Couldn’t have been more than twenty years old. I think I even recognized him. Had he been a student of mine? “Why don’t you tell me. Why does anyone do anything?” his lip curled into a snarl and he held up the knife ready to plunge it into my stomach when suddenly we both heard a loud growl. The sound of it made me think of the zoo. And *Jurassic Park*. 
+I held my hands in front of my face, “Please, why are you doing this?” I yelled, tears streaming down my cheeks. For a moment the man remained motionless. Then he crouched on his haunches. He peeled off his mask. I flinched and moved back slightly. The light of the dawn revealed him to be a handsome young man with bright blue eyes and fair hair. Couldn’t have been more than twenty years old. I think I even recognized him. Had he been a student of mine? “Why don’t you tell me? Why does anyone do anything?” his lip curled into a snarl and he held up the knife ready to plunge it into my stomach when suddenly we both heard a loud growl. The sound of it made me think of the zoo. And *Jurassic Park*. 
+
+
+The intruder froze in place. His face turned white in the half light of dawn. 
+
+
+My jaw dropped open. 
+
+
+An enormous pair of yellow eyes stared at us from the darkness of my bedroom. The light of dawn reflected hideously off the *tapetum* at the back of the thing’s eyes. 
+
+
+My lungs turned solid from fear. I dared not breathe. 
+
+
+The creature growled and hissed. It’s ears bent back and it crouched. 
+
+
+Ready to pounce. 
+
+
+I heard the intruder yell with horror. Saw him scramble to his feet. With a roar the beast suddenly leapt into the air and pinned him to the ground. I heard the intruder scream in pain as whatever the thing was tore at him with its teeth and claws. Ripping chunks of meat and viscera. The screaming soon turned to gurgles and then was gone all together. For a long time, all that could be heard was the tearing of meat and tendons and the wet chewing of a carnivorous beast. I sat on the floor fixated by fear and shock. I felt like if I moved I would be next to die. I was cold and shivering.
 
 
 
-I heard the intruder yell with horror. Saw him leap to his feet as a shadow which grew behind me suddenly leapt into the air and pinned him to the ground. I heard the intruder scream in pain as whatever the thing was tore at him with its teeth and claws. Ripping chunks of meat and viscera. The screaming soon turned to gurgles and then was gone all together. For a long time, all that could be heard was the tearing of meat and tendons and the wet chewing of a carnivorous beast. I sat on the floor fixated by fear and shock. I felt like if I moved I would be next to die. I was cold and shivering.
+The whole time my mind felt numb and blank. I felt like I’d swallowed TV static and it had filled up my brain and limbs. Every so often I would feel a warm fleck of blood or some other fluid hit my cheek as the beast continued to feast messily on the intruder. Soon all trace of the intruder was gone save for a massive blood stain. 
 
 
 
-The whole time my mind felt numb and blank. I felt like I’d swallowed TV static and it had filled up my brain and limbs. Every so often I would feel a warm fleck of blood or some other fluid hit my cheek as the beast continued to feast messily on the intruder. Soon all trace of the intruder was gone save a few bits of bone and uneaten entrails. 
-
-
-
-As the light in the house grew brighter I could finally see the beast clearly. It was about twice the size of a tiger and had dark patterned fur. Its head was enormous, ears were long with tufts of fur sticking out. The snout was stained red with dried blood. It was busy licking its enormous clawed paws when it stood up and fixed gigantic yellow eyes on me. “C-Casper?” I said looking directly at the beast. It looked just like him. I mean, like he would look if he was a giant tiger. I felt my heart accelerate. The blood pumping faster and harder through my veins. 
+As the light in the house grew brighter I could finally see the beast more clearly. It was about twice the size of a tiger and had dark patterned fur. Its head was enormous, ears were long with tufts of fur sticking out. The snout was stained red with dried blood. It was busy licking its enormous clawed paws when it stood up and fixed gigantic yellow eyes on me. “C-Casper?” I said looking directly at the beast. It looked just like him. I mean, like he would look if he was a giant tiger. I felt my heart accelerate. The blood pumping faster and harder through my veins. 
 
 
 
@@ -186,7 +203,7 @@ After I’d smoked a cigarette and had some water I called the police. Casper wa
 
 
 
-Despite finding blood and bone fragments they could not identify the assailant by his DNA alone. However, there had been break-ins and assaults in the neighborhood recently. The police also believed this man had been going around stealing but may have decided to, as they put it, “escalate the thrill”. They believed he may have got inside via my open window and had sneaked under my bed to wait. What they figure is he may have got injured in my house somehow and fled looking for medical attention. However, they had not been able to find any record of him at hospitals. For a short time, the police insisted on leaving a police detail by my house in case he returned. But after a few weeks of no leads and no more home invasions, they began to doubt he’d ever come back.
+Despite finding blood they could not identify the assailant by his DNA alone. However, there had been break-ins and assaults in the neighborhood recently. The police also believed this man had been going around stealing but may have decided to, as they put it, “escalate the thrill”. They believed he may have got inside via my open window and had sneaked under my bed to wait. What they figure is he may have got injured in my house somehow and fled looking for medical attention. However, they had not been able to find any record of him at hospitals. For a short time, the police insisted on leaving a police detail by my house in case he returned. But after a few weeks of no leads and no more home invasions, they began to doubt he’d ever come back.
 
 
 
