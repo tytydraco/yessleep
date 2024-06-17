@@ -1,6 +1,6 @@
 I should not be writing this. I know they will be looking for me as soon as this goes live. I had to get the word out despite all the secrecy surrounding the project. I don't know what they'll do to me when they find me, but this has to get out.
 
-I was unemployed vet tech looking for work when I came across a job listing offering a strangely large amount of money. What did I have to loose? I called the number and they gave me a website to go to that took me through an application process and a security clearance form that I had to fill out the last seven years of my life. They said it would be months until the clearance would come through but to my surprise a month later I got a phone call telling me I had been granted Interm Secret clearance and the job would proceed.
+I was unemployed vet tech looking for work when I came across a job listing offering a strangely large amount of money. What did I have to lose? I called the number and they gave me a website to go to that took me through an application process and a security clearance form that I had to fill out the last seven years of my life. They said it would be months until the clearance would come through but to my surprise a month later I got a phone call telling me I had been granted Interm Secret clearance and the job would proceed.
 
 I had to go to a building without any name on it downtown and they took my photo for an ID card and a packet of information about where I was to go to the next day.
 
