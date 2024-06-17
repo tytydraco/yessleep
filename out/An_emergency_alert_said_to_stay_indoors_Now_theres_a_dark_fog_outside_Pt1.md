@@ -6,7 +6,7 @@ Not know what was going on I checked my phone, which to my avail was out of powe
 
 ”What the fuck?”
 
-Throughout the years I've gotten a handful of emergency alerts. Where i live there are alot of tornadoes and usually it would be a tornado an hours drive away or a test drill. But this is different. 
+Throughout the years I've gotten a handful of emergency alerts. Where i live there are alot of tornadoes and usually it would be a tornado an hours drive away or a test drill. But this is different.
 
 After reading the alert the power flickered a bit and then stayed on. I knew it probably wouldn’t last so i started charging my power bank. After i plugged it in i left my bedroom. when i exited i looked up and down the hallway. After confirming it was safe i went to the kitchen. Everything looked normal, so i went to the basement door. I grabbed a knife and I swung the door open and turned on the lights. Then i saw what made the noise. A pile of boxes had fallen over. I closed the door and went to get something to eat.
 
@@ -22,7 +22,7 @@ Next was my life long friend Trevor. He didn't pick up
 
 I was starting to get freaked out and decided i needed to fortify my house. I blocked the front and backdoor with bookshelves, But for the windows it got complicated. I couldn't make loud noises and i didnt know how to block the windows without uses a hammer or drill. So i just settled with closing the curtains.
 
-Then my phone rang. It was Sarah, my girlfriend, I instantly picked up and waited for a noise. 
+Then my phone rang. It was Sarah, my girlfriend, I instantly picked up and waited for a noise.
 
 “Hello?” she said in a quiet voice
 
@@ -32,14 +32,10 @@ Then my phone rang. It was Sarah, my girlfriend, I instantly picked up and waite
 
 ”Why? Do you know whats out there? in the fog?” I said whispering.
 
-”There are creatures, They-“ She began to stutter. 
+”There are creatures, They-“ She began to stutter.
 
 “What?”
 
-“They broke in. My parents are dead.”  
+“They broke in. My parents are dead.”
 
-
-
-
- 
-
+Part 2: no part 2 for 24 hours sorry everyone
