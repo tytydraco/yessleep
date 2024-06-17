@@ -150,4 +150,20 @@ I nodded, too shaken to argue, and left the house. The drive home was a blur. My
 
 As I lay in bed that night, I couldn't shake the feeling that something had followed me home. The darkness in my room seemed thicker, more oppressive. I kept the lights on, unable to sleep, haunted by the events of the evening.
 
-I never returned to the Thompsons' house, and I never spoke of that night to anyone. But the memory of it stayed with me, a constant reminder of the things that lurk in the shadows, waiting to be let out.
+The next morning, I woke up with deep, dark circles under my eyes, despite barely sleeping. As I dragged myself to the bathroom, I noticed something odd in the mirror. There were faint, shadowy figures flickering behind me. I turned around quickly, but there was nothing there. I tried to convince myself it was just my imagination, a remnant of the night’s terror.
+
+Over the following days, the occurrences escalated. I would see fleeting shadows out of the corner of my eye, hear whispering voices when I was alone, and feel a chilling presence in my room at night. My grades started to slip, and I found it hard to concentrate on anything. Friends noticed the change in me, commenting on how tired and distracted I seemed.
+
+One night, as I was studying for an important exam, the power went out. I sat in the dark, trying to steady my breathing, when I heard the familiar whispering. It was louder now, almost as if it was inside my head. I clutched my ears and squeezed my eyes shut, but it didn’t stop.
+
+Suddenly, a cold hand grabbed my ankle, pulling me off my chair. I screamed and kicked, but there was nothing to fight against. The whispers turned into menacing growls, and the shadowy figures closed in around me. Just as quickly as it started, the power came back on, and the shadows vanished. But the fear remained, a constant reminder that I was never truly alone.
+
+I knew then that the shadows had followed me home, and they were here to stay. No matter where I went, I could feel their presence lurking in the corners, watching and waiting. The babysitting job that seemed like a dream had turned into a never-ending nightmare.
+
+Desperate for a solution, I contacted Mrs. Thompson, hoping she could help me banish the shadows. She listened to my plight with a knowing expression and then reluctantly gave me a small, worn book titled "Wardings Against the Dark." She explained that it contained rituals and protections that might help me rid myself of the shadows.
+
+I spent the next few nights carefully following the instructions in the book. I lit candles, burned herbs, and recited incantations. Each night, the presence of the shadows seemed to weaken. On the third night, after completing the final ritual, I felt an overwhelming sense of relief as the shadows dissipated, leaving my room feeling lighter and more peaceful.
+
+Although the immediate threat was gone, the experience had left a permanent mark on me. I no longer took safety for granted and always followed the rules Mrs. Thompson had given me, even in my own home. I never took another babysitting job, and the memory of that night stayed with me, a constant reminder of the things that lurk in the shadows, waiting for an opportunity to strike.
+
+The true horror had just begun, and it was far from over. But at least, for now, I had found a way to keep the darkness at bay.
