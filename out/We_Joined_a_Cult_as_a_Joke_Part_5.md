@@ -8,96 +8,125 @@
 
 \[[Part 5](https://www.reddit.com/r/nosleep/comments/1dhc4ww/we_joined_a_cult_as_a_joke_part_5/)\] <- You are here.
 
-The room was opulent. An ornate chandelier hung from the ceiling, casting a soft, golden light over the room. The walls were lined with rich, dark wood paneling, intricately carved with symbols of ancient rites and rituals. Heavy velvet drapes in deep crimson framed the tall windows, blocking out the night.
+The night air was thick with the cloying scent of incense, mingling with the soft, ominous chants of the others. Each breath felt heavy, tainted with the stench of decay and something ancient… malevolent. My mask stuck uncomfortably to my face, the chill night air dampening the fabric pressed against my skin.  
 
-Tim and I were tied to heavy wooden chairs, our wrists raw from the ropes that bound us. Voss sat behind a desk, gently smoking a cigar. Chloe sat beside him, her eyes empty and distant, as if she had become a part of the darkness that surrounded us. My heart ached to see her like this, a shell of the woman I once knew.
+"Stay close," Tim whispered as we followed the procession into a vast courtyard, open to the night sky.  
 
-Chloe’s aloofness was a dagger to my heart. She sat there silently, not even glancing in our direction. Her vacant stare spoke of submission, her spirit seemingly crushed.
+The walls were adorned with ancient symbols and statues that seemed to writhe in the torchlight. My eyes never left Chloe standing near the altar, her posture vacant. 
 
-"Now, gentlemen," Voss began with false warmth. "I am a reasonable man. This situation has escalated far beyond what I intended. I offer you a chance to walk away. Leave this place, and let my dear Chloe live her life in peace."
+“There she is,” I muttered to Tim before a heavy silence blanketed the courtyard. Marcus Voss emerged from the shadows, his presence like an eclipse, casting a pall over the gathered cultists. His predatory eyes scanned the assembly with a gaze that seemed to pierce the soul. Every movement he made was deliberate, each step echoing with an authority that demanded absolute obedience. 
 
-Desperation clawed at my insides. Every part of me wanted to fight, to tear Voss apart and reclaim what was mine. But I knew it was useless. Voss held all the power. Walking away felt like a betrayal, but staying meant certain death—and for what? To watch Chloe remain a prisoner to this monster?
+Voss wore an intricate robe, its fabric a deep, abyssal black, embroidered with symbols emanating an otherworldly light. 
 
-"I have a counteroffer," I said, my voice resolute.
+Behind him followed Dr. Wilcox. He too was robed in dark finery, his hands cradling a blade that gleamed under the flickering torchlight. 
 
-Voss raised an eyebrow, amusement dancing in his eyes. "Oh, this should be good. Let's hear it."
+Voss paused, allowing his presence to settle over the crowd. His voice, when it came, was a silken thread that wove through the silence. 
 
-"I recorded everything tonight," I declared. "There's a camera hidden in my collar. Every word, every action—it's all on video."
+"Gather, my disciples," he intoned, "Tonight, we unveil the true faces of those who dare to seek true understanding."
 
-Voss’s amusement vanished, replaced by a cold fury. He gestured to Wilcox, who stepped forward and ripped the tiny device from my collar. With a swift, brutal motion, Voss crushed it under his heel, the sound of breaking plastic echoing in the chamber.
+Voss turned to the three standing there, with Chloe at the end. His gaze lingered on each one. 
 
-"So much for your leverage," he sneered, his eyes narrowing.
+Dr. Wilcox stepped forward, raising the blade high for all to see. It looked identical to the one plunged into my side not a week prior. He held it there for a moment, before lowering it and gesturing back to Voss. 
 
-"Does the name Kelly with GSNN mean anything to you?" I asked, struggling to keep the excitement out of my voice.
+"But first," he continued, "there is the matter of retribution." 
 
-Voss froze mid-drag, the cigar smoke lingering like a ghost. "Journalists today have some impressive tech. That wasn’t a recorder; it was a transmitter. Kelly has a live feed of everything—including you murdering two men in cold blood."
+Two men were dragged forward, their bodies covered in dirt and nearly naked save for mud-stained briefs and burlap sacks over their heads. They struggled weakly. 
 
-For a moment, silence hung in the air. Voss’s face contorted with rage, his eyes blazing. He took a long, deliberate drag from his cigar before exhaling slowly, the smoke curling around his head.
+The men holding them ripped away the sacks, revealing the terrified faces of the orderlies from the hospital. 
 
-"You think that changes anything? Chloe belongs to me. She will always return to my side, no matter what. Should she release the tapes I have ways to make it disappear. You have no power here."
+Voss's gaze swept the crowd once more. "As many of you know," he began, "a profane presence has infiltrated our sacred rites, corrupting our rituals. I’ve been informed that he skulks among you, thinking himself hidden at this very moment.”  
 
-"I’ll stay then," I said, my voice steady. "Let me go through the initiation. If this is what she wants, then I’ll go through it too."
+The crowd stirred, masked faces turning this way and that in search of the intruder. I mimicked their movements, trying to stay hidden. 
 
-Voss’s eyebrow arched, a smile curling at the edges of his lips. He savored the moment, his eyes gleaming with twisted delight. "Alright," he said finally, his voice dripping with mock sincerity. "But first, I expect confirmation that the tape has been deleted."
+"Worry not. Let him be. Let him see our ways," Voss declared, "Let him understand.” 
 
-"Yes, of course," I replied, "But you also have to let Tim go. He was just trying to save his sister."
+He turned his attention back to the orderlies. "These men," he spat, "were coerced by another profane. They betrayed our order to save the one who defiled our sanctuary. I ask of you, what should be their punishment?” 
 
-Voss considered for a moment, then nodded. "Right. That seems acceptable," he said.
+A clamor began amongst the followers. “Death!” rang out from the crowd. “Blindness!” shouted another. 
 
-Before anything else could happen, Chloe’s voice sliced through the tension like a knife. "I never took you for the religious type."
+Voss held his hand up as the silence returned. “I am nothing if not your servant, but these are punishments for the profane. These men were trusted. It is one thing to violate our order, but it is another to have seen the light and to turn away.” 
 
-The entire room turned to her in stunned silence. In one swift, decisive motion, Chloe’s hand darted forward, seizing the ceremonial dagger from the table. With a fierce, guttural cry, she plunged it into Voss’s chest. Blood sprayed from the wound, splattering the floor as Voss staggered back, his eyes wide with shock and pain.
+“Purificatio!” a solitary voice emanated from the crowd. 
 
-For the first time in what felt like an eternity, Chloe’s face showed a flicker of emotion—fierce determination, a blazing fire of resistance that had been rekindled.
+“Purificatio.” Voss repeated with a smile. “Is this our final judgment?” 
 
-The doctor lunged at us, his knife flashing in the dim light. Tim, despite his unsteady state, summoned a surge of primal strength. With a guttural roar, he crashed into the doctor, their bodies colliding with bone-jarring force. The knife slipped from the doctor's grasp, clattering to the floor as Tim’s raw fury overwhelmed him.
+The men pleaded with Voss, their voices drowned out by the crescendo of voices in the crowd repeating “Purificatio!”. I glanced at Tim, whose eyes were glued on Chloe.  
 
-What followed was a blur of unrestrained rage. Tim’s fists pounded relentlessly, each punch landing with a sickening crunch that echoed through the room. Even with just one hand, he pummeled the doctor, transforming his face into a grotesque, pulpy mess. Blood sprayed in violent arcs, splattering the floor and walls.
+Voss held his hand up once more, and once again the silence returned. He announced, “The will of the collective is divine.” before gesturing to Dr. Wilcox. 
 
-Gasping for breath, Tim stood over the lifeless body, his chest heaving with exertion. I turned to Chloe, confusion and anger swirling within me. Grabbing her shoulders, I searched her eyes for answers, desperate to understand.
+The orderlies' pleas grew more desperate, imbued with fear and sorrow that only fueled the fervor of the crowd. The men were dragged, kicking and screaming, towards the giant bonfire at the foot of the colossal owl statue, its eyes gleaming in the firelight. 
 
-"Is it really you? Why did you do that to me?" My voice trembled.
+As we positioned ourselves towards the front of the crowd, I took in the stage with renewed clarity. The statue's base was hollowed into an oven, its edges licked by relentless flames. Smoke spiraled upwards, drawn through the statue's hollow core, escaping from the glowing eyeholes of the owl, as if brooding over the scene below.
 
-Chloe met my gaze, her eyes swimming with guilt and sorrow. "George, I... I'm so sorry. I knew we didn't stand a chance. If I had shot him on that stage, they would have killed us all without hesitation."
+The flames roared hungrily, their heat sweltering even from a distance.
 
-Her voice wavered, barely holding back tears. "I thought if I kept up the act, if I played along just a little longer, you and Tim might leave. You could escape and have a life. The thought of you dying because of me... I couldn't bear it."
+The mens screams grew louder, their faces contorted with sheer terror as they were forced closer to the inferno. Their skin glistened with sweat, their eyes wide with the primal fear of impending death. They struggled against their captors, but the grips that held them were unyielding, eyes alight with fanatic zeal. 
 
-Chloe’s eyes searched mine, brimming with deep sadness. "I wanted you to be safe, to be happy, even if it meant losing you forever. I wanted you to live."
+With a final shove, the men were cast into the roaring bonfire. Their initial screams pierced the night, high and shrill, a horrifying symphony of agony. The intense heat quickly blistered their skin, causing it to bubble and peel away, revealing raw, sensitive nerves. Their bodies convulsed, muscles contracting violently into contorted shapes. 
 
-"But why now? Why fight back now?" I demanded, tears welling up in my eyes.
+The flames, voracious and unrelenting, licked at their flesh, the crackling sound of burning skin mingling with their cries. The smell of burning flesh and hair filled the air. 
 
-Chloe’s expression softened, her remorse evident. "Seeing how hard you fought... I couldn’t stand by anymore. I’d rather die trying to escape than live as his pawn. You gave me the courage to fight back."
+As the fire intensified, the men’s skin charred and blackened, turning to ash in some places while other parts still writhed in agony. The flames reached higher, consuming clothing and flesh alike, leaving behind smoldering, skeletal remains. The horrifying sight was punctuated by the popping and sizzling sounds of fat and muscle burning away. 
 
-I embraced her, the warmth of her skin grounding me in the reality that she was truly with me. For a moment, we held each other, the chaos around us fading into the background.
+Their screams, once loud and piercing, turned into guttural moans as the flames ravaged them. Each breath drew in searing heat, causing their throats and lungs to blister and burn from within. Their movements became slower, more spasmodic, as their bodies succumbed to the overwhelming heat and pain. 
 
-Tim’s fists clenched, his anger simmering just beneath the surface. “You don’t get it. We were risking everything, and you—” He glanced down at his mangled hand.
+The crowd stood transfixed, their eyes reflecting the hellish glow of the bonfire. The chants of "Purificatio" had ceased, replaced by an awed silence. The statue's stone gaze seemed to judge the proceedings with approval. 
 
-“I know what you were risking!” Chloe interrupted, her voice breaking with emotion. “Every day I played along, I was risking my life too.”
+As the men’s bodies were reduced to smoldering husks, their final moments of suffering faded into the night until only the crackling of the fire remained. 
 
-Tim’s shoulders sagged, the fire in his eyes dimming. “But you seemed like one of them,” he muttered, the betrayal still evident in his voice.
+Voss stepped forward, his face illuminated by the dying flames. "Mourn for them not. Their souls have been cleaned. They reside beside Nuit now." 
 
-Chloe stepped closer, her eyes pleading. "I had to make them believe I was loyal. It was the only way to protect you both. I never stopped fighting for a way out, even when it meant hurting you. Please, understand."
+"Now, ladies and gentlemen," he paused. "It is time for the main event.” 
 
-Tim looked away, his anger slowly ebbing. The tension in the room began to ease as he processed Chloe’s words. Finally, he nodded, the betrayal in his eyes giving way to a weary acceptance.
+---
 
-A faint whisper reached my ears. I turned, eyes scanning the room, and noticed a flicker of movement. In the shadowed corner, a cultist stood, his eyes wide with fear and recognition. He had been hiding, silently witnessing the carnage. The room seemed to close in around us. The cultist's gaze darted frantically between the lifeless bodies on the floor and us, as if trying to decide his next move. Suddenly, he knocked over a candelabrum, the candles spilling and igniting a small fire.
+Voss's commanding presence intensified as he extended a hand towards the first masked initiate, a figure almost trembling with palpable dread. "Step forward," he directed in a tone that brooked no argument.
 
-He fumbled backward, tripping over his own feet, giving Tim a moment to lunge at him. The cultist scrambled up, his eyes wild with panic, and bolted towards the door, knocking over a chair in his haste.
+The initiate, in a bid to hide his unease, mustered what semblance of composure he could. From beneath his cloth, Voss unveiled a heart shaped stone. "This," Voss declared with gravity, "is the Heart of Nyarlath. To prove your purification, you must embrace it fully. Do not release until commanded."
 
-"Voss and Wilcox are dead! They're dead!" he screamed, his voice rising to a panicked wail. As he reached the door, he swung it open with such force that it struck Tim, causing him to stumble back, clutching his side.
+Tentative yet compelled, the initiate removed his mask and reached out, his fingertips trembling as they made contact with the stone. The moment his grip tightened, his knees buckled under an unseen weight. Blue tendrils, spectral and chilling, seemed to snake up his arm, drawing gasps from the assembled crowd.
 
-The cultist’s screams echoed through the stone corridors. The sound of hurried footsteps and frantic shouts grew louder, a wave of chaos crashing towards us. Chloe’s face tightened with resolve and fear.
+"Blessed is he," Voss intoned softly, almost reverently, as the initiate's struggles ceased. "You have proven worthy. Release!"
 
-"We need to go! Now!" she urged, her voice cutting through the rising din.
+The initiate collapsed, spent and limp, as the crowd erupted in fervent cheers. Voss, ever the orchestrator, directed, "Bring him to my quarters to recover," as attendants hurried to assist the fallen man.
 
-The noise from the cultists swelled, the sound of impending doom that pressed in on us from all sides. An ominous chant began, echoing through the corridors.
+I turned to Tim to ensure I was not imagining this, but to my shock he was gone. I trashed my head around looking for him, only to be met with the suspicious glances from the other members. I quieted myself, feeling by heart ready to burst out of my chest.
 
-Chloe’s eyes darted around the room, searching for an escape. "There’s a passage behind that tapestry. I've seen Wilcox use it," she said urgently, pointing to a heavy drape hanging on the wall. We rushed to it, and she pushed it aside, revealing a narrow wooden door. She tried the handle, but it didn’t budge. "It’s locked," she muttered, frustration creeping into her voice. Then her eyes lit up with realization. "The key—Voss must have it."
+"Embrace," Voss commanded once more to the initiate next in line.
 
-She ran to Voss’s lifeless body and rifled through his robes. Her hands trembled slightly as she searched, finally discovering a hidden compartment in his cloak. She pulled out a small, ornate key. An object fell from his cloak and rolled to the floor - the heart shaped stone from the ritual. Instinctively, I grabbed a cloth and wrapped it up before placing it in my pocket. I had no plans on what to do with it, but I did know it was valuable to them.
+He, eager or perhaps desperate to prove himself, clasped the stone with haste. The tendrils returned, more aggressive than before, a dance of light and shadow upon his flesh. Moments later, a scream tore through the silence, raw and harrowing, as he let go of the stone in agony.
 
-She inserted the key into the lock, and with a heavy click, the door creaked open. We quickly stepped inside, the air immediately cooler and damp. The rough-hewn stone walls pressed in around us, their surfaces slick with moisture and covered in a thin layer of moss. Strange, glowing symbols pulsed with light on the walls, casting an eerie glow that seemed to dance in the corners of my vision. A musty smell filled the air, mingling with the faint scent of decay. The passage was narrower than expected, the walls almost brushing our shoulders. I slammed the door shut, catching one last glimpse of the small fire catching on a tapestry.
+In a swift, fluid motion, Dr. Wilcox advanced upon him. As others restrained him, the doctor drew his blade and plucked out his eyes, one after another. As the young man's screams filled the air, the others forced his mouth shut, holding him still. From his waistband, Dr. Wilcox produced a string, and with the calm of a seasoned artisan, he began to stitch the initiate's lips together, sealing the screams within as the crowd cheered as before.
 
-Chloe led the way, her hand trailing along the damp, cold wall for guidance. The chaotic noise from above gradually faded, replaced by the soft drip of water and the occasional scurrying of unseen creatures. The passage twisted and turned, its narrow confines making it easy to get lost. As we moved deeper, the walls seemed to close in, and the air grew colder and heavier.
+Voss waved dismissively, a cold finality in his voice. "Take him for reorientation. Another life, perhaps," he murmured, turning his attention to Chloe.
 
-We passed small alcoves filled with forgotten relics—rusted tools, decayed cloth, and crumbling books that hinted at the passage's ancient history. The floor became increasingly unstable, with loose stones and creaking wood underfoot. Each step echoed in the oppressive silence, broken only by our breathing and the occasional creak of the foundation. Each moment filled with the fear of what might lie ahead or pursue us from behind.
+Suddenly, Tim's voice shattered the suspense. "Guess again, motherfucker!" His arm shot out, snaking around Voss's neck in a tight headlock, his gun pressing against the temple. Voss strained under Tim's grip, his face contorting with discomfort.
+
+"Timothy, the dramatics are unbecoming," Voss managed to choke out, his voice strained but mocking.
+
+"Shut up, bitch," Tim hissed, "She's not your slave anymore. We're getting out of here."
+
+Voss chuckled darkly, his voice raspy. "Accusations of slavery, yet here you are, dictating terms. You think she wants to follow?"
+
+Tim's eyes flicked to Chloe, searching her face. Her expression was unreadable, distant.
+
+Guards surged forward, their weapons raised, creating a tight circle around them.
+
+"Gentlemen! Gentlemen! Are we but animals?" Voss laughed, "Let the lady choose, I say."
+
+Turning to one of the guards, he snapped, "Give her your weapon."
+
+The guard, clearly conflicted, hesitated only a moment before handing his gun to Chloe. She took it, her hands steady, examining the firearm with calm.
+
+"Choose, my dear," Voss whispered, his eyes gleaming with anticipation.
+
+Chloe lifted the gun, her aim steady.
+
+As she directed the weapon, her finger tightened on the trigger. A loud crack split the air. Tim cried out, his gun clattering to the ground as he clutched his hand, blood spurting between his fingers. The bullet had torn through his palm, leaving a ragged, gruesome wound. Bone fragments and torn flesh were visible, and blood pooled rapidly on the stage floor. His face contorted in agony as shock and betrayal flashed in his eyes.
+
+Voss's gaze softened as he turned to Chloe, his voice dropping to a whisper. "My dear, their desperation only tightens our bond, doesn't it?" The words made my stomach churn.
+
+“By the way, that's the one,” Voss declared, his finger unmistakably pointing at me amidst the throng. “Sticks out like a sore thumb. Bring the three of them to my quarters; the other initiate will have to wait.”
+
+Shadows moved swiftly around me, their black cloaks blurring into the night. Rough hands grabbed me, binding my arms with rope. From my peripheral vision, I saw Tim on the stage, already being restrained, the assistants fumbling with his ropes due to his mangled hand. Beside Voss, Chloe walked obediently, her steps matching the steady pace set by Dr. Wilcox trailing close behind.
+
