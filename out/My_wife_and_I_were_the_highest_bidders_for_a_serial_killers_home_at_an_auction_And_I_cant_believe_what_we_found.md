@@ -117,3 +117,71 @@ There, at the end of the tunnel, illuminated by nothing but my flashlight and ti
 “What the fuck.” I whispered to my wife. “They’re all down here. And they’re all still alive.”
 
 Chills ran down my spine, as I placed my gun in my belt, took Ada by the hand, and rushed over to help the sickly man.
+
+"Are you okay?" Ada asked him.
+
+"Who did this to you?" I added.
+
+But the man was much too weak to utter a reply.
+
+"Don't worry, we'll get you out of here!" I said, reasoning that, given his proximity to the hatch, we should free him and bring him up to the house, before continuing any further into the labyrinth.
+
+"This may sting a little." Ada said to the man, as she signaled me to rip the IV bag from the wall.
+
+But as soon as I did, we heard a peculiar sound.
+
+THWACK.
+
+"Wait..." I began.
+
+"Was that..." Ada replied...
+
+...As we both realized that removing the sickly man's IV bag had triggered the hatch to close from above.
+
+I wandered back to the maze's entrance and, sure enough, as I shone my flashlight on the hatch, saw that it had closed, and attempting to open it, found it locked from the inside.
+
+When I got back to Ada, she could immediately tell by my body language... that we were in trouble.
+
+"Locked?" She asked.
+
+"Locked." I replied.
+
+—
+
+A few minutes later, we once again found ourselves venturing into the darkness, this time down the right passage, left with no other choice but to finish what we started, the sickly man hobbling along with us, still too weak to let out a word.
+
+It wasn't long before we reached another fork in the road, so to speak, and we were forced to make yet another choice. Left. Or right.
+
+But rather than flip a coin, our decision was made easy, as we began to hear a noise emanating from the right passage, as it grew louder... and louder... and louder...
+
+Until...
+
+"AAARGHHH!"
+
+...We could hear whatever it was, grunting and howling, as it's seemingly enormous body could be heard charging closer... and closer... and closer..
+
+The sound of it alone sent my body into fight or fight, as adrenaline began to course through my body, my heart rate spiked, and my breath grew short.
+
+"What the fuck is that sound?" I whispered to Ada.
+
+"Whatever it is, thanks to the trap, it knows we're here now." My wife whispered back.
+
+"We've got to run!" I called out, as I signaled for both Ada and the sickly man to follow me down the left passage.
+
+My wife heeded my call, but the sickly man...
+
+Well... the poor sickly man...
+
+...Didn't stand a chance, as a massive hulking, monstrosity of a man, his face shrouded in darkness, came barreling around the corner, sword in hand...
+
+...Yes, an actual, fucking sword, its blade worn, its metal rusted...
+
+...And proceeded to hack the man to pieces, as Ada and I watched on in horror, trying to make sense of what was going on, and what the fuck that thing could possibly be.
+
+That's when, as the giant dropped what was left of the sickly man's body to the ground, it turned...
+
+...And looked at us.
+
+"Run!" I called out to Ada, as I pointed to the left passage.
+
+My wife took off into the darkness, as I caught one last glance at the monster, and its weapon, and followed Ada, deeper into the labyrinth.
