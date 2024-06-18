@@ -264,7 +264,7 @@ Emma: “There is not a chance they let us leave right?” 
 
 Mark: “Well we got one of them, maybe we can fight them off.” 
 
-Jacob: “At least only two of them jumped us, right?  and one ran off for some reason.” 
+Jacob: “At least only two of them jumped us, right? and one ran off for some reason.” 
 
 Emma: “Yeah...” 
 
@@ -377,7 +377,7 @@ Daniel: “Mark, go help Jacob...I’ll be fine.” Mark nods and runs to Jacob 
 
 Mark: “I got you man, but we gotta move as fast as you can.” Mark puts an arm around Jacob. 
 
-Jacob: “I’m so sorry.” He has while panting heavily.   
+Jacob: “I’m so sorry.” He says while panting heavily.   
 
 Emma and Mia are far ahead of the group, Mark helping Jacob and Daniel being close to them. The woods are dark and thick with trees, the sounds of bugs and animals can be heard faintly.  
 
@@ -433,7 +433,7 @@ Jacob: “Or maybe Frank killed them all for us.” Daniel stops for a second bu
 
 Daniel: “He didn't have to do that, but I hope he managed to get away from them.” 
 
-Jacob: “Yeah I would have liked to hear the rest of that scary story.” The three share a quite laugh. Mark turns his head, to the left to see nothing and to the right. He stops and Jacob looks at him. 
+Jacob: “Yeah I would have liked to hear the rest of that scary story.” The three share a quiet laugh. Mark turns his head, to the left to see nothing and to the right. He stops and Jacob looks at him. 
 
 Daniel: “You two?” He stops and turns to Mark. 
 
@@ -467,7 +467,7 @@ Mark: “With only two left, yeah.” 
 
 Daniel: “I’m still bleeding out so I don’t know how much I can help.” He coughs. 
 
-Jaco: “Yeah I’m in!” Emma quietly gets close to Mia. 
+Jacob: “Yeah I’m in!” Emma quietly gets close to Mia. 
 
 Mark: “Come here!” Mark waves his hands at the two masked men. The one with the Bow starts to walk over to the group. 
 
@@ -509,7 +509,7 @@ Mia runs towards him with knife in hand. The tall man grabs Mia and with one han
 
 Mark: “Shit! No this is so bad.” Mark runs to Daniel and gets him up on his feet. The GoPro now seeing the tall man up-close. He looks down at Mark as Mia can be heard gasping for air and kicking around.  
 
-Mia: “I’m so sorry Mia.” Getting Daniel up and helping him move. 
+Mark: “I’m so sorry Mia.” Getting Daniel up and helping him move. 
 
 Daniel: “We...can’t leave...her.” He coughs. Mark takes a few looks back to the tall man just watching them leave. Tank top now having blood on it and Mia dead at his feet. 
 
