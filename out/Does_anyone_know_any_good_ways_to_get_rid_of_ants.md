@@ -1,4 +1,4 @@
- This is becoming a serious problem.
+This is becoming a serious problem.
 
  
 
@@ -203,8 +203,6 @@ Fuck it; this was *our* childhood home. I'll be damned if I gave it up without a
  
 
 "We *have* to do something about these ants," I told her for the umpteenth time.
-
-
 
 "Goddammit, Brynn! What the fuck do you think I've been doing? I'm worried sick! They could give Martie an infection. They could eat my house to pieces! Of-fucking-course I want them gone! I can't stand them!"
 
@@ -490,7 +488,4 @@ Here we are, in a motel room, somewhere about an hour away from the pile of ashe
 
  
 
-Because I just noticed [two, little, black ants on top of my nightstand.](https://www.reddit.com/user/TheNightler/)
-
- 
-
+Because I just noticed two, little, black ants on top of my nightstand. 
