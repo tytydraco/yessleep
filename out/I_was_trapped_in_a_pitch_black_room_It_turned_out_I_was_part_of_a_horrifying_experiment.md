@@ -1,6 +1,8 @@
-A few weeks ago I woke up in hell.
+A few weeks ago I woke up in hell. 
 
-I was lying on a cold concrete floor, my head pounding like an elephant had trampled on it, and I felt like I was barely wearing anything. My hands only felt a skimpy patient gown. It smelled horribly of excrement, which someone had tried to conceal with disinfectant instead of washing the gown thoroughly.
+I know this might sound dramatic but once you'd been in my shoes, you would've thought the same thing. I really hope you never have to endure even a fraction of what I had experienced. I'm currently in a hiding spot and away from any real danger, so I thought it was the ideal time to write down the past weeks, in hope someone can understand my situation.
+
+Last month, I woke up lying on a cold concrete floor, my head pounding like an elephant had trampled on it, and I felt like I was barely wearing anything. My hands only felt a skimpy patient gown. It smelled horribly of excrement, which someone had tried to conceal with disinfectant instead of washing the gown thoroughly.
 
 I sat up and screamed in panic as everything went black. I really thought I was blind at that moment until my vision cleared and I could see a bright crack under the door. I was in a room with no lights. 
 
@@ -74,12 +76,60 @@ Flo and her brother Benny appeared in front of me, sitting in the diner. Each of
 
 The diner’s lights went out as quickly as they had appeared. Flo, Benny and the tentacle disappeared from my sight and my laughter stopped. I was back in the dark room where I had woken up today (or yesterday or the day before) with no memories.
 
-Only the room was no longer as pitch black as usual but faded into a grayish light emanating from the side of the door. My eyes rolled towards the door where a pair of arms wrapped in latex gloves held a tray in their hands and carefully placed it on the floor. As he leaned forward, I dimly recognized that he was wearing a decontamination suit. He wasted no more time, immediately disappeared and closed the door and I was trapped in complete darkness again.
+Only the room was no longer as pitch black as usual but faded into a grayish light emanating from the side of the door. My eyes rolled towards the door where a pair of arms wrapped in latex gloves held a tray in their hands and carefully placed it on the floor. As he leaned forward, I dimly recognized that he was wearing a decontamination suit. 
 
-I pushed the tray towards me and ate it all in a matter of seconds. I didn’t care how dry and musty everything tasted, it felt liberating for my stomach. The water was lukewarm, but it was too good for my throat. I followed my neighbor’s instructions and pushed the tray through the crack in the door, the cup overturned.
+As I became more awake and my mind clearer, I found myself faced with a grave dilemma. If I simply stood up and lunged at him, I would have a chance to get out of this place. But if I remained in this position and gave the impression that I was asleep, the man in the suit would leave me here alone with the gross food and I would have to hope for another attempt, if it ever came.
 
-As I lay there expectantly watching the tray linger in the hallway waiting to be picked up, I became more awake and my mind clearer and I realized that I had just found a way out.
+As the man in the suit pushed the tray towards me, he looked at me and our eyes met, even though I was just staring into a gas mask with integrated eye protection.
 
+The man backed away and pulled out a walkie-talkie. I wasn’t sure what he was saying because he was stammering so much, but it was obvious that he caught me awake.
 
+I looked at his legs and saw that he was shaking. He was scared. At that moment, I didn’t care what he was so scared of, though. I wanted to take advantage of every chance I had.
 
-TO BE CONTINUED
+I got up from the floor and slowly staggered towards him, making the most disturbing expression on my face. The man walked backwards until he reached the wall and was at my mercy. The grey light completely surrounded me now and I felt like I could see colors for the first time in years. I grabbed the man by his suit and shoved him into the room. His whole body was trembling. I looked him up and down.
+
+“Give me your suit”, I said, mock-croaking.
+
+He didn’t hesitate and took off his green overalls and gas mask, until in the end there was only a lanky boy in his underwear. He looked barely older than twenty. He was sweating all over and I could see a small yellow puddle on his feet. Poor bastard.
+
+I put on the hazmat suit, the gas mask and his rubber boots. In the suit pockets I found the key to the room. Before I closed the door behind the boy, I said: “You’ll be out of here soon.”
+
+I would've liked to take more care of him, but he wasn’t the one who was trapped here.
+
+I first went past my neighbor’s door and knocked quietly. He didn’t make a sound. I asked him if he was awake and could answer me. No response. I pressed my ear against the door and only heard his snoring. I tried to open the door with the key, but it didn’t click. There was probably an individual key for each door in the hallway. I quickly whispered to him that I would be back soon and went down the hallway.
+
+It really felt like mental institution. There were the same dark steel doors on each side of the hallway. The floor was completely covered in concrete and several fluorescent lights flickered on the ceiling. At the end of the hallway, I passed some empty hospital beds and cleaning equipment. I walked through a maze of more hallways made of nothing but walls until I finally found a slightly open door from which strange noises were coming.
+
+I heard people mumbling, squeaking boots and clinking metal cutlery. I got closer and closer to the door until I could understand some things more clearly. A man and a woman were discussing something excitedly.
+
+“His numbers are dropping. We need to do it now.”
+
+“Do you really want to risk the possibility that he could be dangerous if you cut him open?”
+
+“It worked with the last anomaly before it died.”
+
+“That was different. That anomaly was 58 years old and suffered from heart problems. We’re dealing with a much younger specimen here, who is also still going through puberty.”
+
+“How long have you been doing this job? Have you ever been down the other hallways and looked at these creatures? Every day I have to bring this filthy food to the worst kinds of humanity and look at their faces. They may look different on the outside, older, younger, taller, shorter, or sicker and healthier. But at the core they’re all the same. We are only doing them a favor.”
+
+There was silence after that, which made me think that the woman had given in. Curiously, I dared to look into the room, as inconspicuously as possible.
+
+Another man in a hazmat suit and a woman in a gas mask and surgical gown were bent over a hospital bed. The woman took a scalpel and worked on the body of the person who was lying motionless on the bed.
+
+I leaned closer to get a better look when suddenly the hinges of the door squeaked and exposed me. The man in the suit looked at me in surprise, but the woman seemed to have been startled by the noise because she frantically cut into the patient’s chest before turning around too.
+
+The patient suddenly woke up and screamed loudly, his chest heaving. At that moment I realized it was a little boy. He had curly hair and green eyes and loved chocolate ice cream more than anything. It was Benny.
+
+The man in the suit acted quickly and pulled out a knife and approached Benny. I lunged at him and knocked it out of his hand. We struggled for a while, with him having the upper hand. He was very strong and punched me pretty hard, but I fought back as much as I could. I did everything to stop him from picking up that knife again.
+
+Meanwhile, Benny got up from the bed, still screaming and his chest bulging out. His screaming suddenly turned into a terrible wheezing sound, as if he was about to vomit his intestines out at any moment. The woman in the surgical gown approached him cautiously, but before she could do anything, Benny knocked her out of the way with full force, leaving her lying motionless on the floor.
+
+I was still fighting with the man, but finally managed to grab him under the nose and push it up, causing him to release me from his handle in pain. I quickly ran to Benny, although I didn’t know what to do. 
+
+“Benny, it’s me!” I shouted, hoping he would recognize me. But the sight of him told me that I was standing in front of something completely different from Benny. I would only recognize this creature in my worst dreams.
+
+Benny’s wheezing got louder, and eventually gigantic, turquoise and slippery tentacles sprouted from his mouth, chest and eyes. I was frozen and didn’t know how to feel.
+
+I knew that creature wasn’t Benny. I knew I’d seen it in my dream. I knew it was real. And I knew it was my fault.
+
+Its suction cups stared at me again, uneven and disgusting. Before I knew it, it reached out and sucked itself onto me. The pressure was so strong that I felt like I was being sucked into a deep black hole, even blacker than the darkness in had to endure in the room.
