@@ -32,9 +32,9 @@ And just as i thought i was going insane, it all suddenly stopped one morning. I
 
 I was relived, but when i went to the kitchen to make myself breakfast, my dad comes in and asks me if i left the living room tv on last night. "No, i didn't, why you ask?" i reply, with a funny little smirk. "Well, someone did and all that was on the television was just plain old static" my dad replied.
 
-"Weird" i said, still jokingly but at the same, i felt a little unnerved.
+"Weird" i said, still jokingly but at the same time, i felt a little unnerved.
 
-This brings me up to last Wednesday night. Me and my parents were having dinner at a pub, and we unexpectedly meet one of my dad's many friends and wanted to do a selfie with us, so we did just that (although i was hesitant).
+This brings me up to last Wednesday night. Me and my parents were having dinner at a pub, and we unexpectedly meet one of my dad's many friends and he wanted to do a selfie with us, so we did just that (although i was hesitant).
 
 When we got home, i get a notification from Facebook that my dad's friend just had posted our selfie, so i went to check it out. My dad, mum, and the friend are making dumb silly faces, while i was closed-mouth smiling.
 
