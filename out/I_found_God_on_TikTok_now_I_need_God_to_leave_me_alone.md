@@ -29,3 +29,5 @@ Day 7: Well. You can tell how fucking day 7 is going. It’s 5:19am. I slept. Bu
 I keep hearing it wail. I think it’s mad. Today it’s screaming. That’s all it’s doing. 
 
 Fuck fuckfuck-I hear it outside the closet. I hear it opening the door.
+
+[part.2](https://www.reddit.com/r/nosleep/s/UVigNyGm80)
