@@ -103,3 +103,5 @@ I picked one up and threw it at Samson’s head. He stopped. His blank face star
 When I take a step back, a loud roar echoed from the ceiling. He stopped in his track, chuckled beneath his breath in satisfaction. “Sounds like lunch break. I’ll leave this one to the two of you. Or just you.” And with that, he turned and strolled away, disappearing into the darkness.
 
 I ran towards Brock, hoping he can still be alive. Just as I’m about 6 feet away from him, something massive came crashing down from the ceiling.
+
+[Part 4](https://www.reddit.com/r/nosleep/comments/1dh5pn9/i_was_involved_in_a_secret_prison_never_known_to/?utm_source=share&utm_medium=web3x&utm_name=web3xcss&utm_term=1&utm_content=share_button)
