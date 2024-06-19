@@ -1,0 +1,13 @@
+I live in the Philippines, home to many superstitions, I was not a believer in supernatural occurrences before the incident that changed my whole perspective. I had a friend, let's call her "k", there weren't really a lot of people my age to be friends with so it was just me and her. I have poor eyesight so I wear glasses, so she lends a helping hand when I knit, even though I have poor eyesight I enjoy knitting.
+
+It was the birthday of one of our neighbors and we wanted to look presentable, so we did our makeup and picked a casual wear. We went to the celebration, it was an extremely hot summer so my glasses often fog up, that's why I commonly remove my glasses to wipe the built up fog.
+
+We ate our first round and my friend, still being hungry, went to get another plate of food. I was left  at our table and I removed my glasses to wipe up the built up fog. Glasses at hand, I felt an urge to look at my friend's direction, just to see her headless. In a panic, I rushed to put back my glasses back on to see her normal, head intact. I was relieved and I though to myself that I must have seen it wrongly or my mind playing tricks, to add my bad eyesight.
+
+We left soon after, we said our goodbyes as our homes were on different paths from the place of the party. I returned home, bathed and quickly went to sleep as I was tired from the event. I was awoken when I felt someone pushing me back and forth to wake me from sleep, It was my mother. I asked her "what's wrong?" since it was still dark outside, I could see gloominess on her face at the time, so I was worried. My worries were right as she replied "k... she's dead". I couldn't believe it at the time, or maybe I was just in denial, my friend that I saw as a family just died.
+
+My mother told me that she died when she was hit by a drunk driver, she was on her way to their house when she was met with the accident. A part of me blamed myself for what happened at the time, I mean I wasn't able to do anything, while I was sleeping soundly, she was dying.
+
+Some time has passed after her passing, I came across a post about a superstition that involves being able to see who is to die. According to the post, if you could see someone who is headless, it means that the beheaded person would be met with an accident. According to the post, you must inform the person who you saw was headless to have them burn their current shirt, to remove the accident that is to come.
+
+I don't know why I was able to see my friend headless, but I still blame myself this day for not being able to help her. I'm writing this to inform people that if you see someone headless, TELL THEM.
