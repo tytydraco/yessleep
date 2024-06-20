@@ -1,6 +1,6 @@
 I've been pretty sick recently, so sorry if some of the details aren't clear. 
 
-I live by myself with my 3 cats, Coz, Jaks, and Paws McGraw (Paws). My Russian Blue, Coz, is the oldest, he's been with us for 12 years now? Turd and Jaks are both 3yr old tabbies, they came from the same litter. Turd and Jaks share the same brown and black coat, contrast to Coz's silver blue.
+I live by myself with my 3 cats, Coz, Jaks, and Paws McGraw (Paws). My Russian Blue, Coz, is the oldest, he's been with us for 12 years now? Paws and Jaks are both 3yr old tabbies, they came from the same litter. Paws and Jaks share the same brown and black coat, contrast to Coz's silver blue.
 
 We both have our own rooms in the apartment, sharing a single bathroom. I sleep in my fully furnished bedroom, a dresser, a bed, a chair, and a tv, the essentials. Their room has 3 kitty boxes for all of them, overkill, I know, but Coz won't pee in the other boxes and it seems the other 2 picked up on it. So now all of them have their own box.
 
