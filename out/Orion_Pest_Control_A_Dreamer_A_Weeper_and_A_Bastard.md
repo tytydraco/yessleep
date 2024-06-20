@@ -333,7 +333,9 @@ Even if the mechanic learns my name, I still have the hagstone. The night I'd ma
 
 In the meantime, I've discussed what happened with my coworkers. We all agreed that it was best for me to not be alone, so I’ll be staying with Victor for a while. Even with his tie to the Hunt, he was more experienced when it came to things like this than Reyna was. 
 
-The full moon is coming. June 22nd. I swear that even if it's the last thing I do, I will learn that bastard’s name. 
+The full moon is coming. I swear that even if it's the last thing I do, I will learn that bastard’s name. 
+
+Update: [I found the church.](https://www.reddit.com/r/nosleep/s/FpqvjGLOW2). 
 
 [(Here's an index of all the cases I've discussed so far.)](https://www.reddit.com/u/adorabletapeworm/s/DSCXrJChCH)
 
