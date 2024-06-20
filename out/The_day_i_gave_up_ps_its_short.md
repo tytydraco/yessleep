@@ -1,0 +1,20 @@
+The day i gave up 
+
+It was late at night, the moon reflecting off my skin like a pane of glass, i usually don’t leave my window open but something compelled me maybe it was random gut feeling, maybe the stairs creaking, since i was the closest door to the stairs, maybe that weird screech I’ve been hearing for a week now and imagined was a monster, maybe even just me using the moon light to help see my room better, as i had overseen my brother watching a horror movie in the living room just that afternoon and i thought the light would keep the monsters away, how wrong i was. 
+
+As i was dozing off mere moments from the warm embrace of sleep i heard something a crack a slither a screech, it was coming from down stairs, immediately i ran past two doors and into my parents room just to see them alert, faces pale whispering, when they saw me they put a finger to there lips with a fear so conquering even the warmth of the brightest sun the happiest smile or the greatest reassurance couldn’t stop it, i immediately was stunned they gestured me to shut the door and to turn off the lights, after doing so they waved a hand telling me to come sit so quiet I thought i could have been imagining it.
+
+my father said to me “son i’m sorry for not being able to be a real father I’m sorry for failing the one task every parent is supposed to” (somberly) i ask immediately after why what did u do then he said “i cant save u” it was dead silent I didn’t say a word i was confused and terrified but didn’t know why yet, then I heard tears “ill still try even though i know i wont ill try i have to try to give you your brother and ur mother time to escape even if its without me” (in a quiet and somber voice) then I realized why i hadn’t heard from my brother, he was behind my father frozen in fear i didn’t know why they were so afraid of whatever made that noise but i would soon. 
+
+after a few seconds of silence i heard scuttling and my father picking up my grandpa’s shot gun and knife, and says “he knows”, then i hear it run up the steps, then it breaks 1 door 2 doors 3 doors then i hear a bang the shotgun rang before he could touch the door then four more shots followed suit my father with a booming voice commands us to run down the stairs as he’s screaming from the pain of getting punctured by the creatures arm, as were going down it sees us its head cracks like a whip to are direction and immediately tries running towards  then i hear “not today not ever again u BASTARD” as he pierces its hyde and it lets out a oddly familiar screech sounding like it came from the depths of hell.
+
+my mother speeds up instantly knowing what to do grabs the keys and puts us in the car and pulls out as if it was a primal instinct we drove for what felt like years, and eventually pulled up to my uncles house, he’s happy to see us even though we don’t give him back the same cheer, he asks wheres his brother, then my mom without a word or a glance shows him a picture and nothing else needed to be said his face was pale and sorrowful and he lets us inside we haven’t been back to our old home since, i still hold out hope that one day he’ll knock on our door i still hear that screech sometimes my father was a great man i miss him
+But i know he failed cause last night i heard a screech.
+
+
+
+
+
+
+
+Also everyone this is my first ever story any feed back would be appreciated 
