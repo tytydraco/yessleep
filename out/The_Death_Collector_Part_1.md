@@ -6,7 +6,7 @@ Sorry, I've never been good at starting a conversation. My aunt used to tell me 
 
 You see, when I was younger, I was tasked with the unpleasant responsibility of clearing out my father's apartment after he died. We hadn't been close for a number of reasons. Reasons I'd rather not get into this early. But my dad had no spouse and I was his eldest child, and my brother was taking the whole thing too hard for me to feel good about passing things off to him. So it was up to me to clear out the home of a man I hadn't seen or even spoken to in...God, thirteen years.
 
-I found a lot of things while cleaning out that apartment that I honestly would have rather not know about. The pictures of me and my brother on his dresser. The letters from lovers who somehow saw \*something\* in that man that I couldn't understand (along with some pretty graphic descriptions). Scribbled notes about things that I remembered and things I didn't at all. The ones I didn't remember were the worst. They usually are.
+I found a lot of things while cleaning out that apartment that I honestly would have rather not known about. The pictures of me and my brother on his dresser. The letters from lovers who somehow saw \*something\* in that man that I couldn't understand (along with some pretty graphic descriptions). Scribbled notes about things that I remembered and things I didn't at all. The ones I didn't remember were the worst. They usually are.
 
 When it was done I remember wishing that someone else could have done it. That someone who didn't know him had done the job of digging through his life without the added pain of knowing the man.
 
@@ -26,7 +26,7 @@ Here's a rough approximation of what my sleep deprived brain came up with in the
 
 >\*\*Consent Form for Services Rendered\*\*
 
->
+>1. I, _______________ hereby grant Donovan Clasky permission to enter the home of the deceased, ________________, as executor or administrator of their estate. 
 
 >2. In terms of furniture, I would like to keep the following furniture
 
@@ -53,7 +53,7 @@ Although the first day of this job was light, it was a good tone setter for my w
 
 Bright and early the next day I set off for the address I was given with a sense of nervous excitement. This was the first day of a potential career, one that didn't involve retail work 5 days/week, and if it worked out I was confident I could support myself doing this instead. I'd done some research on the prices using what similar services I found and if I did well then...well, then I would have a better life. Even if it was dealing with a lot of death. When I pulled up, I wasn't really sure what to think.
 
-On first glance the apartment looked normal. Nice even. But the more you looked at it the more you noticed the odd details. Newspaper over one of the windows. A crack in another. What looked like scratches around the doorknob. The feeling around it was odd too. I'd come to know that this was just the feeling of going into a house you know has no resident any longer, but at time time, I was just kind of freaked out. Regardless though, I had to go in. I already had my gameplan. First clearing out all the trash, then the small stuff like paperwork, then the appliances and such, then the furniture. Being prepared like that always calmed my nerves in new situations, and it certainly did that here as I unlocked the door, took a breath, and went in.
+On first glance the apartment looked normal. Nice even. But the more you looked at it the more you noticed the odd details. Newspaper over one of the windows. A crack in another. What looked like scratches around the doorknob. The feeling around it was odd too. I'd come to know that this was just the feeling of going into a house you know has no resident any longer, but at the time, I was just kind of freaked out. Regardless though, I had to go in. I already had my gameplan. First clearing out all the trash, then the small stuff like paperwork, then the appliances and such, then the furniture. Being prepared like that always calmed my nerves in new situations, and it certainly did that here as I unlocked the door, took a breath, and went in.
 
 It was...disgusting in there. More flies than I would have imagined, and the smell was...god, it was horrible. Rotting food, cigarette smoke, cat pee, and-
 
