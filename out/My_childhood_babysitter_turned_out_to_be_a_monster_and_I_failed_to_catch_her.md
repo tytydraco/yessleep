@@ -72,7 +72,7 @@ I sprinted through the woods, my legs already burning  from climbing the fence.
 
 Sure enough, by the time I arrived Carla, or at least half of her, was gone. Her lower half laid sprawled out on the ground. I did one final check to make sure she was gone, then crept out into the clearing. 
 
-I absolutely drenched her legs in gasoline and lit a single match. I took a deep breath and set the legs on fire. They burned for at least an hour,maybe more. I hid behind a tree awaiting her return, the camera clutched close to my chest. 
+I absolutely drenched her legs in gasoline and lit a single match. I took a deep breath and set the legs on fire. They burned for at least an hour,maybe more. I hid behind a tree awaiting her return, the camera clutched close to my chest. Only the flames crackling kept me company that night.
 
 After an eternity she finally flew into the clearing. When she saw what remained of her lower body, she screamed a guttural, ear piercing scream. It could have been heard for miles. I dropped the camera and covered my ears, wincing. That was my biggest mistake. 
 
