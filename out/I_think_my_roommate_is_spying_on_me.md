@@ -47,7 +47,7 @@ After our last conversation, I'm pretty sure it's Cameron.
 
 The next saturday that we were both home, I decided to bring it up. I brought them into my room and showed them the hole and the camera. They said, “what the fuck dude, thats messed up” but his face showed little emotion. I suspected they were just in shock, as I was when I found it. Then I told them I had gone into their room. They became rigid and slowly turned their whole body at me, as if they were one solid being without joints or limbs. They stared at me and I felt their eyes in my soul as they blazed with an emotion I can't name - fear? Hatred? Confusion? I wasn't sure.
 
-“You went in my room?” they asked coldly. I guess it was more of a statement than a question, but I answered him anyways
+“You went in my room?” they asked coldly. I guess it was more of a statement than a question, but I answered them anyways
 
 “Yeah, I wanted to make sure that there were no cameras in your room so you didn't freak out and tear apart your room trying to find one. I didn't find any though, I guess they're only interested in me'' I laughed, trying to avoid the fear that was striking its way through my veins.
 

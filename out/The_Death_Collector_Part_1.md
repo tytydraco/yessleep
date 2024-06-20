@@ -26,7 +26,7 @@ Here's a rough approximation of what my sleep deprived brain came up with in the
 
 >\*\*Consent Form for Services Rendered\*\*
 
->1. I, _______________ hereby grant Donovan Clasky permission to enter the home of the deceased, ________________, as executor or administrator of their estate. 
+>1. I, _______________, hereby grant Donovan Clasky permission to enter the home of the deceased, ________________, as executor or administrator of their estate. 
 
 >2. In terms of furniture, I would like to keep the following furniture
 
