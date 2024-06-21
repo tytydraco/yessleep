@@ -78,7 +78,7 @@ Chewing.
 
 I froze completely. That was the most scared I had ever been. I felt a tear roll down my cheek as Dylan and I staring booking it up the stairs. I heard footsteps following behind us as we ran. Right as we made it to the top, I looked behind me.
 
-A humanoid figure crawling on all fours, with the head of a dear, and razor sharp teeth. Its mouth was covered in blood, and its antlers scraped against the walls as it chased us.
+A humanoid figure with the head of a dear, crab claws, and razor sharp teeth. Its mouth was covered in blood, and its antlers scraped against the walls as it chased us.
 
 I screamed in horror as we ran for the door. The creature let out an ear piercing screech as it leaped towards us, and we slammed the door shut. I heard a loud THUD as it crashed into the door and we ran as fast as we could back to my house. I was so scared that I didn’t care how tired my legs were.
 

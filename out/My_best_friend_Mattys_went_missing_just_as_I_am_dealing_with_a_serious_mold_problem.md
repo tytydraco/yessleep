@@ -32,7 +32,7 @@ Me: “Phoebe and her shyster are trying to eat me alive in the divorce, Matty.�
 
 Matty: “Dude. That fucking bitch. I always knew she was a bitch, bruh. But my cousin Charlie’s hooking you up, right? Jen and I got you, my brother.”
 
-I had foolishly sought representation from Matty’s ambulance chasing brother, Charlie, who was always with the runny nose and the Abbott & Costello Haunted House Painting eyes.
+I had foolishly sought representation from Matty’s ambulance chasing cousin, Charlie, who was always with the runny nose and the Abbott & Costello Haunted House Painting eyes.
 
 “No. That’s another thing I needed to talk to you about, bruh,” I had told Matty. “Charlie’s a,” and then I called Charlie a bad word.
 
