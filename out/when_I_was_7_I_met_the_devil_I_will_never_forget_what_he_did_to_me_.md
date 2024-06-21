@@ -1,0 +1,21 @@
+When I was seven years old, I lived in a small town with my parents and my little sister. We lived in a cozy house with a big backyard where we often played. Life was simple and happy. I loved riding my bike around the neighborhood, racing with friends, and feeling the wind in my hair. My parents always told me to be careful, but at that age, I felt invincible.
+
+One summer day, my friends and I decided to race down a steep hill near our houses. It was something we had never done before because our parents always warned us about how dangerous it was. But that day, we felt adventurous. We lined up at the top of the hill, counted to three, and started pedaling as fast as we could.
+
+The wind whipped against my face, and my heart pounded with excitement. As I picked up speed, I felt a rush of adrenaline. But halfway down the hill, I lost control. My bike wobbled, and I couldn't steer it back on track. Panic set in as I veered off the path and headed straight for the curb. I tried to brake, but it was too late. I flew over the handlebars and hit the pavement hard, feeling a sharp pain in my back and a ringing in my head before everything went black.
+
+When I woke up, I was in a hospital bed. My body ached all over, and I had a bandage wrapped around my head. I was scared and confused, but my mom was there, holding my hand and telling me everything would be okay. The doctors said I had a concussion and some bruises, but thankfully, I wasn't paralyzed.
+
+A few days later, a man visited my hospital room. He looked kind, with a warm smile and gentle eyes. He introduced himself as Mr. Smith and said he was a counselor who helped children like me. At first, I was happy to see him because he seemed so friendly. He brought me a book and some candy, and we talked about my accident and how I was feeling.
+
+Mr. Smith visited me every day. He told me stories to cheer me up and always seemed to know what to say to make me feel better. But as the days went on, I started to notice something strange. He often talked about how pain was just a part of life and that sometimes, we had to embrace it to become stronger. I didn't understand what he meant at first, but he kept bringing it up.
+
+One day, Mr. Smith asked me if I wanted to see a magic trick. Being seven and curious, I said yes. He took out a small knife and made a shallow cut on his finger, then smiled and showed me how the wound healed almost instantly. I was amazed and a bit scared. He told me I had the power to heal like that too, but I needed to believe in myself and be brave enough to face pain.
+
+The next time he visited, he brought a small knife for me. He told me to try the trick, to make a small cut on my arm and watch it heal. I was hesitant, but he kept encouraging me, saying it would show how strong I was. I didn't want to disappoint him, so I did it. The cut hurt more than I expected, and I cried out. But instead of healing instantly, it bled, and I felt a wave of fear and regret.
+
+Mr. Smith's smile faded, and he looked disappointed. He told me I needed to try harder, that pain was the only way to become truly strong. I realized then that something was very wrong. I told my mom about Mr. Smith and what he had made me do. She was horrified and immediately called the hospital staff. They searched for Mr. Smith, but he had vanished.
+
+Later, the doctors and nurses assured us that there was no counselor named Mr. Smith working at the hospital. It was as if he had never existed. My parents were relieved that I was safe, but the experience haunted me for a long time. I often thought about that kind man who turned out to be something else entirely. As I grew older, I came to believe that Mr. Smith was not a man at all but the devil, trying to lure me into harming myself.
+
+The biking accident changed my life, but meeting Mr. Smith changed my perception of the world. It taught me that not everything that seems kind and good truly is. I learned to be more cautious and to listen to my instincts, always wary of those who seemed too good to be true.
