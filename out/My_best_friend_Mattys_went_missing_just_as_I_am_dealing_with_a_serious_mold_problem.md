@@ -16,7 +16,7 @@ I was busy reheating the coffee. I didn’t like lukewarm coffee. I poured the c
 
 Behind my back Jen said, “David. Where the fuck is Matty? People don’t just disappear. I mean Matty disappears sometimes, but not *disappears* disappears. He’s just slow to respond to texts. And voice mails.”
 
-This was rough. I loved Jen. Like a sister. Since freshman year. That’s when I had met her and Matty, and Monica and Joey and we all had became best friends for life. But Jen and Matty? It was more than just friends. It was *fire*.
+This was rough. I loved Jen. Like a sister. Since freshman year orientation. That’s when I had met Jen, Phoebe, Matty, Monica and Joey and we all had became best friends for life bonding over coffee, cannabis and bad sitcoms. But Jen and Matty? It was more than just friends. It was *fire*.
 
 Anyhow, time for that last cup of coffee. Got to make it count. The trick was reheating the coffee and dark chocolate covered almonds and espresso beans to the proper temperature before transferring the chocolate infused brew into proper coffee mugs. The ones on my kitchen counter sported Humphrey Bogart and Lauren Bacall images all over them. When the chocolate had fully melted into the coffee, I slowly began stirring the sugary caffeinated concoction with a steel chopstick. Joe began to imitate my life; boil, boil, toil and trouble. I lowered the flame to a faint blue simmer while continuing to stir clockwise. I looked down at Matty’s hastily abandoned sneaker. There was more mold and mildew on it then the last time I had glanced. I looked down at my own feet. They seemed fine. Matty’s shoe looked pretty expensive and not to have seen very much mileage.
 
@@ -26,7 +26,7 @@ I had been going through the divorce from hell. I needed someone I could trust. 
 
 “It’s your upper lip,” I had heard myself mutter back.
 
-Matty: “Dave, baby. We’re blood brothers since ’86 baby. Blood brothers, Dave. We bros gotta stick together. We all fam, Dave.”
+Matty: “Dave, baby. We’re blood brothers since ’86 baby. Blood brothers, Dave. We bros gotta stick together. We all fam, Dave. No child left behind.”
 
 Me: “Phoebe and her shyster are trying to eat me alive in the divorce, Matty.”
 
@@ -258,7 +258,7 @@ Jen looked at me. Then she looked at the pictures. Then she looked at Phoebe.
 
 I nodded. I looked at Archer. I put up my hand and said, “Stay! Archer stayyy.”
 
-Phoebe said, “Give me the fucking loot- “but before she could finish, I stepped behind her. I grabbed my soon to be ex-wife by her shoulders.
+Phoebe said, “Give me the fucking loot-“ but before she could finish, I stepped behind her. I grabbed my soon to be ex-wife by her shoulders.
 
 "*OWWWWW*!" she said, indignant annoyance stretching like boardwalk taffy in July.
 
