@@ -14,9 +14,9 @@ I was modifying a couple of blonde roasts Jen had brought over along with a few 
 
 I was busy reheating the coffee. I didn’t like lukewarm coffee. I poured the coffees from their cups into my new Michelangelo sauce pot. I then added all the chocolate covered nuts and espresso beans. Then I turned up the heat.
 
-Behind my back Jen said, “David. Where the fuck is Matty? People don’t just disappear. I mean Matty disappears sometimes but not disappears. He’s just slow to respond to texts. And voice calls.”
+Behind my back Jen said, “David. Where the fuck is Matty? People don’t just disappear. I mean Matty disappears sometimes, but not *disappears* disappears. He’s just slow to respond to texts. And voice mails.”
 
-This was rough. I loved Jen. Like a sister. Since freshman year. That’s when I met her and Matty and we all became friends. Except her and Matty. It was more than just friends. It was fire.
+This was rough. I loved Jen. Like a sister. Since freshman year. That’s when I had met her and Matty, and Monica and Joey and we all had became best friends for life. But Jen and Matty? It was more than just friends. It was *fire*.
 
 Anyhow, time for that last cup of coffee. Got to make it count. The trick was reheating the coffee and dark chocolate covered almonds and espresso beans to the proper temperature before transferring the chocolate infused brew into proper coffee mugs. The ones on my kitchen counter sported Humphrey Bogart and Lauren Bacall images all over them. When the chocolate had fully melted into the coffee, I slowly began stirring the sugary caffeinated concoction with a steel chopstick. Joe began to imitate my life; boil, boil, toil and trouble. I lowered the flame to a faint blue simmer while continuing to stir clockwise. I looked down at Matty’s hastily abandoned sneaker. There was more mold and mildew on it then the last time I had glanced. I looked down at my own feet. They seemed fine. Matty’s shoe looked pretty expensive and not to have seen very much mileage.
 
@@ -126,11 +126,15 @@ It looked like school was in session and it was time to tell the tale.
 
 Then couple of years later I was hiding an ounce from Phoebe under the baseboard heater. And then when I went to retrieve it, I bobbled it and it bounced off my knee and landed under the sink in the mold and well, poof. Bye-bye, Maui Wowie.”
 
-“What the actual fuck does this have to do with you calling me like I’m 9-1-1 to report a missing Matty? And what the fuck is up with his shoe? And this fucking mold and mildew black hole. If you and Matty are fucking with me you’ll both be wearing your nuts for earrings.”
+“What the actual fuck does this have to do with you calling me like I’m 9-1-1 to report a missing Matty? And what the fuck is up with his shoe? And this fucking mold and mildew black hole? Your landlord is supposed to fix this shit. It's a biohazard.
+
+Now, David, I am telling you, if you and Matty are fucking around with me you’ll both be wearing your nuts for earrings. Now. Where. The. Fuck. Is. My. Husband?”
 
 “Okay,” I said taking a slow and deep breath through my nostrils. Archer looked at me. I put out my hand in the stay it’s okay sign. Archer reluctantly plopped down and sighed audibly.
 
-“Matty and I are definitely not fucking with you, Jen. I’m not sure where Matty is right now. Honest to God! Listen, Phoebe’s gonna be here any minute and I need you to know some things. Okay?”
+“Matty and I are definitely not fucking with you, Jen. I’m not, well, I'm just not exactly, erm, specifically," I made a vague Italian gesture with my hand. I tried to solider on, "Erm, I'm not literally, exactly sure where Matty is, well, physically located, right now.
+
+Honest to God! Listen Jen! Phoebe’s gonna be here any minute and there's some things I need you to know! Okay?”
 
 Jen looked at me and wrinkled her nose. “Talk.”
 
@@ -138,29 +142,31 @@ Jen looked at me and wrinkled her nose. “Talk.”
 
 “Well, you’re both my friend so…” Jen said lackadaisically.
 
-“Well, that’s how it is. But ya know. The last couple of years something really changed. It was like I couldn’t do anything right. And Phoebe kept acting like I was the one acting all *sus*. She kept wanting to check my phone. Accusing me of, of being, I guess, well, non-monogamous. And her fucking spending. Once the bills came due for horse psychics and Atlantic City trips, we sat down to talk and she just told me, and I shit you not, ‘I’m a blonde bombshell! Do you understand!?!? A blonde bombshell, David. Bomb. Shell.”
+“Well, that’s how it is. But, ya know. The last couple of years something really changed between us. It was like I couldn’t do anything right. And Phoebe kept acting like I was the one acting all *sus*. She kept wanting to check my phone. Accusing me of, of being, I guess, well, non-monogamous. Asking me if I wanted to open things up.
 
-Jen forgot she was annoyed at me and maybe Matty was eating cheese in some black mouse hole sun.
+She asked me if I wanted to go on a break, Jen! And her fucking spending. Once the bills came due for horse psychics, spa weekends and her Atlantic City junkets, well, I sat her down to talk. So, well, she just told me straight-up, no chaser, and I shit you not, ‘I’m a blonde bombshell! Do you understand me, David!?!? A blonde bombshell, David. Bomb. Shell. Boom. Blonde bombshell.”
 
-Jen said. “Bombshell?!? What is that even supposed to mean?”
+Jen forgot she was annoyed at me and that maybe Matty was eating cheese by himself with only one shoe on in some black mouse hole sun even Rod Serling had never heard of.
 
-“It means I had a rap with my bro, and your hubby, Matty. And he got me his cousin Charlie the lawyer to represent. I figured you were trying to stay neutral like Switzerland but shit. Jen! All our joint accounts got drained. And then all our joint credit cards got max’d and not even remotely relaxed. I heard her on the phone tell Monica she got her butthole bleached. Twice.”
+Jen said. “*Bombshell*?!? What is that even supposed to mean?”
 
-Jen sighed as understanding dawned upon her face.
+“It means I had a rap with my bro, and your hubby, Matty. And he got me his cousin Charlie the lawyer to represent. I figured you were trying to stay neutral, like Switzerland but shit. Jen! All our joint accounts got drained. And then all our joint credit cards got max’d and not even remotely relaxed. I heard Phoebe on the phone telling Monica she got her butthole bleached. Twice.”
 
-Anyway, after Phoebe split she served me with divorce papers the next day. And fucking Choo-choo Charlie kept telling me he had it all under control but I had this feeling he needed to look up control in the dictionary and I didn’t have time to wait. So, I decided to hire a specialist. “
+Jen sighed as understanding dawned upon her face. Imagine how she'd feel by high noon.
 
-“A fucking private eye?”
+"Anyway, after Phoebe split, she served me with divorce papers the very next day. And then fucking Choo-choo Charlie kept telling me he had it all under control but I had this feeling he needed to go look up control in the dictionary but I didn’t have time to wait. So..., I decided to hire a specialist. “
 
-“Mmm, not quite. There’s this curio shop by the French Café. They sell all this occult shit. Books and potions. I saw the dude on line at the French café and asked him about walls that eat shit.”
+“A specialist? You mean a fucking private eye? Like fucking Spenser for Hire?”
 
-“No shit?”
+“Mmm, not quite. There’s this curio shop by the French Café. They sell all this occult shit. Books and potions. Anyway, I saw the proprietor while I was on line at the French café so I asked him about moldy Brooklyn walls that eat shit.”
 
-“Zero shit. And guess what? He had a book about mystically malevolent mold and mildew that can open holes into other dimensions and shit. Dark shitholes, Jen. Hungry shit that wants to eat shit from our dimension like a croc eating a deer. It ain’t pretty, Jen. Crocs eating deer ain’t really me.”
+Jen's eyebrows did that thing. “No shit?”
 
-“Does this specialist have a name?”
+“Abosolute zero shit. And guess what? Dude had a book called, 'Mystically Malevolent Medieval Mold and Mildew'. Dude said the right kinda mold and mildew can open holes into other dimensions and shit. Dark shitholes, Jen. Hungry shitholes with hungrier shit that wants to eat shit from our dimension like a croc eating a deer. It ain’t pretty, Jen. Crocs eating deer ain’t really pretty and it ain't really me, rent stabilization or no rent stabilization.”
 
-“Herman. Anyway, this fucking Herman guy has a cousin who’s a retired NYPD detective and he did Herman a favor.”
+“Does this specialist have a name?” Jen asked. Jen always focused on the stuff on the periphery.
+
+“Yeah. Herman. Anyway, this fucking Herman dude has a cousin who’s a retired NYPD detective and he did Herman a favor after I gave him some loot and showed him the mold situation.”
 
 I took another joint out deciding I’d smoke it before flicking it into wherever the fuck the wild things are.
 
@@ -170,9 +176,11 @@ Jen said, “This is fucking crazy. You had a detective follow Phoebe?”
 
 Jen’s eyebrows went up like those things over the 6 key.
 
-“You’re sure? Phoebe? No fucking way. Not our Phoebe.”
+“You’re sure? Phoebe? No fucking way. Not our Phoebe. She wouldn't even cheat on a break.”
 
-“No doubt. He found receipts. Phone records. Security footage. He followed her around. You get the picture, now?”
+I shook my head.
+
+“There's no doubt about it. He found receipts. Phone records. Security footage. He followed her around. You get the picture, now?”
 
 Jen tilted her chin to catch the last drop of my espresso almond mocha latte.
 
@@ -250,24 +258,30 @@ Jen looked at me. Then she looked at the pictures. Then she looked at Phoebe.
 
 I nodded. I looked at Archer. I put up my hand and said, “Stay! Archer stayyy.”
 
-Phoebe said, “Give me the fucking loot- “but before she could finish, I stepped behind her and held her by both shoulders. I put the sole of my shoe against her ass and then pushed her into the mildew without further ado.
+Phoebe said, “Give me the fucking loot- “but before she could finish, I stepped behind her. I grabbed my soon to be ex-wife by her shoulders.
+
+"*OWWWWW*!" she said, indignant annoyance stretching like boardwalk taffy in July.
+
+I put the sole of my non-mildewed, running shoe against Phoebe's butt. I took in a lot of air through my nostrils.
+
+Then I kicked her ass and the rest of her into the black hole sun mystical mold & mildew without further ado.
 
 “Bitch,” I said.
 
-Phoebe yelled, “You mother- “but I never got the rest of it because she hit the wall and kept going deep into nothingness.
+Phoebe yelled, “You mother- “but I never got the rest of it because she hit the wall in the nastiest and moldiest part and clear kept going deep into the nothingness.
 
-And that’s exactly what I felt when I looked at Jen.
+And nothing is exactly what I felt when I looked at Jen and said, “I really gotta move to a new crib."
 
-“I really gotta move to a new crib,” I said.
+“You really fucking do,” she said. “Like grab the loot, grab Archer, and let’s get the fuck out of here.”
 
-“You really fucking do,” she said. “Like grab the loot, and let’s get the fuck out of here.”
+Sometimes, I did as I was told.
 
-We did. Downstairs on the street Joey and Monica pulled in front of the hydrant in Joey’s new SUV.
+Downstairs on the street Joey and Monica were pulling up in front of the hydrant in Joey’s new SUV.
 
- “Heyyyyyy, guys! Where’s your better-halves?” Monica laughed alone to her own joke.
+ “*Heyyyyyy*, guys! Where’s your better-halves?” Monica laughed alone and too *b*oisterously at her own joke.
 
-Joey said, “Yeah. Hey Jen! Hey David. Where’s Phoeebs and Matty?”
+Joey said, “Hey Jen! Hey Dave! Yeah! Where’s Phoeebs and Matty?”
 
-I looked at Jen. Jen looked at me. Archer looked at everybody.
+I looked at Jen. Jen looked at me. Archer looked at everybody with that golden retriever, should I be worried look.
 
 I didn’t know what to say. So, I said nothing. Somewhere I heard a car stereo playing Don’t Stop Believing by Journey. Kinda makes you question everything, you know?
