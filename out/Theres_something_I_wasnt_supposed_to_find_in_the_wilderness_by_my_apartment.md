@@ -1,0 +1,75 @@
+A few months back, I (M18) moved out of my parents' house into my first apartment. I have a roommate (F18), named Amanda. I'd looked at probably a dozen apartments, and by some miracle, our favorite was the cheapest one. We moved in, and everything was fine, for the most part. Sometimes we'd get in fights, but never anything we weren't over by the next day. Amanda liked to go on long walks when something bothered her, and we'd been arguing about something earlier that day, so when I saw her walk past the apartment on the way back from work it didn't surprise me.
+
+What did surprise me was when she burst through the door barely a few minutes later. I smiled and waved, hoping she wasn't still mad. She gave a friendly reply, and I noticed she was out of breath. "Is everything okay?" I asked. "I figured you were going on a walk."
+
+"I know you're going to think this is stupid, but I heard this *weird* noise."
+
+Expecting it to be something easily explainable, I asked her to elaborate. "Like, panting, almost. Or heavy breathing. But way louder than a human could possibly make."
+
+I thought for a second. "Someone's dog probably got out. Or maybe someone was coughing and it echoed weird."
+
+She didn't look convinced. Eager to be the braver of the two of us, and slightly intrigued, I offered to look around, knowing whatever it was would be long gone by now. She agreed. I put my shoes on and started walking down, but she looked at me with concern. "I figured we'd go in the car"
+
+"It's just down the street right?" I asked. "By the bridge?"
+
+She nodded. "But I am NOT going back there on foot."
+
+So, I strolled down to the bridge, which was maybe a two minute walk. "A bit past here," she called out her car window. Past the bridge, the land turned into patchy forest. She pulled over at the spot she had heard it. There were some electrical boxes, and a fenced-off drainage pit (we get bad flash flooding here). All I could hear was the distant noises of the suburbs, dripping from a pipe in the drainage area, and her engine idling. We sat there for a few minutes, when I heard her phone ringing.
+
+"Sarah needs me to give her a ride from her boyfriend's. It sounds like it's kind of urgent, do you want me to drive you back home first?"
+
+I knew Sarah's boyfriend's place was only a few minutes away, as was her house. If the noise was going to happen again, I didn't want to miss it. "Nah," I said. "Just come back as soon as you can, I'll be sitting here."
+
+There was a barbed wire fence between me and the woods, so I felt pretty safe, especially from some lost dog or whatever. "Alright..." she replied. "I'll just call you right now and if anything happens, yell and I can call 911." It felt like overkill, but just out of caution, I obliged.
+
+Once she drove away, it got a lot quieter. I started to hear another faint noise. It came from below me, somewhere off to the side. A faint rumble. After strolling around a bit, I noticed a padlocked steel slab nestled among the electrical boxes. I laid down and put my ear up to it, and the sound got much clearer. I could hear rushing water too, and faint, reverberant clanking. I noticed wording cut into the pattern on the steel slab: "PUMP STATION 2". That made sense, I guess.
+
+I strolled back over to edge of the road, and sat for a few minutes. Suddenly, I heard exactly what she'd been talking about. An incredibly loud, deep panting. It exhaled maybe three or four breaths, loud enough to drown out the dripping or the distant hum of the suburbs. I couldn't tell exactly, but it sounded like it was just on the other side of the fence, behind a patch of trees. It definitely wasn't a dog, and definitely wasn't a person. "I just heard it," I reported back. I stayed where I was, on high alert. I kept listening intently, but didn't hear anything else out of the ordinary. Finally, after ten or fifteen minutes, I heard Amanda's car pull up behind me again. "So you did hear it!"
+
+She turned off her engine and came over to stand next to me, then handed me a flashlight from her car. I showed her the trapdoor I'd found. "They put a lock on it, they're no fun. Wish my brother was here."
+
+She mostly ignored the steel slab, and looked around warily. "When I heard it, it sounded like it was closer to the bridge. Where did you hear it?"
+
+I pointed out the stand of trees. I still wasn't scared; I was sure it was some animal, I was just curious what it was. Amanda looked at the trapdoor again, as a strange look came over her face. "What if that padlock isn't to keep us out..." she began. "What if it's to keep something in?"
+
+I looked up at her. "RAH!" she shouted, and jumped at me, giggling. I rolled my eyes. I looked back into the brush, and at the barbed wire fence, which had clearly seen better days. I strolled over, and started climbing through it.
+
+"No way you're doing that," she said. "That's dangerous right? And...isn't that trespassing or something?"
+
+I shrugged. I carefully got the rest of my body on the other side of the fence, and looked around. "Sure you don't want to come too?"
+
+She considered it for a second. "I think I'll just stay over here. Moral support."
+
+I laughed, and shone the flashlight around. There were plenty of patches of trees and brush, but it was mostly flat land, with grass that went halfway to my knees. A football field's distance away, a ridge seemed to go to about chest height. I turned the flashlight off, hoping to save my night vision, and cautiously wandered around, watching and listening for anything unusual.
+
+On a whim, I shined the flashlight over at the ridge. I looked carefully, and spotted something that made me jump. Two points of light, perfectly still. After a few seconds, I started to suspect it was just something shiny, since they hadn't moved at all, and I was pretty far away. But then, they dropped in height, and disappeared. I couldn't tell if it had turned around, or if it was charging at me, but the horrible panting noise started again, right from where I'd been staring. It echoed across the grassy field. I sprinted back to Amanda, who looked unsure whether to be terrified or amused. "Did you hear it?" I gasped.
+
+"Fucking of course I did," she shout-whispered. We both leaned on the barbed wire fence, careful to avoid the poky bits, as I caught her up on what had happened. Just then, I saw a car approaching. Strangely, it turned off its headlights as it approached us. She turned around and saw it too. I tried to look natural, as natural as I could given the situation, hoping it would pass us by, but it pulled up in front of Amanda's car. We stood still for multiple minutes, unsure what to do, and hoping it would leave. Amanda was getting visibly scared. "They're watching us," she whispered. Sure enough, I could see the silhouette of someone staring straight in our direction.
+
+After a few more minutes, I decided to do something about it. I took out my phone, and started recording the car. I clambered through the fence and walked closer, all the way up to Amanda's car, and turned the headlights on. Immediately, the car drove off, did a U turn, and sped back to the apartment. I looked at Amanda, not sure what to think. Just as I was about to say something, she put her finger over her lips and waved me down.
+
+She pointed to a spot off in the distance. I didn't see anything, but I kept looking. Finally, I noticed what she was pointing to: a distant pair of points, reflecting the moonlight. It was back. More curious than ever, and confident after having chased the car away, I climbed back through the fence yet again. I snuck back to where I'd seen it from before, and found the flashlight on the ground. I had lost sight of the eyes, but with the flashlight, they were a lot more noticeable. They were beyond the ridge this time, near a large cluster of brush. I watched intently, waiting for the eyes to move. Suddenly, they shot upward. They rose what must have been ten feet in the air, and I heard the panting, louder than it had ever been. This time, it clearly was charging at me: the pinpricks of light bounded up and down, getting brighter. I turned and ran again, genuinely terrified for the first time that night. Once I got to the fence, I spotted Amanda ten feet back, staring at where the thing had been. I spun around, and saw the eyes on the ridge, for a split second before they vanished. It was far too dark to have seen what it was that possessed them, but they were definitely the eyes of some creature.
+
+I wasn't going to give up, though. I wanted photographic evidence. After some time, I climbed back through the fence, phone in hand, recording. I walked further back than I ever had, past the ridge (which wasn't as steep as I figured), and into an area with much shorter, drier grass. I looked around for some time, inspecting the ground for footprints or some identifying sign. Unlike before the ridge, where stands of trees and clumps of brush covered most of the ground, this was a large flat area broken up only occasionally, until it turned back into forest much further away. I kept searching, for what had to have been ten minutes, until I heard Amanda calling my voice. It was barely an echo, but I could sense that there was some urgency in her voice. Disappointed, I trekked back to the fence. Once I got there, she almost pulled me through the fence. "I saw a light out there," she said.
+
+"A light? Like the flashlight?"
+
+"No, the flashlight is white. Like, blueish white. This was like an old lightbulb. It was really far off, but it was definitely there. Someone else was out there."
+
+I found it hard to believe. I'd been looking at the edge of the woods fairly often, and I felt like I would've noticed another source of light. But as confident as she was, I didn't doubt her.
+
+When we got back home, it was three in the morning. We stayed up for probably another hour in Amanda's room, reliving the experience over a video call with Sarah and another of our friends. We were googling for anything it could possibly have been, but we barely had any information to work off of. Our best guess was a buck or a coyote, or maybe even a wild hog, if some trick of the geography had made it seem taller than it was.
+
+Finally, we all said our goodnights, and Amanda went to sleep. But as soon as she closed her door, I grabbed my phone, a portable charger, and the flashlight. This wasn't over. I rooted through a drawer, and found just what I was looking for: lockpicks. My older brother was a locksmith, and had gifted me them hoping to get me into the profession too. I had to admit, it was fun, but I sucked at it. The lock on the steel door was just a shitty $10 padlock though, the cheap model I'd picked open dozens of times for practice.
+
+I drove back down past the bridge, slightly more nervous to be there alone. I looked around carefully, for anyone who might see me, and ducked behind one of the dark green boxes. I pulled my picks out, and inspected the lock. It was a bit rusty, which would make it harder, but I got to work, and soon I had it open. I could feel butterflies in my stomach as I pulled it off the latch, and lifted the trapdoor open. It was heavy, and it took all my strength to not let it slam down on the concrete pad it was mounted in. I gazed down, into a deep manhole with a steel ladder.
+
+I could hear the roaring of the pump much more distinctively. I gripped the flashlight in my mouth and descended the ladder, gripping it with white knuckles, worried my hands would slip off the metal, slick with condensation. Worse still, some of the rungs were bent inward, as if some heavy mass had been hung from them. After a minute or so of trying not to look down, feeling the rumbling get louder, I felt the heel of my shoe hit solid concrete. I looked down, and saw that I'd made it. The sky above me was a small square, like a postage stamp, and I could tell that without the flashlight I'd be as good as blind. I turned, and shone the light around.
+
+I gasped. It was a large room, or at least a lot bigger than I expected this deep down: probably about as big as my apartment. The room was filled with metal posts, with gray panels attached. Some had levers on the sides, others were open, with parts clearly ripped out. The noise seemed to be coming from the back of the room, and I noticed a large chunk of the room was occupied by what looked like part of a massive cylinder, lying on its side. That must have been the pump. I could feel the whole bunker rumbling. I stepped forward a bit, and noticed the ladder wasn't the only entrance on that wall. A foreboding, pitch black doorway stood off to the side of it. Resisting my urge to stay back, I beamed the light in, and walked through. This room had tile over some of the concrete. There was a toilet to my left against the back wall, covered in rust stains. A shower head stuck out of the wall on the same side. To my right, There was a cot, with a first aid kit lying open on top of it. A pile of boxes and books sat at the foot of it. I couldn't imagine someone living down here. I looked down, and noticed a pile of towels, stained dark, reddish brown.
+
+I left, and walked back toward the pump. As I peered around it, I jumped in shock, and dropped the flashlight. For a brief moment the beam of light spun around the room, and with a clatter it landed, casting a circle of light onto the wall. I caught my breath. I'd unknowingly stared right into the face of a human skeleton. Feeling more than a little sick, I picked up the flashlight, and illuminated the skeleton from the feet up. It was sitting, ragdolled in the corner between the bunker wall and the side of the pump. An access panel was open beside it. I slowly shone the light to the side, away from the pump, and saw something that had been blocked from my view up until then: a grid of thick cast iron bars, enclosing a room inset into the wall. I could see it continued pretty far back into the wall. It looked like there had been an attempt to make it into some sort of terrarium; there were dead trees leaning against the walls, and the floor was about three inches lower than that of the bunker, with dirt and dead plants filling the space. I saw massive fluorescent tubes on the ceiling, protected by more cast iron bars. What filled me with horror, though, was that the bars on the front of the cell had failed. They were warped outward, and a hole, maybe six feet across, had been formed.
+
+Just then, I heard a massive "clang". It reverberated through the bunker, audible even against the ground-shaking thrum of the motor just feet behind me. Someone, or something, had shut the door.
+
+This post is getting pretty long, and this is bringing back some dread I'd rather not feel again all at once, so...I think I'll call it quits for now. I'll come back soon and give y'all the rest of the story, if I'm feeling up to it. But yeah, that car and the strange rumbling really should have tipped me off.
