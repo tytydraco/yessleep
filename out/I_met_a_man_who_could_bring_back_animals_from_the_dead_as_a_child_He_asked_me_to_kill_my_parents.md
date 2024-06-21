@@ -134,7 +134,7 @@ I awoke in the darkness, feeling something cold and sticky on my forehead. I rai
 
 For a long moment, I lay there without thoughts, wondering how I had gotten here on this dark forest trail. Then my memories came rushing back. I inhaled sharply as I remembered Mr. Hands. 
 
-I quickly pushed myself up, my head swimming. A splitting migraine worked its way down my skull, but I stumbled forward, pushing myself towards downtown Brent and I lived. Janice lived in the same trailer park, only a few rows down, so I hoped I would be able to stop both of them before something horrible happened. I didn’t know exactly what Mr. Hands had planned, but I didn’t trust that sharp smile or those gleaming eyes.
+I quickly pushed myself up, my head swimming. A splitting migraine worked its way down my skull, but I stumbled forward, pushing myself towards downtown where Brent and I lived. Janice lived in the same trailer park, only a few rows down, so I hoped I would be able to stop both of them before something horrible happened. I didn’t know exactly what Mr. Hands had planned, but I didn’t trust that sharp smile or those gleaming eyes.
 
 I saw the lights in the distance, and with the last of my strength, pushed myself in a blind sprint towards my home.
 

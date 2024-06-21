@@ -156,4 +156,4 @@ I pulled on the headgear and it didn’t budge. It was part of me. I looked at m
 
 This was six months ago, and to be fair… I love Eve. I can’t imagine going back to how things were. All my actions are optimized, I feel like I learn way more at school, and all interactions with my friends and family are positive. I have helped my friends undergo the same procedure I had… if they refused, so long as I knew where they were, Eve knew, and one by one they underwent the procedure.
 
-This summer, I picked up more shifts Burger Bliss.
+This summer, I picked up more shifts at Burger Bliss.
