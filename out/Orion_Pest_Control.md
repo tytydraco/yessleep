@@ -184,7 +184,7 @@ Before we left, I had Reyna help me line all of the house's entryways with salt.
 
 So... do you think our client was grateful? Take a guess. For whatever reason, the idiot thought we'd clean his house for him after we got rid of the Housekeeper. He and Victor got into it over the phone and the client threatened to sue for... something. Fucker. Shoulda just let the Housekeeper destroy the place. 
 
-I chose these two cases for a few reasons, this first being that I want everyone to be aware of the deer parasites. Please, be careful out there. The second reason is that Orion operates in only in a few counties in Pennsylvania and Ohio. While we can't help everyone, we can at least arm you all with information so that yinz don't get in a bad situation with an unidentified animal. 
+I chose these two cases for a few reasons, this first being that I want everyone to be aware of the deer parasites. Please, be careful out there. The second reason is that Orion operates in only a few counties in Pennsylvania and Ohio. While we can't help everyone, we can at least arm you all with information so that yinz don't get in a bad situation with an unidentified animal. 
 
 Just remember, when in doubt, salt. And if you awaken to find that your house is now suddenly spotless, be gracious. Do better than the idiot mentioned above. 
 

@@ -6,7 +6,7 @@ I had awoken this morning to day number three of the brand new, non-caffeinated 
 
 “You sound like the chick in The Incredible Hulk,” I said.
 
-“I’m just got off the F train,” Jen said ignoring my Marvel reference. “I’m coming right over and I’m bringing coffee, David. And chocolate. I just got another fucking 40% off up to $15 promotion. Fucking AI! You hear me, AI? Just fuck off and fuck you. By the way, tell Matty I said he should try answering his wife’s fucking messages for a change.”
+“I just got off the F train,” Jen said ignoring my Marvel reference. “I’m coming right over and I’m bringing coffee, David. And chocolate. I just got another fucking 40% off up to $15 promotion. Fucking AI! You hear me, AI? Just fuck off and fuck you. By the way, tell Matty I said he should try answering his wife’s fucking messages for a change.”
 
 Fifteen minutes later, my golden retriever, Archer, was whimpering his hello into Jen’s crotch like it was thundering outside or something. It was actually a sunny day without a cloud in the sky but it was grayer then the first scene of The Wizard of Oz in my heart. Jen told Archer what a good boy he was. Enabler.
 

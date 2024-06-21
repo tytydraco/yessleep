@@ -1,0 +1,23 @@
+I am safe at my mom’s house now. I usually live alone with my dad. 
+
+I’ll start off by saying I didn’t have a good childhood, I didn’t know it at the time but both my parents put me through psychological/emotional abuse. 
+
+These are weird core memories from my childhood. Being molested by my dad. Seeing a hallway through a crack in my parent’s closet. 
+
+My dad is a very weird man, multiple people have said they feel uncomfortable around him. Though he is very charming. He has lots of friends, people who love him and think he’s a nice funny guy. Some people think he is gay bc he acts “fruity” but I believe it’s some kind of act and he’s just weird. I don’t think he is gay. He has been single for 19+ years. 
+
+I can’t remember the first thing I noticed to make me believe my dad is a serial killer. One time I came home and no one else was there, I heard a person screaming (I believe it was woman) “LET ME OUT! LET ME OUT” as they were banging. It sounded distant but I knew it was coming from somewhere near my house or in my backyard. Instead of investigating I drove away as quick as possible. I called my therapist and she had me admitted to the psych ward for psychosis. No one sent police over there to check. I have struggled with mental health issues but I believe it’s from trauma and not bc I have schizophrenia. I have never suffered from visual or auditory hallucinations, only delusions and paranoia. 
+
+I was going through a rough time and so was my older brother who was staying with my dad at the time. He has been dead since 2020, he was a drug addict. When my brother and I were alone living with my dead we would hear things. Woman screaming but we wouldn’t really react probably bc we both thought we were crazy and it was scary. We would hear loud bangs coming from the attic. 
+
+These are the small details I noticed that I can remember. Finding a dark brown sticky like stain under my dad’s desk that I believed was splattered blood. He said it was a spilled drink. He still did not clean it. I did. It was on a wooden desk but I believe it came off with a baby wipe and a little bit of rubbing alcohol. I also found this after I came back from the psych ward. One time in his car I noticed a cupcake wrapper in the side pocket of the passenger seat. It wasn’t from me. It wasn’t from my siblings they hate cupcakes. Who ate it? He said he didn’t know that’s all he could say. There have been times where I felt drugged after drinking something I left out or that he gave me. I felt high. My heart would start racing and palpitating. My eyes look blood shot red out of no where. I hear him talking to himself constantly when he’s just doing simple tasks or shaving (he is completely bald). I can never make out what he’s saying but it creeps me out. One time I swear I heard him record himself say “it’s been awhile since the last cutting.” I heard him watching videos of woman screaming in his room. Every time I wake him up (even accidentally) he is startled and yells, almost every freaking time. There have been times I thought he was going to kill me just bc of the way he looks at me when I’m alone with him so I called 911 and admitted myself into a psych ward for safety. 
+
+Most recently I believe I have found evidence in his car. Signs of a struggle. You can see the pictures on my profile. 
+
+The other night he went out by himself. His location is always on, he was in the middle of the river and then on an island between the river. We don’t have a boat. He didn’t take his kayak. He didn’t say who he was with. He took one can of alcoholic drink with him. He said he went out boating when I asked. 
+
+I try to look up missing people or dead people found in my area but I can’t find anything which makes me believe I could be wrong. Yet I still believe he was responsible for my brother’s death even tho he died of an overdose. It was the wrong drug. 
+
+Lastly I have nightmares about my dad almost every night. Nightmares of him killing me. I have intrusive thoughts, telling me I need to get away from him. 
+
+I have tried to tell authorities but they won’t listen they don’t believe me. If I try too hard they will lock me in a psych ward and inject me with meds. They refuse to investigate, they believe my dad bc he is a successful, smart and charming guy. I feel trapped, I feel like I can’t trust anyone. I have been abused by my family and in the psych ward. I don’t think he will ever be caught even if it’s all true. 
