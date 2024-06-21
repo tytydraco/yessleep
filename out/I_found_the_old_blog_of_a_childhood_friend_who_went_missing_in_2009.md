@@ -156,6 +156,12 @@ I gave this evidence to the police, and they’ve reopened the case. The town is
 
 One who looked, to my eyes, like an older version of Jim Harlow.
 
-That could be paranoia, but I’m not so sure. The more I think about my old childhood friend, the more I remember the oddities I overlooked for years, and the more ferocious the terror in my body becomes. I keep imagining awful scenarios. Him turning up at my door. Returning to silence me. And, given the man’s creativity, he would certainly fabricate another wonderful tale about how I’d met my end.
+That could’ve be paranoia, but something terrifying confirmed it this evening. Something that prompted me to make this post.
+
+A handwritten note through my letterbox.
+
+*It isn’t kind to fib, Gareth. Shall I write your story, dear friend? Pen your closing chapter in a way that nobody will doubt?*
+
+The more I think about my old childhood friend, the more I remember the oddities I overlooked for years, amplifying the quakes in my chest. I keep imagining awful scenarios. Jim slinking into my home, returning to silence me. And, given the man’s creativity, I am haunted by the prospect of him fabricating a wonderful tale about my untimely end.
 
 One that would serve his [legacy](https://www.reddit.com/r/dominiceagle).
