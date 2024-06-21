@@ -63,5 +63,3 @@ I walked upstairs to see the butcher with a few bullet wounds in his chest, lyin
 I then noticed that Edgar’s left arm was missing. It must have been cut off, because it was bleeding, dripping blood on the floor. The cops tried to stop the bleeding by wrapping bandages around it. I heard an ambulance in the distance, and we were taken in to be questioned and treated.
 
 Edgar, Laura and I are now good friends. We occasionally hang out and play games together. We’re all traumatized from the whole experience, but we’re doing well now. I still don’t know how I got in that house to begin with, but I don’t care. I’m just grateful to be alive.
-
-But there is one thing I didn’t realize until a while after we were rescued. That meaty substance we ate from those bowls… was most likely human flesh.
