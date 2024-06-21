@@ -44,7 +44,7 @@ Matty had frowned.
 
 Matty frowned. He did that when he didn’t get his way.
 
-“I got a plan, Matty,” I said with a smile that came to my face but was sad one just the same.
+“I got a plan, Matty,” I said with a smile that came to my face but was a sad one just the same.
 
 Matty: “Oh, shit. My blood brother,” Matty exclaimed lighting up like a pinball machine. “My man got a secret cash stash, amirite? You flexin’, hoss? Gimme the loot, gimme the loot!”
 

@@ -15,7 +15,7 @@ I felt my smile twist into visible confusion as I looked at my memaw. "What is t
 
 "It has to be some sort of prank." I said as I stuffed the now tainted-feeling card back in the envelope and handed it her. 
 
-"That's what I thought too, until I saw the letter your dad received." 
+"That's what I thought too, until I saw the letter your dad received." She said as she slid the card back into her purse.
 
 My dad had apparently received a letter from Dogmeat about a week prior to my memaw receiving this card. He kept it but told no one until my memaw had showed him this strange card earlier.
 
@@ -70,6 +70,10 @@ Dogmeat"
 My blood ran ice cold. Could it be a coincidence that my mailbox is red and is placed by the road? 
 
 It's been hours since I opened that blasted letter. I cannot sleep. What does it mean that "the meat is rotting and it's time to process"? 
+
+Honestly, what does any of it mean? None of the letters make any sense! However, they all also seem connected. Like some psycho is giving each of us jagged pieces of their messed up puzzle. 
+
+The only common theme of this that I have noted this far is each of us that have received a letter have the same last name (as I have opted to keep my maiden name). 
 
 I have told no one about this letter. Not even my husband. I'm sure I will eventually but I feel like talking about it somehow makes this situation more dangerous. I don't know how to explain it, but I feel Dogmeat is a real threat. 
 
