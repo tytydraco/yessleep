@@ -116,3 +116,5 @@ The job had its ups and downs after that, hell I even found a doozy of a secret 
 By the way, I named him Lucky.
 
 I know I went on for a while, I had more to reminisce about with that first job than I expected without even going into the hunting process. But Lucky has been and always will be my first and best find. When I have a chance and see if anyone's interested in my job, I'd be happy to share more.
+
+Part 2: https://www.reddit.com/r/nosleep/comments/1dksxmr/the_death_collector_part_2/

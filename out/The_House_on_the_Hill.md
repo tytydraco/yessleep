@@ -1,29 +1,89 @@
-I never should have bought the house on the hill. It was beautiful, with its grand old architecture and sprawling gardens, but it came with a price. As soon as we moved in, strange things started happening. Doors would open and close on their own, footsteps would echo through the halls when no one was there, and objects would move around on their own. At first, I thought it was just my imagination playing tricks on me, but my girlfriend claimed to have experienced the same strange occurrences.
+Everyone has probably had a scary childhood experience. It can be anything, whether it slightly freaks you out, or scars you for life. But what about something so horrifying, so bizarre, so unbelievable that you’re not even sure it actually happened at all?
 
-We tried to ignore it, but the occurrences became more and more frequent and unsettling. One night, I woke up to find my girlfriend gone. I searched the entire house, calling her name and checking every room, but she was nowhere to be found. I was about to call the police when I heard a faint voice calling for me from the attic.
+My name is Chris, and this is something that happened 3 years ago on Halloween when I was 11 years old. I’m 14 right now, so forgive me if this isn’t very well written.
 
-I rushed up the stairs, my heart racing. When I opened the door, I saw my girlfriend huddled in the corner, her eyes wide with fear. She pointed to the corner of the room, where a shadowy figure was hovering above us. I tried to grab her and run, but the figure seemed to be blocking our way. It reached out towards us with long, bony fingers, and I knew we had to escape or be trapped in the house forever.
+Me and my two neighborhood friends, Dylan and Fred, gathered together at my house, planning to go trick-or-treating together. They were both the same age as me, and we always got along pretty well.
 
-We managed to push past the figure and make it out of the house, but we never went back. I sold the house as soon as I could, not wanting to risk encountering whatever was lurking inside.
+On Halloween night, we got our costumes and candy buckets, really excited to set out. I was wearing a medieval knight-looking costume, Dylan’s costume was a skeleton, and Fred’s costume was, weirdly enough, an inflatable cow.
 
-Looking back, I realize that the house must have been possessed by some malevolent spirit. I have no doubt that it was responsible for the strange occurrences and my girlfriend's disappearance. I still have nightmares about that house and the shadowy figure, and I can't shake the feeling that it's still out there, waiting for its next victim. 
+We all met up and my front yard and started chatting. Dylan had a flashlight and was gonna light the way for us.
 
-Five years later, I decided to go back to the house on the hill. I don't know what possessed me to do it - maybe it was a sense of closure, or maybe it was just a morbid curiosity. Whatever it was, I knew I had to see the house one more time.
+Dylan: “Bffft! Fred, what the hell is that costume?”
 
-As I walked up the long, winding driveway, memories flooded back to me. The creaking floorboards, the flickering lights, the shadowy figure. I tried to push the thoughts out of my head and focus on the present.
+Fred: “A cow. Got a problem with that?”
 
-The house looked exactly the same as it did when I left it. The paint was chipped and peeling, and the gardens were overgrown, but it was still as beautiful as ever. I hesitated at the front door, wondering if I was making a mistake. But before I could turn back, the door swung open on its own.
+Chris: “Nah, it’s great! Just a bit goofy.”
 
-I stepped inside, my heart racing. The house was eerily quiet, and I could feel a sense of malevolence lurking in the air. I called out, but there was no answer. I started to explore the house, trying to shake off the feeling that I was being watched.
+Most of what happened that night isn’t noteworthy. We stopped by houses and gathered as much candy as possible. Really nothing that interesting. The important thing is what happened right before we were about to be done.
 
-As I made my way through the rooms, I noticed that some things had changed. Furniture had been moved, and there were strange symbols etched into the walls. I couldn't shake the feeling that something was off.
+Chris: “We got every house in the neighborhood! And look how much candy we have!”
 
-Just as I was about to leave, I heard a faint voice calling my name. It sounded like my girlfriend, but I knew that was impossible. I followed the voice to the attic, where I saw a shadowy figure hovering in the corner. It reached out towards me with bony fingers, and I knew it was the same figure that had tried to trap us in the house all those years ago.
+Dylan: “Hell, yeah!”
 
-I turned and ran, not stopping until I was out of the house and back on the safety of the road. I vowed never to go back to the house on the hill again, and I've kept that promise to this day. The memories of that terrifying experience will stay with me forever.
+Dylan swore a lot, because it made him feel like a badass. We all started walking back to my house to hang out and eat some candy, until we noticed a house in the distance that we haven’t visited yet.
 
-To this day, the house on the hill still follows me, no matter what I do. I have tried to move on, to put that terrifying experience behind me, but I can't shake the feeling that something is still out there, waiting for me.
+Dylan: “Ooh, another one! C’mon!”
 
-I have relocated to a new city, changed my name, and even tried to get a new job, but no matter what I do, I can't escape the shadow of that house. I see it in my dreams, hear it in the whispers of the wind, and feel it in the chill of the night.
+Fred: “That house looks so creepy…”
 
-I know it's just my imagination, but the memories of that haunted house are always with me. I can't shake the feeling that it's still out there, waiting for me to return. The thought fills me with fear and dread, and I don't know if I'll ever be able to truly escape the house on the hill.
+C: “Y’know, I always forget that house even exists. It’s, like, slightly outside the neighborhood. It might be private property or something.”
+
+The house was on top of a tall hill.
+
+Chris: “Well, that’s weird. Anyways, let’s go.”
+
+I continued walking, clearly not interested. Dylan immediately grabbed my shoulder and pulled me back.
+
+Dylan: “Hey, you’re not going anywhere! Let’s go check it out!”
+
+Dylan was the daredevil of the group, always doing things that seemed dangerous, either to impress us, or because he just wanted to be the leader. Fred was like his minion, always doing what he said without questioning anything. I actually thought for myself, though. I often questioned Dylan’s logic, but we usually just did whatever he said.
+
+Chris: “But I’m so tired of all the walking, and it looks so damn creepy!”
+
+Dylan: “But we might hit the jackpot! It could be one of those houses that gives out king sized chocolate bars!”
+
+Fred: “Hmm… fair enough. Let’s do it.”
+
+Chris: “I don-“
+
+Dylan and Fred were already making their way to the house before I could finish.
+
+Before long, we made it to the top of the hill and stood there in front of the house. It looked very old, and it was made entirely of wood. We all stepped onto the porch and said “Trick-or-treat!” in unison. Then we waited.
+
+About a minute passed and there was still no answer. Normally, anyone in this situation would just go back home and forget about it. That’s what I was thinking, at least. But we were with Dylan, so that wasn’t an option. He turned the knob and opened the door, about to enter.
+
+Chris: “Dylan, what the hell are you doing? If they don’t answer, then there’s probably nobody home. You can’t just waltz in like that, ya moron!”
+
+Fred: “But look! There’s a lamp on right there!”
+
+Chris: “That doesn’t me-“
+
+They were both already inside, signaling for me to follow them. I let out a frustrated sigh and entered the house with them. I didn’t want to, I just felt like I had to. I was really worried, but they looked excited like this was gonna be awesome. There was a staircase, and no others rooms. Dylan aimed his flashlight down the staircase and just walked down without a care in the world, Fred following behind him. I stayed slightly backed farther away from them.
+
+It was real dark down there, and it smelled awful. When we made it to the bottom, the smell was even stronger. I pitched my nose shut and noticed Dylan and Fred did the same. On the floor was a pentagram.
+
+We were all a bit freaked out by that. Dylan then turned his flashlight to the left of him, revealing the source of the smell. We all gasped.
+
+It was a corpse, covered in blood. Wearing a red robe and a black beaked plague doctor-like mask. Its chest was ripped open with the ribs protruding out, and one of its legs was bent the wrong way.
+
+Things just went from 0 to 100 instantly. I started hyperventilating and Fred took a step back towards the stairs.
+
+Chris: “Holy shit…”
+
+I usually didn’t swear, but I was just so shocked at that moment.
+
+Dylan started breathing heavily. “W-We gotta get the fuck out of here! RUN!” He turned his flashlight a bit more, revealing more bloody corpses, with the same red robes. I then heard a noise that almost made my heart stop.
+
+Chewing.
+
+I froze completely. That was the most scared I had ever been. I felt a tear roll down my cheek as Dylan and I staring booking it up the stairs. I heard footsteps following behind us as we ran. Right as we made it to the top, I looked behind me.
+
+A humanoid figure crawling on all fours, with the head of a dear, and razor sharp teeth. Its mouth was covered in blood, and its antlers scraped against the walls as it chased us.
+
+I screamed in horror as we ran for the door. The creature let out an ear piercing screech as it leaped towards us, and we slammed the door shut. I heard a loud THUD as it crashed into the door and we ran as fast as we could back to my house. I was so scared that I didn’t care how tired my legs were.
+
+Thankfully, we all made it out alive. We told our parents, and they called the police. That’s all I remember from that night. The next day, I saw the house surrounded by police cars. Soon after that, we moved to another neighbhood.
+
+Although I didn’t get a good look at it, the image of that deer-headed monster still haunts my mind. I still have trouble believing it was even real. What if it was all just a dream? I don’t know, but I’ve never been trick-or-treating since that night.
+
+(This is my first story on r/NoSleep. I am aware that it’s not very good, I was just inspired to write it because of CreepCast. Feedback is appreciated. Thanks for reading!)

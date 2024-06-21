@@ -406,7 +406,7 @@ The mechanic's scathing gaze met mine as I remained weakly on the ground, willin
 
 He glanced back at the Weeper, “Two days.”
 
-They negotiated back and forth, the Weeper trying to buy me more time while he impatiently refused it. It took the last bit of strength within me to keep from pitching forward and expiring right there in the dirt.  
+They negotiated, the Weeper trying to buy me more time while he impatiently refused it. It took the last bit of strength within me to keep from pitching forward and expiring right there in the dirt.  
 
 After a bit of back-and-forth, the Weeper eventually got him to settle for four days.
 He gave me one last vicious look before he disappeared into the trees. 
