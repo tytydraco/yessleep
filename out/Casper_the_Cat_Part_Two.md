@@ -1,5 +1,8 @@
 [Part One](https://www.reddit.com/r/nosleep/comments/1dhkkaq/casper_the_cat/)
 
+
+
+
 The pedophile’s corpse was as heavy as a tombstone. I panted hard. Wiping sweat from my brow. Casper stretched out lazily on the carpet. I was so annoyed with him. “A little help?” I gasped as I heaved the body over to him. Casper lazily cleaned his huge paw with his long tongue. Casper’s unholy, golden eyes stared at me hard. I gulped. Those predator eyes were intense. Filled with danger. “You must earn your treats. Bring him closer.” That voice, so charged with authority and yet so soft. The voice Casper forced into my mind was always unpleasant. It was like someone coming into your home without wiping their feet. Or who refused to use coasters. Not a major transgression. It just felt rude. It felt unnatural. It’s sharp sibilance often sounded like the feedback from a microphone. However, being able to communicate with my pet was a dream I’d had since I was a little girl. I scoffed angrily, “Sure thing, your majesty”. I grabbed the arms of the dead man hard. I grunted as I heaved him closer. I had killed the man myself. Of course, it hadn’t been planned that way.   
 
 
@@ -124,7 +127,7 @@ Immediately, his head swiveled around and he looked right at me. His eyes were c
 &#x200B;
 
   
-My vision swam. “Casper!” I thought this time. Shouting it in my mind. I felt him. I could sense him nearby. He was there, hidden amongst the trees and bushes. Then I heard his words in my head, “Sorry. You must fend for yourself sometime. Can’t save you every time. No fun that way. You’ll never learn.” I felt a coldness wash over me. In a heartbeat, an icy mixture of terror and fury filled me to the brim. “What? How coul-?” before I could yell anything else Jeremiah launched me through his open front door into his hallway. I spat a string of curses as I landed hard on the ground. Jeremiah reached forward and grabbed my hair. He dragged me across the floor into his office. With a yell of frustration, I managed to twist free from his grasp. I heard a large chunk of my hair rip from my sculp as I stood, leaning on the desk for support.   
+My vision swam. “Casper!” I thought this time. Shouting it in my mind. I felt him. I could sense him nearby. He was there, hidden amongst the trees and bushes. Then I heard his words in my head, “You must fend for yourself sometime. Can’t save you every time. No fun that way. You’ll never learn.” I felt a coldness wash over me. In a heartbeat, an icy mixture of terror and fury filled me to the brim. “What? How coul-?” before I could yell anything else Jeremiah launched me through his open front door into his hallway. I spat a string of curses as I landed hard on the ground. Jeremiah reached forward and grabbed my hair. He dragged me across the floor into his office. With a yell of frustration, I managed to twist free from his grasp. I heard a large chunk of my hair rip from my sculp as I stood, leaning on the desk for support.   
 
 
 &#x200B;

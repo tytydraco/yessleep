@@ -223,4 +223,4 @@ Casper was no cat of course. He reminded me more of a mythical creature like a s
 
 “There. That one” I hear those foreign feline thoughts invade my mind. The sibilance like nails on a chalk board. My cursor hovers over the photo of a rather normal looking man with a buzz cut and dark brown eyes. “Mario Davenport”, I say aloud, reading his file. After a minute I close the publicly available database of child sex offenders, “Looks like we will be paying you a visit soon”.
 
-[(Part Two)](https://new.reddit.com/r/nosleep/comments/1dljk8j/casper_the_cat_part_two/)
+[(Part Two)](https://www.reddit.com/r/nosleep/comments/1dljk8j/casper_the_cat_part_two/)
