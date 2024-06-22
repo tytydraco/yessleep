@@ -36,7 +36,7 @@ I remember wondering why God would let something like that happen to someone as 
 
 The decline was rapid. It was like a voracious evil was paying him back for all the good he did.
 
-Last week, we had to remove him from his home. He could no longer live on his own.
+Almost two months ago, we had to remove him from his home. He could no longer live on his own.
 
 His house, once immaculate, was a reflection of what his mind had been reduced to.
 

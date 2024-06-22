@@ -64,7 +64,7 @@ One night, I woke to find blood dripping from the ceiling, pooling on the floor 
 
 The worst was the sleep paralysis. I’d wake up unable to move, my body locked in place by an invisible force. My eyes would dart around the room, searching for the source of my terror. And then I'd see him—Satan, or something that looked like him. He was a towering figure wreathed in flames, his eyes burning with a hellish light. He’d lean over my bed, his breath hot and sulfurous against my face, whispering blasphemies and promises of power. The flames would lick at the edges of my vision, and I'd feel an intense heat searing my skin. When I finally managed to break free from the paralysis, the room would be ice-cold, and the shadows would seem to dance with malevolent intent.
 
-During one of my research sessions, I stumbled upon an old Latin text that caught my attention. It was obscure and filled with cryptic passages, but one line stood out: *"Liberatus invitatio portis clausis apertis vinculis solutus erit."* Roughly translated, it meant, "He who invites will be freed, the gates will close, and the bonds will be broken."
+During one of my research sessions, I stumbled upon an old Latin text that caught my attention. It was obscure and filled with cryptic passages, but one line stood out: *"Liberatus invitatio portis clausis apertis vinculis solutus erit."* Roughly translated, it meant, "He who invites will be freed, the gates will close, and the bonds will be broken."
 
 A glimmer of hope sparked within me. Was this the key to escaping the Grove's grasp? If I could bring someone else into their fold, would they let me go? The very thought repulsed me, but the desire for freedom gnawed at my soul. Desperation drove me to consider the unthinkable.
 
