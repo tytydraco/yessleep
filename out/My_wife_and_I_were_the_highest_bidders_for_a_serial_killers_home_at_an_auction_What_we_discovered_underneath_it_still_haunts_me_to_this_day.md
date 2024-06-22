@@ -168,16 +168,16 @@ But unlike the myth, neither my wife and I, or the cops, were ever able to save 
 
 So, in keeping with the tradition of not startling the townspeople, the police kept the arrests, and what had happened under Milton Aster's house, under wraps, leaving the cold cases as just that.
 
-And while I didn't agree with that decision, I accepted that I was retired, and it wasn't my decision to make. And basked in the closure that had come from finally knowing Milton Aster was the serial killer behind the disappearances.
+And while I didn't agree with that decision, I accepted that I was retired, and it wasn't my decision to make. All I could do was feel a sense of relief that I was right about Milton Aster being the serial killer behind the disappearances, and knowing that he wasn't out there anymore.
 
 When the cops finally left us, to what was now a home with little purpose, my wife simply asked me.
 
 "We don't have to keep living here do we?"
 
-To which I replied, "Oh fuck no."
+To which I replied, "Definitely not."
 
 In no time, we had bought a new home and had sold Milton Aster's house.
 
-And now, whenever I sit on the deck behind my house, looking out at my backyard, I wonder if the poor suckers that bought the last house… 
+And now, whenever I sit on the deck behind my house, looking out at my backyard, I wonder if the people that bought the last house… 
 
 …Will ever discover the "Minotaur's Labyrinth" in its backyard.

@@ -184,4 +184,4 @@ That's when, as the giant dropped what was left of the sickly man's body to the 
 
 "Run!" I called out to Ada, as I pointed to the left passage.
 
-My wife took off into the darkness, as I caught one last glance at the monster, and its weapon, and followed Ada, deeper into the labyrinth.
+My wife took off into the darkness, as I caught one last glance at the monster, and its weapon, and followed Ada, [deeper into the labyrinth.](https://www.reddit.com/r/nosleep/s/3CxsKrPggs)
