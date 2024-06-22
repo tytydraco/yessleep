@@ -189,3 +189,5 @@ I finally knew what James looked like.
 I stared at the photo for a long time, until Professor Monotone asked me if everything was okay.  I burst into tears at the question and I sobbed so hard that I couldn’t even answer.  The professor just waited patiently, mutely handing me the box of tissues, and when I finally calmed down I only shook my head, handed him the photo, and told him I couldn’t talk about it right now.  That I needed some time.
 
 Because the face that stared at me from the photo, smiling with his arms around his classmate’s shoulders, [was](https://alderrayne.com/) [Grayson.](https://www.reddit.com/r/goatvalleycampgrounds/)
+
+[Next post](https://www.reddit.com/r/nosleep/comments/1dli0x0/how_to_survive_college_im_sort_of_glad_we_got/)
