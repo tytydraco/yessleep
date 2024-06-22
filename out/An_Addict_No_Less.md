@@ -1,6 +1,6 @@
 Two years ago, Jared ate his own pinky finger. Things went downhill from there.
 
-I had known Jared since middle school. He was gifted in many ways - a smart, athletic and helpful guy with a good head on his shoulders. We spent a lot of time together as teenagers, as we were both on the high school football team. He became a radiographer after graduation, doing advanced medical imaging such as x-rays and MRI scans in hospitals, before he got bored and quit out of the blue. Then he taught himself computer science and got a software engineering job.
+I had known Jared since middle school. We spent a lot of time together as teenagers, as we were both on the high school football team. He had a good head on his shoulders, and became a radiographer after graduation, doing advanced medical imaging such as x-rays and MRI scans in hospitals. Then he quit out of the blue, and got a software engineering job.
 
 We moved to different states for work after graduating. Jared and I spoke over the phone most weekends, but then his job became busier, so we lost touch for a while.
 
@@ -146,7 +146,7 @@ When the authorities cleared out his empty house, they discovered the scarce rem
 
 The entire time, he was calling me every weekend, pretending everything was fine and that he was getting better.
 
-When he had knawed off the last chunk of decaying flesh between two of the ribs, there was nothing left to keep his ravenous appetite at bay. Then he lost control, and attacked the girl. He obviously deteriorated rapidly after that incident. I had met Jared's dad a couple of times in high school, and he was the nicest guy. Can't imagine it was easy for Jared to do what he did.
+When he had gnawed off the last chunk of decaying flesh between two of the ribs, there was nothing left to keep his ravenous appetite at bay. Then he lost control, and attacked the girl. He obviously deteriorated rapidly after that incident. I had met Jared's dad a couple of times in high school, and he was the nicest guy. Can't imagine it was easy for Jared to do what he did.
 
 I've had the same nightmare a few times now - it starts with me standing behind Jared in his kitchen. He's sobbing while eating his dad's corpse, begging me to stop him. But every time I stand there frozen, paralyzed and unable to help.
 

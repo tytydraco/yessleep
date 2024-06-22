@@ -1,73 +1,33 @@
 [Part One](https://www.reddit.com/r/nosleep/comments/1dhkkaq/casper_the_cat/)
 
 
+The pedophile’s corpse was as heavy as a tombstone. I panted hard, wiping sweat from my brow. Casper stretched out lazily on the carpet extending his claw. He yawned. I was so furious with him. “A little help?” I gasped as I heaved the body over to him. Casper lazily cleaned his huge paw with his long tongue. Casper’s unholy, golden eyes stared at me hard. 
 
 
-The pedophile’s corpse was as heavy as a tombstone. I panted hard. Wiping sweat from my brow. Casper stretched out lazily on the carpet. I was so annoyed with him. “A little help?” I gasped as I heaved the body over to him. Casper lazily cleaned his huge paw with his long tongue. Casper’s unholy, golden eyes stared at me hard. I gulped. Those predator eyes were intense. Filled with danger. “You must earn your treats. Bring him closer.” That voice, so charged with authority and yet so soft. The voice Casper forced into my mind was always unpleasant. It was like someone coming into your home without wiping their feet. Or who refused to use coasters. Not a major transgression. It just felt rude. It felt unnatural. It’s sharp sibilance often sounded like the feedback from a microphone. However, being able to communicate with my pet was a dream I’d had since I was a little girl. I scoffed angrily, “Sure thing, your majesty”. I grabbed the arms of the dead man hard. I grunted as I heaved him closer. I had killed the man myself. Of course, it hadn’t been planned that way.   
+I gulped. Those predator eyes were intense. Filled with danger. “You must earn your treats. Bring him closer.” That voice, charged with authority and yet so soft. The voice Casper forced into my mind was unpleasant. It was like someone coming into your home without wiping their feet. Or who refused to use coasters. Not a major transgression. It just felt rude. It felt unnatural. It’s sharp sibilance sounded like the feedback from a microphone. However, being able to communicate with my pet was a dream I’d had since I was a little girl. I scoffed angrily, “Sure thing, your majesty”. I grabbed the arms of the dead man hard. I grunted as I heaved him closer. I had killed the man myself. Of course, that was not how we’d planned it.
 
 
-&#x200B;
-
-&#x200B;
-
-  
-Many months have gone by since Casper and I began our vigilante crusade. At first, I was apprehensive and hesitant to be involved in, well, let’s not beat around the bush, straight up murder.  But after I did some research into the kinds of crimes perpetrated by these people on the sex offender list I became less squeamish. Also, Casper had this sense for evil. All he needed to do was look into someone’s eyes and he could tell everything bad or good they’d ever done. I asked him to never tell me what he saw in my eyes. I suppose I should be relieved when he replied, “Would never say. Terribly boring.”  
+Many months have past since Casper and I began our vigilante crusade. At first, I was apprehensive and hesitant to be involved in, well, let’s not beat around the bush, *straight up murder*.  But after I did some research into the kinds of crimes perpetrated by these people on the sex offender list I became less squeamish. Also, Casper had this sense for evil. All he needed to do was look into someone’s eyes and he could tell everything bad or good they’d ever done. I asked him to never tell me what he saw in my eyes. I suppose I should be relieved when he replied, “Would never. Terribly boring.”
 
 
-&#x200B;
-
-&#x200B;
-
-  
-Another point to add was the very real benefits to helping Casper feed. I was in my late 30s and had had some mild medical issues recently. However, within the last few months I’ve not just lost weight I’ve gained muscle and bone mass. My asthma has gone. I no longer need glasses to see. Wrinkles have vanished and cellulite has receded all over my body. My hair and nails grew longer, tougher, lusher, and healthier. My teeth were cavity free; my gums the perfect shade of red. All the doctors I’d been to since I adopted Casper said the same thing:  “Where can we get what you’re taking?” It wasn’t just my physical health though. Helping Casper with his dark deeds seemed to be granting me a kind of supernatural serendipity. Nothing huge, like I won’t win the lottery or anything (I already tried this). However, two weeks ago I found myself suddenly getting the contract for the new assistant-professor position at the university I’d always wanted. Also, I now always managed to get a string of green traffic lights when I was in a hurry. Little things like that.  
+Another point to add was the very real benefit to helping Casper feed. I was in my late 30s and had had some mild medical issues recently. However, within the last few months I’ve not just lost weight I’ve gained muscle and bone mass. My asthma has gone. I no longer need glasses to see. Wrinkles have vanished and cellulite has receded all over my body. My hair and nails grew longer, tougher, lusher, and healthier. I was less anxious. Less depressed. My teeth were cavity free; my gums the perfect shade of red. All the doctors I’d been to since I adopted Casper said the same thing:  “Where can we get what you’re taking?” 
 
 
-&#x200B;
-
-&#x200B;
-
-  
-By now we’ve dispatched more than twelve pedophiles but I still had not fully adjusted. Murder was hard work. Physically and emotionally. Ed Kemper was right.   
+It wasn’t just my physical health though. Helping Casper with his dark deeds seemed to be granting me a kind of supernatural serendipity. Nothing huge, like I won’t win the lottery or anything (I already tried this). However, two weeks ago I found myself suddenly getting the contract for the new assistant-professor position at the university I’d always wanted. Also, I now always managed to get a string of green traffic lights when I was in a hurry. Little things like that.
 
 
-&#x200B;
-
-&#x200B;
-
-  
-At first it seemed easy enough. We would simply look them up online. Then after an assessment by Casper for their worthiness (and tastiness) we would set out in the dead of night. “You must assist. If not. No treats. Only assistants get treats”   
-“Why? I mean, I know I’ll lose my,” I searched for the right word, “benefits. But can’t you do it all yourself? I mean if you really had to?” He was silent for a moment. He replied flatly, “Maybe. I prefer assistance.”  
+By now we’ve dispatched more than twelve pedophiles but I still had not fully adjusted. Murder was hard work. Physically and emotionally. Ed Kemper was right.
 
 
-&#x200B;
+At first it seemed easy enough. We would simply look them up online. Then after an assessment by Casper for their worthiness (and tastiness) we would set out in the dead of night. “You must assist. If not. No treats. Only assistants get treats” 
+“Why? I mean, I know I’ll lose my,” I searched for the right word, “*benefits*. But can’t you do it all yourself? I mean if you really had to?” He was silent for a moment. He replied flatly, “Maybe. I prefer assistance.”
 
-&#x200B;
-
-  
-Our most recent victim whose lifeless cadaver I now dragged through his own house, was an evil man named Jerimiah Funke. He wasn’t inside his house when we had stopped by that evening. This was rather unusual given that at three in the morning on a workday most people are usually in bed. With all the other victims I would walk up to the door and ring the bell or knock. Most of the time the victim would answer the door after a few minutes of me bashing at the door and pretending to be distraught.   
+Our most recent victim, whose lifeless cadaver I now dragged through his own house, was an evil man named Jerimiah Funke. He wasn’t inside his house when we had stopped by that evening. This was rather unusual given that at three in the morning on a workday most people are normally in bed. With all the other victims I had walked up to the door and rang the bell or knocked. They always answered, especially after a few minutes of me bashing the door and pretending to be distraught. 
 
 
-&#x200B;
-
-&#x200B;
-
-  
-At first, I didn’t think I had it in me.   
+At first, I didn’t think I had it in me. But I was surprised by how quickly I took to deception.
 
 
-&#x200B;
-
-&#x200B;
-
-  
-But I was surprised by how quickly I took to deception.  
-
-
-&#x200B;
-
-&#x200B;
-
-  
 “Oh, please help! My car has broken down! I’m all alone!” or some variation thereof would help me lure the man to my car where I would knock him over the head with my tire iron. Soon they’d be loaded in my trunk and Casper and I would make our way back home. “Why does it have to happen at home?” I had asked Casper one night. He remained silent. Once I was convinced he was ignoring me he said, “Tough. Tough to explain. It’s just more efficient. Home is safe. Life-force more absorbed”  
 “Okay, well I guess that makes sense as a magical law. Home is where the heart is.”  
 “Yes. Yes exactly. Our power is strongest at home.”  
