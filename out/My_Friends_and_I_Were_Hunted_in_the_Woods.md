@@ -90,7 +90,7 @@ We installed security cameras around our homes and stayed in close contact, chec
 
 Weeks passed without incident and no word from the police, but the silence was unnerving, like the calm before a storm. Then, late one night, my phone buzzed with a new message. It was a photo of me, taken from outside my window, with a caption that sent chills down my spine: “You can’t hide.”
 
-I now live in constant fear, always looking over my shoulder. I’ve changed almost everything about me from my looks to my personality, and moved out of the to the next city. I used to live in the isolation of the boondocks, but now I live in a densely populated section of downtown.
+I now live in constant fear, always looking over my shoulder. I’ve changed almost everything about me from my looks to my personality, and moved to the next city over. I used to live in the isolation of the boondocks, but now I live in a densely populated section of downtown.
 
 This bastard stole something invaluable from me—my sense of safety, my peace of mind. The terror we faced is etched into my memory, and I’ll never feel safe again knowing this monster is still out there, stalking me and Emily like a sick game of cat and mouse.
 
