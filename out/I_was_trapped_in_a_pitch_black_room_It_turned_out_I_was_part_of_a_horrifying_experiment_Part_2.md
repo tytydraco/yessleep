@@ -1,6 +1,6 @@
 [Part 1](https://www.reddit.com/r/nosleep/comments/1djkgv0/i_was_trapped_in_a_pitch_black_room_it_turned_out/)
 
-I didn’t know how I had escaped from the black hole, because, as if I had woken up from a dream, I found myself in a different place. It was still dark. I was afraid that I was lying in my pitch-black room again, but my eyes gradually got used to the ceiling light that gave shone the new room.
+I didn’t know how I had escaped from the black hole, because, as if I had woken up from a dream, I found myself in a different place. It was still dark. I was afraid that I was lying in my pitch-black room again, but my eyes gradually got used to the ceiling light that shone the new room.
 
 I looked down and saw that I was strapped to a hospital bed with leather straps. I could also feel a bandage on my head. I was no longer in the green hazmat suit nor was I stark naked but was wearing a patient gown that covered my private parts better than the rag I had to wear in the old room.
 
