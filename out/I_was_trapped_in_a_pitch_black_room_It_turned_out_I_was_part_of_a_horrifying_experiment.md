@@ -1,3 +1,7 @@
+[Part 2](https://www.reddit.com/r/nosleep/comments/1dlb2en/i_was_trapped_in_a_pitch_black_room_it_turned_out/)
+
+
+
 A few weeks ago I woke up in hell.
 
 I know this might sound dramatic but once you'd been in my shoes, you would've thought the same thing. I really hope you never have to endure even a fraction of what I had experienced. I'm currently in a hiding spot and away from any real danger, so I thought it was the ideal time to write down the past weeks, in hope someone can understand my situation.
