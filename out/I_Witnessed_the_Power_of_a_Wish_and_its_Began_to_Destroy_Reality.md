@@ -1,7 +1,6 @@
 >*Cogito, Ergo Sum.*  
-*Translated to English: I think, therefore I am.*
-
->*-Rene Descartes*
+*Translated to English: I think, therefore I am.*  
+*-Rene Descartes*
 
 Everyone gets one single wish in their lifetime. It doesn’t matter who you are or where you come from. Every single human being is born with one wish destined to be granted.
 
@@ -48,7 +47,6 @@ A microwave installed in the cabinets of a rental we would move out of in five m
 Wish. Fucking. Granted.
 
 >*Some years ago I was struck by the large number of falsehoods that I had accepted as true in my childhood, and by the highly doubtful nature of the whole edifice that I had subsequently based on them. I realized that it was necessary, once in the course of my life, to demolish everything completely and start again right from the foundations if I wanted to establish anything at all in the sciences that was stable and likely to last.*  
-  
 *-Rene Descartes*
 
 Now that you understand how easy it is to utterly waste a wish, take a moment to actually think about it. Can you remember when you used your wish? Can you remember that time you received exactly what you wished for, no matter how miniscule and frivolous it may have been?
@@ -68,7 +66,6 @@ The airbags deployed as the back of my car lifted from the earth. The sudden exc
 I doubt Rene Descartes had to experience a crash to develop his philosophy, but I do wonder, sometimes, what it was that caused great philosophers to develop their ideas. What was the motivation?
 
 >*“It is not enough to have a good mind; the main thing is to use it well.”*    
-  
 *-Rene Descartes*
 
 I am stalling to continue. This is difficult to recount. I feel as though I am still standing there, like it’s still the moment I realize what happened.
@@ -138,7 +135,6 @@ One night, I found myself standing on a bridge, staring down at the black water 
 >*Dubium sapientiae initium.*
 
 >*Translated to English: Doubt is the origin of wisdom.*  
-  
 *-Rene Descartes*
 
 I stumbled home, my thoughts a jumbled mess of despair and rage. I punched the walls, screaming at the top of my lungs, cursing the universe, cursing myself. I tore at my hair, clawed at my skin, anything to make the pain stop. But it wouldn't. It never would.
@@ -152,7 +148,6 @@ The world around me became distorted, unreal. I would see things out of the corn
 I became obsessed with the notion that there was some way to fix it, some way to atone. I would spend hours pouring over books, articles, anything that might offer a glimmer of hope. I started to believe in things I had never considered before—magic, miracles, anything that could undo my mistake. It was a delusion, a desperate grasp at something to hold onto as my sanity slipped through my fingers.
 
 >*The thinking of the mind is twofold: understanding and willing.*  
-  
 *-Rene Descartes*
 
 And then, one night, in the depths of my anguish, that incident with the microwave crawled forth from the unseen corners of my mind. I was standing at the edge of a cliff, the wind howling around me, the darkness pressing in. I felt like I was on the edge of the world, teetering on the brink of oblivion.
@@ -168,7 +163,6 @@ The words spilled out of me, a deluge of pain and desperation. I knew it was foo
 As I uttered my wish, a strange sensation washed over me, a warmth that seemed to envelop my entire being. For the briefest of moments, I felt a flicker of hope, a tiny spark in the darkness. But as the warmth faded, I realized that my wish had been granted in the worst possible way.
 
 >*But I cannot forget that, at other times I have been deceived in sleep by similar illusions; and, attentively considering those cases, I perceive so clearly that there exist no certain marks by which the state of waking can ever be distinguished from sleep, that I feel greatly astonished; and in amazement I almost persuade myself that I am now dreaming.*  
-  
 *-Rene Descartes*
 
  
