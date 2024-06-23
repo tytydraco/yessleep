@@ -1,6 +1,8 @@
 I'm an 80's kid.
 
-And what I remember most from that decade is Grandma. Scolding me. A lot.
+And what I remember most from that decade is Grandma. Scolding me. A lot. 
+
+Grandma could really be a pain in the neck.
 
 Usually, it was because I hadn't washed my hands well enough. But it could also be due to the hole in the ozone. As a kid, Grandma and I spent a lot of time together. Both my parents worked, and Grandma and Grandpa had a small business that didn’t have a *no kids allowed* sign out in front.
 
