@@ -8,77 +8,77 @@
 
 \[[Part 5](https://www.reddit.com/r/nosleep/comments/1dhc4ww/we_joined_a_cult_as_a_joke_part_5/)\] <- You are here.
 
-The night air was thick with the cloying scent of incense, mingling with the soft, ominous chants of the others. Each breath felt heavy, tainted with the stench of decay and something ancient… malevolent. My mask stuck uncomfortably to my face, the chill night air dampening the fabric pressed against my skin.  
+\[[Part 6](https://www.reddit.com/r/nosleep/comments/1dm99mi/we_joined_a_cult_as_a_joke_part_6/)\]
 
-"Stay close," Tim whispered as we followed the procession into a vast courtyard, open to the night sky.  
+The night air was thick with the cloying scent of incense, mingling with the soft, ominous chants of the others. Each breath felt heavy, tainted with the stench of decay and something ancient… malevolent. My mask stuck uncomfortably to my face, the chill night air dampening the fabric pressed against my skin.
 
-The walls were adorned with ancient symbols and statues that seemed to writhe in the torchlight. My eyes never left Chloe standing near the altar, her posture vacant. 
+"Stay close," Tim whispered as we followed the procession into a vast courtyard, open to the night sky.
 
-“There she is,” I muttered to Tim before a heavy silence blanketed the courtyard. Marcus Voss emerged from the shadows, his presence like an eclipse, casting a pall over the gathered cultists. His predatory eyes scanned the assembly with a gaze that seemed to pierce the soul. Every movement he made was deliberate, each step echoing with an authority that demanded absolute obedience. 
+The walls were adorned with ancient symbols and statues that seemed to writhe in the torchlight. My eyes never left Chloe standing near the altar, her posture vacant.
 
-Voss wore an intricate robe, its fabric a deep, abyssal black, embroidered with symbols emanating an otherworldly light. 
+“There she is,” I muttered to Tim before a heavy silence blanketed the courtyard. Marcus Voss emerged from the shadows, his presence like an eclipse, casting a pall over the gathered cultists. His predatory eyes scanned the assembly with a gaze that seemed to pierce the soul. Every movement he made was deliberate, each step echoing with an authority that demanded absolute obedience.
 
-Behind him followed Dr. Wilcox. He too was robed in dark finery, his hands cradling a blade that gleamed under the flickering torchlight. 
+Voss wore an intricate robe, its fabric a deep, abyssal black, embroidered with symbols emanating an otherworldly light.
 
-Voss paused, allowing his presence to settle over the crowd. His voice, when it came, was a silken thread that wove through the silence. 
+Behind him followed Dr. Wilcox. He too was robed in dark finery, his hands cradling a blade that gleamed under the flickering torchlight.
+
+Voss paused, allowing his presence to settle over the crowd. His voice, when it came, was a silken thread that wove through the silence.
 
 "Gather, my disciples," he intoned, "Tonight, we unveil the true faces of those who dare to seek true understanding."
 
-Voss turned to the three standing there, with Chloe at the end. His gaze lingered on each one. 
+Voss turned to the three standing there, with Chloe at the end. His gaze lingered on each one.
 
-Dr. Wilcox stepped forward, raising the blade high for all to see. It looked identical to the one plunged into my side not a week prior. He held it there for a moment, before lowering it and gesturing back to Voss. 
+Dr. Wilcox stepped forward, raising the blade high for all to see. It looked identical to the one plunged into my side not a week prior. He held it there for a moment, before lowering it and gesturing back to Voss.
 
-"But first," he continued, "there is the matter of retribution." 
+"But first," he continued, "there is the matter of retribution."
 
-Two men were dragged forward, their bodies covered in dirt and nearly naked save for mud-stained briefs and burlap sacks over their heads. They struggled weakly. 
+Two men were dragged forward, their bodies covered in dirt and nearly naked save for mud-stained briefs and burlap sacks over their heads. They struggled weakly.
 
-The men holding them ripped away the sacks, revealing the terrified faces of the orderlies from the hospital. 
+The men holding them ripped away the sacks, revealing the terrified faces of the orderlies from the hospital.
 
-Voss's gaze swept the crowd once more. "As many of you know," he began, "a profane presence has infiltrated our sacred rites, corrupting our rituals. I’ve been informed that he skulks among you, thinking himself hidden at this very moment.”  
+Voss's gaze swept the crowd once more. "As many of you know," he began, "a profane presence has infiltrated our sacred rites, corrupting our rituals. I’ve been informed that he skulks among you, thinking himself hidden at this very moment.”
 
-The crowd stirred, masked faces turning this way and that in search of the intruder. I mimicked their movements, trying to stay hidden. 
+The crowd stirred, masked faces turning this way and that in search of the intruder. I mimicked their movements, trying to stay hidden.
 
-"Worry not. Let him be. Let him see our ways," Voss declared, "Let him understand.” 
+"Worry not. Let him be. Let him see our ways," Voss declared, "Let him understand.”
 
-He turned his attention back to the orderlies. "These men," he spat, "were coerced by another profane. They betrayed our order to save the one who defiled our sanctuary. I ask of you, what should be their punishment?” 
+He turned his attention back to the orderlies. "These men," he spat, "were coerced by another profane. They betrayed our order to save the one who defiled our sanctuary. I ask of you, what should be their punishment?”
 
-A clamor began amongst the followers. “Death!” rang out from the crowd. “Blindness!” shouted another. 
+A clamor began amongst the followers. “Death!” rang out from the crowd. “Blindness!” shouted another.
 
-Voss held his hand up as the silence returned. “I am nothing if not your servant, but these are punishments for the profane. These men were trusted. It is one thing to violate our order, but it is another to have seen the light and to turn away.” 
+Voss held his hand up as the silence returned. “I am nothing if not your servant, but these are punishments for the profane. These men were trusted. It is one thing to violate our order, but it is another to have seen the light and to turn away.”
 
-“Purificatio!” a solitary voice emanated from the crowd. 
+“Purificatio!” a solitary voice emanated from the crowd.
 
-“Purificatio.” Voss repeated with a smile. “Is this our final judgment?” 
+“Purificatio.” Voss repeated with a smile. “Is this our final judgment?”
 
-The men pleaded with Voss, their voices drowned out by the crescendo of voices in the crowd repeating “Purificatio!”. I glanced at Tim, whose eyes were glued on Chloe.  
+The men pleaded with Voss, their voices drowned out by the crescendo of voices in the crowd repeating “Purificatio!”. I glanced at Tim, whose eyes were glued on Chloe.
 
-Voss held his hand up once more, and once again the silence returned. He announced, “The will of the collective is divine.” before gesturing to Dr. Wilcox. 
+Voss held his hand up once more, and once again the silence returned. He announced, “The will of the collective is divine.” before gesturing to Dr. Wilcox.
 
-The orderlies' pleas grew more desperate, imbued with fear and sorrow that only fueled the fervor of the crowd. The men were dragged, kicking and screaming, towards the giant bonfire at the foot of the colossal owl statue, its eyes gleaming in the firelight. 
+The orderlies' pleas grew more desperate, imbued with fear and sorrow that only fueled the fervor of the crowd. The men were dragged, kicking and screaming, towards the giant bonfire at the foot of the colossal owl statue, its eyes gleaming in the firelight.
 
 As we positioned ourselves towards the front of the crowd, I took in the stage with renewed clarity. The statue's base was hollowed into an oven, its edges licked by relentless flames. Smoke spiraled upwards, drawn through the statue's hollow core, escaping from the glowing eyeholes of the owl, as if brooding over the scene below.
 
 The flames roared hungrily, their heat sweltering even from a distance.
 
-The mens screams grew louder, their faces contorted with sheer terror as they were forced closer to the inferno. Their skin glistened with sweat, their eyes wide with the primal fear of impending death. They struggled against their captors, but the grips that held them were unyielding, eyes alight with fanatic zeal. 
+The mens screams grew louder, their faces contorted with sheer terror as they were forced closer to the inferno. Their skin glistened with sweat, their eyes wide with the primal fear of impending death. They struggled against their captors, but the grips that held them were unyielding, eyes alight with fanatic zeal.
 
-With a final shove, the men were cast into the roaring bonfire. Their initial screams pierced the night, high and shrill, a horrifying symphony of agony. The intense heat quickly blistered their skin, causing it to bubble and peel away, revealing raw, sensitive nerves. Their bodies convulsed, muscles contracting violently into contorted shapes. 
+With a final shove, the men were cast into the roaring bonfire. Their initial screams pierced the night, high and shrill, a horrifying symphony of agony. The intense heat quickly blistered their skin, causing it to bubble and peel away, revealing raw, sensitive nerves. Their bodies convulsed, muscles contracting violently into contorted shapes.
 
-The flames, voracious and unrelenting, licked at their flesh, the crackling sound of burning skin mingling with their cries. The smell of burning flesh and hair filled the air. 
+The flames, voracious and unrelenting, licked at their flesh, the crackling sound of burning skin mingling with their cries. The smell of burning flesh and hair filled the air.
 
-As the fire intensified, the men’s skin charred and blackened, turning to ash in some places while other parts still writhed in agony. The flames reached higher, consuming clothing and flesh alike, leaving behind smoldering, skeletal remains. The horrifying sight was punctuated by the popping and sizzling sounds of fat and muscle burning away. 
+As the fire intensified, the men’s skin charred and blackened, turning to ash in some places while other parts still writhed in agony. The flames reached higher, consuming clothing and flesh alike, leaving behind smoldering, skeletal remains. The horrifying sight was punctuated by the popping and sizzling sounds of fat and muscle burning away.
 
-Their screams, once loud and piercing, turned into guttural moans as the flames ravaged them. Each breath drew in searing heat, causing their throats and lungs to blister and burn from within. Their movements became slower, more spasmodic, as their bodies succumbed to the overwhelming heat and pain. 
+Their screams, once loud and piercing, turned into guttural moans as the flames ravaged them. Each breath drew in searing heat, causing their throats and lungs to blister and burn from within. Their movements became slower, more spasmodic, as their bodies succumbed to the overwhelming heat and pain.
 
-The crowd stood transfixed, their eyes reflecting the hellish glow of the bonfire. The chants of "Purificatio" had ceased, replaced by an awed silence. The statue's stone gaze seemed to judge the proceedings with approval. 
+The crowd stood transfixed, their eyes reflecting the hellish glow of the bonfire. The chants of "Purificatio" had ceased, replaced by an awed silence. The statue's stone gaze seemed to judge the proceedings with approval.
 
-As the men’s bodies were reduced to smoldering husks, their final moments of suffering faded into the night until only the crackling of the fire remained. 
+As the men’s bodies were reduced to smoldering husks, their final moments of suffering faded into the night until only the crackling of the fire remained.
 
-Voss stepped forward, his face illuminated by the dying flames. "Mourn for them not. Their souls have been cleaned. They reside beside Nuit now." 
+Voss stepped forward, his face illuminated by the dying flames. "Mourn for them not. Their souls have been cleaned. They reside beside Nuit now."
 
-"Now, ladies and gentlemen," he paused. "It is time for the main event.” 
-
----
+"Now, ladies and gentlemen," he paused. "It is time for the main event.”
 
 Voss's commanding presence intensified as he extended a hand towards the first masked initiate, a figure almost trembling with palpable dread. "Step forward," he directed in a tone that brooked no argument.
 
@@ -129,4 +129,3 @@ Voss's gaze softened as he turned to Chloe, his voice dropping to a whisper. "My
 “By the way, that's the one,” Voss declared, his finger unmistakably pointing at me amidst the throng. “Sticks out like a sore thumb. Bring the three of them to my quarters; the other initiate will have to wait.”
 
 Shadows moved swiftly around me, their black cloaks blurring into the night. Rough hands grabbed me, binding my arms with rope. From my peripheral vision, I saw Tim on the stage, already being restrained, the assistants fumbling with his ropes due to his mangled hand. Beside Voss, Chloe walked obediently, her steps matching the steady pace set by Dr. Wilcox trailing close behind.
-
