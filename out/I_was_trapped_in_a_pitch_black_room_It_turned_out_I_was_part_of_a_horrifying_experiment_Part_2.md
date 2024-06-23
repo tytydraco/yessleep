@@ -1,5 +1,7 @@
 [Part 1](https://www.reddit.com/r/nosleep/comments/1djkgv0/i_was_trapped_in_a_pitch_black_room_it_turned_out/)
 
+[Part 3](https://www.reddit.com/r/nosleep/comments/1dmkxa4/i_was_trapped_in_a_pitch_black_room_it_turned_out/)
+
 I didn’t know how I had escaped from the black hole, because, as if I had woken up from a dream, I found myself in a different place. It was still dark. I was afraid that I was lying in my pitch-black room again, but my eyes gradually got used to the ceiling light that shone the new room.
 
 I looked down and saw that I was strapped to a hospital bed with leather straps. I could also feel a bandage on my head. I was no longer in the green hazmat suit nor was I stark naked but was wearing a patient gown that covered my private parts better than the rag I had to wear in the old room.
@@ -134,18 +136,15 @@ Anomaly 24 did not have a real name. The anomaly level was 100. He also had note
 
 *ANOMALY 24 does not respond to treatment methods --> tentacle arms appear at irregular intervals; last known appearance on Nov 10th at 6:36 p.m. during ANOMALY 25 attack on staff*
 
-
 I shuddered to turn the page and find my record, because it was certain that I had one, and it was certain that Anomaly 25 was me. But it was necessary to find out everything so I could understand what had happened to the three of us.
 
 My record showed my name and my anomaly level, which was 55. I also had some notes.
-
 
 *ANOMALY 25 is the first anomaly to show signs of possession by tentacle arms*
 
 *ANOMALY 25 escapes dungeon by murdering a guard on Nov 10th at 6 p.m.*
 
 *ANOMALY 25 is cared for in infirmary after fainting* 
-
 
 “Are you nearly done with this?” Reeve asked impatiently. “I’d really like to get out of here, brother.” 
 

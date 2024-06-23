@@ -1,6 +1,6 @@
 [Part 2](https://www.reddit.com/r/nosleep/comments/1dlb2en/i_was_trapped_in_a_pitch_black_room_it_turned_out/)
 
-
+[Part 3](https://www.reddit.com/r/nosleep/comments/1dmkxa4/i_was_trapped_in_a_pitch_black_room_it_turned_out/)
 
 A few weeks ago I woke up in hell.
 
