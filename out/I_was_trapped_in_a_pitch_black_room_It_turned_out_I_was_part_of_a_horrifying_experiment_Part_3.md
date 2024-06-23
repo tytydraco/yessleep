@@ -268,6 +268,6 @@ I’m glad I made it out of the nightmare. I was free from hell. I don’t know 
 
 Of course, I also owe our safe escape to Flo, my other savior.
 
-And to forget Reeve. I’m looking over to where he’s sitting in an armchair, deep in thought.
+And not to forget Reeve. I’m looking over to where he’s sitting in an armchair, deep in thought.
 
 Thank you, brother.
