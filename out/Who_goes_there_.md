@@ -6,13 +6,15 @@ I stood there for a minute, enjoying the cold freezing air, when suddenly I felt
 
 I felt worry wash over me like waterfall, I locked the window and I turned on the lights,then I grabbed my bedroom door and pushed the door open,I was hit again with a sharp feeling in my gut,I felt like I was supposed to do something,then I went into the hallway,I turned on the lights there too and i went forward until I was on the start of the staircase,i watched the dark staircase for about 5 seconds,i could clearly see the end of the staircase and the hallway and the front door,but just in case i spoke a bit loudly "who goes there?".
 
-I recieved no reply,no-one was in my home.
+I received no reply,no one was in my home.
 
 I went down the staircase and I quickly flicked the switch for lights, then I turned to my right and I went to my dark kitchen,I flicked the switch for light and went towards the fridge,as my hand gripped the handle I looked towards the clock which read 2:57 am.
 
-I got alarmed a little but I remembered that today was Saturday, a wave of relief washed over me because I didn't have to do any work. 
+I got alarmed a little, but I remembered that today was Saturday, a wave of relief washed over me because I didn't have to do any work. 
 
-I opened the fridge and quickly made a sandwich so I could eat, as I was making the sandwich I looked through the kitchen window and stared at the forest, then I resumed making the sandwich. 
+I opened the fridge and quickly made a sandwich so I could eat.
+
+As I was making the sandwich I looked through the kitchen window and stared at the forest, then I resumed making the sandwich. 
 
 After I had made the sandwich,I decided I would quickly eat my food in the kitchen, while I was eating my sandwich I felt as if I needed to do something,and I stopped eating to check if i could hear anything,like footsteps.
 
@@ -82,10 +84,10 @@ As the cleaners entered their van officer mckenny with his colleagues also went 
 
 After an hour i looked out through my window and i saw the blonde haired officer that spoke to me in the police station get out of his car, he rang my doorbell and I opened the door, he spoke to Me "I didn't introduce myself earlier, I am officer McCartney, I just wanted to tell you that we still haven't found the killer but we are searching for him,your neighbor colette is okay,if you see anything suspicious tell me" 
 
-I then replied to him "please tell me when you find him" 
+I then replied to him "Please tell me when you find him" 
 
 A smile dawned on his face and he said "I will tell you" he then turned around and walked to his car and then he started driving to the police station. 
 
 I closed the door and I then put the key in the door and locked the door, I checked again to see if the door was locked, then I went to the backdoor to check if the backdoor was locked, I pulled on the handle and the door was locked,I looked at the keyhole and saw my key is in the door,I felt a wave of safety wash over me. 
 
-I then sat on my couch and turned on the TV so that I could watch some movies
+I then sat on my couch and turned on the TV so that I could watch some  movies and relax, after  watching the movies I have decided to post my story here, why? I want people to learn something from my story,I want people to learn to be careful, to always check if your doors are locked and to check the safety of your  neighbourhood. 
