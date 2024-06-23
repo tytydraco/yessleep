@@ -1,6 +1,6 @@
 I'm an 80's kid.
 
-And what I remember most from that decade is Grandma. Scolding me. A lot. 
+And what I remember most from that decade is Grandma. Scolding me. A lot.
 
 Grandma could really be a pain in the neck.
 
@@ -20,7 +20,9 @@ I stopped going to Dad's little apartment after a while because he just cried no
 
 I remember thinking if we could just maybe get a golden retriever, like my friend Amy’s parents did when they separated, then maybe Mom might stop being so grouchy all the time. And then, who knows? Maybe Dad would even come back and we could all be a family again. It didn't quite pan out that way though. But that’s what little me thought.
 
-What happened instead was Grandpa had a fatal coronary but a few weeks later while toasting Grandma at their anniversary party over ante pasta. Grandpa was saying, and I quote, that, “he loved Grandma more than the devil loves buying souls and that no matter what Grandma might have done-“ and then his toast was cut short by his heart going Hiroshima and his face falling in their Anniversary cake.
+What happened but a few days later, instead, was Grandpa collapsed during his own anniversary toast face down in his own anniversary cake. Let me tell you, there is nothing quite like witnessing a fatal and massive coronary first-hand. 
+
+One moment, Grandpa was saying, and I quote, that, “he loved Grandma more than the devil loves buying souls and that no matter what Grandma might have done to her-“ and then, then his toast was cut short by his heart going Hiroshima and, as you now know; his face falling in their anniversary cake.
 
 After that Grandma decided she needed to trip around the world, I guess she kept tripping because we never saw her again. That is until a couple of weeks ago. But that doesn’t count if you’re dead. Before Grandma decided to depart she paid me one final visit.
 
