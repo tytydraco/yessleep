@@ -10,7 +10,7 @@ I hope what I’m about to share will bring me a semblance of a closure I’ve b
 
 Twenty years earlier, my dad got a job offer that forced our family to move to Woodberry, Oregon. For a teenager accustomed to the vibrant city life of Portland, this was a jarring shift. I was too young and too absorbed in my own world in order to appreciate the vast expanse of firs and pines cascading over the roiling hills, the tranquility nature’s embrace offered, and the warmth and camaraderie of small communities.
 
-I still remember the hot May morning was when we arrived in front of our new home. I recall my parents marveling at the house, talking about life in the town with optimism. Some neighbors had come by to introduce themselves to my parents. Just like every bitter teen, I entered the house and climbed upstairs into what I hoped would become my room once we settled.
+I still remember how hot that May morning was when we arrived in front of our new home. I recall my parents marveling at the house, talking about life in the town with optimism. Some neighbors had come by to introduce themselves to my parents. Just like every bitter teen, I entered the house and climbed upstairs into what I hoped would become my room once we settled.
 
 For the next fifteen minutes, the reality of my new life was starting to dawn on me with a crushing weight. With no proper way to keep in touch, it wouldn’t be long before my friends forget about me. That’s life, I guess. When we’re young, every upheaval feels like the end of the world.
 
