@@ -1,4 +1,4 @@
-I woke up in cold sweat, the first thing I saw was my ceiling,I gasped for air, And I looked around the room, my room was lighted up by the fool moon,I sat up on my bed and I stared at my room for a minute, the only thing I could hear was silence. 
+I woke up in cold sweat, the first thing I saw was my ceiling,I gasped for air, And I looked around the room, my room was lighted up by the full moon,I sat up on my bed and I stared at my room for a minute, the only thing I could hear was silence. 
 
 I tossed my blanket on the corner of my bed and I planted my feet on my cold floor, I went towards the window and I grasped the handle and pulled, a cold wind hit my body, alleviating me from the roasting feeling that had developed because of the blanket. 
 
