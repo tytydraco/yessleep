@@ -14,7 +14,7 @@ Now, this is where shit gets weird. You've probably seen those ads on porn sites
 
 It brought me to a page that looked like a tinder clone, and I was prompted to set up a profile. After triple checking with my anti virus program to confirm I wouldn't lose my credit card information or anything, I decided to join. This was the most fun that I'd had since the breakup and I wasn't even thinking about what's-her-face as I set up my account.
 
-After about 5 minutes of the usual song and dance, where I picked the best pictures of myself and wrote a little blurb for my profile, I was ready to begin swiping. I began clicking "yes" on just about every goth girl I saw and within a couple minutes I had run out of profiles. I was about to close the site when I got a notification for a match, and a message.
+After about 5 minutes of the usual song and dance where I picked the best pictures of myself and wrote a little blurb for my profile, I was ready to begin swiping. I began clicking "yes" on just about every goth girl I saw and within a couple minutes I had run out of profiles. I was about to close the site when I got a notification for a match, and a message.
 
 "Heyyyy" it read.
 
