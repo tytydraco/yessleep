@@ -9,7 +9,7 @@ If it isn't real, then it's pointless. And on the off-chance that it is real, I'
 I also consider myself very good at spotting 'turn-around' points. For example, when I was ten I saw something in the lake at a summer camp I was attending. The camp was for kids who were starting to go blind, like me. I was one of the few there with usable sight left, and I swear I saw something in the water of that lake. It was dark, big, and looked dangerous. It could have been a large catfish for all I know, but I felt a shiver up the back of my spine that kept me firmly out of the water for the rest of the camp. I refused to touch the lake, regardless of punishment, out of that fear. The part of my brain that says 'turn-around' has always been a part I listen to.
 
   
-Now, for a minor additional detail, I recently got a job at my local gas station. I would mostly be a cashier, and janitor, for the place. This was fine for me, even blind you just have to clean entire sections, and working a cash register is easy with certain accommodations. So, I suppose that brings us to the elephant in the room, I am blind. Being blind means that I have to trust in my other senses, my hearing, my touch. This often means I can mistake things for other things, or get scared of what doesn't exist. Once, for example, I mistook my mother using our mother doing some maintenance on our lawnmower as a growling dog.
+Now, for a minor additional detail, I have a job at my local gas station. I would mostly be a cashier, and janitor, for the place. This was fine for me, even blind you just have to clean entire sections, and working a cash register is easy with certain accommodations. So, I suppose that brings us to the elephant in the room, I am blind. Being blind means that I have to trust in my other senses, my hearing, my touch. This often means I can mistake things for other things, or get scared of what doesn't exist. Once, for example, I mistook my mother using our mother doing some maintenance on our lawnmower as a growling dog.
 
   
 So yeah, I recently acquired a co-worker on my shift. His job is just to maintain the shelves, make sure people who need assistance can get gas, and do all the stuff I won't do. It's just the two of us, working that 6 hour shift, every day, including weekends. I don't know why he works all week, I do so because I have nothing better to do. His name was Joe, and we worked together.
@@ -32,7 +32,7 @@ There was a long pause, of the same breathing, before I got my response.
 
 "Yeah?" Joe said quietly from right in front of me.
 
-I spun my white-cain forward, bumping it into his shoes to figure out his distance from me. He was standing about 1.5-2feet away. And before you ask me how I can judge such a distance, you get really good at that stuff when you can't physically see the distance.
+I spun my white-cain forward, bumping it into his legs to figure out his distance from me. He was standing about 1.5-2feet away. And before you ask me how I can judge such a distance, you get really good at that stuff when you can't physically see the distance.
 
 I then said to Joe:
 
@@ -50,7 +50,7 @@ His response?
 
 I really had nothing to say to this, so I just responded with "Then head to the back, I'm going to keep working".
 
-I didn't hear a response, but I did hear the light-tapping of his footsteps. Now, most of the time Joe's footsteps sound like a normal person's. The casual clump of rubber, or leather, or whatever is on the bottom of your shoes against linoleum. They did not sound like that this time, it was an odd, 'Splat' sound. Have you even walked barefoot in your kitchen? That was the sound it made. Rather the mute of shoes, this was a weirder sound.
+I didn't hear a response, but I did hear the light-tapping of his footsteps. Now, most of the time Joe's footsteps sound like a normal person's. The casual clump of rubber, or leather, or whatever is on the bottom of your shoes against linoleum. They did not sound like that this time, it was an odd, 'Splat' sound. Have you even walked barefoot in your kitchen? That was the sound it made. Rather than the mute of shoes, this was a weirder sound.
 
 I didn't think a lot of it at the time, but really, this should've been my first clue that something was up. I was just too weirded out by the idea of him watching me for 30 minutes to think of the sound of his feet.
 
@@ -64,11 +64,12 @@ There was no pause this time, it was almost immediate.
 
 "Yeah?"
 
-It was too close. As if he was directly in my face, but in order to do that he would've had to lean way forward and said it near my ears. Which apparently he did. This sudden, feedback made me jump, because normally I have to strain my ears to be able to hear him. I jumped, slipped on the soapy water, and fell over, crashing onto the floor. I was slightly dazed for a second, but luckily I hadn't hit my head. I heard from above me.
+It was too close. As if he was directly in my face, but in order to do that he would've had to lean way forward and said it near my ears. Which apparently he did. This sudden feedback made me jump, because normally I have to strain my ears to be able to hear him. I jumped, slipped on the soapy water, and fell over
+ I crashed onto the floor. I was slightly dazed for a second, but luckily I hadn't hit my head. I heard from above me:
 
 "Are you okay?"
 
-"Yeah, I'm okay, ow..." was my response from the floor. I felt a hand touch mind as Joe moved to help me up, but I moved my other hand to grasp his, and I bumped his shoulder with my hand. His skin was cold, like incredibly cold, and oily as if he was sweating a lot. The weirdest part was, his shoulder wasn't covered by cloth, it was bare. Now this could mean many things, he could simply be wearing unexpected clothing, like a wife-beater, or the like. It's not like gas-station employees are known for our fashion sense. But he quickly backed away from me as I touched him. Like we was afraid of me bumping into the rest of his body.
+"Yeah, I'm okay, ow..." was my response from the floor. I felt a hand touch mine as Joe moved to help me up, but I moved my other hand to grasp his, and I bumped his shoulder with my hand. His skin was cold, like incredibly cold, and oily as if he was sweating a lot. The weirdest part was, his shoulder wasn't covered by cloth, it was bare. Now this could mean many things, he could simply be wearing unexpected clothing, like a wife-beater, or the like. It's not like gas-station employees are known for our fashion sense. But he quickly backed away from me as I touched him. Like we was afraid of me bumping into the rest of his body.
 
 He moved so fast that I lost my grip on his hand, and I had to steady myself on the nearby shelves. It hurt slightly,
 

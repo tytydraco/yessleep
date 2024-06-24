@@ -378,3 +378,5 @@ Afterwards, I learned that angels can't truly die, though I have been assured th
 So, I just want to say that I appreciate how many of you have accompanied me on this descent into madness. You've all given me so much advice, some of which has quite literally saved my life. I never believed in the kindness of strangers until I started this series. You've seriously all helped me grow into the Lab Rat I am today and I truly can't thank you all enough for that. 
 
 Originally, I started posting as a cry for help. I'd had no one to turn to as my life was flipped upside down by the strange guy in IT. But now I’m not alone anymore. I have people in my corner, now. This is bittersweet, but… I think this might be my last post. Yeah. It's time. 
+
+[(Epilogue)](https://www.reddit.com/u/adorabletapeworm/s/XOtWnOnld4)
