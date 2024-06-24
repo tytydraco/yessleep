@@ -8,8 +8,6 @@ Only once had I seen the basic prayers fail. It was a case where the entity with
 
 Even then, Father Anthony had been able to remove the demon in less than a week, relying on the Prayer to Saint Michael and a silver cross that had once belonged to Pope Leo XIII. 
 
-
-
 Nothing could have prepared either of us for what we found on Palmer Avenue.
 
 We were sent there at the behest of Father Felipe, a parish priest who noticed that Maya Knowles, one of the young women attending his church, had missed several weeks of Sunday mass. It’s unfortunately common for young people to fall out of love with the faith, but it raised a small flag for the Father Felipe, who caught up with her mother, Sharon, one day after mass to ask her if anything was wrong.
@@ -17,8 +15,6 @@ We were sent there at the behest of Father Felipe, a parish priest who noticed t
 Sharon immediately burst into tears, confessing that her previously bright, cheerful daughter had become a recluse overnight, refusing to leave her room.
 
 Again, such things happen. But it aroused the Father Felipe’s interest, and he paid the family a visit a few days later. What he witnessed upon entering the girl’s room was enough to make him call us immediately. Rather than paraphrase, I’ll include a transcription of the voicemail he left here:
-
-
 
 *…there was a foul smell. It hit you all the way down the hall. Some kind of cocktail of sweat and excrement. It grew more powerful as I approached Maya’s room, such that I was hesitant to enter.* 
 
@@ -54,8 +50,6 @@ Again, such things happen. But it aroused the Father Felipe’s interest, and he
 
 *After that, there was only silence. No one has heard a thing from inside the room since then. I have instructed Maya’s mother to avoid going inside at all costs. We need help, desperately.*
 
-
-
 A strange look had crossed Father Anthony’s face after he heard the message. He went to consult a few old books in his personal library as I listened to the message on repeat, trying to sift through the details. 
 
 “How bad is it?” I asked when he returned.
@@ -77,8 +71,6 @@ To Father Anthony, the universe was perfectly ordered, bound by immutable laws. 
 Though he was almost steady as always, I noticed a slight tick as he spoke. Like his mouth couldn’t stop twitching. Looking down, I saw he was carrying a small pouch of red velvet that I’d never seen before.
 
 “Just a precaution,” he said. “Hopefully something we don’t need until much further into your training.”
-
-
 
 I never expected to become an exorcist. 
 
@@ -107,8 +99,6 @@ I laughed.
 “I’m barely Catholic,” I said. “I just joined for her.”
 
 He shook his head. “I don’t believe you.”
-
-
 
 The house at 1237 Palmer Avenue was decadent, even by LA standards. Set back on a nearly full-acre lot bordered by a tall stucco wall, the house soured up three stories, all elegant metal and glass. Later, we would learn that the girl’s father had paid well over a million dollars for the architect alone before construction ever started.
 
@@ -166,8 +156,6 @@ Time may have passed. I can’t be sure. My vision seemed to go black and then r
 
 I ran through the hall and the up the staircase, two steps at a time. It was clearly father Anthony screaming, his cries mixed with the Prayer to Saint Michael. 
 
-
-
 *…Thy thousand thousand hosts are spread*
 
 *Embattled o'er the azure sky;*
@@ -176,15 +164,11 @@ I ran through the hall and the up the staircase, two steps at a time. It was cle
 
 *And lifts the might Cross on high.*
 
-
-
 The prayer was punctuated with repeated shrieks, both from him and someone else. I ran down the hallway toward Maya’s room, the rank smell growing so thick it seemed to thicken the very air.
 
 In the room, I found them. They were coiled together, like two pythons both trying to strangle the other. Blood was everywhere, flowing freely from wounds on both of their bodies. Somehow, in the few minutes since we’d parted ways, Anthony had managed to lose both legs and his left arm, all bitten down to the nubs. Another long gash had opened his belly, and his guts were hanging out of him.
 
 With his one good arm he was holding something gleaming up to Maya’s face. Through the hazy air and the blood, it took me a few seconds to recognize it as a needle and silver thread. Somehow, he had managed to apply three or four stitches across the girl’s mouth, sealing it almost shut. Now, even as he tried to apply a forth stitch, she bit at his fingers with the side of her mouth, severling the pinky and chewing it with obvious joy. Father Michael cried out but continued the prayer:
-
-
 
 *He, in that sign, the rebel powers*
 
@@ -193,8 +177,6 @@ With his one good arm he was holding something gleaming up to Maya’s face. Thr
 *And hurled them from the heavens' high towers,*
 
 *Down, like a thunderbolt, to hell…*
-
-
 
 Every part of me wanted to run. If I’m being honest, I wanted to tear my collar and robes from my body and sprint into the LA night, never looking back. But something in me refused. Instead, I sprang forward, taking the shaking needle from Father Anthony’s shaking fingers.
 
@@ -205,8 +187,6 @@ Maya turned her attention to me now, trying to bite me, shouting curses. 
 “Run, run, run little assistant, you’re in over your head,” I stared at the silver thread dangling from her mouth. I’d never even heard of such a thing. There were rules, protocols that I’d never even heard of, that I wasn’t ready for.
 
 The girl smiled, pulling at the thread, beginning to unravel Father Anthony’s careful work. I saw now, that she would open her mouth wide and eat me down to the very bone. That I would scream while she chewed up my lungs and heart. Indeed, she was reaching for Anthony’s guts now, slurping his intestines through the small hole still left on the side of her mouth.
-
-
 
 Except that I wasn’t seeing any of that now. I was in a quiet room with Sofia, sitting side by side. On ours laps was a quilt. She was smiling, the light catching the strands of her light brown hair. 
 
@@ -220,15 +200,11 @@ I blushed, the needle slipping out from between my fingers.
 
 She put her hand on mine, her flesh warm and soft. Slowly, she guided my fingers down through the soft white fabric. 
 
-
-
 Then suddenly, I was back. I watched my fingers slip the silver thread through Maya’s lips. Only a crack at the side of her mouth remained exposed.
 
 “You’re different than them,” she said, her words more muffled now, and it almost sounded like a normal girl’s voice. “You carry someone with you. Who–” 
 
 I used the moment of surprise to apply the final stitch, blood pooling around the thread as I cinched it shut, silencing her forever. As soon as it was done, she fell back in the bed, her eyes closing as sleep took her.
-
-
 
 After a while, after I’d gotten my thoughts together, I called Father Anthony’s superior at the Vatican to explain what had happened. I tried to stay calm, to explain things as accurately as possible, but I’m sure my voice was shaking. 
 
@@ -260,3 +236,4 @@ There was a brief pause.
 
 “Good,” he said. “Then we will have much to discuss when you [arrive](https://www.reddit.com/r/scarymaxx/comments/zwo5o8/welcome_to_the_world_of_scarymaxx/).”
 
+[Update!](https://www.reddit.com/r/nosleep/comments/1dnl9vt/i_was_an_exorcist_in_training_the_plane_ride_to/)
