@@ -1,8 +1,8 @@
 I'm not gonna lie, I never thought that a post on Reddit would change my life so drastically. But here I am.
 
-I met him at a time of my life when I was a total wreck. My once glowing browny eyes where now blinded by a dense fog of sadness. Videogames and consuming food where my life, purpose and addiction. The only reason I woke up every morning after a small period of time that you could call sleep. I gave up my dreams of studying, meeting people or pursing something. After years of trying to get to the perfect image I've got to the realization that there will never be such a thing. Or would it be? Like most teens, I used to be overly cautious with very inch of my body, every calorie and movement. All under control. But I've grown tired of it and let myself lose.
+I met him at a time of my life when I was a total wreck. My once glowing browny eyes where now blinded by a dense fog of sadness. Videogames and consuming food where my life, purpose and addiction. The only reason I woke up every morning after a small period of time that you could call sleep. I gave up my dreams of studying, meeting people or pursing something. After years of trying to get to the perfect image I've got to the realization that there will never be such a thing. Or would there be? Like most teens, I used to be overly cautious with very inch of my body, every calorie and movement. All under control. But I've grown tired of it and let myself lose.
 
-The idea of my body not being the same as before  and far from idilic depressed me towards unimaginable expenses. I was an outcast, a loneliness my only friend. Cut contact with everybody I knew. I didn't want them to see who I was now. I thought this had no solution nor scape. I thought I was going to die before I met him.
+The idea of my body not being the same as before  and far from perfect depressed me towards an unimaginable degree. I was an outcast, a loneliness my only friend. Cut contact with everybody I knew. I didn't want them to see who I was now. I thought this had no solution nor scape. I thought I was going to die before I met him.
 My worrying family, my giving up body and a small part of myself refusing to give in were the motivations that made my somehow climb out of that dumpster of Cheetos and gloom. Opened my laptop as usual, but this time with the hope of gaining my life back, and made a post looking for weight loss tips. I know this might sound stupid, but as the last day I recall seeing sunlight faded away, more I forgot about common sense, and all those things that might have had helped me through an hypothetical career at med school, which was one of my dreams. Just thinking about it made me feel and look delusional.
 
 I received a DM of a guy who identified as a fitness coach. Without having anything to lose, I explained my situation and summited to each of his requests, questions and orders. Age, weight, height, all usual questions. When he asked me for pictures. I was hesitant since I was really conscious about my body. Made a whole deal out of it, though managed to send them safetly by Telegram. 
@@ -15,9 +15,11 @@ He told me to update him every week, sending him my weight and some pictures ( b
 
 By following his tips, I finally managed to lose some weight, and I was really happy. Nothing extravagant or massive, and as weeks passed, restricting food and exercising more, changes were becoming less and less noticable. I started to succumb to desperation.
 
-I expressed my concerns to, let's call him J, and after an hour or two of talking he revealed to me  that he was working on the development of a powder that would accelerate my progress, though it was on a beta phase still. He told me if I would like to be one of the test subjects. I would not only lose weight and get closer to a more fit body, but be paid for it. I even didn't had to move from my home. The powder would be delivered to any address of my preference. How could I say no.
-With my basic knowledge on internet, I decided to put my neighbor's address and payed with an anonymous revolut debit  card ensuring my safety as much as i could. Unlike his messages, the deliver of the powder took place exactly 24 h later.
-As impatient as I was, I took the powder just then, along with my usual dinner; a tomato salad with garlic and chicken. It had a powdered milk like texture, and tasted something like between vanilla and coconut.
+I expressed my concerns to, let's call him J, and after an hour or two of talking he revealed to me  that he was working on the development of a powder that would accelerate my progress, though it was on a beta phase still. He asked me if I would like to be a test subject for one of his newest projects: a fat burning powder. I would not only lose weight and get closer to a more fit body, but be paid for it. I even didn't had to move from my home. The powder would be delivered to any address of my preference. How could I say no.
+
+With my basic knowledge on internet, I decided to put my neighbor's address and payed with an anonymous revolut debit  card ensuring my safety as much as i could. Unlike his messages, the delivery of the powder took place exactly 24 h later.
+
+As impatient as I was, I took the powder right away along with my usual dinner;  tomato salad with garlic and chicken. It had a powdered milk like texture, and tasted something like between vanilla and coconut.
 
 Changes were immediate. If I lost 2-3 pounds a week, now I would lose that same weight in two days. Some people would say it was too fast. But I wanted to regain my life as soon as possible.
 When I got to a stable weight, I finally decided to meet my family. They were all more than glad to see me. I not only received compliments on my looks, but that love that I've been missing for a really long time.
@@ -26,11 +28,13 @@ That powder gave me my life back. I couldn't be more grateful to J. I told him e
 Everything was borderline perfect. I not only lost weight but also that fog in my head that didn't allow me to think well. I rebuilt friendships, developed more meaningful relationships and even enrolled in university and finally started working on my career.
 
 Everything was flowers until the day I decided to stop taking the powder. After a few months I got to my normal weight, and the usual scoop for dinner became half scoop, and then no scoop. Few days passed before I started noticing strange convulsions through the night. Bags under my eyes were turning bigger and bigger. I kept on losing weight despite eating more and moving less. I was weaker and weaker by every day it passed. My thoughts would revolve around that powder, and I couldn't help myself from ordering more even though I didn't need them anymore.
+
 My first thoughts were that the powder contained drugs. Like anfetamine ( main component of many losing weight pills and supplement which obviously are illegal). It made sense because you could also consume them in powder, and the powder was white. Many of my symptoms coincided with abstinence to drugs. Of course this mysterious ingredient wouldn't appear on the label, since that was far from legal.
 
 I confronted J about this and he just laughed it off. Said it was my head playing tricks on me. I tried to believe him, tried meditation and therapy again. Went to several doctors and they confirmed that, despite my slight underweight, everything was fine with me.
 
 Nothing worked. In fact, symptoms kept getting worse and worse. I stop consume of  powders completely. I obsessively cleaned all the dishware that could possibly contain any remains of powder. I even spent a week at my parents' hoping that the symptoms would somehow dissipate.
+
 I just kept getting weaker and skinnier. A shell of who I once was. I again confronted J demanding for answers. Told him that the damn powder had drugs. He said it was impossible, and if I was that worried I should consult a doctor. My response was that I did and they found nothing. Something was off. 
 
 He offered me another powder to gain muscle and I shut him down. Why would I want more powders? If this powders turned me into a skeleton, what would the others do? Would they contain steroids or something? Would they turn me into the female version of Jonny Bravo, Arnold Schwarzenegger, The Rock??? No thanks. 
@@ -65,3 +69,7 @@ I was better than I've ever been before.  I was prettier and happier than I ever
 
 I tried contacting J several times after that episode in the building, but he never answered. I really wish he could see us now and everyday I endlessly thank him for everything he's done for me. Well, despite that incident with the powder of course.
 I don't know why I'm writing this now. It's been years. I think I needed to let it all out in the same app that once helped me to be the person that I'm now. I'm infinitely grateful. I'm endlessly happy. Can't believe this is real, that my life is a literal dream come true.
+
+
+Edits with the help of:
+- [booferino30](https://www.reddit.com/u/booferino30/s/2ArldbY97d)
