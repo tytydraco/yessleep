@@ -280,7 +280,7 @@ Gary ignored the request and began to extinguish the hallway fire with his equip
 
 The longer I eyed the blackness before me, the sicker I felt. I could’ve waited for Gary and Diego to enter the room. Could’ve consulted with them. Should’ve, most certainly, left the fiery ring alone. Grandpa’s words rang distantly in my mind. His story of the unearthly circle in the forest. His warning to steer clear of such things.
 
-However, I never would’ve been able to live with the thought of abandoning a child in a burning room. Even if I’d somehow explained it to my colleagues, that girl’s face would’ve haunted me until my dying days. I sensed the horror of the circle. I felt the urge to run. But why fight to survive if I’d spend the rest of my life suffering?
+However, I never would’ve been able to live with the thought of abandoning a child in a burning room. Even if I’d somehow explained it to my colleagues, that girl’s face would’ve haunted me until my dying day. I sensed the horror of the circle. I felt the urge to run. But why fight to survive if I’d spend the rest of my life suffering?
 
 That was why I lunged forwards. My suit was singed by the barrier of flames, breaking the circle as my boot landed on the black floor within the clearing. The only foundation that felt steady in the entire building. Everywhere else, the floor had been decaying, but that black clearing felt almost fixed. Immovable. Yet, as I raced through the circle, I remained convinced that the darkness must, in fact, be a hole.
 
