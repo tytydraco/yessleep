@@ -1,4 +1,4 @@
-I'm not gonna lie, he I never thought that a post on Reddit would change my life so drastically. But here I am.
+I'm not gonna lie, I never thought that a post on Reddit would change my life so drastically. But here I am.
 
 I met him at a time of my life when I was a total wreck. My once glowing browny eyes where now blinded by a dense fog of sadness. Videogames and consuming food where my life, purpose and addiction. The only reason I woke up every morning after a small period of time that you could call sleep. I gave up my dreams of studying, meeting people or pursing something. After years of trying to get to the perfect image I've got to the realization that there will never be such a thing. Or would it be? Like most teens, I used to be overly cautious with very inch of my body, every calorie and movement. All under control. But I've grown tired of it and let myself lose.
 
