@@ -264,7 +264,7 @@ The next moment an alarm went off. There was no time to calm Flo down, so I grab
 
 I won’t go into detail about what happened up to this point, as it’s not that important. In summary, I can say that we made it out of the building safely and are now in a woodshed near a forest. The owner of the shed was kind enough to take us in until we were ready to leave. He’s currently away. Flo went out a while ago. She said she was going to collect firewood, which I don’t understand, as the owner had stored enough of it. I should check on her later.
 
-I’m glad I made it out of the nightmare. I was free from hell. I don’t know how long my joy will last, but for now I want to enjoy my freedom as much as I can. And I certainly would never have managed it with the help of my savior that was living inside me. It has such a unique power that I can’t explain. 
+I’m glad I made it out of the nightmare. I was free from hell. I don’t know how long my joy will last, but for now I want to enjoy my freedom as much as I can. And I certainly would never have managed it without the help of my savior that was living inside me. It has such a unique power that I can’t explain. 
 
 Of course, I also owe our safe escape to Flo, my other savior.
 
