@@ -1,4 +1,4 @@
-The humid Louisiana evening clung to me, oppressive and unyielding. My hospital bed, positioned near the open window, offered little solace from the stifling air. The faint stir of the curtains only reminded me of what I could no longer do: move, touch, react. The accident had left me paralyzed, a prisoner in my own body, and now, in this room.
+The humid evening clung to me, oppressive and unyielding. My hospital bed, positioned near the open window, offered little solace from the stifling air. The faint stir of the curtains only reminded me of what I could no longer do: move, touch, react. The accident had left me paralyzed, a prisoner in my own body, and now, in this room.
 
 As dusk settled, a new kind of torment began. It started as a faint, persistent drone, just audible over the hum of the ceiling fan. I knew that sound well—a mosquito. But tonight, the drone carried an unsettling resonance, an almost human-like cadence.
 
