@@ -1,7 +1,3 @@
-\*Part one of a currently ongoing story\*
-
-**Part One - Epitaph**
-
 With a smooth click, the shutter on Marcus’ camera flickered shut, and then open again. “That was great guys, really great, I just need to see a little more excitement in those smiles for this next one, okay?” He preached, beaming a gorgeous smile into a crowd of tired and unbothered wedding guests.
 
  
@@ -148,7 +144,7 @@ He sat for a while, his phone still illuminating the room enough to capture the 
 
  
 
-Out of some retreat to childish behaviors, Marcus’ photography nerdom alerted him to the fact that the camera had flickered, however no picture had begun to print. The flicker implied a photo was taken, yet there had been none spat out.
+Out of some retreat to childish behaviours, Marcus’ photography nerdom alerted him to the fact that the camera had flickered, however no picture had begun to print. The flicker implied a photo was taken, yet there had been none spat out.
 
  
 
