@@ -160,11 +160,7 @@ In a moment of utter despair, I whispered my wish into the night, my voice break
 
 The words spilled out of me, a deluge of pain and desperation. I knew it was foolish, knew it was a last, desperate act of a broken mind. But I didn't care. I just wanted the pain to stop, to find some way to escape the endless torment. I was so tired of that lunacy. I was so exhausted from the ceaseless screaming in my own mind.
 
-As I uttered my wish, a strange sensation washed over me, a warmth that seemed to envelop my entire being. For the briefest of moments, I felt a flicker of hope, a tiny spark in the darkness. But as the warmth faded, I realized that my wish had been granted in the worst possible way.
+As I uttered my wish, a strange sensation washed over me, a warmth that seemed to envelop my entire being. For the briefest of moments, I felt a flicker of hope, a tiny spark in the darkness. But as the warmth faded, I realized that my wish had been granted in the [worst possible way](https://www.reddit.com/r/nosleep/comments/1dodq66/i_witnessed_the_power_of_a_wish_and_its_eating/).
 
 >*But I cannot forget that, at other times I have been deceived in sleep by similar illusions; and, attentively considering those cases, I perceive so clearly that there exist no certain marks by which the state of waking can ever be distinguished from sleep, that I feel greatly astonished; and in amazement I almost persuade myself that I am now dreaming.*  
 *-Rene Descartes*
-
- 
-
- 
