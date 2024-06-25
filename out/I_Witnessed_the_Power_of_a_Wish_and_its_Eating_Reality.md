@@ -74,7 +74,7 @@ Most of his head was missing, a gruesome, gaping wound where his face should hav
 
 He stood there, oblivious to the blood, chatting casually with a passerby. They were discussing the weather, laughing as if nothing was wrong. The passerby, a woman with a shopping bag, didn’t seem to notice the torrent of blood, nor the fact that she was standing in it.
 
-The man finished his conversation and walked into the store, leaving a trail of blood behind him. Inside, he greeted Dave, the cashier, who smiled and handed him his usual pack of cigarettes. Dave’s void wasn’t hemorrhaging though, it was the same as it was the other day. Blood splattered the counter, but the cashier didn’t react, his hands moving through the crimson mess as if it were air.
+The man finished his conversation and walked into the store, leaving a trail of blood behind him. Inside, he greeted Jack, the cashier, who smiled and handed him his usual pack of cigarettes. Jack’s void wasn’t hemorrhaging though, it was the same as it was the other day. Blood splattered the counter, but the cashier didn’t react, his hands moving through the crimson mess as if it were air.
 
 I felt bile rise in my throat, the urge to vomit overwhelming. I stumbled backward, my vision blurring. I needed to get away, needed to escape this nightmare.
 
