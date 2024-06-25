@@ -10,16 +10,12 @@ And what’s worse, is all this time later, as I write this, it seems that only 
 *-George Berkeley*
 
 I stood there at the precipice of life and death. The wind roared from far below as the ocean tried ever harder to press forth against the timeless cliff face. A truth was borne within me that my wish had been granted.  
-  
-The first signs were subtle, such small things at first, almost imperceptible. My house was moved a few feet to the west. Every other line on the sidewalk between 10^(th) and Havannah (13^(th)) was gone. The air weighed just a little less. I tried to rationalize these discrepancies, convincing myself that my mind was playing tricks on me.
 
-But then the absences and discrepancies became more pronounced.  
-  
-The absences became more pronounced. I woke up one morning to find my house shifted several feet to the west, as if the universe had casually decided to relocate it overnight. The lines on the sidewalk between 10th and Havannah Street vanished, leaving a smooth, unmarked expanse of concrete that unnerved me every time I walked over it. The air itself felt different, lighter, as if it were slowly being siphoned away.
+The first signs were subtle, such small things at first, almost imperceptible. My house was moved a few feet to the west. Every other line on the sidewalk between 10th and Havannah (13th) was gone. The air weighed just a little less. I tried to rationalize these discrepancies, convincing myself that my mind was playing tricks on me. 
 
-At first, I tried to rationalize these discrepancies. Perhaps there had been construction I wasn't aware of, or maybe the city had decided to repave the sidewalks. I convinced myself that these changes were merely the product of an overactive imagination, a mind strained by guilt and grief.
+Maybe the city had decided to repave the sidewalks, for example. I convinced myself that these changes were merely the product of an overactive imagination.
 
-But then, the absences became impossible to ignore.
+But then the absences and discrepancies became more pronounced. 
 
 People began to disappear. Parts of them, anyway. It started with acquaintances, people I saw in passing but never really knew. I first noticed it at the grocery store. I was standing in line, lost in thought, when I looked up and saw the cashier, Jack, who I'd chatted with on numerous occasions. A friendly guy, always quick with a smile and a joke, albeit always exhausted. But today, he was missing part of his head. It was simply gone, leaving a smooth, featureless void where his eye and temple should have been. Yet, he seemed completely unaware, scanning items and chatting with customers as if nothing was wrong.
 
@@ -39,7 +35,7 @@ The barista at the coffee shop was next. I went in for my usual coffee, hoping t
 
 I stared at her, my mind reeling.  
   
-“Did you notice me new ring?” She asked with enthusiasm. It must’ve looked like I had, since I was just staring at her hands. “Dave proposed to me last night! Can you believe it?!”  
+“Did you notice my new ring?” She asked with enthusiasm. It must’ve looked like I had, since I was just staring at her hands. “Dave proposed to me last night! Can you believe it?!”  
   
 “Uhh…” Was about all I could manage at that moment. I also noticed her right elbow was gone.  
   
@@ -58,9 +54,9 @@ Soon, it was my friends. One evening, I called my friend Mark to talk about the 
 >*It is indeed an opinion strangely prevailing amongst men, that houses, mountains, rivers, and in a word all sensible objects have an existence natural or real, distinct from their being perceived by the understanding. -For what are the forementioned objects but the things we perceive by sense, and what do we perceive besides our own ideas or sensations; and is it not plainly repugnant that any one of these or any combination of them should exist unperceived?*  
 *-George Berkeley*
 
-I noticed it in conversations too. I would be speaking to someone, and mid-sentence, they would blink out of existence, as if they had never been there. Their words hung in the air for a moment before dissolving into nothingness. I started to avoid talking to people, afraid that my words would somehow trigger their disappearance.
+I noticed it in conversations too. I would be speaking to someone, and mid-sentence, they would just walk off, as if we hadn't been in the middle of a discussion. Their words hung in the air for a moment before dissolving into nothingness. I started to avoid talking to people, afraid that my words would somehow trigger these obsurd reactions.
 
-One day at work, my colleague Jane was tasked with explaining a project to me. Mid-sentence, she just swirled in upon herself. It took about 3 seconds, and she was gone. I blinked, trying to process the visual emptiness where she had been standing. My other colleagues continued working, oblivious to the fact that Jane had ever existed.
+One day at work, my colleague Jane was tasked with explaining a project to me. Mid-sentence, she just swirled in upon herself. It took about 3 seconds, and she was gone. I blinked, trying to process the visual emptiness where she had been standing. My other colleagues continued working, oblivious to the fact that Jane just cosmically imploded.
 
 "Did you see that?" I asked, my voice trembling.
 
@@ -103,7 +99,7 @@ One night, as I walked home, I saw an entire block of buildings vanish before my
 >*If we admit a thing so extraordinary as the creation of this world, it should seem that we admit something strange, and odd, and new to human apprehension, beyond any other miracle whatsoever.*  
 *- George Berkeley*
 
-It was a few weeks after the wish that I encountered my first Eater. I was walking through the park, trying to clear my mind, when I saw a shadow that seemed too dark, too solid. It moved slowly, with purpose, and I watched as whatever it bit turned into a new void.  
+It was a few weeks after the wish that I encountered my first Eater. I was walking through the park, trying to clear my mind, when I saw a shadow that seemed too dark, too solid. It moved slowly, with purpose.
   
 At first, I thought it just a trick of the light, but as I approached, the sense of wrongness grew. The entity was not just a shadow; it was an absence, a void where nothing should have been. It moved with an eerie, deliberate grace, consuming everything in its path.
 

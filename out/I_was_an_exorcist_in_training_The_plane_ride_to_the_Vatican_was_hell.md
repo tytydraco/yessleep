@@ -66,8 +66,6 @@ As he spoke, I saw a hint of movement coming from the girl’s direction. Glanci
 
 I helped Father Anselmo prepare the bindings, though I could tell he would have rather done the job himself. They’d brought holy water in some kind of red-brown earthenware jar that I hadn’t seen before. We soaked three long strips of cloth and bound the girl, who didn’t stir once. Though I had never heard of such a protocol before, the process made sense: three bindings representing the Trinity, the Father, Son, and Holy Spirit uniting to bind the demon.
 
-
-
 Two hours later, we were on a private plane bound for Rome. The aircraft was luxurious by any standard, with plush white leather chairs emblazoned with the flaming sword of St. Michael in delicate black embroidery. 
 
 Two pilots sat upfront, through a security door that looked extra thick. They’d made of point of letting me know they were both well-armed. Of course, I wondered why such levels of protection were necessary, but I just nodded as if this was all perfectly normal.
@@ -98,8 +96,6 @@ Before, I’d been slightly annoyed at Father Anselmo. Now, at the mention of my
 
 “Save it for the flock,” he said. “We’re all priests here. We should speak honestly. You and I, we’re not the same.”
 
-
-
 When my wife was in high school, she had a terrible boyfriend. He was an honor student and a top athlete, popular, beloved. No one would have suspected the pain he inflicted on her in private. 
 
 Even when we started dating, ten years later, she couldn’t describe what he’d done to her physically, in the dark of night one summer alone in his family’s cabin. No one for miles around, a fact he whispered to her over and over. 
@@ -119,8 +115,6 @@ Eventually, we came to a kind of agreement. I wouldn’t seek the man out, but i
 “Is that him?” I’d ask, and she’d shake her head no.
 
 Gradually, we visited Sofia’s hometown less often. I never did see the man in person. As far as I know, I’d still have her permission to kill him if I ever bumped into him.
-
-
 
 “You’re right,” I told Anselmo after a moment. “We’re not the same. And since we’re going to be honest, maybe you’d be a better priest if you’d had a couple of rolls in the hay before you put on your collar. Even just to know us sinners a little better.”
 
@@ -144,7 +138,7 @@ Father Anselmo had taken a step back after absorbing the force of the water jar.
 
 Before he could say another word, Father Anselmo–Bifrons now–charged at him. I realized that in addition to the tiny head, he’d sprouted an extra set of arms and legs, which extended from his elbows and knees and had now grown almost as large as the original ones. The fresh limbs were bare and bloody, glossed with a sheen of mucus like a newborn baby. 
 
-Father Bifrons fell on Father Tomas with full full weight, beating at him with the bloody limbs and biting at his face with his fast-growing new head. But Father Tomas had been prepared, pushing Anselmo to the side with one hand, he took a small silver blade in the other and stabbed it to the hilt into the baby head’s right eye.
+Bifrons fell on Father Tomas with full full weight, beating at him with the bloody limbs and biting at his face with his fast-growing new head. But Father Tomas had been prepared, pushing Anselmo to the side with one hand, he took a small silver blade in the other and stabbed it to the hilt into the baby head’s right eye.
 
 The baby screamed a low growl that seemed to shake the very air inside the plane, and the aircraft dipped again, this time by a hundred feet or more, tossing us all off our feet.
 
@@ -176,8 +170,6 @@ I can’t be sure, but I think I heard her whisper, yes. 
 
 Now it was my turn to charge forward. My vision narrowed. Through the darkness, all I saw was the one, cruel, white eye staring at me. I thought of my wife. Then I drove the blade home.
 
-
-
 On the tarmac in Rome, a man with red robes was waiting for us. I recognized him from a pamphlet I’d once read as Cardinal Robles. He reacted little as he surveyed the bloody scene. 
 
 The pilots still hadn’t left the cockpit. I suspected it was some sort of protocol. Father Tomas lay in my lap, his head bound with a pillowcase I’d fashioned into a makeshift bandage. Both Maya and Anselmo’s bodies lay peacefully on the floor, her mouth sealed with thread, his eyes with daggers.
@@ -193,4 +185,3 @@ I coughed up a bit of blood. I wondered when I’d been injured. I didn’t feel
 I nodded weakly.
 
 “We’ll get these two to their new… accommodations. And then we’re going to have a nice long chat,” said the Cardinal. “I’m starting to thing that St. Michael has big plans for [you](https://www.reddit.com/r/scarymaxx/comments/zwo5o8/welcome_to_the_world_of_scarymaxx/).”
-

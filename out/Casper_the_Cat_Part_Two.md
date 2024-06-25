@@ -1,3 +1,5 @@
+[Part One](https://www.reddit.com/r/nosleep/s/bRXnvhK8O8)
+
 The pedophile’s corpse was as heavy as a tombstone. I panted hard, wiping sweat from my brow. Casper stretched out lazily on the carpet extending his claws. He yawned. I was so furious with him. “A little help?” I gasped as I heaved the body over to him. Casper lazily cleaned his huge paw with his long tongue. Casper’s unholy, golden eyes stared at me hard. 
 
 
