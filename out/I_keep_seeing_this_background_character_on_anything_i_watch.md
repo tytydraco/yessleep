@@ -42,7 +42,7 @@ This photo looks perfectly norm- wait, who is that? I looked closely at the back
 
 Any of my family members, or friends, haven't noticed him, like i'm the only one who can see him.
 
-My tv in my bedroom hasn't been used in a while, i don't want to get rid of it, my dad did give to me after all. Just two days after the night at the pub, i was home alone with my dog Max (he's a Kelpie), and i still couldn't get the image of the character out of head, so i basically locked me and my dog in my room, fearing that he might be in the house. Not even a minute later, he begins to whine and growl at the door, but no-one tries to open it. No jiggling the doorknob, no knocks, nothing.
+My tv in my bedroom hasn't been used in a while, i don't want to get rid of it, my dad did give it to me after all. Just two days after the night at the pub, i was home alone with my dog Max (he's a Kelpie), and i still couldn't get the image of the character out of head, so i basically locked me and my dog in my room, fearing that he might be in the house. Not even a minute later, he begins to whine and growl at the door, but no-one tries to open it. No jiggling the doorknob, no knocks, nothing.
 
 This went on for two minutes before whoever was outside my bedroom walks away, i could hear faint footsteps going downstairs, i've also locked the window and closed the blinds, just in case.
 
