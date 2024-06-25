@@ -376,7 +376,7 @@ Diego’s body.
 
 It seemed apparent that he’d chosen this unthinkable fate, given that there was no sign of any struggle. But I collapsed, unable to accept that he would do this to himself. Not only that he would choose to end his life, but that he’d do so in such a dreadful way. He’d burnt his upper half to a crisp without any resistance. Without pulling himself out of the oven. A slow, agonising death.
 
-I didn’t know why any person would choose that. Especially not Diego. The man had struggled for the past week, but it wasn’t right. He hadn’t been suffering to this extent. It wasn’t him. And that horrified me beyond words. Horrified me because it confirmed what I’d already been suspecting for days.
+I didn’t know why any person would choose that. Especially Diego. The man had struggled for the past week, but it wasn’t right. He hadn’t been suffering to this extent. It wasn’t him. And that horrified me beyond words. Horrified me because it confirmed what I’d already been suspecting for days.
 
 Something was clinging to me.
 
@@ -384,6 +384,6 @@ A darkness that had travelled beyond the burning apartment by gluing itself to t
 
 I finally accepted that my childhood had been no lie. Grandpa’s story had been real, though I had long convinced myself otherwise. Long convinced myself that he hadn’t ever told the story at all, in fact.
 
-Unfortunately, it was all happening exactly as he promised. First, I disturbed the ring, inviting Paskuda to follow. Then, I suffered loss, weakening my spirit. Making me susceptible to the being. I feared the third step, and I needed to see the one person who might be able to save me from it.
+Unfortunately, it was all happening exactly as he promised. First, I disturbed the ring, inviting Paskuda to follow. Then, I suffered loss, weakening my spirit. Making myself susceptible to the being. I feared the third step, and I needed to see the one person who might be able to save me from it.
 
 Save me from ending up like [him](https://www.reddit.com/r/dominiceagle).
