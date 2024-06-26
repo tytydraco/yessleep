@@ -127,3 +127,5 @@ I want to sleep but every time I close my eyes I see her face.
 And I learned why are car was starting to smell. John had the bodies of two of those things in the trunk. He’s got some sort of plan, at least I hope he does because I sure don’t. 
 
 John thinks we should ditch the car, our phones and even our clothes so I don’t know if I’ll be updating again. Stay safe out there. 
+
+[Update](https://www.reddit.com/r/nosleep/s/cE5dtKZjQW)
