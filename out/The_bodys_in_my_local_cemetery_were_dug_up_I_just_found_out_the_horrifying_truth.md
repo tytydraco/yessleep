@@ -36,4 +36,4 @@ I followed the smell to the point where I puked even more all over myself this t
 
 I turned around and made a run for it, my footsteps pounding on the stairs. I was about half way to the top when I heard the thing sprinting up the stairs behind me. By the time I made it to the top of the stairs, the thing was inches behind me. I was about to make it out the front door when my foot fell through one of the floorboards. I then felt the talons claw into my stomach and drag me back down the basement stairs. I opened my eyes and I saw it. It looked just like an owl. The head, the eyes, the way it moved its neck. It slashed my throat with its talons, then threw me into the pile of corpses. 
 
-I don’t know how I’m still alive, I’ve lost a lot of blood. And worst of all, I don’t know when that thing will come back. If anyone is reading this, I’m probably dead. I’m probably going to rot here with the rest of the 300 dead body’s. 
+I don’t know how I’m still alive, I’ve lost a lot of blood. And worst of all, I don’t know when that thing will come back. If anyone is reading this, I’m probably dead. I’m probably going to rot here with the rest of the 300 dead bodies.
