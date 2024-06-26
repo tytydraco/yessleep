@@ -49,13 +49,16 @@ Him: “I had a very perverted past. I used to get so angsty about my fetish bei
 At some point, I found a Reddit post about a thing called ‘fetish mining.’ The post itself, along with all the comments, talked about the common things fetish miners do… give compliments, write a paragraph, tell the creator what not to do… and my jaw dropped. I found an image of a public YouTube comment history, which also made my jaw drop. I had no idea one could see your recent comments… people would be able to spot a pattern!”
 
 
-I squinted in disgust. How would you even have the guts to admit to something like that? Obviously, you're going to be caught if you're going into detail. His email ended with this:
+I squinted in disgust. How stupid could you possibly be? How would you even have the guts to admit to something like that? Obviously, you're going to be caught if you're going into detail about your kink... His email ended with this:
 
 
-“I stopped doing that stuff when I found out it was wrong. I'm changed now and I'm grateful for that.”
+“I did this to my female classmates too, but they laughed it off in emojis and told me they didn't know how to answer my questions. At least they never figured out my intentions. I stopped doing that stuff when I found out it was wrong. I'm changed now and I'm grateful for that.”
 
 
-I had a hard time processing that. He had to realize it was wrong to involve people in his fetish without consent? He thought it was okay? I asked him about it. He told me his idea was to make sure no one knew he was pushing his fetish onto them, because if no one knew, they wouldn't feel awkward. Right… because tricking someone into doing something lewd without their consent is okay, even though it's not. It's predatory, actually! It's something pedophiles probably do with children… when I told him how predatory it was, he told me he understood. He then requested another video, but I declined on the grounds of being disgusted. I'm sure others could forgive him for changing, but I was too disgusted.
+I had a hard time processing that. He had to realize it was wrong to involve people in his fetish without consent? He thought it was okay? I asked him about it. He told me his idea was to make sure no one knew he was pushing his fetish onto them, because if no one knew, they wouldn't feel awkward. Right… because tricking someone into doing something lewd without their consent is okay, even though it's not. It's predatory, actually! It's something pedophiles probably do with children… and there's no way his classmates didn't know his intentions, especially with girls constantly being creeped on in the same way.
+
+
+I told him how predatory it was, then he responded, telling me he understood. He then requested another video, but I declined on the grounds of being too disgusted to want to satisfy him at that moment.
 
 
 I declined every one of his requests. A recurring one was bug crushing, which is literally illegal. He also repeatedly asked me to roast images of his appearance in his Instagram dms, send him messages pretending I'm an angry girl and detail all my acts of revenge, and write a short story about the grey void. I'd happily fulfill these requests, aside from the bug crush one, had he not grossed me out. Roasting and rping are great ideas!
@@ -94,4 +97,4 @@ And just 10 minutes ago, I got mail from the entitled client. Here's what it rea
 “Back when I was an entitled creep ((you're still one, you gross client,)) I made a deal with someone who promised I'd have all my kinks fulfilled no matter what. I hope they don't end up harming you. They need to stop harming people. I'm sorry. If they meet you, you'll probably believe you're delusional. You aren't.”
 
 
-Well, this is something… isn't it? At least most of my clients aren't like this. Well, most of them aren't entitled. 99.99% of them have never pulled a stunt like this out of entitlement... or for any reason at all before. There is no way this is common.
+Well, this is something… isn't it? At least most of my clients aren't like this. Well, most of them aren't entitled. 99.99% of them have never pulled a stunt like this out of entitlement... or for any reason at all before. There is no way this is common. What am I even supposed to do?

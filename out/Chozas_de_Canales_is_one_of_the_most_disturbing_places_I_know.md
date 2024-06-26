@@ -69,7 +69,7 @@ An added tip I give you, so that you saw that I am a good person and that I appr
 
 Móstoles, Alcorcón, Leganés, Getafe, Parla; they are cancer. There is a belt in the north of Toledo that goes from Valmojado to Ocaña, and it will probably go further north, but I no longer control that area. I’m talking about Illecas, Yeles, Seseña and the whole La Sagra area in general. What you could say is metastasis. An inhospitable wasteland, all full of terraced house with uncut hedges, renault 19 scrapped at the door, every three houses there is one half finished and another where there is a caravan or a maritime container that serves as housing. 
 
-On the sidewalks there are no trees, the streets are of detached cement and no one is seen on the street. One puts green mesh of the AKI and the other some advertising tarps so that it is not seen that it has the whole yard full of weed and shit. In the middle of the desert there are streets where people are supposed to live. But what kind of person would go to live in the middle of a pasture with a gypsy and a Romanian neighbor? 
+On the sidewalks there are no trees, the streets are of detached cement and no one is seen on the street. One puts green mesh and the other some advertising tarps so that it is not seen that it has the whole yard full of weed and shit. In the middle of the desert there are streets where people are supposed to live. But what kind of person would go to live in the middle of a pasture with a gypsy and a Romanian neighbor? 
 
 It’s a strange, rare area, it’s a scary place, a place full of spirits, souls in distress, people hiding from something. I’ve seen ugly areas in my life, but that region has always seemed to me the most disturbing place I’ve ever been.
 
