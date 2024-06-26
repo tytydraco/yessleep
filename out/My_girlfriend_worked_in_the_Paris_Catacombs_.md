@@ -56,8 +56,6 @@ No…wait. What’s this?
 
 A loose brick in the floor. Another. Another. A whole section of floor practically falling apart. It hadn’t been like this before, had it? And beneath the brick, which I uprooted in a curious frenzy late one night in my seventeenth year…beneath the brick I found a trapdoor.
 
-___
-
 A spiral staircase. No railing. Steps made of old, rotten wood. The first one creaked pathetically. If I fell through…if I hurt myself, couldn’t get back up…nobody would ever look for me in here.
 
 And yet. Down I went.
@@ -222,6 +220,6 @@ We looked down at the bodies for a time. At Hélène, whose wide, still eyes sta
 
 A miracle.
 
-Finally, Adam lifted our eyes upward and turned our head toward the exit.
+Finally, Adam lifted our eyes and turned our head toward the exit.
 
-*Let us depart*, he said, and together we began the climb upward into the starry Paris night.
+*Let us depart*, he said, and together we began the climb upward into the starry Paris [night.](https://www.youtube.com/c/SergeantDarwin)

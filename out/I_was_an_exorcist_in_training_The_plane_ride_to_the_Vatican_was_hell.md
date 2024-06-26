@@ -28,7 +28,7 @@ Father Aselmo shot him a look. And I recognized it immediately. It was one I’d
 
 “We’re certain you saw something,” said Father Tomas. “Whether you performed a common exorcism or encountered something greater remains in question.”
 
-“Look at my fucking clothes!” I shouted, staggering to my feed. “Look at the blood on my hands. Smell me! Don’t you smell it?”
+“Look at my fucking clothes!” I shouted, staggering to my feet. “Look at the blood on my hands. Smell me! Don’t you smell it?”
 
 That’s when I looked down at myself and realized I was clean. Not even a drop of blood decorated my robes. The only evidence of my encounter was a small scab on my index finger from where I’d pricked myself with the needle as I sewed Maya’s mouth shut. 
 
@@ -108,9 +108,9 @@ When they finally broke up, there was no big confrontation. It was just the stan
 
 After hearing the story, it occurred to me that I might have a moral obligation to find this man and hurt him as badly as he’d hurt her. Maybe to kill him. Partly to spare any future women he might date from a similar fate, but if I’m being honest, it was mostly pure revenge. 
 
-Naturally, Sofia was utterly opposed to such a thing. Maybe she wanted to protect me from the consequences of such a thing. More likely, she knew I wouldn’t have a chance against him. He’d been an all-state wrestler and outweighed me by twenty pounds.
+Naturally, Sofia was utterly opposed. Maybe she wanted to protect me from the consequences of such a thing. More likely, she knew I wouldn’t have a chance against him. He’d been an all-state wrestler and outweighed me by twenty pounds.
 
-Eventually, we came to a kind of agreement. I wouldn’t seek the man out, but if I ever happened to bump into him in her, I was allowed to do whatever I wanted. For many years, whenever we visited her hometown, I felt a surge of adrenaline anytime a man matching his description walked in the door of a restaurant. 
+Eventually, we came to a kind of agreement. I wouldn’t seek the man out, but if I ever happened to bump into him, I was allowed to do whatever I wanted. For many years, whenever we visited her hometown, I felt a surge of adrenaline anytime a man matching his description walked in the door of a restaurant. 
 
 “Is that him?” I’d ask, and she’d shake her head no.
 
@@ -138,7 +138,7 @@ Father Anselmo had taken a step back after absorbing the force of the water jar.
 
 Before he could say another word, Father Anselmo–Bifrons now–charged at him. I realized that in addition to the tiny head, he’d sprouted an extra set of arms and legs, which extended from his elbows and knees and had now grown almost as large as the original ones. The fresh limbs were bare and bloody, glossed with a sheen of mucus like a newborn baby. 
 
-Bifrons fell on Father Tomas with full full weight, beating at him with the bloody limbs and biting at his face with his fast-growing new head. But Father Tomas had been prepared, pushing Anselmo to the side with one hand, he took a small silver blade in the other and stabbed it to the hilt into the baby head’s right eye.
+Bifrons fell on Father Tomas with his full weight, beating at him with the bloody limbs and biting at his face with his fast-growing new head. But Father Tomas had been prepared, pushing Anselmo to the side with one hand, he took a small silver blade in the other and stabbed it to the hilt into the baby head’s right eye.
 
 The baby screamed a low growl that seemed to shake the very air inside the plane, and the aircraft dipped again, this time by a hundred feet or more, tossing us all off our feet.
 
