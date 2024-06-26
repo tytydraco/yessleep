@@ -79,3 +79,5 @@ Since the day when we burst into tears, I swore to myself that I would escape, n
 However, I keep wondering who is the that man the lady mentioned before, the one who wants to harm us, whose voice I might hear every day without fail. I don't think he knows about me yet, I even think that woman is protecting me, hiding me. She seemed frightened to death when I last saw her.
 
 I must escape, quickly. Something's telling me that the worse fate I can face, is him finding out about my existence.
+
+[Part Two](https://www.reddit.com/r/nosleep/s/AapZdua2Pz)
