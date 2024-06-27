@@ -141,5 +141,3 @@ Next to the gas station, was a large corn field, so I simply followed along the 
 I don't know if Joe was supernatural or not. The third hand could've been anything really. I'm just a scared guy, writing this post in my room. It's a rambling, badly edited, mess, that I'm not even going to proof read. I doubt you all can help me, unless you can somehow identify who, or what, Joe was. In short, I'm just telling you of my problem. 
 
 It may have been supernatural, and you guys are apparently experts on that stuff. If you know what Joe was, or have seen him, let me know. I'm not going to reveal where the gas station is, simply because it is within walking-distance of my home, and I don't want to accidentally Dox myself.
-
-Thank you for reading.
