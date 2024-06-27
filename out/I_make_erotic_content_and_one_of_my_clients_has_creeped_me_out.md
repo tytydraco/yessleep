@@ -19,7 +19,7 @@ Going through with the request, I went into my studio, then set up the camera an
 I woke to the sound of two or more people arguing outside my bedroom. Confused and half-asleep, I looked at the door. I couldn't make out a single word they were saying, just that it was two or three male voices. I was about to move when the voices went silent. My room got darker than it already was. Colder too. I shivered. At first, I was convinced I was dreaming.
 
 
-A grey figure materialized where my door should be. I couldn't make out any of its facial features, but I felt it staring at me with malicious intent. Dread filled my gut. The thing started walking towards me. I hopped off my bed, attempting to avoid it at all costs. I felt around for the window, but, somehow, all I felt was a cold brick wall. I was gripped by my shoulders and turned around. The thing's face was nearly touching my nose. This was too weird. I wanted to be dreaming, but I could tell when I was awake. I was frozen. “Wh-what do you want?”
+A shadowy grey humanoid-figure materialized where my door should be. I couldn't make out any of its facial features, but I felt it staring at me with malicious intent. Dread filled my gut. The thing started walking towards me. I hopped off my bed, attempting to avoid it at all costs. I felt around for the window, but, somehow, all I felt was a cold brick wall. I was gripped by my shoulders and turned around. The thing's face was nearly touching my nose. This was too weird. I wanted to be dreaming, but I could tell when I was awake. I was frozen. “Wh-what do you want?”
 
 
 The thing just stared at me. Eventually, it vanished. The air started heating up again. I took me a while to get back to sleep, but I managed to drift away at some point. The next morning, I found a note on my desk. Here's what it read:
@@ -34,7 +34,7 @@ Who gave me this? Why would they give it to me in the first place? I was going t
 “Thank you so much! I'm so happy you could do this for me! I've never been able to find any videos of this fetish, so this is great!”
 
 
-Me: “You're welcome! If you want, I can write you a short story about a kink of yours too.”
+Me: “You're welcome! If you want, I can write you a custom short story about a kink of yours too.”
 
 
 Him: “Sure! I think something like a faux report about girls vandalizing my car would be good. When I know for sure what I want, I'll send it to you! In the meantime, can I open up about something? You're the first girl I've requested something from with payment, so I want to get something off my chest.”
