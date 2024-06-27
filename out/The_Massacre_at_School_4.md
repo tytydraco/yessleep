@@ -1,3 +1,4 @@
+
 “James” I whisper as I run my hands across the wall, finding my way through the dark hallway
 
 “James, this isn’t funny my dad will kill you if I’m not home by 10!” I yell out wondering how I was convinced to explore some dumb old school 
@@ -38,4 +39,4 @@ Now keeling over from exhaustion I feel the adrenaline dying down as I begin to 
 
 “We’ll yes Jocelyn, that’s when the neighbor opens the door and saw a women drenched in blood passed out on their porch” the man in a cop uniform says handing me a tissue to wipe away the tears I didn’t know I was shedding 
 
-“We’ll, we will need you for some more questioning so don’t leave Jacksonville, get better” he says leaving the hospital bed as I lean back and drift asleep.
+“We’ll, we will need you for some more questioning so don’t leave Jacksonville, get better” he says leaving the hospital bed as I lean back and sigh
