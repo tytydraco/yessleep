@@ -90,4 +90,5 @@ For the last time in my life, I was a child again.
 Just an innocent child who believed n fairy tales once more.
 
 [Part 1](https://www.reddit.com/r/nosleep/s/0Tb3GeBtdO)
-  
+
+[Part 3](https://www.reddit.com/r/nosleep/s/9LmMPktjoK)
