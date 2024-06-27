@@ -142,7 +142,7 @@ Bifrons fell on Father Tomas with his full weight, beating at him with the blood
 
 The baby screamed a low growl that seemed to shake the very air inside the plane, and the aircraft dipped again, this time by a hundred feet or more, tossing us all off our feet.
 
-When I looked back at Bifrons, his forehead was bleeding from falling against the edge of a chair. Ignoring the injury, he dug into his bag and removed three more knives.
+When I looked back at Father Tomas, his forehead was bleeding from falling against the edge of a chair. Ignoring the injury, he dug into his bag and removed three more knives.
 
 “Demon of greed,” he said, gesturing to the demon. “Bifrons. We can contain him if we seal all four eyes. Try to stay back. Let me work.”
 
