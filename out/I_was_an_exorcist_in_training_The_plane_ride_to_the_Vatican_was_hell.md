@@ -160,7 +160,7 @@ It seemed to me that I was about to die. Or that perhaps I already had. Perhaps 
 
 At the mention of Sofia’s name, reality snapped back to focus. It was as if the plane was holding in midair. Gravity felt somehow lighter. I got to my feet, my fear replaced with simple, blind rage. Suddenly, the thing in front of me wasn’t Bifron. It was Sofia’s ex. 
 
-I reached forward and uncurled the final blade from Father Anselmo’s limp, bloody fingers.
+I reached forward and uncurled the final blade from Father Tomas's limp, bloody fingers.
 
 “I told you not to talk about my wife,” I said. 
 
