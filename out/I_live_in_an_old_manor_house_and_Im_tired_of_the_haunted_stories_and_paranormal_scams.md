@@ -1,0 +1,15 @@
+Alright, let’s get one thing straight. I live in an old manor house. Yes, I know what you're thinking – ancient walls, secret passageways, dusty chandeliers, dozens of servants – the whole Downton Abbey schtick. But hold your horses. It’s not Downton Abbey; it’s more like Downton Shabby.
+
+I inherited this charming pile of rubble from my father, who inherited it from his father, and so on, all the way back to my 14x great-grandfather. He was given this castle and some land by the king after he slaughtered a bunch of people in a battle over a flock of sheep. Family pride, right? I’m the last of my line, the final fruit on this round family tree, so naturally, I’m stuck with it.
+
+Since my accident, I’m out of a job, so I spend most of my time wandering these crumbling halls, marveling at how a once-great manor has become a magnet for every kind of weirdo. Let’s talk about the so-called "paranormal investigators." These are the folks with their gadgets and gizmos, trying to detect ghostly presences with things that look suspiciously like modified children’s toys. New age folks and hippies on weed, flitting around chanting and waving sage like they’re in a Shakespearean play. And then there are the junkies, leaving heroin needles in my garden. I mean, really?
+
+And before you ask: yes, I've tried to sell the house, dozens of times, but nobody would take it even if I paid them money (not that I have any).
+
+I get it, okay? The place looks like the perfect setting for a horror movie. But trust me, I’m a skeptic. Weird noises? That’s just the old pipes or the wind whistling through the gaps in the walls. Flickering lights? Faulty wiring, obviously. Yet, the stories persist. Everyone claims there’s something “off” about the place. If I got a penny for every time somebody calls this place "haunted", I'd be able to fix the leaking roof and install some actual plumbing.
+
+It doesn’t help that people are afraid of me. I haven’t had actual contact with anyone for ages. Last week, it was a group of teenagers daring each other to spend the night here. I just wanted to politely tell them to bugger off because, well, it's private property. But one girl saw me and fainted on the spot. I get it, I’m not exactly Hollywood material, rather a typical penniless aristocrat with holes in my tweed blazer, ugly red pants, and a scruffy beard. I might look a bit rough around the edges, but a monster? Hardly.
+
+And here’s the kicker: Despite all the tales and the so-called evidence of hauntings, I’ve never seen a damn ghost here. Not a whisper, not a specter, nothing. And I’ve lived here for 268 years and counting!
+
+So, if you’re thinking of visiting because you’re hoping to catch a glimpse of a ghost, don’t bother. You’ll just be wasting your time. Now, if you’ll excuse me, I need to go shoo away the latest batch of “paranormal experts” from my front garden.
