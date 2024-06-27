@@ -12,7 +12,7 @@ I saw Art sitting on his porch of his weatherworn home, smoking a pipe and stari
 
 I figured it wasn’t a well, for this hole was about ten feet across and seemed to go down for at least four or five hundred feet. The top of it was ringed by a perfectly circular stone wall a few feet high, presumably to keep people or animals from falling in by accident.
 
-“If I knew that, I would be a wise man, indeed,” Art whispered sagely. “That hole has been there for as long as anyone knows, before the town was even started. It doesn’t seem to have any bottom that we can see. A few people who live around here have used to get rid of their trash for decades. We just throw whatever rubbish we have into the hole and- voila!- it’s gone forever. Though my wife never trusted it, at least before she died. Maria always asked me not to go near it.” I frowned. Art rarely talked about his dead wife. I knew she had passed away a few years earlier, but he refused to share any of the details of her death.
+“If I knew that, I would be a wise man, indeed,” Art whispered sagely. “That hole has been there for as long as anyone knows, before the town was even started. It doesn’t seem to have any bottom that we can see. A few people who live around here have used it to get rid of their trash for decades. We just throw whatever rubbish we have into the hole and- voila!- it’s gone forever. Though my wife never trusted it, at least before she died. Maria always asked me not to go near it.” I frowned. Art rarely talked about his dead wife. I knew she had passed away a few years earlier, but he refused to share any of the details of her death.
 
 “That could potentially poison the groundwater,” I said. “I’d like to ask you to stop throwing trash in the hole until I can get it looked at. I think Maria may have been right to be leary about abusing the pit.” Art leaned forward, his eyes twinkling.
 
@@ -195,4 +195,3 @@ I looked up, seeing that Miguel, Art and Peaches all stood in front of the car. 
 I started the car and accelerated rapidly towards them, hoping to crush all these eldritch creatures in one fell swoop. All three lunged to the side, twisting in jerky, zombie-like movements. Even without faces, Miguel and Peaches were still incredibly fast.
 
 Without looking back, I drove away, leaving the pit and its many strange mysteries behind forever.
-
