@@ -1,11 +1,6 @@
 Hello, reddit. My name’s Adam. I’m 18 and a senior in high school. Recently, I’ve been asking my Aunt Brandi about what colleges I should attend. (she’s a family law attorney and for reasons i won’t get into here, i would like to do the same thing) Brandi and I usually text or call, so I was a bit confused when a letter from her appeared in an envelope addressed from Vanderbilt. I am posting this here because I don’t know where else to go. I’m not sure what this means for my family or friends, but as soon as I get my diploma, I’m leaving this town.
 
-	
-
-
-
-  
-
+**\*\*\***
 
 I didn’t deserve what happened to me. I know, that’s a bit egotistical. But really, I wouldn’t wish it on anybody. Aside from the injury, I was… seeing things. For weeks, I felt reality escape my mind’s desperate grasp. The lines between what was real and what was an image conjured by my false perception of reality have blurred over the years.
 
@@ -43,7 +38,7 @@ He shrugged as I made my way around to the passenger’s seat. “Like.. an hour
 
 I buckled myself in, letting out a breath I didn’t know I was holding. “We should be home with enough time to get dressed and set the table if Angie hasn’t yet. Is the ice in the trunk or did you drop it off at my house?”
 
-Matty spared me a sheepish smile. “I may or may not have forgotten.”	
+Matty spared me a sheepish smile. “I may or may not have forgotten.”
 
 “Matty!” I scolded, looking over my shoulder to check if he was joking or not. “You had an hour of nap time to get it!”
 
@@ -161,7 +156,7 @@ Then the hand of Death reached out for me. Pale, boney, and welcoming. I accepte
 
 My throat was still burning. I reached my hand up, realizing there was a large gash through it. Thankfully, the cut was shallow, but it was deep enough to temporarily damage my voice box. Mr. Rinefer sat beside me on the ground as the police officers spoke to me, the EMTs readying the gurney. I couldn’t speak, only communicating through nods and head shakes. When we got to the hospital, I was given a pad of paper to finally give my full story.
 
-The police told me it was all a hallucination. They said that, yes, there was a staircase in the well, but it was abandoned long ago. Apparently, I slipped and hit my head and passed out. Stewing chemicals created a biohazardous gas that induced hallucinations. That alone was strange, but what they told me about Matty sealed my suspicions. 
+The police told me it was all a hallucination. They said that, yes, there was a staircase in the well, but it was abandoned long ago. Apparently, I slipped and hit my head and passed out. During the fall, my thigh scraped against a rusty barrel and they had to amputate my leg due to infection. The hospital even had the paperwork to prove it. Stewing chemicals created a biohazardous gas that induced hallucinations. That alone was strange, but what they told me about Matty sealed my suspicions. 
 
 “Matthew Boyd’s body was found floating in the river with blunt force trauma to his head,” Sheriff Shaw told me, his hat in his hands. “We’re sorry for your loss.”
 
@@ -175,4 +170,4 @@ Shaw stood up straight, placing his hat back onto his prematurely balding head. 
 
 No fucking duh.
 
-I didn’t speak to anyone else after that, not even my family. I don’t know what he was covering up, or who he was covering up for, but I got the hell out of that town the next week. And you should too Adam. Luckily, you don’t have any siblings. I suggest that you lay low until you graduate. As soon as that diploma’s in your hand, you get far, far away from there. 
+I didn’t speak to anyone else after that, not even my family. I don’t know what he was covering up, or who he was covering up for, but I got the hell out of that town the next week. And you should too Adam. Luckily, you don’t have any siblings. I suggest that you lay low until you graduate. As soon as that diploma’s in your hand, you get far, far away from there.
