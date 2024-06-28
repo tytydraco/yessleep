@@ -76,7 +76,7 @@ At one point, I got fed up with his requests. I grabbed my camera and went to a 
 “Please make a video of you crushing bugs.”
 
 
-That third one was a comment he'd leave under my next two posts as well, both of which had nothing to do with kinks. The first one was about plants, the second was about dogs. I was expecting more on my follow-up posts, but I didn't get any. He'd given up after two posts, which was surprising, but welcome.
+That third one was a comment he'd leave under my next two posts as well, both of which had nothing to do with kinks. The first one was about plants, the second was about dogs. I was expecting more on my follow-up posts, but I didn't get any. He'd given up after two posts, which was surprising, but welcome. Maybe he's going back to being ethical and paying willing girls to make kink videos or write kink short stories for him.
 
 
 I thought it was over, but over the next three nights, I kept seeing the grey figure. The first night, I was entering my bathroom when I saw it sitting on the toilet for a split second. I jumped out of my body at it. The second night, I woke up to see it standing beside my bed. It vanished seconds later, but chills were running down my spine. On the third night, I got hungry and went into my kitchen for a snack. When I switched the light on, the grey figure was standing in the center of the room, holding a USB in its right hand. It put the USB on the counter, then vanished. I don't remember owning a USB, and I wasn't sure a non-physical entity could carry one like a human could. My brow was raised, then a bone-chilling baritone voice spoke to me.
@@ -97,4 +97,4 @@ And just 10 minutes ago, I got mail from the entitled client. Here's what it rea
 “Back when I was an entitled creep ((you're still one, you gross client,)) I made a deal with someone who promised I'd have all my kinks fulfilled no matter what. I hope they don't end up harming you. They need to stop harming people. I'm sorry. If they meet you, you'll probably believe you're delusional. You aren't.”
 
 
-Well, this is something… isn't it? At least most of my clients aren't like this. Well, most of them aren't entitled. 99.99% of them have never pulled a stunt like this out of entitlement... or for any reason at all before. There is no way this is common. What am I even supposed to do?
+Well, this is something… isn't it? At least most of my clients aren't like this. Well, most of them aren't entitled. 99.99% of them have never pulled a stunt like this out of entitlement... or for any reason at all before. There is no way this is common. What am I even supposed to do? Is anybody willing to be a good customer right now?
