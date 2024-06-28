@@ -106,4 +106,4 @@ A tear spilled down her face her face.
 
 [Part 2](https://www.reddit.com/r/nosleep/s/L1LaHKDOuf)
 
-[Part 1](https://www.reddit.com/r/nosleep/s/spdRlkax95)
+[Part 1](https://www.reddit.com/u/Anitaruihi19/s/QXRAOfgS8c)
