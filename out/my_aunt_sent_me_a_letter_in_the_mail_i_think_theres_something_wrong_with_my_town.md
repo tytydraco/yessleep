@@ -1,6 +1,6 @@
 Hello, reddit. My name’s Adam. I’m 18 and a senior in high school. Recently, I’ve been asking my Aunt Brandi about what colleges I should attend. (she’s a family law attorney and for reasons i won’t get into here, i would like to do the same thing) Brandi and I usually text or call, so I was a bit confused when a letter from her appeared in an envelope addressed from Vanderbilt. I am posting this here because I don’t know where else to go. I’m not sure what this means for my family or friends, but as soon as I get my diploma, I’m leaving this town.
 
-**\*\*\***
+**\*\*\* (the letter begins here)**
 
 I didn’t deserve what happened to me. I know, that’s a bit egotistical. But really, I wouldn’t wish it on anybody. Aside from the injury, I was… seeing things. For weeks, I felt reality escape my mind’s desperate grasp. The lines between what was real and what was an image conjured by my false perception of reality have blurred over the years.
 
@@ -144,7 +144,7 @@ When I woke up, my entire left leg was gone. The room was still, the air thick w
 
 He was carrying my leg. I saw it sit stiffly in his arms, a stolen trophy. He set it down on a metal table, grabbing a nearby rusty wheelchair. He turned back to face me, the manic glint in his eyes ever present. My hands fell to my side once more and I lay still on the table, a corpse ready for examination. As the doctor came close to my right side, he clicked the wheelchair in place. Where was he planning to take me?  He pushed a piece of my hair away from my face, his cruel, ungloved hands were rough and calloused. He leaned down and brought his masked face near my neck, his body hovered over me. The Doctor sniffed in a breath, an animalistic noise filling my ears.
 
-My hand shot up, digging the car keys into his neck. The Doctor let out a pathetic cry as blood sprayed onto my face. I closed my mouth and yanked the keys out, stabbing him once again. His body slowly fell onto mine as I continued to stab his neck over and over again, only stopping when his body slipped to the floor. I looked down at his limp body, the image hasn’t left my mind since. I sat up, my head pounding. I 
+My hand shot up, digging the car keys into his neck. The Doctor let out a pathetic cry as blood sprayed onto my face. I closed my mouth and yanked the keys out, stabbing him once again. His body slowly fell onto mine as I continued to stab his neck over and over again, only stopping when his body slipped to the floor. I looked down at his limp body, the image hasn’t left my mind since. I sat up, my head pounding. 
 
 I pushed the wheelchair forward, squeaky wheels echoing throughout the narrow stone halls. I hit the base of the stairs, projecting onto the steps in front of me. I felt my arms scrape against the un-chiseled rock, pushing the pain out from my mind. I was this close to freedom, I couldn’t let a little blood stop me. I crawled up the stairs at an agonizingly slow pace. I kept thinking I heard footsteps behind me, but if I did, no one would take me.
 
