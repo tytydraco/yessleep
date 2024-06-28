@@ -80,15 +80,15 @@ My wife and I both looked at each other and rolled our eyes.
 
 —
 
-A few hours later, my wife and I decided to retire to our bedroom for the night and, seeing that Rebecca was still scrolling away on the couch, reminded her that her dinner was on the table.
+A few hours later, my wife and I decided to go upstairs for the night and, seeing that Rebecca was still scrolling away on the couch, reminded her that her dinner was on the table.
 
 Once again, our daughter just ignored us, as she continued to scroll away on her phone. Something that, after raising an eighteen year old daughter, I was very used to.
 
 But this time, something was different. This time, she was scrolling on a different phone. The old cracked phone I had found on the doorstep, to be precise.
 
-She's still using that old thing? Wonder what app was on there? Must be some game or social media thing. I thought to myself.
+*She's still using that old thing? Wonder what app was on there? Must be some game or social media thing.* I thought to myself.
 
-"Just remember to turn the lights out before you go to bed, Becca." My wife called down, before we retired to our bedroom for the night, to no reply.
+"Just remember to turn the lights out before you go to bed, Becca." My wife called down, before we retired to our bedroom, to no reply.
 
 —
 
@@ -172,11 +172,11 @@ Thirty minutes later, the deed was done.
 
 The old cracked cell phone, left on a random neighbor's doorstep in the next town over, where I hoped no one would recognize me.
 
-After that, I simply headed back, my daughter sitting there in the passenger seat beside me, still traumatized and speechless from what she had just gone through.
+When I got back to the car, my daughter was just sitting there in the passenger seat, still traumatized and speechless from what she had just gone through.
 
-We drove homr in silence.
+We drove home in silence.
 
-And when we got back, we waited by the barricaded bathroom door, as my wife continued to scream.
+And when we finally got back, we waited by the barricaded bathroom door, as my wife continued to scream.
 
 And waited.
 
