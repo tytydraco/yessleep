@@ -433,3 +433,4 @@ I think I might have an idea of who to ask to translate the book. I'll be seeing
 
 [(Here's an index of all the cases I've discussed so far.)](https://www.reddit.com/u/adorabletapeworm/s/DSCXrJChCH)
  
+Update: [The mechanic's true name. ](https://www.reddit.com/r/nosleep/s/jxP409Zcvk)
