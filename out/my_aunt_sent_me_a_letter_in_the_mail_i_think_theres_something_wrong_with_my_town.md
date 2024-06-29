@@ -1,4 +1,4 @@
-Hello, reddit. My name’s Adam. I’m 18 and a senior in high school. Recently, I’ve been asking my Aunt Brandi about what colleges I should attend. (she’s a family law attorney and for reasons i won’t get into here, i would like to do the same thing) Brandi and I usually text or call, so I was a bit confused when a letter from her appeared in an envelope addressed from Vanderbilt. I am posting this here because I don’t know where else to go. I’m not sure what this means for my family or friends, but as soon as I get my diploma, I’m leaving this town.
+Hello, reddit. My name’s Adam. I’m 18 and a senior in high school. Recently, I’ve been asking my Aunt Brandi about what colleges I should attend. (she’s a family law attorney and for reasons i won’t get into here, i would like to do the same thing) Brandi and I usually text or call, so I was a bit confused when a letter from her appeared in an envelope addressed from Vanderbilt. I am posting this here because I don’t know where else to go to get this off my chest without raising too much question from my peers and fellow townspeople. I’m not sure what this means for my family or friends, but as soon as I get my diploma, I’m leaving this town. 
 
 **\*\*\* (the letter begins here)**
 
@@ -28,7 +28,7 @@ I grabbed the notepad and marked the time. “Thank you so much, Heather. I owe 
 
 As I left the building, cold rain drops fell upon my skin. A chill ran down my spine, but I smiled regardless. Besides the fact that it was my birthday, gloomy weather was my favorite. Living in central Texas, I was no stranger to humidity. But this storm was fresh, crisp. There was no heat lingering in the air, as though Mother Nature herself played a part in planning my birthday party.
 
-In the parking lot, I spotted a brand new black Dodge Viper. With a smile, I strolled over and spotted a young man sleeping, his messy black hair pressed against the window. I brought up my fist and knocked on the glass. “Are you loitering, sir?”
+In the parking lot, I spotted a brand new black Chevy Impala. With a smile, I strolled over and spotted a young man sleeping, his messy black hair pressed against the window. I brought up my fist and knocked on the glass. “Are you loitering, sir?”
 
 The man stirred awake, his eyes meeting mine. He rolled down the window, a relieved smile on his lips. “There she is!” I heard the melodic sound of love ring in my ears. “My gorgeous birthday girl!”
 
@@ -144,7 +144,7 @@ When I woke up, my entire left leg was gone. The room was still, the air thick w
 
 He was carrying my leg. I saw it sit stiffly in his arms, a stolen trophy. He set it down on a metal table, grabbing a nearby rusty wheelchair. He turned back to face me, the manic glint in his eyes ever present. My hands fell to my side once more and I lay still on the table, a corpse ready for examination. As the doctor came close to my right side, he clicked the wheelchair in place. Where was he planning to take me?  He pushed a piece of my hair away from my face, his cruel, ungloved hands were rough and calloused. He leaned down and brought his masked face near my neck, his body hovered over me. The Doctor sniffed in a breath, an animalistic noise filling my ears.
 
-My hand shot up, digging the car keys into his neck. The Doctor let out a pathetic cry as blood sprayed onto my face. I closed my mouth and yanked the keys out, stabbing him once again. His body slowly fell onto mine as I continued to stab his neck over and over again, only stopping when his body slipped to the floor. I looked down at his limp body, the image hasn’t left my mind since. I sat up, my head pounding. 
+My hand shot up, digging the car keys into his neck. The Doctor let out a pathetic cry as blood sprayed onto my face. I closed my mouth and yanked the keys out, stabbing him once again. His body slowly fell onto mine as I continued to stab his neck over and over again, only stopping when his body slipped to the floor. I looked down at his limp body, the image hasn’t left my mind since. I sat up, my head pounding.
 
 I pushed the wheelchair forward, squeaky wheels echoing throughout the narrow stone halls. I hit the base of the stairs, projecting onto the steps in front of me. I felt my arms scrape against the un-chiseled rock, pushing the pain out from my mind. I was this close to freedom, I couldn’t let a little blood stop me. I crawled up the stairs at an agonizingly slow pace. I kept thinking I heard footsteps behind me, but if I did, no one would take me.
 
@@ -156,18 +156,18 @@ Then the hand of Death reached out for me. Pale, boney, and welcoming. I accepte
 
 My throat was still burning. I reached my hand up, realizing there was a large gash through it. Thankfully, the cut was shallow, but it was deep enough to temporarily damage my voice box. Mr. Rinefer sat beside me on the ground as the police officers spoke to me, the EMTs readying the gurney. I couldn’t speak, only communicating through nods and head shakes. When we got to the hospital, I was given a pad of paper to finally give my full story.
 
-The police told me it was all a hallucination. They said that, yes, there was a staircase in the well, but it was abandoned long ago. Apparently, I slipped and hit my head and passed out. During the fall, my thigh scraped against a rusty barrel and they had to amputate my leg due to infection. The hospital even had the paperwork to prove it. Stewing chemicals created a biohazardous gas that induced hallucinations. That alone was strange, but what they told me about Matty sealed my suspicions. 
+The police told me it was all a hallucination. They said that, yes, there was a staircase in the well, but it was abandoned long ago. Apparently, I slipped and hit my head and passed out. During the fall, my thigh scraped against a rusty barrel and they had to amputate my leg due to infection. The hospital even had the paperwork to prove it. Stewing chemicals created a biohazardous gas that induced the "hallucinations." That alone was strange, but what they told me about Matty sealed my suspicions. 
 
 “Matthew Boyd’s body was found floating in the river with blunt force trauma to his head,” Sheriff Shaw told me, his hat in his hands. “We’re sorry for your loss.”
 
 “Blunt force trauma?” I repeated, not sure if he was being serious. “Who hit him?”
 
-“We think he went to the river to relieve himself, as you told us, then he slipped, hit his head, and fell.”
+“We assume he went to the river to relieve himself, as you told us, then he slipped, hit his head, and fell.”
 
-“Are you fucking kidding me?” I questioned, anger seeping through my broken body. “You gave us both the same cover story? Attacked by a pack of wolves is more believable than two, perfectly balanced teens slipping and hitting their heads enough to at least pass out.”
+“Are you fucking kidding me?” I questioned, anger seeping through my broken body. The medication the doctors had given me to help with the pain of my leg didn't help much. “You gave us both the same cover story? Attacked by a pack of wolves is more believable than two, perfectly balanced teens slipping and hitting their heads enough to at least pass out.”
 
 Shaw stood up straight, placing his hat back onto his prematurely balding head. “You’re still in shock.”
 
 No fucking duh.
 
-I didn’t speak to anyone else after that, not even my family. I don’t know what he was covering up, or who he was covering up for, but I got the hell out of that town the next week. And you should too Adam. Luckily, you don’t have any siblings. I suggest that you lay low until you graduate. As soon as that diploma’s in your hand, you get far, far away from there.
+I didn’t speak to anyone else after that, not even my family. I don’t know what he was covering up, or who he was covering up for, but with the help of Mr. Rinefer, I got the hell out of that town the next week. And you should too Adam. Luckily, you don’t have any siblings. I suggest that you lay low until you graduate. As soon as that diploma’s in your hand, you get far, far away from there.
